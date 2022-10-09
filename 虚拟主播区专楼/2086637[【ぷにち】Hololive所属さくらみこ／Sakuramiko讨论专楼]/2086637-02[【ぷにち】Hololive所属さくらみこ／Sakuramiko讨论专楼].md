@@ -6939,3 +6939,51 @@ bug窗很久没出现了，最近youtube又在搞什么奇怪的
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 2178#       发表于 2022-10-9 20:48
+
+<img src="https://img.saraba1st.com/forum/202210/09/204804rvt222tp88pwucf5.png" referrerpolicy="no-referrer">
+
+<strong>X78D}7XPTBM}1O8G{G3L2RE.png</strong> (162.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 20:48 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">八字母来啦
+
+*****
+
+####  qesto  
+##### 2179#       发表于 2022-10-9 20:48
+
+ 本帖最后由 qesto 于 2022-10-9 20:49 编辑 
+
+PEKOMIKO民来啦啦啦啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/09/204915dzm8tslsxtfqj00a.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (180.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 20:49 上传
+
+*****
+
+####  holoan  
+##### 2180#         楼主| 发表于 2022-10-9 20:50
+
+那还是可以的
+
+*****
+
+####  rs5621  
+##### 2181#       发表于 2022-10-9 20:51
+
+太乐了，这35p铁八字母民了
+

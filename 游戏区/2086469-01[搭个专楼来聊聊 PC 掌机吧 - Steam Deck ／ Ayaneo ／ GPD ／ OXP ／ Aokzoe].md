@@ -5271,3 +5271,15 @@ steam deck美区好像现货了，64G 2800左右能搞定，纠结要不要买�
 怎么解决的，刷的官方给的那个固件吗？我刷完好像还是偶尔断</blockquote>
 就正常了一天，第二天又开始各种断了，这到底是驱动问题还是硬件问题，难受<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  恋妖壶  
+##### 426#       发表于 2022-10-9 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832001&amp;ptid=2086469" target="_blank">小泉花陽 发表于 2022-10-9 18:32</a>
+
+就正常了一天，第二天又开始各种断了，这到底是驱动问题还是硬件问题，难受 ...</blockquote>
+今天好像又给了个固件，你再试试？我懒得试了
+

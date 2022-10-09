@@ -1166,3 +1166,233 @@ snp开始是二年级生，不可能进来的。从开始就是弃子罢了<img 
 
 第三季是京极花田的可能性仍然很大，因为这烫手山芋谁愿意接，反正第二季已经触底了，就剩一季了还不如继续随便做做，除非花田主动撂挑子
 
+
+
+*****
+
+####  stygian  
+##### 7633#       发表于 2022-10-9 20:42
+
+一期みんな
+
+二期私
+
+三期あなた
+
+我不好说，不过我倒觉得香音传可能性没那么大
+
+*****
+
+####  稀勢のささ  
+##### 7634#       发表于 2022-10-9 20:43
+
+<img src="https://img.saraba1st.com/forum/202210/09/204238uf7i7e01z79i1mdd.jpg" referrerpolicy="no-referrer">
+
+<strong>2750d3fcc3cec3fd9140f3b59388d43f869427b2.jpg</strong> (33.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 20:42 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凑个五角星真不容易
+
+*****
+
+####  星踪幻影  
+##### 7635#       发表于 2022-10-9 20:43
+
+正直3期生より4期生のほうが楽しみだよな
+
+1名無しで叶える物語(しまむら)2022/10/09(日) 21:41:42.81ID:rUYLoSDk
+
+さゆとかのんには卒業してもらって
+
+2名無しで叶える物語(もんじゃ)2022/10/09(日) 21:42:21.26ID:ELAg7JME
+
+恋ちゃん留年してて草
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名津流  
+##### 7636#       发表于 2022-10-9 20:43
+
+这...大家都哭了，那是不是最后鲤鱼不哭一下都不合适了...
+
+*****
+
+####  ButaiKyaku  
+##### 7637#       发表于 2022-10-9 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833757&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-9 20:41</a>
+虽然星动画的确是屎，能有三期简直莫名其妙，但看国内国外某些O信因有三期破防也太难看了吧... ...</blockquote>
+编辑啥啊，你的锐气呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7638#       发表于 2022-10-9 20:45
+
+希望鲤鱼能绷住
+
+*****
+
+####  qty  
+##### 7639#       发表于 2022-10-9 20:45
+
+Pay不出意外的绷不住了，一会鲤鱼肯定也得哭，这么一看青山心态是真的强，星团拧绳姐。
+
+*****
+
+####  starring  
+##### 7640#       发表于 2022-10-9 20:46
+
+为了劝诱大家参加海选，都尽力了
+
+镜头切到打铁严肃的表情有点可怕
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7641#       发表于 2022-10-9 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833780&amp;ptid=2078110" target="_blank">星踪幻影 发表于 2022-10-9 20:43</a>
+
+正直3期生より4期生のほうが&amp;# ...</blockquote>
+かのん监督、就任<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 7642#       发表于 2022-10-9 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕没人来让PAY摇人是吧（不是）
+
+*****
+
+####  凡人  
+##### 7643#       发表于 2022-10-9 20:46
+
+能再海选出个小百合水平的素人吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  proselyte  
+##### 7644#       发表于 2022-10-9 20:46
+
+ 本帖最后由 proselyte 于 2022-10-9 20:48 编辑 
+
+这逼企划到底是怎么回事……怎么还想着加人继续出动画
+
+*****
+
+####  型月重工  
+##### 7645#       发表于 2022-10-9 20:47
+
+萌战吧某些人酸不能看
+
+*****
+
+####  iuhehc  
+##### 7646#       发表于 2022-10-9 20:48
+
+ 本帖最后由 iuhehc 于 2022-10-9 20:49 编辑 
+
+可可这个问题真的算解决了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+我真的是信じられない
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7647#       发表于 2022-10-9 20:48
+
+[悲报] s1鉴赏区全员-2
+
+*****
+
+####  Kfly  
+##### 7648#       发表于 2022-10-9 20:48
+
+隔壁说要不先招募编剧吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  型月重工  
+##### 7649#       发表于 2022-10-9 20:48
+
+可可回呢？ 第三季会有吗？
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7650#       发表于 2022-10-9 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833856&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-9 20:48</a>
+
+可可这个问题真的算解决了
+
+信じられない</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">啊？没看生放，刚刚鱼说了？？？？？离谱
+
+
+
+*****
+
+####  qty  
+##### 7651#       发表于 2022-10-9 20:50
+
+居然绷住了，有进步啊
+
+*****
+
+####  starring  
+##### 7652#       发表于 2022-10-9 20:50
+
+鲤鱼没说太多感想绷住了，刚刚那一闪而过的镜头看到她眼睛都红了
+
+*****
+
+####  Enakina  
+##### 7653#       发表于 2022-10-9 20:50
+
+草，鲤鱼说我虽然以后liella会变成几个人还不知道，绷不住了
+
+*****
+
+####  iuhehc  
+##### 7654#       发表于 2022-10-9 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833872&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-9 20:49</a>
+
+啊？没看生放，刚刚鱼说了？？？？？离谱</blockquote>
+归国问题算解决了...
+
+毕竟2期赢了吧..哎
+
+*****
+
+####  lj205  
+##### 7655#       发表于 2022-10-9 20:50
+
+鲤鱼这收尾处理的非常好
+
+*****
+
+####  型月重工  
+##### 7656#       发表于 2022-10-9 20:51
+
+明年一期生会不会毕业？
+
+*****
+
+####  Kfly  
+##### 7657#       发表于 2022-10-9 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833888&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-9 20:50</a>
+归国问题算解决了...
+
+毕竟2期赢了吧..哎</blockquote>
+只能说解决得过于草率
+别让我第三季再看到你没活了又拿回国说事<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
