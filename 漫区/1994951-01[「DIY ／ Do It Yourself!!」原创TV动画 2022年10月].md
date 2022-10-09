@@ -1307,3 +1307,14 @@ Do It Yourself!!
 
 真的很期待女主哪天突然崩溃大哭对妈妈说“对不起，我这么没用，但我也不是自己想当笨小孩的。”<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最强惠酱  
+##### 110#       发表于 2022-10-10 07:28
+
+明明是jk萌萌治愈片，为什么会这么沉重<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

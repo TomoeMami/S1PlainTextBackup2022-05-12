@@ -2892,3 +2892,21 @@ tag试了一堆这傻雕ai能 ...</blockquote>
 手部精调我是看到有人在做了，不知道什么是时候能有效果
 [https://www.reddit.com/r/StableD ... much_perfect_hands/](https://www.reddit.com/r/StableDiffusion/comments/xwzyvh/custom_hand_model_mean_pretty_much_perfect_hands/)
 
+
+
+*****
+
+####  Issue  
+##### 227#       发表于 2022-10-10 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57827539&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-9 15:15</a>
+
+你是说高跟鞋那里畸形吗，我没怎么见过真高跟鞋，不知道应该是啥样，重新生成了几个</blockquote>
+不是高跟鞋的鞋，是前脚掌没了，已经恐怖了唉<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">你对这个不敏感吗
+
+个人感觉楼里很多人嘲笑的凰图小画师至少不会犯这种一眼错误，不然饭盒不保，所以这个的及格率确实很高吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+重新生成的1、2高跟鞋看不到前脚背，鞋跟过长过短是明显没法站的，3的鞋跟稍为短一点，也画出了左腿，就选3吧，带#211共计4张，算他及格率25%
+
+那#211第1张的腰也能改吗？
+
