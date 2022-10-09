@@ -2691,3 +2691,29 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 这么说可能有些阴谋论，也可能有酸的嫌疑。我有时候就觉得，可可是不是被悄咪咪的降番了，无论从哪方面看堇 ...</blockquote>
 可可是标准的工具人，用来塑造别人不就很正常了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，纵观俩季动画，可可都是工具人，其实一季前三集剧情矛盾的中心也不在可可那里，只不过那三集至少没有牺牲可可的塑造去塑造其他人物，所以看起来不那么工具人，但是基本也能算是属于辅助塑造别人
 
+
+
+*****
+
+####  ViyViy  
+##### 7777#       发表于 2022-10-9 23:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">还不如猜猜这狗比企划会不会直接砍了可可的G店看板娘手办这个“第一名”的“好处”呢，毕竟也没说过你选上了一定会出手办吧？都是根据前两次的经验之谈而已，真这么干不管什么理由就真的是司马昭之心了。
+
+*****
+
+####  ruffian  
+##### 7778#       发表于 2022-10-9 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836428&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-09 23:50:58</a>
+可可是标准的工具人，用来&amp;# ...</blockquote>配角不等于工具人啊，工具人是像工具一样被使用，但前三集作为辅助角色的可可和小千都算是有血有肉，哪怕是戏份相对较少的恋和堇也都留下了足以让人有兴趣继续了解的鲜明个性。在我看来一部作品中出现工具人就是剧情走下坡路的开始
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  DarthAka  
+##### 7779#       发表于 2022-10-10 00:01
+
+拿隔壁SP举例子，杏夏那样才是二番，这么算星哪有啥二番，真就是伴舞
+

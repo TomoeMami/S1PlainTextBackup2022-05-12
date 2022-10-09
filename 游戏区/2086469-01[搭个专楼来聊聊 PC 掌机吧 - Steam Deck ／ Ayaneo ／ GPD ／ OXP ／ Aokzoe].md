@@ -5299,3 +5299,15 @@ steam deck美区好像现货了，64G 2800左右能搞定，纠结要不要买�
 
 。。。看了一圈是真惨，新手们还是等GPD吧，虽然营销LOW，但品控毕竟稳定太多了。
 
+
+
+*****
+
+####  asuss  
+##### 429#       发表于 2022-10-9 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835325&amp;ptid=2086469" target="_blank">nilren 发表于 2022-10-9 22:34</a>
+
+。。。看了一圈是真惨，新手们还是等GPD吧，虽然营销LOW，但品控毕竟稳定太多了。 ...</blockquote>
+GPD和AYA的品控哪个更好？
+
