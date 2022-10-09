@@ -210,3 +210,96 @@ UR nako来了！
 从目前来看，估计是的，三期生都是天生比肩香圣的神仙
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上也开始说可香前三集是不同的人吧、失忆了这种话了，世界大同
 
+
+
+*****
+
+####  saya1892  
+##### 7523#       发表于 2022-10-9 19:23
+
+「星的功绩」
+
+「发掘了伊达小百合」
+
+「此帖完结」
+
+「告诉了我鲤酱的存在」
+
+「佩酱没有再用那个V家名字」
+
+「明白了NHK不适合动画」
+
+「让菜宝交到了朋友」
+
+「成为了青山的垫脚石」
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nufawneafg| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  稀勢のささ  
+##### 7524#       发表于 2022-10-9 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼是不是困了啊
+
+*****
+
+####  qty  
+##### 7525#       发表于 2022-10-9 19:26
+
+pay以后上场就化这个妆就行，她这种脸就适合厚底浓妆
+
+*****
+
+####  lj205  
+##### 7526#       发表于 2022-10-9 19:27
+
+不看了，就嗯聊
+
+*****
+
+####  cat1230  
+##### 7527#       发表于 2022-10-9 19:28
+
+樱花妹确实还能表现的很开心。鲤鱼属于一般开心吧。读了几分信后大家兴致差不多了。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  ruffian  
+##### 7528#       发表于 2022-10-9 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832572&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-09 19:19:09</a>
+从目前来看，估计是的，三期生都是天生比肩香圣的神仙
+
+推上也开始说可香前三集是不同的人吧、失忆了这种话 ...</blockquote>再加个千砂都和叶月恋，这俩也变了个人<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 7529#       发表于 2022-10-9 19:30
+
+樱花妹营业力还是有的，不然还能愁眉苦脸不成。反正这事肯定就这样揭过去。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 7530#       发表于 2022-10-9 19:30
+
+还要尬吹一小时，确实难受
+
