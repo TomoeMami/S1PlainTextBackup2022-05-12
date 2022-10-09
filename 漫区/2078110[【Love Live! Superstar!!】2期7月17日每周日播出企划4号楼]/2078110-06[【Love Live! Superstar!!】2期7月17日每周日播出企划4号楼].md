@@ -2994,3 +2994,14 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 二期整体都很烂，个人最好看的大概是红蓝和可堇，还有评价很低的恋回我也挺喜欢的。最喜欢的角色是红毛和恋 ...</blockquote>
 别说，5厕也是这几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ButaiKyaku  
+##### 7809#       发表于 2022-10-10 06:39
+
+[http://s1vote.com/index.php?st=1&amp;so=2&amp;year=0&amp;season=0](http://s1vote.com/index.php?st=1&amp;so=2&amp;year=0&amp;season=0)
+
+暂时超越兽娘2，位居第一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
