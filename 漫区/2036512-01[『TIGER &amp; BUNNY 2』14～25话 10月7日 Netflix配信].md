@@ -69,3 +69,19 @@
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 97#       发表于 2022-10-10 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835897&amp;ptid=2036512" target="_blank">souhikaru 发表于 2022-10-9 23:12</a>
+感觉没有第三季了，本来第二季能出就已经很奇迹了
+老虎和传奇对于人生道路的不同选择，兔子人性的成长，虽 ...</blockquote>
+这一季狂徒实惨，死一户口本，还不断挨揍，最后生死不明
+噬身之蛇作为染指整个都市的组织，有很多可深挖的东西，但是又要深挖组织，又要依托两个塑造得差不多完整了的主角去继续，难度就很大了。
+这片名就注定也不能换主角
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

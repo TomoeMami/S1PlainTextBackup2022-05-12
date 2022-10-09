@@ -2869,3 +2869,12 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  we89623  
+##### 7797#       发表于 2022-10-10 01:01
+
+某瓶吐槽星二期了，看样星二期有望成为动漫区吐槽UP主的香饽饽了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
