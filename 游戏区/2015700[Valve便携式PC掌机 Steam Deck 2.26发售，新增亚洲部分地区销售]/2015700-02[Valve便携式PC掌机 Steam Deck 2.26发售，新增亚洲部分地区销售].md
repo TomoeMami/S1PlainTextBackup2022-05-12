@@ -321,3 +321,16 @@ FE114DA0-59A0-4F27-92BA-B2C7D13C4492.jpeg
 我用的中环转运，运了30天还没到手里</blockquote>
 兄弟 太真实了，听说清关要8个工作日
 
+
+
+*****
+
+####  endn1991  
+##### 1893#       发表于 2022-10-9 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57816730&amp;ptid=2015700" target="_blank">superkin185 发表于 2022-10-8 20:48</a>
+没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
+求私信
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
