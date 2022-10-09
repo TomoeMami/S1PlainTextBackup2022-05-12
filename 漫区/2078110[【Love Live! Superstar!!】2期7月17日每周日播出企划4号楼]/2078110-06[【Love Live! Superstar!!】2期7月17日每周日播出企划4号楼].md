@@ -2169,3 +2169,42 @@ Chiha发了感想<img src="https://static.saraba1st.com/image/smiley/face2017/00
 
 LL企划唯一的优势就是选人这关运气很好。 2期暂时不好说，1期五个至少去别的2.5D企划都是够格当C位的。
 
+
+
+*****
+
+####  ViyViy  
+##### 7734#       发表于 2022-10-9 22:44
+
+太君们给点力啊，还不炎上等着后年真的烂完呢。
+
+这方面还是韩国在行，不回应不满意我就开车堵你门口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 7735#       发表于 2022-10-9 22:48
+
+梯子过期了有没有好兄弟/姐妹帮忙关心一下unya画师疯特了没？我真的好怕他被干破防跑路了……<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  名津流  
+##### 7736#       发表于 2022-10-9 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835482&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-9 22:44</a>
+
+太君们给点力啊，还不炎上等着后年真的烂完呢。
+
+这方面还是韩国在行，不回应不满意我就开车堵你门口 ...</blockquote>
+偶像圈要是搞电竞那套玩法感觉有戏
+
+*****
+
+####  稀勢のささ  
+##### 7737#       发表于 2022-10-9 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">生放完了的时候瞟了一眼  发现他在期待3期可可soloed和C位曲
+

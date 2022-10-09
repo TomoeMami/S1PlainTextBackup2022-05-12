@@ -368,3 +368,16 @@ FE114DA0-59A0-4F27-92BA-B2C7D13C4492.jpeg
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  亚瑟摩根  
+##### 1897#       发表于 2022-10-9 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57830568&amp;ptid=2015700" target="_blank">windhawind2 发表于 2022-10-9 17:10</a>
+我看了下较便宜的美区充值不是充值卡 都是自己登陆steam账号密码或者和机器人交易啥的 这样的安全性没问题 ...</blockquote>
+买了两个了，一点事都没有，就是泥潭推荐那个马云店
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
