@@ -2777,3 +2777,34 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 堇看一期动画会给人一种实质副center的感觉，毕竟有nonfiction这种C位曲，nonfi和day1二联后来也真的成了各种拼盘的保留节目，pay子唱歌也确实给力……可二期以来哪还有什么二番位，香音神是唯一C，剩下8个和维恩都是伴舞和洗脚婢罢了
 
+
+
+*****
+
+####  ads147147  
+##### 7787#       发表于 2022-10-10 00:17
+
+花田这是对三集定律的嘲笑，婆罗门？河豚？骗进来全杀了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ruffian  
+##### 7788#       发表于 2022-10-10 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836584&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-10 00:02:57</a>
+所以前三集可可确实没有多少工具人感，人物行为逻辑也还不错，可是从全局来看，“工具人”能很好的概括 ...</blockquote>全局来看……前三集的可可确实是作为诱饵把人骗进来鲨的“工具人”了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+另外再阴谋论一点，我真的有点怀疑剧本中途改过，没有人发现一期恋回中叶月恋反对学园偶像的理由和前三集完全不一样了吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 7789#       发表于 2022-10-10 00:21
+
+要说花田的“反三集定律”，舰c是不是也算一个？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
