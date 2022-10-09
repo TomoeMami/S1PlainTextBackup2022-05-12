@@ -159,3 +159,54 @@ UR nako来了！
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7517#       发表于 2022-10-9 19:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们要是整点小游戏说不定大家就忘了刚刚的动画了，还搁着读你那筛了又筛的信
+
+*****
+
+####  稀勢のささ  
+##### 7518#       发表于 2022-10-9 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是我就自己编了 可能还快点
+
+*****
+
+####  D麦林  
+##### 7519#       发表于 2022-10-9 19:14
+
+如果二期生都是后进所以实力和前辈有差距的话
+我在想三期生会不会设定成都是vn这样的天赋型选手 一进来实力就匹敌一期生
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7520#       发表于 2022-10-9 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832509&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-9 19:14</a>
+
+如果二期生都是后进所以实力和前辈有差距的话
+
+我在想三期生会不会设定成都是vn这样的天赋型选手 一进来实力 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只有二期生受伤的世界
+
+*****
+
+####  稀勢のささ  
+##### 7521#       发表于 2022-10-9 19:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种时候真希望能找到中之人里垢小号看看说过些啥
+
+*****
+
+####  ViyViy  
+##### 7522#       发表于 2022-10-9 19:19
+
+从目前来看，估计是的，三期生都是天生比肩香圣的神仙
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上也开始说可香前三集是不同的人吧、失忆了这种话了，世界大同
+

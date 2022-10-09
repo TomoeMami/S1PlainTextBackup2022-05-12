@@ -2877,3 +2877,18 @@ tag试了一堆这傻雕ai能 ...</blockquote>
 tag试了一堆这傻雕ai能 ...</blockquote>
 确实，手还好说，我无论是用线上版还是泄露版的novelai就没生成过一张能看的裸足，可能是训练集的问题吧
 
+
+
+*****
+
+####  mahoraga  
+##### 226#         楼主| 发表于 2022-10-9 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832047&amp;ptid=2098197" target="_blank">ghgyhg 发表于 2022-10-9 18:34</a>
+
+折腾了一天泄露版，特意进来替广大足控发声：啥时候才能量产色色的jiojio啊
+
+tag试了一堆这傻雕ai能 ...</blockquote>
+手部精调我是看到有人在做了，不知道什么是时候能有效果
+[https://www.reddit.com/r/StableD ... much_perfect_hands/](https://www.reddit.com/r/StableDiffusion/comments/xwzyvh/custom_hand_model_mean_pretty_much_perfect_hands/)
+
