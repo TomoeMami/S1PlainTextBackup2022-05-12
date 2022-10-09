@@ -1979,3 +1979,49 @@ http://b23.tv/92mWFqF</blockquote>
   -- 来自 有消息提醒的 Stage1官方 And ...</blockquote>
 那还有个前提是官方不会创新出“毕业”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  四宫家印  
+##### 7713#       发表于 2022-10-9 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834643&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-9 21:43</a>
+相信白组……而且建模除了静香有点怪之外其他都挺好</blockquote>
+我也不明白为啥就静香这么怪，其他人看上去都没问题…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 7714#       发表于 2022-10-9 21:55
+
+<blockquote>FF14见习って陨石落として新生させよう</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sjbssd  
+##### 7715#       发表于 2022-10-9 21:55
+
+是不是已经烂了，可以不用补第二季了？
+
+*****
+
+####  cybernetics31  
+##### 7716#       发表于 2022-10-9 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834830&amp;ptid=2078110" target="_blank">sjbssd 发表于 2022-10-9 21:55</a>
+是不是已经烂了，可以不用补第二季了？</blockquote>
+是的
+
+*****
+
+####  sjbssd  
+##### 7717#       发表于 2022-10-9 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834848&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-9 21:56</a>
+
+是的</blockquote>
+唉。可惜啊可惜。还是看看远处的水团异界纵横吧。
+
