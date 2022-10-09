@@ -1558,3 +1558,39 @@ Pay不出意外的绷不住了，一会鲤鱼肯定也得哭，这么一看青�
 
 始まりは君の空(12人ver.) √
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7674#       发表于 2022-10-9 21:02
+
+现在搞海选，想了想还是……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+如果企划准备用力推三期海选的人，那么很难避免一期生在第3季动画结尾会出现动画角色处于高三末尾的问题，除非这企划准备玩毕业制，否则这动画的正统续作就很难再到第四季了，那么新招来的人也有点浪费了，当然硬要是将动画就停在第3季搞外传之类的，随便它了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 7675#       发表于 2022-10-9 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833995&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-9 20:56</a>
+鲤鱼最后发言是眼镜一直在瞄台本吧。不仅没哭，甚至看着有点无聊
+
+----发送自 Xiaomi Redmi K20 Pro,Androi ...</blockquote>
+台本写不出我也不知道会怎样的话吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 7676#       发表于 2022-10-9 21:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">它搞毕业制的话炎上不可避啊
+
+*****
+
+####  凡人  
+##### 7677#       发表于 2022-10-9 21:12
+
+三期c真未来可期那就学水开外传就行了嘛
+
