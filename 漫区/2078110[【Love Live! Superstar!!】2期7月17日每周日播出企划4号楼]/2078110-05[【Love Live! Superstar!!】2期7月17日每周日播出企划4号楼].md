@@ -15025,3 +15025,22 @@ hori那边接的活吧
 
 看了最终回前SP和日经的两篇文，每个问题都在雷点上跳舞，真有你啊PLSP运营桑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 7365#       发表于 2022-10-9 10:38
+
+りーちゃんもお白汤とクックパッドコラボやらんかな 
+エプロン姿も见たいしりーちゃんすぐお白汤の腕つかむからかわいい
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 7366#       发表于 2022-10-9 10:39
+
+补了鲤鱼的直播录像，真解压，看完对动画怎么样更加无所谓了……另外关于工商那段太搞了
+
