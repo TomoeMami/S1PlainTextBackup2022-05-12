@@ -15803,3 +15803,153 @@ VN还真是三期生<img src="https://static.saraba1st.com/image/smiley/face2017
 
 ？？？等一下
 
+
+
+*****
+
+####  iuhehc  
+##### 7452#       发表于 2022-10-9 18:22
+
+啊啊啊啊啊啊啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ButaiKyaku  
+##### 7453#       发表于 2022-10-9 18:23
+
+ 本帖最后由 ButaiKyaku 于 2022-10-9 18:24 编辑 
+
+意思是vn不去了，所以香音也不能去了？
+
+留 学 中 止
+
+*****
+
+####  ButaiKyaku  
+##### 7454#       发表于 2022-10-9 18:23
+
+第三季板上钉钉了
+
+*****
+
+####  ButaiKyaku  
+##### 7455#       发表于 2022-10-9 18:23
+
+第三季板上钉钉了
+
+*****
+
+####  starring  
+##### 7456#       发表于 2022-10-9 18:23
+
+为了不让圣香音离队，VN学院费尽心思啊
+
+*****
+
+####  ads147147  
+##### 7457#       发表于 2022-10-9 18:24
+
+我现在就是坚定的vn粉了！
+
+结那憋了两年了，真是辛苦了
+
+*****
+
+####  Kfly  
+##### 7458#       发表于 2022-10-9 18:24
+
+又不去了，哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 7459#       发表于 2022-10-9 18:24
+
+什么**剧情，真有你的花田
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7460#       发表于 2022-10-9 18:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">这最后一段太啥比了，大概大人们还觉得很有意思
+
+*****
+
+####  player3960  
+##### 7461#       发表于 2022-10-9 18:25
+
+第三季，花田大先辈继续来创死大家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  JhIenog  
+##### 7462#       发表于 2022-10-9 18:25
+
+虽然猜到了，但是还是好好笑，哈哈哈哈哈哈哈
+
+笑到打滚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7463#       发表于 2022-10-9 18:26
+
+还有一年呢，谢谢大家继续支持花田和京极给大家喂雪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿姆罗二世  
+##### 7464#       发表于 2022-10-9 18:26
+
+实在是太逆天了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  stygian  
+##### 7465#       发表于 2022-10-9 18:27
+
+气乐了
+
+*****
+
+####  ButaiKyaku  
+##### 7466#       发表于 2022-10-9 18:27
+
+随便程度高到了正常人难以理解的地步
+
+*****
+
+####  lj205  
+##### 7467#       发表于 2022-10-9 18:28
+
+为啥家长不投诉这烂动画？
+
+*****
+
+####  水莲寺流歌  
+##### 7468#       发表于 2022-10-9 18:30
+
+我看笑了
+
+*****
+
+####  iuhehc  
+##### 7469#       发表于 2022-10-9 18:30
+
+吃个饭冷静一下先，等等还要看生放尬吹呢
+
+*****
+
+####  NZ-333  
+##### 7470#       发表于 2022-10-9 18:31
+
+说是大粪都算赞美
+应该叫顶级资源蒜
+
