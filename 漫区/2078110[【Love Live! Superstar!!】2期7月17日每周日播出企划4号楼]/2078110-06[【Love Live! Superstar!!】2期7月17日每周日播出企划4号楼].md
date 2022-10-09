@@ -1914,3 +1914,68 @@ http://b23.tv/92mWFqF
 二期口碑都崩成这样了，哪怕上面做一次市场调研就应该让这俩人滚 ...</blockquote>
 先等三巡翻了车再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7707#       发表于 2022-10-9 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834538&amp;ptid=2078110" target="_blank">四宫家印 发表于 2022-10-9 21:36</a>
+
+醒醒，百百这次是全3D
+
+http://b23.tv/92mWFqF</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">相信白组……而且建模除了静香有点怪之外其他都挺好
+
+*****
+
+####  cybernetics31  
+##### 7708#       发表于 2022-10-9 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saverok  
+##### 7709#       发表于 2022-10-9 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834368&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-9 21:26</a>
+
+明年10月被百万嘲讽是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百万算了吧 谁笑谁呢
+
+*****
+
+####  ButaiKyaku  
+##### 7710#       发表于 2022-10-9 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834538&amp;ptid=2078110" target="_blank">四宫家印 发表于 2022-10-9 21:36</a>
+醒醒，百百这次是全3D
+
+http://b23.tv/92mWFqF</blockquote>
+看了一下，这3d水平不错，感觉比邦强
+
+
+
+*****
+
+####  player3960  
+##### 7711#       发表于 2022-10-9 21:46
+
+除非中日开战，想不出开除鲤鱼的理由，起码能蹦跶到30岁吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aoaoaodedede  
+##### 7712#       发表于 2022-10-9 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834696&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-9 21:46</a>
+
+除非中日开战，想不出开除鲤鱼的理由，起码能蹦跶到30岁吧
+
+  -- 来自 有消息提醒的 Stage1官方 And ...</blockquote>
+那还有个前提是官方不会创新出“毕业”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
