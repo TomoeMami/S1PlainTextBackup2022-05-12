@@ -15445,3 +15445,98 @@ unya,yyds，我单方面宣布一张图爆杀全12集（虽然第12集还没播�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">花田：没有团队感？我故意的 这样拆队你们受伤小点
 
+
+
+*****
+
+####  ViyViy  
+##### 7405#       发表于 2022-10-9 18:05
+
+企划真是抓住每时每刻硬绑啊，直接把堇塞可可家里商谈啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ButaiKyaku  
+##### 7406#       发表于 2022-10-9 18:07
+
+vn闪现进香音家
+
+*****
+
+####  稀勢のささ  
+##### 7407#       发表于 2022-10-9 18:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">あなただけ
+
+*****
+
+####  ButaiKyaku  
+##### 7408#       发表于 2022-10-9 18:09
+
+vn：你去留学的话，还能抬结丘母校一手
+
+*****
+
+####  ViyViy  
+##### 7409#       发表于 2022-10-9 18:10
+
+喵的，经典让学校沾光是吧，这都不是什么升学率问题，太草了
+
+*****
+
+####  稀勢のささ  
+##### 7410#       发表于 2022-10-9 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好大的面子
+
+
+
+*****
+
+####  iuhehc  
+##### 7411#       发表于 2022-10-9 18:11
+
+走吧走吧真是
+
+*****
+
+####  ButaiKyaku  
+##### 7412#       发表于 2022-10-9 18:11
+
+欢送会都来了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7413#       发表于 2022-10-9 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合着别人不是superstar
+
+*****
+
+####  稀勢のささ  
+##### 7414#       发表于 2022-10-9 18:11
+
+赶紧滚吧真的
+
+*****
+
+####  ButaiKyaku  
+##### 7415#       发表于 2022-10-9 18:11
+
+香音决定留学了
+
+*****
+
+####  tjshibc21  
+##### 7416#       发表于 2022-10-9 18:11
+
+果然 只有你才是superstar
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7417#       发表于 2022-10-9 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">真去啊 牛逼 剧场版就维也纳吧
+
