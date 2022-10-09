@@ -334,3 +334,14 @@ FE114DA0-59A0-4F27-92BA-B2C7D13C4492.jpeg
 
 —— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  布里兰特  
+##### 1894#       发表于 2022-10-9 15:47
+
+<blockquote>superkin185 发表于 2022-10-8 20:48
+没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
+私信推荐下！
+
