@@ -108,3 +108,54 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这话能让松雾这个全肯定厨都蚌埠住还是有点东西的
 
+
+
+*****
+
+####  ads147147  
+##### 7512#       发表于 2022-10-9 19:04
+
+nako圆眼镜形态好棒。
+
+nako是近视？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名津流  
+##### 7513#       发表于 2022-10-9 19:04
+
+<img src="https://img.saraba1st.com/forum/202210/09/190434wy3niowynizt7il9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221009190426.png</strong> (21.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 19:04 上传
+
+UR nako来了！
+
+*****
+
+####  稀勢のささ  
+##### 7514#       发表于 2022-10-9 19:07
+
+一直有戴隐形眼镜吧
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7515#       发表于 2022-10-9 19:09
+
+声优盾，启动！
+
+*****
+
+####  愛さ実  
+##### 7516#       发表于 2022-10-9 19:12
+
+笑死，太君也夸不下去嘴了。“总之先来看生放送了”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
