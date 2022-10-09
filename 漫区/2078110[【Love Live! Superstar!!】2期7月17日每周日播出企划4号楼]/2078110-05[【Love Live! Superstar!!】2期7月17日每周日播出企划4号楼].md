@@ -14945,3 +14945,19 @@ hori那边接的活吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  kata魂  
+##### 7357#       发表于 2022-10-9 09:14
+
+今天就解脱了，好耶
+
+*****
+
+####  ads147147  
+##### 7358#       发表于 2022-10-9 09:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有第三季呢。不过好在明年是虹四格和水3
+
