@@ -2840,3 +2840,26 @@ tag试了一堆这傻雕ai能把10根脚趾数对的概率不超过5%。即便�
 
 不知道特意针对手指脚趾做finetune难度有多大？只能期待cv界能有足控dalao救命了
 
+
+
+*****
+
+####  Risa  
+##### 223#       发表于 2022-10-9 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832047&amp;ptid=2098197" target="_blank">ghgyhg 发表于 2022-10-9 18:34</a>
+
+折腾了一天泄露版，特意进来替广大足控发声：啥时候才能量产色色的jiojio啊
+
+tag试了一堆这傻雕ai能 ...</blockquote>
+手和小腿脚掌如果能修正好的话，基本这AI可以完成95%插画和立绘，简单剧情插图的工作了。
+
+*****
+
+####  戈饭  
+##### 224#       发表于 2022-10-9 18:55
+
+今天就用这个了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

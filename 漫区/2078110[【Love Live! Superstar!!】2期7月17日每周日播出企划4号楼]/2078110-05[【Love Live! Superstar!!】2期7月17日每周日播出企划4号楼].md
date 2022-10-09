@@ -16139,3 +16139,59 @@ VN还真是三期生<img src="https://static.saraba1st.com/image/smiley/face2017
 
 我懂了，第三季的目标就是达成sp都没能达成的史上第一连冠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为香音神欢呼
 
+
+
+*****
+
+####  qty  
+##### 7495#       发表于 2022-10-9 18:51
+
+剧情就不说啥了，反正早就烂完了，关键你这歌也不行啊，决赛居然选这么一首白开水的曲子，听的人一点情绪波动都没有，还以为后面有高潮段落呢，结果你告诉我唱完了，哄弄谁呢？就这水平的歌也能夺冠，你这大赛的水准未免也太次了吧？
+
+*****
+
+####  wsdbyh  
+##### 7496#       发表于 2022-10-9 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832143&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-9 18:42</a>
+
+推的可可词条都在说 归国问题呢？</blockquote>
+有没有可能，制作组根本就没有计划弄什么可可归国回
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7497#       发表于 2022-10-9 18:52
+
+我要去留学了，哎我又不去了，就是玩儿<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 7498#       发表于 2022-10-9 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832187&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-09 18:47:03</a>
+看来花田京极眼里，s1e123确实是可可回，你们中国人要知足啊 v2.5.4</blockquote>个人回没有独唱ed是吧<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+未来如风，我的未来如风……
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  GGnob  
+##### 7499#       发表于 2022-10-9 18:55
+
+香圣留在结丘能否证明结丘实力大于维也纳音乐学院<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 7500#       发表于 2022-10-9 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832210&amp;ptid=2078110" target="_blank">ButaiKyaku 发表于 2022-10-9 18:49</a>
+
+我懂了，第三季的目标就是达成sp都没能达成的史上第一连冠为香音神欢呼 ...</blockquote>
+这个让我很不满，也就说缪和水没有三年生就一直不再夺冠了是吧
+
+什么SB设定，直接拿前辈来垫脚？
+
