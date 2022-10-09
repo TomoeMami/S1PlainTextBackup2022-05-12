@@ -276,3 +276,18 @@ FE114DA0-59A0-4F27-92BA-B2C7D13C4492.jpeg
  没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
 同求个私信
 
+
+
+*****
+
+####  虚拟小仓星  
+##### 1890#       发表于 2022-10-9 13:35
+
+占个楼更新一下自己的购买经历<img src="https://static.saraba1st.com/image/smiley/carton2017/313.png" referrerpolicy="no-referrer">应该算steamdeck现货后第一批购买客户
+
+<img src="https://p.sda1.dev/7/9a48738c76a93c3da3b452c6ef40bc39/55ef8043b3409ef1.jpg" referrerpolicy="no-referrer">
+
+*10月8号淘宝买充值卡花费2080 
+
+*10月9号显示货物已打包
+

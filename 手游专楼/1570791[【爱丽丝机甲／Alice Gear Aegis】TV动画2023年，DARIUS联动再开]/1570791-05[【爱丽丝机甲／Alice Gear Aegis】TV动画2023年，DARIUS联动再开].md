@@ -14056,3 +14056,12 @@ IA强化前一言难尽：上膛枪没无敌、单手剑没盾防、没即时攻
 
 另外AIT的BURST攻击也就能秒秒80的小怪，敌人等级再高就秒不掉了
 
+
+
+*****
+
+####  梅普基  
+##### 7371#       发表于 2022-10-9 13:38
+
+不知道是不是我理解有误，楼上几位是不是既有用AIT指代Ti2的、也有用AIT指代IA的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
