@@ -2475,3 +2475,22 @@ unya多少还算是抱怨了那么一下下的<blockquote>私は捻くれた🍨
 
 —— 来自 HONOR NTH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 7755#       发表于 2022-10-9 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835836&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-9 23:08</a>
+说实话，就算已经这样了，我对9个角色中的任何一个都讨厌不起来，哪怕我说自己已经箱推变单推了。现在回头 ...</blockquote>
+偶像动画里很正常啊
+不就是那句话，<strong>我没有讨厌她们的理由，但让我喜欢她们是需要理由的</strong>
+
+*****
+
+####  稀勢のささ  
+##### 7756#       发表于 2022-10-9 23:16
+
+讨厌的理由已经给的够多了 只不过我在脑内把前三集切割了
+
