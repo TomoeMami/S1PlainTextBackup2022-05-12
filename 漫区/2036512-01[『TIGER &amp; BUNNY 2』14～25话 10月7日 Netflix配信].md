@@ -153,3 +153,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">彻底断了第三季……
 
+
+
+*****
+
+####  souhikaru  
+##### 103#       发表于 2022-10-10 07:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837728&amp;ptid=2036512" target="_blank">wirblwind 发表于 2022-10-10 03:14:42</a>
+彻底断了第三季……</blockquote>别的不说，从市长到普通市民，看着既视感多强啊，这是现实主义无误（）
+老虎和兔子不也吐槽女boss意义不明吗233
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

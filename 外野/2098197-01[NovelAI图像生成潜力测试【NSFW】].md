@@ -2910,3 +2910,19 @@ tag试了一堆这傻雕ai能 ...</blockquote>
 
 那#211第1张的腰也能改吗？
 
+
+
+*****
+
+####  Issue  
+##### 228#       发表于 2022-10-10 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832502&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-9 19:14</a>
+
+手部精调我是看到有人在做了，不知道什么是时候能有效果
+
+https://www.reddit.com/r/StableDiffusion/comm ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+早上一起来就看见我在#193推荐的画师特别允许AI学画手了，楼里谁认识人来帮忙对接一下 [https://t.bilibili.com/715049507357720592](https://t.bilibili.com/715049507357720592)
+
