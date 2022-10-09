@@ -1525,3 +1525,20 @@ AI偷站真是没什么办法，我一般会试着SL一两次，仍然不行的�
 
 跪派果然就是希望人类死光啊，我这边储备军力，他这边就往死里拆外太空基地，就是想办法阻止你储备军力抵御外星入侵，最后结果就是互相拆，暴行大家都差不多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wwddrte  
+##### 138#       发表于 2022-10-10 01:06
+
+<img src="https://img.saraba1st.com/forum/202210/10/010622jjrz2hwkb3lhjjii.png" referrerpolicy="no-referrer">
+
+<strong>AGXK7}0XZRM83$}OGH{2+.png</strong> (88.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 01:06 上传
+
+yy一下
+

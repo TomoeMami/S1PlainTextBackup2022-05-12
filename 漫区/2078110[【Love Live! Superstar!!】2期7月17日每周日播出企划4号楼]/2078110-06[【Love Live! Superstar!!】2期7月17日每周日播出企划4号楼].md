@@ -2878,3 +2878,14 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 某瓶吐槽星二期了，看样星二期有望成为动漫区吐槽UP主的香饽饽了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liu461  
+##### 7798#       发表于 2022-10-10 01:10
+
+这还用想，这根本就是所有可推砸在脸上的事实，第一季前三集塑造的可香太过成功，以至于还沉迷在自闭的香音面前可可简直要抢班夺权成一号位，然后赶紧打压抢戏份说骚话刷坏感做恶剪，要是稍微看过内娱某些综艺的简直是太谙熟这就是吸引人气的祭天位然后通过种种之前讲的手段让隐皇出道<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+只是花田干脆不演了，啥隐皇，只有一个明皇，那就是圣香音，你可可也别觉得祭天位有啥委屈的，所有人都是洗脚婢罢了，我恋推朋友看着第二季那些莫名其妙抢班夺权的剧情简直是话都说不出来<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+

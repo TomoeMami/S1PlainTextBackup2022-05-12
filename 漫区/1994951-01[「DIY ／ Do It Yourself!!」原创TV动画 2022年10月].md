@@ -1296,3 +1296,14 @@ Do It Yourself!!
 
 画画会吃蜡笔，做手工不会啃螺丝吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pzk  
+##### 109#       发表于 2022-10-10 01:02
+
+女主完全无法集中注意力的样子确实有点像多动症……而且看着有股莫名其妙的怀旧的沉重和悲伤……
+
+真的很期待女主哪天突然崩溃大哭对妈妈说“对不起，我这么没用，但我也不是自己想当笨小孩的。”<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
