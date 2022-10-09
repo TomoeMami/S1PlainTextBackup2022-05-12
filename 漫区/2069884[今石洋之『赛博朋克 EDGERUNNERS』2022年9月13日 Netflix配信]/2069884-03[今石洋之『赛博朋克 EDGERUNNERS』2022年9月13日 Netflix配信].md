@@ -1545,3 +1545,35 @@ Burn this city
 <img src="https://p.sda1.dev/7/d61bb10c75f1bb971b847a12a4f50ae3/illust_101696251_20221008_222307.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/557f8c94b10680e695db6b75929e87d1/illust_101696251_20221008_222308.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 3118#       发表于 2022-10-9 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798891&amp;ptid=2069884" target="_blank">哈扎马 发表于 2022-10-7 21:25</a>
+
+本来上周就已经补完，一直想码感想但苦于没空，而且没打过游戏原作，闲暇粗浅补了一些原作的设定但仍然很浅 ...</blockquote>
+TV版故意删了所有Burn this city
+
+*****
+
+####  鱼雷鲨  
+##### 3119#       发表于 2022-10-9 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798891&amp;ptid=2069884" target="_blank">哈扎马 发表于 2022-10-7 21:25</a>
+
+本来上周就已经补完，一直想码感想但苦于没空，而且没打过游戏原作，闲暇粗浅补了一些原作的设定但仍然很浅 ...</blockquote>
+TV版故意删了所有Burn this city
+
+*****
+
+####  鱼雷鲨  
+##### 3120#       发表于 2022-10-9 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798891&amp;ptid=2069884" target="_blank">哈扎马 发表于 2022-10-7 21:25</a>
+
+本来上周就已经补完，一直想码感想但苦于没空，而且没打过游戏原作，闲暇粗浅补了一些原作的设定但仍然很浅 ...</blockquote>
+TV版故意删了所有Burn this city
+
