@@ -1818,3 +1818,99 @@ TVアニメ3期 制作決定
 <img src="https://p.sda1.dev/7/83bf2e31d1dbb8dfd6a108123a84dc62/20221009_210411.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/725e9effd7fd0d6f22f825180f268f11/20221009_210413.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7698#       发表于 2022-10-9 21:31
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-10-9 21:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834424&amp;ptid=2078110" target="_blank">四宫家印 发表于 2022-10-9 21:29</a>
+
+你们说到时候星三和百万哪个更强</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然我对百万动画的剧情不抱希望，但是live应该还是可以秒杀星三的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">慢点出吧，我想看星三和闪耀色彩同台竞技
+
+*****
+
+####  ruffian  
+##### 7699#       发表于 2022-10-9 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834413&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-09 21:28:43</a>
+阿b评论区居然有人说官方在削弱可可的作用，也太妄自菲薄了！可可的作用明明非常大阿——既能给动画组当角 ...</blockquote>哦对了，虽然鲤鱼生放说可可的事情解决了，但她也不知道三期会演什么吧？动画背刺她也不是一次两次了。三期没活了照样可以把回国事件拉出来遛遛，为剧情增添戏剧冲突，多好用一工具人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  plok201  
+##### 7700#       发表于 2022-10-9 21:34
+
+每人3年，然后每年3-4个新人无限续杯？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 7701#       发表于 2022-10-9 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834383&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-9 21:27</a>
+你可以看看百万的监督和脚本是谁……我觉得寄的可能性很大</blockquote>
+百万的监督不是绵田吗，脚本加藤也是熟面孔。给个好剧本，绵田还是有点实力
+
+*****
+
+####  离心  
+##### 7702#       发表于 2022-10-9 21:35
+
+ 本帖最后由 离心 于 2022-10-9 21:38 编辑 
+
+虽然这么说真的很缺德和恶意，但以一个乐子人的角度来看。一个差评如潮的动画有了续集 ，另一个好评如潮的动画迟迟没有声音，粉丝遍地哀嚎的景象真的好有乐子啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  四宫家印  
+##### 7703#       发表于 2022-10-9 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834460&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-9 21:31</a>
+虽然我对百万动画的剧情不抱希望，但是live应该还是可以秒杀星三的
+
+慢点出吧，我想看星三和 ...</blockquote>
+醒醒，百百这次是全3D<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+http://b23.tv/92mWFqF
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7704#       发表于 2022-10-9 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834494&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-9 21:34</a>
+
+百万的监督不是绵田吗，脚本加藤也是熟面孔。给个好剧本，绵田还是有点实力 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">绵田我也觉得靠得住，加藤真不熟，我看bgm上全是雷作……等之后偶活新剧场版我看看
+
+*****
+
+####  we89623  
+##### 7705#       发表于 2022-10-9 21:38
+
+ 本帖最后由 we89623 于 2022-10-9 21:40 编辑 
+
+京极和花田三期润的可能性还是有的....吧
+
+二期口碑都崩成这样了，哪怕上面做一次市场调研就应该让这俩人滚蛋。
+
+*****
+
+####  nufawneafg  
+##### 7706#       发表于 2022-10-9 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834569&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-9 21:38</a>
+京极和花田三期润的可能性还是有的....吧
+
+二期口碑都崩成这样了，哪怕上面做一次市场调研就应该让这俩人滚 ...</blockquote>
+先等三巡翻了车再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
