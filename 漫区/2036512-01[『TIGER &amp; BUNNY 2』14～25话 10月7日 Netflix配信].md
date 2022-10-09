@@ -166,3 +166,17 @@
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  souhikaru  
+##### 104#       发表于 2022-10-10 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837155&amp;ptid=2036512" target="_blank">唧唧歪歪八卦阵 发表于 2022-10-10 01:00:44</a>
+这一季狂徒实惨，死一户口本，还不断挨揍，最后生死不明
+噬身之蛇作为染指整个都市的组织，有很多可深挖 ...</blockquote>其实我还挺喜欢hero日常的，明明可以多搞点搞笑日常
+新组合完全复制虎兔模式，也没有很讨喜，就很尴尬了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
