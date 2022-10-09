@@ -15390,3 +15390,58 @@ unya,yyds，我单方面宣布一张图爆杀全12集（虽然第12集还没播�
 
 已经做好被9人ver始空创死的准备<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 7398#       发表于 2022-10-9 18:00
+
+看这动画跟我考驾照的心态差不多了
+我考驾照：哈哈考完就再也不用碰这逼车了
+我看星二：哈哈过了今天我就再也不用看这逼动画了（虽然三巡还要再放一次……
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 7399#       发表于 2022-10-9 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">开绑
+
+*****
+
+####  ButaiKyaku  
+##### 7400#       发表于 2022-10-9 18:01
+
+小千：我们其他人夺走了香音的u咩
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7401#       发表于 2022-10-9 18:01
+
+开头就蚌埠住了。。。
+
+*****
+
+####  ViyViy  
+##### 7402#       发表于 2022-10-9 18:01
+
+行了，才三分钟，我就两眼发黑
+
+*****
+
+####  starring  
+##### 7403#       发表于 2022-10-9 18:02
+
+开幕雷击，合着其她人的u咩不是u咩<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 7404#       发表于 2022-10-9 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">花田：没有团队感？我故意的 这样拆队你们受伤小点
+
