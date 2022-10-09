@@ -15168,3 +15168,16 @@ hori那边接的活吧
 
 最好把一单剩下的dreaming energy和lapapa都改成9人ver，这样五老星真正意义上消失了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 7379#       发表于 2022-10-9 12:05
+
+ 本帖最后由 Kfly 于 2022-10-9 12:08 编辑 
+
+这之后再改个12人的版本换掉9人版吗？
+
+它们真是不嫌麻烦啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

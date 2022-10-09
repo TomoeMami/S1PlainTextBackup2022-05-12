@@ -188,3 +188,25 @@ Steam Deck 面向日本、韩国、台湾和香港开放预订
 
 完了，收到货都一天了才想起自己没用充值卡直接信用卡买了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  慕容断月  
+##### 1883#       发表于 2022-10-9 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57789242&amp;ptid=2015700" target="_blank">Hanzong 发表于 2022-10-7 06:50</a>
+
+这么简单，多谢</blockquote>
+如果没记错Linux版steam的游戏安装信息也是记录在库的common文件夹同级目录内的acf文件里，偷懒一点的办法是直接win上处理完了连带处理好的游戏和acf文件丢到sd的对应位置，再重启steam，这样可以少下一次游戏，但是有些游戏可能不能这样
+
+*****
+
+####  mp5  
+##### 1884#       发表于 2022-10-9 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57816730&amp;ptid=2015700" target="_blank">superkin185 发表于 2022-10-8 20:48</a>
+
+没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
+求私信
+
