@@ -15044,3 +15044,37 @@ hori那边接的活吧
 
 补了鲤鱼的直播录像，真解压，看完对动画怎么样更加无所谓了……另外关于工商那段太搞了
 
+
+
+*****
+
+####  csolfans  
+##### 7367#       发表于 2022-10-9 10:47
+
+已经开始全方位明示今晚有9人始空了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7368#       发表于 2022-10-9 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57823558&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-10-9 10:47</a>
+
+已经开始全方位明示今晚有9人始空了</blockquote>
+真有也只能尽量去接受不是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/09/105017ywjvbibrvvbmnmmr.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQpefb-hxnpK27T3cSk0-io.jpg</strong> (83.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 10:50 上传
+
+*****
+
+####  lj205  
+##### 7369#       发表于 2022-10-9 10:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
