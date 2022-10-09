@@ -85,3 +85,15 @@
 
 —— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  繭  
+##### 98#       发表于 2022-10-10 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837155&amp;ptid=2036512" target="_blank">唧唧歪歪八卦阵 发表于 2022-10-10 01:00</a>
+这一季狂徒实惨，死一户口本，还不断挨揍，最后生死不明
+噬身之蛇作为染指整个都市的组织，有很多可深挖 ...</blockquote>
+我感觉可能就出个剧场版或者直接开个同世界观的新作
+
