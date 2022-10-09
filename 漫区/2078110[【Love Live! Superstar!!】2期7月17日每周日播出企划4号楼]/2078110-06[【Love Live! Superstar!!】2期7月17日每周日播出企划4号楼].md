@@ -1396,3 +1396,165 @@ Pay不出意外的绷不住了，一会鲤鱼肯定也得哭，这么一看青�
 只能说解决得过于草率
 别让我第三季再看到你没活了又拿回国说事<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7658#       发表于 2022-10-9 20:53
+
+ 本帖最后由 稀勢のささ 于 2022-10-9 20:55 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">也就帮剧本圆了一下 不过效果嘛
+
+她自己不也说没啥别的想说的了  没办法 几个人在那个位置想说的没法说
+
+*****
+
+####  名津流  
+##### 7659#       发表于 2022-10-9 20:54
+
+<img src="https://img.saraba1st.com/forum/202210/09/205301lc4oz3fo4zwtijos.png" referrerpolicy="no-referrer">
+
+<strong>2022-10-09T12-51-14.571Z.png</strong> (42.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 20:53 上传
+
+日推趋势前15里有5条，还行吧
+
+*****
+
+####  型月重工  
+##### 7660#       发表于 2022-10-9 20:54
+
+别扯什么回国了，就算不是回国能不能给可可一个真正的个人回，而不是CP回
+
+*****
+
+####  player3960  
+##### 7661#       发表于 2022-10-9 20:54
+
+鲤鱼:我只是和yabu共情了一下，不要误会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 7662#       发表于 2022-10-9 20:55
+
+掌握了真正的流量玩法
+
+*****
+
+####  梶原ひかり  
+##### 7663#       发表于 2022-10-9 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833680&amp;ptid=2078110" target="_blank">ButaiKyaku 发表于 2022-10-9 20:35</a>
+水那个外传和虹四格可能不是日升这个组做，所以也能上，唯一会影响的只有没谱的虹三 ...</blockquote>
+虹咲压根没什么三期可能性...最多大发慈悲来个剧场 不过就虹咲动员力 做剧场也不是很理想
+
+—— 来自 HUAWEI LLD-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+*****
+
+####  nufawneafg  
+##### 7664#       发表于 2022-10-9 20:55
+
+ 本帖最后由 nufawneafg 于 2022-10-9 20:56 编辑 
+
+→香音传 [达成]
+→系列最低分 [达成]
+→始まりは君の空(9人ver.)[搁置]
+→三期生[达成]
+→答案是毕业机制 [进行中]
+→？？？
+
+在喝大伙毒奶上还是不负众望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ces轴承仨  
+##### 7665#       发表于 2022-10-9 20:56
+
+服。这就三期了？服
+
+*****
+
+####  无动于衷  
+##### 7666#       发表于 2022-10-9 20:56
+
+说实话我有点同情staff了，这必不是他们能决定的
+
+*****
+
+####  cat1230  
+##### 7667#       发表于 2022-10-9 20:56
+
+鲤鱼最后发言是眼镜一直在瞄台本吧。不仅没哭，甚至看着有点无聊
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  稀勢のささ  
+##### 7668#       发表于 2022-10-9 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833970&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-9 20:55</a>
+
+→香音传 [达成]
+
+→系列最低分 [达成]
+→始まりは君の空(9人ver.)[搁置]</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">并没有搁置啊  刚才悄悄地放了一下  实在有点难听所以被我逮到了
+
+*****
+
+####  名津流  
+##### 7669#       发表于 2022-10-9 20:59
+
+以后是不是星团可以无限续杯了？我看不到的可可回将来可以等我孙子烧给我了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 7670#       发表于 2022-10-9 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834013&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2022-10-9 20:58</a>
+并没有搁置啊  刚才悄悄地放了一下  实在有点难听所以被我逮到了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能是我被创麻了没注意
+
+*****
+
+####  Enakina  
+##### 7671#       发表于 2022-10-9 21:00
+
+感觉有点公招上瘾了，估计是吃到了小百合的甜头，想着哪怕在能造出半个小百合都是血赚
+
+*****
+
+####  稀勢のささ  
+##### 7672#       发表于 2022-10-9 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834026&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-9 20:59</a>
+
+可能是我被创麻了没注意</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是宣3期那一部分
+
+*****
+
+####  starring  
+##### 7673#       发表于 2022-10-9 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833970&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-9 20:55</a>
+
+→香音传 [达成]
+
+→系列最低分 [达成]
+→始まりは君の空(9人ver.)[搁置]</blockquote>
+始まりは君の空(9人ver.) ✕
+
+始まりは君の空(12人ver.) √
+
