@@ -589,3 +589,148 @@ BB628F4D-3700-4521-AD3F-73A01BAED9F2.jpeg
 
 2nd的BD啊，两场day2还行
 
+
+
+*****
+
+####  名津流  
+##### 7565#       发表于 2022-10-9 20:12
+
+今年动画开播后的生放送就从来没玩过游戏吧
+
+都一个季度了
+
+*****
+
+####  ButaiKyaku  
+##### 7566#       发表于 2022-10-9 20:13
+
+这个叠高高周边让人绷不住
+
+*****
+
+####  愛さ実  
+##### 7567#       发表于 2022-10-9 20:14
+
+突然想到这叠叠高谷子会不会是唯一一个团体sets没有大香老师的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  愛さ実  
+##### 7568#       发表于 2022-10-9 20:18
+
+草，可可这睡衣是不是被逆输入了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kfly  
+##### 7569#       发表于 2022-10-9 20:20
+
+<img src="https://p.sda1.dev/7/87c9374ef95d6e5e21bb5380bcb9862f/CMP_20221009202010792.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 7570#       发表于 2022-10-9 20:21
+
+3期
+
+*****
+
+####  starring  
+##### 7571#       发表于 2022-10-9 20:21
+
+三期的情报真快公开啊
+
+*****
+
+####  ButaiKyaku  
+##### 7572#       发表于 2022-10-9 20:21
+
+第三季公布了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7573#       发表于 2022-10-9 20:21
+
+意料之中，都不装了的
+
+*****
+
+####  稀勢のささ  
+##### 7574#       发表于 2022-10-9 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唱的什么J8
+
+*****
+
+####  qty  
+##### 7575#       发表于 2022-10-9 20:21
+
+草
+
+*****
+
+####  cat1230  
+##### 7576#       发表于 2022-10-9 20:21
+
+三期来了
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  NZ-333  
+##### 7577#       发表于 2022-10-9 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7578#       发表于 2022-10-9 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哇，好惊喜啊
+
+*****
+
+####  愛さ実  
+##### 7579#       发表于 2022-10-9 20:22
+
+寄！一单在这等我呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kfly  
+##### 7580#       发表于 2022-10-9 20:22
+
+不是，现在海选啊<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 7581#       发表于 2022-10-9 20:22
+
+又公开招募，菠萝湾社再喜加一人
+
+*****
+
+####  iuhehc  
+##### 7582#       发表于 2022-10-9 20:22
+
+呃呃3期公募....
+
+*****
+
+####  ButaiKyaku  
+##### 7583#       发表于 2022-10-9 20:23
+
+怎么还招募呢
+
