@@ -1602,3 +1602,18 @@ TV版故意删了所有Burn this city
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  未来起航  
+##### 3123#       发表于 2022-10-9 17:01
+
+不过边缘行者确实没太多影像上的投入。脱力噶剧本划水也是因为他们信条就是影像上的花样（作画演出摄影）要当核心，剧本要让路。边缘行者这算是某种违例（其实bna也算<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过我最近闲的没事又回去看了遍第六话，看的滋味跟第一遍不一样了都。合着俩主人公都是纯纯的受创群体：一个是空空如也的自我，只靠圆满他人的梦而活；一个是人生定格在逃离荒坂的那一刹那，唯一的欲求就是无限的逃离<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+咋说呢，我会觉着这俩人谈恋爱成不了浪漫的。十集的时间内，靠爱是填补不了那种创伤的……
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
