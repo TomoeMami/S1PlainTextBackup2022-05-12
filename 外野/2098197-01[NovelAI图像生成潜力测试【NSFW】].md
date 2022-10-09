@@ -2802,3 +2802,12 @@ webui现在支持加载那个yaml了，
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  十个印地男孩  
+##### 220#       发表于 2022-10-9 15:23
+
+社区有网址吗？
+
