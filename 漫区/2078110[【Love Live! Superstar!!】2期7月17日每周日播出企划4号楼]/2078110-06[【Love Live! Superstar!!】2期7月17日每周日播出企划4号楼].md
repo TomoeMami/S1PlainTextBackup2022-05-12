@@ -2075,3 +2075,42 @@ http://b23.tv/92mWFqF</blockquote>
 
 查看全部评分
 
+
+
+*****
+
+####  starring  
+##### 7722#       发表于 2022-10-9 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57834976&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-9 22:06</a>
+确认了一下是我耳朵瘸了 公布3期那放的是交响曲</blockquote>
+不但放9人ver交响曲，还是铃原开口唱第一句<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 7723#       发表于 2022-10-9 22:17
+
+不怕把人吓跑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  L-JoeW  
+##### 7724#       发表于 2022-10-9 22:18
+
+年轻人的第一部lovelive，毫无羁绊和希望，我吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  离心  
+##### 7725#       发表于 2022-10-9 22:19
+
+吓跑啥啊，资方想要下一个小百合，声优也想要出人头地，怎么会跑？
+
+*****
+
+####  离心  
+##### 7726#       发表于 2022-10-9 22:19
+
+风怒
+
