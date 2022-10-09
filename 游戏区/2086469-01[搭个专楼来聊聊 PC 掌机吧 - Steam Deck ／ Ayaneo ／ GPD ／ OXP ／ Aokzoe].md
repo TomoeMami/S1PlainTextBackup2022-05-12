@@ -5246,3 +5246,16 @@ steam deck美区好像现货了，64G 2800左右能搞定，纠结要不要买�
 steam deck美区好像现货了，64G 2800左右能搞定，纠结要不要买……</blockquote>
 同纠结，回家先转个美区账号
 
+
+
+*****
+
+####  亚瑟摩根  
+##### 424#       发表于 2022-10-9 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57824203&amp;ptid=2086469" target="_blank">拉沃契金 发表于 2022-10-9 11:18</a>
+同纠结，回家先转个美区账号</blockquote>
+别转美区，拿个小号买更安全
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
