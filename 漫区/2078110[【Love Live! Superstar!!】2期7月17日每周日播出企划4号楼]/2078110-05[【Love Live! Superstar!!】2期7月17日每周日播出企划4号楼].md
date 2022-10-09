@@ -16061,3 +16061,81 @@ VN还真是三期生<img src="https://static.saraba1st.com/image/smiley/face2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">好想喷啊！星二期你TM侮辱了所有从缪一期看到现在的拉拉人！
 
+
+
+*****
+
+####  ViyViy  
+##### 7485#       发表于 2022-10-9 18:42
+
+推的可可词条都在说 归国问题呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7486#       发表于 2022-10-9 18:44
+
+令和差评王正在向lovelive招收呢，谁能想到花田还能有天才上代务的今天。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 7487#       发表于 2022-10-9 18:44
+
+令和差评王正在向lovelive招收呢，谁能想到花田还能有天才上代务的今天。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 7488#       发表于 2022-10-9 18:45
+
+可能这群傻逼就把可香回当可可回了
+
+*****
+
+####  稀勢のささ  
+##### 7489#       发表于 2022-10-9 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">推上搜下スパスタ吧  蛮乐的
+
+*****
+
+####  ads147147  
+##### 7490#       发表于 2022-10-9 18:47
+
+看来花田京极眼里，s1e123确实是可可回，你们中国人要知足啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 7491#       发表于 2022-10-9 18:47
+
+喘一口气，等一下还要看生放送怎样架盾尬吹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ButaiKyaku  
+##### 7492#       发表于 2022-10-9 18:49
+
+我懂了，第三季的目标就是达成sp都没能达成的史上第一连冠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为香音神欢呼
+
+*****
+
+####  iuhehc  
+##### 7493#       发表于 2022-10-9 18:49
+
+先提前猜一个分 20以下
+
+*****
+
+####  ButaiKyaku  
+##### 7494#       发表于 2022-10-9 18:49
+
+我懂了，第三季的目标就是达成sp都没能达成的史上第一连冠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为香音神欢呼
+
