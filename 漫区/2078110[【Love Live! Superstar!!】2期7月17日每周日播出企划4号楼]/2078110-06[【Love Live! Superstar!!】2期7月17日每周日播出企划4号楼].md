@@ -2717,3 +2717,63 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 拿隔壁SP举例子，杏夏那样才是二番，这么算星哪有啥二番，真就是伴舞
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7780#       发表于 2022-10-10 00:02
+
+ 本帖最后由 aoaoaodedede 于 2022-10-10 00:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836547&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-9 23:59</a>
+
+配角不等于工具人啊，工具人是像工具一样被使用，但前三集作为辅助角色的可可和小千都算是有血有肉，哪怕是 ...</blockquote>
+所以前三集可可确实没有多少工具人感，人物行为逻辑也还不错，可是从全局来看，“工具人”能很好的概括了……
+
+*****
+
+####  nufawneafg  
+##### 7781#       发表于 2022-10-10 00:04
+
+每周一问，花田是在什么精神状态下写前三集的<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 7782#       发表于 2022-10-10 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836152&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-10-9 23:31</a>
+日本还有疫情形势的吗，不都开摆了吗。
+最近好像观众也能出声了，还是能出声的live看的有意思啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">出声是能出声了，staff们纷纷患上Long Covid就好笑了，另外别怪我乌鸦嘴，nako已经梅开二度了，还有仨得过一次的，重复感染的话都很危险
+
+*****
+
+####  稀勢のささ  
+##### 7783#       发表于 2022-10-10 00:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“你前三集写好把人骗进来了后面随便你摆”
+
+*****
+
+####  aoaoaodedede  
+##### 7784#       发表于 2022-10-10 00:08
+
+三 集 定 律
+
+*****
+
+####  稀勢のささ  
+##### 7785#       发表于 2022-10-10 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836603&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-10-10 00:04</a>
+出声是能出声了，staff们纷纷患上Long Covid就好笑了，另外别怪我乌鸦嘴，nako已经梅开二度了，还 ...</blockquote>
+之前那个纪录片不有个疑似146  老是犯困但周围人都说她只是没睡好觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 7786#       发表于 2022-10-10 00:09
+
+堇看一期动画会给人一种实质副center的感觉，毕竟有nonfiction这种C位曲，nonfi和day1二联后来也真的成了各种拼盘的保留节目，pay子唱歌也确实给力……可二期以来哪还有什么二番位，香音神是唯一C，剩下8个和维恩都是伴舞和洗脚婢罢了
+
