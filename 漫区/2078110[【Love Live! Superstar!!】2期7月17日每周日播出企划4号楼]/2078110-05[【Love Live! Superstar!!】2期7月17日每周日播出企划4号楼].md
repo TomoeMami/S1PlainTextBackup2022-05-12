@@ -15078,3 +15078,30 @@ hori那边接的活吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 7370#       发表于 2022-10-9 10:52
+
+说起来去年配完最后一集还每个人送了花，今年静悄悄的
+
+*****
+
+####  奥柏伦亲王  
+##### 7371#       发表于 2022-10-9 10:53
+
+一单不可能没有九人版的
+
+*****
+
+####  nufawneafg  
+##### 7372#       发表于 2022-10-9 10:55
+
+→香音传 [达成]
+→系列最低分 [达成]
+→始まりは君の空(9人ver.) [进行中]
+→？？？
+大伙的毒奶清单里可不剩啥了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
