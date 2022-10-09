@@ -142,3 +142,15 @@
 剩下几个要在今年万圣节活动（灰姑娘龙娘）中兑换</blockquote>
 原来如此，我还以为漏了啥呢
 
+
+
+*****
+
+####  狂河冰不烈  
+##### 43623#       发表于 2022-10-9 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813422&amp;ptid=1712412" target="_blank">夜贼外卖 发表于 2022-10-8 17:23</a>
+
+剩下几个要在今年万圣节活动（灰姑娘龙娘）中兑换</blockquote>
+我也是，以为这活动送的老从者只能拿一宝。谢谢了。
+
