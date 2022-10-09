@@ -2827,3 +2827,16 @@ webui现在支持加载那个yaml了，
 
 相当于每批次第一张免费，如果你每批都只生成一张就可以认为是无限生成
 
+
+
+*****
+
+####  ghgyhg  
+##### 222#       发表于 2022-10-9 18:34
+
+折腾了一天泄露版，特意进来替广大足控发声：啥时候才能量产色色的jiojio啊<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+tag试了一堆这傻雕ai能把10根脚趾数对的概率不超过5%。即便数对，大概率生成两只右脚或者两只左脚…
+
+不知道特意针对手指脚趾做finetune难度有多大？只能期待cv界能有足控dalao救命了
+

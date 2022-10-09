@@ -15953,3 +15953,111 @@ VN还真是三期生<img src="https://static.saraba1st.com/image/smiley/face2017
 说是大粪都算赞美
 应该叫顶级资源蒜
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7471#       发表于 2022-10-9 18:32
+
+还好没看生肉，逛了一圈，看来这剧情很逆天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 7472#       发表于 2022-10-9 18:32
+
+这是给粉丝一个打破A5记录的机会啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第三季努力一把差评率就能赶超
+
+*****
+
+####  player3960  
+##### 7473#       发表于 2022-10-9 18:34
+
+这样下去，这楼还能水很久的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  JhIenog  
+##### 7474#       发表于 2022-10-9 18:34
+
+合着前面半集这么纠结都演的是啥，现在一看前面这么纠结就和小丑一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 7475#       发表于 2022-10-9 18:35
+
+看得出来花田写得很艰难。有的时候很容易看出他们写脚本时的情绪的，比如网瘾恋那集，虽然这边差评的多，但是看得出来花田写得很爽。有些集数就像小学生考场作文没词了凑字数一样
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ButaiKyaku  
+##### 7476#       发表于 2022-10-9 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832050&amp;ptid=2078110" target="_blank">JhIenog 发表于 2022-10-9 18:34</a>
+合着前面半集这么纠结都演的是啥，现在一看前面这么纠结就和小丑一样 ...</blockquote>
+本来就去不去都是小丑，但没想到最后还能处理得更加随便，明摆着糊弄观众
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7477#       发表于 2022-10-9 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">赶紧去推特看一眼unya有没有破防，他要是炸了连粮都没得吃了
+
+*****
+
+####  ButaiKyaku  
+##### 7478#       发表于 2022-10-9 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57832050&amp;ptid=2078110" target="_blank">JhIenog 发表于 2022-10-9 18:34</a>
+合着前面半集这么纠结都演的是啥，现在一看前面这么纠结就和小丑一样 ...</blockquote>
+本来就去不去都是小丑，但没想到最后还能处理得更加随便，明摆着糊弄观众
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7479#       发表于 2022-10-9 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特趋势给我看笑了
+
+*****
+
+####  lj205  
+##### 7480#       发表于 2022-10-9 18:41
+
+我觉得另外二个三期生应该都见过面了
+
+*****
+
+####  笋狐  
+##### 7481#       发表于 2022-10-9 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这破玩意儿要真能有三期简直是一种莫大的讽刺
+
+*****
+
+####  iuhehc  
+##### 7482#       发表于 2022-10-9 18:41
+
+可可线应该是彻底没有了吧，毕竟大赛也冠军了，一期的回国铺垫就是雷声大雨点小
+
+*****
+
+####  ButaiKyaku  
+##### 7483#       发表于 2022-10-9 18:41
+
+第三季的大纲估计都开始写了
+
+*****
+
+####  沙茶酱  
+##### 7484#       发表于 2022-10-9 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">好想喷啊！星二期你TM侮辱了所有从缪一期看到现在的拉拉人！
+
