@@ -2591,3 +2591,62 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 希望花田老师好好休息吧，别写星三了。好好打磨和完善ATRI和京吹三吧。真的我不希望我心中天花板的漫改日常作品《日常》的系构变成现在这样<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 7767#       发表于 2022-10-9 23:31
+
+日本还有疫情形势的吗，不都开摆了吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+最近好像观众也能出声了，还是能出声的live看的有意思啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qratosone  
+##### 7768#       发表于 2022-10-9 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836045&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-10-9 23:24</a>
+
+没有任何超出意料的情况，就这么波澜不惊的烂完了，就连加人都没整出任何新活来，什么叫躺平摆烂，这才是躺 ...</blockquote>
+最后几集已经不是单纯的摆烂了，说是故意报复更合适
+
+*****
+
+####  稀勢のささ  
+##### 7769#       发表于 2022-10-9 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">烂到现在一期几个B都不愿意转个12集放送完毕的推意思一下  估计确实不知道能说啥  只有菜宝作为staff说了些有的没的
+
+2期倒是都转了 彩还随便写了几句
+
+*****
+
+####  starring  
+##### 7770#       发表于 2022-10-9 23:38
+
+3rd赶紧搬出来，哪怕是舞蹈练习视频，已经迫不及待看结那表演，看那颜值和歌舞实力对不对得起两首带MV的solo<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7771#       发表于 2022-10-9 23:38
+
+还不能出声吧？imas这边也只是放开了允许观众惊呼，但还是不能call出声
+
+*****
+
+####  iuhehc  
+##### 7772#       发表于 2022-10-9 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836152&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-10-9 23:31</a>
+日本还有疫情形势的吗，不都开摆了吗。
+最近好像观众也能出声了，还是能出声的live看的有意思啊</blockquote>
+目前能出声的live好像要控制人数 超过几千就不行 具体是几千我也不记得了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
