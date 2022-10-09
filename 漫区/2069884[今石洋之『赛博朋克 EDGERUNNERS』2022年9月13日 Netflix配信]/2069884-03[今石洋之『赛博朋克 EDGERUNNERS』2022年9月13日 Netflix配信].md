@@ -1577,3 +1577,15 @@ TV版故意删了所有Burn this city
 本来上周就已经补完，一直想码感想但苦于没空，而且没打过游戏原作，闲暇粗浅补了一些原作的设定但仍然很浅 ...</blockquote>
 TV版故意删了所有Burn this city
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 3121#       发表于 2022-10-9 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57798891&amp;ptid=2069884" target="_blank">哈扎马 发表于 2022-10-7 21:25</a>
+
+本来上周就已经补完，一直想码感想但苦于没空，而且没打过游戏原作，闲暇粗浅补了一些原作的设定但仍然很浅 ...</blockquote>
+TV版故意删了所有Burn this city
+
