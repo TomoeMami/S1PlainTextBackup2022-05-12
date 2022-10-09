@@ -1594,3 +1594,66 @@ Pay不出意外的绷不住了，一会鲤鱼肯定也得哭，这么一看青�
 
 三期c真未来可期那就学水开外传就行了嘛
 
+
+
+*****
+
+####  lj205  
+##### 7678#       发表于 2022-10-9 21:14
+
+<img src="https://img.saraba1st.com/forum/202210/09/211434z4o664n6n6n3jy7x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>02B9E7F7-B3BF-4115-A340-0A43C2B590DF.jpeg</strong> (756.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 21:14 上传
+
+*****
+
+####  iuhehc  
+##### 7679#       发表于 2022-10-9 21:15
+
+可可那个问题既然解决了说实话不想追三期了，看看剪辑和生放算了，看动画太折磨人了
+希望cast的大家多点接其他活在其他片场能看到她们
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Skyline_R  
+##### 7680#       发表于 2022-10-9 21:19
+
+麻，虽然早就想到会有第三季，但是看到这个消息感觉还是很窝火。
+
+
+
+*****
+
+####  稀勢のささ  
+##### 7681#       发表于 2022-10-9 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对了 这期生放NICO好评才87  周2可以好好期待下了
+
+*****
+
+####  名津流  
+##### 7682#       发表于 2022-10-9 21:19
+
+<img src="https://img.saraba1st.com/forum/202210/09/211644sfh01zuwa01a3cwh.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221009210904.jpg</strong> (65.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-9 21:16 上传
+
+等等，我也是日本国内在住那也可以报名吗？——刚这样想着的时候但既不是15-22岁，也不是女性，所以是不行的哇，唉，太可惜了
+
+*****
+
+####  nufawneafg  
+##### 7683#       发表于 2022-10-9 21:21
+
+高低得去打个5去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
