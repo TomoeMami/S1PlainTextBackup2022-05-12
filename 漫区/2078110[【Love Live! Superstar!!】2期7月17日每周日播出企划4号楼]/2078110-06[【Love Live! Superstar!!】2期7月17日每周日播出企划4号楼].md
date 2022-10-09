@@ -478,3 +478,60 @@ BB628F4D-3700-4521-AD3F-73A01BAED9F2.jpeg
 
 小百合不笑黑脸挺吓人，有当年徐志雷徐老鳖那味
 
+
+
+*****
+
+####  愛さ実  
+##### 7553#       发表于 2022-10-9 19:50
+
+鱼：看这番不吃饭真的可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  玄玦  
+##### 7554#       发表于 2022-10-9 19:52
+
+我看完蒜还挺意难平的玉玉了很久
+现在看了星二已经部分和解了
+蒜某些地方是烂完了 但星二找不到能吹的地方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iuhehc  
+##### 7555#       发表于 2022-10-9 19:57
+
+全都不知道怎么评价是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7556#       发表于 2022-10-9 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">铃原刚刚那个笑起来的脸有丶恐怖……
+
+*****
+
+####  cat1230  
+##### 7557#       发表于 2022-10-9 19:59
+
+<blockquote>引用第7553楼玄玦于2022-10-09 19:52发表的  :
+
+我看完蒜还挺意难平的玉玉了很久现在看了星二已经部分和解了蒜某些地方是烂完了 但星二找不到能吹的地方—......</blockquote>
+@玄玦
+
+蒜主要问题是诈骗，这点星比不上，毕竟星2直接躺平不装的
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  qty  
+##### 7558#       发表于 2022-10-9 20:01
+
+最尬的地方来了
+
