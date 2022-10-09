@@ -11510,3 +11510,12 @@ ETHYRIA 1 YEAR CELEBRATION ~ PUPPET SHOW
 
 啊菜居然回来了？这才半年，所以说为什么从彩虹毕业了呢
 
+
+
+*****
+
+####  蓬莱广告  
+##### 17557#       发表于 2022-10-10 02:13
+
+ばぶ太郎桑这一周年谷也太虹了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

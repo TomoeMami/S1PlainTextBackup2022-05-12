@@ -2905,3 +2905,92 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  elfuuka  
+##### 7800#       发表于 2022-10-10 01:53
+
+额，之前没看讨论也没关注现实企划的我点进来很懵。。。
+
+个人感觉这片很正常，是以前LL的味道（虹风格不一样除外）
+
+看来偶像类的不结合现实会少点乐趣啊
+
+
+
+*****
+
+####  蕉遇鹿  
+##### 7801#       发表于 2022-10-10 02:32
+
+为啥虹咲那么好没三期，星团这么烂还要出三期
+
+—— 来自 realme RMX2117, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+*****
+
+####  iuhehc  
+##### 7802#       发表于 2022-10-10 02:34
+
+虹三期的话要另外找个主线，毕竟虹不参赛 二期主线是r3才有的写，步梦留学只像个剧场版线
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  CharlieZ-  
+##### 7803#       发表于 2022-10-10 02:37
+
+最后这比赛完全没有敌团出现啊，就莫名其妙的夺冠了，歌也没第十集的好听，真就是草草收场
+
+感觉TINGS来参赛都能拿冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddy2811  
+##### 7804#       发表于 2022-10-10 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837502&amp;ptid=2078110" target="_blank">elfuuka 发表于 2022-10-10 01:53</a>
+
+额，之前没看讨论也没关注现实企划的我点进来很懵。。。
+
+个人感觉这片很正常，是以前LL的味道（虹风格不一 ...</blockquote>
+可这不是现实企划的问题啊……就是动画的剧情在观众看来太不正常了，甚至让日本人在推上破防开骂了啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+反正我是不太懂遇上事就软然后转身向队友输出的立德能给我什么勇气、为什么是带明星，以及凭什么没有她就没有Liella；我也很难被她们的日常氛围和比赛表演说服她们是一个冠军团队；当然有人会觉得“以前LL”是这样的这一点是最让我觉得奇怪的……
+
+*****
+
+####  草化木  
+##### 7805#       发表于 2022-10-10 03:00
+
+话说前三集风评有那么好吗，当初就看了3集跳车了，现在才看到各种节奏不是很理解。
+
+*****
+
+####  lanslort  
+##### 7806#       发表于 2022-10-10 04:00
+
+不管是缪还是水在全国大会上都是没有对手的，毕竟不像真竞技类有对抗的成分，在最后要紧的关头花大笔墨写对手只会喧宾夺主 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+其实回头来看如果在接受星的主旨就是卡农一个人的故事其他都是跟班的情况下，前面不少集很迷惑的成分也没那么难理解了。只是作为从初代看过来的老观众对这种除了主角外完全放弃其他角色的做法还是不太能接受（其实缪动画基本所有重要决定都是果一个人做的，不过起码其他成员的个人回的重点会放在被人身上）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 而且动画这种写法跟三次元女团的现实也很割裂
+
+*****
+
+####  lanslort  
+##### 7807#       发表于 2022-10-10 04:02
+
+二期整体都很烂，个人最好看的大概是红蓝和可堇，还有评价很低的恋回我也挺喜欢的。最喜欢的角色是红毛和恋这对机友 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星踪幻影  
+##### 7808#       发表于 2022-10-10 04:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837799&amp;ptid=2078110" target="_blank">lanslort 发表于 2022-10-10 04:02</a>
+
+二期整体都很烂，个人最好看的大概是红蓝和可堇，还有评价很低的恋回我也挺喜欢的。最喜欢的角色是红毛和恋 ...</blockquote>
+别说，5厕也是这几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

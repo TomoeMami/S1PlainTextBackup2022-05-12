@@ -5311,3 +5311,17 @@ steam deck美区好像现货了，64G 2800左右能搞定，纠结要不要买�
 。。。看了一圈是真惨，新手们还是等GPD吧，虽然营销LOW，但品控毕竟稳定太多了。 ...</blockquote>
 GPD和AYA的品控哪个更好？
 
+
+
+*****
+
+####  yweili99  
+##### 430#       发表于 2022-10-10 03:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57827098&amp;ptid=2086469" target="_blank">亚瑟摩根 发表于 2022-10-9 14:53</a>
+
+别转美区，拿个小号买更安全
+
+—— 来自 S1Fun</blockquote>
+开个美区小号然后在淘宝上买代充，用余额买deck，这么做安全吗？
+

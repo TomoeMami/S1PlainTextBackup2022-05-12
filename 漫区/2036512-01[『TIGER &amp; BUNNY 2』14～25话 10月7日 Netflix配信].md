@@ -97,3 +97,59 @@
 噬身之蛇作为染指整个都市的组织，有很多可深挖 ...</blockquote>
 我感觉可能就出个剧场版或者直接开个同世界观的新作
 
+
+
+*****
+
+####  恶意满满  
+##### 99#       发表于 2022-10-10 02:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837283&amp;ptid=2036512" target="_blank">繭 发表于 2022-10-10 01:18</a>
+我感觉可能就出个剧场版或者直接开个同世界观的新作</blockquote>
+同世界观的有了
+
+—— 来自 OPPO PFUM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
+*****
+
+####  hagiwara  
+##### 100#       发表于 2022-10-10 02:55
+
+ 本帖最后由 hagiwara 于 2022-10-10 02:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837155&amp;ptid=2036512" target="_blank">唧唧歪歪八卦阵 发表于 2022-10-10 01:00</a>
+
+这一季狂徒实惨，死一户口本，还不断挨揍，最后生死不明
+
+噬身之蛇作为染指整个都市的组织，有很多可深挖 ...</blockquote>
+反白狂徒最后怎么看都是死了吧，点燃自己的身体然后自杀式跳桥，最后身体被燃尽了
+
+*****
+
+####  hagiwara  
+##### 101#       发表于 2022-10-10 03:11
+
+看完觉得剧本节奏还是有点问题的，中期甚至有一集全程就是虎叔兔子和狂徒干聊，把这部分节奏加快点就好了
+
+第二季大部分情况下超级英雄都被药物开挂的boss摁着打，但是偏偏英雄们都有锁血挂倒下了还能站起来就让人觉得挺神奇的……站起来再合力把boss打倒，战力系统是有一定的崩坏的
+
+新角色观感不佳成长不明显扣分，尤其是白毛小子，反复横跳实在受不了
+
+噬身蛇内幕还是没说明白扣分，估计不会再出第三季填坑了
+
+但是虎叔自身对超级英雄的生存意义的思考还有结局的选择升华了一下主题加分
+
+对第二季有不少不满的地方，不过能看到第二季已经是幸运了，虽然套路还是挺俗的但就是喜欢这个味
+
+*****
+
+####  wirblwind  
+##### 102#       发表于 2022-10-10 03:14
+
+ 本帖最后由 wirblwind 于 2022-10-10 03:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这结局看完半夜让人爆炸啊
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">反派武力值不行就拉个武力值高的精神病（物理）来做BOSS，还有警察那么多犯罪现场都不看监控查找可疑人员吗，一堆普通市民（比如局长主播）还有脸装HE，挺乐的。女反派逻辑突出一个迷惑，狂徒死一户口本意义在哪……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">彻底断了第三季……
+
