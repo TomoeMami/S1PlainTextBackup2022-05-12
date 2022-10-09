@@ -2889,3 +2889,19 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 只是花田干脆不演了，啥隐皇，只有一个明皇，那就是圣香音，你可可也别觉得祭天位有啥委屈的，所有人都是洗脚婢罢了，我恋推朋友看着第二季那些莫名其妙抢班夺权的剧情简直是话都说不出来<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 7799#       发表于 2022-10-10 01:28
+
+<blockquote>引用第7797楼liu461于2022-10-10 01:10发表的  :
+
+这还用想，这根本就是所有可推砸在脸上的事实，第一季前三集塑造的可香太过成功，以至于还沉迷在自闭的香音......</blockquote>
+@liu461
+
+恋是最惨的，从星1到2，个人回实打实有，但实打实烂，高光时刻0，导致谷子一直最低价垫底
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
