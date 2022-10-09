@@ -984,3 +984,185 @@ nmd这b运营这么搞做下去要不摔疼，我当场宣布立本市场调节�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  player3960  
+##### 7616#       发表于 2022-10-9 20:32
+
+一般公募还没开始报名，明年7月应该没有三期了，招到人加训练感觉得到后年去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 7617#       发表于 2022-10-9 20:32
+
+看这个预告的香音浓度，进来也是香音的洗脚婢啊。真有人会愿意进来舔臭脚？就为了当踏板？？
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  starring  
+##### 7618#       发表于 2022-10-9 20:33
+
+鲤鱼也绷不住眼红要哭了
+
+*****
+
+####  ads147147  
+##### 7619#       发表于 2022-10-9 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833630&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-9 20:32</a>
+如果现在才公募，明年动画做得完吗？还是动画已经做了，再海选个人套进去？
+
+  -- 来自 能手机投票的 Stage ...</blockquote>
+看安排，明年虹四格和水3，大概率是没产能做星3，所以肯定是排到24年去了。
+
+如果管人和舞台剧还有动画安排，星还得拉的更后面。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  名津流  
+##### 7620#       发表于 2022-10-9 20:35
+
+我有一个猜测
+
+企划刚开始的时候就确定要加人，而且一期的SNP本来是有可能要加入liella的
+
+但一期参加活动后感觉SNP的效果不好所以直接打算弃用
+
+然后又决定再找代替SNP的
+
+这样一来二期剧情这么牵强——snp突然就被淘汰，VN早早就像是要加入一样的放出来开始炒热度，最后再通告继续海选——这一系列别扭的操作就能解释了
+
+
+
+*****
+
+####  川陀  
+##### 7621#       发表于 2022-10-9 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833654&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-9 20:33</a>
+看安排，明年虹四格和水3，大概率是没产能做星3，所以肯定是排到24年去了。
+
+如果管人和舞台剧还有动画安 ...</blockquote>
+虹四格已经确定是短篇了，幻日夜羽还不清楚，如果真把星三档期再放7月我觉得工期还是能排得开的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ButaiKyaku  
+##### 7622#       发表于 2022-10-9 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833654&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-9 20:33</a>
+看安排，明年虹四格和水3，大概率是没产能做星3，所以肯定是排到24年去了。
+
+如果管人和舞台剧还有动画安 ...</blockquote>
+水那个外传和虹四格可能不是日升这个组做，所以也能上，唯一会影响的只有没谱的虹三
+
+*****
+
+####  Enakina  
+##### 7623#       发表于 2022-10-9 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833654&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-9 20:33</a>
+看安排，明年虹四格和水3，大概率是没产能做星3，所以肯定是排到24年去了。
+
+如果管人和舞台剧还有动画安 ...</blockquote>
+去年虹二公布后也没人能猜到会直接接档，虹那个是几分钟泡面番吧，没啥消耗，所以还不好说
+
+*****
+
+####  愛さ実  
+##### 7624#       发表于 2022-10-9 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57833673&amp;ptid=2078110" target="_blank">名津流 发表于 2022-10-9 20:35</a>
+我有一个猜测
+
+企划刚开始的时候就确定要加人，而且一期的SNP本来是有可能要加入liella的
+
+但一期参加活动后 ...</blockquote>
+snp开始是二年级生，不可能进来的。从开始就是弃子罢了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 7625#       发表于 2022-10-9 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我是二期生我也想哭 我这连个正经的live都还没搞呢
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7626#       发表于 2022-10-9 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草，三期消息出了就直接关直播了，忘记还有个人感想了
+
+*****
+
+####  acacaclove  
+##### 7627#       发表于 2022-10-9 20:39
+
+田圣，京王。绝代双骄
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 7628#       发表于 2022-10-9 20:39
+
+草，怎么sayu今天脸这么黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7629#       发表于 2022-10-9 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">5ch看到这个没蚌住
+
+*****
+
+####  damian-wade  
+##### 7630#       发表于 2022-10-9 20:40
+
+人都没找齐，动画就定了，能写出个勾巴剧情……再创佳绩不是梦啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  we89623  
+##### 7631#       发表于 2022-10-9 20:41
+
+虽然星动画的确是屎，但看国内国外某些虹信因三期破防的确很爽啧啧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 砂糖砂糖|-2|呃呃|
+
+查看全部评分
+
+*****
+
+####  ButaiKyaku  
+##### 7632#       发表于 2022-10-9 20:41
+
+第三季是京极花田的可能性仍然很大，因为这烫手山芋谁愿意接，反正第二季已经触底了，就剩一季了还不如继续随便做做，除非花田主动撂挑子
+
