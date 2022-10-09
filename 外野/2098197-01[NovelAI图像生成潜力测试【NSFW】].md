@@ -2727,3 +2727,12 @@ negative prompt: lowres, bad anatomy, bad hands, text, error, missing fingers, e
 
 OD这玩意真是诡异，有时候完全下不动有时候就挺快
 
+
+
+*****
+
+####  niyikaowo  
+##### 216#       发表于 2022-10-9 13:11
+
+这都能给小黄油当CG用了吧
+
