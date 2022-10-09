@@ -64,3 +64,17 @@ miki的繁中服加到兑换里很久了，当时换了想回个贴来着结果�
 又有超得？我怎么记得你游的超得是一年两次的呢？周年一次新年一次</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">是差不多3个月一次
 
+
+
+*****
+
+####  萩原组土狼p  
+##### 7017#       发表于 2022-10-9 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57813970&amp;ptid=1484979" target="_blank">cckuku 发表于 2022-10-8 17:51</a>
+
+又有超得？我怎么记得你游的超得是一年两次的呢？周年一次新年一次</blockquote>
+带限定的超得是一年两次
+
+普通超得差不多是3个月一次
+
