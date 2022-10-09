@@ -2208,3 +2208,177 @@ LL企划唯一的优势就是选人这关运气很好。 2期暂时不好说，1
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">生放完了的时候瞟了一眼  发现他在期待3期可可soloed和C位曲
 
+
+
+*****
+
+####  仟音一心  
+##### 7738#       发表于 2022-10-9 22:51
+
+<img src="https://img.saraba1st.com/forum/202210/09/225135son9ktgxcvtvogbe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0BB6232A-BAFC-4D1D-BBCD-0DBCF55CE327.jpeg</strong> (81.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225135hn4zz4v4n7ugge4p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>63F2789E-4532-4939-9074-61DBCA3FD024.jpeg</strong> (111.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225135ijf1z65bt3bdtdb5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4555024F-8DF0-4257-98E4-431E10241F03.jpeg</strong> (268.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225136mwndzykow4fkzzyf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>78F16705-E679-46F7-9ED3-27A59BA12FF8.jpeg</strong> (181.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225149sz50cldqc7lqnlcd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>79B447F8-1F9E-4AE6-8F89-A73794C916B6.jpeg</strong> (213.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225149r1xps6q4t7heq5tz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A6614567-EF55-4CB6-AF0F-BB970569F7B8.jpeg</strong> (139.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225150e3okxqthstx90sia.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E48C18EC-9089-48CC-A1D7-53FA2E5BF0C2.jpeg</strong> (211.12 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225150dqdw30wa0klm5syq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>58EE859E-5420-488B-B7C7-015652E5E082.jpeg</strong> (112.43 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225150c891kxskd07gjx7x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9BF5E5B2-7150-4D0F-A1D0-8F5CC9CA45F7.jpeg</strong> (125.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225150kvp7vptfv9pvlzop.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7C17783A-93B2-4AE6-A9F2-82ED0E93EE02.jpeg</strong> (117.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225150d5x9mggl5xkg5u5m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>190CF218-B8FB-46DB-8F6E-BD992763882E.jpeg</strong> (88.9 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/09/225150f6qvemcvt16ee6ft.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0B9F651D-E577-4CF6-94A3-797B8F8E743F.jpeg</strong> (220.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-9 22:51 上传
+
+*****
+
+####  liu461  
+##### 7739#       发表于 2022-10-9 22:54
+
+已经品鉴的够多了，快把三期端下去罢<img src="https://static.saraba1st.com/image/smiley/animal2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 7740#       发表于 2022-10-9 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835569&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-9 22:50</a>
+生放完了的时候瞟了一眼  发现他在期待3期可可soloed和C位曲</blockquote>
+如此乐观的精神甘拜下风
+
+
+
+*****
+
+####  nufawneafg  
+##### 7741#       发表于 2022-10-9 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835533&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-9 22:48</a>
+梯子过期了有没有好兄弟/姐妹帮忙关心一下unya画师疯特了没？我真的好怕他被干破防跑路了……
+
+  -- ...</blockquote>
+还行吧还在碎碎念，没有说掀桌
+
+（草，这个留学中止的趋势是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 7742#       发表于 2022-10-9 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835569&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-09 22:50:49</a>
+生放完了的时候瞟了一眼  发现他在期待3期可可soloed和C位曲</blockquote>何等坚强的精神力，是我小看他了，我要道歉
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  sinbad  
+##### 7743#       发表于 2022-10-9 23:00
+
+看样子第一季主舞台就是学校啊。还是希望赶紧离开学校，进入宇宙，前往地球。学校内，在怎么激烈的权利斗争，也还是格局太小了。
+
+—— 来自 HUAWEI VOG-L29, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7744#       发表于 2022-10-9 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57835714&amp;ptid=2078110" target="_blank">sinbad 发表于 2022-10-9 23:00</a>
+看样子第一季主舞台就是学校啊。还是希望赶紧离开学校，进入宇宙，前往地球。学校内，在怎么激烈的权利斗争 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水星串楼了？
+
