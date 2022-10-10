@@ -2154,3 +2154,19 @@ mark下
 
 比天才差一点的人肯定比天才更多啊
 
+
+
+*****
+
+####  哈扎马  
+##### 145#       发表于 2022-10-11 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57854103&amp;ptid=2097870" target="_blank">卢迪乌斯 发表于 2022-10-11 07:11</a>
+
+有几个一拳……巨人鬼灭也得靠动画破圈
+
+比天才差一点的人肯定比天才更多啊 ...</blockquote>
+友情提示，巨人和鬼灭在动画之前已经破圈了，而现在的ai只能韩漫化，不能动漫化。
+
+另外要考虑一点很多创作者都是为醋包饺，搞不好比天才差一点的人被量大管饱的ai色图24小时灌成贤者后创作动力彻底没了呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这两天发现男人除了我这种xp变态的，其他牛子被拿捏了就非常容易收买，流石赛博美人关（隔壁小粉红论坛倒不是因为素质高，而是ai训练库里美男色图少画不出来，马太效应了）
+
