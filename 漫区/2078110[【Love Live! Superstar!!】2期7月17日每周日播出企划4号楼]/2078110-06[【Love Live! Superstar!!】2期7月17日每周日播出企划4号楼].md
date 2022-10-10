@@ -3035,3 +3035,44 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  梶原ひかり  
+##### 7812#       发表于 2022-10-10 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837641&amp;ptid=2078110" target="_blank">蕉遇鹿 发表于 2022-10-10 02:32</a>
+
+为啥虹咲那么好没三期，星团这么烂还要出三期
+
+—— 来自 realme RMX2117, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+很简单...动画没很大影响 
+
+虹咲动画好评高 依然没有破壁 裂啦虽然动画不好 销量也不算特别差 跟虹咲最多也就差3000-4000均卷
+
+运营对于能开巡演的团体 期望更高 毕竟最赚钱的还是开Live
+
+*****
+
+####  ViyViy  
+##### 7813#       发表于 2022-10-10 08:56
+
+ 本帖最后由 ViyViy 于 2022-10-10 08:57 编辑 
+
+我很疑惑，星烂和三期在明面上好像不是直接关系吧，怎么突然奇怪起来了，还有“替”其它抱不平的。
+
+*****
+
+####  player3960  
+##### 7814#       发表于 2022-10-10 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57838589&amp;ptid=2078110" target="_blank">光宗薫 发表于 2022-10-10 08:46:24</a>
+原来到了2期鲤鱼还是需要菜宝帮忙的吗，我寻思她日语已经够用了呢
+
+—— 来自 Xiaomi 22041211AC, Android  ...</blockquote>很早之前的一个阴谋论，鲤鱼在装不行，制作组只好继续请菜宝来帮忙，菜宝拿了工资，请鲤鱼吃肉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以菜宝，第三季也请多关照了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
