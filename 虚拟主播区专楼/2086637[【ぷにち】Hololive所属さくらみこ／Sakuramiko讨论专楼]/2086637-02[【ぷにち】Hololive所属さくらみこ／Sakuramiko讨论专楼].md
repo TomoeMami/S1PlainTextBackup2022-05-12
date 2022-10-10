@@ -7289,3 +7289,14 @@ R[)HY5IJO98WLEV2%X_PGY0.jpg
 
 刚才说从春天开始就计划了然后就被打断了，什么时候专门开个窗多说说啊
 
+
+
+*****
+
+####  rs5621  
+##### 2213#       发表于 2022-10-10 21:28
+
+等下次直播的杂谈
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

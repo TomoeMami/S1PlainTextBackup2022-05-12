@@ -4112,3 +4112,22 @@ Fes5GCyagAAqDf-.jpg
 由手机上传
 2022-10-10 21:19 上传
 
+
+
+*****
+
+####  plazum  
+##### 7912#       发表于 2022-10-10 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57850227&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-10 20:24</a>
+
+水星魔女那里看到的meme没想到还拐了下星，老外难道把ll定位成百合动画吗 ...</blockquote>
+楼上刚讨论完合鲤，你还搁这是不是百合动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  plazum  
+##### 7913#       发表于 2022-10-10 21:32
+
+虽然VN妹子在剧情里很烦，但是我还是觉得她很可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">并且列入了我的本年度老婆了
+
