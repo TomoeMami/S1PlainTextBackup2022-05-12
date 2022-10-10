@@ -3325,3 +3325,68 @@ LLSS一期起跑线确实很高，历代LL最好的开篇三集，所以说是�
 什么叫爆杀</blockquote>
 都香音传了，少这点格局也正常了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 7837#       发表于 2022-10-10 11:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别碰瓷果皇了
+
+<img src="https://img.saraba1st.com/forum/202210/10/111411xw8kfp5vksio3zve.jpg" referrerpolicy="no-referrer">
+
+<strong>8.jpg</strong> (78.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 11:14 上传
+
+*****
+
+####  damian-wade  
+##### 7838#       发表于 2022-10-10 11:17
+
+说这些的时候不想想菜宝前几年过的是啥日子啊……
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kfly  
+##### 7839#       发表于 2022-10-10 11:18
+
+10月9号生放梗，被炉与扇贝
+[【中字】鲤鱼：把扇贝给我备好喽！（误）](https://www.bilibili.com/video/BV1AR4y1R7P8)
+
+<img src="https://img.saraba1st.com/forum/202210/10/111731l4d40yukpynwdcr0.jpg" referrerpolicy="no-referrer">
+
+<strong>008qAVxOgy1h700f3gq3xj30xc0pxtal.jpg</strong> (162.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 11:17 上传
+
+twi：_CelticWhite_
+
+*****
+
+####  NZ-333  
+##### 7840#       发表于 2022-10-10 11:19
+
+cnm，现在才反应过来要出三期
+
+你配吗出三期<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 7841#       发表于 2022-10-10 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57840792&amp;ptid=2078110" target="_blank">damian-wade 发表于 2022-10-10 11:17</a>
+
+说这些的时候不想想菜宝前几年过的是啥日子啊……
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 S1Next-鹅 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">动画以及加人给了人很多错觉；其实不考虑动画以及场外莫名其妙的操作，只考虑企划给的待遇的话，星这边的待遇真的没话说。不过也因为这个，也难怪有部分虹推甚至水推会觉得不满。
+
