@@ -3995,3 +3995,36 @@ s1现在追动画的人少，评分的人更少，别看才六十多人投，已
 
 起码合鲤是真的不是吗。说起来我还在等酸菜鱼第三期，但是看这个情况，可能上这个节目的工商都不太好念了。
 
+
+
+*****
+
+####  ViyViy  
+##### 7902#       发表于 2022-10-10 19:37
+
+菜鱼会不会没有了…
+
+*****
+
+####  iuhehc  
+##### 7903#       发表于 2022-10-10 19:40
+
+做酸菜鱼节目也是为了推国服as
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7904#       发表于 2022-10-10 19:42
+
+<img src="https://img.saraba1st.com/forum/202210/10/194156zh72fzu2mggip8jr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 19:41 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别急，第三季一定写
+
