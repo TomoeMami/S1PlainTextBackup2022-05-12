@@ -2138,3 +2138,19 @@ mark下
 
 看了一下全都是美少女啊，这AI是不是画不了男人…
 
+
+
+*****
+
+####  卢迪乌斯  
+##### 144#       发表于 2022-10-11 07:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57804094&amp;ptid=2097870" target="_blank">yang1820 发表于 2022-10-8 06:49</a>
+
+没什么更不更卷的。想想《一拳超人》。
+
+漫画本质还是用镜头讲故事的艺术，这与用文字讲好故事完全是不同 ...</blockquote>
+有几个一拳……巨人鬼灭也得靠动画破圈
+
+比天才差一点的人肯定比天才更多啊
+
