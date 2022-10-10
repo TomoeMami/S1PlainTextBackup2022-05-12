@@ -3044,3 +3044,13 @@ mark一下，加班不方便看，回家慢慢学习~<img src="https://static.sa
 https://postimg.cc/8J6YMwGx</blockquote>
 接近于ACT和ARPG战斗时放在旁边的实时H
 
+
+
+*****
+
+####  ZY10086  
+##### 238#       发表于 2022-10-11 01:06
+
+Reddit有能人士制作的NAI本地版NAIFU傻瓜包，试了试，把模型替换成7G的的那个之后效果基本和官网一致了
+magnet:?xt=urn:btih:4a4b483d4a5840b6e1fee6b0ca1582c979434e4d&amp;dn=naifu&amp;tr=udp%3a%2f%2ftracker.opentrackr.org%3a1337%2fannounce
+
