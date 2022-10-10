@@ -7996,3 +7996,12 @@ tmd怎么开始连推都不发了，还是你楼更懂绫总啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷喷联动 没预告 看来是绫总起的头，开自己台
 
+
+
+*****
+
+####  因为你不会  
+##### 14396#       发表于 2022-10-10 09:27
+
+说绫总摆绫总就动，就是要cpu观众
+

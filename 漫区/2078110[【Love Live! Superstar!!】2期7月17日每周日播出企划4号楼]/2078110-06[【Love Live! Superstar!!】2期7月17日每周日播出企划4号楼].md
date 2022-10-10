@@ -3087,3 +3087,41 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 说句得罪人的，LL动画一直都挺平庸甚至弱智的，LLSS在企划内对比虽然肯定是倒数第一但是并不算离谱
 
+
+
+*****
+
+####  adw667  
+##### 7816#       发表于 2022-10-10 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57838748&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-10 09:02</a>
+
+很早之前的一个阴谋论，鲤鱼在装不行，制作组只好继续请菜宝来帮忙，菜宝拿了工资，请鲤鱼吃肉
+
+所 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要是第三季还有音响协力法元明菜的话我可以接着追
+
+*****
+
+####  saya1892  
+##### 7817#       发表于 2022-10-10 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57838940&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-10-10 09:18</a>
+
+大家被一期前三集骗了，其实企划一直都是奔着香音传去做的，无非是一不小心把可可写的比较有血有肉，又正好 ...</blockquote>
+入坑的时候只是期望平均70分的动画能平安无事地把加人团建比赛的事讲完就好了
+
+没想到这竟然成了一个奢望<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+当时汉化组组长是用自己项上人头保证拉我入坑的，现在至少得下次面基时把他的头发薅成地中海<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7818#       发表于 2022-10-10 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57838940&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-10-10 09:18</a>
+大家被一期前三集骗了，其实企划一直都是奔着香音传去做的，无非是一不小心把可可写的比较有血有肉，又正好 ...</blockquote>
+前三代剧情不敢说绝佳，但至少毁角色（或者说让角色不那么讨喜，前三代就是对手团都不至于这么败好感）、毁大赛含金量（谁不憧憬lovelive？不憧憬的都被拉去参加大赛了）是没做出来的
+这些相当关键核心的东西，星二毁得是一点不带犹豫的，单“起跑线”和系列其它作品就不是一个层面的
+
