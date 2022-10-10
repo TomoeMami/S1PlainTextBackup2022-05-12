@@ -5344,3 +5344,17 @@ Aokzoe玩了五六天花屏了，送回去售后添代码了，不知道几天�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  bypass  
+##### 433#         楼主| 发表于 2022-10-10 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837984&amp;ptid=2086469" target="_blank">紫煜 发表于 2022-10-10 07:15</a>
+
+Aokzoe玩了五六天花屏了，送回去售后添代码了，不知道几天能回来
+
+  -- 来自 能手机投票的 Stage1官 ...</blockquote>
+……这也太惨了…………<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 我卖给坛友那一个目前还没事…希望能一直没事。
+
