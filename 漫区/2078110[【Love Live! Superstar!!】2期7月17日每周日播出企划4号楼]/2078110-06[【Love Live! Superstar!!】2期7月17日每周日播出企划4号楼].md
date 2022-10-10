@@ -3600,3 +3600,17 @@ nico评分哪天出
 
 —— 来自 ZTE A2322, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  ads147147  
+##### 7863#       发表于 2022-10-10 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57843338&amp;ptid=2078110" target="_blank">无聊者X 发表于 2022-10-10 13:39</a>
+
+nico评分哪天出
+
+—— 来自 ZTE A2322, Android 12上的 S1Next-鹅版 v2.5.2-play</blockquote>
+周二晚上。
+
