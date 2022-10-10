@@ -3656,3 +3656,12 @@ nico评分哪天出
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 7868#       发表于 2022-10-10 16:30
+
+开箱视频呢？~
+

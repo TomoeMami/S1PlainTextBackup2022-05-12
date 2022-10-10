@@ -1,0 +1,594 @@
+
+
+*****
+
+####  安子醬  
+##### 1#       楼主       发表于 2022-10-10 07:57
+
+听完水星魔女ED糟糕的发挥后,实在不解为什么新高达在想搞一番大事业的前提下去选择在2015年后连一首拿得出手曲子都没有的ryo
+
+在索尼内部这几年出色的作曲一抓一大把,术曲出身后辈也很优秀的情况下,ryo为什么还能吃这么好的资源
+
+尤其是看到itunes store新歌又冲上前排外加推特一群术曲老害还在为ryo还魂实在是气不打一处来
+
+新歌经典断崖式变奏,副歌依旧人声和伴奏打架,全曲一个完整的调都听不出来
+
+贴下ryo最近几年的表现,有兴趣的坛友可以去回味一下
+
+22年
+
+タクト, ryo个人名义, feat. まふまふ, gaku, 宿命回响op, 经典粪曲, 可与这首新歌一较高下
+
+19年
+
+#Love, supercell名义, feat. Ann, gaku, 近几年唯一一首能听的, 但主体部分的曲是沿用09年nagi那首Love &amp; Roll的, 不算完全新曲
+
+咲かせや咲かせ, EGOIST名义, 甲铁城剧场版主题曲, 相对不那么粪
+
+17年
+
+英雄 运命の诗, EGOIST名义, F/A OP, 经典粪曲
+
+Deal with the devil, Tia名义, 狂赌之渊OP, 全程噪音
+
+16年 
+
+KABANERI OF THE IRON FORTRESS, EGOIST名义, 甲铁城OP, 也是经典粪曲了
+
+另外贴下几位和ryo合作过的歌姬的现况
+
+やなぎなぎ, 这个不多说了大家都很熟
+
+こゑだ, 原supercell guest vocal, 13年刀语OP后就没有新曲了,15年被ryo建议solo出道, 至今发过几张自主制作的album
+
+chelly, 现EGOIST vocal, 20年ryo宣布不再为EGOIST作曲,切割后后续的几首歌有好起来的迹象, 21年以reche名义solo出道,新曲不多,新发的专辑主要是翻唱
+
+Tia, 17年后没有新曲了, 沉寂多年后今年发了一首作曲作词全自主制作的新曲,疑似早已与ryo切割
+
+看ryo从07年08年惊为天人, 到如今江郎才尽甚至油枯灯尽, 在创新的路上越走越偏, 每新写一首歌就是一次公开处刑, 实在是让人唏嘘
+
+*****
+
+####  帕林马哲理  
+##### 2#       发表于 2022-10-10 08:05
+
+一个人的创作能力肯定不是无限的，ryo就是属于功成名就之后就缺乏自知之明的典型。不同的是有些人知道一张一弛的道理，不接那么多商业工作；有些则比如ryo跟deco27，好作品有多好，烂作品就有多烂。
+
+*****
+
+####  米奥莉奈  
+##### 3#       发表于 2022-10-10 08:08
+
+现在成缝合怪了，而且最大特点high不起来
+
+*****
+
+####  Promeus  
+##### 4#       发表于 2022-10-10 08:09
+
+明明完全不搭的画面和歌，结果还是画面救命<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3366, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  精神  
+##### 5#       发表于 2022-10-10 08:23
+
+最大印象是没有任何印象，一看EDstaff才发现是supercell<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sissii  
+##### 6#       发表于 2022-10-10 08:57
+
+我直接暴论吧，没有nagi，就是吹勾八
+
+*****
+
+####  银翼的维罗西  
+##### 7#       发表于 2022-10-10 09:03
+
+曾经很喜欢的一个音乐人，最后一首能听的是银色飞行船，他作品也算不多，居然能断崖成这个样子
+
+*****
+
+####  saverok  
+##### 8#       发表于 2022-10-10 09:17
+
+是真的lowb，粪曲没调还老有人嗯吹
+
+*****
+
+####  越动天下  
+##### 9#       发表于 2022-10-10 09:20
+
+ 本帖最后由 越动天下 于 2022-10-10 09:24 编辑 
+
+正常吧 他好的时候也就那样
+
+*****
+
+####  nage560  
+##### 10#       发表于 2022-10-10 09:28
+
+15年做完勇气默示录2后就感觉不行了，量这么低为什么质量还能滑坡这么厉害<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">所以现在我觉得大家都diss过的泽野是真的牛逼，量大质量还一如既往的稳。
+
+*****
+
+####  SaberNero  
+##### 11#       发表于 2022-10-10 09:40
+
+一年出两三首也能这么烂，多少有点刷新底线了
+
+*****
+
+####  震荡波  
+##### 12#       发表于 2022-10-10 09:46
+
+我觉得没那么糟糕，就是这个的下一个调永远不在我预想舒服的调上，下一拍几乎不在我预想的拍上，我愿称只为行为艺术，只能说这样的曲子给这个时代的人类听还太早了。
+
+*****
+
+####  nanjolno  
+##### 13#       发表于 2022-10-10 09:47
+
+昨晚看完水星魔女之后我也同感，把当年非常喜欢的君の知らない物语翻出来再听了一遍，那个落差<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这些年ryo明明产量也不高啊怎么还越来越拉
+
+*****
+
+####  zoomegg  
+##### 14#       发表于 2022-10-10 10:12
+
+可能甲铁城的时候就感染病毒变丧尸了，没人发现而已。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+感觉人脑很难搞出这么支离破碎乱糟糟的东西
+
+*****
+
+####  Yalbsd  
+##### 15#       发表于 2022-10-10 10:14
+
+水星魔女ED确实太难听了
+
+*****
+
+####  LOLITA  
+##### 16#       发表于 2022-10-10 10:52
+
+他不一直是这个味儿么，好听的根本就没几首。这次ED做的好，算是拉回点分数吧
+
+*****
+
+####  aiyouo  
+##### 17#       发表于 2022-10-10 10:57
+
+最喜欢的还是很久之前的melt<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saverok  
+##### 18#       发表于 2022-10-10 10:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他这个水平不禁让人怀疑好的那几首是不是找人捉刀的
+
+*****
+
+####  肉搏光头  
+##### 19#       发表于 2022-10-10 11:19
+
+艺术创作是这样的，几首成名曲后随时可能泯然众人，灵感没了你再怎么写都没用。
+
+*****
+
+####  dev2ce  
+##### 20#       发表于 2022-10-10 11:24
+
+有人推是这样的，五轮歌姬tie了奥运都毫无水花，影响索尼给她出新单了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有竞争锻刀村op的机会，aimer已经证明谁拿到就是大hit
+
+*****
+
+####  糖尔  
+##### 21#       发表于 2022-10-10 11:24
+
+感觉他的才华全部留给术力口了
+odds &amp; ends不管听几遍都很感动，但这首之后………
+
+*****
+
+####  童贞阿龙  
+##### 22#       发表于 2022-10-10 11:25
+
+ 本帖最后由 童贞阿龙 于 2022-10-10 11:53 编辑 
+
+十年前那会每一首都特喜欢，可惜后面曲风变得没一首喜欢了
+现在去KTV还会和朋友唱你所不知道的故事、银色飞行船、王之力那几首<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  meailove  
+##### 23#       发表于 2022-10-10 11:26
+
+就和nagi的那几首是最好的
+
+*****
+
+####  圈量子  
+##### 24#       发表于 2022-10-10 11:28
+
+确实想不通，虽然OP也没好到哪里去但是好歹是当红，ryo连热度都没有吧
+
+别惦记你那**流行歌手的热度了，骂的就是你，电锯人
+
+*****
+
+####  山风短  
+##### 25#       发表于 2022-10-10 11:46
+
+把后来的歌拿去和Today is a beautiful day里的比一下，真的差距大到我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kedger  
+##### 26#       发表于 2022-10-10 11:58
+
+nagi走了之后ryo一事无成（暴论
+
+好吧，网管的歌还是不错的
+
+*****
+
+####  LLLLLuB  
+##### 27#       发表于 2022-10-10 12:09
+
+最近两首歌都有个听不清歌词的毛病，编曲风格也混乱，捉不住调
+
+*****
+
+####  solay  
+##### 28#       发表于 2022-10-10 12:10
+
+v家起家的编曲是不是都不考虑人类唱不唱的上去，总喜欢搞一些莫名其妙的变调同时又没留足够的换气时间(暴论)
+ayase的祝福也是，ikura自己录的tiktok清唱都唱不起来
+不过ryo最近编的乐色让电子音源唱也一样烂，倒是没得甩锅了，自己抄自己都不会吗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  平昭·南宫司卿  
+##### 29#       发表于 2022-10-10 12:12
+
+ 本帖最后由 平昭·南宫司卿 于 2022-10-10 12:14 编辑 
+
++1，昨天看完第二话最大的感想就是 ryo 一而再再而三突破下限
+
+nagi 之后就不行的还是挺暴论的，chelly koeda tia 都有数量不少不错的作品，但近几年实在是太拉了
+
+*****
+
+####  一个陆仁贾  
+##### 30#       发表于 2022-10-10 12:15
+
+ryo只适合“一夜情”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  plusSharp  
+##### 31#       发表于 2022-10-10 12:17
+
+名前のない怪物还不错，Fallen就已经开始不行了
+
+*****
+
+####  海月くらげ  
+##### 32#       发表于 2022-10-10 12:20
+
+有人说是近年高达ED垫底，我觉得保守了，这分明是全系列垫底都不为过。
+
+很多歌听了可能是没印象，平庸而无趣，但水星ED真的可以称之为辣耳的难听，RYO这么发病就算了，动画STF挑DEMO的时候真没感觉这旋律和节奏就是在反人类听感吗，只能解释为可能日本人真好这口吧。
+
+*****
+
+####  clears  
+##### 33#       发表于 2022-10-10 12:52
+
+他动画里最后一首感觉还不错的歌应该是球队长ed了，这几个歌姬都还是挺不错的，哪怕最被诟病的koeda也有银色飞行船这种。
+
+*****
+
+####  rollingusagi  
+##### 34#       发表于 2022-10-10 13:01
+
+ryo还是当情歌小王子好些，个人最喜欢my dearest和告白，听了十年都不腻，写的别的类型的歌印象里能听的就一首黑岩<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lushark  
+##### 35#       发表于 2022-10-10 13:16
+
+看了下推上明显还是好评多，是控评吗，还是咱中国人就爱听芭乐。
+
+*****
+
+####  米奥莉奈  
+##### 36#       发表于 2022-10-10 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57842948&amp;ptid=2098895" target="_blank">lushark 发表于 2022-10-10 13:16</a>
+看了下推上明显还是好评多，是控评吗，还是咱中国人就爱听芭乐。</blockquote>
+蓝鸟上一般没黑泥
+
+*****
+
+####  肉搏光头  
+##### 37#       发表于 2022-10-10 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57842948&amp;ptid=2098895" target="_blank">lushark 发表于 2022-10-10 13:16</a>
+
+看了下推上明显还是好评多，是控评吗，还是咱中国人就爱听芭乐。</blockquote>
+推上基本只有体育随时能喷，文娱只有差到突破下限才能喷。
+
+*****
+
+####  情強  
+##### 38#       发表于 2022-10-10 13:47
+
+对楼主提到的几首歌的分析都有同感，狠狠的支持了，补充一个16年的v曲《罪の名前》，感觉也不错，虽然我认为ryo现在这么拉胯得怪柳女士跑了，但天天在热门动画里整点噪音确实差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jobtownb  
+##### 39#       发表于 2022-10-10 13:53
+
+推上还在疯狂营业尬吹，尴尬程度直逼隔壁星二期<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  圈量子  
+##### 40#       发表于 2022-10-10 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57842948&amp;ptid=2098895" target="_blank">lushark 发表于 2022-10-10 13:16</a>
+看了下推上明显还是好评多，是控评吗，还是咱中国人就爱听芭乐。</blockquote>
+看差评需要去5ch
+
+*****
+
+####  猫睛石  
+##### 41#       发表于 2022-10-10 14:01
+
+我觉得挺好听的
+
+*****
+
+####  lucky95  
+##### 42#       发表于 2022-10-10 14:10
+
+LZ不说我还不知道是supercell<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  Mikumiku831  
+##### 43#       发表于 2022-10-10 14:14
+
+推上全肯定民<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我这种术口老害听他写出罪の名前就知道他人已经不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  1096beam  
+##### 44#       发表于 2022-10-10 14:17
+
+我觉得ED特别像AI作曲，单拉一句出来还可以，组合在一起就是缝合怪
+
+*****
+
+####  lucky95  
+##### 45#       发表于 2022-10-10 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57839071&amp;ptid=2098895" target="_blank">nage560 发表于 2022-10-10 09:28</a>
+15年做完勇气默示录2后就感觉不行了，量这么低为什么质量还能滑坡这么厉害所以现在我觉得大家都diss ...</blockquote>
+泽野是这个十年的二次元流量密码，别人要怎么和他比<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+可惜水星魔女没找他配乐配oped
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  白活这一生  
+##### 46#       发表于 2022-10-10 14:18
+
+听完没什么印象，从这点上看比宿命回响OP强一点。
+
+*****
+
+####  UnrealApartheid  
+##### 47#       发表于 2022-10-10 14:20
+
+就个人听感来说，我是能想象得到副歌配上一堆激烈的机战场面，以及歌曲开头和结尾的“→↘↗→↗”快速切换人物立绘的情节
+
+这首歌更适合作为第二季的OP而不是第一季的ED
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nage560  
+##### 48#       发表于 2022-10-10 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57843849&amp;ptid=2098895" target="_blank">lucky95 发表于 2022-10-10 14:18</a>
+
+泽野是这个十年的二次元流量密码，别人要怎么和他比
+
+可惜水星魔女没找他配乐配oped</blockquote>
+可能档期问题没有参与。真的以前还会diss下瞎吹泽野的小鬼，因为各个大佬都还水平在线，现在发现就只剩泽野现在还能稳定发挥了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高斯与格林  
+##### 49#       发表于 2022-10-10 15:34
+
+但我觉得op也一股缝合味啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi POCO F2 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  突然空虚  
+##### 50#       发表于 2022-10-10 15:36
+
+前面楼果然有说deco，最近deco还tie了pjsk二周年主题曲，也不太行，算是低潮期了。
+
+人的才华是有限的，不过像ryo这种一直走不出去的，而且高达这么大的单还直接砸到底也是少见了。
+
+现在看主流出道最顺还是八爷
+
+*****
+
+####  lucky95  
+##### 51#       发表于 2022-10-10 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57845187&amp;ptid=2098895" target="_blank">高斯与格林 发表于 2022-10-10 15:34</a>
+但我觉得op也一股缝合味啊
+
+—— 来自 Xiaomi POCO F2 Pro, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+yoasobi本质就是tik tok流量缝合怪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  lucky95  
+##### 52#       发表于 2022-10-10 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57845045&amp;ptid=2098895" target="_blank">nage560 发表于 2022-10-10 15:27</a>
+可能档期问题没有参与。真的以前还会diss下瞎吹泽野的小鬼，因为各个大佬都还水平在线，现在发现就只剩泽 ...</blockquote>
+二次元是真不行了，立本文化也是<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  阿姆罗二世  
+##### 53#       发表于 2022-10-10 15:38
+
+泽野配的高达都没问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哪怕是哈萨维都有很多好曲子，喧宾夺主的程度也都还好
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  suttv  
+##### 54#       发表于 2022-10-10 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57845045&amp;ptid=2098895" target="_blank">nage560 发表于 2022-10-10 15:27</a>
+
+可能档期问题没有参与。真的以前还会diss下瞎吹泽野的小鬼，因为各个大佬都还水平在线，现在发现就只剩泽 ...</blockquote>
+不如说你那一辈宅宅喜欢的配乐已经基本上不出山了，现在就真的泽野最稳定
+
+*****
+
+####  Natsunagi  
+##### 55#       发表于 2022-10-10 16:11
+
+ 本帖最后由 Natsunagi 于 2022-10-10 16:31 编辑 
+
+从16年开始ryo真的，说江郎才尽都是夸他了，前面的歌确实才华横溢，不管术曲还是化物语还是网管，甚至直到野良神我都百听不厌，对我来说真的没有一首不好听的，结果到甲铁城直接开整行为艺术了，同一部动画里泽野的ed不知道高到
+
+哪里去了，然后再到FA真的就纯纯恶心人了，chelly不继续跟他真的是有道理的
+
+其实倒也能理解ryo想搞点不一样的曲风和编曲，不想重复以前，但是他显然连重复以前都做不到了，这次ed的前奏和间奏讲道理确实有点以前的影子，然而还是掩盖不了一坨浓谢的事实
+
+*****
+
+####  qb0079  
+##### 56#       发表于 2022-10-10 16:16
+
+<blockquote>lushark 发表于 2022-10-10 13:16
+看了下推上明显还是好评多，是控评吗，还是咱中国人就爱听芭乐。</blockquote>
+我看向日葵上弹幕都在骂量产垃圾
+
+*****
+
+####  kyogngn  
+##### 57#       发表于 2022-10-10 16:18
+
+确实难听，忍着看完ed
+
+*****
+
+####  chaucerling  
+##### 58#       发表于 2022-10-10 16:20
+
+ 本帖最后由 chaucerling 于 2022-10-10 16:22 编辑 
+
+昨天听完ed连印象都没留下，看到这贴才知道是ryo作曲的，起码比宿命回响那组合强点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然说巅峰是和nagi合作的时候，但是chelly和koeda也出了不少好听的抒情曲，不过15年就一直走下路了
+
+这季sony的头牌尽出，谁拉垮尴尬
+
+*****
+
+####  隼雷  
+##### 59#       发表于 2022-10-10 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57845187&amp;ptid=2098895" target="_blank">高斯与格林 发表于 2022-10-10 15:34</a>
+但我觉得op也一股缝合味啊
+
+—— 来自 Xiaomi POCO F2 Pro, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+op我觉得真难听 ed还没听，我就听过一首群青，两首歌的低频效果器音色一模一样，没有任何区别，然后曲子明显比群青还差很多，差评
+
+*****
+
+####  越动天下  
+##### 60#       发表于 2022-10-10 16:21
+
+ 本帖最后由 越动天下 于 2022-10-10 16:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57845268&amp;ptid=2098895" target="_blank">lucky95 发表于 2022-10-10 15:37</a>
+二次元是真不行了，立本文化也是
+
+— from Google Pixel 6, Android 13 of S1 Next Goose v2.5.2- ...</blockquote>
+拉到吧 我觉得会写歌的起码一大堆 ryo出来的术哪怕是现在都有不少底边厉害的很（17 18年那时候确实不太行） 我看的管人 不说那些搞音乐的和底边的 就是有钱公司也能找到很不错的（我在管人区也说过了） 新番我看的蛮少 这个季度才决定重新看 但是前几个月好像是那个街角魔族的op还是ed特别厉害 我还在楼里面夸jazz用的真的很好 我是觉得这些现在推的人的歌真的都很呃呃
+
+
+
+*****
+
+####  chaucerling  
+##### 61#       发表于 2022-10-10 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57846161&amp;ptid=2098895" target="_blank">隼雷 发表于 2022-10-10 16:20</a>
+
+op我觉得真难听 ed还没听，我就听过一首群青，两首歌的低频效果器音色一模一样，没有任何区别，然后曲子 ...</blockquote>
+YOASOBI就是你听一首会觉得好听，听两首会觉得曲风比较统一，听完一专会觉得是量产复制怪
+
+*****
+
+####  永远  
+##### 62#       发表于 2022-10-10 16:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我甚至觉得他就是在报社
+
+甲铁城那时就犯病了，不是写不出好旋律
+
+是不愿照着好旋律写一首正常的歌
+
+给你2~3秒有那味了，马上画风一转猪突猛进
+
+可能，这就是艺术吧
+
