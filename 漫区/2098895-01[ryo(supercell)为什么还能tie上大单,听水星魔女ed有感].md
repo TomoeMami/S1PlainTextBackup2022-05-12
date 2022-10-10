@@ -592,3 +592,12 @@ YOASOBI就是你听一首会觉得好听，听两首会觉得曲风比较统一�
 
 可能，这就是艺术吧
 
+
+
+*****
+
+####  LLLLLuB  
+##### 63#       发表于 2022-10-10 16:39
+
+说句题外话，感觉nagi单飞后，她自己的编曲太单调了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
