@@ -2937,3 +2937,28 @@ https://www.reddit.com/r/StableDiffusion/comm ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  mahoraga  
+##### 230#         楼主| 发表于 2022-10-10 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57851367&amp;ptid=2098197" target="_blank">不让用大写 发表于 2022-10-10 21:48</a>
+
+主楼第一张的prompt分享一下可以吗，好喜欢
+
+—— 来自 S1Fun</blockquote>
+不好意思主楼的prompt我自己也没有了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">，文件名应该就是一部分prompt，但是不完整
+
+我之前还想复现一下类似的国产3d插画风格但是失败了，我这两天学了点新的prompt关键词我再试试
+
+要不考虑扔进deep danbooru里面提取一下关键字
+
+*****
+
+####  gulant  
+##### 231#       发表于 2022-10-10 22:51
+
+mark一下，加班不方便看，回家慢慢学习~<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+

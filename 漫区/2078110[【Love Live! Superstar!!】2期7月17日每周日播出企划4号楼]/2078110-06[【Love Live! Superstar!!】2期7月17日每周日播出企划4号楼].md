@@ -4214,3 +4214,30 @@ Fes5GCyagAAqDf-.jpg
 
 嗯？老五人没有团队感难道是因为香音………？只要五个一起就很少有讨论的余地
 
+
+
+*****
+
+####  Skyline_R  
+##### 7921#       发表于 2022-10-10 22:46
+
+ 本帖最后由 Skyline_R 于 2022-10-10 22:47 编辑 
+
+星3期不会还是明年7月吧，那下半年得跟隔壁百万现场卧龙凤雏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  凡人  
+##### 7922#       发表于 2022-10-10 22:47
+
+只要三期花田大老师是说vn和香音被指腹为婚让vn跟过去是跟未婚夫培养感情的就能圆过去了（大嘘）。突然想到要是三次还有敌团，那裂了能垫的地方也就只有音乐节，所以会有三连特别奖吗
+
+*****
+
+####  D麦林  
+##### 7923#       发表于 2022-10-10 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57852035&amp;ptid=2078110" target="_blank">Skyline_R 发表于 2022-10-10 22:46</a>
+星3期不会还是明年7月吧，那下半年得跟隔壁百万现场卧龙凤雏了</blockquote>
+新一期生3月最终试镜 4个月时间完成新人入团培训动画制作录音这些工作怎么想都不可能吧
+
