@@ -11519,3 +11519,37 @@ ETHYRIA 1 YEAR CELEBRATION ~ PUPPET SHOW
 
 ばぶ太郎桑这一周年谷也太虹了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 17558#       发表于 2022-10-10 14:16
+
+[https://youtu.be/2SZbnGJAymg](https://youtu.be/2SZbnGJAymg)
+
+ETHYRIA (original soundtrack) Enna Alouette × keiki
+ <blockquote>Happy 1 year anniversary, Ethyria !! 
+
+This original soundtrack is dedicated to my girls. I tried to write a melody that fit a nostalgic but adventurous feeling. Thank you so much for the past year, let's make another memorable year together ♡ Big thank you to my team keiki for the gorgeous instrumental arrangement &amp; 白茶 for the stunning art. And thank you Diego for the first initial draft so I could get my ideas flowing !!
+
+1年间のご支援に感谢いたします !! ♡
+
+我感谢你们一年来的支持 !! ♡
+
+• ───────────────── •
+
+credits 
+
+■ top lining &amp; lyrics &amp; vocals. Enna Alouette
+
+twitter. [https://twitter.com/EnnaAlouette](https://twitter.com/EnnaAlouette)
+
+■producer &amp; mix &amp; instru. keiki
+
+twitter. [https://twitter.com/keiki_music](https://twitter.com/keiki_music)
+
+■illustration. Witea.白茶
+
+twitter.  [https://twitter.com/baichapaofan](https://twitter.com/baichapaofan)</blockquote>
+
