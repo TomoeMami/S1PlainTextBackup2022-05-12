@@ -3834,3 +3834,45 @@ s1现在追动画的人少，评分的人更少，别看才六十多人投，已
 
 它装不住，加人的速度，我的音符全部是维也纳艺术
 
+
+
+*****
+
+####  nufawneafg  
+##### 7885#       发表于 2022-10-10 18:22
+
+什么土味数来宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星降る森  
+##### 7886#       发表于 2022-10-10 18:24
+
+<blockquote>ads147147 发表于 2022-10-10 17:54
+虹这边草台在as拖太久了，大框架定好了但是没能好好执行。星这边是一个固定的大框架还能整这么多幺蛾子， ...</blockquote>
+主要虹一开始定义是纯手游团，所以我觉得至今为止操作都还过得去，as推迟确实很草台，但即使as早出，官方那时候估计也没让虹和水竞争的打算。鬼头姑且能说是个意外，楠木从一开始就是被sma钦定强推的，注定要当鸽王。
+
+星是真的认死理了，到现在感觉真是充满日式大资方的傲慢
+
+*****
+
+####  稀勢のささ  
+##### 7887#       发表于 2022-10-10 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就只是开了个罐喝了一口
+
+*****
+
+####  lj205  
+##### 7888#       发表于 2022-10-10 18:32
+
+<img src="https://img.saraba1st.com/forum/202210/10/183152part9asbovrycct8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E857514C-EB12-4A47-8E17-C4E7FC4E94F6.jpeg</strong> (191.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 18:31 上传
+
+买了，真贵，国内就送个冰箱贴
+

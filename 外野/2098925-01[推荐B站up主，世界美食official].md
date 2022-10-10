@@ -683,3 +683,17 @@
 
 淘宝就有卖的 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  埃拉尼  
+##### 80#       发表于 2022-10-10 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57846010&amp;ptid=2098925" target="_blank">3Psm 发表于 2022-10-10 16:12</a>
+
+什么南亚饮食，这位up主态度很明显的，阿三料理跟巴铁料理完全不一样态度。
+
+而且文案鸡棒以外，还会根据文 ...</blockquote>
+那我倒好奇了，巴铁料理和阿三料理有什么本质区别，以至于他产生了完全不同的态度？卫生上？口味上？
+
