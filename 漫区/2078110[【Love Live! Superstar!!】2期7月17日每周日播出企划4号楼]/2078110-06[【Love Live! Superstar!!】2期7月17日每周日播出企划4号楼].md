@@ -3641,3 +3641,18 @@ nico评分哪天出
 
 星的环境不是在加人的时候就烂了吗？现在不过是加了更大的一把火罢了
 
+
+
+*****
+
+####  ads147147  
+##### 7867#       发表于 2022-10-10 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57844621&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-10 15:06</a>
+以后在国内谈星环境直接烂完了，就算奇迹发生三期写的好都救不了，粉丝哪儿赢了 ...</blockquote>
+第三季写好不叫奇迹发生。
+
+现在把12季打回重写，而且写好了，才叫奇迹发生。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
