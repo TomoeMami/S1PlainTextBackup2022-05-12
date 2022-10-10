@@ -3148,3 +3148,15 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 至少目前而言相比于业界其他动画，拉拉动画无论做成啥都不会亏甚至是大赚，没理由不一直做新动画，所以有没有后续动画很大程度上看上面的人如何规划的，在这个意义上粉丝的支持与是否有后续动画没太大关联（粉丝群体已经固化了，死忠再烂都会买单，日升显然也不缺钱做拉拉动画）。各种打抱不平的实属没必要，主要看企划方愿不愿意做。话说现在业界这都能有第x季的动画还不少。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 7821#       发表于 2022-10-10 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57839083&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-10 09:29</a>
+
+前三代剧情不敢说绝佳，但至少毁角色（或者说让角色不那么讨喜，前三代就是对手团都不至于这么败好感）、 ...</blockquote>
+LLSS一期起跑线确实很高，历代LL最好的开篇三集，所以说是把带伙骗了
+
