@@ -4162,3 +4162,13 @@ Fes5GCyagAAqDf-.jpg
 最离谱的就是留学相关那一段了 但是硬要说的话这和VN本人好像关系也不大…
 11话急了急了的样子确实也挺有意思的
 
+
+
+*****
+
+####  adw667  
+##### 7917#       发表于 2022-10-10 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我为什么会想不开在OW输了一晚上之后来补12集
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外我发现只要疯狂skip不看鸡汤和香音的部分就还算能看下去
+
