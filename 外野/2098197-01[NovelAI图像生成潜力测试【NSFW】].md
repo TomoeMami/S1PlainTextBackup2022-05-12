@@ -3005,3 +3005,21 @@ mark一下，加班不方便看，回家慢慢学习~<img src="https://static.sa
 
 今天我终于也折腾了一个本地版的novel ai， 求楼友们给点傻瓜的描述，（第一框+第二框），我自己搞出来的都是啥贵物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sutegoro  
+##### 234#       发表于 2022-10-11 00:51
+
+<img src="https://i.postimg.cc/C1PVy6QM/nsfw-masterpiece-anal-rape-gangbang-1girl-pussy-bdsm-highleg-highly-detailed-shiny-shy-w.png" referrerpolicy="no-referrer">
+
+感觉有内味儿了
+
+*****
+
+####  Sutegoro  
+##### 235#       发表于 2022-10-11 00:52
+
+[https://postimg.cc/8J6YMwGx](https://postimg.cc/8J6YMwGx)
+

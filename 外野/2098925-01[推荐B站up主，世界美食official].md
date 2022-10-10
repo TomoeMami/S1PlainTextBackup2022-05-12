@@ -928,3 +928,12 @@
 
 他们为什么都不喜欢穿鞋啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  高分高能EPYC  
+##### 105#       发表于 2022-10-11 00:49
+
+这AI配音我是真的听不下去<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
