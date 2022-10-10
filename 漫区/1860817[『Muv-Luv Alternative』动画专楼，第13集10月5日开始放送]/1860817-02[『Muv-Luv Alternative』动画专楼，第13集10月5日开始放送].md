@@ -837,3 +837,12 @@ ate里武御雷的刀不是削beta如泥
 —— 来自 OnePlus HD1905, Android 13上的 S1Next-鹅版 v2.5.4</blockquote>
 艹
 
+
+
+*****
+
+####  resorry  
+##### 1858#       发表于 2022-10-11 01:35
+
+新OP还是挺不错的
+
