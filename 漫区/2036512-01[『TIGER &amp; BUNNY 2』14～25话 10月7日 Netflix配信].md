@@ -216,3 +216,27 @@
  ...</blockquote>
 文艺作品里跳崖高坠不见尸的，可以默认为还活着<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 107#       发表于 2022-10-10 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837728&amp;ptid=2036512" target="_blank">wirblwind 发表于 2022-10-10 03:14</a>
+
+这结局看完半夜让人爆炸啊</blockquote>
+想了下女反派的逻辑
+
+因为当局力推能力有用的超能力者
+
+所以能力没啥卵用的超能力者被排挤歧视
+
+所以我要伪装成普通人杀了超能力者的希望曙光女士
+
+让超能力者和普通人彻底对立
+
+这彻底对立了不是对谁都没好处吗？
+
+只能认为这位反派女士想的是“累了，毁灭吧”
+
