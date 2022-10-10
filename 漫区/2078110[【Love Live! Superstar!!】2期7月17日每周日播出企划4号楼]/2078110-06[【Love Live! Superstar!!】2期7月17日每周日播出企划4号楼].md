@@ -3739,3 +3739,39 @@ S1还有评分的啊，我都不知道在哪里<img src="https://static.saraba1s
 
 单纯因为s1播完再投，分数比之前更有冲击力吧。
 
+
+
+*****
+
+####  ads147147  
+##### 7877#       发表于 2022-10-10 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57846523&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-10-10 16:39</a>
+虹一开始也没动画企划啊，2nd后运营方针调整，觉得一年铺满是更优解，这才有了动画。这还是声优在舞台上 ...</blockquote>
+虹这边草台在as拖太久了，大框架定好了但是没能好好执行。星这边是一个固定的大框架还能整这么多幺蛾子，甚至还是as游戏踩过一次的雷，花田毫不犹豫的再去踩一次，结合之前采访说官方觉得as加人做的特好，我有点怀疑是不是逼着花田往as那个方向写，然后画图就往大家一起死的方向写了。处处都是草台。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 7878#       发表于 2022-10-10 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57847526&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-10 17:42</a>
+S1还有评分的啊，我都不知道&amp;# ...</blockquote>
+子版面，说实话四位数都没到的票数，感觉含金量还不如国内萌战吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aoaoaodedede  
+##### 7879#       发表于 2022-10-10 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57847715&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-10 17:55</a>
+
+子版面，说实话四位数都没到的票数，感觉含金量还不如国内萌战吧
+
+—— 来自 Xiaomi 2106118C, An ...</blockquote>
+看到了，这不还没三位数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

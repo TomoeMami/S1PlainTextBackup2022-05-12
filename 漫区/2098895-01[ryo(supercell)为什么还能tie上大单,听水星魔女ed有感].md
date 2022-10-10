@@ -678,3 +678,16 @@ ryo从网管以后就没听了，真听不下去。yoasobi也是，产量太高�
 
 yoasobi再怎么复制，祝福总体上还是能称得上好听的，这逼ED真是听着难受，不配跟OP相提并论好吧。
 
+
+
+*****
+
+####  嵐ステリ  
+##### 72#       发表于 2022-10-10 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57845241&amp;ptid=2098895" target="_blank">突然空虚 发表于 2022-10-10 15:36</a>
+前面楼果然有说deco，最近deco还tie了pjsk二周年主题曲，也不太行，算是低潮期了。
+
+人的才华是有限的，不 ...</blockquote>
+八爷我觉得在《死神》之后也不太行，给新奥特曼写的那个是什么个玩意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
