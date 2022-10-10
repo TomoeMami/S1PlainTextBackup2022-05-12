@@ -3487,3 +3487,12 @@ cnm，现在才反应过来要出三期
 
 三次元当然还是星好，liella可是正经女团，虹能不能凑齐人还不是随缘。说了很多次了动画就是宣传片，宣传片烂和真正的商品（live）没有必然关系
 
+
+
+*****
+
+####  nufawneafg  
+##### 7851#       发表于 2022-10-10 12:21
+
+live还是再议吧，现在想想live上要放这反社会动画就头疼<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
