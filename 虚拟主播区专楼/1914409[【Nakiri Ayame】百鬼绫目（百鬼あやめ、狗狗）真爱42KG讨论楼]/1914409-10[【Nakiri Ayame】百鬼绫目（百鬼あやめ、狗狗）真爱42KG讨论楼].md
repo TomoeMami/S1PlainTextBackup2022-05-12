@@ -8005,3 +8005,12 @@ tmd怎么开始连推都不发了，还是你楼更懂绫总啊
 
 说绫总摆绫总就动，就是要cpu观众
 
+
+
+*****
+
+####  Map-2  
+##### 14397#       发表于 2022-10-10 11:26
+
+可是，绫总的喷喷力，只能用悲剧来形容<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+

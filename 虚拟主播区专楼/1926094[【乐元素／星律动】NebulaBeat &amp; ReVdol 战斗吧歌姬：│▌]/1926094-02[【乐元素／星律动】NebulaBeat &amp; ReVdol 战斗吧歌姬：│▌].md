@@ -5495,3 +5495,21 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  ladiesman802  
+##### 2091#       发表于 2022-10-10 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57840097&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-10-10 10:38</a>
+
+斑比锁推是不是等毕业后再开新号
+
+  -- 来自 能手机投票的 Stage1官方 iOS客户端 ...</blockquote>
+我的猜测是
+
+1.打算继续做v，所以想保持虚拟感，少让人知道
+
+2.永远退场，切割所有粉丝，远离尘嚣
+
