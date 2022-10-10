@@ -4037,3 +4037,20 @@ s1现在追动画的人少，评分的人更少，别看才六十多人投，已
 
 酸菜鱼是我在LL最后的快乐了，连这都要失去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 7906#       发表于 2022-10-10 20:23
+
+毕竟as国服………………
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 7907#       发表于 2022-10-10 20:24
+
+<img src="https://p.sda1.dev/7/93cdf20ba12f788374d2e799a2567571/1805271322.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
