@@ -653,3 +653,19 @@ deco今年新专 zombie这几首都蛮明显了，旋律好的还能听听，旋
 
 ryo从网管以后就没听了，真听不下去。yoasobi也是，产量太高导致几乎同质，听了好多曲基本都是后半升调来一下，都快听麻木了。
 
+
+
+*****
+
+####  sxcluck  
+##### 69#       发表于 2022-10-10 17:17
+
+现在整个Sony集团就是脑子有病<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无意义小号  
+##### 70#       发表于 2022-10-10 17:20
+
+都说yoasobi复制怪，宁可ryo也当个复制怪。
+
