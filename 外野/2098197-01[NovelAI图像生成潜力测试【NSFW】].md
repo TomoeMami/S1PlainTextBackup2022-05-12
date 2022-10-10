@@ -2962,3 +2962,37 @@ https://www.reddit.com/r/StableDiffusion/comm ...</blockquote>
 
 mark一下，加班不方便看，回家慢慢学习~<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mahoraga  
+##### 232#         楼主| 发表于 2022-10-10 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57851367&amp;ptid=2098197" target="_blank">不让用大写 发表于 2022-10-10 21:48</a>
+
+主楼第一张的prompt分享一下可以吗，好喜欢
+
+—— 来自 S1Fun</blockquote>
+我大致上复现出来了，原来是我当时混合了照片的关键词，形成了这种二三次元混合的效果，还不错，赶紧记下
+
+(((masterpiece))), beautiful photorealistic portrait of a gorgeous eastern immortal goddess with {{long white flowing hair}}, {{illustration}}, bust shot, flowing hair, sharp, photography,  50mm, f/2.8, complementary color, soft lighting,
+
+<img src="https://img.saraba1st.com/forum/202210/10/230207ecy1t1yaaoajtztg.png" referrerpolicy="no-referrer">
+
+<strong>(((masterpiece))), beautiful photorealistic portrait  a gorgoeus eastern immorta.png</strong> (65.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 23:02 上传
+
+<img src="https://img.saraba1st.com/forum/202210/10/230255u35r8ml29lpqp7u9.png" referrerpolicy="no-referrer">
+
+<strong>(((masterpiece))), beautiful photorealistic portrait  a gorgeous eastern immorta.png</strong> (56.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 23:02 上传
+
+这个咒语现在效果还不太稳定，我过段时间再优化下
+
