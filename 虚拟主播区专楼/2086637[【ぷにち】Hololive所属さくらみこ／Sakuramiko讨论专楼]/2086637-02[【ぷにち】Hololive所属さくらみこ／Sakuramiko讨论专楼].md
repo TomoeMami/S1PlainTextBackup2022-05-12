@@ -7317,3 +7317,14 @@ R[)HY5IJO98WLEV2%X_PGY0.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">糟了,要叛变了么?!你快回来!
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2215#       发表于 2022-10-10 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">发布会的评论区有点直球啊。
+
+哈哈，其实我前段时间也挺烦miko老是把火建绑定起来，直播里直播外都是火建。不过看了夏日祭之后就觉得miko需要有这么一个像同期生的团队。
+

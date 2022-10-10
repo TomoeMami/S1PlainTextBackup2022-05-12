@@ -910,3 +910,12 @@ deco和八爷现在写歌给我的感觉就还蛮敷衍的，就是常规一直�
 deco今 ...</blockquote>
 我一路听来，最喜欢的hachi作品还是罗刹骸跟俄罗斯套娃，这两首的编曲非常简单却足够独特，跟商业曲可以说是天壤之别。
 
+
+
+*****
+
+####  saturnus  
+##### 96#       发表于 2022-10-10 23:31
+
+印象中ryo最后一首听的歌就是all alone with you<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

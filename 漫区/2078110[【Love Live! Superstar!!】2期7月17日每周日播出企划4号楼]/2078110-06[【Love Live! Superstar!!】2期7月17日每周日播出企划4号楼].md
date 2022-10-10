@@ -4309,3 +4309,19 @@ Fes5GCyagAAqDf-.jpg
 
 只能说人和人的梦想是不等价的。今天的阿b评论总是能让人眼前一黑。
 
+
+
+*****
+
+####  Kfly  
+##### 7931#       发表于 2022-10-10 23:26
+
+ 本帖最后由 Kfly 于 2022-10-10 23:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57852418&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-10 23:18</a>
+
+民警拿Liella当跳板-香音：你说的是认真的吗？（准备巴掌）
+
+香音拿拉拉大赛当跳板-小千：你们不会觉得这是 ...</blockquote>
+拿孔乙己的那句话来说就是：香音的事，能叫××吗？
+Liella是我香音家的，我当然可以随便摆弄，你堇算啥？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
