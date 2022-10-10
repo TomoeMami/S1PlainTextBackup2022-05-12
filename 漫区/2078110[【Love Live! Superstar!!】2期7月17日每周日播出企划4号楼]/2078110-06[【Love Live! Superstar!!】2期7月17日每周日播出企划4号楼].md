@@ -4336,3 +4336,12 @@ Liella是我香音家的，我当然可以随便摆弄，你堇算啥？<img src
 
 也没聊啥，就说特别喜欢她的歌声，祝愿她早日歌手出道，小百合就那大眼睛盯着你，真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7933#       发表于 2022-10-11 01:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三期还是晚点来吧，要是再赶鸭子上架那新海选的那位估计只能跟铃原组个阴间cp了，哪能次次都捡到宝的。两次海选年龄限制一样的话池子还变小了，新卡怕不是就上次年龄不够参加不了的那部分，剩下的基本就落选过一次想再搏一次的
+
