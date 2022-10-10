@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/外野/2097486-01[C-y7QF理解AI画画的第一块砖： 画画!？ 只是采样罢了!].md'
-!!error:id=2097486
