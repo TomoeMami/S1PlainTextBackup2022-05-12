@@ -5517,3 +5517,31 @@ srgb  74% 海外媒体notebook check 有评测数据的，gpd 看了还满地�
 
 乐 奥克把天猫100%srgb删了
 
+
+
+*****
+
+####  bypass  
+##### 445#         楼主| 发表于 2022-10-10 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57844906&amp;ptid=2086469" target="_blank">信长的呕吐 发表于 2022-10-10 15:22</a>
+
+乐 奥克把天猫100%srgb删了</blockquote>
+我来补下图：
+
+<img src="https://img.saraba1st.com/forum/202210/10/154910kdz5oyuypqjzvp53.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 15:49 上传
+
+<img src="https://img.saraba1st.com/forum/202210/10/154915iq327wqzbit7942t.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (169.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 15:49 上传
+
