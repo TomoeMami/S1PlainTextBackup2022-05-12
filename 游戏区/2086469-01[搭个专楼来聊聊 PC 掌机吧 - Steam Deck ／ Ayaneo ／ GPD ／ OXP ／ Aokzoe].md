@@ -5495,3 +5495,16 @@ AYANEO 2 真机游戏体验 『黑暗之魂 3』
 
 散热看起来的确还可以（瞥向我的 Deck）。
 
+
+
+*****
+
+####  plumlis  
+##### 443#       发表于 2022-10-10 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57840054&amp;ptid=2086469" target="_blank">83913536 发表于 2022-10-10 10:35</a>
+应该说的是100% srgb吧...这个确实有达到</blockquote>
+srgb  74% 海外媒体notebook check 有评测数据的，gpd 看了还满地打滚呢
+
+— from Google Pixel 4 XL, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
