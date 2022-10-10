@@ -3220,3 +3220,58 @@ LLSS一期起跑线确实很高，历代LL最好的开篇三集，所以说是�
 狼蛛在虹团什么待遇，裤裤在星团什么待遇
 花田只配吔屎
 
+
+
+*****
+
+####  靡宜  
+##### 7827#       发表于 2022-10-10 10:22
+
+<blockquote>蕉遇鹿 发表于 2022-10-10 02:32
+为啥虹咲那么好没三期，星团这么烂还要出三期
+
+—— 来自 realme RMX2117, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+看咖喱佬的翻译的访谈，企划:就要搞真实
+
+*****
+
+####  靡宜  
+##### 7828#       发表于 2022-10-10 10:26
+
+<blockquote>光宗薫 发表于 2022-10-10 08:46
+原来到了2期鲤鱼还是需要菜宝帮忙的吗，我寻思她日语已经够用了呢
+
+—— 来自 Xiaomi 22041211AC, Android  ...</blockquote>
+可能给的工资不是很多，跟staff也挺熟。而且感觉也不全是鲤鱼，给其他人指导演技也能发挥下作用的样子？第二季裤裤台词钻没第一季多，有时候就几句话不用每集都参与吧
+
+*****
+
+####  四宫家印  
+##### 7829#       发表于 2022-10-10 10:27
+
+销量的话，本家才1w不到吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nufawneafg  
+##### 7830#       发表于 2022-10-10 10:27
+
+理智...我的理智...今天早上稍作回想就结结实实给我生理意义上恶心吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+真特么一个广告片往sancheck方向去做
+
+
+
+*****
+
+####  沙茶酱  
+##### 7831#       发表于 2022-10-10 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57839869&amp;ptid=2078110" target="_blank">蒸汽投石BuBu車 发表于 2022-10-10 10:22</a>
+
+以前总说狼蛛是星团幻之第六人，现在看来裤裤没挤进虹团可就亏了啊
+
+狼蛛在虹团什么待遇，裤裤在星团什么待 ...</blockquote>
+如果只考虑动画，以及场外没有那么多骚操作的话，去虹那边肯定去星这边要爽一些
+
