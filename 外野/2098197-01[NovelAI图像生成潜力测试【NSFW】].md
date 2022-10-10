@@ -3023,3 +3023,24 @@ mark一下，加班不方便看，回家慢慢学习~<img src="https://static.sa
 
 [https://postimg.cc/8J6YMwGx](https://postimg.cc/8J6YMwGx)
 
+
+
+*****
+
+####  Sutegoro  
+##### 236#       发表于 2022-10-11 00:54
+
+[https://postimg.cc/4Y3sVCSM](https://postimg.cc/4Y3sVCSM)
+
+觉醒莫名其妙的XP，感觉既能当批又能当肚脐用的样子
+
+*****
+
+####  Sutegoro  
+##### 237#       发表于 2022-10-11 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57853351&amp;ptid=2098197" target="_blank">Sutegoro 发表于 2022-10-11 00:52</a>
+
+https://postimg.cc/8J6YMwGx</blockquote>
+接近于ACT和ARPG战斗时放在旁边的实时H
+

@@ -937,3 +937,14 @@
 
 这AI配音我是真的听不下去<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cnwind042  
+##### 106#       发表于 2022-10-11 00:56
+
+挺不错的，适合拿来减肥<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI MRX-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
