@@ -3024,3 +3024,14 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202210/10/081301tolvhkvyupv6ml8m.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  光宗薫  
+##### 7811#       发表于 2022-10-10 08:46
+
+原来到了2期鲤鱼还是需要菜宝帮忙的吗，我寻思她日语已经够用了呢
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

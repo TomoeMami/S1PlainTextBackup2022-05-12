@@ -5407,3 +5407,23 @@ aok这算啥，GPD当年POcket3色域吹的100%，到手后也是74%，官方翻
 
 老外专业评测说Pocket 3色域造假，GPD还发长文说”不会吧不会吧不会吧，你还指望用这个屏幕搞专业绘图呐“搪塞过去了。
 
+
+
+*****
+
+####  Fuero  
+##### 436#       发表于 2022-10-10 08:43
+
+emmmAOK这有点尴尬…
+
+*****
+
+####  亚瑟摩根  
+##### 437#       发表于 2022-10-10 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837781&amp;ptid=2086469" target="_blank">yweili99 发表于 2022-10-10 03:53</a>
+开个美区小号然后在淘宝上买代充，用余额买deck，这么做安全吗？</blockquote>
+安全啊，我都买了两次了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
