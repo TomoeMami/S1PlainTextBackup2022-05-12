@@ -5482,3 +5482,16 @@ aok这算啥，GPD当年POcket3色域吹的100%，到手后也是74%，官方翻
 最开心的还是拿到设备那 ...</blockquote>
 还要加上下载各种平台各种也许会玩的游戏各种模拟器，这种所有游戏在一台掌上设备上及其的感觉真的很爽，玩不玩另说，另外买了AOKZOE了话还能得到折腾机器的乐趣<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bypass  
+##### 442#         楼主| 发表于 2022-10-10 11:00
+
+[https://www.bilibili.com/video/BV1pD4y1k7Hz](https://www.bilibili.com/video/BV1pD4y1k7Hz)
+
+AYANEO 2 真机游戏体验 『黑暗之魂 3』
+
+散热看起来的确还可以（瞥向我的 Deck）。
+
