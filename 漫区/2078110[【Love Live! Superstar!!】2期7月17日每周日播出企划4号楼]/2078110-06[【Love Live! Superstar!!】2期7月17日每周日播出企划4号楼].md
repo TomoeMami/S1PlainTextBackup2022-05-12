@@ -3563,3 +3563,14 @@ live还是再议吧，现在想想live上要放这反社会动画就头疼<img s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">live重要是没错啊，可是对咱们来说现场又去不了，3rd这又砍线上，剩下的可不就是动画了嘛
 
+
+
+*****
+
+####  cat1230  
+##### 7860#       发表于 2022-10-10 13:30
+
+鲤鱼那个可口可乐是不是今天要打开？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
