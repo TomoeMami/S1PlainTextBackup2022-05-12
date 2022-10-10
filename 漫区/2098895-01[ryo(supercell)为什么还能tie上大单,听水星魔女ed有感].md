@@ -763,3 +763,21 @@ ryo早已昔日黄花，时代终究不等人，ryo自己烂不怪其他人
 
 听完ed回来了，没觉得ed比op难听，差不多货色，很平庸，不太理解为什么大家都极度不喜欢。
 
+
+
+*****
+
+####  哆哆鸡  
+##### 81#       发表于 2022-10-10 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+d1790c23dd54564ec7f5bcf9f6de9c82d0584f0f.jpg
+(24.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 19:18 上传
+
+<img src="https://img.saraba1st.com/forum/202210/10/191824pa0dal93299l2v0j.jpg" referrerpolicy="no-referrer">
+
