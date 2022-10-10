@@ -882,3 +882,31 @@ nagi单飞后的歌的质量也差了不少,卖的最好的春物那几首销量
 所以我很想知道#LOVE 时发生了什么而导致回光返照（指符合大众审美）</blockquote>
 tie的动画是十年前动画的续作,他直接拿10年前给前作写的曲出来改了一改,说明大众审美还是十年前那味,没跟上他这十年的进化
 
+
+
+*****
+
+####  suhanblood  
+##### 93#       发表于 2022-10-10 21:55
+
+我现在还是很爱《LOVE &amp; ROLL》<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ヒトニナル  
+##### 94#       发表于 2022-10-10 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57851301&amp;ptid=2098895" target="_blank">安子醬 发表于 2022-10-10 21:42</a>
+tie的动画是十年前动画的续作,他直接拿10年前给前作写的曲出来改了一改,说明大众审美还是十年前那味,没跟 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐，我懂了，这是大众跟不上大师的步伐吔！
+
+*****
+
+####  帕林马哲理  
+##### 95#       发表于 2022-10-10 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57846577&amp;ptid=2098895" target="_blank">糖尔 发表于 2022-10-10 09:42</a>
+deco和八爷现在写歌给我的感觉就还蛮敷衍的，就是常规一直会写的结构，或者说商曲风格同质化严重
+deco今 ...</blockquote>
+我一路听来，最喜欢的hachi作品还是罗刹骸跟俄罗斯套娃，这两首的编曲非常简单却足够独特，跟商业曲可以说是天壤之别。
+
