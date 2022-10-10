@@ -3574,3 +3574,29 @@ live还是再议吧，现在想想live上要放这反社会动画就头疼<img s
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  穗乃果  
+##### 7861#       发表于 2022-10-10 13:34
+
+阴阳瓶这逼就别搬了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只敢开顺风团的玩意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+《盾娘》开播之前就带节奏带着瓶XZ一起黑
+
+结果《盾娘》成为B站流量第一梯队番剧之后，阴阳瓶把喷《盾娘》的视频给删了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也不知道是自己删的还是让B站给删的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  无聊者X  
+##### 7862#       发表于 2022-10-10 13:39
+
+nico评分哪天出
+
+—— 来自 ZTE A2322, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
