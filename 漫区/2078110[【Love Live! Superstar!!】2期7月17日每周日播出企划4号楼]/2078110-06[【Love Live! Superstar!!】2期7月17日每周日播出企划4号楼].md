@@ -3804,3 +3804,33 @@ s1现在追动画的人少，评分的人更少，别看才六十多人投，已
 就那个
 スーパースター2期12话ぶっちゃけスレpart3
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7883#       发表于 2022-10-10 18:16
+
+<img src="https://img.saraba1st.com/forum/202210/10/181649ccd5ojyv2c25yo3s.jpg" referrerpolicy="no-referrer">
+
+<strong>0OxtktN.jpg</strong> (18.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 18:16 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liu461  
+##### 7884#       发表于 2022-10-10 18:20
+
+结丘的狂，星团的王，万物都臣服天籁嗓
+
+团还在长，粉还在涨，三期的钟声已敲响
+
+结丘的狂，星团的王，我想我不需要机场
+
+它装不住，加人的速度，我的音符全部是维也纳艺术
+
