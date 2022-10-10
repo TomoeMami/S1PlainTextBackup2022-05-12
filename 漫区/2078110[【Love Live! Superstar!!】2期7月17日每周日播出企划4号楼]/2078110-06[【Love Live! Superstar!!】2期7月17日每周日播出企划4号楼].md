@@ -3452,3 +3452,29 @@ cnm，现在才反应过来要出三期
 星团资源管够，花田却整出一大坨💩</blockquote>
 资源管够和动画剧本烂有必然联系吗？
 
+
+
+*****
+
+####  ads147147  
+##### 7847#       发表于 2022-10-10 11:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现代资本主义把人变鬼的例证，管你拍的怎么样，写的歌怎么样，我企划资源砸下去一样赚的盆满钵满，突然想起v去找克里的时候，克里还一副郁郁寡欢的样子，后面就资源吃到爽彻底成为荒坂的狗了。
+
+*****
+
+####  nufawneafg  
+##### 7848#       发表于 2022-10-10 11:55
+
+ 本帖最后由 nufawneafg 于 2022-10-10 11:56 编辑 
+
+草，市场调节机制啊，救一下啊
+不能真赢者通吃吧，桥头堡已经进化成这b样了么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 7849#       发表于 2022-10-10 12:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星动画虽然烂了但待遇可好了不止一点 水虹粉丝已经够不爽了 再说什么去那边更好之类的我要怀疑你是串子了
+
