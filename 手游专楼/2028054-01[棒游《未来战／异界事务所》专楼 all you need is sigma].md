@@ -30,3 +30,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">台服更新地平线日配了吗
 
+
+
+*****
+
+####  rgauss  
+##### 789#         楼主| 发表于 2022-10-10 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">好奇怪 校园网玩不了台服了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

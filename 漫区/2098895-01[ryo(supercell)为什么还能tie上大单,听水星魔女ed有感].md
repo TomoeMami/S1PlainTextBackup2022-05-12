@@ -849,3 +849,12 @@ RYO早期把才华榨干了 从melt时期到刚出道时的NICO永世神曲君�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到这贴还有隔壁zun那贴，nico那一辈的全部人都江郎才尽了是吧
 
+
+
+*****
+
+####  fantuanxiaoyi  
+##### 90#       发表于 2022-10-10 21:10
+
+水星OP也挺烂的，ED烂成这样反而觉得OP没那么烂了。
+

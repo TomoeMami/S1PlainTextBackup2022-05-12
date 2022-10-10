@@ -275,3 +275,14 @@ DOUBLE DECKER只是同为搭档系列，世界观好像还是不太一样？
 
 —— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  suebin  
+##### 111#       发表于 2022-10-10 21:03
+
+ 本帖最后由 suebin 于 2022-10-10 21:11 编辑 
+
+在nyaa找到种子了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+

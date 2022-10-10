@@ -4054,3 +4054,45 @@ s1现在追动画的人少，评分的人更少，别看才六十多人投，已
 <img src="https://p.sda1.dev/7/93cdf20ba12f788374d2e799a2567571/1805271322.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hqtkkb  
+##### 7908#       发表于 2022-10-10 21:05
+
+看乐子人吐槽和粉丝破防还挺有意思的，还好我一集都没看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 7909#       发表于 2022-10-10 21:07
+
+经常出去玩居然不发合照，hori那边管的挺松的，那就应该是ab不让了
+ab：没用的营业只会影响我们艺人拔剑的速度（）
+
+*****
+
+####  starring  
+##### 7910#       发表于 2022-10-10 21:09
+
+今日结那好腿<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+Fes5GCuaYAApsRT.jpg
+(24.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 21:08 上传
+
+<img src="https://img.saraba1st.com/forum/202210/10/210832pqze78m7agrrb4o4.jpg" referrerpolicy="no-referrer">
+
+Fes5GCyagAAqDf-.jpg
+(61.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 21:08 上传
+
+<img src="https://img.saraba1st.com/forum/202210/10/210832cga5w7anzj7bbam2.jpg" referrerpolicy="no-referrer">
+
