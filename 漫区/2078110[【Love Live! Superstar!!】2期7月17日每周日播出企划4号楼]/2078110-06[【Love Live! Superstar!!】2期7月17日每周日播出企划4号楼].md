@@ -3076,3 +3076,14 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 7815#       发表于 2022-10-10 09:18
+
+大家被一期前三集骗了，其实企划一直都是奔着香音传去做的，无非是一不小心把可可写的比较有血有肉，又正好是中国人，错误的拔高了观众的期望而已<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+说句得罪人的，LL动画一直都挺平庸甚至弱智的，LLSS在企划内对比虽然肯定是倒数第一但是并不算离谱
+
