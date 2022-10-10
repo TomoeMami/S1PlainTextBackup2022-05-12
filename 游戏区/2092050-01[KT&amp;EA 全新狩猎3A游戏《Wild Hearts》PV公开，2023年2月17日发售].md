@@ -483,3 +483,24 @@ ffo、wo long还有这部的动作似乎都有过去无双组游戏的影子，�
 
 说了无双组在动作系统方面的造诣就是垃圾。看上去画面确实不错，但仅此而已
 
+
+
+*****
+
+####  Piano-Forest  
+##### 262#         楼主| 发表于 2022-10-10 23:14
+
+媒体前瞻
+
+IGN：[https://youtu.be/9XpGlieSeaw](https://youtu.be/9XpGlieSeaw)
+
+GS：[https://youtu.be/QbZmW-GAT30](https://youtu.be/QbZmW-GAT30)
+
+电击
+
+刀、和傘、弓を使ったバトル映像：
+[https://youtu.be/4hgAuU3rWKQ](https://youtu.be/4hgAuU3rWKQ)
+
+春をモチーフとしたマップ探索映像：
+[https://youtu.be/CyffcV_JIcs](https://youtu.be/CyffcV_JIcs)
+
