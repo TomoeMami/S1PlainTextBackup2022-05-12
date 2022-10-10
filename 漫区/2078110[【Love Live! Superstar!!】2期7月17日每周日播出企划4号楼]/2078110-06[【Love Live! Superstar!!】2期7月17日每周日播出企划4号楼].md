@@ -3963,3 +3963,19 @@ s1现在追动画的人少，评分的人更少，别看才六十多人投，已
 
 最骚的是二期那个大家实现的故事啥也没体现，然后二期最后直接点一期的题去嗯抬香圣，三期是属于你实现自己的故事，怕是要全垫给三期生
 
+
+
+*****
+
+####  稀勢のささ  
+##### 7898#       发表于 2022-10-10 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次去个联动餐厅都只能发个几乎一样的照片 大概是有什么限制吧 或者仅仅只是想让人抠糖吃
+
+*****
+
+####  lj205  
+##### 7899#       发表于 2022-10-10 19:07
+
+难道不是正主才故意藏着掖着？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

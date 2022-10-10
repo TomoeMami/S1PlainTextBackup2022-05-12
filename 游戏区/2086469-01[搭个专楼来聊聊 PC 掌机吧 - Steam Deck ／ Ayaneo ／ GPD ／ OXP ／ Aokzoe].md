@@ -5545,3 +5545,36 @@ srgb  74% 海外媒体notebook check 有评测数据的，gpd 看了还满地�
 
 2022-10-10 15:49 上传
 
+
+
+*****
+
+####  紫煜  
+##### 446#       发表于 2022-10-10 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57845508&amp;ptid=2086469" target="_blank">bypass 发表于 2022-10-10 15:49:20</a>
+我来补下图：</blockquote>刚刚淘宝又改回100色域了，令人迷惑的反复横跳<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+早上问客服跟我说升级的机子当天签收当天就能寄回，下午就改口包裹多，来不及发了。。看来寄回去升级的机子真不少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  83913536  
+##### 447#       发表于 2022-10-10 19:04
+
+ 本帖最后由 83913536 于 2022-10-10 19:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57842078&amp;ptid=2086469" target="_blank">plumlis 发表于 2022-10-10 12:24</a>
+
+srgb  74% 海外媒体notebook check 有评测数据的，gpd 看了还满地打滚呢
+
+— from Google Pixel 4 XL, An ...</blockquote>
+哦，上面截图就是官方放的，那咋这么凑巧一个74Ntsc，一个74Srgb
+
+*****
+
+####  cqc1021  
+##### 448#       发表于 2022-10-10 19:05
+
+把楼爬完，怎么感觉虽然国产PC掌机个个性能吊打steam deck，但是想图个安心还是得买steam deck<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
