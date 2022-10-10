@@ -3314,3 +3314,14 @@ LLSS一期起跑线确实很高，历代LL最好的开篇三集，所以说是�
 
 三次元虹给的曝光度肯定比不上这边，这边可捧出了个写真初动1w的小百合，二期生先不说，一期生其她人也挺受益的。虹那几个火的，靠的也不是虹，靠虹的人也没多火
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 7836#       发表于 2022-10-10 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57839730&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-10-10 10:13</a>
+什么叫爆杀</blockquote>
+都香音传了，少这点格局也正常了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
