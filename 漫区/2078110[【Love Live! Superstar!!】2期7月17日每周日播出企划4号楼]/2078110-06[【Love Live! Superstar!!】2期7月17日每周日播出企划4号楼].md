@@ -4257,3 +4257,33 @@ Fes5GCyagAAqDf-.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这决胜曲放在这决赛真的能赢吗，总感觉含金量有点低，一点都不抓耳
 
+
+
+*****
+
+####  DarthAka  
+##### 7926#       发表于 2022-10-10 23:03
+
+不素就没意义了，小百合不就牛逼在素上了
+
+*****
+
+####  ViyViy  
+##### 7927#       发表于 2022-10-10 23:10
+
+每次参赛曲都这么抒情只能用liella都是最后出场来补了，最后来点“难忘今宵”缓歌，就像那种有比拼要素的美食番会考虑前后菜之间评委的味觉感受一样。挺，合理的嘛。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 7928#       发表于 2022-10-10 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57851442&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-10 21:52</a>
+
+和这个有关系吗
+
+要说的话还是SIF2出来以后AS可能要逐渐走向退休的原因更多一些吧
+
+说不定之后会有SIF2名义 ...</blockquote>
+主要还是工商，as2越近感觉就越难出酸菜鱼了。
+

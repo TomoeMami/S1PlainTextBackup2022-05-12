@@ -2996,3 +2996,12 @@ mark一下，加班不方便看，回家慢慢学习~<img src="https://static.sa
 
 这个咒语现在效果还不太稳定，我过段时间再优化下
 
+
+
+*****
+
+####  pandaman7777  
+##### 233#       发表于 2022-10-10 23:08
+
+今天我终于也折腾了一个本地版的novel ai， 求楼友们给点傻瓜的描述，（第一框+第二框），我自己搞出来的都是啥贵物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
