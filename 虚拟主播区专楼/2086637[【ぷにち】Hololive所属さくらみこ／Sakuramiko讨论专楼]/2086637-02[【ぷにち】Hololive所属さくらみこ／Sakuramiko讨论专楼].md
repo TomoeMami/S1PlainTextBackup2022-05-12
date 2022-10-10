@@ -7350,3 +7350,14 @@ R[)HY5IJO98WLEV2%X_PGY0.jpg
 
 你们骂就骂，反正企划不会停
 
+
+
+*****
+
+####  rs5621  
+##### 2218#       发表于 2022-10-11 01:51
+
+我还没来得及看评论，都办第三次了，这点压力她们还是受的住。不过这人强推火建也太明显了。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

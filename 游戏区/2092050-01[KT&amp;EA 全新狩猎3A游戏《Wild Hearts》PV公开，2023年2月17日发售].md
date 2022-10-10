@@ -504,3 +504,15 @@ GS：[https://youtu.be/QbZmW-GAT30](https://youtu.be/QbZmW-GAT30)
 春をモチーフとしたマップ探索映像：
 [https://youtu.be/CyffcV_JIcs](https://youtu.be/CyffcV_JIcs)
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 263#       发表于 2022-10-11 03:24
+
+Arekkz的试玩感受 
+[https://youtu.be/sJhg_XxkCJ8](https://youtu.be/sJhg_XxkCJ8)
+
+这卖相可比官方宣传片里的强多了，EA到底懂不懂怎么剪视频啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

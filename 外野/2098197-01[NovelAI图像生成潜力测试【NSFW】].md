@@ -3054,3 +3054,24 @@ https://postimg.cc/8J6YMwGx</blockquote>
 Reddit有能人士制作的NAI本地版NAIFU傻瓜包，试了试，把模型替换成7G的的那个之后效果基本和官网一致了
 magnet:?xt=urn:btih:4a4b483d4a5840b6e1fee6b0ca1582c979434e4d&amp;dn=naifu&amp;tr=udp%3a%2f%2ftracker.opentrackr.org%3a1337%2fannounce
 
+
+
+*****
+
+####  Develde_001  
+##### 239#       发表于 2022-10-11 05:01
+
+ 本帖最后由 Develde_001 于 2022-10-11 05:43 编辑 
+
+shorturl.at/lAGMN<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">推销下漫区群的手抄本法术书，整理了下各种咒文tag以及坛友分享的一些用例
+
+*****
+
+####  gzGaryC  
+##### 240#       发表于 2022-10-11 05:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57853349&amp;ptid=2098197" target="_blank">Sutegoro 发表于 2022-10-11 00:51</a>
+
+感觉有内味儿了</blockquote>
+这样直接发出来不会被关小黑屋吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
