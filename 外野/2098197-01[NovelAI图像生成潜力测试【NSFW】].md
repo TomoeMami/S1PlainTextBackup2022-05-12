@@ -2926,3 +2926,14 @@ https://www.reddit.com/r/StableDiffusion/comm ...</blockquote>
 
 早上一起来就看见我在#193推荐的画师特别允许AI学画手了，楼里谁认识人来帮忙对接一下 [https://t.bilibili.com/715049507357720592](https://t.bilibili.com/715049507357720592)
 
+
+
+*****
+
+####  不让用大写  
+##### 229#       发表于 2022-10-10 21:48
+
+主楼第一张的prompt分享一下可以吗，好喜欢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

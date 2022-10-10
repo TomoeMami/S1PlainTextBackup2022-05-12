@@ -870,3 +870,15 @@ RYO早期把才华榨干了 从melt时期到刚出道时的NICO永世神曲君�
 说句题外话，感觉nagi单飞后，她自己的编曲太单调了</blockquote>
 nagi单飞后的歌的质量也差了不少,卖的最好的春物那几首销量只有supercell时期的一半,归根结底NBC没啥资源,solo出道10年了tie的还基本都是垃圾轻改和手游改,也没好的作曲
 
+
+
+*****
+
+####  安子醬  
+##### 92#         楼主| 发表于 2022-10-10 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57849341&amp;ptid=2098895" target="_blank">ヒトニナル 发表于 2022-10-10 19:35</a>
+
+所以我很想知道#LOVE 时发生了什么而导致回光返照（指符合大众审美）</blockquote>
+tie的动画是十年前动画的续作,他直接拿10年前给前作写的曲出来改了一改,说明大众审美还是十年前那味,没跟上他这十年的进化
+
