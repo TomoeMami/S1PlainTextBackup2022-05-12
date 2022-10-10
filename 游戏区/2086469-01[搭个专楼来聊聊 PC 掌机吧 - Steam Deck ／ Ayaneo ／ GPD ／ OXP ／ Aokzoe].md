@@ -5468,3 +5468,17 @@ ps5/switch/xsx 一周加起来就10个小时以内的游戏时间
 aok这算啥，GPD当年POcket3色域吹的100%，到手后也是74%，官方翻脸不认人，也是用图拉丁这个玩意来展示自己 ...</blockquote>
 应该说的是100% srgb吧...这个确实有达到
 
+
+
+*****
+
+####  小泉花陽  
+##### 441#       发表于 2022-10-10 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57839969&amp;ptid=2086469" target="_blank">bypass 发表于 2022-10-10 10:29</a>
+
+正常，我有 PS5 / NS / 3080 Ti PC / Deck……现在一周游戏时间五个小时以内……
+
+最开心的还是拿到设备那 ...</blockquote>
+还要加上下载各种平台各种也许会玩的游戏各种模拟器，这种所有游戏在一台掌上设备上及其的感觉真的很爽，玩不玩另说，另外买了AOKZOE了话还能得到折腾机器的乐趣<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
