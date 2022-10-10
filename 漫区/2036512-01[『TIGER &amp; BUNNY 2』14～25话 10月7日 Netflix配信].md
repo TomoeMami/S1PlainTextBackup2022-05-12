@@ -180,3 +180,39 @@
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 105#       发表于 2022-10-10 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57838108&amp;ptid=2036512" target="_blank">souhikaru 发表于 2022-10-10 07:44</a>
+
+其实我还挺喜欢hero日常的，明明可以多搞点搞笑日常
+
+新组合完全复制虎兔模式，也没有很讨喜，就很尴尬了</blockquote>
+主要问题在于伙伴系统对于新人可以弄点闹别扭啥的
+
+对于那几对老人英雄来说还会闹别扭，真的就非常儿戏了
+
+而且脑别扭还真就是屁大点事，觉得都成年人哎，不至于吧！？
+
+与其写不出来日常搞笑，干脆就突入噬身之蛇主线，弄点严肃的吧
+
+结果涉及到主线的并不多，或许编剧就是想让噬身之蛇作为幕后黑手一直存在
+
+也方便以后再弄个相同世界观下的其他人物做主角，这部虎兔，下部犬猫，继续和噬身之蛇斗智斗勇
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 106#       发表于 2022-10-10 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837702&amp;ptid=2036512" target="_blank">hagiwara 发表于 2022-10-10 02:55</a>
+
+反白狂徒最后怎么看都是死了吧，点燃自己的身体然后自杀式跳桥，最后身体被燃尽了
+
+ ...</blockquote>
+文艺作品里跳崖高坠不见尸的，可以默认为还活着<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
