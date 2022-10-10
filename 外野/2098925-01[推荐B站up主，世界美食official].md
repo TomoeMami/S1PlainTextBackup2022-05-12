@@ -899,3 +899,23 @@
 
 这个店和路边摊就完全不是一个风格的
 
+
+
+*****
+
+####  礼央破流堂  
+##### 102#       发表于 2022-10-10 23:44
+
+水晶虾仁那一期的文案堪称这个系列的《谁与争锋》了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  再买自检星剁手  
+##### 103#       发表于 2022-10-10 23:45
+
+当时在抖音看到的
+
+只记得一个轻度 中度 重度 印度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
