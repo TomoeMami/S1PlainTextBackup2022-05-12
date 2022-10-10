@@ -781,3 +781,14 @@ d1790c23dd54564ec7f5bcf9f6de9c82d0584f0f.jpg
 
 <img src="https://img.saraba1st.com/forum/202210/10/191824pa0dal93299l2v0j.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  noripants  
+##### 82#       发表于 2022-10-10 19:27
+
+RYO早期把才华榨干了 从melt时期到刚出道时的NICO永世神曲君の知らない物语以及网管和PP的几首，甚至参与制作的素晴日OST都是能编出非常符合主流审美且动听的曲子。
+
+然而从甲铁城开始陷入了与过去无法和解的创作瓶颈，直至今日都无法自拔，直到把好名声败光，也是挺可惜的
+

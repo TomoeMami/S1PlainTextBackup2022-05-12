@@ -5578,3 +5578,15 @@ srgb  74% 海外媒体notebook check 有评测数据的，gpd 看了还满地�
 
 把楼爬完，怎么感觉虽然国产PC掌机个个性能吊打steam deck，但是想图个安心还是得买steam deck<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  紫煜  
+##### 449#       发表于 2022-10-10 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57848745&amp;ptid=2086469" target="_blank">cqc1021 发表于 2022-10-10 19:05:17</a>
+把楼爬完，怎么感觉虽然国产PC掌机个个性能吊打steam deck，但是想图个安心还是得买steam deck ...</blockquote>国产win掌机全是小厂。。一般第一批都容易翻车出问题，懒得折腾怕麻烦还是steamdeck比较合适
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
