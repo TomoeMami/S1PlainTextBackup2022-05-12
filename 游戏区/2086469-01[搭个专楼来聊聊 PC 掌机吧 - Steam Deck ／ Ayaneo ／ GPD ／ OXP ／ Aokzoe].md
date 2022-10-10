@@ -5427,3 +5427,16 @@ emmmAOK这有点尴尬…
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  mikemow  
+##### 438#       发表于 2022-10-10 10:08
+
+周末把这贴来来回回翻了几遍。差点就下手订ayaneo2了
+
+但是想想现在有娃以后捉襟见肘的游戏时间
+ps5/switch/xsx 一周加起来就10个小时以内的游戏时间 
+就暂时还是不下手了<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+

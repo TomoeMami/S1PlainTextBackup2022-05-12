@@ -3160,3 +3160,15 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 前三代剧情不敢说绝佳，但至少毁角色（或者说让角色不那么讨喜，前三代就是对手团都不至于这么败好感）、 ...</blockquote>
 LLSS一期起跑线确实很高，历代LL最好的开篇三集，所以说是把带伙骗了
 
+
+
+*****
+
+####  Kfly  
+##### 7822#       发表于 2022-10-10 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57839456&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-10-10 09:57</a>
+
+LLSS一期起跑线确实很高，历代LL最好的开篇三集，所以说是把带伙骗了</blockquote>
+我说的是星二期………星二期连自己的前作都比不过
+

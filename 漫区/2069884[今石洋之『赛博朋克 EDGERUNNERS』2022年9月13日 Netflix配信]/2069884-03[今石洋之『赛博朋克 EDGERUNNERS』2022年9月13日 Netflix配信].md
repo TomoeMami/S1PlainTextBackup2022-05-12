@@ -1617,3 +1617,17 @@ TV版故意删了所有Burn this city
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  哈扎马  
+##### 3124#       发表于 2022-10-10 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57830180&amp;ptid=2069884" target="_blank">未来起航 发表于 2022-10-9 16:53</a>
+
+我最近又看了遍露露子和半部klk。
+
+咋说呢，扳机的剧本，就像今石自己的金田系一样：并不是原汁原味的经典金 ...</blockquote>
+抖机灵压倒主线是扳机或者说今石的常见病，从落叶起就能看出他是个没法沉稳只想草蛋的巨魔，这次边缘行者10集限制还算起到了正面作用，集数一多怕是直接成klk的段子大集合局部看好玩合起来东一榔头西一棒最后也不知道讲了啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
