@@ -3005,3 +3005,22 @@ https://m.bilibili.com/dynamic/715063612030320697</blockquote>
 
 暂时超越兽娘2，位居第一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 7810#       发表于 2022-10-10 08:13
+
+还得是你，北原打印机
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+20221010_081151.jpg
+(171.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-10 08:13 上传
+
+<img src="https://img.saraba1st.com/forum/202210/10/081301tolvhkvyupv6ml8m.jpg" referrerpolicy="no-referrer">
+
