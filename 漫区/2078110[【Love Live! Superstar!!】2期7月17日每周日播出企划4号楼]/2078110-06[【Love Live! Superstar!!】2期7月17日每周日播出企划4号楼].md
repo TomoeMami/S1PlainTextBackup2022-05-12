@@ -3775,3 +3775,32 @@ S1还有评分的啊，我都不知道&amp;# ...</blockquote>
 —— 来自 Xiaomi 2106118C, An ...</blockquote>
 看到了，这不还没三位数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 7880#       发表于 2022-10-10 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57847437&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-10 17:35</a>
+
+神秘，5ch引用国内评分竟然引用的是s1的，究竟是臭味相投，还是s1的评分比其他主流平台更有冲击力 ...</blockquote>
+在哪条串啊
+
+*****
+
+####  ButaiKyaku  
+##### 7881#       发表于 2022-10-10 18:03
+
+s1现在追动画的人少，评分的人更少，别看才六十多人投，已经是同季度第六热了
+
+*****
+
+####  nufawneafg  
+##### 7882#       发表于 2022-10-10 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57847816&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-10 18:02</a>
+在哪条串啊</blockquote>
+就那个
+スーパースター2期12话ぶっちゃけスレpart3
+

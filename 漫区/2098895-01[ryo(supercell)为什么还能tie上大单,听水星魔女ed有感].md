@@ -691,3 +691,26 @@ yoasobi再怎么复制，祝福总体上还是能称得上好听的，这逼ED�
 人的才华是有限的，不 ...</blockquote>
 八爷我觉得在《死神》之后也不太行，给新奥特曼写的那个是什么个玩意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ylssb10438  
+##### 73#       发表于 2022-10-10 18:03
+
+op虽然同质但是好听，词也不错。ed什么鬼
+
+*****
+
+####  kisstv22  
+##### 74#       发表于 2022-10-10 18:03
+
+ryo早已昔日黄花，时代终究不等人，ryo自己烂不怪其他人
+
+*****
+
+####  whzfjd  
+##### 75#       发表于 2022-10-10 18:08
+
+喜欢 fripside 和 element garden 的中二曲，不过 seed 那确实百花齐放
+
