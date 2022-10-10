@@ -919,3 +919,22 @@ deco今 ...</blockquote>
 
 印象中ryo最后一首听的歌就是all alone with you<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  koodooliz  
+##### 97#       发表于 2022-10-10 23:38
+
+普通人无法欣赏的音乐呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sissii  
+##### 98#       发表于 2022-10-10 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57851276&amp;ptid=2098895" target="_blank">安子醬 发表于 2022-10-10 21:39</a>
+
+nagi单飞后的歌的质量也差了不少,卖的最好的春物那几首销量只有supercell时期的一半,归根结底NBC没啥资源 ...</blockquote>
+nagi和麻子合作的那张专辑蛮好的，nagi在我眼中就是顶级打手的定位，等作曲就能起飞
+

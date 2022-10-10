@@ -853,3 +853,49 @@
 
 马一个
 
+
+
+*****
+
+####  新的未读消息  
+##### 98#       发表于 2022-10-10 23:36
+
+三哥的菜想一想味道应该不会太差，就是这外观，这制作过程实在让人提不起食欲。
+
+*****
+
+####  emmer  
+##### 99#       发表于 2022-10-10 23:36
+
+哪里来的神仙文案啊
+
+*****
+
+####  林无德  
+##### 100#       发表于 2022-10-10 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57851395&amp;ptid=2098925" target="_blank">浅薄者 发表于 2022-10-10 21:50</a>
+
+我不该在饭点看这个
+
+有点好奇，三哥那儿路边小吃都这个画风吗？是视频拍摄者故意猎奇挑“干净又卫生”的拍 ...</blockquote>
+今晚这一集就不是猎奇的，是偶尔会出现的正能量文案
+
+还有比起三哥，三姐们做的食物真的干净很多<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oznark  
+##### 101#       发表于 2022-10-10 23:41
+
+ 本帖最后由 oznark 于 2022-10-10 08:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57851395&amp;ptid=2098925" target="_blank">浅薄者 发表于 2022-10-10 06:50</a>
+
+我不该在饭点看这个
+
+有点好奇，三哥那儿路边小吃都这个画风吗？是视频拍摄者故意猎奇挑“干净又卫生”的拍 ...</blockquote>
+单从这个账号里面的视频来看，印度大婶的店比老叔的店干净特别多，有门脸的店又可以比路边摊干净特别多
+[https://www.bilibili.com/video/BV1hB4y1g7Bw/?vd_source=00586fc3d260e3d846cc435f10eee95f](https://www.bilibili.com/video/BV1hB4y1g7Bw/?vd_source=00586fc3d260e3d846cc435f10eee95f)
+
+这个店和路边摊就完全不是一个风格的
+
