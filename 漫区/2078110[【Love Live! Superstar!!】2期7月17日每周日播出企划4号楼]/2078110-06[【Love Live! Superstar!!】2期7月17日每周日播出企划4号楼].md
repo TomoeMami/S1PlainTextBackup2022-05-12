@@ -3390,3 +3390,15 @@ cnm，现在才反应过来要出三期
 —— 来自 HUAWEI TEL-AN10, Android 10上的 S1Next-鹅 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">动画以及加人给了人很多错觉；其实不考虑动画以及场外莫名其妙的操作，只考虑企划给的待遇的话，星这边的待遇真的没话说。不过也因为这个，也难怪有部分虹推甚至水推会觉得不满。
 
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 7842#       发表于 2022-10-10 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57840195&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-10-10 10:44</a>
+三次元虹给的曝光度肯定比不上这边，这边可捧出了个写真初动1w的小百合，二期生先不说，一期生其她人也挺受 ...</blockquote>
+这不更可恶了吗
+星团资源管够，花田却整出一大坨💩
+
