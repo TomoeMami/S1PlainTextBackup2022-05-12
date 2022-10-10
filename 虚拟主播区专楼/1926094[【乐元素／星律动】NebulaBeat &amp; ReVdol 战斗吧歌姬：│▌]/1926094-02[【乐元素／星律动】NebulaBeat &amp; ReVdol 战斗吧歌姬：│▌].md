@@ -5524,3 +5524,17 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 顺便联动竟是鸭鸭1v2  太勇了
 
+
+
+*****
+
+####  ladiesman802  
+##### 2093#       发表于 2022-10-10 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57842336&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-10-10 12:39</a>
+
+要退场前有白小姐直接全删完，推和ins在五月后基本也属于停摆状态了
+
+顺便联动竟是鸭鸭1v2  太勇了 ...</blockquote>
+最新的是8.12生日去水族馆玩，近期好像也和秋秋互动过
+
