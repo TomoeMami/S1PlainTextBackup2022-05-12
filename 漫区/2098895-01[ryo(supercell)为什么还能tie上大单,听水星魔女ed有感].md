@@ -626,3 +626,21 @@ deco今年新专 zombie这几首都蛮明显了，旋律好的还能听听，旋
 说句题外话，感觉nagi单飞后，她自己的编曲太单调了</blockquote>
 来自风平浪静的明天的ed1比较像她同人时期(binaria，CorLeonis)的风格，其他的商业曲都太anisong了
 
+
+
+*****
+
+####  圈量子  
+##### 66#       发表于 2022-10-10 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57846649&amp;ptid=2098895" target="_blank">chaucerling 发表于 2022-10-10 16:46</a>
+来自风平浪静的明天的ed1比较像她同人时期(binaria，CorLeonis)的风格，其他的商业曲都太anisong了 ...</blockquote>
+那首歌好听更多是石川智晶的功劳吧
+
+*****
+
+####  weiwu  
+##### 67#       发表于 2022-10-10 16:57
+
+看到说甲铁城op烂我愣了下，我寻思不是挺好的吗，然后刚刚搜来听了下，真的太烂了，以至于完全没印象
+

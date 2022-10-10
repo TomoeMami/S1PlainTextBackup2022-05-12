@@ -596,3 +596,28 @@
 
 他自己真的会做那些阿三料理的。
 
+
+
+*****
+
+####  trb315  
+##### 72#       发表于 2022-10-10 16:57
+
+感觉阿三的菜味道应该是不错的，毕竟用了这么多香料
+
+只要卫生没问题。。。
+
+*****
+
+####  phorcys02  
+##### 73#       发表于 2022-10-10 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57841417&amp;ptid=2098925" target="_blank">aithinkso 发表于 2022-10-10 11:53</a>
+
+蜜汁相关推荐，老巴古法工业系列
+
+【发光的三极管yoyo的个人空间-哔哩哔哩】 https://b23.tv/hUZN735</blockquote>
+这人我也经常看，但虽然这up是个修车的，
+
+但是把，他真的对机械加工属于门外汉，一天天的都在胡说八道...
+
