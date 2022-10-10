@@ -16339,3 +16339,17 @@ SL了一个小时加一条令咒总算打死爱神了<img src="https://static.sa
 
 呼延灼 百科说日本人比较喜欢他...
 
+
+
+*****
+
+####  longrider  
+##### 2957#       发表于 2022-10-10 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57836980&amp;ptid=2084912" target="_blank">GameTheory 发表于 2022-10-10 00:37</a>
+
+呼延灼 百科说日本人比较喜欢他...</blockquote>
+横山光辉版水浒传里面，横山不理解中国兵器“鞭”，结果给弄成了双持皮鞭+戴假面具的形象
+
+性转版本的话，满破上sm女王套装？
+
