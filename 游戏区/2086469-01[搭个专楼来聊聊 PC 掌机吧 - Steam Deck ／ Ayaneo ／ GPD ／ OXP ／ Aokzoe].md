@@ -5508,3 +5508,12 @@ srgb  74% 海外媒体notebook check 有评测数据的，gpd 看了还满地�
 
 — from Google Pixel 4 XL, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  信长的呕吐  
+##### 444#       发表于 2022-10-10 15:22
+
+乐 奥克把天猫100%srgb删了
+
