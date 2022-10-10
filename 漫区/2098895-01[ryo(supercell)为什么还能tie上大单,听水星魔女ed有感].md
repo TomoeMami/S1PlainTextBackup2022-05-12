@@ -858,3 +858,15 @@ RYO早期把才华榨干了 从melt时期到刚出道时的NICO永世神曲君�
 
 水星OP也挺烂的，ED烂成这样反而觉得OP没那么烂了。
 
+
+
+*****
+
+####  安子醬  
+##### 91#         楼主| 发表于 2022-10-10 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57846524&amp;ptid=2098895" target="_blank">LLLLLuB 发表于 2022-10-10 16:39</a>
+
+说句题外话，感觉nagi单飞后，她自己的编曲太单调了</blockquote>
+nagi单飞后的歌的质量也差了不少,卖的最好的春物那几首销量只有supercell时期的一半,归根结底NBC没啥资源,solo出道10年了tie的还基本都是垃圾轻改和手游改,也没好的作曲
+
