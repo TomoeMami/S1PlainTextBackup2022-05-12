@@ -632,3 +632,14 @@
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  kyonkoism二号机  
+##### 75#       发表于 2022-10-10 17:29
+
+吸满黄油起司的擦锅包不就是我们这动辄四五六十的美式汉堡的汉堡皮么，糊糊只要不加致死量香菜和雪碧橙汁啥的做出来味道应该也不会差<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
