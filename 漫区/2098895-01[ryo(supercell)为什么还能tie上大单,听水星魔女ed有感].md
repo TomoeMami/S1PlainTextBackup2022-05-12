@@ -601,3 +601,28 @@ YOASOBI就是你听一首会觉得好听，听两首会觉得曲风比较统一�
 
 说句题外话，感觉nagi单飞后，她自己的编曲太单调了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  糖尔  
+##### 64#       发表于 2022-10-10 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57845241&amp;ptid=2098895" target="_blank">突然空虚 发表于 2022-10-10 15:36</a>
+前面楼果然有说deco，最近deco还tie了pjsk二周年主题曲，也不太行，算是低潮期了。
+
+人的才华是有限的，不 ...</blockquote>
+deco和八爷现在写歌给我的感觉就还蛮敷衍的，就是常规一直会写的结构，或者说商曲风格同质化严重
+deco今年新专 zombie这几首都蛮明显了，旋律好的还能听听，旋律不怎么配上同质化的结构就是灾难
+八爷当米津玄师之后的歌感觉也远不如V时期，至少感觉他再也写不出来甜甜圈洞这种歌了。热门单曲基本上风格很近，搞点冷门的实验性的基本上反响都很微妙
+
+*****
+
+####  chaucerling  
+##### 65#       发表于 2022-10-10 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57846524&amp;ptid=2098895" target="_blank">LLLLLuB 发表于 2022-10-10 16:39</a>
+
+说句题外话，感觉nagi单飞后，她自己的编曲太单调了</blockquote>
+来自风平浪静的明天的ed1比较像她同人时期(binaria，CorLeonis)的风格，其他的商业曲都太anisong了
+
