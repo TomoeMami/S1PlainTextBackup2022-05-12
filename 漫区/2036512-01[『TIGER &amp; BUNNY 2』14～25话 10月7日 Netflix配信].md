@@ -264,3 +264,14 @@
 —— 来自 OPPO PFUM10, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
 DOUBLE DECKER只是同为搭档系列，世界观好像还是不太一样？
 
+
+
+*****
+
+####  aqualyre  
+##### 110#       发表于 2022-10-10 14:32
+
+我觉得2如果把新人剧情全删了然后压缩一下成13集差不多，紧凑一点大家也可以忽视掉一点迷惑逻辑的展开……我真的就想看点大家的欢乐日常，能不能别整三流苦大仇深啊……虎和兔这俩的角色我真的可别喜欢，没第三季太痛了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
