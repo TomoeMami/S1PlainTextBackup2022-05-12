@@ -1588,3 +1588,15 @@ yy一下
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反复开了几个存档，不知道为什么每把必有个位数忠诚干员，外星人还没来呢我就被气得晕了过去。
 
+
+
+*****
+
+####  setree  
+##### 143#       发表于 2022-10-10 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57811571&amp;ptid=2076238" target="_blank">萼绿华 发表于 2022-10-8 15:41</a>
+
+空间站防偷和自己派系的平均理事忠诚度有关，有人说把理事忠诚度全拉到20+就没那么容易被偷了，可以试一试 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">实测无效，我叮了六个全25满忠诚超人，还是会被偷站
+

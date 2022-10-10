@@ -7231,3 +7231,32 @@ R[)HY5IJO98WLEV2%X_PGY0.jpg
 
 有一个20W以上播放而且是半天不到
 
+
+
+*****
+
+####  holoan  
+##### 2207#         楼主| 发表于 2022-10-10 20:35
+
+3队意味着目前的2队竞技系统全部要重制
+
+这工程量就大了
+
+*****
+
+####  holoan  
+##### 2208#         楼主| 发表于 2022-10-10 20:39
+
+几乎全部重头做了就剩一个不动人
+
+这个月有得忙了
+
+*****
+
+####  a2276382  
+##### 2209#       发表于 2022-10-10 20:40
+
+应该有人帮忙吧 不知道id 那些肝帝 会不会帮忙<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
