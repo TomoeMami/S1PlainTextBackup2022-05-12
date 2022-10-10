@@ -4172,3 +4172,27 @@ Fes5GCyagAAqDf-.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我为什么会想不开在OW输了一晚上之后来补12集
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">另外我发现只要疯狂skip不看鸡汤和香音的部分就还算能看下去
 
+
+
+*****
+
+####  nufawneafg  
+##### 7918#       发表于 2022-10-10 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57851562&amp;ptid=2078110" target="_blank">adw667 发表于 2022-10-10 22:03</a>
+我为什么会想不开在OW输了一晚上之后来补12集
+
+另外我发现只要疯狂skip不看鸡汤和香音的部分 ...</blockquote>
+那还剩啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 7919#       发表于 2022-10-10 22:21
+
+<blockquote>nufawneafg 发表于 2022-10-10 22:13
+那还剩啥啊</blockquote>
+可堇“同居”和为数不多千恋（确信）
+
+说起来二期生因为篇幅问题每次谈心桥段都是三四人一起你一句我一句的真的至少比二年级五个C52散装前辈有稍微那么些团体感…
+
