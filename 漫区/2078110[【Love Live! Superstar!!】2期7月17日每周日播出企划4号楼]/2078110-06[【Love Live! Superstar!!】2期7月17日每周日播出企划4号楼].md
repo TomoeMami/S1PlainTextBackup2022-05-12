@@ -3540,3 +3540,26 @@ live还是再议吧，现在想想live上要放这反社会动画就头疼<img s
 
 还是赶快喝茶流谈笑连冠吧，别搞那些花里胡哨的了
 
+
+
+*****
+
+####  1096beam  
+##### 7857#       发表于 2022-10-10 13:13
+
+第三季加新人+树敌团（可能没有）+lovelive预赛决赛+毕业回，12集能演好开什么玩笑
+
+*****
+
+####  cybernetics31  
+##### 7858#       发表于 2022-10-10 13:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕业加人咯
+
+*****
+
+####  cybernetics31  
+##### 7859#       发表于 2022-10-10 13:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">live重要是没错啊，可是对咱们来说现场又去不了，3rd这又砍线上，剩下的可不就是动画了嘛
+
