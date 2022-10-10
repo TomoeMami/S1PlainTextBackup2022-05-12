@@ -163,3 +163,18 @@ BV1Sd4y1v72d，附上我的录像
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  扑克脸军曹  
+##### 1661#       发表于 2022-10-10 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57849859&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2022-10-10 20:02</a>
+啥，本人刷新还是……
+
+—— 来自 OPPO PDRM00, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+另外一个大佬刷的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

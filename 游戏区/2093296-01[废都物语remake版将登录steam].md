@@ -71,3 +71,22 @@
 
 官博Staff也太会出谜题了，真是厨力极高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  治丧委  
+##### 412#       发表于 2022-10-10 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57848187&amp;ptid=2093296" target="_blank">厄斯沃穆 发表于 2022-10-10 18:27</a>
+
+官方微博 Ruina废都物语 从9月21日开始就以解谜的方式定期发放一些游戏相关信息的QA，现将迄今为止的信息总 ...</blockquote>
+建议更新到顶楼
+
+*****
+
+####  七千星  
+##### 413#       发表于 2022-10-10 20:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泰蕾莎怎么回事
+
