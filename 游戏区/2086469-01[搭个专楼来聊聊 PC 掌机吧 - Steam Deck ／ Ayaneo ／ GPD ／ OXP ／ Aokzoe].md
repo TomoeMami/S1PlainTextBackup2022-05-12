@@ -5456,3 +5456,15 @@ ps5/switch/xsx 一周加起来就10个小时以内的游戏时间
 
 最开心的还是拿到设备那一刻……
 
+
+
+*****
+
+####  83913536  
+##### 440#       发表于 2022-10-10 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57838416&amp;ptid=2086469" target="_blank">plumlis 发表于 2022-10-10 08:28</a>
+
+aok这算啥，GPD当年POcket3色域吹的100%，到手后也是74%，官方翻脸不认人，也是用图拉丁这个玩意来展示自己 ...</blockquote>
+应该说的是100% srgb吧...这个确实有达到
+
