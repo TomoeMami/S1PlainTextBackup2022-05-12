@@ -4325,3 +4325,14 @@ Fes5GCyagAAqDf-.jpg
 拿孔乙己的那句话来说就是：香音的事，能叫××吗？
 Liella是我香音家的，我当然可以随便摆弄，你堇算啥？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  li463900160  
+##### 7932#       发表于 2022-10-11 00:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天小百合手渡会，来得早第一排，开场打招呼就一眼看到她的恨天高的高跟鞋，然后就算这样手渡的时候都是好小的一只。
+
+也没聊啥，就说特别喜欢她的歌声，祝愿她早日歌手出道，小百合就那大眼睛盯着你，真可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

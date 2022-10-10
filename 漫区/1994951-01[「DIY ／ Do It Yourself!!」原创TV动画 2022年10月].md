@@ -1338,3 +1338,22 @@ Do It Yourself!!
 
 看的时候一股此方×小镜的感觉，如果女主机灵些就更像了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  亚瑟邓特  
+##### 113#       发表于 2022-10-11 00:16
+
+有点怪，真的没超展开吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Piano-Forest  
+##### 114#         楼主| 发表于 2022-10-11 00:17
+
+[https://twitter.com/weee_desu/status/1579481994014384129](https://twitter.com/weee_desu/status/1579481994014384129)
+<img src="https://p.sda1.dev/7/e4b0815d7d48aba3a98cf55cc254a4e5/20221011_001528.jpg" referrerpolicy="no-referrer">
+
