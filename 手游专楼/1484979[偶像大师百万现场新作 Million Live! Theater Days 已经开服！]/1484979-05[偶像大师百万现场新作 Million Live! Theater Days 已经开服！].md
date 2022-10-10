@@ -87,3 +87,12 @@ miki的繁中服加到兑换里很久了，当时换了想回个贴来着结果�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我擦，你游太恐怖了，想着メグエレ出一张就跑，结果直接井了。
 
+
+
+*****
+
+####  花开安菲路  
+##### 7019#       发表于 2022-10-10 12:47
+
+果然这期活动都在摸，昨天紧急打了个10w就进2500了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
