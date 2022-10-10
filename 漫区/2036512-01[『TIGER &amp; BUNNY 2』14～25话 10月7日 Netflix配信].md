@@ -251,3 +251,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  繭  
+##### 109#       发表于 2022-10-10 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837638&amp;ptid=2036512" target="_blank">恶意满满 发表于 2022-10-10 02:31</a>
+同世界观的有了
+
+—— 来自 OPPO PFUM10, Android 11上的 S1Next-鹅版 v2.5.2</blockquote>
+DOUBLE DECKER只是同为搭档系列，世界观好像还是不太一样？
+
