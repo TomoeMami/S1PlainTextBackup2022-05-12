@@ -148,3 +148,18 @@ BV1Sd4y1v72d，附上我的录像
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1660#       发表于 2022-10-10 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57848431&amp;ptid=2027972" target="_blank">扑克脸军曹 发表于 2022-10-10 18:42</a>
+世界纪录又刷新了，绝了
+
+—— 来自 S1Fun</blockquote>
+啥，本人刷新还是……
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
