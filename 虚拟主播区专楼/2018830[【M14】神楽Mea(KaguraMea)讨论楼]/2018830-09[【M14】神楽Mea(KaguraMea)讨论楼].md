@@ -5650,3 +5650,14 @@ woc 麻
 
 苔苔把日期写错了，其实是明天联动恐怖游戏
 
+
+
+*****
+
+####  十九号大侠  
+##### 12592#       发表于 2022-10-11 23:49
+
+哦嚯嚯
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

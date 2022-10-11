@@ -5380,3 +5380,20 @@ ll动画/大多数偶像动画，最重要的还是角色角色出彩和剧情�
 
 跟早不早晚不晚写好真没关系，就最后这留学桥段的插入时间点，是人想得出的吗，你就算三期全放完了连起来看都很逆天。我小学写作文凑字数都不会突然又搞段莫名其妙的来收尾。你搁儿那儿白开水几分钟假大空都行。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8033#       发表于 2022-10-11 23:51
+
+<img src="https://img.saraba1st.com/forum/202210/11/235034hyiwa23w77k7q0jq.jpg" referrerpolicy="no-referrer">
+
+<strong>JMmHEQl.jpg</strong> (66.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-11 23:50 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nico原来是最温柔的那个
+
