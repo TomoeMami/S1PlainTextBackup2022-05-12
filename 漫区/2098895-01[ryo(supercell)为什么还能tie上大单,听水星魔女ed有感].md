@@ -1136,3 +1136,12 @@ ED真的很难听...不得不说刷新我对难听歌的下限就是最近的ryo
 
 感觉以米津玄师活动的曲都不如以前他自己写的V+曲，听了一段时间后把他的歌全删了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  solay  
+##### 121#       发表于 2022-10-11 16:06
+
+看了漏油讨论听了下#LOVE，别说还真有以前那个味<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（好是好但不是很好）
+

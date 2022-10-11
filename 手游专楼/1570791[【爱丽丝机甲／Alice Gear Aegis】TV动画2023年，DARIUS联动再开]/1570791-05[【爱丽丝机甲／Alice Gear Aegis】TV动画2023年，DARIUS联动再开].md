@@ -14107,3 +14107,18 @@ bingo还有一周时间抓紧干，里面应该会给两次5分钟红水箱和�
 
 另，装备升级可以把泛用的装备合成上去，和你卖掉回笼资金再去升没区别。
 
+
+
+*****
+
+####  hypnossz86  
+##### 7376#       发表于 2022-10-11 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57859322&amp;ptid=1570791" target="_blank">心之光 发表于 2022-10-11 14:19</a>
+又下回来了，问下什么地方搞钱快一点，升级进化好缺
+
+有攻略WIKI地址吗
+
+ ...</blockquote>
+https://wikiwiki.jp/alicegear/
+
