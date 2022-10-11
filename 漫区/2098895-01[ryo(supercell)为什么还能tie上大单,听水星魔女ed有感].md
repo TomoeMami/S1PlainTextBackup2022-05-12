@@ -1157,3 +1157,12 @@ ED真的很难听...不得不说刷新我对难听歌的下限就是最近的ryo
 我感觉还挺好分辨的……
 声音低一点的是suis，奶凶奶凶的是ACAね，质感像vocaloid声源的是ikura<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ikusakong  
+##### 123#       发表于 2022-10-11 16:25
+
+这ED纯纯的debuff，白瞎了ED那么好的画面和贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+

@@ -4648,3 +4648,28 @@ bgm已经3.9了<img src="https://static.saraba1st.com/image/smiley/face2017/001.
 并且现实中直接说sayu暂停活动，去美国/欧美的音乐学院学习 ...</blockquote>
 别没事就大格局，运营只想再摸个手彩
 
+
+
+*****
+
+####  lj205  
+##### 7960#       发表于 2022-10-11 16:27
+
+<img src="https://img.saraba1st.com/forum/202210/11/162619r8j73nu4w3vg7umm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7119D1ED-D651-4C95-BEC5-E1A32BAC6EE2.jpeg</strong> (267.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-11 16:26 上传
+
+<img src="https://img.saraba1st.com/forum/202210/11/162620v8cwhpa81bp99w19.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CB10BF5D-DBF4-454C-89A7-C54D81ECBD05.jpeg</strong> (81.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-11 16:26 上传
+
+这次要两个一起买才有签名了
+
