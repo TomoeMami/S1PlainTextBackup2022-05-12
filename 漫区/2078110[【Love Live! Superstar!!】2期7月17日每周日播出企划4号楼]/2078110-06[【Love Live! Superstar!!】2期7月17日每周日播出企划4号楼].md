@@ -4535,3 +4535,44 @@ bgm已经3.9了<img src="https://static.saraba1st.com/image/smiley/face2017/001.
 活像fpx猛了一个 ...</blockquote>
 花天十辉是吧，照你这么比喻京吹三岂不是寄了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">实力有限转队却还是抬了几手队伍到不该站着的舞台原形毕露。
 
+
+
+*****
+
+####  liu461  
+##### 7951#       发表于 2022-10-11 12:13
+
+写烂llsp是花田最后的倔强
+
+没给大香老师接羽毛的镜头是花田最后的温柔<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 7952#       发表于 2022-10-11 12:23
+
+<blockquote>マルガレーテがLiellaに加入するとして、前回大会で炎上しちゃったことはどう处理されるんだろうか
+
+かのんが许せば世间も许す
+
+スパスタはそういう世界観だ</blockquote>香门
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 7953#       发表于 2022-10-11 12:28
+
+<blockquote>ViyViy 发表于 2022-10-10 22:55
+真要这么赶，这个公募人的标准可没有想象的那么“素”，起码是声优经历+歌舞基础的才能胜任。 ...</blockquote>
+不是还有管人部分，奶一口是哪个退役管人再就业
+
+*****
+
+####  Kfly  
+##### 7954#       发表于 2022-10-11 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57857773&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-11 12:23</a>
+
+香门</blockquote>
+香来承担，香来允许（
+
