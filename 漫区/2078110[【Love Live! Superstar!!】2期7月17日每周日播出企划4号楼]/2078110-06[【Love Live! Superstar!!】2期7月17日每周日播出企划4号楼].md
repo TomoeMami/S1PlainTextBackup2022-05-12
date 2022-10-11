@@ -4422,3 +4422,15 @@ Liella是我香音家的，我当然可以随便摆弄，你堇算啥？<img src
 
 岬なこの1st写真集が12月2日（金）に発売决定！
 
+
+
+*****
+
+####  plazum  
+##### 7942#       发表于 2022-10-11 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57854678&amp;ptid=2078110" target="_blank">li463900160 发表于 2022-10-11 08:51</a>
+
+有句说句，伊达大叔真的名不虚传。。几乎全是大叔饭。。。女饭都没几个。。我之前看别家一个比较成人的女 ...</blockquote>
+推理可得，鲤鱼＝大叔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
