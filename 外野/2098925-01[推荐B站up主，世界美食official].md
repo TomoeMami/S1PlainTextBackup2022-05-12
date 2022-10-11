@@ -999,3 +999,19 @@
 印度人吃的热量实在太吓人了，黄油，奶酪都不要钱一样</blockquote>
 很多是合成黄油吧
 
+
+
+*****
+
+####  Doctor.S  
+##### 112#       发表于 2022-10-11 10:01
+
+我看到龙飞凤舞的食客那一集才意识到原来印度蜜蜂和巴基斯坦蜜蜂不是蜜蜂<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Doctor.S  
+##### 113#       发表于 2022-10-11 10:02
+
+重复
+
