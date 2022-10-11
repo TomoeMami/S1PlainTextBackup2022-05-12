@@ -7552,3 +7552,12 @@ miko会不会在线不好说
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 2238#         楼主| 发表于 2022-10-11 21:18
+
+在sora窗通话教她怎么进新服
+
