@@ -16556,3 +16556,12 @@ ae、faker——真假美猴王（ae：其实是心魔作祟）（faker：六耳
 
 （再往前就是为了和街机区分搞的女莫莱团长...）
 
+
+
+*****
+
+####  新吾  
+##### 2974#       发表于 2022-10-11 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">因为他们发现根本不需要搞什么娘化，只要画个女的然后嗯说她身上缝了什么就可以了，甚至没有历史包裹
+
