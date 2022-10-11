@@ -4849,3 +4849,84 @@ yura只有一个动作，还以为是唱出来
 
 2022-10-11 20:54 上传
 
+
+
+*****
+
+####  iuhehc  
+##### 7977#       发表于 2022-10-11 21:24
+
+18.6
+5超过50%了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星踪幻影  
+##### 7978#       发表于 2022-10-11 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 7979#       发表于 2022-10-11 21:26
+
+<img src="https://img.saraba1st.com/forum/202210/11/212615gnvnwgn2vdwvwj7c.png" referrerpolicy="no-referrer">
+
+<strong>C){DC72CVWQ$O{VL{4M_88E.png</strong> (91.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-11 21:26 上传
+
+*****
+
+####  iuhehc  
+##### 7980#       发表于 2022-10-11 21:27
+
+意料之中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  星踪幻影  
+##### 7981#       发表于 2022-10-11 21:27
+
+虽然我反而没有什么感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 7982#       发表于 2022-10-11 21:27
+
+只有花田才能打败花田<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 7983#       发表于 2022-10-11 21:30
+
+吼嘢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿姆罗二世  
+##### 7984#       发表于 2022-10-11 21:30
+
+好！
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  阿姆罗二世  
+##### 7985#       发表于 2022-10-11 21:31
+
+开香槟哩<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

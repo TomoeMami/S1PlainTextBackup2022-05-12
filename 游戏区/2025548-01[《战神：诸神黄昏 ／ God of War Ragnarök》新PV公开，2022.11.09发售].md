@@ -5350,3 +5350,32 @@ Cory这么说更吓人了，MD前代还欠个DLC不说，续作就开始整活�
 而索尼怎么还是好佛系宣发的感觉( ...</blockquote>
 战神是一方面，备战年末才是主要的。索尼货多就可以加大打折力度了促销了。
 
+
+
+*****
+
+####  Piano-Forest  
+##### 594#         楼主| 发表于 2022-10-11 21:29
+
+[https://m.weibo.cn/1622008051/4811922345561606](https://m.weibo.cn/1622008051/4811922345561606)
+
+SIE宣布将邀请五位画师为《战神 诸神黄昏》绘制插画，插画将以奎托斯、阿特柔斯以及他们在九大国度遇到的各个角色为主题
+
+画师名、插画名、主题如下：
+<img src="https://p.sda1.dev/7/a591ca67f1fa2e14b73a493bb801fcb5/20221011_212818.jpg" referrerpolicy="no-referrer">
+
+Drew Merritt，熊与狼，奎托斯与阿特柔斯
+<img src="https://p.sda1.dev/7/1c3b3ca005f41f37266f2bd03a251eea/20221011_212357.jpg" referrerpolicy="no-referrer">
+
+Emma R&amp;#xED;os，矮人，布洛克与辛德里兄弟
+<img src="https://p.sda1.dev/7/30c1d76df225a6e49f10ca6806960926/20221011_212348.jpg" referrerpolicy="no-referrer">
+
+Romina Tempest，米德加德的英雄
+<img src="https://p.sda1.dev/7/d9a37fa1596e1d590b92d75a4527d52b/20221011_212330.jpg" referrerpolicy="no-referrer">
+
+Jae Lee，母与子，芙蕾雅与巴德尔
+<img src="https://p.sda1.dev/7/3f013eeba925b744a1baccfb8e4939c7/20221011_212313.jpg" referrerpolicy="no-referrer">
+
+石田翠，亚萨神族，以奥丁为首的北欧诸神
+<img src="https://p.sda1.dev/7/4b22cfe6924c6eadf9c4df55858cc6b6/20221011_212309.jpg" referrerpolicy="no-referrer">
+
