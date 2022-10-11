@@ -1669,3 +1669,13 @@ TV版故意删了所有Burn this city
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  死宅真恶心  
+##### 3128#       发表于 2022-10-11 20:17
+
+[https://www.zhihu.com/question/557244813/answer/2703857628](https://www.zhihu.com/question/557244813/answer/2703857628)
+买办企业荒坂公司剥削美国人民让大洋彼岸的日本人过上了好日子<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+

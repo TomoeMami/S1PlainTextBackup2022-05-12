@@ -3126,3 +3126,12 @@ shorturl.at/lAGMN推销下漫区群的手抄本法术书，整理了下各种咒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">前面那位是被封了？可惜看不到贴的什么图了
 
+
+
+*****
+
+####  Labborn  
+##### 247#       发表于 2022-10-11 20:11
+
+我现在明白魔法咒语的起源了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
