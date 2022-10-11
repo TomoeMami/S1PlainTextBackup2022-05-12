@@ -4345,3 +4345,23 @@ Liella是我香音家的，我当然可以随便摆弄，你堇算啥？<img src
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三期还是晚点来吧，要是再赶鸭子上架那新海选的那位估计只能跟铃原组个阴间cp了，哪能次次都捡到宝的。两次海选年龄限制一样的话池子还变小了，新卡怕不是就上次年龄不够参加不了的那部分，剩下的基本就落选过一次想再搏一次的
 
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 7934#       发表于 2022-10-11 08:16
+
+怎么有人把s1的拉拉评分楼截图搬去5厕的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥柏伦亲王  
+##### 7935#       发表于 2022-10-11 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57853121&amp;ptid=2078110" target="_blank">li463900160 发表于 2022-10-11 00:18</a>
+今天小百合手渡会，来得早第一排，开场打招呼就一眼看到她的恨天高的高跟鞋，然后就算这样手渡的时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">大叔粉竟是我自己，羡慕了
+
