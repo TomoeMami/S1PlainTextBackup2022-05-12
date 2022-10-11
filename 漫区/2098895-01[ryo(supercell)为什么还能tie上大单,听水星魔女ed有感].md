@@ -1028,3 +1028,17 @@ ayase一言堂编曲是这样的<img src="https://static.saraba1st.com/image/smi
 还是听听隔壁的夜鹿吧，术术人们</blockquote>
 部分拿厨已经快唱衰夜鹿一整年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Artanis  
+##### 109#       发表于 2022-10-11 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57859647&amp;ptid=2098895" target="_blank">eden0412 发表于 2022-10-11 14:39</a>
+
+部分拿厨已经快唱衰夜鹿一整年了</blockquote>
+拿不拿已是昨日黄花，
+
+该听最新最in的 sskr 怪力熊 烤牛肉 三连了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

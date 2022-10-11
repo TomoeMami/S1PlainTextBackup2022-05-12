@@ -16482,3 +16482,26 @@ SL了一个小时加一条令咒总算打死爱神了<img src="https://static.sa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每一个新实装的B阶都在侮辱海无力吧 毕竟那么知名的大英雄就直接没理智的只会嗷了 现在实装狂阶都跟正常人没什么区别 真正的宝具十二试炼直接给吞了 只实装了个连续平砍版射杀百头（笑）
 
+
+
+*****
+
+####  新吾  
+##### 2969#       发表于 2022-10-11 14:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大圣用你游那套，理论上也是除了mc都有适应性把。
+
+上三阶——东海龙宫借武器时任何武器都能耍个遍
+
+骑——骑过龙
+
+术——七十二变
+
+杀——这猴子暗算别人的事做得少吗
+
+狂——大闹天宫
+
+ae、faker——真假美猴王（ae：其实是心魔作祟）（faker：六耳猕猴冒名顶替）
+
+降临者——石猴（陨石的可能性）
+
