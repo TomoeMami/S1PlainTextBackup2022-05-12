@@ -1469,3 +1469,30 @@ steam国区已解锁，价格和epic一样
 来源:[https://nfs-lane-changers.ea.com ... json?language=en-us](https://nfs-lane-changers.ea.com/_next/data/U47HH3rRRNSgjkBqaB_n-/en-us/feed.json?language=en-ushttps://nfs-lane-changers.ea.com/_next/data/U47HH3rRRNSgjkBqaB_n-/en-us/feed.json?language=en-us)
 <img src="https://p.sda1.dev/7/3f78b5612525a8c8b7d59dc88acda2d2/9fb2e86f5da2f3b39dc271c77142be8d287747229.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  proselyte  
+##### 71#         楼主| 发表于 2022-10-11 10:13
+
+预告中隐藏的9个小细节，消息整理自The Nobeds。
+
+1.预购奖励的$150,000奖金仅限多人游戏使用，且游戏的产品描述中提到「分开的单人与多人战役模式」，所以本作的单人与多人模式可能是相互分离的，并且各自有单独的活动。
+
+2.Dom Dub透露其复刻的速度与激情初代Eclipse曾用于本作的扫模工作，并且其证实电影中Eclipse的Robocar套件也会出现在本作中。
+
+3.四种已知的新车牌：A$AP Rocky的190E的纽约车牌、S14的日式临时车牌、预购奖励的灰底绿字车牌、殿堂版的Mashman车牌（暂无图片）。
+
+4.在本作订阅EA Play Pro的页面，其中一项福利为「自定义游戏界面」，所以除自定义人物与车辆外，可能本作自定义UI（仪表、小地图等）将回归。
+
+5.预告片末尾的免责声明中提到「车辆可能已由EA虚构的AEM部件进行改装」，这里的AEM可能指自The Run后消失的改装品牌AEM的回归，不过更大一种可能仍是指「Aftermarket Equipment Manufacturers」，即泛指所有的第三方改装部件。
+
+6.可交互地图中的4号点位「Yams Park」（亚斯公园）的名字是为了纪念本作A$AP Rocky所属的嘻哈团体A$AP Mob的已故创始人A$AP Yams，其于2015年1月去世。
+
+7.本作机场可能回归，预告中出现了一张指向机场路的路牌，在地图的东南侧也能找到疑似机场的布局。
+
+8.四辆殿堂版附赠订制车为（类似Heat豪华版附赠的K.S版车辆）：Mercedes-AMG GT Black Series、Mercedes-AMG G63、Volkswagen Golf GTI MK1、BMW M3 Evolution II。
+
+9.人物自定义服饰品牌新增：A$AP Rocky在预告中的着装品牌为MARINE SERRE与Vans，殿堂版的名称来源于街头服饰品牌PALACE Skateboards，殿堂版也会提供该品牌的20件独特服装。
+
