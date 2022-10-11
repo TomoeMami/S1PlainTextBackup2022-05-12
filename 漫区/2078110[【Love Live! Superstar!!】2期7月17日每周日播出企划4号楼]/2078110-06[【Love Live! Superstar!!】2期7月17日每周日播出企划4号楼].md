@@ -5319,3 +5319,19 @@ a5也是播了几十集才烂的，论戏里戏外结合起来光速触底，也
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a5毕竟几十集，星2也算是创造了季番历史了
 
+
+
+*****
+
+####  优妮可  
+##### 8027#       发表于 2022-10-11 23:09
+
+这又回到那几个未解之谜，nako说的一期生通过就被告知加人，要加多少期多少人？动画制作花田他们知不知道加人？剧本写了多少了？要是这一切早就订好那还是等着被恶心吧
+
+*****
+
+####  nufawneafg  
+##### 8028#       发表于 2022-10-11 23:11
+
+其实我在想，要是无限续杯的话数据库还够用么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
