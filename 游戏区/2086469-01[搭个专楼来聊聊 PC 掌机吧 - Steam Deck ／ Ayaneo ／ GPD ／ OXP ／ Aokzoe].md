@@ -5704,3 +5704,12 @@ QQ图片20221011151527.png
 你看GPD那营销，压根就不想做大，AYA的营 ...</blockquote>
 GPD 官方的游戏测试视频，一刀不剪给你演示打开盗版游戏，还传到了油管上 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fuero  
+##### 459#       发表于 2022-10-11 17:15
+
+aok这瓜吃的有点撑，今天发了个拆机视频…
+

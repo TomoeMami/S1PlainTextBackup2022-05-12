@@ -4733,3 +4733,24 @@ bgm已经3.9了<img src="https://static.saraba1st.com/image/smiley/face2017/001.
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  优妮可  
+##### 7966#       发表于 2022-10-11 17:13
+
+购买部里鱼跳的是yura的舞，好急
+
+*****
+
+####  starring  
+##### 7967#       发表于 2022-10-11 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57861770&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-11 16:50</a>
+
+星的问题一直是战术上的问题，战略上的构想没什么大错，也算是疫情下的优解。只不过战术上打的一塌糊涂你还 ...</blockquote>
+星最大的问题其实是虚假宣传，如果从企划公布初就说每年都会加人，而不是让粉丝私下猜测，现在的情况会缓和很多。即使加人后一二期生确实存在实力差距，粉丝也提前打了定心针，也符合运营心里实力差距是卖点的屁话。
+
+动画一季如果还能说花了点心思挽救，二期则是为了强推立德其他所有人都可以不要连水都不想端，然后京极和花田则完全摆烂脑子都不要<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
