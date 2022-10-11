@@ -5599,3 +5599,33 @@ srgb  74% 海外媒体notebook check 有评测数据的，gpd 看了还满地�
 
 惊喜预订的Ayaneo Air，最后还是发货前退了，性能还是太差，而且这个5.5寸1080屏幕实在受不了，还是等等明年有没有新款吧，或者别的厂商有更好的同类产品之类的。反正那些砖头一样的掌机我是不考虑的
 
+
+
+*****
+
+####  plumlis  
+##### 451#       发表于 2022-10-11 15:21
+
+今天有个老外问GPD国内首批发货品控如何，我搜了一下发现GPD把自己贴吧所有关于品控的帖子都屏蔽了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+QQ图片20221011151527.png
+(141.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-11 15:21 上传
+
+<img src="https://img.saraba1st.com/forum/202210/11/152115r7kler07u3e3u7pb.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bypass  
+##### 452#         楼主| 发表于 2022-10-11 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57860260&amp;ptid=2086469" target="_blank">plumlis 发表于 2022-10-11 15:21</a>
+
+今天有个老外问GPD国内首批发货品控如何，我搜了一下发现GPD把自己贴吧所有关于品控的帖子都屏蔽了。</blockquote>
+咦，贴吧的帖子被屏蔽是怎么还能看到帖子内容的啊（我已经十多年没用贴吧了…）
+
