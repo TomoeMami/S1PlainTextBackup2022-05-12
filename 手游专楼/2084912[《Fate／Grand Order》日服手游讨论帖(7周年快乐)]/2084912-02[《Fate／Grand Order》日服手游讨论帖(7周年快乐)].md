@@ -16528,3 +16528,16 @@ ae、faker——真假美猴王（ae：其实是心魔作祟）（faker：六耳
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个大圣会不会也是女的(
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2972#       发表于 2022-10-11 16:58
+
+<blockquote>alucardcz 发表于 2022-10-11 15:19
+这个大圣会不会也是女的(</blockquote>
+二十冒险小说里有个彷徨海的魔术师借用过孙悟空的力量，根据猴子的自称来看应该是男性...
+
+作为孙悟空原型之一的水怪无支祁在月世界里倒是女的...
+
