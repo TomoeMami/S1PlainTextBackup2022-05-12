@@ -183,3 +183,12 @@
 
 新万圣活动真要拖到真要拖到二十号才开？后面还有邪马台、龙马机神、新圣诞这三个活动，真能赶得上在年末开通古斯？
 
+
+
+*****
+
+####  DET  
+##### 43627#       发表于 2022-10-11 10:05
+
+又是长草的一周，就不能这周开吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

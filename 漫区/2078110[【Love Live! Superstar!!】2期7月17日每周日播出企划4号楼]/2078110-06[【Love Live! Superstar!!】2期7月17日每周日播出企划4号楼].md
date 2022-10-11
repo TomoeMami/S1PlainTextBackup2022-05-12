@@ -4446,3 +4446,18 @@ Liella是我香音家的，我当然可以随便摆弄，你堇算啥？<img src
 岬なこの1st写真集が12月2日（金）に発売决定！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">NAKO是怎么做到不同场景就不同气质的，感觉都不是一张脸了
 
+
+
+*****
+
+####  Kfly  
+##### 7944#       发表于 2022-10-11 10:06
+
+之前就一直很在意的一件事：传承的羽毛
+
+自从S1E1出现过一次后，对ll来说非常有象征意义的羽毛就再也没出现过了
+
+直到星二完结都没有出现，这是因为剧本本身设计的问题（赶工严重、忘了写之类的），还是说 （星团已经不需要传承了） （人还没齐） 有什么别的原因？
+
+感觉忘了写的可能性大些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
