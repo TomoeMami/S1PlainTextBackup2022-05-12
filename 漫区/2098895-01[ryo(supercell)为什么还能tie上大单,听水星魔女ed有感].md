@@ -1118,3 +1118,21 @@ ED真的很难听...不得不说刷新我对难听歌的下限就是最近的ryo
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和面筋律师的m七八比呢
 
+
+
+*****
+
+####  魍洛聚貊  
+##### 119#       发表于 2022-10-11 15:49
+
+喜欢的曲作者这几年的新曲都拉了。
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  DET  
+##### 120#       发表于 2022-10-11 15:50
+
+感觉以米津玄师活动的曲都不如以前他自己写的V+曲，听了一段时间后把他的歌全删了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
