@@ -192,3 +192,12 @@
 
 又是长草的一周，就不能这周开吗<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  苍蓝之枪  
+##### 43628#       发表于 2022-10-11 22:59
+
+金时只抽一宝的话是不是不如不抽......
+
