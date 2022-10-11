@@ -5690,3 +5690,17 @@ QQ图片20221011151527.png
 就这？有时候我都怀疑这些寨机厂究竟有几家是真心做长期企业的，奥丁年初延迟发货，要给igg banker先发，群 ...</blockquote>
 奥丁那时候，我高度怀疑有友商参与节奏，哪有路人玩家作图那么快的。
 
+
+
+*****
+
+####  bypass  
+##### 458#         楼主| 发表于 2022-10-11 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57860989&amp;ptid=2086469" target="_blank">plumlis 发表于 2022-10-11 16:09</a>
+
+这些寨厂当然不打算做长期企业啊，大不了做臭了就回去做别的嘛。
+
+你看GPD那营销，压根就不想做大，AYA的营 ...</blockquote>
+GPD 官方的游戏测试视频，一刀不剪给你演示打开盗版游戏，还传到了油管上 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
