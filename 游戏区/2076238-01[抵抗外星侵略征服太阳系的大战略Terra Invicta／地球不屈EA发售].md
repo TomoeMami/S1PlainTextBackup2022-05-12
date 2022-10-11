@@ -1655,3 +1655,20 @@ yy一下
 
 然后再往舰队和木星探测方向发展
 
+
+
+*****
+
+####  萼绿华  
+##### 150#         楼主| 发表于 2022-10-11 15:57
+
+<img src="https://img.saraba1st.com/forum/202210/11/155552fbvgbqbvapz6f2qz.png" referrerpolicy="no-referrer">
+
+<strong>2022-10-11 15_54_33-Steam 社区 __ 地球不屈 Terra Invicta __ 成就 — Mozilla Fire.png</strong> (13.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-11 15:55 上传
+
+发现还有这么一个成就，各位抵抗派的朋友们可以放心玩，不必发现哪里玩错了就重开了，反正不会Game Over，坚持抗战到底没准还能顺便做个超稀有成就
+
