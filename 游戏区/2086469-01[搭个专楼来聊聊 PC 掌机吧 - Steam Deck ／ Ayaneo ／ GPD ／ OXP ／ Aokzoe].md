@@ -5678,3 +5678,15 @@ QQ图片20221011151527.png
 你看GPD那营销，压根就不想做大，AYA的营销看着很大，但更像是诈骗公司。
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  彩虹肥宅  
+##### 457#       发表于 2022-10-11 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57860705&amp;ptid=2086469" target="_blank">allenz3 发表于 2022-10-11 15:50</a>
+
+就这？有时候我都怀疑这些寨机厂究竟有几家是真心做长期企业的，奥丁年初延迟发货，要给igg banker先发，群 ...</blockquote>
+奥丁那时候，我高度怀疑有友商参与节奏，哪有路人玩家作图那么快的。
+

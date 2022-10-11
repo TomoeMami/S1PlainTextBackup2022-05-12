@@ -1145,3 +1145,15 @@ ED真的很难听...不得不说刷新我对难听歌的下限就是最近的ryo
 
 看了漏油讨论听了下#LOVE，别说还真有以前那个味<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">（好是好但不是很好）
 
+
+
+*****
+
+####  借月照华庭  
+##### 122#       发表于 2022-10-11 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57859945&amp;ptid=2098895" target="_blank">Yugao 发表于 2022-10-11 15:02</a>
+夜鹿 真夜中 畿田女士这仨我经常分不清谁是谁</blockquote>
+我感觉还挺好分辨的……
+声音低一点的是suis，奶凶奶凶的是ACAね，质感像vocaloid声源的是ikura<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
