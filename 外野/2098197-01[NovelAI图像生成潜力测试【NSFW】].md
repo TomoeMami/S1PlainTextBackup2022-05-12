@@ -3135,3 +3135,26 @@ shorturl.at/lAGMN推销下漫区群的手抄本法术书，整理了下各种咒
 
 我现在明白魔法咒语的起源了<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Issue  
+##### 248#       发表于 2022-10-11 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57864954&amp;ptid=2098197" target="_blank">lxlyandccc 发表于 2022-10-11 19:53</a>
+
+前面那位是被封了？可惜看不到贴的什么图了</blockquote>
+那个风怒了2层，其实就2张，我刚好存了链接，你要我可以私下给
+
+*****
+
+####  四宫家印  
+##### 249#       发表于 2022-10-11 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57864954&amp;ptid=2098197" target="_blank">lxlyandccc 发表于 2022-10-11 19:53</a>
+前面那位是被封了？可惜看不到贴的什么图了</blockquote>
+后门，但是画的不对，一个画成了双批人，另一个也不对劲…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
