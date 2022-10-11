@@ -7541,3 +7541,14 @@ miko会不会在线不好说
 
 一聊动画又停不下来了。又不同时视听隔着找什么共鸣？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 2237#       发表于 2022-10-11 19:12
+
+今晚兔子和towa来帮忙了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
