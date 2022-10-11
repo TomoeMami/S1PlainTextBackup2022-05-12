@@ -16565,3 +16565,21 @@ ae、faker——真假美猴王（ae：其实是心魔作祟）（faker：六耳
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">因为他们发现根本不需要搞什么娘化，只要画个女的然后嗯说她身上缝了什么就可以了，甚至没有历史包裹
 
+
+
+*****
+
+####  Jamaisvu  
+##### 2975#       发表于 2022-10-11 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57863133&amp;ptid=2084912" target="_blank">新吾 发表于 2022-10-11 17:57</a>
+
+因为他们发现根本不需要搞什么娘化，只要画个女的然后嗯说她身上缝了什么就可以了，甚至没有历史包 ...</blockquote>
+确实，本质上还是卖女角色，毕竟是二次元。
+
+不过少点历史包袱能减轻争议，可以理解。
+
+（记得某个历史老师上课讲到罗马暴君，一搜尼禄全是红衣美少女<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+罗森的网络小说风姿物语也有这种情况，一开始疯狂借用历史人物的姓名，搞各种异常混乱的关系，后面好像是读者反应玩梗太过对历史影响不好，就收敛了许多。（弘历痛失真名）
+
