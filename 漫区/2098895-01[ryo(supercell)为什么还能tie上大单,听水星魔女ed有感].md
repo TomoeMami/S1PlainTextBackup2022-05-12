@@ -1166,3 +1166,14 @@ ED真的很难听...不得不说刷新我对难听歌的下限就是最近的ryo
 
 这ED纯纯的debuff，白瞎了ED那么好的画面和贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  t222  
+##### 124#       发表于 2022-10-11 20:31
+
+为了贴贴我看ED是直接静音的
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
