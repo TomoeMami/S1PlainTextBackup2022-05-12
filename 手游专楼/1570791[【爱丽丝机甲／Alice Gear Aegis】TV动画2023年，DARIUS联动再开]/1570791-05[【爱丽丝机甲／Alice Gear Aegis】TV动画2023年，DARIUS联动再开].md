@@ -14166,3 +14166,14 @@ PS：DARIUS系列我只浅玩过CS，欢迎补充
 
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  thee  
+##### 7379#       发表于 2022-10-12 01:03
+
+移动端原生支持手柄红豆？早就想把破壁dmm删了
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

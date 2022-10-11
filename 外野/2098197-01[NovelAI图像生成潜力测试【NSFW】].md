@@ -3212,3 +3212,17 @@ shorturl.at/lAGMN推销下漫区群的手抄本法术书，整理了下各种咒
 那个风怒了2层，其实就2张，我刚好存了链接，你要我可以私下给</blockquote>
 求私发
 
+
+
+*****
+
+####  lxlyandccc  
+##### 253#       发表于 2022-10-12 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57866701&amp;ptid=2098197" target="_blank">四宫家印 发表于 2022-10-11 21:58</a>
+
+后门，但是画的不对，一个画成了双批人，另一个也不对劲…
+
+—— 来自 S1Fun ...</blockquote>
+感谢解答，既然是抽掉的图那就没啥了
+
