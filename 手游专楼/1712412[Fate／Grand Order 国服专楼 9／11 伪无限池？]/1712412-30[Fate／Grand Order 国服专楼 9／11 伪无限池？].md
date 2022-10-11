@@ -174,3 +174,12 @@
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Blackson  
+##### 43626#       发表于 2022-10-11 09:34
+
+新万圣活动真要拖到真要拖到二十号才开？后面还有邪马台、龙马机神、新圣诞这三个活动，真能赶得上在年末开通古斯？
+
