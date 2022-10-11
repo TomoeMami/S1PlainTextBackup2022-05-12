@@ -1010,3 +1010,21 @@ ayase一言堂编曲是这样的<img src="https://static.saraba1st.com/image/smi
 
 倒也不是nagi之后就完了，差不多chelly之后就不太能听了倒是没错……
 
+
+
+*****
+
+####  Yugao  
+##### 107#       发表于 2022-10-11 14:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这首歌我一直觉得和我的听感完全相反，怎么让你难受怎么来，比ayase的公式化创作还要离谱
+
+*****
+
+####  eden0412  
+##### 108#       发表于 2022-10-11 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57849540&amp;ptid=2098895" target="_blank">Ura赤 发表于 2022-10-10 19:43</a>
+还是听听隔壁的夜鹿吧，术术人们</blockquote>
+部分拿厨已经快唱衰夜鹿一整年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
