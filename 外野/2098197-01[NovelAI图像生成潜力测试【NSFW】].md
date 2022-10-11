@@ -3200,3 +3200,15 @@ shorturl.at/lAGMN推销下漫区群的手抄本法术书，整理了下各种咒
 比如这 ...</blockquote>
 擎天柱看了都擎天柱
 
+
+
+*****
+
+####  loushi2  
+##### 252#       发表于 2022-10-11 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57866618&amp;ptid=2098197" target="_blank">Issue 发表于 2022-10-11 21:53</a>
+
+那个风怒了2层，其实就2张，我刚好存了链接，你要我可以私下给</blockquote>
+求私发
+

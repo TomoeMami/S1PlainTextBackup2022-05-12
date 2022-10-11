@@ -5335,3 +5335,27 @@ a5也是播了几十集才烂的，论戏里戏外结合起来光速触底，也
 
 其实我在想，要是无限续杯的话数据库还够用么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8029#       发表于 2022-10-11 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57867148&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-11 22:37</a>
+
+看虹2的时候我还希望剧情冲突能再强点 看完星2还是算了吧</blockquote>
+ll动画/大多数偶像动画，最重要的还是角色角色出彩和剧情出彩自然是不可分割的，但当过于“激烈”的剧情可能会伤到角色本身的时候，即使剧情最终效果很好，也需要仔细审视演出的部分，镜头台词都要慎重，做不好带来的观感都不一样了。有时候慎之又慎都还是避免不了争议，就直接选择直接避免激烈的剧情，从根源上消除掉潜在的危险，总比降低角色风评要好。
+
+角色所处的位置就应该这么重要
+
+*****
+
+####  starring  
+##### 8030#       发表于 2022-10-11 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57867409&amp;ptid=2078110" target="_blank">ButaiKyaku 发表于 2022-10-11 22:56</a>
+
+a5也是播了几十集才烂的，论戏里戏外结合起来光速触底，也就兽娘2，之后就这部了（悲） ...</blockquote>
+没记错的话，A5背后还有一部叫国王游戏的番，也是进入10%好评的强者<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
