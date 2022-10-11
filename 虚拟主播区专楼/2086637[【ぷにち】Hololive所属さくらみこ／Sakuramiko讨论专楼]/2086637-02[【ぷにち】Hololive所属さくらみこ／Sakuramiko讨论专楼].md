@@ -7385,3 +7385,32 @@ R[)HY5IJO98WLEV2%X_PGY0.jpg
 
 不过晚上mio她们要播MC就是了
 
+
+
+*****
+
+####  rs5621  
+##### 2221#       发表于 2022-10-11 11:45
+
+整运动会的场地只在直播弄么
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 2222#       发表于 2022-10-11 11:45
+
+整运动会的场地只在直播弄么
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 2223#         楼主| 发表于 2022-10-11 11:49
+
+怎么可能，那要直播几百小时
+
+去年什么样你看过了么
+
