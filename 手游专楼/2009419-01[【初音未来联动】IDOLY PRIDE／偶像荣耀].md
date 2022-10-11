@@ -17,3 +17,17 @@
 
 2022-10-11 23:10 上传
 
+
+
+*****
+
+####  伊布桑  
+##### 740#         楼主| 发表于 2022-10-12 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57867625&amp;ptid=2009419" target="_blank">kos_mos 发表于 2022-10-11 23:10:29</a>
+韩服限定麻奈
+
+据考据背景是韩国的南山塔</blockquote>慕了。。。不知道有没有剧情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
