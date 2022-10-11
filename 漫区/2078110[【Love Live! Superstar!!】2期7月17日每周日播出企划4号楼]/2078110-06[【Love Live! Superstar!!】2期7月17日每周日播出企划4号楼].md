@@ -4576,3 +4576,15 @@ bgm已经3.9了<img src="https://static.saraba1st.com/image/smiley/face2017/001.
 香门</blockquote>
 香来承担，香来允许（
 
+
+
+*****
+
+####  D麦林  
+##### 7955#       发表于 2022-10-11 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57854844&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-10-11 09:10</a>
+一直盯着个地区老二1/9的香音真的叫明确吗？动画为了补丁拿sp去垫可是雷点之一 ...</blockquote>
+至少她一直盯着香音而没有一会盯着香音一会又去找别人麻烦这点很有一致性不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+你只要把香音是宇宙中心这件事看作世界观设定的一部分的话其实还是很好解释的
+
