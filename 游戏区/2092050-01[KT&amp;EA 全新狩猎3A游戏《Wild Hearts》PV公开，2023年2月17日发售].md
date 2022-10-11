@@ -537,3 +537,12 @@ Arekkz的试玩感受
 
 看来是小看欧米茄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑修士  
+##### 266#       发表于 2022-10-11 12:09
+
+看着发售日，2月狂野，3月莱莎，卧龙和月蚀不知道会安排到1月还是4月
+
