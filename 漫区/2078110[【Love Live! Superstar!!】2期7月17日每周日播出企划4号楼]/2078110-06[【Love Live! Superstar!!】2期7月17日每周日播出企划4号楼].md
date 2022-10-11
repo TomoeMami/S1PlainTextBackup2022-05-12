@@ -4763,3 +4763,19 @@ bgm已经3.9了<img src="https://static.saraba1st.com/image/smiley/face2017/001.
 
 购买部笑疯，让她们读信还不如让她们带货
 
+
+
+*****
+
+####  iuhehc  
+##### 7969#       发表于 2022-10-11 17:44
+
+开头就笑死了 看来西部呀卡农这梗后台一直在玩
+
+*****
+
+####  稀勢のささ  
+##### 7970#       发表于 2022-10-11 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">站起来之后鱼的左手好像就一直放人肩膀上的 高度刚好合适是吧
+
