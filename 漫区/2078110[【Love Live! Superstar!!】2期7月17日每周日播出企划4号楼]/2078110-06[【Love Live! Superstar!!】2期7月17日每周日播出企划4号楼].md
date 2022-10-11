@@ -5424,3 +5424,27 @@ nico中途跑路默认好评<img src="https://static.saraba1st.com/image/smiley/
 
 YATTAZE！!<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 8037#       发表于 2022-10-12 00:09
+
+草，怎么还有楼友把s1评分搬去5ch的，太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  沙茶酱  
+##### 8038#       发表于 2022-10-12 00:12
+
+<img src="https://img.saraba1st.com/forum/202210/12/001202phuy24umbjh0iu0t.png" referrerpolicy="no-referrer">
+
+<strong>X2.png</strong> (109.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 00:12 上传
+
