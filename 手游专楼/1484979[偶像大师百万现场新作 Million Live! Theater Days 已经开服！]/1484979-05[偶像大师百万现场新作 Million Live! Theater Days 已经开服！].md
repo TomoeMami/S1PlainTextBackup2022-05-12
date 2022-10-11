@@ -96,3 +96,12 @@ miki的繁中服加到兑换里很久了，当时换了想回个贴来着结果�
 
 果然这期活动都在摸，昨天紧急打了个10w就进2500了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小笠原早紀  
+##### 7020#       发表于 2022-10-11 14:06
+
+刚肝完13人组活是这样的，体力药都烧干了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
