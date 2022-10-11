@@ -1001,3 +1001,12 @@ ayase一言堂编曲是这样的<img src="https://static.saraba1st.com/image/smi
 
 原来很多人认为甲铁城OP是烂曲啊,我一直觉得蛮好听得<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 106#       发表于 2022-10-11 13:37
+
+倒也不是nagi之后就完了，差不多chelly之后就不太能听了倒是没错……
+
