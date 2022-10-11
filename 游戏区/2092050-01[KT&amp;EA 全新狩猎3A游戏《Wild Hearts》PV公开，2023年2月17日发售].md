@@ -546,3 +546,26 @@ Arekkz的试玩感受
 
 看着发售日，2月狂野，3月莱莎，卧龙和月蚀不知道会安排到1月还是4月
 
+
+
+*****
+
+####  415452356  
+##### 267#       发表于 2022-10-11 12:35
+
+  战斗的镜头跟踪意外的还行，动作本身已经不太指望了，这太刀怕不是还没讨鬼太刀纳刀破部位爽
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hideo13  
+##### 268#       发表于 2022-10-11 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57791975&amp;ptid=2092050" target="_blank">bm7号 发表于 2022-10-7 12:53</a>
+
+比较有新意的地方是猪的肚子开始摇了，对摇有特殊兴趣的玩家推荐入手。
+
+ffo、wo long还有这部的动作似乎都 ...</blockquote>
+FFO的监督就是无双组的隈部宣道
+
