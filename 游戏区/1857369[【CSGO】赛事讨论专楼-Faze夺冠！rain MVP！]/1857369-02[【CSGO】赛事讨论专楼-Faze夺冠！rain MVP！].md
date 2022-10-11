@@ -9515,3 +9515,13 @@ apex下半场太带了，不然小蜜蜂感觉早G了<img src="https://static.sa
 
 还好小蜜蜂晋级了，不然玩机器真得再度太行山了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这两天都快播满了
 
+
+
+*****
+
+####  dev2ce  
+##### 2620#       发表于 2022-10-11 11:20
+
+彬彬跟a队解约了，最近他是真的惨，a队管理层是真的➗
+另外既然major没进，showdown应该就能看到设备，可惜A队还是死局，让年迈的9去打正面突破，大壮毒瘤老六程度越来越重，farlig估计也转步枪了，当年九枪法巅峰“clutch minister”都不打突破的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
