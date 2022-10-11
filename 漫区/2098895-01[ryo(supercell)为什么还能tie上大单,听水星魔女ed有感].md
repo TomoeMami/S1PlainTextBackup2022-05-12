@@ -1102,3 +1102,19 @@ ED这种就是典型的为了新而新，在已知的美学体系外瞎搞一气
 
 拿写个ED我觉得可行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET  
+##### 117#       发表于 2022-10-11 15:39
+
+ED真的很难听...不得不说刷新我对难听歌的下限就是最近的ryo和deco了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 118#       发表于 2022-10-11 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">和面筋律师的m七八比呢
+

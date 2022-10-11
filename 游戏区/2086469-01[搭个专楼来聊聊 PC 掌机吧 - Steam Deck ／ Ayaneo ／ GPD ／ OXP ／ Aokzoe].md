@@ -5629,3 +5629,17 @@ QQ图片20221011151527.png
 今天有个老外问GPD国内首批发货品控如何，我搜了一下发现GPD把自己贴吧所有关于品控的帖子都屏蔽了。</blockquote>
 咦，贴吧的帖子被屏蔽是怎么还能看到帖子内容的啊（我已经十多年没用贴吧了…）
 
+
+
+*****
+
+####  plumlis  
+##### 453#       发表于 2022-10-11 15:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57860372&amp;ptid=2086469" target="_blank">bypass 发表于 2022-10-11 15:29</a>
+
+咦，贴吧的帖子被屏蔽是怎么还能看到帖子内容的啊（我已经十多年没用贴吧了…） ...</blockquote>
+大概就是翻页看不到，自己搜索或者直接用链接打开才能看到吧。
+
+或者帖子不能被回复了。
+
