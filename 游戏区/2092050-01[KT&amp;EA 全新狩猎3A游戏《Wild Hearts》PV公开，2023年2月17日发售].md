@@ -516,3 +516,15 @@ Arekkz的试玩感受
 
 这卖相可比官方宣传片里的强多了，EA到底懂不懂怎么剪视频啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 264#       发表于 2022-10-11 11:40
+
+电击online的情报
+[https://dengekionline.com/articles/153128/](https://dengekionline.com/articles/153128/)
+
+武器种类是8种，各武器种类下的可生产数量总共有200多个。实机演示里出现的那个可以在卜字拐/棍/手里剑之间切换形态的变形武器好像总共有5种形态。有幻化系统。
+

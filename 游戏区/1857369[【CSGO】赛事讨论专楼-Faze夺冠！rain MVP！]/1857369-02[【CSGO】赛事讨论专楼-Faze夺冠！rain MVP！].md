@@ -9525,3 +9525,20 @@ apex下半场太带了，不然小蜜蜂感觉早G了<img src="https://static.sa
 彬彬跟a队解约了，最近他是真的惨，a队管理层是真的➗
 另外既然major没进，showdown应该就能看到设备，可惜A队还是死局，让年迈的9去打正面突破，大壮毒瘤老六程度越来越重，farlig估计也转步枪了，当年九枪法巅峰“clutch minister”都不打突破的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2621#         楼主| 发表于 2022-10-11 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57856859&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-10-11 11:20</a>
+彬彬跟a队解约了，最近他是真的惨，a队管理层是真的➗
+另外既然major没进，showdown应该就能看到设备，可惜 ...</blockquote>
+彬彬确实挺惨，但这事第一波之后只能说是上头了
+第一波莫名其妙被那个保安打了纯属无妄之灾，此时直接联系夜总会或者报警就好了，对方也是心虚想润的
+
+但他这波气不过又自己追上那人，说是理论，但其实就只有一种意思，这种情况下自己追过去除了打一架没有别的结果的
+
+只能说生活中碰见烂人还是尽量绕着走，别上头，千万别去一换一，亏大了
+
