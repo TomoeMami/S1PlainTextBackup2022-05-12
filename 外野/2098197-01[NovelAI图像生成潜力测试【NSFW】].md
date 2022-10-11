@@ -3158,3 +3158,32 @@ shorturl.at/lAGMN推销下漫区群的手抄本法术书，整理了下各种咒
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Wiksy  
+##### 250#       发表于 2022-10-11 22:20
+
+由于我觉得我用的tag样本过少且组合过于奇葩，导致不仅整体不能看，而且还得用非常神奇的方式nsfw
+
+<img src="https://img.saraba1st.com/forum/202210/11/221841fz9j4v3i4vyvyyb7.png" referrerpolicy="no-referrer">
+
+<strong>1665497422374-5.png</strong> (39.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-11 22:18 上传
+
+比如这张，看了半天好像nsfw的地方是妹子装甲后面那个jb状突起
+
+<img src="https://img.saraba1st.com/forum/202210/11/221925nmfd83gg6kkgk36b.png" referrerpolicy="no-referrer">
+
+<strong>1665497422374-9.png</strong> (44.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-11 22:19 上传
+
+或者这个跪地露（——）的机器人
+

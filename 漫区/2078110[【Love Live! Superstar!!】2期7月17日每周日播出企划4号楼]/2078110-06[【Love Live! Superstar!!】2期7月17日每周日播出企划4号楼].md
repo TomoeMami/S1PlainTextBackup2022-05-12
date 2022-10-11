@@ -5060,3 +5060,52 @@ md忘记去打分了
 
 角色之间互动也几乎没有，工业糖精都发不明白（发糖合理的那话红蓝回正好是二期分最高的一回）
 
+
+
+*****
+
+####  CharlieZ-  
+##### 8001#       发表于 2022-10-11 22:12
+
+好奇n站有没有会发“快关注闪耀路标喵”这种弹幕的乐子人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 8002#       发表于 2022-10-11 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57866789&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-10-11 22:06</a>
+见证历史了，当年兽娘2最后一集有这么低吗</blockquote>
+当年兽娘2是戏里戏外共同努力的成果，星还远没到这个程度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 8003#       发表于 2022-10-11 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57866822&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-10-11 22:09</a>
+难说，我觉得香音传只是问题被放大的一部分。莫名其妙嘴臭的可可，掉进钱眼还嘴欠的夏美，神经质还自视甚 ...</blockquote>
+第三季别给老角色添新黑点
+旧来的问题直接抹掉当无事发生
+新角色不要求立起人设至少不要有雷
+结局平稳落地不要整活
+我已经把要求降到这个程度了 端水什么的我都不敢想了 太奢侈了这要求
+
+*****
+
+####  四宫家印  
+##### 8004#       发表于 2022-10-11 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57852035&amp;ptid=2078110" target="_blank">Skyline_R 发表于 2022-10-10 22:46</a>
+星3期不会还是明年7月吧，那下半年得跟隔壁百万现场卧龙凤雏了</blockquote>
+这俩估计都是10月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 8005#       发表于 2022-10-11 22:20
+
+星二动画低评分现在是不是三个团都会拍手叫好没啥异议的事
+
