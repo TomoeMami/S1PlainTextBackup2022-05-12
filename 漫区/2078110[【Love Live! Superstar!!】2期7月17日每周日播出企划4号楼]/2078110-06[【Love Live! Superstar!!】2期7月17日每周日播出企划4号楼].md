@@ -5397,3 +5397,30 @@ ll动画/大多数偶像动画，最重要的还是角色角色出彩和剧情�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nico原来是最温柔的那个
 
+
+
+*****
+
+####  ButaiKyaku  
+##### 8034#       发表于 2022-10-11 23:54
+
+<blockquote>starring 发表于 2022-10-11 23:19
+没记错的话，A5背后还有一部叫国王游戏的番，也是进入10%好评的强者 ...</blockquote>
+国王游戏是全靠自己足够烂，星团2和兽娘2都是要结合前作情怀和场外要素来看才原汁原味的（）
+
+*****
+
+####  link@1018max  
+##### 8035#       发表于 2022-10-11 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57868349&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-11 23:51</a>
+nico原来是最温柔的那个</blockquote>
+nico中途跑路默认好评<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 8036#       发表于 2022-10-11 23:58
+
+YATTAZE！!<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
