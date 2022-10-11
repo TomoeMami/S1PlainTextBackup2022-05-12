@@ -16505,3 +16505,26 @@ ae、faker——真假美猴王（ae：其实是心魔作祟）（faker：六耳
 
 降临者——石猴（陨石的可能性）
 
+
+
+*****
+
+####  马桶3  
+##### 2970#       发表于 2022-10-11 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57859732&amp;ptid=2084912" target="_blank">新吾 发表于 2022-10-11 14:46</a>
+
+大圣用你游那套，理论上也是除了mc都有适应性把。
+
+上三阶——东海龙宫借武器时任何武器都能耍个遍</blockquote>
+不如再来个伪装者，以为是孙悟空（猴），其实是孙悟空（赛亚人）
+
+
+
+*****
+
+####  alucardcz  
+##### 2971#       发表于 2022-10-11 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个大圣会不会也是女的(
+
