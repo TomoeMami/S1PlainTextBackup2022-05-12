@@ -4475,3 +4475,23 @@ Liella是我香音家的，我当然可以随便摆弄，你堇算啥？<img src
 自从S1E1出现过一次后，对ll来说非常有象征意义的羽毛就再也没出现 ...</blockquote>
 因为有三期，实际上二期最后一集羽毛没出现也是三期征兆，这个绝对不会忘的……大概？
 
+
+
+*****
+
+####  ruffian  
+##### 7946#       发表于 2022-10-11 10:33
+
+我记得当初有人说，那个羽毛没有被香音接住，而是稍稍落进书包，暗示此时的香音还没有成长完全。充满希望的第一集啊……
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  无聊者X  
+##### 7947#       发表于 2022-10-11 10:35
+
+bgm已经3.9了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 ZTE A2322, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

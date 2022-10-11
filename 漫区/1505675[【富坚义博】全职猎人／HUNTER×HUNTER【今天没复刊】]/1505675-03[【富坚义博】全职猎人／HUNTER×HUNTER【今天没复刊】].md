@@ -9231,3 +9231,14 @@ QQ图片20220525092218.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  feliznavidad  
+##### 3922#       发表于 2022-10-11 10:33
+
+好耶！！
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
