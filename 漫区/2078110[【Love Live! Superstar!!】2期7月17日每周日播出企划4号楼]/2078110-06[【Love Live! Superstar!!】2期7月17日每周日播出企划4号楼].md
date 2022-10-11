@@ -4461,3 +4461,17 @@ Liella是我香音家的，我当然可以随便摆弄，你堇算啥？<img src
 
 感觉忘了写的可能性大些<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 7945#       发表于 2022-10-11 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57855566&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-11 10:06</a>
+
+之前就一直很在意的一件事：传承的羽毛
+
+自从S1E1出现过一次后，对ll来说非常有象征意义的羽毛就再也没出现 ...</blockquote>
+因为有三期，实际上二期最后一集羽毛没出现也是三期征兆，这个绝对不会忘的……大概？
+
