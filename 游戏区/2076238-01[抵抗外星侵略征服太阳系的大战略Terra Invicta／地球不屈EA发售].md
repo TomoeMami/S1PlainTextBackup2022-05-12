@@ -1681,3 +1681,25 @@ yy一下
 
 你们一般几年跟外星人掀桌子
 
+
+
+*****
+
+####  windtrack_qh  
+##### 152#       发表于 2022-10-11 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57862086&amp;ptid=2076238" target="_blank">arrowshade 发表于 2022-10-11 17:08</a>
+
+你们一般几年跟外星人掀桌子</blockquote>
+看外星人登陆地，登陆在我家边上肯定掀了，登陆在其他地方就在苟几年，不过35年左右怎么也开始打了
+
+*****
+
+####  萼绿华  
+##### 153#         楼主| 发表于 2022-10-11 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57862086&amp;ptid=2076238" target="_blank">arrowshade 发表于 2022-10-11 17:08</a>
+
+你们一般几年跟外星人掀桌子</blockquote>
+为什么要掀桌子，和平发展，人不犯我，我不犯人。看好外星人警惕度别涨，30年以前甚至都不用考虑造船的事，反正建早了科技跟不上造出来也是垃圾。等太空经济基本成型顺利运转起来之后就留好控制点和资源，算好造船时间，32年开始尽量把舰队一波爆出来。
+
