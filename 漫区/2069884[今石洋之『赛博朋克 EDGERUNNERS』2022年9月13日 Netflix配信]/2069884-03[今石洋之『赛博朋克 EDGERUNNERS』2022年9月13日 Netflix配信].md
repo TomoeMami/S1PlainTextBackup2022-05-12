@@ -1642,3 +1642,30 @@ TV版故意删了所有Burn this city
 看完了，这片最后没有让David用义体金刚抱着Lucy一跃冲到月球表面让后来一场轨道sex然后解体我不是很认可[f ...</blockquote>
 能飞出大气圈吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  未来起航  
+##### 3126#       发表于 2022-10-11 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57839516&amp;ptid=2069884" target="_blank">哈扎马 发表于 2022-10-10 10:02:01</a>
+抖机灵压倒主线是扳机或者说今石的常见病，从落叶起就能看出他是个没法沉稳只想草蛋的巨魔，这次边缘行者1 ...</blockquote>[https://movie.douban.com/review/14658074/](https://movie.douban.com/review/14658074/)
+这篇影评看着挺那啥，但其实我觉得说的点都算准确。
+1.David和Lucy都有很重的病症。David是没有自己，只能圆别人的梦；Lucy是没有未来，只能无限逃离。没有自我的俩人是浪漫不起来的……
+2.广告片，你总不可能指望这个去唤醒revolution<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+3.今石还是惦记着他那暴走族经历，trigger做起来最爽的永远是几个人无意义的开车狂飙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  未来起航  
+##### 3127#       发表于 2022-10-11 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57839516&amp;ptid=2069884" target="_blank">哈扎马 发表于 2022-10-10 10:02:01</a>
+抖机灵压倒主线是扳机或者说今石的常见病，从落叶起就能看出他是个没法沉稳只想草蛋的巨魔，这次边缘行者1 ...</blockquote>只能说塑造角色这种精细活脱力噶是真的不大熟，感觉也是不大想干的那种。klk那主线还是有的，但再看一遍只能说压根没打算给人留下印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比如裸体海滩这个组织就纯纯的低存在感小丑。
+我说脱力噶咱要不下一部tv除了前三集后三集，中间全交给雨宫哲和五十岚海吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他俩是能静得下来讲东西的……
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

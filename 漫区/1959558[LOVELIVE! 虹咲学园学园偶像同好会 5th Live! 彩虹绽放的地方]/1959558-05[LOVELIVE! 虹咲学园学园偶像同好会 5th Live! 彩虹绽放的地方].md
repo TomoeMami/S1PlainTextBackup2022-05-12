@@ -284,3 +284,16 @@ CelticWhite
 
 【【中字/全曲】「永远の一瞬」（永远的一瞬）LLAS41章插入曲单曲专辑 主打曲-哔哩哔哩】 https://b23.tv/uamWvWu
 
+
+
+*****
+
+####  笋狐  
+##### 6563#       发表于 2022-10-11 11:06
+
+ 本帖最后由 笋狐 于 2022-10-11 11:08 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">最近的本本还有织日ちひろ（《摘下珍珠星》和侑雪交往100天的作者）那本侑雫值得一康，画风精细感情描写十分细腻，迫真少女情侣的酸涩感
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然要是不给阿侑装插件就更好了
+

@@ -4519,3 +4519,19 @@ bgm已经3.9了<img src="https://static.saraba1st.com/image/smiley/face2017/001.
 
 活像fpx猛了一个赛季之后世界上给我来套皇子隔墙大招
 
+
+
+*****
+
+####  ViyViy  
+##### 7950#       发表于 2022-10-11 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57856415&amp;ptid=2078110" target="_blank">kata魂 发表于 2022-10-11 10:56</a>
+
+呵，看了自己以前的言论
+
+第一季结束后我还安慰自己剧情上花田对可可不薄，第二季就来这套
+
+活像fpx猛了一个 ...</blockquote>
+花天十辉是吧，照你这么比喻京吹三岂不是寄了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">实力有限转队却还是抬了几手队伍到不该站着的舞台原形毕露。
+
