@@ -7588,3 +7588,14 @@ miko会不会在线不好说
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">创造服不需要收集搬素材就是方便啊，喊人帮忙进度也快了。
 
+
+
+*****
+
+####  holoan  
+##### 2242#         楼主| 发表于 2022-10-11 22:03
+
+草光影mod加上去这效果也差太多了
+
+跟刚才别人的直播里
+
