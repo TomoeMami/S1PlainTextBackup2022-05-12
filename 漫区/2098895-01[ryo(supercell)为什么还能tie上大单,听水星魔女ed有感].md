@@ -992,3 +992,12 @@ nagi和麻子合作的那张专辑蛮好的，nagi在我眼中就是顶级打手
 op我觉得真难听 ed还没听，我就听过一首群青，两首歌的低频效果器音色一模一样，没有任何区别，然后曲子 ...</blockquote>
 ayase一言堂编曲是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所以今年两人不都准备solo一段时间了嘛
 
+
+
+*****
+
+####  marisa233  
+##### 105#       发表于 2022-10-11 13:24
+
+原来很多人认为甲铁城OP是烂曲啊,我一直觉得蛮好听得<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
