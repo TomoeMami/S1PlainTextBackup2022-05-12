@@ -5171,3 +5171,57 @@ md忘记去打分了
 
 诸如角色表现这些地雷点只是最容易被带节奏的部分。如果没办法从根本上改变故事的架构和叙事方式，拉拉动画做多少部都会面临这些问题，除非完全去回避有缺陷的人设或者去掉情节上的矛盾冲突做快乐动画。如此说来要挽救星2的失败其实很简单，放弃冲突做日常动画，尽可能把角色表现得萌萌哒，求一个大多数人开心的公约数。
 
+
+
+*****
+
+####  D麦林  
+##### 8011#       发表于 2022-10-11 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57867055&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-11 22:30</a>
+有这想法也算正常吧，爱之深</blockquote>
+要真只是这样倒好了
+就怕有人变成“虽然我动画做的确实烂但是嘴上也不能输给虹信！”然后开始厕化ttk
+我怕真有人想这么做
+
+*****
+
+####  优妮可  
+##### 8012#       发表于 2022-10-11 22:36
+
+<blockquote>D麦林 发表于 2022-10-11 22:32
+要真只是这样倒好了
+
+就怕有人变成“虽然我动画做的确实烂但是嘴上也不能输给虹信！”然后开始厕化ttk
+
+我 ...</blockquote>
+国内不是叫虹杂的么，之前所谓的星x什么ky发言惹到他们，现在星动画又出了第三季，所以是新仇旧恨一起来了。我也不知道会不会爆发什么大战。
+
+*****
+
+####  稀勢のささ  
+##### 8013#       发表于 2022-10-11 22:37
+
+看虹2的时候我还希望剧情冲突能再强点 看完星2还是算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  D麦林  
+##### 8014#       发表于 2022-10-11 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57867137&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-11 22:36</a>
+国内不是叫虹杂的么，之前所谓的星x什么ky发言惹到他们，现在星动画又出了第三季，所以是新仇旧恨一起来 ...</blockquote>
+大战倒不会吧 毕竟星动画是真的烂 才没有打起来的基础
+毕竟你再怎么说也没法把动画剧情洗回来 只能在那嚷嚷哎呀你怎么拉踩你怎么ky这种话语
+但是也挺难看的 我不忍心看这种事情发生<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星踪幻影  
+##### 8015#       发表于 2022-10-11 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57867148&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-11 22:37</a>
+
+看虹2的时候我还希望剧情冲突能再强点 看完星2还是算了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这年头所谓剧情冲突强翻车率极高的
+
