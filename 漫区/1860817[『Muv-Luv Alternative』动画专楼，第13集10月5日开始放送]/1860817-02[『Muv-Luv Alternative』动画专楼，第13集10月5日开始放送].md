@@ -879,3 +879,16 @@ BETA渡海渡河靠的是下水 ...</blockquote>
 
 muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在期望寿屋出个无比例的YF23（或者代餐不知火PHASE3），F15E/F15ACTV，F14AN3这些。
 
+
+
+*****
+
+####  oskneo  
+##### 1862#       发表于 2022-10-11 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57865294&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2022-10-11 20:16</a>
+小麻进入联合国部队前在日本陆军是大尉，貌似听别人说制作单位觉得要符合现实里鬼军曹这种形象，让人家降 ...</blockquote>
+不止吧，tda里都已经大佐了
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

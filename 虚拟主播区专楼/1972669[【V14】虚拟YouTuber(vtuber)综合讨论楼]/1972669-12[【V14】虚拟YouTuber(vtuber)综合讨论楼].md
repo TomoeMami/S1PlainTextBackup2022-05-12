@@ -11580,3 +11580,12 @@ twitter.  [https://twitter.com/baichapaofan](https://twitter.com/baichapaofan)
 
 hnn居然接到了偶像大师的工商<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  327080  
+##### 17562#       发表于 2022-10-11 21:35
+
+msr参加喷喷大会，太给面子了
+

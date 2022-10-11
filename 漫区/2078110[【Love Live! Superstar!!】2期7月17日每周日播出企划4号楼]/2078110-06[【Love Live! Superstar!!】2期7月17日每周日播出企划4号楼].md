@@ -4930,3 +4930,58 @@ yura只有一个动作，还以为是唱出来
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  starring  
+##### 7986#       发表于 2022-10-11 21:33
+
+距离A5还很遥远<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a92063256  
+##### 7987#       发表于 2022-10-11 21:33
+
+好似捏<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nufawneafg  
+##### 7988#       发表于 2022-10-11 21:33
+
+A5来年再战<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 7989#       发表于 2022-10-11 21:36
+
+嘿嘿
+
+*****
+
+####  lj205  
+##### 7990#       发表于 2022-10-11 21:38
+
+鲤鱼下周去双N广播，看看大人组能玩成啥样
+
+*****
+
+####  稀勢のささ  
+##### 7991#       发表于 2022-10-11 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">A5我们下一季再来挑战
+
+*****
+
+####  ruffian  
+##### 7992#       发表于 2022-10-11 21:40
+
+看到这个评分莫名有种安心感<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
