@@ -964,3 +964,19 @@
 
 我还以为是那个抹茶大肠<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  3Psm  
+##### 109#       发表于 2022-10-11 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57848259&amp;ptid=2098925" target="_blank">埃拉尼 发表于 2022-10-10 18:30</a>
+
+那我倒好奇了，巴铁料理和阿三料理有什么本质区别，以至于他产生了完全不同的态度？卫生上？口味上？ ...</blockquote>
+更大可能是作者感情上
+
+反正我看视频，做出来区别不大
+
+巴铁的有时候会看着卫生一些
+
