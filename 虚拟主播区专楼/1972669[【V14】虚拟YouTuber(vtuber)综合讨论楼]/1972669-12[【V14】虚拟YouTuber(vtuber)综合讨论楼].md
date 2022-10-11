@@ -11598,3 +11598,12 @@ msr参加喷喷大会，太给面子了
 
 啊菜这个食蕉2根总让我有点奇怪的联想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17564#       发表于 2022-10-12 00:30
+
+阿菜的ASMR还是以前那个味（褒义），主播和观众比谁先睡着的氛围（褒义），用几句多次重复台词带出的比地下室空气还稀薄的信息量（褒义），我的安睡天使<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+

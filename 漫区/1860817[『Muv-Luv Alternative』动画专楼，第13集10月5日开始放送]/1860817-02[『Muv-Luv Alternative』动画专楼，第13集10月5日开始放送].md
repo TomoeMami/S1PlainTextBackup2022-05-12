@@ -892,3 +892,14 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Toby_dak  
+##### 1863#       发表于 2022-10-12 00:41
+
+まりも派到联合军当卫士教官，可是富士教导队的上尉。A-01也就伊隅能跟她平起平坐。
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
