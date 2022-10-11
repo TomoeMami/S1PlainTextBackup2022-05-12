@@ -1679,3 +1679,12 @@ TV版故意删了所有Burn this city
 [https://www.zhihu.com/question/557244813/answer/2703857628](https://www.zhihu.com/question/557244813/answer/2703857628)
 买办企业荒坂公司剥削美国人民让大洋彼岸的日本人过上了好日子<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朝仓和美  
+##### 3129#       发表于 2022-10-12 07:46
+
+义体金刚测试计划一再失控，是不是坐实了超级公司也是草台？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
