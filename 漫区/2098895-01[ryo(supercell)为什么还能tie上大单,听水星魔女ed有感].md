@@ -981,3 +981,14 @@ nagi和麻子合作的那张专辑蛮好的，nagi在我眼中就是顶级打手
 
 想做令和seed这种水平可不行，想想种的水平妥妥的加分项。
 
+
+
+*****
+
+####  dev2ce  
+##### 104#       发表于 2022-10-11 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57846161&amp;ptid=2098895" target="_blank">隼雷 发表于 2022-10-10 16:20</a>
+op我觉得真难听 ed还没听，我就听过一首群青，两首歌的低频效果器音色一模一样，没有任何区别，然后曲子 ...</blockquote>
+ayase一言堂编曲是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，所以今年两人不都准备solo一段时间了嘛
+
