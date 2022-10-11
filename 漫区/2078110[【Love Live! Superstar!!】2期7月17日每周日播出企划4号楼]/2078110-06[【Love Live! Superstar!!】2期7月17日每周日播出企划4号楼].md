@@ -4721,3 +4721,15 @@ bgm已经3.9了<img src="https://static.saraba1st.com/image/smiley/face2017/001.
 
 星的问题一直是战术上的问题，战略上的构想没什么大错，也算是疫情下的优解。只不过战术上打的一塌糊涂你还想战略上赢吗，我有点恍惚，好像看到了某位空一格。而且大家的愤怒一直都不是加人，而是端水，其实不论是缪水虹，某些人的戏份就是比其他人多，但是端水端的好，大家也不会说什么。说到底骂的时候要搞清楚自己到底在讨厌什么。
 
+
+
+*****
+
+####  cat1230  
+##### 7965#       发表于 2022-10-11 17:02
+
+非常诚实，一点不塞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+等第二本写真集<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
