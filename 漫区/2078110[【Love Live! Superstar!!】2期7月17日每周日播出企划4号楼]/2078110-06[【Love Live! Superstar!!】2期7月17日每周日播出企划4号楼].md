@@ -4754,3 +4754,12 @@ bgm已经3.9了<img src="https://static.saraba1st.com/image/smiley/face2017/001.
 
 动画一季如果还能说花了点心思挽救，二期则是为了强推立德其他所有人都可以不要连水都不想端，然后京极和花田则完全摆烂脑子都不要<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 7968#       发表于 2022-10-11 17:34
+
+购买部笑疯，让她们读信还不如让她们带货
+

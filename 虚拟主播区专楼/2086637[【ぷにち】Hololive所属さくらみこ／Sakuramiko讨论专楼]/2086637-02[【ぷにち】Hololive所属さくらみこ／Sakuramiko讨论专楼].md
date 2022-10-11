@@ -7507,3 +7507,19 @@ miko会不会在线不好说
 
 开始了
 
+
+
+*****
+
+####  rs5621  
+##### 2233#       发表于 2022-10-11 17:33
+
+在聊ai作画的问题啊
+
+*****
+
+####  ZQXY2002  
+##### 2234#       发表于 2022-10-11 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">聊分组问题了
+
