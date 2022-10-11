@@ -2186,3 +2186,12 @@ mark下
 
 看来以后漫画的分镜能力更重要了，拿3d模型弄好分镜扔给AI画画，这特么一个小时画一个本子的节奏
 
+
+
+*****
+
+####  lokibear  
+##### 148#       发表于 2022-10-11 07:52
+
+有大佬分享下各种服装的咒语嘛，比如高叉，连体这种<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+

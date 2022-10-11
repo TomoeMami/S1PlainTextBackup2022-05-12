@@ -3075,3 +3075,15 @@ shorturl.at/lAGMN<img src="https://static.saraba1st.com/image/smiley/face2017/03
 感觉有内味儿了</blockquote>
 这样直接发出来不会被关小黑屋吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Issue  
+##### 241#       发表于 2022-10-11 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57853898&amp;ptid=2098197" target="_blank">Develde_001 发表于 2022-10-11 05:01</a>
+
+shorturl.at/lAGMN推销下漫区群的手抄本法术书，整理了下各种咒文tag以及坛友分享的一些用例,欢迎添 ...</blockquote>
+镜头/图片 那个transparent_background，以前验证是无效的，请问现在有效吗？
+
