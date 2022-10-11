@@ -1406,3 +1406,14 @@ Do It Yourself!!
 <img src="https://p.sda1.dev/7/1c9cfe8b80b63e15396915a3fed5c1b5/20221011_160440.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/77303c72db3a7ebde91114ded9e44472/20221011_160446.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  arthurmizuki  
+##### 118#       发表于 2022-10-11 17:23
+
+青梅边缘人吧，看着都不像主角团的
+
+总觉得女主像大雄，迷糊，家的外设也一样
+
