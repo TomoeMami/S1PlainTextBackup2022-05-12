@@ -5225,3 +5225,63 @@ md忘记去打分了
 看虹2的时候我还希望剧情冲突能再强点 看完星2还是算了吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这年头所谓剧情冲突强翻车率极高的
 
+
+
+*****
+
+####  优妮可  
+##### 8016#       发表于 2022-10-11 22:43
+
+<blockquote>D麦林 发表于 2022-10-11 22:39
+大战倒不会吧 毕竟星动画是真的烂 才没有打起来的基础
+
+毕竟你再怎么说也没法把动画剧情洗回来 只能在那嚷 ...</blockquote>
+我也不好说，得问下那些单推兄弟的想法
+
+*****
+
+####  kata魂  
+##### 8017#       发表于 2022-10-11 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">算了吧，虹跟星的矛盾时动画吗？
+
+中之人都攻击上了，动画就是个借口罢了
+
+*****
+
+####  nufawneafg  
+##### 8018#       发表于 2022-10-11 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57867174&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-11 22:39</a>
+大战倒不会吧 毕竟星动画是真的烂 才没有打起来的基础
+毕竟你再怎么说也没法把动画剧情洗回来 只能在那嚷 ...</blockquote>
+感觉要注意方式方法的话起码后花园着不起来火，至于主流平台<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 8019#       发表于 2022-10-11 22:47
+
+拜某些人孜孜不倦的努力，我个人对虹非常微妙，当然和虹本身以及虹粉没有任何关系
+
+*****
+
+####  darkendless  
+##### 8020#       发表于 2022-10-11 22:48
+
+企划斗虫罢了，除了暴露自己的愚蠢无知、内心狭隘、感情用事就是给大家提供乐子罢了。都是饭圈妹妹们玩剩下的东西，某些宅宅还觉得挺时髦。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 8021#       发表于 2022-10-11 22:48
+
+目前动画这样，当初所谓引流来的新人基本跑了，要不就是第二季还没看只知道烂了的人。再提什么新人碰瓷ky应该说不过去了吧
+
+*****
+
+####  稀勢のささ  
+##### 8022#       发表于 2022-10-11 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干架肯定少不了的  拉板天天干呢
+
