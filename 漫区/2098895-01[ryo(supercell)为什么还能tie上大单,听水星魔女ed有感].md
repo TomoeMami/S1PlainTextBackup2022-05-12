@@ -1051,3 +1051,35 @@ ayase一言堂编曲是这样的<img src="https://static.saraba1st.com/image/smi
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夜鹿 真夜中 畿田女士这仨我经常分不清谁是谁
 
+
+
+*****
+
+####  Kaiyan  
+##### 111#       发表于 2022-10-11 15:04
+
+甲铁城和fa的op我都喜欢，但这整的实在太抽象了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  greenpea  
+##### 112#       发表于 2022-10-11 15:04
+
+刚看完觉得ed只是没太深的印象，op是真有点土<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，这流水线味就像地摊上卖的五颜六色塑料玩具一样
+
+*****
+
+####  sheshiro  
+##### 113#       发表于 2022-10-11 15:06
+
+本来祝福就已经让我觉得有点乱了，这ed直接让我离开桌子潸然尿下
+
+这就是传说中的不和谐音么？
+
+*****
+
+####  肉搏光头  
+##### 114#       发表于 2022-10-11 15:09
+
+ED这种就是典型的为了新而新，在已知的美学体系外瞎搞一气。
+
