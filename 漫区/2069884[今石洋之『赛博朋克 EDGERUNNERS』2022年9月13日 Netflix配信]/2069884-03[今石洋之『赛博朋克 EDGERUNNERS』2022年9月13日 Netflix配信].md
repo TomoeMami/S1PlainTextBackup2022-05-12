@@ -1745,3 +1745,17 @@ cdpr原案更加压抑，而脱力噶最初构想包括从月球空降、炸了�
  ...</blockquote>
 萝莉劝大卫别加速，他也没听啊
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 3135#       发表于 2022-10-12 18:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57873577&amp;ptid=2069884" target="_blank">哈尔摩尼亚N 发表于 2022-10-12 12:53</a>
+
+cdpr原案更加压抑，而脱力噶最初构想包括从月球空降、炸了荒版塔
+
+怎么说呢……符合刻板印象？[f:067 ...</blockquote>
+那成连续两年被贴脸了，马上2077……大卫上塔是76年11月，V被开除是77年6月
+
