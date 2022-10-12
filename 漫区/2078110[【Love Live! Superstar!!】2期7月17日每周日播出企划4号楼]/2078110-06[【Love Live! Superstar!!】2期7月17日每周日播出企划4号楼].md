@@ -5857,3 +5857,43 @@ S1投票贴的评语「反人类粪&amp;#x ...</blockquote>
 
 多分昔の配信に言ってた
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 8076#       发表于 2022-10-12 15:22
+
+阿这<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就是随手一打的评价，这么和太君口味的吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 8077#       发表于 2022-10-12 15:22
+
+萌百这可可词条还挂着拍手歌当C，这歌其实是轮C吧，像第二季第三话那首一样。
+
+*****
+
+####  愛さ実  
+##### 8078#       发表于 2022-10-12 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57875710&amp;ptid=2078110" target="_blank">阿姆罗二世 发表于 2022-10-12 15:22</a>
+阿这就是随手一打的评价，这么和太君口味的吗
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+你火了阿姆罗二世<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阿姆罗二世  
+##### 8079#       发表于 2022-10-12 15:27
+
+先去5ch逛一圈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看看发生什么事了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
