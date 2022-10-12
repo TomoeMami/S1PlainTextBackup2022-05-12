@@ -16683,3 +16683,58 @@ Atlas Academy的几个相关人员已经都站出来说这个是假的了
 
 九纹龙娘还行，宝具九头龙（娘）
 
+
+
+*****
+
+####  蓮華  
+##### 2985#       发表于 2022-10-12 18:33
+
+普通龙娘，南瓜，勇者，灰姑娘，2个机器龙娘，Japan，大龙娘，加上九纹龙好像正好9个
+
+伊丽莎白有九个版本!
+
+惊了，那一定很多五星吧.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  longrider  
+##### 2986#       发表于 2022-10-12 18:36
+
+黄飞虎？封神跟水浒啥关系
+
+*****
+
+####  longrider  
+##### 2987#       发表于 2022-10-12 18:37
+
+呼延灼鸡儿还是没保住
+
+*****
+
+####  蓮華  
+##### 2988#       发表于 2022-10-12 18:40
+
+ 本帖最后由 蓮華 于 2022-10-12 18:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57878970&amp;ptid=2084912" target="_blank">longrider 发表于 2022-10-12 18:37</a>
+
+呼延灼鸡儿还是没保住</blockquote>
+宝具连环马，鸡儿被钩镰枪勾走了
+
+*****
+
+####  風卷豹  
+##### 2989#       发表于 2022-10-12 18:41
+
+该开始祈祷是纯性转别缝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  angelooo  
+##### 2990#       发表于 2022-10-12 18:42
+
+这黄飞虎怎么看都是儿子顶号，我印象里的武成王没有一个长这样的OTZ
+

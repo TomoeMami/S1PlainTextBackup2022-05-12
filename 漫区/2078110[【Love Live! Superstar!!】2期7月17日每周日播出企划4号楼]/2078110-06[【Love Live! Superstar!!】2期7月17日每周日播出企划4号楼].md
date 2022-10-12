@@ -6103,3 +6103,14 @@ S1身名远扬了（）
 
 o榜只统计他那些加盟店商的数据
 
+
+
+*****
+
+####  ButaiKyaku  
+##### 8100#       发表于 2022-10-12 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57877980&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-10-12 17:29</a>
+日宅：中国人「做Liella!第二季的导演和编剧切腹吧😡」 #唧喳喳翻译网# https://share.jzz.cool/jv2432?sha ...</blockquote>
+这不行，他们没有把摆烂给机翻出来，我要去给自己的评价加个日文翻译
+
