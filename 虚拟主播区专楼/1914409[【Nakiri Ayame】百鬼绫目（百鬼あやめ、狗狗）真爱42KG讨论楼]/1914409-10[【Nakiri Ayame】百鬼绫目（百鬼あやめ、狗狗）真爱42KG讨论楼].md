@@ -8032,3 +8032,22 @@ tmd怎么开始连推都不发了，还是你楼更懂绫总啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉这几个人聊不到一块去
 
+
+
+*****
+
+####  cctvyt1  
+##### 14400#       发表于 2022-10-12 10:42
+
+ 本帖最后由 cctvyt1 于 2022-10-12 10:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">委屈绫总进黄组了
+
+<img src="https://img.saraba1st.com/forum/202210/12/104539q4z4972a49vvz9qy.jpg" referrerpolicy="no-referrer">
+
+<strong>peko.JPG</strong> (194.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 10:45 上传
+

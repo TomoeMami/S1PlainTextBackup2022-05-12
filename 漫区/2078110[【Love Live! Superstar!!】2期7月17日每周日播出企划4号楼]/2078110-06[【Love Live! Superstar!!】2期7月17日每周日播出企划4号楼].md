@@ -5626,3 +5626,31 @@ YATTAZE！!<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 
 说一件搞笑的事：VN去了结丘也是进的普通科<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8056#       发表于 2022-10-12 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57871940&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-12 10:42</a>
+
+说一件搞笑的事：VN去了结丘也是进的普通科</blockquote>
+这个说不准，不是还有音乐科校服没定制好的可能（概率极低）
+
+比较靠谱的可能：入学结丘是冲着香音来的，所以进普通科此外薇恩也确实瞧不上音乐科，甚至连普通科也瞧不上
+
+*****
+
+####  Kfly  
+##### 8057#       发表于 2022-10-12 10:51
+
+重复编辑
+
+*****
+
+####  starring  
+##### 8058#       发表于 2022-10-12 10:53
+
+惨 恋 惨，怕不是以后12人还只有自己是音乐课<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
