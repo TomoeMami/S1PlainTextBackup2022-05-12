@@ -6146,3 +6146,23 @@ o榜只统计他那些加盟店商的数据
 
 这个手渡的数字一看就是为了冲第一的噱头
 
+
+
+*****
+
+####  iuhehc  
+##### 8104#       发表于 2022-10-12 20:13
+
+【歌コレ2022秋】妄想感伤代偿连盟 / DECO*27 【ペイトン尚未】
+
+https://nico.ms/sm41216843?ref=other_cap_off
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  saverok  
+##### 8105#       发表于 2022-10-12 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反人类粪作对小日子冲击力这么强的吗
+

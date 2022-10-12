@@ -488,3 +488,24 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 我无法理解的是为啥能想到去缝一个吸血女妖的，这是什么天才的想法，不过反正最近隔壁车你游缝合都车了10页 ...</blockquote>
 小教授：我绝对不要变成一个有着奇葩审美的谐星大叔啊！<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3039#       发表于 2022-10-12 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880213&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-12 20:09</a>
+
+小教授：我绝对不要变成一个有着奇葩审美的谐星大叔啊！</blockquote>
+给吸血女妖缝个顾大嫂不更好
+
+吸血吃肉
+
+*****
+
+####  khxooo  
+##### 3040#       发表于 2022-10-12 20:21
+
+而且看抽卡的对话，本来是男的，谁知道缝了后变成女的，听商店语音还模仿阿比唱歌，怕不是雌堕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
