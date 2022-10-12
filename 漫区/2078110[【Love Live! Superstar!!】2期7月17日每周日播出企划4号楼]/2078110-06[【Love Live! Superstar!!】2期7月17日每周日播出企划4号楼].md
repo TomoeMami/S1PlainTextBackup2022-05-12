@@ -6300,3 +6300,16 @@ https://nico.ms/sm41216843?ref=other_ca ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sma给点cv资源吧，这么好的嗓子别浪费了
 
+
+
+*****
+
+####  ViyViy  
+##### 8117#       发表于 2022-10-12 23:39
+
+嗯又想到个事，星这12人要正儿八经的搞C团曲的，中间数是两个，所以……
+
+后面真选举难不成选第一二名？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">轮流当香教主的陪衬，我突然明白企划的一层用意了！
+
+或者说有什么排舞是偶数单人C看上去没那么违和的吗。
+

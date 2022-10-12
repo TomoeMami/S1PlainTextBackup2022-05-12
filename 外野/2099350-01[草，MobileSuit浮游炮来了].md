@@ -542,3 +542,17 @@ macross无人机吧
 肯定要AI操纵大部分空战细节吧，不然后座要坐个Newtype才行</blockquote>
 那后座干的事大概是F2A？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  克莉丝汀  
+##### 66#       发表于 2022-10-12 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881851&amp;ptid=2099350" target="_blank">nexus1 发表于 2022-10-12 22:01</a>
+
+后座控制三台?从电竞选手里选拔飞行员吧</blockquote>
+你想多了
+
+几个G的重力加速度，  弱鸡电竞选手能吃得住几个？
+

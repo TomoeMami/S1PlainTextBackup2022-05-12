@@ -1490,3 +1490,12 @@ Do It Yourself!!
 <img src="https://p.sda1.dev/7/d426270ed0f3c35f628a78ca9fac74a8/img2.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/307cf7a2c460a22c4dd2e3c6aeea16f2/img5.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  水莲寺流歌  
+##### 125#       发表于 2022-10-12 23:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">主角名字里带you，青梅名字里带布，青梅因为主角和眼镜麻花辫同学互动而露出惊讶的表情，那么这是什么动画呢
+
