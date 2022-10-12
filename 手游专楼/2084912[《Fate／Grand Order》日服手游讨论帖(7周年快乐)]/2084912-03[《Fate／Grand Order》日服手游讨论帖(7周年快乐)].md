@@ -589,3 +589,72 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 大概wys觉得那个40%的眩晕特别“稀有”吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3048#       发表于 2022-10-12 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880706&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-12 20:43</a>
+
+君11:你说什么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都当那卡不存在了
+
+*****
+
+####  qixinno2  
+##### 3049#       发表于 2022-10-12 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880917&amp;ptid=2084912" target="_blank">zakki 发表于 2022-10-12 20:55</a>
+
+感觉不如rba拉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但老太婆起码技能强度还可以
+
+*****
+
+####  exiaexa  
+##### 3050#       发表于 2022-10-12 21:03
+
+ 本帖最后由 exiaexa 于 2022-10-12 21:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881015&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-12 21:02</a>
+
+但老太婆起码技能强度还可以</blockquote>
+你可以这么想，这就是用无死角强的卡面换来的性能刀
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 3051#       发表于 2022-10-12 21:06
+
+草，这活动什么沙雕片头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3052#       发表于 2022-10-12 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881028&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-10-12 21:03</a>
+
+你可以这么理解，这就是用无死角强的卡面换来的性能刀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你确定这卡面很好？ 前三破动作毫无变化 三破拿铁下吧啥玩意啊 就感觉一挺敷衍的的四星级别卡面
+
+*****
+
+####  quanlix  
+##### 3053#       发表于 2022-10-12 21:08
+
+去看了眼战斗动画，直接把双鞭当蝮蛇剑了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 3054#       发表于 2022-10-12 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881081&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-12 21:07</a>
+
+你确定这卡面很好？ 前三破动作毫无变化 三破拿铁下吧啥玩意啊 就感觉一挺敷衍的的四星级别卡面 ...</blockquote>
+无非就是设计没新意，但是这硬实力画功都要黑不好的话，那你游今年只能说实装了一票妖魔鬼怪了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
