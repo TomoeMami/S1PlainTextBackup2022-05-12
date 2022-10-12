@@ -308,3 +308,89 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 </blockquote>
 这次的缝合完全是迷惑行为，资料和剧情能圆得了吗……
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3024#       发表于 2022-10-12 19:35
+
+ 本帖最后由 Jamaisvu 于 2022-10-12 19:37 编辑 
+
+呼延灼的ATK是五星杀倒二，仅高于刑部姬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+宝具连发的话是每回合50绿卡、30攻击力（150的对恶特攻也不低，就是不好触发），感觉还行吧，被动也有8的绿卡加成。
+
+不过杀阶这个0.9的伤害系数...
+
+我要攒石等猴哥了<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3025#       发表于 2022-10-12 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">日TMD 不光没出黄飞虎 甚至连活动的三星礼装都没有
+
+*****
+
+####  10925  
+##### 3026#       发表于 2022-10-12 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879721&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-12 19:31</a>
+
+这次的缝合完全是迷惑行为，资料和剧情能圆得了吗……</blockquote>
+水浒传角色钦定幻灵一定要缝的
+
+史进被伊莉莎夺了主动权比较惨。
+
+呼延灼就是还是新宿的时候教授缝的，和小乙哥缝复制人一样。
+
+*****
+
+####  Jamaisvu  
+##### 3027#       发表于 2022-10-12 19:39
+
+ 本帖最后由 Jamaisvu 于 2022-10-12 19:42 编辑 
+
+呼延灼的画师是莱莎的炼金工房原画师，我说这个黑丝白毛的造型怎么有点眼熟，不就是莉拉德西亚斯嘛<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/12/194142i84cczcsz2zmmkkz.png" referrerpolicy="no-referrer">
+
+<strong>呼延灼一破.png</strong> (78.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:41 上传
+
+<img src="https://img.saraba1st.com/forum/202210/12/194212s1wm7jzj6h7w7zfw.jpg" referrerpolicy="no-referrer">
+
+<strong>2d3d670a0279836aa568f08ba447edb18dbfdd90_raw.jpg</strong> (33.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:42 上传
+
+*****
+
+####  J-002  
+##### 3028#       发表于 2022-10-12 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">十连抽到武成王和辈前屁股，收工收工
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  exiaexa  
+##### 3029#       发表于 2022-10-12 19:42
+
+我本来就想抽光石头随缘的
+
+结果这个前辈不讲武德直接拿屁股骑我脸
+
+这怎么能忍
+
+现在4单10屁股1腿4黄飞虎，不知赚亏
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

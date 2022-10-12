@@ -297,3 +297,12 @@ DOUBLE DECKER只是同为搭档系列，世界观好像还是不太一样？
 
 这个结局和最后一个镜头感觉真的彻底断掉了第三季的可能性啊……唉真的还想继续看这群英雄们啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  二重梦境  
+##### 113#       发表于 2022-10-12 19:32
+
+趴在地上想了想，剧情紧凑点把注水的内容删一删，提前一话打完boss把主线解决完，最后一话描写一下bunny是怎么继续当英雄单打独斗的，危急关头虎彻作为普通人英雄堂堂复活，观感会不会好一点<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
