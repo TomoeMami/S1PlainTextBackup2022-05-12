@@ -816,3 +816,12 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 也别呼延灼了，套皮纸片人美少女罢了
 
+
+
+*****
+
+####  铁柱子  
+##### 3068#       发表于 2022-10-12 23:05
+
+翻到抽卡界面一眼就盯上了那个大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
