@@ -5915,3 +5915,43 @@ S1投票贴的评语「反人类粪&amp;#x ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">希望版民给点力，把这句话也通过问卷和信件说给企划听
 
+
+
+*****
+
+####  ruffian  
+##### 8082#       发表于 2022-10-12 15:46
+
+拍手歌怎么看都不是可c啊，鱼就领个头收个尾，没见过词那么少应援棒占比那么低的c<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  CharlieZ-  
+##### 8083#       发表于 2022-10-12 15:46
+
+星团粪这块中日算达成共识了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ButaiKyaku  
+##### 8084#       发表于 2022-10-12 16:05
+
+粪他们心里本来就懂，我看有日本拉友不太明白反人类
+
+*****
+
+####  yicihanshu  
+##### 8085#       发表于 2022-10-12 16:16
+
+虽然但是，还是没绷住。
+
+<img src="https://img.saraba1st.com/forum/202210/12/161555j8aklflif9k9klul.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 16:15 上传
+
