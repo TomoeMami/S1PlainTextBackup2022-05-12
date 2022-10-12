@@ -5850,3 +5850,23 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 看了九夏前世多少明白了为啥选择毕业了
 
+
+
+*****
+
+####  Lamapocos  
+##### 2126#       发表于 2022-10-12 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57877050&amp;ptid=1926094" target="_blank">不智法师 发表于 2022-10-12 16:34</a>
+看了九夏前世多少明白了为啥选择毕业了</blockquote>
+大概情况是？
+
+*****
+
+####  喜闻乐见  
+##### 2127#         楼主| 发表于 2022-10-12 16:43
+
+确实，看了前世也难得乐元素总抽到这么些ssr
+
+关注绰月Coco谢谢喵
+
