@@ -5556,3 +5556,19 @@ YATTAZE！!<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ViyViy  
+##### 8049#       发表于 2022-10-12 10:00
+
+好吧，我理解了，主要是前面可可对香音说关于放弃梦想的名言导致我一直觉得明明是你在劝人+人家老好人属性想帮帮你，结果为什么突然反过来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  iuhehc  
+##### 8050#       发表于 2022-10-12 10:02
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
