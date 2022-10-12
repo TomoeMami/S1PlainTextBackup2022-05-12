@@ -796,3 +796,14 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 贺图比卡面好看</blockquote>
 这个还好，黄飞虎那个贺图才是碾压卡面。
 
+
+
+*****
+
+####  rollingusagi  
+##### 3066#       发表于 2022-10-12 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这杀阶不会就因为是石见舞菜香吧？看性格描述也是那种脆弱敏感渴望被褒奖的，真就大米洗澡本马是吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
