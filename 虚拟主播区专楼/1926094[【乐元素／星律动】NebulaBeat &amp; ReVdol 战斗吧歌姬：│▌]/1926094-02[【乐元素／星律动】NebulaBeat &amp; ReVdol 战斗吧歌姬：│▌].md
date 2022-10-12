@@ -6597,3 +6597,39 @@ nb未来不一定还叫nb
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赚大钱的可能性有多大呢，赚多大钱才行呢
 
+
+
+*****
+
+####  哥还能红  
+##### 2209#       发表于 2022-10-12 22:04
+
+厂长一直是感性的 
+要不厂长出道算了 本音和营业声线都挺好听的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黄金鸡屁屁  
+##### 2210#       发表于 2022-10-12 22:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我现在有点害怕明早起来就看到:真的鸭们好，我是卡缇娅……
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  天青月白  
+##### 2211#       发表于 2022-10-12 22:08
+
+<img src="https://p.sda1.dev/7/94d59b3b92608e09f8ccf76c5071a76e/CMP_20221012220721239.jpg" referrerpolicy="no-referrer">
+锐评了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逸yi  
+##### 2212#       发表于 2022-10-12 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881942&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-10-12 22:08</a>
+锐评了</blockquote>
+什么谜语<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

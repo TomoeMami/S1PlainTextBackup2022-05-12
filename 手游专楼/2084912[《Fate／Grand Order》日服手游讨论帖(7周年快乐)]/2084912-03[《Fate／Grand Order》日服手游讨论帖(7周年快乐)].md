@@ -765,3 +765,22 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贺图比卡面好看
 
+
+
+*****
+
+####  里村紅葉  
+##### 3063#       发表于 2022-10-12 22:02
+
+这逼活动不会一定要你BOX里有108个人吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 3064#       发表于 2022-10-12 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881067&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-10-12 21:06</a>
+
+草，这活动什么沙雕片头</blockquote>
+开幕那个黑白PV直接喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
