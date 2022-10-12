@@ -5763,3 +5763,12 @@ QQ截图20221012103146.png
 
 运营觉得自己现在还不是存量模式，那就看看到底是不是呗。
 
+
+
+*****
+
+####  saya1892  
+##### 8067#       发表于 2022-10-12 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">S1投票贴的评语「反人类粪作」变拉板流行语了
+
