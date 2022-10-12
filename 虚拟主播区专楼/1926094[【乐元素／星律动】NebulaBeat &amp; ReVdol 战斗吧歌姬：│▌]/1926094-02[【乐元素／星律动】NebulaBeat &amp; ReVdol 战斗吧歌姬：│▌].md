@@ -6097,3 +6097,73 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 等等，鱼宝要回来了？？？
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2153#         楼主| 发表于 2022-10-12 19:51
+
+厂长特地跑去上海不只一件事看来
+
+*****
+
+####  天青月白  
+##### 2154#       发表于 2022-10-12 19:53
+
+鱼宝回来？我刚点进直播间，看聊天好奇怪，有之前看的吗
+
+*****
+
+####  喜闻乐见  
+##### 2155#         楼主| 发表于 2022-10-12 19:55
+
+笑死
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h72r2z3imlj20m90e4tjv.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  isla  
+##### 2156#       发表于 2022-10-12 19:56
+
+哪个直播间？九夏的还没开啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  喜闻乐见  
+##### 2157#         楼主| 发表于 2022-10-12 19:57
+
+[https://live.bilibili.com/23029299](https://live.bilibili.com/23029299)
+
+*****
+
+####  黄金鸡屁屁  
+##### 2158#       发表于 2022-10-12 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57878298&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-10-12 17:50:32</a>
+学音乐是小时候图新鲜买了钢琴学的，还说一边弹一边哭，但是钢琴这方面其实不如夏卜卜（直播3小时扒10首 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来是从小学的，我以为是玩音乐的时候学的
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  天青月白  
+##### 2159#       发表于 2022-10-12 19:59
+
+哈哈哈哈哈哈哈哈哈哈哈太好啦太好啦。
+倒不如说当初因为日本分部整不下去直接全体毕业就是脑瘫决定。我还以为是之后就不做v这块业务了。没想过到之后又开搞，那你直接整死前一个计划是弱智吗。
+真的唏嘘，这几天我刚好看了战姬时候的录播，然后批站一直给我推，看到很多人直到现在还在发相关内容，甚至还有新的二创，还有人花钱请cos跳舞
+
+*****
+
+####  天青月白  
+##### 2160#       发表于 2022-10-12 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880034&amp;ptid=1926094" target="_blank">isla 发表于 2022-10-12 19:56</a>
+哪个直播间？九夏的还没开啊
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+鱼一yy直播间
+
