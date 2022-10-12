@@ -7866,3 +7866,12 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 <img src="https://img.saraba1st.com/forum/202210/12/190622stlq4jlx8zjcwhj4.bmp" id="aimg_1123101" onclick="zoom(this, this.src, 0, 0, 0)" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 2251#       发表于 2022-10-12 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">玩高达被虐了一晚上，又赶着去mc了
+

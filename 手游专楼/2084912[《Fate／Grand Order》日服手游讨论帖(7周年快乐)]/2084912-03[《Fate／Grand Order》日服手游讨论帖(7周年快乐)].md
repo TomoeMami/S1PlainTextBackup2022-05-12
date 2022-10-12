@@ -509,3 +509,23 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 而且看抽卡的对话，本来是男的，谁知道缝了后变成女的，听商店语音还模仿阿比唱歌，怕不是雌堕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3041#       发表于 2022-10-12 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880265&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-10-12 20:13</a>
+
+给吸血女妖缝个顾大嫂不更好
+
+吸血吃肉</blockquote>
+感觉是先挑了战斗特化的天威星呼延灼，
+
+然后觉得他需要有马才能发挥战斗力，
+
+于是缝了个自带马腿的女妖恩浦萨，
+
+我觉得呼延灼抱有恨意的对象其实不是燕青而是老教授<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
