@@ -5800,3 +5800,22 @@ S1投票贴的评语「反人类粪&amp;#x ...</blockquote>
 
 好奇怎么检索到的，这就是华语第三的含金量吗。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ButaiKyaku  
+##### 8071#       发表于 2022-10-12 13:17
+
+有逛5ch的坛友搬运的吧，，可惜我发的那句他们好像都看不懂
+
+*****
+
+####  darkendless  
+##### 8072#       发表于 2022-10-12 13:22
+
+<blockquote>29名无しで叶える物语(もんじゃ)2022/10/12(水) 13:30:48.08ID:+sEso0r/
+
+阿姆罗二世さん、名言がラ版で流行ってることを知ったらどんな気持ちだろw</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
