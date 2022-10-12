@@ -5687,3 +5687,33 @@ QQ截图20221012103146.png
 
 <img src="https://img.saraba1st.com/forum/202210/12/111318cqx6i42v2yvs0kme.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8061#       发表于 2022-10-12 11:18
+
+如果让我编我肯定不会让千去普通科的，这段剧情怎么想都傻x……要我写就让香音努努力转去音乐课，想推香千就加个约定“在音乐科等你/我哦。”然后二期生里夏美不是网红吗，音乐课可拍的东西多所以去了(人设可以参考下隔壁爱丽数码)，樱小路不是比较迷糊能迷路到楼顶吗？就说她报错名了阴差阳错进了音乐课，这样一来liella看上她哪点非要拉她上船也有解释了。
+
+音乐课：恋、小千、香音(高二)、樱小路、夏美
+普通课：可可、堇、四季、芽衣、香音(高一)
+
+还方便你们拆可香推你那b官推<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kfly  
+##### 8062#       发表于 2022-10-12 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57872285&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-10-12 11:07</a>
+
+但很明显星动画的定位不是粉丝向作品，甚至不能算面向偶像宅的作品，做粉丝向作品沿袭虹动画讨好粉丝兼顾 ...</blockquote>
+星的定位确实应该是比较偏向大众，而不那么照顾粉丝的
+
+问题在于它没能讨好大众，就只能退而求其次讨好粉丝了，然而粉丝也不卖账啊
+
+要剧情剧情不行，要角色角色不行，真有点“结丘音乐科吹得很猛、实际谁都瞧不上”的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
