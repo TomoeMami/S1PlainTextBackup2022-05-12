@@ -5819,3 +5819,12 @@ S1投票贴的评语「反人类粪&amp;#x ...</blockquote>
 阿姆罗二世さん、名言がラ版で流行ってることを知ったらどんな気持ちだろw</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 8073#       发表于 2022-10-12 13:51
+
+喂，那个搬运的人，应该把第一季的评分楼也附上作为对比
+
