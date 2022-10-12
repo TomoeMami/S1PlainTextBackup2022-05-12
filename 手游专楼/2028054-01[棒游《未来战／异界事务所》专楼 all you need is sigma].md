@@ -41,3 +41,12 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  xiongxingyu  
+##### 790#       发表于 2022-10-12 14:20
+
+辣个女人终于降临日服了，然后n社这礼拜上来就把副社长给ban2了。大姐，不至于啊，日服这环境光有副社长没有天平线不照样被对面天平线嗷嗷乱杀，好歹给人留点反制手段啊，n社你这样搞，不就变成两个天平线战到大道都磨灭了，下满一堆被顺手剐死的双方队友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

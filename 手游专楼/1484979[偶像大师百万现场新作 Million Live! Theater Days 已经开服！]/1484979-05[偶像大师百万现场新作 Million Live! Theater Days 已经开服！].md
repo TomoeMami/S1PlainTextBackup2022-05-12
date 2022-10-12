@@ -105,3 +105,12 @@ miki的繁中服加到兑换里很久了，当时换了想回个贴来着结果�
 
 刚肝完13人组活是这样的，体力药都烧干了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  花开安菲路  
+##### 7021#       发表于 2022-10-12 14:12
+
+商店里能换72双马尾SSR和志保黑猫SR了，然而并没有双马尾，我也没花🌸了
+
