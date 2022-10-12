@@ -6001,3 +6001,22 @@ S1投票贴的评语「反人类粪&amp;#x ...</blockquote>
 日宅：中国人「做Liella!第二季的导演和编剧切腹吧😡」 #唧喳喳翻译网# https://share.jzz.cool/jv2432?share_src=desc
 S1身名远扬了（）
 
+
+
+*****
+
+####  超法拉  
+##### 8090#       发表于 2022-10-12 17:34
+
+这论坛好卡啊
+蚌埠住了
+
+*****
+
+####  Kfly  
+##### 8091#       发表于 2022-10-12 17:41
+
+“不是进行对罪人的斩首，而是推荐光荣的切腹，中国的粉丝们真有情义啊”
+
+原来切腹是偏褒义的死法啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -16643,3 +16643,20 @@ Atlas Academy的几个相关人员已经都站出来说这个是假的了
 这个大圣会不会也是女的(</blockquote>
 猴子变人经常变女的，所以一二三破都是女体，最后变裸猿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 2981#       发表于 2022-10-12 17:36
+
+ 本帖最后由 exiaexa 于 2022-10-12 17:39 编辑 
+
+金材料卡人不可能跟铜材料一个水平
+实装白方块以后就更是了
+
+大部分活动最后几关都是金材料主掉落，只要你想刷很快就能解决，而且重点是次数少不精污
+
+铜材料，特别是新铜材料用量一大就得去free吃屎，除非无限池不然根本解决不了，常规活动本都不安排在最高效率本，至于狩猎本要不是逼急了，除了羁绊控谁有空刷这玩意儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

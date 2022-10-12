@@ -8086,3 +8086,17 @@ EX任务中出现的货柜 → 一律上升为5倍
 
 WZ的sub2感觉从16S一发变成8S一发
 
+
+
+*****
+
+####  920619lqy  
+##### 770#       发表于 2022-10-12 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57876196&amp;ptid=2051733" target="_blank">Ky·Kiske 发表于 2022-10-12 01:45</a>
+
+感觉有几台机的SUB冷却减少了
+
+WZ的sub2感觉从16S一发变成8S一发</blockquote>
+SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
+
