@@ -11607,3 +11607,22 @@ msr参加喷喷大会，太给面子了
 
 阿菜的ASMR还是以前那个味（褒义），主播和观众比谁先睡着的氛围（褒义），用几句多次重复台词带出的比地下室空气还稀薄的信息量（褒义），我的安睡天使<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天悬星河  
+##### 17565#       发表于 2022-10-12 11:03
+
+2022NJU持续三天，可能包含付费内容
+
+<img src="https://img.saraba1st.com/forum/202210/12/110251xvn0d8l86j997gj6.png" referrerpolicy="no-referrer">
+
+<strong>20221012110228.png</strong> (59.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 11:02 上传
+
+[https://wakuwari.go.jp/assets/pdf/eventlist.pdf](https://wakuwari.go.jp/assets/pdf/eventlist.pdf)
+

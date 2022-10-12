@@ -5654,3 +5654,36 @@ YATTAZE！!<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 
 惨 恋 惨，怕不是以后12人还只有自己是音乐课<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  darkendless  
+##### 8059#       发表于 2022-10-12 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57869393&amp;ptid=2078110" target="_blank">星降る森 发表于 2022-10-12 01:01</a>
+其实你说的这些对偶像番不怎么适用，偶像番是极度粉丝向的东西，角色是远大于剧情本身的，外面评价不怎么 ...</blockquote>
+但很明显星动画的定位不是粉丝向作品，甚至不能算面向偶像宅的作品，做粉丝向作品沿袭虹动画讨好粉丝兼顾各种偶像宅的幻想和玻璃心才是更一般的思路。京极曾经坦白过做lovelive动画是想让路人也能享受，无印作为开荒期的动画这样的思路没什么问题，但前提也是做得好看。估计做星的时候他的思路还是和以前一样，但现在拉拉的体量和粉丝群体已经今非昔比了，而且这次动画确实难看。
+
+粉丝拿着对偶像动画的评价去框星动画当然会发怒，星2后期的评分完全不能说是对这部动画质量的客观反映，后期的评分几乎没有参考意义。我现在已经不是企划粉丝了，脱离粉丝视角这不就是又臭又长的低龄动画烂片。
+
+不过这次粉丝发怒应该有助于让上面的人改变动画方针，做萌萌动画贩卖感动才是这种已经成熟的偶像企划的真理。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tuna  
+##### 8060#       发表于 2022-10-12 11:11
+
+ 本帖最后由 tuna 于 2022-10-12 11:13 编辑 
+
+这下宗教了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+QQ截图20221012103146.png
+(36.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 11:13 上传
+
+<img src="https://img.saraba1st.com/forum/202210/12/111318cqx6i42v2yvs0kme.png" referrerpolicy="no-referrer">
+
