@@ -590,3 +590,43 @@ cg不错啊，空军能不能搞点好电影<img src="https://static.saraba1st.c
 cg没啥意思，默认战恐局工作</blockquote>
 说cg的认真看一下第二张的光和影子。我从未见过tg做出这种电影级别的cg。
 
+
+
+*****
+
+####  Ichthys  
+##### 71#       发表于 2022-10-12 23:52
+
+无人机有点眼熟啊
+
+*****
+
+####  1242599693  
+##### 72#       发表于 2022-10-12 23:55
+
+这不是雪风跟他的三个无人机小弟吗
+
+*****
+
+####  Mafise  
+##### 73#       发表于 2022-10-12 23:55
+
+ 本帖最后由 Mafise 于 2022-10-12 23:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883127&amp;ptid=2099350" target="_blank">abcbuzhiming 发表于 2022-10-12 23:50</a>
+说cg的认真看一下第二张的光和影子。我从未见过tg在新闻报道里做出这种“”电影级别的cg“”。 ...</blockquote>
+...朋友你这么自信地下判断容易惹笑话
+第一这明显是cg，第二攻击11和双座j20到现在也没一张飞行的照片，第三你可以去看看视频...
+
+— from OnePlus BE2029, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  abcbuzhiming  
+##### 74#       发表于 2022-10-12 23:59
+
+<blockquote>Mafise 发表于 2022-10-12 23:55
+...朋友你这么自信地下判断容易惹笑话
+
+第一这明显是cg，第二攻击11和双座j20到现在也没一张飞行的照片， ...</blockquote>
+给个视频地址
+
