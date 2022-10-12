@@ -68,3 +68,77 @@
 
 这是人类能想出来的缝合吗OTZ
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3007#       发表于 2022-10-12 19:07
+
+呼延灼看召唤台词，本体是男的，因为缝合了幻灵而变成了女性，还是杀阶，战斗能力也劣化了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 3008#       发表于 2022-10-12 19:11
+
+搬运一下满破图和解包：
+
+<img src="https://img.saraba1st.com/forum/202210/12/191105bhbkk69ttbse6kb7.jpg" referrerpolicy="no-referrer">
+
+<strong>10665FC55F2445184E383BFDAEBA6B81.jpg</strong> (364.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202210/12/191106pzqhwqpzo6rv6jks.jpg" referrerpolicy="no-referrer">
+
+<strong>4508E1F8DE46115DD7F50D419A3BFCD3.jpg</strong> (270.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202210/12/191107dzkw4z4c1cs11c3l.jpg" referrerpolicy="no-referrer">
+
+<strong>DBF54C0EA2DEA63825FD0D45E1025FC8.jpg</strong> (292.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202210/12/191108qhfiir4fmai0rc0h.jpg" referrerpolicy="no-referrer">
+
+<strong>E012F34FF07E467811D4C13C84350965.jpg</strong> (419.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202210/12/191109mzq76p0qed36676z.jpg" referrerpolicy="no-referrer">
+
+<strong>AA0999B442F84148E420E528AC193AEA.jpg</strong> (450.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:11 上传
+
+<img src="https://img.saraba1st.com/forum/202210/12/191110dygenemy6us3mwe3.jpg" referrerpolicy="no-referrer">
+
+<strong>7AF08597B50F996612FCAAB7A3B6E826.jpg</strong> (410.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:11 上传
+
+*****
+
+####  alucardcz  
+##### 3009#       发表于 2022-10-12 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879192&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-12 18:53</a>
+
+杀阶你开玩笑呢，问过最强杀光炮（指红拐）杀兔的意见了吗，三选一的女武神也在看着你～ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">30自充绿卡光炮    为什么绿卡还只有30自充呢
+

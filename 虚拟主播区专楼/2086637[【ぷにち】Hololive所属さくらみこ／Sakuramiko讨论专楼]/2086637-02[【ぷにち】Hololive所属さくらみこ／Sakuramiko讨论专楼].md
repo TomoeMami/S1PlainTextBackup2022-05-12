@@ -7848,3 +7848,21 @@ twitter自动字幕，未修正 <blockquote>うーん、谁が言い出やる？
 
 ENID的参与：其实很想像去年一样让全员参赛但实际难度很大，考虑到语言和时差问题，对运营和参加者都有不小的负担，因此实际并未邀请所有人参加
 
+
+
+*****
+
+####  rs5621  
+##### 2250#       发表于 2022-10-12 19:07
+
+高达进化，启动！
+
+_~O~TRS)Y0E@GD(5CTTZ8OS.bmp
+(228.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:06 上传
+
+<img src="https://img.saraba1st.com/forum/202210/12/190622stlq4jlx8zjcwhj4.bmp" id="aimg_1123101" onclick="zoom(this, this.src, 0, 0, 0)" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
