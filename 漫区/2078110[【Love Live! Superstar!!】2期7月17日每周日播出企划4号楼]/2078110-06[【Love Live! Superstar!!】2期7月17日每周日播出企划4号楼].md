@@ -6043,3 +6043,17 @@ S1身名远扬了（）
 蚌埠住了</blockquote>
 今天上午确实卡啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 8094#       发表于 2022-10-12 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57878301&amp;ptid=2078110" target="_blank">阿姆罗二世 发表于 2022-10-12 17:50</a>
+
+切腹确实是光荣的死法，斩首才是处刑
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+那以后还是用“请花田找个断头台自我了断”的说法得了
+

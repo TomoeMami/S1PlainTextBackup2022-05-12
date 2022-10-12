@@ -914,3 +914,12 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 
 不过OP还是深得遗老心的
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1865#       发表于 2022-10-12 17:50
+
+这集是不是就要<img src="https://static.saraba1st.com/image/smiley/carton2017/096.gif" referrerpolicy="no-referrer">（按说小麻在前，但是举例知名度的话肯定是这位）
+
