@@ -190,3 +190,121 @@ wys：我想请他们直接把绿卡删了但他们不让，那就意思意思�
 
 感觉RBA也没能带绿卡队起飞，设计上是不是过于克制了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3015#       发表于 2022-10-12 19:25
+
+2发20连
+
+黄飞虎new 呼延灼new，五星礼装无
+
+想要屁股礼装
+
+*****
+
+####  qixinno2  
+##### 3016#       发表于 2022-10-12 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879540&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-12 19:18</a>
+
+欧洲人就是这么牛比</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜材料恶心死了
+
+*****
+
+####  壳壳牛  
+##### 3017#       发表于 2022-10-12 19:27
+
+艹又是72把仪式剑，wnm
+
+*****
+
+####  yzj134100  
+##### 3018#       发表于 2022-10-12 19:27
+
+40护肤，5张屁股礼装  值了
+
+*****
+
+####  angelooo  
+##### 3019#       发表于 2022-10-12 19:27
+
+<blockquote>qixinno2 发表于 2022-10-12 19:26
+TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜材料恶心死了 ...</blockquote>
+那你大屁股礼装出了没……
+
+*****
+
+####  Jamaisvu  
+##### 3020#       发表于 2022-10-12 19:28
+
+ 本帖最后由 Jamaisvu 于 2022-10-12 19:30 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/12/192708ln3n4n3ootraaokz.png" referrerpolicy="no-referrer">
+
+<strong>1665574016826.png</strong> (98.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:27 上传
+
+呼延灼的羁绊礼装和罗兰那个有异曲同工之妙（不是
+
+这个角色的固有印象是鞭和腿吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/12/192908cg7wnfwddrkzw7pp.png" referrerpolicy="no-referrer">
+
+<strong>1665574119122.png</strong> (101.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:29 上传
+
+九纹龙x
+
+九节鞭√
+
+<img src="https://img.saraba1st.com/forum/202210/12/192909b8c859v88xv8zh9v.png" referrerpolicy="no-referrer">
+
+<strong>1665574130342.png</strong> (78.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 19:29 上传
+
+这个应该就是啄伤妲己的金眼神莺吧？
+
+*****
+
+####  qixinno2  
+##### 3021#       发表于 2022-10-12 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879667&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-12 19:27</a>
+
+那你大屁股礼装出了没……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">出了一张
+
+*****
+
+####  angelooo  
+##### 3022#       发表于 2022-10-12 19:30
+
+<blockquote>qixinno2 发表于 2022-10-12 19:28
+出了一张</blockquote>
+出了就好哇，那从者当附带的好了
+
+*****
+
+####  angelooo  
+##### 3023#       发表于 2022-10-12 19:31
+
+<blockquote>Jamaisvu 发表于 2022-10-12 19:28
+呼延灼的羁绊礼装和罗兰那个有异曲同工之妙（不是
+
+这个角色的固有印象是鞭和腿吗
+</blockquote>
+这次的缝合完全是迷惑行为，资料和剧情能圆得了吗……
+
