@@ -16738,3 +16738,98 @@ Atlas Academy的几个相关人员已经都站出来说这个是假的了
 
 这黄飞虎怎么看都是儿子顶号，我印象里的武成王没有一个长这样的OTZ
 
+
+
+*****
+
+####  黑上シグマ  
+##### 2991#       发表于 2022-10-12 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57878945&amp;ptid=2084912" target="_blank">longrider 发表于 2022-10-12 18:36</a>
+
+黄飞虎？封神跟水浒啥关系</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小龙娘 封神 演义，封神演义在第三个（
+
+*****
+
+####  Jamaisvu  
+##### 2992#       发表于 2022-10-12 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57878945&amp;ptid=2084912" target="_blank">longrider 发表于 2022-10-12 18:36</a>
+
+黄飞虎？封神跟水浒啥关系</blockquote>
+活动叫小龙娘水浒演义...
+
+小龙娘有了，水浒传的呼延灼有了，还差个演义<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">就是你了黄飞虎！（为啥不是黄天化，感觉他人气应该高点...）
+
+*****
+
+####  angelooo  
+##### 2993#       发表于 2022-10-12 18:45
+
+<blockquote>Jamaisvu 发表于 2022-10-12 18:43
+活动叫小龙娘水浒演义...
+
+小龙娘有了，水浒传的呼延灼有了，还差个演义就是你了黄飞虎！（为啥不 ...</blockquote>
+奇怪的是天化在宝具名称里……
+
+*****
+
+####  Jamaisvu  
+##### 2994#       发表于 2022-10-12 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879020&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-12 18:42</a>
+
+这黄飞虎怎么看都是儿子顶号，我印象里的武成王没有一个长这样的OTZ</blockquote>
+看宝具满门英烈的架势，就是本人...
+
+*****
+
+####  廖化  
+##### 2995#       发表于 2022-10-12 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879020&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-12 18:42</a>
+
+这黄飞虎怎么看都是儿子顶号，我印象里的武成王没有一个长这样的OTZ</blockquote>
+看他宝具，全家一起上，就差老婆了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 2996#       发表于 2022-10-12 18:48
+
+这呼延灼露了脸还不如遮起来……这池子也可以省了，还好送的九纹龙娘可爱～
+
+*****
+
+####  angelooo  
+##### 2997#       发表于 2022-10-12 18:49
+
+<blockquote>廖化 发表于 2022-10-12 18:47
+看他宝具，全家一起上，就差老婆了</blockquote>
+在外面省流量没看宝具，那没事了233
+
+*****
+
+####  在海岸  
+##### 2998#       发表于 2022-10-12 18:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黄飞虎也太tm搞了，把全家吸了一炮打出去
+
+*****
+
+####  alucardcz  
+##### 2999#       发表于 2022-10-12 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879097&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-12 18:48</a>
+
+这呼延灼露了脸还不如遮起来……这池子也可以省了，还好送的九纹龙娘可爱～ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝具什么颜色啊 有没有可能直接来了绿红蓝王
+
+*****
+
+####  廖化  
+##### 3000#       发表于 2022-10-12 18:50
+
+这次是封神缝水浒，下次就应该是三国缝西游了吧YLS<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
