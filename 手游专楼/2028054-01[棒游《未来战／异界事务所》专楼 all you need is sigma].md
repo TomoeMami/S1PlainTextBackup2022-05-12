@@ -75,3 +75,17 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  玄冥忌  
+##### 793#       发表于 2022-10-13 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881816&amp;ptid=2028054" target="_blank">rgauss 发表于 2022-10-12 22:59</a>
+黑攻速就行 pvp可用cd顶着
+当然最好的是t7攻速 一般人凑不出来的</blockquote>
+非常感谢
+
+—— 来自 blackshark SHARK KLE-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

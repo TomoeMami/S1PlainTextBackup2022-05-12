@@ -751,3 +751,73 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 
 得吃十五个宝才能变出这三个僚机吧
 
+
+
+*****
+
+####  kina  
+##### 87#       发表于 2022-10-13 02:04
+
+无人机会被这么用难道还需要惊讶？
+
+*****
+
+####  saxony  
+##### 88#       发表于 2022-10-13 02:15
+
+双座型是为了控制无人僚机?这部分是不能用AI取代吗?<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  最终流放  
+##### 89#       发表于 2022-10-13 02:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883186&amp;ptid=2099350" target="_blank">1242599693 发表于 2022-10-12 23:55</a>
+这不是雪风跟他的三个无人机小弟吗</blockquote>
+严禁人机非任务感情交流！
+
+*****
+
+####  小李子大脸猫  
+##### 90#       发表于 2022-10-13 02:45
+
+四架飞机合体，这我知道，「破邪大星弹劾凰」<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  莫吉  
+##### 91#       发表于 2022-10-13 03:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57882893&amp;ptid=2099350" target="_blank">库巴大魔王 发表于 2022-10-12 23:30</a>
+
+那后座干的事大概是F2A？</blockquote>
+3条飞龙，甩的飞起
+
+*****
+
+####  四宫家印  
+##### 92#       发表于 2022-10-13 03:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881693&amp;ptid=2099350" target="_blank">hgcfgbv 发表于 2022-10-12 21:50</a></blockquote>
+这不得换成黑底白色粗宋体日文汉字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  stannislas  
+##### 93#       发表于 2022-10-13 03:35
+
+后座又不用真的飞无人机，无人机用ai自己给自己的，后座主要是确保人在回路中+不依赖网络的分布式决策+快速反应及事态感知
+
+*****
+
+####  绝对冷静  
+##### 94#       发表于 2022-10-13 05:49
+
+浮游炮0.1
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

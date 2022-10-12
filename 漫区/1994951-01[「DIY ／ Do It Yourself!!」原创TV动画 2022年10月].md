@@ -1523,3 +1523,14 @@ ED：[https://youtu.be/iAc8yYTVtGE](https://youtu.be/iAc8yYTVtGE)
 
 越想越不对劲，搞不好本作其实和电脑线圈共用一个世界观。
 
+
+
+*****
+
+####  Lucario  
+##### 128#       发表于 2022-10-13 02:06
+
+第二集青梅竹马趴在公交上看女主和新朋友们**，一副被ntr的表情看着真乐 
+
+顺便第二集解决了女主手笨别把自己整的缺胳膊少腿的问题，部长顶多让她做做拿原材料的辅助活，各种工具都不让她用，应该能全须全尾的活到最后了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

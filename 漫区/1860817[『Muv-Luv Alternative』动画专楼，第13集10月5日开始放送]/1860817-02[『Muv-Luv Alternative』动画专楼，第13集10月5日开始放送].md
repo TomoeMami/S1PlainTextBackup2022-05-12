@@ -932,3 +932,49 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 
 小麻……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  镜hinata  
+##### 1867#       发表于 2022-10-13 02:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">不要啊
+
+*****
+
+####  天剑流星  
+##### 1868#       发表于 2022-10-13 02:23
+
+除了最后的名场景以外整话比预期当中要好得多，尤其是几处关键场景的情感渲染很到位，但名场景部分，怎么说呢，感觉原作当中的那种突兀感没有很好的体现出来，也有可能是自己已经知道后续剧情的缘故，反倒是倒计时的时候一直在提心吊胆。
+
+*****
+
+####  菱0零  
+##### 1869#       发表于 2022-10-13 03:11
+
+果然还是原作cg直接冲击性场面糊脸效果最好呢<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 1870#       发表于 2022-10-13 03:16
+
+不会是藏刀吧  第一刀没震撼糊脸  第二刀再放出来那画面  <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  LRS2376852435  
+##### 1871#       发表于 2022-10-13 03:58
+
+动画名场面真拉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  startea15  
+##### 1872#       发表于 2022-10-13 04:52
+
+感觉还是因为动画面向群体的问题所以不能把名场面这里做得过激，处理得相对就没有cg那么有冲击力显得拉了也很正常。
+
