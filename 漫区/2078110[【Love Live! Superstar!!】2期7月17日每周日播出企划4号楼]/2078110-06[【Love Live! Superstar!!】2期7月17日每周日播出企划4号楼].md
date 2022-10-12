@@ -6313,3 +6313,25 @@ https://nico.ms/sm41216843?ref=other_ca ...</blockquote>
 
 或者说有什么排舞是偶数单人C看上去没那么违和的吗。
 
+
+
+*****
+
+####  仟音一心  
+##### 8118#       发表于 2022-10-12 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57882997&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-12 23:39</a>
+嗯又想到个事，星这12人要正儿八经的搞C团曲的，中间数是两个，所以……
+
+后面真选举难不成选第一二名？？[f ...</blockquote>
+虹咲12人经常玩双C，第二季经常是步梦岚珠双C。
+
+*****
+
+####  iuhehc  
+##### 8119#       发表于 2022-10-12 23:48
+
+又有楼友把这栋楼的发言也搬过去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
