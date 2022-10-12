@@ -5717,3 +5717,16 @@ QQ截图20221012103146.png
 
 要剧情剧情不行，要角色角色不行，真有点“结丘音乐科吹得很猛、实际谁都瞧不上”的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  darkendless  
+##### 8063#       发表于 2022-10-12 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57872475&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-12 11:18</a>
+星的定位确实应该是比较偏向大众，而不那么照顾粉丝的
+
+问题在于它没能讨好大众，就只能退而求其次讨好粉 ...</blockquote>
+这破动画根本没想过讨好粉丝，吸引路人失败后剩下的烂摊子就是粉丝发怒和吵架了。反正路人已经开始追下个季度的动画了，除了粉丝谁在乎烂片。建议留存的粉丝把注意力转移到其他方面，毕竟内容上只有动画真的烂了，其他的都还能看看。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
