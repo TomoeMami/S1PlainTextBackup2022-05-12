@@ -5897,3 +5897,21 @@ S1投票贴的评语「反人类粪&amp;#x ...</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 8080#       发表于 2022-10-12 15:36
+
+喷了，现在反人类粪作都成拉版星二代称了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 8081#       发表于 2022-10-12 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">希望版民给点力，把这句话也通过问卷和信件说给企划听
+
