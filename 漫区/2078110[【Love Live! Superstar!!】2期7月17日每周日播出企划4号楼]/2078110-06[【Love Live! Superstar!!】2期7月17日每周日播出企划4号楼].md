@@ -5519,3 +5519,40 @@ YATTAZE！!<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 
 虽然这颇有种剥夺冠军奖杯的清算，但是不是那时就初现端弥了？
 
+
+
+*****
+
+####  player3960  
+##### 8046#       发表于 2022-10-12 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57871152&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-12 09:27:40</a>
+我突然想起来一件事，一期可香篇的时候一直有一句话让我有些膈应到现在，那就是香音说自己做不到的时候可可 ...</blockquote>没有吧，第一季一到三集，香音可是帮了可可不少哦，帮她对付恋，帮她招人，你也不能说可可拉着她前进，她也是付出了不少的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kfly  
+##### 8047#       发表于 2022-10-12 09:46
+
+ 本帖最后由 Kfly 于 2022-10-12 09:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57871152&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-12 09:27</a>
+
+我突然想起来一件事，一期可香篇的时候一直有一句话让我有些膈应到现在，那就是香音说自己做不到的时候可可 ...</blockquote>
+这个到没有吧，前三集可香是互相扶持的，就比如第一集香音挡在可可前面和恋对峙、第一二集帮可可找可以一起做偶像的人、第二三集和可可一起练习…………
+
+这些对渡海而来、孤身一人的可可来说就是莫大的鼓励啊
+可香篇为什么是神
+
+*****
+
+####  ads147147  
+##### 8048#       发表于 2022-10-12 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57871152&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-12 09:27</a>
+我突然想起来一件事，一期可香篇的时候一直有一句话让我有些膈应到现在，那就是香音说自己做不到的时候可可 ...</blockquote>
+可香是相互成就的，问题不大。小千也是香音请来给可可做集训的，第三话抱抱那段就算水到渠成。哪里像是樱小路那段我完全看不懂为什么她们两就好到可以抱抱了。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
