@@ -8057,3 +8057,12 @@ EX任务中出现的货柜 → 一律上升为5倍
 
 有几个改动确实改善游戏体验
 
+
+
+*****
+
+####  丹德里恩  
+##### 767#       发表于 2022-10-12 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这改动...你们也知道原来有问题啊
+

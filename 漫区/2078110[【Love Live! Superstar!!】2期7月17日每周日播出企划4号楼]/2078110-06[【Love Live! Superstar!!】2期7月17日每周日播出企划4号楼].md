@@ -5617,3 +5617,12 @@ YATTAZE！!<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 ####  Kfly  
 ##### 8054#       发表于 2022-10-12 10:33
 
+
+
+*****
+
+####  沙茶酱  
+##### 8055#       发表于 2022-10-12 10:42
+
+说一件搞笑的事：VN去了结丘也是进的普通科<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
