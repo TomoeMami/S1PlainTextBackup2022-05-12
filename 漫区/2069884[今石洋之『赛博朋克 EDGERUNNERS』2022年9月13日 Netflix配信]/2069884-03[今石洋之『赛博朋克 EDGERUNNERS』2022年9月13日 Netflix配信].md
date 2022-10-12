@@ -1720,3 +1720,15 @@ TV版故意删了所有Burn this city
 那B站上说的V50级3项数值满20也是出自桌游设定吗，看他们吹得振振有词的</blockquote>
 明显是把电子游戏数值代入了呗，v根本没有官方公式卡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而且电子游戏数值和trpg数值肯定不能直接转换
 
+
+
+*****
+
+####  哈尔摩尼亚N  
+##### 3133#       发表于 2022-10-12 12:53
+
+cdpr原案更加压抑，而脱力噶最初构想包括从月球空降、炸了荒版塔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+怎么说呢……符合刻板印象？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
