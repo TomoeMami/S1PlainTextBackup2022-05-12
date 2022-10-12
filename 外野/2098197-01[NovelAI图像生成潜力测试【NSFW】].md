@@ -3281,3 +3281,12 @@ shorturl.at/lAGMN推销下漫区群的手抄本法术书，整理了下各种咒
 
 <img src="https://img.saraba1st.com/forum/202210/12/112357a1kxabw28og1zmww.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  提货人  
+##### 258#       发表于 2022-10-12 11:45
+
+顺便吐个槽，不知道是不是玩过火了，我roll nsfw的时候都是二次元图，想正经roll几张反而都出的2.5次元厚涂风格的...而且想改太挺难，AI不知道为啥特别执着
+

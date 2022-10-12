@@ -7645,3 +7645,23 @@ miko会不会在线不好说
 
 网友锐评miko吃饭看链锯人
 
+
+
+*****
+
+####  rs5621  
+##### 2247#       发表于 2022-10-12 11:53
+
+这能下饭就离谱了，妥妥的血浆片爱好者。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 2248#       发表于 2022-10-12 11:53
+
+这能下饭就离谱了，妥妥的血浆片爱好者。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

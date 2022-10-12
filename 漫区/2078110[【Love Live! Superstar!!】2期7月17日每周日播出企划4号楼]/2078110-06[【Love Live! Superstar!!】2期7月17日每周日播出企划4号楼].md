@@ -5730,3 +5730,16 @@ QQ截图20221012103146.png
 问题在于它没能讨好大众，就只能退而求其次讨好粉 ...</blockquote>
 这破动画根本没想过讨好粉丝，吸引路人失败后剩下的烂摊子就是粉丝发怒和吵架了。反正路人已经开始追下个季度的动画了，除了粉丝谁在乎烂片。建议留存的粉丝把注意力转移到其他方面，毕竟内容上只有动画真的烂了，其他的都还能看看。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 8064#       发表于 2022-10-12 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57872285&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-10-12 11:07</a>
+但很明显星动画的定位不是粉丝向作品，甚至不能算面向偶像宅的作品，做粉丝向作品沿袭虹动画讨好粉丝兼顾 ...</blockquote>
+我看没到激进粉给制作组发威胁信那一步是不会改的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
