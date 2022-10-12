@@ -7975,3 +7975,12 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 哦我差点忘了，每次周二休息完后的周三她状态都很嗨。
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2261#       发表于 2022-10-13 01:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">看来发布会那天的评论让miko很受打击啊。分组问题推特空间说了一遍，今天开播开始也说了一遍，现在结束了又给35p说一遍。正巧，我打字时提到那天的评论区事情了。
+
