@@ -1468,3 +1468,25 @@ Do It Yourself!!
 [https://twitter.com/shioritani7/status/1579044536927817730](https://twitter.com/shioritani7/status/1579044536927817730)
 <img src="https://p.sda1.dev/7/e713b254d66bd2df2b75906608fcd30d/20221012_121933.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 124#       发表于 2022-10-12 23:25
+
+ 本帖最后由 千恋万花 于 2022-10-12 23:29 编辑 
+<blockquote>また13時間後に</blockquote>
+ぷりん：我要搞第四次工业革命、技术奇点、AI 全自动化
+
+たくみん 果然是文学少女
+
+せるふ 继续保持受伤全勤奖
+
+梅开几度
+<img src="https://p.sda1.dev/7/57179e060ec144855a404a3285237cfc/img3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/f57d236dc7f54ee54ed2abc7b894b2f1/img4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/59f01bba2b54f19d8ba55737348a6254/img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/d426270ed0f3c35f628a78ca9fac74a8/img2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/307cf7a2c460a22c4dd2e3c6aeea16f2/img5.jpg" referrerpolicy="no-referrer">
+

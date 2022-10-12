@@ -514,3 +514,31 @@ macross无人机吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  渊鲤  
+##### 63#       发表于 2022-10-12 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">复古彩金
+
+*****
+
+####  geminixxf  
+##### 64#       发表于 2022-10-12 23:30
+
+卧槽(*｀へ´*)这么帅！战斗力怎么保证！难道只能上劳保手套了！
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  库巴大魔王  
+##### 65#       发表于 2022-10-12 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57882096&amp;ptid=2099350" target="_blank">呼鲁鲁修 发表于 2022-10-12 22:22</a>
+
+肯定要AI操纵大部分空战细节吧，不然后座要坐个Newtype才行</blockquote>
+那后座干的事大概是F2A？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
