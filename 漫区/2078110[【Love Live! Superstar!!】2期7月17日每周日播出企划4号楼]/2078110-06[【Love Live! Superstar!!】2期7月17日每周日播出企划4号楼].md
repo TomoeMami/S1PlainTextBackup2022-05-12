@@ -5743,3 +5743,23 @@ QQ截图20221012103146.png
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  link@1018max  
+##### 8065#       发表于 2022-10-12 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57871446&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-12 10:02</a>
+令人绝望的台词</blockquote>
+第一季起队名的时候就有苗头了
+
+*****
+
+####  ViyViy  
+##### 8066#       发表于 2022-10-12 12:01
+
+改什么，在上面眼里粉丝这些不满的都是噪音，我要的是我企划书上的符合人群的新血液，哪怕有点没到指定的增长预期只要不是负增长那就是有用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+运营觉得自己现在还不是存量模式，那就看看到底是不是呗。
+
