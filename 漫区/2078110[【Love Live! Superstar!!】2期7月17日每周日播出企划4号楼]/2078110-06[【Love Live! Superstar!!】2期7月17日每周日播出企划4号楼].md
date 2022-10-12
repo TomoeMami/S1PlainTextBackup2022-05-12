@@ -5572,3 +5572,17 @@ YATTAZE！!<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  plazum  
+##### 8051#       发表于 2022-10-12 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57870972&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-12 09:05</a>
+
+梳理了下，星目前最恶心最没有意义的设定是结丘有音乐科，如果大香老师是让观众当小丑，那么结丘音乐科就是 ...</blockquote>
+我都忘了结丘有音乐科了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能花田第二季也在有意淡化这个设定吧
+
+话说新四人是哪个科的好像都没说？
+
