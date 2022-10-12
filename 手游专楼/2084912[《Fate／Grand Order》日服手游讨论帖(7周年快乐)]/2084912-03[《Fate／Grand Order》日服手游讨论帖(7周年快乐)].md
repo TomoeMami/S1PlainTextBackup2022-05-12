@@ -394,3 +394,18 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 现在4单10屁股1腿4黄飞虎，不知赚亏
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3030#       发表于 2022-10-12 19:44
+
+ 本帖最后由 gpx234mqx 于 2022-10-12 19:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879721&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-12 19:31</a>
+
+这次的缝合完全是迷惑行为，资料和剧情能圆得了吗……</blockquote>
+108魔星不缝出不了啊
+
+不过为啥不缝合个男人
+
