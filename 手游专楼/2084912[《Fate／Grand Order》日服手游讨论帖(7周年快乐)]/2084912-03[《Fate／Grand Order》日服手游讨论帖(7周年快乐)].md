@@ -549,3 +549,43 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 满破后连第二个宝具动画都没有 今年最拉的五星</blockquote>
 君11:你说什么
 
+
+
+*****
+
+####  zakki  
+##### 3044#       发表于 2022-10-12 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880075&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-12 20:00</a>
+满破后连第二个宝具动画都没有 今年最拉的五星</blockquote>
+感觉不如rba拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 3045#       发表于 2022-10-12 20:55
+
+呼延灼这算啥性格，忠犬系重女？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3046#       发表于 2022-10-12 20:56
+
+怎么还是固定150%特攻的，这卡是得罪谁了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上一个固定倍率特攻是谁
+
+*****
+
+####  exiaexa  
+##### 3047#       发表于 2022-10-12 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880936&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-10-12 20:56</a>
+
+怎么还是固定150%特攻的，这卡是得罪谁了吗上一个固定倍率特攻是谁</blockquote>
+特攻倍率固定其实没啥
+
+问题是那个前置绿魔放只给了1t
+
+大概wys觉得那个40%的眩晕特别“稀有”吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -6451,3 +6451,15 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 目前知道还在准备中的3D企划就乐华那两家了，不过这个形式随时终止了也不稀奇
 
+
+
+*****
+
+####  ladiesman802  
+##### 2194#       发表于 2022-10-12 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880717&amp;ptid=1926094" target="_blank">不智法师 发表于 2022-10-12 20:44</a>
+
+目前知道还在准备中的3D企划就乐华那两家了，不过这个形式随时终止了也不稀奇 ...</blockquote>
+还有丸子
+

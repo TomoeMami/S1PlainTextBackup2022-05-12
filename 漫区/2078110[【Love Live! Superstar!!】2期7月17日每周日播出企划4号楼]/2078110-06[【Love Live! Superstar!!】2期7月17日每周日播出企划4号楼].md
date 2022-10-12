@@ -6202,3 +6202,17 @@ Pay唱的好顶，sma既然那么神通广大，那给点资源啊
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 日本人自嗨解读，上次安倍挂掉，把咱们 “庆祝安倍归西” 的言语理解成希望安倍去极乐世界的善意祝福。
 
+
+
+*****
+
+####  starring  
+##### 8109#       发表于 2022-10-12 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880262&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-12 20:13</a>
+
+【歌コレ2022秋】妄想感伤代偿连盟 / DECO*27 【ペイトン尚未】
+
+https://nico.ms/sm41216843?ref=other_ca ...</blockquote>
+最近正好loop这首歌，pay居然翻唱了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+

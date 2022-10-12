@@ -7884,3 +7884,23 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 今晚估计自己一个人
 
+
+
+*****
+
+####  rs5621  
+##### 2253#       发表于 2022-10-12 20:56
+
+<blockquote>樱巫女在2022-10-12 20:33:57发表了推文
+
+スバみこのガンエボ
+
+うるさすぎて耳大破ってコメみて
+
+めちゃくちゃ笑った
+
+スバちゃんありがとおおおおおおお！
+
+ガンエボたのしすぎるよ･･･(*'▽')</blockquote>
+好嚣张，等一个大佬去锐评<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
