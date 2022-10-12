@@ -825,3 +825,14 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 翻到抽卡界面一眼就盯上了那个大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3069#       发表于 2022-10-12 23:17
+
+怎么都是先看见屁股
+
+我总感觉雪白的侧乳更显眼一点
+

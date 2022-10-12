@@ -503,3 +503,14 @@ macross无人机吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">女王真来了是要甩死后座的，对现在的地球人来说为时过早
 
+
+
+*****
+
+####  博阳明禄  
+##### 62#       发表于 2022-10-12 23:20
+
+亡国的阿基德女主就是无人木马的操控员<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
