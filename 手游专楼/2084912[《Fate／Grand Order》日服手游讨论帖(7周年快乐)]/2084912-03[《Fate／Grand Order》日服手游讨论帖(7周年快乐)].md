@@ -719,3 +719,32 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 硬生生把金属给磨砂成了钢普拉
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3060#       发表于 2022-10-12 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881407&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-10-12 21:29</a>
+
+毕竟是你游少有的，模型配不上卡面
+
+硬生生把金属给磨砂成了钢普拉
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">只能说源大炮可惜了 
+
+
+
+*****
+
+####  gpx234mqx  
+##### 3061#       发表于 2022-10-12 21:34
+
+ 本帖最后由 gpx234mqx 于 2022-10-12 21:36 编辑 
+
+呼延灼换这个合体完全失败了，原本人格改的等于没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+就不能做成凯尼斯这样的嘛
+

@@ -6265,3 +6265,14 @@ https://nico.ms/sm41216843?ref=other_ca ...</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881207&amp;ptid=2078110" target="_blank">名津流 发表于 2022-10-12 21:16</a></blockquote>
 总觉得这是会确实出现在第三季的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ButaiKyaku  
+##### 8114#       发表于 2022-10-12 21:35
+
+<blockquote>we89623 发表于 2022-10-12 20:49
+日本人自嗨解读，上次安倍挂掉，把咱们 “庆祝安倍归西” 的言语理解成希望安倍去极乐世界的善意祝福。 ...</blockquote>
+笑死，什么文化差异
+

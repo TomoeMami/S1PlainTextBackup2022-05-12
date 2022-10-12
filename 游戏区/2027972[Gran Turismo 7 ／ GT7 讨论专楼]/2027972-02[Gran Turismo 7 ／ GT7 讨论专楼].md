@@ -189,3 +189,18 @@ BV1Sd4y1v72d，附上我的录像
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1663#       发表于 2022-10-12 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880668&amp;ptid=2027972" target="_blank">扑克脸军曹 发表于 2022-10-12 20:41</a>
+这帮大佬真是不给活路，最后几天记录连续刷新，已经要刷进42才能金了
+
+—— 来自 S1Fun ...</blockquote>
+我已经躺了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -8129,3 +8129,14 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 
 全能机这下好歹能打个辅助，格斗机……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 774#       发表于 2022-10-12 21:37
+
+格斗机组队会挡住队友的输出弹药，这设定蛮恶心的
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
