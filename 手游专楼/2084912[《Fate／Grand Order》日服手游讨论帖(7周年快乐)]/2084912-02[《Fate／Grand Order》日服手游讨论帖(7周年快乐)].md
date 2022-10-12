@@ -16631,3 +16631,15 @@ Atlas Academy的几个相关人员已经都站出来说这个是假的了
 
 考虑白方块的话是铜更能卡人吧
 
+
+
+*****
+
+####  廖化  
+##### 2980#       发表于 2022-10-12 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57860226&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-11 15:19</a>
+
+这个大圣会不会也是女的(</blockquote>
+猴子变人经常变女的，所以一二三破都是女体，最后变裸猿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
