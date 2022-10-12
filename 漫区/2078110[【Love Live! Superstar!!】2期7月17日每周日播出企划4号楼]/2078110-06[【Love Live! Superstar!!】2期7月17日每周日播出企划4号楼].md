@@ -5981,3 +5981,23 @@ S1投票贴的评语「反人类粪&amp;#x ...</blockquote>
 
 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 8088#       发表于 2022-10-12 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57877356&amp;ptid=2078110" target="_blank">ButaiKyaku 发表于 2022-10-12 16:54</a>
+
+日本拉友再加把劲儿，上个推特热搜什么的</blockquote>
+我看了下目前就三条，不知道生放有没有勇士挂话题车轮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 8089#       发表于 2022-10-12 17:29
+
+日宅：中国人「做Liella!第二季的导演和编剧切腹吧😡」 #唧喳喳翻译网# https://share.jzz.cool/jv2432?share_src=desc
+S1身名远扬了（）
+
