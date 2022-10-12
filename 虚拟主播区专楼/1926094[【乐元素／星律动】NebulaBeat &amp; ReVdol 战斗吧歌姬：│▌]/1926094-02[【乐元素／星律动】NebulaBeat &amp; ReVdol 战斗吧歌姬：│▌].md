@@ -5669,3 +5669,14 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 鸭鸭的2d播简直行云流水  节目效果信手拈来 昨天谈到追的电视剧竟然是毫无底线，鸭鸭在逆风一语反转，你们 ...</blockquote>
 鸭鸭明明啥也不懂对不上电波，有时却能天外飞仙来句秒评。
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2107#       发表于 2022-10-12 08:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">昨晚鸭鸭和小柔开头我觉得有点talk不到一起的感觉
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
