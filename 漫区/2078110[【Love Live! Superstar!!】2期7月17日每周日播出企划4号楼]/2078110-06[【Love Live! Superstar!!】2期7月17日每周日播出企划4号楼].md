@@ -5772,3 +5772,15 @@ QQ截图20221012103146.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">S1投票贴的评语「反人类粪作」变拉板流行语了
 
+
+
+*****
+
+####  星踪幻影  
+##### 8068#       发表于 2022-10-12 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57873329&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-10-12 12:34</a>
+
+S1投票贴的评语「反人类粪&amp;#x ...</blockquote>
+前三楼都火了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -8066,3 +8066,12 @@ EX任务中出现的货柜 → 一律上升为5倍
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这改动...你们也知道原来有问题啊
 
+
+
+*****
+
+####  mascode  
+##### 768#       发表于 2022-10-12 12:48
+
+良心改动，但是暗削了古辛sub2 50%伤害，fazz技能能量获取（传言，未确定）
+
