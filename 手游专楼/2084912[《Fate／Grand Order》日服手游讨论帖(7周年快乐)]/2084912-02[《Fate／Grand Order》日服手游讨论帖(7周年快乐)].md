@@ -16660,3 +16660,26 @@ Atlas Academy的几个相关人员已经都站出来说这个是假的了
 铜材料，特别是新铜材料用量一大就得去free吃屎，除非无限池不然根本解决不了，常规活动本都不安排在最高效率本，至于狩猎本要不是逼急了，除了羁绊控谁有空刷这玩意儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓮華  
+##### 2982#       发表于 2022-10-12 18:22
+
+九纹龙娘
+
+*****
+
+####  xiongxingyu  
+##### 2983#       发表于 2022-10-12 18:23
+
+好消息：史进的鸡儿保住了。坏消息：落地的机会被小龙娘抢走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  longrider  
+##### 2984#       发表于 2022-10-12 18:25
+
+九纹龙娘还行，宝具九头龙（娘）
+

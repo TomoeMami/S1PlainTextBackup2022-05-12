@@ -286,3 +286,14 @@ DOUBLE DECKER只是同为搭档系列，世界观好像还是不太一样？
 
 在nyaa找到种子了<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  二重梦境  
+##### 112#       发表于 2022-10-12 18:22
+
+看完了，其实有很多不太行的地方，但是有第二季看已经很难得了，只能说谢谢网飞爸爸出钱。
+
+这个结局和最后一个镜头感觉真的彻底断掉了第三季的可能性啊……唉真的还想继续看这群英雄们啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
