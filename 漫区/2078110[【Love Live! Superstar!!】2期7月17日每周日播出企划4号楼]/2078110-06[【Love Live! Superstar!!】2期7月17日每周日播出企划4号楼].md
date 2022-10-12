@@ -6020,3 +6020,26 @@ S1身名远扬了（）
 
 原来切腹是偏褒义的死法啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 8092#       发表于 2022-10-12 17:50
+
+切腹确实是光荣的死法，斩首才是处刑
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  adw667  
+##### 8093#       发表于 2022-10-12 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57878049&amp;ptid=2078110" target="_blank">超法拉 发表于 2022-10-12 17:34</a>
+
+这论坛好卡啊
+
+蚌埠住了</blockquote>
+今天上午确实卡啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
