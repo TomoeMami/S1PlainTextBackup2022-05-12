@@ -658,3 +658,49 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 无非就是设计没新意，但是这硬实力画功都要黑不好的话，那你游今年只能说实装了一票妖魔鬼怪了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3055#       发表于 2022-10-12 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881121&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-10-12 21:10</a>
+
+这硬实力画功都不算好的话，那你游今年只能说实装了一票妖魔鬼怪了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">作为俗人只能感觉可以不丑 但四张卡面整体感觉就是**屁股大腿没一样是亮点让人感觉可以的 突出一个什么玩意
+
+*****
+
+####  qixinno2  
+##### 3056#       发表于 2022-10-12 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年出的卡确实都挺拉的 个人感觉最好的竟然是源大炮这机器人
+
+*****
+
+####  exiaexa  
+##### 3057#       发表于 2022-10-12 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881167&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-12 21:13</a>
+
+作为俗人只能感觉可以不丑 但四张卡面整体感觉就是**屁股大腿没一样是亮点让人感觉可以的 突出一 ...</blockquote>
+我们一般把这种情况，叫做操作系统对不上
+
+而不是视觉系统有问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3058#       发表于 2022-10-12 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881223&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-10-12 21:17</a>
+
+我们一般把这种情况，叫做操作系统对不上
+
+而不是视觉系统有问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟我只是一个单纯的色批 女性卡面只会看骚不骚 色不色
+
