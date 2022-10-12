@@ -6276,3 +6276,27 @@ https://nico.ms/sm41216843?ref=other_ca ...</blockquote>
 日本人自嗨解读，上次安倍挂掉，把咱们 “庆祝安倍归西” 的言语理解成希望安倍去极乐世界的善意祝福。 ...</blockquote>
 笑死，什么文化差异
 
+
+
+*****
+
+####  starring  
+##### 8115#       发表于 2022-10-12 21:53
+
+鲤鱼要上D4DJ的广播节目
+
+<img src="https://img.saraba1st.com/forum/202210/12/215341w6ctw4z3v55vv350.png" referrerpolicy="no-referrer">
+
+<strong>20221012215253.png</strong> (105.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 21:53 上传
+
+*****
+
+####  cybernetics31  
+##### 8116#       发表于 2022-10-12 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sma给点cv资源吧，这么好的嗓子别浪费了
+

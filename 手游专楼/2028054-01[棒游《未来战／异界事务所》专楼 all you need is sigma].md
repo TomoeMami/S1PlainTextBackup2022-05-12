@@ -61,3 +61,17 @@
 
 —— 来自 blackshark SHARK KLE-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  rgauss  
+##### 792#         楼主| 发表于 2022-10-12 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880063&amp;ptid=2028054" target="_blank">玄冥忌 发表于 2022-10-12 19:59</a>
+大佬们求教天平线怎么配装啊，是攻速还是CD好？我临时拖了个殿堂攻速出来但是只有8%攻速感觉效果不明显啊？ ...</blockquote>
+黑攻速就行 pvp可用cd顶着
+当然最好的是t7攻速 一般人凑不出来的
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
