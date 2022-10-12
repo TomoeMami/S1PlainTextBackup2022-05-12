@@ -6188,3 +6188,17 @@ Pay唱的好顶，sma既然那么神通广大，那给点资源啊
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  we89623  
+##### 8108#       发表于 2022-10-12 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57878301&amp;ptid=2078110" target="_blank">阿姆罗二世 发表于 2022-10-12 17:50</a>
+
+切腹确实是光荣的死法，斩首才是处刑
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+日本人自嗨解读，上次安倍挂掉，把咱们 “庆祝安倍归西” 的言语理解成希望安倍去极乐世界的善意祝福。
+

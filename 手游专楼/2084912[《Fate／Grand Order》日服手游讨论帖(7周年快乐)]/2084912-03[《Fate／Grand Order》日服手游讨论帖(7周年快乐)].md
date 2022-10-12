@@ -529,3 +529,23 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 我觉得呼延灼抱有恨意的对象其实不是燕青而是老教授<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3042#       发表于 2022-10-12 20:42
+
+老教授的迷惑行为
+
+莫不是老年痴呆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 3043#       发表于 2022-10-12 20:43
+
+<blockquote>qixinno2 发表于 2022-10-12 20:00
+满破后连第二个宝具动画都没有 今年最拉的五星</blockquote>
+君11:你说什么
+
