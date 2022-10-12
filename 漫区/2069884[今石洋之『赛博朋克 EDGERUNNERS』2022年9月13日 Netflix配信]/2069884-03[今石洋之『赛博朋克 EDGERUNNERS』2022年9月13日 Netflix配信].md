@@ -1708,3 +1708,15 @@ TV版故意删了所有Burn this city
 银手和重锤还有摩根黑手都是trpg赛博朋克2020的背景人物，有相关数据和背景描述的 ...</blockquote>
 那B站上说的V50级3项数值满20也是出自桌游设定吗，看他们吹得振振有词的
 
+
+
+*****
+
+####  sosgame67  
+##### 3132#       发表于 2022-10-12 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57871391&amp;ptid=2069884" target="_blank">dewaydu 发表于 2022-10-12 09:55</a>
+
+那B站上说的V50级3项数值满20也是出自桌游设定吗，看他们吹得振振有词的</blockquote>
+明显是把电子游戏数值代入了呗，v根本没有官方公式卡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">而且电子游戏数值和trpg数值肯定不能直接转换
+
