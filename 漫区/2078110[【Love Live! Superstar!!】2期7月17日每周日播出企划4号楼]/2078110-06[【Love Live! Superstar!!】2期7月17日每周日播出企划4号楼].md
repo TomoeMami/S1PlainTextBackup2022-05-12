@@ -6397,3 +6397,17 @@ nico上弹幕已经有人在刷“反人类粪作”了<img src="https://static.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐了
 
+
+
+*****
+
+####  名津流  
+##### 8126#       发表于 2022-10-13 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883106&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-10-12 23:48</a>
+
+又有坛友把这栋楼的发言也搬过去了吗
+
+—— 来自 S1Fun</blockquote>
+那贴的楼主先不谈，另一个叫 SB-Android 的，应该是中国人才会起的ID吧？
+

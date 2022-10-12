@@ -715,3 +715,12 @@ https://youtu.be/4vXPSSLL9bQ
 
 AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，现在就做到tacview里玩玩的程度
 
+
+
+*****
+
+####  天之叢云  
+##### 83#       发表于 2022-10-13 00:35
+
+这玩意，不是几年前美国和国内就有的玩意，还是记成蜂群了
+
