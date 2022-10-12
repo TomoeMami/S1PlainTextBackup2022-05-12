@@ -5586,3 +5586,27 @@ YATTAZE！!<img src="https://static.saraba1st.com/image/smiley/face2017/068.png"
 
 话说新四人是哪个科的好像都没说？
 
+
+
+*****
+
+####  ViyViy  
+##### 8052#       发表于 2022-10-12 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57871506&amp;ptid=2078110" target="_blank">plazum 发表于 2022-10-12 10:10</a>
+
+我都忘了结丘有音乐科了可能花田第二季也在有意淡化这个设定吧
+
+话说新四人是哪个科的好像都没说 ...</blockquote>
+都是普通科<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看四个一年级哪个像符合音乐科要求的
+
+*****
+
+####  ads147147  
+##### 8053#       发表于 2022-10-12 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57871542&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-12 10:13</a>
+
+都是普通科你看四个一年级哪个像符合音乐科要求的</blockquote>
+音乐科有什么屁用，两年连个安慰奖都拿不到，那玻璃柜里的全是偶像活动拿来的（除了小千的舞蹈大赛）
+
