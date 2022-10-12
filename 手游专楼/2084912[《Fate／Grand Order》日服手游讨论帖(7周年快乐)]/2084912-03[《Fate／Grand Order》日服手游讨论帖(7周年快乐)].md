@@ -704,3 +704,18 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 而不是视觉系统有问题</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟我只是一个单纯的色批 女性卡面只会看骚不骚 色不色
 
+
+
+*****
+
+####  exiaexa  
+##### 3059#       发表于 2022-10-12 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881213&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-12 21:16</a>
+
+今年出的卡确实都挺拉的 个人感觉最好的竟然是源大炮这机器人</blockquote>
+毕竟是你游少有的，模型配不上卡面
+
+硬生生把金属给磨砂成了钢普拉
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
