@@ -142,3 +142,51 @@
 杀阶你开玩笑呢，问过最强杀光炮（指红拐）杀兔的意见了吗，三选一的女武神也在看着你～ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">30自充绿卡光炮    为什么绿卡还只有30自充呢
 
+
+
+*****
+
+####  angelooo  
+##### 3010#       发表于 2022-10-12 19:12
+
+<blockquote>alucardcz 发表于 2022-10-12 19:11
+30自充绿卡光炮    为什么绿卡还只有30自充呢</blockquote>
+wys：我想请他们直接把绿卡删了但他们不让，那就意思意思得了
+
+*****
+
+####  angelooo  
+##### 3011#       发表于 2022-10-12 19:14
+
+九纹龙娘杀穿了，武成王只有满破有点感觉，三破什么鬼，没保住下面的那位你们对上xp的就上吧，我走了
+
+*****
+
+####  qixinno2  
+##### 3012#       发表于 2022-10-12 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 我就想抽个大屁股礼装 两发十连除了呼延灼
+
+*****
+
+####  alucardcz  
+##### 3013#       发表于 2022-10-12 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879479&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-12 19:14</a>
+
+艹 我就想抽个大屁股礼装 两发十连除了呼延灼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲人就是这么牛比  
+
+*****
+
+####  Jamaisvu  
+##### 3014#       发表于 2022-10-12 19:22
+
+目前绿卡宝具带50自充的人有骑阿福、骑金时、杀伽摩、小王子、道满（80）、卡莲（散装50）、妖崔（散装60）、雅克德莫来（散装50）、阿国、太公望（还能给队友20）、巴泽特、张角、R斯卡蒂。
+
+（弓清少纳言和太黑天是散充三回合50/60...）
+
+相比其他职业的高充能确实少了些，而且随着NP被动的实装，30NP充能越来越多了...
+
+感觉RBA也没能带绿卡队起飞，设计上是不是过于克制了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -6064,3 +6064,27 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 鸭鸭好惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2150#         楼主| 发表于 2022-10-12 19:13
+
+ 本帖最后由 喜闻乐见 于 2022-10-12 19:18 编辑 
+
+起码比国庆前她的直播间能回的弹幕要多一点吧，然后有信息了也少了一些问路标的，
+
+最近两条博都提到进百京难度， 确实还是在百京的错
+
+鸭鸭在这赛博当幼教也是练出来了，昨晚3d上也是全程努力在做好mc   就算真的回去想必也是立派幼教专家了吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isla  
+##### 2151#       发表于 2022-10-12 19:14
+
+隔壁大米花了一个月才会百京
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
