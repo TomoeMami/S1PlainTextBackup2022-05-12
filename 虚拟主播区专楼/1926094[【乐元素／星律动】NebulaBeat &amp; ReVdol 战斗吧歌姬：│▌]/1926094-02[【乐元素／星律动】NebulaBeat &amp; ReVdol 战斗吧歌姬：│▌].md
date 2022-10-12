@@ -5723,3 +5723,17 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 说不出话来，哎
 
+
+
+*****
+
+####  ladiesman802  
+##### 2113#       发表于 2022-10-12 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57874372&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-10-12 13:49</a>
+
+说不出话来，哎
+
+但真的会转生个人势吗？不是更有可能彻底退圈吗？本来九夏对这个圈子就没多大执念吧，哎</blockquote>
+九夏之前说过就算毕业也不会失联，而且自己会画l2d
+
