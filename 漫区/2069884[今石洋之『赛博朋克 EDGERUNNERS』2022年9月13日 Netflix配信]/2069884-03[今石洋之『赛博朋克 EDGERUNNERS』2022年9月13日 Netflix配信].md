@@ -1732,3 +1732,16 @@ cdpr原案更加压抑，而脱力噶最初构想包括从月球空降、炸了�
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  朝仓和美  
+##### 3134#       发表于 2022-10-12 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57522057&amp;ptid=2069884" target="_blank">faki998 发表于 2022-9-17 12:26</a>
+是怕david硬上金刚义体的话不更应该警告他吗？在这点上瞒着他不就相当于不信任他怕他配合公司做实验？
+
+ ...</blockquote>
+萝莉劝大卫别加速，他也没听啊
+

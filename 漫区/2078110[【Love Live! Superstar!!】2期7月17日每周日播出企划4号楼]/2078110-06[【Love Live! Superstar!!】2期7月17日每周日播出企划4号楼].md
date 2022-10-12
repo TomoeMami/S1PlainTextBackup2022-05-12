@@ -5828,3 +5828,14 @@ S1投票贴的评语「反人类粪&amp;#x ...</blockquote>
 
 喂，那个搬运的人，应该把第一季的评分楼也附上作为对比
 
+
+
+*****
+
+####  iuhehc  
+##### 8074#       发表于 2022-10-12 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
