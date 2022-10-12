@@ -1499,3 +1499,14 @@ Do It Yourself!!
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">主角名字里带you，青梅名字里带布，青梅因为主角和眼镜麻花辫同学互动而露出惊讶的表情，那么这是什么动画呢
 
+
+
+*****
+
+####  Piano-Forest  
+##### 126#         楼主| 发表于 2022-10-13 00:03
+
+OP：[https://youtu.be/8jOQmPx2Mjk](https://youtu.be/8jOQmPx2Mjk)
+
+ED：[https://youtu.be/iAc8yYTVtGE](https://youtu.be/iAc8yYTVtGE)
+

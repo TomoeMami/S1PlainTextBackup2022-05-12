@@ -630,3 +630,23 @@ cg没啥意思，默认战恐局工作</blockquote>
 第一这明显是cg，第二攻击11和双座j20到现在也没一张飞行的照片， ...</blockquote>
 给个视频地址
 
+
+
+*****
+
+####  植田佳奈  
+##### 75#       发表于 2022-10-13 00:06
+
+没new type用不了浮游炮
+
+*****
+
+####  Mafise  
+##### 76#       发表于 2022-10-13 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883227&amp;ptid=2099350" target="_blank">abcbuzhiming 发表于 2022-10-12 23:59</a>
+给个视频地址</blockquote>
+https://youtu.be/4vXPSSLL9bQ
+
+— from OnePlus BE2029, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

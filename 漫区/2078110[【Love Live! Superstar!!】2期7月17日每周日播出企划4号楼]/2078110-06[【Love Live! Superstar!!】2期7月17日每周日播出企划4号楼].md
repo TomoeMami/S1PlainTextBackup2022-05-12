@@ -6335,3 +6335,33 @@ https://nico.ms/sm41216843?ref=other_ca ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  DarthAka  
+##### 8120#       发表于 2022-10-13 00:04
+
+<blockquote>ViyViy 发表于 2022-10-12 23:39
+嗯又想到个事，星这12人要正儿八经的搞C团曲的，中间数是两个，所以……
+
+后面真选举难不成选第一二名？？[f ...</blockquote>
+大不了没C，隔壁未梦那个团10年了名义上都没C
+
+*****
+
+####  saya1892  
+##### 8121#       发表于 2022-10-13 00:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+中国死宅的power word
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ddy2811  
+##### 8122#       发表于 2022-10-13 00:11
+
+话说还有提到AS不火的……栞子、岚珠、DD的某些剧情也算是卧龙凤雏的“反人类粪作”了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
