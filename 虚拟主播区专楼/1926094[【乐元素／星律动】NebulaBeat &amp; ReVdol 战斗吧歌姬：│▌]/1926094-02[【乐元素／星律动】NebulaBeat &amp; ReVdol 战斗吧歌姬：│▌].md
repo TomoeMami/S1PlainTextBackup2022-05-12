@@ -5747,3 +5747,19 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 回看了下动态发布时间
 按之前厂里作风 都是12点准时发布的，这次九夏的却是在12号的13点14分<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  佛皇  
+##### 2115#       发表于 2022-10-12 14:43
+
+意料之中吧，自从二罗跑路，企划基本就颓势已现，kino走了感觉更是抽走了nb仅剩的精气神，九夏堂堂完结是在所难免了，可惜了鸭鸭这么快就要复刻贝拉的开荒日子了
+
+*****
+
+####  逸yi  
+##### 2116#       发表于 2022-10-12 14:49
+
+所以又都是谁的错呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
