@@ -3253,3 +3253,31 @@ shorturl.at/lAGMN推销下漫区群的手抄本法术书，整理了下各种咒
 
 用这个需要美术功底吗？
 
+
+
+*****
+
+####  提货人  
+##### 257#       发表于 2022-10-12 11:24
+
+ 本帖最后由 提货人 于 2022-10-12 11:29 编辑 
+
+新的模型调 教起来手感太舒服了，可惜inpant界面不能放大细调
+
+<img src="https://img.saraba1st.com/forum/202210/12/112403khfrrpwpfwjtsdrr.png" referrerpolicy="no-referrer">
+
+<strong>00003.png</strong> (134.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 11:24 上传
+
+00002.png
+(140.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 11:23 上传
+
+<img src="https://img.saraba1st.com/forum/202210/12/112357a1kxabw28og1zmww.png" referrerpolicy="no-referrer">
+
