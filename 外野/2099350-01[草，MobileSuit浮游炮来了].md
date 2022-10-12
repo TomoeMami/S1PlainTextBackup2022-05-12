@@ -650,3 +650,68 @@ https://youtu.be/4vXPSSLL9bQ
 
 — from OnePlus BE2029, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  abcbuzhiming  
+##### 77#       发表于 2022-10-13 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883298&amp;ptid=2099350" target="_blank">Mafise 发表于 2022-10-13 00:07</a>
+
+https://youtu.be/4vXPSSLL9bQ
+
+— from OnePlus BE2029, Android 11 of S1 Next Goose v2.5.4</blockquote>
+你是对的，我看走眼了，还真是CG。因为我印象里央视几乎没有在新闻报道里用精度比较高模型的先例
+
+*****
+
+####  ghgfj  
+##### 78#       发表于 2022-10-13 00:15
+
+不如反隐身预警机指挥隐身蜂群
+
+*****
+
+####  nexus1  
+##### 79#       发表于 2022-10-13 00:16
+
+<blockquote>克莉丝汀 发表于 2022-10-12 23:40
+你想多了
+
+几个G的重力加速度，  弱鸡电竞选手能吃得住几个？</blockquote>
+我记得李晓峰说电竞选手挺重视体能的
+
+*****
+
+####  克莉丝汀  
+##### 80#       发表于 2022-10-13 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883388&amp;ptid=2099350" target="_blank">nexus1 发表于 2022-10-13 00:16</a>
+
+我记得李晓峰说电竞选手挺重视体能的</blockquote>
+健身？ 
+
+健身也没到飞行员的专业训练程度  
+
+这可是具有天赋的人才用几百万几千万真金白银的训练费用才能培养出来的啊
+
+电竞选手泡健身馆能投入多少？
+
+*****
+
+####  公共知识  
+##### 81#       发表于 2022-10-13 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57882632&amp;ptid=2099350" target="_blank">巨魔已被忠诚 发表于 2022-10-12 23:07</a>
+
+这无人机造型还是反雷达的</blockquote>
+肯定要隐身啊。。不然隐身机带几部非隐身机不是暴露自己吗。。
+
+*****
+
+####  ColinWine  
+##### 82#       发表于 2022-10-13 00:20
+
+AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，现在就做到tacview里玩玩的程度
+

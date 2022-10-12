@@ -6365,3 +6365,17 @@ https://nico.ms/sm41216843?ref=other_ca ...</blockquote>
 
 话说还有提到AS不火的……栞子、岚珠、DD的某些剧情也算是卧龙凤雏的“反人类粪作”了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无意义存在者  
+##### 8123#       发表于 2022-10-13 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57875710&amp;ptid=2078110" target="_blank">阿姆罗二世 发表于 2022-10-12 16:22</a>
+
+阿这就是随手一打的评价，这么和太君口味的吗
+
+  -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
+nico上弹幕已经有人在刷“反人类粪作”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
