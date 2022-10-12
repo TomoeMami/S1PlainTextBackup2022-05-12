@@ -5763,3 +5763,46 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
 
 所以又都是谁的错呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 2117#       发表于 2022-10-12 15:05
+
+夏老大在下面评论了。
+
+九夏和夏老大感觉都是一类人，当v只是一个踏板，不是终点，应该有更高的追求。
+
+*****
+
+####  ladiesman802  
+##### 2118#       发表于 2022-10-12 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57875216&amp;ptid=1926094" target="_blank">逸yi 发表于 2022-10-12 14:49</a>
+
+所以又都是谁的错呢</blockquote>
+赛马娘的错！
+
+*****
+
+####  怀疑论者  
+##### 2119#       发表于 2022-10-12 15:09
+
+<img src="https://img.saraba1st.com/forum/202210/12/150905yhwn0r8phorde2ro.jpg" referrerpolicy="no-referrer">
+
+<strong>-2705c09b4a68d92a.jpg</strong> (250.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-12 15:09 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  佛皇  
+##### 2120#       发表于 2022-10-12 15:09
+
+归根结底还是实力太菜了
+
