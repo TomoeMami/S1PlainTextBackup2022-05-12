@@ -784,3 +784,15 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 草，这活动什么沙雕片头</blockquote>
 开幕那个黑白PV直接喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 3065#       发表于 2022-10-12 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881731&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-12 21:53</a>
+
+贺图比卡面好看</blockquote>
+这个还好，黄飞虎那个贺图才是碾压卡面。
+

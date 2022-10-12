@@ -6633,3 +6633,58 @@ nb未来不一定还叫nb
 锐评了</blockquote>
 什么谜语<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yingjiudangge  
+##### 2213#       发表于 2022-10-12 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881942&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-10-12 22:08</a>
+锐评了</blockquote>
+这谁？
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黄金鸡屁屁  
+##### 2214#       发表于 2022-10-12 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881973&amp;ptid=1926094" target="_blank">yingjiudangge 发表于 2022-10-12 22:11:18</a>
+这谁？
+
+—— 来自 OnePlus IN2010, Android 11上的  v2.5.4</blockquote>清歌2.0
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  MaxFOrder  
+##### 2215#       发表于 2022-10-12 22:14
+
+一时间不知道是锐评今天的哪一边<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天青月白  
+##### 2216#       发表于 2022-10-12 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57882015&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-10-12 22:14</a>
+一时间不知道是锐评今天的哪一边</blockquote>
+两边都是啊
+
+*****
+
+####  只吃干拌面  
+##### 2217#       发表于 2022-10-12 22:18
+
+这是前歌姬中我最不想评价的一位中之人，虽然我之前最喜欢清歌
+
+*****
+
+####  不智法师  
+##### 2218#       发表于 2022-10-12 22:19
+
+清歌两位中之人都挺别致的
+
