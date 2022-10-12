@@ -1534,3 +1534,14 @@ ED：[https://youtu.be/iAc8yYTVtGE](https://youtu.be/iAc8yYTVtGE)
 
 顺便第二集解决了女主手笨别把自己整的缺胳膊少腿的问题，部长顶多让她做做拿原材料的辅助活，各种工具都不让她用，应该能全须全尾的活到最后了 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  本间日阳  
+##### 129#       发表于 2022-10-13 07:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883448&amp;ptid=1994951" target="_blank">wolf1997 发表于 2022-10-13 00:21</a>
+官推关注了矶光雄，感觉不仅仅是参与原画那么简单，现在看这片子的背景越来越有矶光雄那味，就是电脑线圈的 ...</blockquote>
+矶光雄自己的个人网站就叫IMAGO-IMAGE（[http://www.lares.dti.ne.jp/~iso-000/index.html](http://www.lares.dti.ne.jp/~iso-000/index.html)），感觉原作里的IMAGO说不定真的是矶光雄，怪不得是科幻世界观……
+
