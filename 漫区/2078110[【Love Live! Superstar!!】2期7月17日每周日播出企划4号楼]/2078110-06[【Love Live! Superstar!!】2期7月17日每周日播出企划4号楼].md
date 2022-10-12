@@ -6379,3 +6379,21 @@ https://nico.ms/sm41216843?ref=other_ca ...</blockquote>
   -- 来自 能手机投票的 Stage1官方 Android ...</blockquote>
 nico上弹幕已经有人在刷“反人类粪作”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  阿姆罗二世  
+##### 8124#       发表于 2022-10-13 00:25
+
+蹲一波星团下次骚操作，反人类粪作冲上日推热搜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 8125#       发表于 2022-10-13 00:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐了
+

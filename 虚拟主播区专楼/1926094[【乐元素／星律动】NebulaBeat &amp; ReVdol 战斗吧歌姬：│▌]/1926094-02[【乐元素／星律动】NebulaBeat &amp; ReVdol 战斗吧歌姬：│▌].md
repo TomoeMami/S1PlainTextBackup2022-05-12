@@ -6864,3 +6864,24 @@ nicole那么讨厌企划，我其实挺理解的。搞点摇滚民谣的都讨�
 
 在你楼率先感受到了3d寒冬的降临，恐怕以后3dv只会越来越少了
 
+
+
+*****
+
+####  安姆闲人  
+##### 2238#       发表于 2022-10-13 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883349&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-10-13 00:12</a>
+
+厂里属于是被形势推着逐渐脱离初心，你nb做没做单曲、支没支持中之人创作和唱跳？支持了，没人否认支持了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/262.png" referrerpolicy="no-referrer">数据行不行本来就是运营和中之人相辅相成的结果啊，那反过来我还能说中之人吃了唱跳支持营收不给力让厂子有落差呢
+
+本身就是大家都努力了最终没做起来，无非就是要么实力不够要么钱不够要么运气不好，作为观众一不清楚厂子具体营收和规划，二不是中之人密友不知道她们具体想法，赛博诊脉自顾自心疼愤怒真没必要
+
+*****
+
+####  安姆闲人  
+##### 2239#       发表于 2022-10-13 00:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">最遗憾的还是九夏手绘皮肤上舰长礼物那个月我没怎么看NB，错过了，还有设计舰长签名的时候我发的要求她没看到，就很普通的写了个名字
+
