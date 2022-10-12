@@ -201,3 +201,16 @@
 
 金时只抽一宝的话是不是不如不抽......
 
+
+
+*****
+
+####  星尘的记忆  
+##### 43629#       发表于 2022-10-12 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57867485&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2022-10-11 22:59</a>
+金时只抽一宝的话是不是不如不抽......</blockquote>
+100级一宝能用，只是需要补刀
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
