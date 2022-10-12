@@ -1455,3 +1455,16 @@ Do It Yourself!!
 
 希望不是一集做一种玩意<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 123#         楼主| 发表于 2022-10-12 12:20
+
+[https://twitter.com/u_nya0/status/1578448118072619009](https://twitter.com/u_nya0/status/1578448118072619009)
+<img src="https://p.sda1.dev/7/ecc1bec853ed11898358ac4196aaf2c7/20221012_121939.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/shioritani7/status/1579044536927817730](https://twitter.com/shioritani7/status/1579044536927817730)
+<img src="https://p.sda1.dev/7/e713b254d66bd2df2b75906608fcd30d/20221012_121933.jpg" referrerpolicy="no-referrer">
+
