@@ -742,3 +742,12 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 
 等到歼20能搭载雪风那才叫好玩
 
+
+
+*****
+
+####  sakura79  
+##### 86#       发表于 2022-10-13 01:11
+
+得吃十五个宝才能变出这三个僚机吧
+

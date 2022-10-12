@@ -2195,3 +2195,19 @@ mark下
 
 有大佬分享下各种服装的咒语嘛，比如高叉，连体这种<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  卢迪乌斯  
+##### 149#       发表于 2022-10-13 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57854177&amp;ptid=2097870" target="_blank">哈扎马 发表于 2022-10-11 07:36</a>
+
+友情提示，巨人和鬼灭在动画之前已经破圈了，而现在的ai只能韩漫化，不能动漫化。</blockquote>
+有经历那个时候，只能说小火，但是一点也没感受到你说的“巨人和鬼灭在动画之前已经破圈了”
+
+破圈可不是那么简单的
+
+而且你自己也提了“现在”的AI，这东西进步速度就是快啊
+
