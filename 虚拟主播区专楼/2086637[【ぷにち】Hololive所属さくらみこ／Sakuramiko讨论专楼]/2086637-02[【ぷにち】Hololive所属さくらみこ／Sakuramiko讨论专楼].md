@@ -7950,3 +7950,19 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 草,恩济色的围栏
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2258#       发表于 2022-10-13 00:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">又开始配音模仿，一点也不像还是老三样的模仿。没话题聊了咱们睡觉好不。
+
+*****
+
+####  holoan  
+##### 2259#         楼主| 发表于 2022-10-13 00:55
+
+我都睡一觉起来了
+
