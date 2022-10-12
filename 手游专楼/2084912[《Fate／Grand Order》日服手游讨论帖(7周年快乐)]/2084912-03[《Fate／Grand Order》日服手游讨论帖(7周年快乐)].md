@@ -444,3 +444,47 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满破后连第二个宝具动画都没有 今年最拉的五星
 
+
+
+*****
+
+####  qixinno2  
+##### 3034#       发表于 2022-10-12 20:02
+
+都怪老虞的大屁股 害我浪费石头在这池子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 3035#       发表于 2022-10-12 20:05
+
+十张符
+
+一隻呼延灼，一隻黄飞虎，
+
+结束这回合
+
+*****
+
+####  angelooo  
+##### 3036#       发表于 2022-10-12 20:07
+
+我无法理解的是为啥能想到去缝一个吸血女妖的，这是什么天才的想法，不过反正最近隔壁车你游缝合都车了10页了233
+
+*****
+
+####  月球列车  
+##### 3037#       发表于 2022-10-12 20:09
+
+哇这大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 3038#       发表于 2022-10-12 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880185&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-10-12 20:07</a>
+
+我无法理解的是为啥能想到去缝一个吸血女妖的，这是什么天才的想法，不过反正最近隔壁车你游缝合都车了10页 ...</blockquote>
+小教授：我绝对不要变成一个有着奇葩审美的谐星大叔啊！<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
+

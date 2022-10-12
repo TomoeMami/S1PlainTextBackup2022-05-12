@@ -6167,3 +6167,96 @@ syl，九夏居然还安排了2D联动，这是说在家也可以开面捕？</b
   -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
 鱼一yy直播间
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2161#       发表于 2022-10-12 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">鱼神将带领墨希哥走向胜利
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  天青月白  
+##### 2162#       发表于 2022-10-12 20:02
+
+咩不来吗？在国内的就这俩吧
+
+*****
+
+####  isla  
+##### 2163#       发表于 2022-10-12 20:04
+
+不知道毕业日之前九夏能回到百京不，我感觉回不去啊...
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dreamenory  
+##### 2164#       发表于 2022-10-12 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880066&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-10-12 19:59</a>
+哈哈哈哈哈哈哈哈哈哈哈太好啦太好啦。
+倒不如说当初因为日本分部整不下去直接全体毕业就是脑瘫决定。我还 ...</blockquote>
+当初…saku 豆芽 斑比 夏老大 鱼都在11区
+就咩一个人回国…加上设备场所技术人员都没着落呢…就硬吊着那几个中之人也不太可能
+现在估计是走lv2d散装路线了  平时在家播  大活动再打飞滴去首都开3d（然后下机被隔离
+
+*****
+
+####  喜闻乐见  
+##### 2165#         楼主| 发表于 2022-10-12 20:06
+
+该双开了
+
+*****
+
+####  isla  
+##### 2166#       发表于 2022-10-12 20:07
+
+聊的这么直白
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  MaxFOrder  
+##### 2167#       发表于 2022-10-12 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57878891&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-10-12 18:32</a>
+
+额，前世也就那样吧，也不算啥大佬。不等到周年就公布我觉得还挺不爽，剩下的直播也没法看了。 ...</blockquote>
+投稿最高播放量一百四十多万，虽然是男偶像圈子的但还是挺可观的吧这些东西<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">只能说厂里后期走的有些路真的太不利于留人了
+
+*****
+
+####  isla  
+##### 2168#       发表于 2022-10-12 20:08
+
+这漏的，厂长今晚不加班我不认可
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黄金鸡屁屁  
+##### 2169#       发表于 2022-10-12 20:09
+
+下午九夏发公告想着准备取关了，nb厂，你让我回旋！
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  黄金鸡屁屁  
+##### 2170#       发表于 2022-10-12 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880215&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-10-12 20:09:42</a>
+下午九夏发公告想着准备取关了，nb厂，你让我回旋！</blockquote>指再也不看皮套人
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
