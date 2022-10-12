@@ -821,3 +821,17 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  nexus1  
+##### 95#       发表于 2022-10-13 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883426&amp;ptid=2099350" target="_blank">克莉丝汀 发表于 2022-10-13 00:20</a>
+
+健身？ 
+
+健身也没到飞行员的专业训练程度  </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">只要浮游炮足够猛,高G机动都省了
+
