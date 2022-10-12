@@ -724,3 +724,21 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 
 这玩意，不是几年前美国和国内就有的玩意，还是记成蜂群了
 
+
+
+*****
+
+####  1694295955  
+##### 84#       发表于 2022-10-13 00:43
+
+三打一造<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nekkihs  
+##### 85#       发表于 2022-10-13 00:46
+
+丁蟹：不用紧张 不用紧张 技术性CG
+
+等到歼20能搭载雪风那才叫好玩
+

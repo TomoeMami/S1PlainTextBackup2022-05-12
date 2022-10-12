@@ -204,3 +204,20 @@ BV1Sd4y1v72d，附上我的录像
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kila31  
+##### 1664#       发表于 2022-10-13 00:44
+
+ 本帖最后由 kila31 于 2022-10-13 00:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57809044&amp;ptid=2027972" target="_blank">扑克脸军曹 发表于 2022-10-8 13:00</a>
+
+第一名是职业选手吧，东京高600pp那台nsx就是他的名字，不知道只是挂个名还是开发的时候找他跑的记录
+
+铃 ...</blockquote>
+塞纳是神没错，但这是 MP4/5 的成绩。1988年他的圈速是 1:41.853。
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
