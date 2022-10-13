@@ -89,3 +89,26 @@
 
 —— 来自 blackshark SHARK KLE-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  要嗝屁了  
+##### 794#       发表于 2022-10-13 22:23
+
+葛茉莉的酒吧第二阶段活动大概是什么样的？
+
+没有概念 据说要花钻石才能拿满奖励
+
+*****
+
+####  要嗝屁了  
+##### 795#       发表于 2022-10-13 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57880063&amp;ptid=2028054" target="_blank">玄冥忌 发表于 2022-10-12 19:59</a>
+
+大佬们求教天平线怎么配装啊，是攻速还是CD好？我临时拖了个殿堂攻速出来但是只有8%攻速感觉效果不明显啊？ ...</blockquote>
+pve最好是黑+红cd pvp是遗迹黄+红攻速
+
+cd有72就能自动遗迹140的老太婆 一点不能少 怎么凑出来都行 我是升级了2个cd T6因西维特
+

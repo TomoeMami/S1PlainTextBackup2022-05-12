@@ -5504,3 +5504,17 @@ preview要有的话真的是应该早要放出来了，歌谭骑士都有了。�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  clover293  
+##### 607#       发表于 2022-10-13 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57896727&amp;ptid=2025548" target="_blank">soli1tude0 发表于 2022-10-13 22:19</a>
+
+对马岛好像有个专场sop
+
+—— 来自 S1Fun</blockquote>
+sop或者showcase过几天会有吧，鲁迅哥不也在暗示寂静岭2。感觉可能showcase会放一段片
+
