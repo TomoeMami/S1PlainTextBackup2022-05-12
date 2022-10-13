@@ -1112,3 +1112,12 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 来玩bgo呗，bgo不叫呼延灼</blockquote>
 不要害人，bgo到时候前辈那大屁股礼装保不定直接给你卡背落地23333
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 3091#       发表于 2022-10-13 14:52
+
+别说先辈的大皮鼓了，黑杯在bgo现在还是大头照呢，一眼看过去还以为是太太Alter从者实装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

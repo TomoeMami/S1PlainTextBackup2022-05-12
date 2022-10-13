@@ -1213,3 +1213,23 @@ https://b23.tv/LtzoJvP
 
 他们算关系户，后来一直给安排的类似宪兵和**警卫队这种岗位
 
+
+
+*****
+
+####  piofg  
+##### 1891#       发表于 2022-10-13 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57889052&amp;ptid=1860817" target="_blank">acg_gyancDF 发表于 2022-10-13 13:44</a>
+我对MUV大概就看过那种视频解说的大概流程，想请问一下男主不应该是二周目的么？为什么这次面对BETA还会被 ...</blockquote>
+每一次战死的恐惧作为潜意识积累在男主的记忆里，每死一次就积累一次，Alternative前其实已经N轮了，只不过男主不记得，但潜意识会保留
+
+*****
+
+####  piofg  
+##### 1892#       发表于 2022-10-13 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57889052&amp;ptid=1860817" target="_blank">acg_gyancDF 发表于 2022-10-13 13:44</a>
+我对MUV大概就看过那种视频解说的大概流程，想请问一下男主不应该是二周目的么？为什么这次面对BETA还会被 ...</blockquote>
+另外Alternative里原本的武（非穿越的那个），为了保护女主被士兵级活吃的，这个恐惧也会积累到穿越武身上
+

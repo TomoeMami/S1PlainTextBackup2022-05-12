@@ -7017,3 +7017,12 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CharlieZ-  
+##### 8183#       发表于 2022-10-13 14:42
+
+所以说是因为星团的商业成绩一直很好吗，还是说三期早就已经决定好了
+
