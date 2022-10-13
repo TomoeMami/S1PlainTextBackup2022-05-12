@@ -256,3 +256,18 @@ BV1Sd4y1v72d，附上我的录像
 
 下次打折想入呢，ps5手柄适配效果好么
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1668#       发表于 2022-10-13 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57884828&amp;ptid=2027972" target="_blank">斯托雷加 发表于 2022-10-13 08:30</a>
+下次打折想入呢，ps5手柄适配效果好么</blockquote>
+根据层主在体验店的感觉，适配不用担心。只不过扳机手感和xbox手柄玩地平线5差别很大。
+
+例如以为踩了刹车但实际上没踩，得再往下按才行。应该是ps5自适应扳机的feature<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -6528,3 +6528,25 @@ SB就是SoftBank，后面接机种
 
 这个企划做的最大的一件好事就是给了两国宅宅不少交流机会吧，这不得发个和平奖。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8137#       发表于 2022-10-13 10:35
+
+草，套起娃了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  沙茶酱  
+##### 8138#       发表于 2022-10-13 10:41
+
+其实我很不同意“星二期结合场外因素，所以评分才这么低，是差但不至于这么低的”这个观点
+
+我反而觉得什么都不知道只看动画的人，会更加否定这动画，逻辑一塌糊涂、人物行动莫名其妙、角色塑造让人生厌，甚至作为卖歌番连歌也不咋地<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不是为了中之人，以及习惯上看完，我绝对不会坚持看完这玩意
+

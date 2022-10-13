@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/外野/1923522[手工耿真爱楼]'
-!!error:id=1923522
