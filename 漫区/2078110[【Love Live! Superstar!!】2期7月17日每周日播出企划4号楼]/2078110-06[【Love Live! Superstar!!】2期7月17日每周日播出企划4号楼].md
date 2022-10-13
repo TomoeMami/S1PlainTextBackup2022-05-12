@@ -7123,3 +7123,22 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 
 其实她们拿到二期12话的剧本就知道要再加人，至少知道结那是要加入。至于再海选一个人，还真有可能生放送前才被告知，毕竟这屑运营什么事都做得出<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a92063256  
+##### 8193#       发表于 2022-10-13 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57889898&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-13 14:39</a>
+
+qq群还是会看到星动画质量不重要还是三次元引人的观点的，这种不少都是现地佬，这辈子看过的动画数 ...</blockquote>
+群里的现地佬表示动画做得挺好，不明白我们为什么生气<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">大概意思就是说动画只是一个背景描述，只要讲完了加人这件事就算是完成了任务
+
+*****
+
+####  darkendless  
+##### 8194#       发表于 2022-10-13 15:50
+
+说白了还是看对动画的重视程度，不在乎的人做成怎样都不在乎的。烂是客观的，发怒是主观的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
