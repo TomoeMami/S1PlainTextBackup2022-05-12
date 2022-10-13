@@ -7456,3 +7456,17 @@ nico的tag<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" 
 
 2022-10-13 23:01 上传
 
+
+
+*****
+
+####  we89623  
+##### 8221#       发表于 2022-10-13 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57896339&amp;ptid=2078110" target="_blank">adw667 发表于 2022-10-13 21:54</a>
+
+齐了，接下来是那套可动的
+
+这一套感觉可的做得最好，恋的崩得最厉害，不过整体都是及格线往上的水平 ...</blockquote>
+这套打歌服太平庸了，我就纳闷了为啥不出ノンフィクション的....一直在等..
+

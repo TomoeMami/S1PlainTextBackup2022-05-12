@@ -8152,3 +8152,12 @@ tmd怎么开始连推都不发了，还是你楼更懂绫总啊
 
 钻石绫证明之战<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  因为你不会  
+##### 14410#       发表于 2022-10-13 23:03
+
+绫总已经不是当年为了晒皮肤才开播的绫总了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

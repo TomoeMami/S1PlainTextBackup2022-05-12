@@ -1221,3 +1221,12 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 只是表现得很逗所以很容易忽视。。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真出现在2.1估计也要跟燕青一样发飙
 
+
+
+*****
+
+####  铁拳圣裁  
+##### 3101#       发表于 2022-10-13 23:05
+
+黄飞虎设定不弱了吧，保底一流中上，有望冲击top的定位
+
