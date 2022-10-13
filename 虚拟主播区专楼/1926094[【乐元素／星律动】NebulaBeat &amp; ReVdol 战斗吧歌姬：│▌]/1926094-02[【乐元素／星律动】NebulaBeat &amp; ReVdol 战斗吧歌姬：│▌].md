@@ -7065,3 +7065,12 @@ syl，算起来鸭鸭其实也没比九夏小多少，看魂号九夏估计是21
 
 两次都是鸭鸭抗大压啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  isla  
+##### 2257#       发表于 2022-10-13 16:58
+
+鸭这个动物，生来就是要抗压的！
+

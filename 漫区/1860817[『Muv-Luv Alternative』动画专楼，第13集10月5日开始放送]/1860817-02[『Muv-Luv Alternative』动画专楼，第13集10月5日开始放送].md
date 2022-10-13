@@ -1243,3 +1243,32 @@ https://b23.tv/LtzoJvP
 印象里有BETA的线不是屏幕发展的不好，驾驶员用的是视网膜投影吗？
 怎么男主坠机后还有“荧幕坏掉了吗”这种话
 
+
+
+*****
+
+####  创始’’’天翔  
+##### 1894#       发表于 2022-10-13 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57891401&amp;ptid=1860817" target="_blank">Kuroe 发表于 2022-10-13 16:10</a>
+
+印象里有BETA的线不是屏幕发展的不好，驾驶员用的是视网膜投影吗？
+
+怎么男主坠机后还有“荧幕坏掉了吗”这 ...</blockquote>
+急起来的话不能当真的
+
+*****
+
+####  创始’’’天翔  
+##### 1895#       发表于 2022-10-13 16:55
+
+<img src="https://img.saraba1st.com/forum/202210/13/165540wmnn7ocm0jecg3wp.png" referrerpolicy="no-referrer">
+
+<strong>Z}VIWJC4~8X$[(81N43AJ2G.png</strong> (32.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 16:55 上传
+
+这段真像被鸡鸭斯操控一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
