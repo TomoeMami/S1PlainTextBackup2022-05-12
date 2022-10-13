@@ -1460,3 +1460,17 @@ Muv-Luv本传的时间线类似这么个关系
 那个怪是点了潜行吗,直接悄无声息的就过去一口嘎嘣脆了</blockquote>
 就是BETA方点出来专门杀人类步兵的小型种，自带雷达和潜行，但是防御力也低到用步枪就能打死。
 
+
+
+*****
+
+####  墨染樱@mt  
+##### 1909#       发表于 2022-10-14 06:15
+
+ 本帖最后由 墨染樱@mt 于 2022-10-14 06:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57898876&amp;ptid=1860817" target="_blank">CharlieZ- 发表于 2022-10-14 01:18</a>
+游戏是多周目？意思是可以死亡回溯吗，那老师不是能救活？</blockquote>
+男主如果在此刻自杀是可以改变世界线的，但是经过后面某个剧情以后这就是最后一周目了，所以没有机会了。而且也只是男主主观的改变世界线，本条世界线是会保留的。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
