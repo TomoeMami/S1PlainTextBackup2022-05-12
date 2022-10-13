@@ -1101,3 +1101,14 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 感觉好兄弟雌堕成离不开自己的大胸大屁股美少女这一点还满色的，就是告诉我她叫呼延灼就有点蚌埠住了[f:053 ...</blockquote>
 来玩bgo呗，bgo不叫呼延灼<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 3090#       发表于 2022-10-13 14:26
+
+<blockquote>ceruleancard 发表于 2022-10-13 14:18
+来玩bgo呗，bgo不叫呼延灼</blockquote>
+不要害人，bgo到时候前辈那大屁股礼装保不定直接给你卡背落地23333
+

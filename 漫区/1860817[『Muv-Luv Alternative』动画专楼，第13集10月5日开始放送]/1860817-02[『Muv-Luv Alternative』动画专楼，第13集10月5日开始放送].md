@@ -1199,3 +1199,17 @@ https://b23.tv/LtzoJvP
 
 我对MUV大概就看过那种视频解说的大概流程，想请问一下男主不应该是二周目的么？为什么这次面对BETA还会被吓成这样？他上周目不是应该和BETA战斗过么？有没有好心的老哥帮我解释一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  轮太  
+##### 1890#       发表于 2022-10-13 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57889052&amp;ptid=1860817" target="_blank">acg_gyancDF 发表于 2022-10-13 13:44</a>
+
+我对MUV大概就看过那种视频解说的大概流程，想请问一下男主不应该是二周目的么？为什么这次面对BETA还会被 ...</blockquote>
+一周目没打过beta
+
+他们算关系户，后来一直给安排的类似宪兵和**警卫队这种岗位
+

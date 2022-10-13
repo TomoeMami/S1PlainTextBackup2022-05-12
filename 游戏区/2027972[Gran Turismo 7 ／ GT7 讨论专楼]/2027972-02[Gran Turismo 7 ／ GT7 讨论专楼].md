@@ -379,3 +379,15 @@ BV1Sd4y1v72d，附上我的录像
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  iou90  
+##### 1678#       发表于 2022-10-13 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887352&amp;ptid=2027972" target="_blank">扑克脸军曹 发表于 2022-10-13 11:31</a>
+
+手柄用的不多，有时候就想着刷个每日抽奖券的时候会拿手柄跑一下x路线，对我来说最难受是高速弯需要微打 ...</blockquote>
+嗯 这里也是挺困难 比如铃鹿 比如富士
+

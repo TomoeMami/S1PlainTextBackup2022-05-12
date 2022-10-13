@@ -902,3 +902,61 @@ rng的问题应该是不要被lgd，og打出脑浆然后被鱼队当经验包吃
 
 再加上凶猛肥宅化后有了偶像包袱
 
+
+
+*****
+
+####  ck4pa  
+##### 113#       发表于 2022-10-13 14:22
+
+克神这么屌吗，记得去年不还是给冠超刷单杀集锦的背景板吗
+
+*****
+
+####  asd235614  
+##### 114#       发表于 2022-10-13 14:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友喜欢克神可能不是因为克神吊，只是想看拆合电锤
+
+*****
+
+####  nowaki  
+##### 115#       发表于 2022-10-13 14:24
+
+克神去年中路不支援，打团反应慢，赢的那把还是惦记他那b电锤拆了合，合了拆，负负得正。
+
+今年的克神和k1依旧很菜，但是后现代主义dota总有你意想不到的赢法。
+
+*****
+
+####  反方向的波  
+##### 116#       发表于 2022-10-13 14:26
+
+<img src="https://p.sda1.dev/7/bce510dadb44c44fb6f9fbeaa9b39809/CMP_20221013142545770.jpg" referrerpolicy="no-referrer">
+这笑容温暖淳真
+
+你⚡️指⚡️尖⚡️跳⚡️动⚡️的⚡️电⚡️光，是⚡️我⚡️永⚡️恒⚡️不⚡️变⚡️的⚡️信⚡️仰
+
+*****
+
+####  walfeds  
+##### 117#       发表于 2022-10-13 14:27
+
+<img src="https://img.saraba1st.com/forum/202210/13/142445s2uzlbtj2uuo9ruj.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20221013142410.png</strong> (61.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 14:24 上传
+
+欧洲浪子刀光哥已经变成USA的形状了（指拍广告<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 118#       发表于 2022-10-13 14:29
+
+<img src="https://p.sda1.dev/7/aac86fdbe4cc377045b175425caa565e/CMP_20221013142841409.jpg" referrerpolicy="no-referrer">
+萌猩球问，小水晶是不是异形片场来的
+
