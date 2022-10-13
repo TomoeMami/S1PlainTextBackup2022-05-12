@@ -315,3 +315,14 @@ DOUBLE DECKER只是同为搭档系列，世界观好像还是不太一样？
 
 看完了，这个企划应该在这结束了吧，噬身之蛇背景太大了，想解决需要几个季的容量，可是虎无了兔残了露娜挂了，最后还给个跟遗照一样的照片……感觉已经被大人们放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梦诗歌雪  
+##### 115#       发表于 2022-10-14 01:42
+
+这结局<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那就有点玄学了
+
+狂徒为啥要自杀我也没看懂，是不是就为了告诉大家我们不打算出第三季了所以干过坏事的人要受惩罚吗。boss组织都没解决，主角却隐退了，就这么断在这种地方，这才叫意难平啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">哪怕顶着前几集那么注水的仰卧起坐剧情我都看完了，对这个系列还是有点感情的
+
