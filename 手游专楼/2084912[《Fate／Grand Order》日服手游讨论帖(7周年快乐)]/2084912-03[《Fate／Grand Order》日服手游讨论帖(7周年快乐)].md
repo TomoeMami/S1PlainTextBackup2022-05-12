@@ -971,3 +971,12 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 先不提打手上的匮乏，绿卡色卡队的相关插件就比另两色少不少。RBA的出现只是说绿卡队可以走别的路但是没有解决绿卡队冲浪的问题。
 
+
+
+*****
+
+####  khxooo  
+##### 3080#       发表于 2022-10-13 10:43
+
+好友的加成礼装一堆三藏或者满破三藏或者太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

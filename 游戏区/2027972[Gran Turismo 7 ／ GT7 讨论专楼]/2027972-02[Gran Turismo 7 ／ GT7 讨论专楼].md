@@ -271,3 +271,16 @@ BV1Sd4y1v72d，附上我的录像
 
 —— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1669#       发表于 2022-10-13 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57884828&amp;ptid=2027972" target="_blank">斯托雷加 发表于 2022-10-13 08:30</a>
+下次打折想入呢，ps5手柄适配效果好么</blockquote>
+油门的效果不错，刹车肯定是不如踏板了
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

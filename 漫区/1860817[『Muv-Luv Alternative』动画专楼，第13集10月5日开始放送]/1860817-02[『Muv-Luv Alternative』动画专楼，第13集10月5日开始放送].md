@@ -1074,3 +1074,27 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 
 这楼里能放原版名场面截图吗，想看看原作的冲击力，动画感觉保守了点
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1881#       发表于 2022-10-13 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57885758&amp;ptid=1860817" target="_blank">CharlieZ- 发表于 2022-10-13 10:03</a>
+这楼里能放原版名场面截图吗，想看看原作的冲击力，动画感觉保守了点</blockquote>
+这个是不适合一般人的，最好是求pm。如果有能力上熊猫站的话也能搜到gamecg
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  再买自检星剁手  
+##### 1882#       发表于 2022-10-13 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57885758&amp;ptid=1860817" target="_blank">CharlieZ- 发表于 2022-10-13 10:03</a>
+这楼里能放原版名场面截图吗，想看看原作的冲击力，动画感觉保守了点</blockquote>
+<img src="https://p.sda1.dev/7/82593ad6d418f390c2ea1b57b89da29b/CMP_20221013104830057.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
