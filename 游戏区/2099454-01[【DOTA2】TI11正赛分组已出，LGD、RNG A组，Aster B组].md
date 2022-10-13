@@ -2811,3 +2811,73 @@ imba都倒闭了不是
 
 理性预计，rng前6，茶队前8，水厂前3
 
+
+
+*****
+
+####  woyzeck  
+##### 307#       发表于 2022-10-13 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57894127&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-13 19:17</a>
+
+可以个寄吧，听到后面发现是集美欲扬先抑</blockquote>
+有没有可能楼友黑ame也不过是集美在欲扬先抑
+
+*****
+
+####  战狼PTSD  
+##### 308#       发表于 2022-10-13 19:27
+
+问题我年年本子都填中国队，还能填谁，别的队也没打的看起来概率大点啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但凡茶茶RNG拿个MAJOR前三我都能吹上天了
+
+*****
+
+####  Kazepollar  
+##### 309#       发表于 2022-10-13 19:27
+
+扬？我把a➗全家骨灰扬了
+
+*****
+
+####  TI三冠王AME  
+##### 310#       发表于 2022-10-13 19:28
+
+可是茶茶真的拿major前三了
+
+*****
+
+####  nowaki  
+##### 311#       发表于 2022-10-13 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57894275&amp;ptid=2099454" target="_blank">战狼PTSD 发表于 2022-10-13 19:27</a>
+
+问题我年年本子都填中国队，还能填谁，别的队也没打的看起来概率大点啊
+
+但凡茶茶RNG拿个MAJOR前三我 ...</blockquote>
+鳖茶真的是major第三
+
+*****
+
+####  Litccc  
+##### 312#       发表于 2022-10-13 19:29
+
+<img src="https://img.saraba1st.com/forum/202210/13/192907dy1yk4yo7zz31x3w.jpg" referrerpolicy="no-referrer">
+
+<strong>8xQjlz-avyiZdT1kShs-14h.jpg</strong> (134.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 19:29 上传
+
+*****
+
+####  战狼PTSD  
+##### 313#       发表于 2022-10-13 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57894291&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-13 19:28</a>
+
+鳖茶真的是major第三</blockquote>
+懂了，这就把作业改了
+
