@@ -882,3 +882,36 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 问一个小时候的街机游戏，纵版打飞机的，也是可以带小飞机，特点是小飞机除了伴飞发弹之外还能输入指令让它 ...</blockquote>
 1945吧，长按子弹，等小飞机在前面集中，再放手就可以了。
 
+
+
+*****
+
+####  yinfu  
+##### 101#       发表于 2022-10-13 08:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再配j20夜间的精神感应框架
+
+*****
+
+####  yinfu  
+##### 102#       发表于 2022-10-13 08:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再配j20夜间的精神感应框架
+
+*****
+
+####  pagedown  
+##### 103#       发表于 2022-10-13 08:15
+
+后座不是还要负责唱歌，哪有那么多时间操纵这玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wszweill  
+##### 104#       发表于 2022-10-13 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881701&amp;ptid=2099350" target="_blank">佐塚間桐 发表于 2022-10-12 08:50</a>
+
+19年国庆当时那个方阵拉出来的就是这个吧？当时还以为是隐形无人机</blockquote>
+不矛盾，和J20一起飞，肯定是隐型无人机，而且地面系统肯定也能操纵（
+

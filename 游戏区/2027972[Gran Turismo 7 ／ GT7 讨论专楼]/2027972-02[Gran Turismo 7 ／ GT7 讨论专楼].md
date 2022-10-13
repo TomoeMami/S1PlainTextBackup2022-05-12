@@ -221,3 +221,29 @@ BV1Sd4y1v72d，附上我的录像
 
 — from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  扑克脸军曹  
+##### 1665#       发表于 2022-10-13 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883646&amp;ptid=2027972" target="_blank">kila31 发表于 2022-10-13 00:44</a>
+
+塞纳是神没错，但这是 MP4/5 的成绩。1988年他的圈速是 1:41.853。
+
+— from Google Pixel 6, Android 13  ...</blockquote>
+原来不是一台车，没看出来
+
+*****
+
+####  扑克脸军曹  
+##### 1666#       发表于 2022-10-13 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881529&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2022-10-12 21:38</a>
+
+我已经躺了
+
+—— 来自 OPPO PDRM00, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+昨晚冲进金牌线歇了，早上上班前看一眼世界纪录已经进了39，卡着点抬线我也跟不动了，社畜还得上班
+

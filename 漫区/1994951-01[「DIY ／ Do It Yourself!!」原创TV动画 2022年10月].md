@@ -1545,3 +1545,23 @@ ED：[https://youtu.be/iAc8yYTVtGE](https://youtu.be/iAc8yYTVtGE)
 官推关注了矶光雄，感觉不仅仅是参与原画那么简单，现在看这片子的背景越来越有矶光雄那味，就是电脑线圈的 ...</blockquote>
 矶光雄自己的个人网站就叫IMAGO-IMAGE（[http://www.lares.dti.ne.jp/~iso-000/index.html](http://www.lares.dti.ne.jp/~iso-000/index.html)），感觉原作里的IMAGO说不定真的是矶光雄，怪不得是科幻世界观……
 
+
+
+*****
+
+####  aa2a7f  
+##### 130#       发表于 2022-10-13 08:18
+
+op旋律好耳熟啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aa2a7f  
+##### 131#       发表于 2022-10-13 08:20
+
+op旋律好耳熟啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
