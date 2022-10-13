@@ -941,3 +941,24 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 后座不是还要负责唱歌，哪有那么多时间操纵这玩意儿</blockquote>
 忽然跳到马裤螺丝去了吗？？
 
+
+
+*****
+
+####  creymorgan  
+##### 108#       发表于 2022-10-13 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57884853&amp;ptid=2099350" target="_blank">龙与俯卧撑 发表于 2022-10-13 08:33</a>
+
+外行觉得有个风险，一个电子干扰是不是都失控了…</blockquote>
+不知道你理解的干扰是不是全频段阻塞干扰里的空间站炸太阳造成的全太阳系EMP
+
+干扰机是无法在广域都提供压制级别的功率的，被干扰了按设定自动跳频即可，压制太容易解决所以电子对抗主流也不是压制了，主流是欺骗，这就由加密技术来对抗。
+
+*****
+
+####  liliaceae  
+##### 109#       发表于 2022-10-13 08:54
+
+这是ffr41带着三架frx99在飞。浮游炮是视频里的轰六挂无人机。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

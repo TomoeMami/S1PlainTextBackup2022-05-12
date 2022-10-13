@@ -6425,3 +6425,21 @@ nico上弹幕已经有人在刷“反人类粪作”了<img src="https://static.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 8128#       发表于 2022-10-13 08:43
+
+其实这片子已经很少能带给我恶心感了，真让我恶心的还是那些企划全肯定厨，人类总是不能相互理解的不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+让我先记录下，等一年还是两年后第三季播完就可以翻出来打脸了。
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8129#       发表于 2022-10-13 08:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">现在还有全肯定厨吗，精神力可以说很强大了
+

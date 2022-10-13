@@ -848,3 +848,17 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3071#       发表于 2022-10-13 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57884428&amp;ptid=2084912" target="_blank">風卷豹 发表于 2022-10-13 07:15</a>
+
+没抽到虞姬礼装，亏惨了
+
+后面不会有安慰呼延灼没鸡儿也挺好的剧情吧</blockquote>
+2破就没鸡真好了
+
