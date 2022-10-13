@@ -5722,3 +5722,16 @@ aok这瓜吃的有点撑，今天发了个拆机视频…
 
 gpd虽然营销low但是也是国内最早做win掌机的厂家吧，我当年买的众筹版win1除了触屏失灵外没啥大毛病还在用来打gal，感觉品控还行
 
+
+
+*****
+
+####  yoyodty  
+##### 461#       发表于 2022-10-13 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57800743&amp;ptid=2086469" target="_blank">requiem116 发表于 2022-10-7 23:03</a>
+研究了一转，steam deck 64g的加上转运，税，换ssd啥的，合计下来也要快4k了？
+
+看了下咸鱼上的奥克5100左右 ...</blockquote>
+用了as我可以负责任的说，没有触摸板的x86掌机都是渣渣
+

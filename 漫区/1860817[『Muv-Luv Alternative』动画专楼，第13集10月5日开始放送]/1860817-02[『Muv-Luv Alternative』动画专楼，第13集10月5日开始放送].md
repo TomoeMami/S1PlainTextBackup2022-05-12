@@ -1143,3 +1143,17 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 —— 来自 OnePlus HD1905,  ...</blockquote>
 血腥程度类似euphoria那种吗，看来只能自己找了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Toby_dak  
+##### 1886#       发表于 2022-10-13 11:41
+
+<blockquote>引用第1879楼CharlieZ-于2022-10-13 11:03发表的  :
+
+这楼里能放原版名场面截图吗，想看看原作的冲击力，动画感觉保守了点</blockquote>
+[https://b23.tv/LtzoJvP](https://b23.tv/LtzoJvP)
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+

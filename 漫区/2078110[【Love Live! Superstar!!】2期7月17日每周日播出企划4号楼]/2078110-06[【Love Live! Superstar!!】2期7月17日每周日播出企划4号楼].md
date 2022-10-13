@@ -6726,3 +6726,15 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 
 宣传期就是好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 8156#       发表于 2022-10-13 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887482&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-10-13 11:40</a>
+开始宣发起来了
+之前其他唱op的会这样频繁上广播吗（普通热度漫改），没关注过这方面</blockquote>
+会的，不如说不在这个时候到处混个脸熟的话，在其他时候收益都不大
+

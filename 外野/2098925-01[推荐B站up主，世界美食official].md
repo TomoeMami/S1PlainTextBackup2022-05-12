@@ -1104,3 +1104,17 @@
 而且文案鸡棒以外，还会根据文 ...</blockquote>
 没有吧，他的视频有印度的，有巴基斯坦的，也有孟加拉国的，都是同样对待。
 
+
+
+*****
+
+####  13号  
+##### 123#       发表于 2022-10-13 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57841203&amp;ptid=2098925" target="_blank">Shills 发表于 2022-10-10 11:41</a>
+
+【学会这套公式，你也是印度厨神-哔哩哔哩】https://b23.tv/LbzoZeY
+
+一期封神</blockquote>
+这集我竟然看过...
+
