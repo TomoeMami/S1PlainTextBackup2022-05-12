@@ -1190,3 +1190,12 @@ https://b23.tv/LtzoJvP
 
 —— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  acg_gyancDF  
+##### 1889#       发表于 2022-10-13 13:44
+
+我对MUV大概就看过那种视频解说的大概流程，想请问一下男主不应该是二周目的么？为什么这次面对BETA还会被吓成这样？他上周目不是应该和BETA战斗过么？有没有好心的老哥帮我解释一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

@@ -6967,3 +6967,19 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 我一直觉得水在国内人气下跌的转折点就是版权炮袭来，当初n组做的视频，基本都是好几十万的播放量，弹幕也是满屏的，等后面n组退了以后，基本就凉了一半了。
 星一期那会好多高播放的切片，以及一个视频能有三四个版本的翻译，现在嘛……不知道能不能算做一个新的转折点了
 
+
+
+*****
+
+####  ads147147  
+##### 8178#       发表于 2022-10-13 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888268&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-13 12:43</a>
+
+顺势看了缪水虹的路人肯定有，但被星直接劝退不进一步了解企划的路人怎么说
+
+非得献祭掉星动画来变 ...</blockquote>
+所以说是事后诸葛亮嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+我估摸着代哥看到星的数据不对头才临时想着赶紧重播缪斯，这有点鸡生蛋蛋生鸡的问题，反正现在就是翻车的状态了，要不顺手补一下不然损失更大。
+
