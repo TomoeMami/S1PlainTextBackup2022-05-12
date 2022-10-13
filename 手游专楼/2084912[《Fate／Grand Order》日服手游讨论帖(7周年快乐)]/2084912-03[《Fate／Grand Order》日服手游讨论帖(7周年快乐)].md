@@ -1164,3 +1164,14 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 别说先辈的大皮鼓了，黑杯在bgo现在还是大头照呢，一眼看过去还以为是太太Alter从者实装了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你觉得这里有人在乎bgo吗？
 
+
+
+*****
+
+####  白金口袋  
+##### 3096#       发表于 2022-10-13 20:26
+
+剧情意外得有意思，虽然是万圣节结局肯定不会太严肃，但我感觉这俩黑影大概是目前所有敌方BOSS里最聪明的
+
+反正对面是主角，是永远打不赢的，那干脆让主角左右互搏自己看戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
