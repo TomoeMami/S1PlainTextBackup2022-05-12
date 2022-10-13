@@ -765,3 +765,107 @@ ta这个版本到底能干嘛，版本初期练了几局，打1打2都嫌废物�
 
 茶进个前四问题不大吧，rng打lgd雪碧og感觉一个都打不过呀，胜者组第一轮碰对面雪碧掉下去应该是这个剧本了
 
+
+
+*****
+
+####  战狼PTSD  
+##### 96#       发表于 2022-10-13 14:04
+
+刘嘉俊真是毛病，为了不想开摄像头直接退出解说了
+
+*****
+
+####  非建政专用号  
+##### 97#       发表于 2022-10-13 14:05
+
+rng的问题应该是不要被lgd，og打出脑浆然后被鱼队当经验包吃了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 98#       发表于 2022-10-13 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888780&amp;ptid=2099454" target="_blank">聚散浮云 发表于 2022-10-13 13:23</a>
+ 来了来了 问题楼里究竟有没有不双修不假赛不看管不毒的纯粮刀狗呢 </blockquote>
+我啊，来了来了
+
+*****
+
+####  天姬Angelotte  
+##### 99#       发表于 2022-10-13 14:05
+
+正赛怎么打？打7个bo2然后进8个胜者组4个败者组？
+
+*****
+
+####  nerugigannte  
+##### 100#       发表于 2022-10-13 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888780&amp;ptid=2099454" target="_blank">聚散浮云 发表于 2022-10-13 13:23</a>
+ 来了来了 问题楼里究竟有没有不双修不假赛不看管不毒的纯粮刀狗呢 </blockquote>
+我啊，来了来了
+
+*****
+
+####  情商  
+##### 101#         楼主| 发表于 2022-10-13 14:06
+
+赛垃圾脸比酆葛都大了，酆葛都妹退
+
+*****
+
+####  nowaki  
+##### 102#       发表于 2022-10-13 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57889397&amp;ptid=2099454" target="_blank">天姬Angelotte 发表于 2022-10-13 14:05</a>
+
+正赛怎么打？打7个bo2然后进8个胜者组4个败者组？</blockquote>
+8胜8败2淘汰
+
+理论上也是有小组赛结束后cn队全部上飞机的剧情。
+
+*****
+
+####  反方向的波  
+##### 103#       发表于 2022-10-13 14:07
+
+有图吗，刘嘉俊现在都肥成艾欧了？
+
+*****
+
+####  nowaki  
+##### 104#       发表于 2022-10-13 14:08
+
+刘嘉骏每晚不是红油抄手就是烧烤，不肥就有鬼了
+
+*****
+
+####  我爱撩菜  
+##### 105#       发表于 2022-10-13 14:09
+
+俺就是 不双修不假赛不看管不毒的纯粮云玩家刀狗  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+话说这几天都是中午之后就不卡了。咋回事啊
+
+*****
+
+####  非建政专用号  
+##### 106#       发表于 2022-10-13 14:11
+
+你楼的夜魇萨特去睡觉了，当然不卡<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 107#         楼主| 发表于 2022-10-13 14:11
+
+讲道理啊，赛垃圾女粉太多了，如果开摄像头掉粉了影响以后直播生机，我支持退出官方解说好吧
+
+*****
+
+####  nowaki  
+##### 108#       发表于 2022-10-13 14:12
+
+鳄鱼mu就不怕吗
+
