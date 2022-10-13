@@ -1781,3 +1781,14 @@ ED做吉他想起这个了
 
 [https://www.bilibili.com/video/BV1DG4y1p78N/](https://www.bilibili.com/video/BV1DG4y1p78N/)
 
+
+
+*****
+
+####  根正苗红  
+##### 149#       发表于 2022-10-14 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57899553&amp;ptid=1994951" target="_blank">劳动塑造人 发表于 2022-10-14 07:00</a>
+既然叫DIY部那就不能局限在木工小玩意儿上，组变速自行车，配设计用PC，手磨镜片道布森啥的都搞起来才有意 ...</blockquote>
+这个diy明显是美式diy。围着居家用品转。不是肥宅diy<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
