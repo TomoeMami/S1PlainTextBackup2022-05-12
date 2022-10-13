@@ -4291,3 +4291,14 @@ dota2怎么分在怀旧里，还是改成pc比较合适吧[@情商](https://bbs.
 
 集美论坛主打的就是一个流量
 
+
+
+*****
+
+####  lyjssj  
+##### 468#       发表于 2022-10-14 06:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">今年隔壁集美已经很收敛了，所以小僵尸小超人小茶叶什么的还能出来探个头
+
+还得是靠雪碧敲了lgd一个3比1
+
