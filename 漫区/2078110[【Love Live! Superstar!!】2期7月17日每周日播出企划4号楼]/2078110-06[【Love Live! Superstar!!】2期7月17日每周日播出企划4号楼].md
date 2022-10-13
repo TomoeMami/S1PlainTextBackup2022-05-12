@@ -6955,3 +6955,15 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Enakina  
+##### 8177#       发表于 2022-10-13 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888687&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-13 13:15</a>
+现在也不需要这样做了，一个加人跑一批一个烂动画再跑一批，版权炮和后疫情时代一铲子挖出来的潜在用户又 ...</blockquote>
+我一直觉得水在国内人气下跌的转折点就是版权炮袭来，当初n组做的视频，基本都是好几十万的播放量，弹幕也是满屏的，等后面n组退了以后，基本就凉了一半了。
+星一期那会好多高播放的切片，以及一个视频能有三四个版本的翻译，现在嘛……不知道能不能算做一个新的转折点了
+

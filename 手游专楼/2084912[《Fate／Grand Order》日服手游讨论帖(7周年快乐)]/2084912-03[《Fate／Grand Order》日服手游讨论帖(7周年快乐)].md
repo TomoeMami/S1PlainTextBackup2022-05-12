@@ -1072,3 +1072,20 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 大肉腿还真有点想抽，但一想到抽了也没材料升，手又放下了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 话说这活动挂人按自动选就完事了吧，感觉以后还会加格子，谁会一个个点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  onemoment  
+##### 3088#       发表于 2022-10-13 13:32
+
+一发十连什么也没有，不信邪用了两张呼符，出了个呼延灼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/13/133151o68868yx4xxz81kx.png" referrerpolicy="no-referrer">
+
+<strong>AD2D6A9D-AEA4-48C2-8AA8-6CF8B8EFCB80.png</strong> (993.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 13:31 上传
+
