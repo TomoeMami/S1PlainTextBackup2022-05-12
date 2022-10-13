@@ -119,3 +119,27 @@
 
 这种宣传模式是感觉发售前才会弄的啊
 
+
+
+*****
+
+####  厄斯沃穆  
+##### 417#         楼主| 发表于 2022-10-13 17:34
+
+招聘<img src="https://p.sda1.dev/7/7b5e53dff806512b3fad782b8537a11d/CMP_20221013173354938.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Evomenon  
+##### 418#       发表于 2022-10-13 17:38
+
+ 本帖最后由 Evomenon 于 2022-10-13 17:40 编辑 
+
+战斗玩法居然有变化，好奇是啥样
+
+其实最主要的玩法还是地图啊，不知道地图还是不是跑团式的 羊皮纸地图+地点+事件的模式
+
+然后发电的图笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
