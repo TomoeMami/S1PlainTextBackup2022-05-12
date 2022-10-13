@@ -1365,3 +1365,12 @@ Muv-Luv本传的时间线类似这么个关系
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  アルメリア  
+##### 1902#       发表于 2022-10-13 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">男主全锅 早点回去老师就不会被吃了
+

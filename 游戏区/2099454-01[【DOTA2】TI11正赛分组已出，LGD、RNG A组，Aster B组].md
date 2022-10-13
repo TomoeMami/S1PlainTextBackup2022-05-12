@@ -3116,3 +3116,87 @@ V社真是艹尼玛了，这么多年没有一键领取也就算了了，老子�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">波高波高，鉴定为很坏很坏的礼盒
 
+
+
+*****
+
+####  没钱买手办  
+##### 342#       发表于 2022-10-13 20:34
+
+<img src="https://img.saraba1st.com/forum/202210/13/203414a9xwwycc46ycpfke.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221013203243.png</strong> (152.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 20:34 上传
+
+1130级终于你妈出了，V社的妈妈保住了
+
+*****
+
+####  sadllk  
+##### 343#       发表于 2022-10-13 20:35
+
+富哥V50
+
+*****
+
+####  情商  
+##### 344#         楼主| 发表于 2022-10-13 20:38
+
+微信支付怎么突然8行了？
+
+<img src="https://img.saraba1st.com/forum/202210/13/203831txpycppkuucc8zh1.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221013204022.png</strong> (14.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 20:38 上传
+
+*****
+
+####  战狼PTSD  
+##### 345#       发表于 2022-10-13 20:40
+
+富哥V50
+
+*****
+
+####  蛭人  
+##### 346#       发表于 2022-10-13 20:40
+
+谁能想到能拉到大巴黎的太后，LGD拉的ti赞助是避孕套，还不止一次，太有内涵了。
+
+*****
+
+####  你可以试试  
+##### 347#       发表于 2022-10-13 20:40
+
+富哥V50
+
+*****
+
+####  情商  
+##### 348#         楼主| 发表于 2022-10-13 20:41
+
+哦牛皮还有这种冲完钱就被红字的游戏，我马上卸载
+
+<img src="https://img.saraba1st.com/forum/202210/13/204051txox6fb2ccmfqcxi.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221013204242.png</strong> (34.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 20:40 上传
+
+*****
+
+####  莉拉厨  
+##### 349#       发表于 2022-10-13 20:42
+
+穷鬼还在用脚本看比例挂刀，富哥们都是直接微信支付冲国服了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
