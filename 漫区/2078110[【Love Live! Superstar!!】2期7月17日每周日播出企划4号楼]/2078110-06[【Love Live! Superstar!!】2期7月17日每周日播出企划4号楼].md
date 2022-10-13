@@ -7096,3 +7096,12 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 所以我说“要是真的”，看她们对结那的态度应该是知道这回事的，但这时候说是才知道……
 总不能薇恩还要继续当对手团吧
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8190#       发表于 2022-10-13 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己能猜到和官方认证还是不一样的吧
+
