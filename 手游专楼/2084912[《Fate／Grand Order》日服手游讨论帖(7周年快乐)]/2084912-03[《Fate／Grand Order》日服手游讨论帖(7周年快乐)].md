@@ -934,3 +934,27 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 「只要用对地方就很强的啦！　只要用对地方！　真的！」
 
+
+
+*****
+
+####  Blackson  
+##### 3077#       发表于 2022-10-13 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879583&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-12 19:22</a>
+ 目前绿卡宝具带50自充的人有骑阿福、骑金时、崔斯坦（带debuff）、杀伽摩、小王子、道满（80）、卡莲（散装 ...</blockquote>
+我个人阴谋论觉得不是设计克制，而就是要让绿卡色卡队比另两色体系队弱一个明显的层级
+
+先不提打手上的匮乏，绿卡色卡队的相关插件就比另两色少不少。RBA的出现只是说绿卡队可以走别的路但是没有解决绿卡队冲浪的问题。
+
+*****
+
+####  Blackson  
+##### 3078#       发表于 2022-10-13 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57879583&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-12 19:22</a>
+ 目前绿卡宝具带50自充的人有骑阿福、骑金时、崔斯坦（带debuff）、杀伽摩、小王子、道满（80）、卡莲（散装 ...</blockquote>
+我个人阴谋论觉得不是设计克制，而就是要让绿卡色卡队比另两色体系队弱一个明显的层级
+
+先不提打手上的匮乏，绿卡色卡队的相关插件就比另两色少不少。RBA的出现只是说绿卡队可以走别的路但是没有解决绿卡队冲浪的问题。
+
