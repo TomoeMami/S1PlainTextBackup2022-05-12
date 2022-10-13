@@ -8151,3 +8151,14 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 
 不过AI僚机依然弱鸡，打BOSS还是秒躺，单机体验还是差了点<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  h122h  
+##### 776#       发表于 2022-10-13 12:36
+
+以下内容需要积分高于 10000 才可浏览
+
+发现DLC3，万代早就做完了。用DLC解锁工具就可以直接玩了……
+
