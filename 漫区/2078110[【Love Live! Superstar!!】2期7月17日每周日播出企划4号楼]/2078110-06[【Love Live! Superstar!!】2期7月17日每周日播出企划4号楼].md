@@ -6780,3 +6780,26 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 
 非得献祭掉星动画来提高别团动画的水准吗，它哪怕是个平庸之作呢？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8160#       发表于 2022-10-13 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887713&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-13 11:55</a>
+
+阿b推送的这个视频的观点很不错，也挺有趣（不过有点马后炮的味道）：
+
+浅聊一下星2为什么这么怪 UP主: 阿青 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">要转化粉丝又何必给星堆资源呢
+
+
+
+*****
+
+####  nufawneafg  
+##### 8161#       发表于 2022-10-13 12:48
+
+喝醉酒翻了车，就不要找补是给辅助驾驶系统喂数据了，车总归是翻了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
