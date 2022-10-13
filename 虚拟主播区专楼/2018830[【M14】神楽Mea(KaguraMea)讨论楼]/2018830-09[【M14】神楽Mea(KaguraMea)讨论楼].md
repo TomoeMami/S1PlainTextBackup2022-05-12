@@ -5708,3 +5708,25 @@ woc 麻
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">又是野男人
 
+
+
+*****
+
+####  往世雷书  
+##### 12598#       发表于 2022-10-13 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57891485&amp;ptid=2018830" target="_blank">十九号大侠 发表于 2022-10-13 16:15</a>
+楼友最近在干什么</blockquote>
+和她有关的就是买了十月live的线上门票，别的好像没啥了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  往世雷书  
+##### 12599#       发表于 2022-10-13 19:32
+
+唉，只能说我和她都有正事要忙，偶像之路注定有得有失，彼此不能像最开始那样自由自在了。但是于我而言始终还是只会看她一个，如果哪天我不看她，也代表我彻底脱离这圈子了，她给不了我的其他人更给不了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

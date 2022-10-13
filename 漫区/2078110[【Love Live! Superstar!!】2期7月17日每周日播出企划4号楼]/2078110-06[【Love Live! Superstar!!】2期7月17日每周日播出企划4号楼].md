@@ -7261,3 +7261,15 @@ BLT不错，比jump的拍得好不少
 
 格局大概扩充到48个
 
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 8205#       发表于 2022-10-13 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57891493&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-10-13 16:15</a>
+中华居然是4棒强打</blockquote>
+花田切腹也是这边的吧
+他们不是说切腹是农药，让本子下手只配斩 首
+
