@@ -3239,3 +3239,39 @@ V社真是艹尼玛了，这么多年没有一键领取也就算了了，老子�
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  逃离二次元  
+##### 355#       发表于 2022-10-13 20:52
+
+穷鬼还在用脚本看比例挂刀，富哥们都是直接微信支付冲国服了
+
+*****
+
+####  walfeds  
+##### 356#       发表于 2022-10-13 20:53
+
+富哥v50
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 357#         楼主| 发表于 2022-10-13 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888726&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-13 13:18</a>
+
+stratz的大数据作业何意啊</blockquote>
+我刚才看了一下我的赛事预测，跟这个差不多 
+
+<img src="https://img.saraba1st.com/forum/202210/13/205440tpjjue2lluk6qyck.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221013205623.png</strong> (62.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 20:54 上传
+
