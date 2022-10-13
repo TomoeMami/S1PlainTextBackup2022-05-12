@@ -5481,3 +5481,26 @@ http://www.of3d.com/about/index.html
 
 国内感觉没音，可能只有review了
 
+
+
+*****
+
+####  clover293  
+##### 605#       发表于 2022-10-13 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57896470&amp;ptid=2025548" target="_blank">SergeGlenn 发表于 2022-10-13 22:01</a>
+
+你说的那是广告，后面肯定会有，另外preview肯定也会有，一般就是离发售一个月内的时候发，就是review的 ...</blockquote>
+preview要有的话真的是应该早要放出来了，歌谭骑士都有了。没有也不是不行吧，对马岛死亡搁浅啥的都没有，也不是不能卖的。
+
+*****
+
+####  soli1tude0  
+##### 606#       发表于 2022-10-13 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57896702&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-13 22:17</a>
+preview要有的话真的是应该早要放出来了，歌谭骑士都有了。没有也不是不行吧，对马岛死亡搁浅啥的都没有 ...</blockquote>
+对马岛好像有个专场sop
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

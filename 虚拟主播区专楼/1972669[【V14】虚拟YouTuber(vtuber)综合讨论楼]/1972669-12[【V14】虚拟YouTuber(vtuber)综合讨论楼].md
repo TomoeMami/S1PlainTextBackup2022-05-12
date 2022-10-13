@@ -11635,3 +11635,12 @@ msr参加喷喷大会，太给面子了
 
 随手点了昨晚的kemt，什么终极怀旧服<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 17567#       发表于 2022-10-13 22:11
+
+可惜，差一颗子弹吃掉cheeky
+

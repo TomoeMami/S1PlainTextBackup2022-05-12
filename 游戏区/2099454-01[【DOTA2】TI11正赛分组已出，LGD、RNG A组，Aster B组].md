@@ -3380,3 +3380,30 @@ stratz的大数据作业何意啊</blockquote>
 
 管人痴是死了吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  情商  
+##### 369#         楼主| 发表于 2022-10-13 22:14
+
+ wiki官号在b站抽本子等级 
+
+https://b23.tv/UMKOQHg
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  12481632  
+##### 370#       发表于 2022-10-13 22:20
+
+注：双修畜、假赛狗、管人痴、毒狗与楼主不得入内
+
+*****
+
+####  反方向的波  
+##### 371#       发表于 2022-10-13 22:21
+
+我劝各位黑子不要逆势而为，早日改邪归正。不然在老干爹现代化doto的滚滚洪流下，只会落得粉身碎骨。
+
