@@ -7179,3 +7179,44 @@ qq群还是会看到星动画质量不重要还是三次元引人的观点的，
 我怎么记得感谢祭的时候说重播无印是为了给SIF2预热来着<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 虽然不太确切了 但我确实记得有类似的说法
 
+
+
+*****
+
+####  saya1892  
+##### 8198#       发表于 2022-10-13 16:15
+
+<blockquote>1二　Eテレのちむどんどん
+
+2一　脚本一般公募
+
+3右　花田切腹
+
+4中　反人類糞作
+
+5三　18.6
+
+6捕　勝手に叶う物語
+
+7左　Kアノン
+
+8遊　そうかな学会
+
+9投　澁谷観音</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中华居然是4棒强打
+
+*****
+
+####  starring  
+##### 8199#       发表于 2022-10-13 16:16
+
+BLT不错，比jump的拍得好不少
+
+*****
+
+####  稀勢のささ  
+##### 8200#       发表于 2022-10-13 16:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打线什么的搞不懂啦
+
