@@ -4360,3 +4360,46 @@ dota2怎么分在怀旧里，还是改成pc比较合适吧[@情商](https://bbs.
 
 皮套痴能不能死啊，包括看中单光一的，滚滚滚。能不能明确一下本楼禁一切管人<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  izayoi39  
+##### 476#       发表于 2022-10-14 07:25
+
+ 本帖最后由 izayoi39 于 2022-10-14 07:29 编辑 
+
+怎么还有那位先生在，那位先生自从股市砸了我都好久没有听说过了
+
+*****
+
+####  nerugigannte  
+##### 477#       发表于 2022-10-14 07:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57899622&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-14 07:25</a>
+ 怎么还有那位先生在，那位先生自从股市砸了我都好久没有听说过了</blockquote>
+不是那位先生，这位y先生也解说了有段年头了吧，那位先生叫yaphets
+
+*****
+
+####  nerugigannte  
+##### 478#       发表于 2022-10-14 07:30
+
+始祖鳖的穴兄弟和小人一起解说是吧
+
+*****
+
+####  izayoi39  
+##### 479#       发表于 2022-10-14 07:32
+
+我的我的，手机看图片看不清楚
+
+*****
+
+####  尖刺外婆  
+##### 480#       发表于 2022-10-14 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57899622&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-14 07:25</a>
+怎么还有那位先生在，那位先生自从股市砸了我都好久没有听说过了</blockquote>
+卜折手断转型晒闺女了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
