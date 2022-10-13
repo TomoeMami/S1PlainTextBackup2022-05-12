@@ -1154,3 +1154,39 @@ ai歌手有了  初音未来啊</blockquote>
 很简单，把操作界面做成吉他形状就行了</blockquote>
 后座除了得是电竞选手操作飞机同时还得是音油玩家和职业偶像歌手是吧，而且必须能一心多用，在战场上要求能同时根据站场情况决策僚机行动，并操作音游键盘弹出旋律（这个也是僚机操作键盘），然后根据弹出的旋律即兴演唱。。这要求不比坐前面的还高了么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哈哈哈就  
+##### 132#       发表于 2022-10-13 09:41
+
+这仨能蓄力攻击不
+
+*****
+
+####  Dasboat  
+##### 133#       发表于 2022-10-13 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57885300&amp;ptid=2099350" target="_blank">蠕动 发表于 2022-10-13 09:24:01</a>
+培养一个战斗机飞行员，消耗的资金，差不多可以接近等身浇筑一个纯金1：1雕像了，拿电竞选手来比战斗机飞 ...</blockquote>后座要求没那么离谱啦，身体素质普通人训练足够时间还是能胜任的，一提起飞行员就扯什么等身黄金的可见地摊杂志流毒之广<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  GMJ  
+##### 134#       发表于 2022-10-13 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57885412&amp;ptid=2099350" target="_blank">悲叹的夜想曲 发表于 2022-10-13 09:35</a>
+
+初音软件本体需要人工去一个一个音来调教，和莎朗比起来是不是差太多了 ...</blockquote>
+总有个发展过程，现在的自机不也不能变形上太空嘛。
+
+*****
+
+####  里村紅葉  
+##### 135#       发表于 2022-10-13 09:54
+
+G-BIT是吧，驾驶员需要NT能力吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

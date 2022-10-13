@@ -6465,3 +6465,25 @@ nico上弹幕已经有人在刷“反人类粪作”了<img src="https://static.
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  saya1892  
+##### 8132#       发表于 2022-10-13 09:53
+
+SB就是SoftBank，后面接机种
+
+顺带一些拉板常见地域 <blockquote>括弧内は各地の名産品です
+
+(こんにゃく：群馬県)(しまむら：埼玉県) (らっかせい：千葉県) (もんじゃ：東京都) (しうまい：神奈川県) (たこやき：大阪府) </blockquote>
+ワッチョイ太长就不贴了，鱼串常见的一些运营商 <blockquote>ｽﾌﾟｰ/ｽﾌﾟｯ        ドコモ スマフォ など
+
+ｵｯﾍﾟｹ        ソフトバンク Android 
+
+ﾜｯﾁｮｲ        その他 (固定回線など)
+
+ｱｳｳｨﾌ        au Wi-Fi SPOT, 旧 LAWSON Wi-Fi
+
+ｿﾗﾉｲﾛ        SORACOM</blockquote>
+
