@@ -1629,3 +1629,32 @@ ED
 <img src="https://p.sda1.dev/7/68c67a49b99ee8e97bd6d09d898d33c0/20221013_212026.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/94e5d00d5aa05875f68cdaf503209ca5/20221013_212027.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 137#         楼主| 发表于 2022-10-13 21:37
+
+[https://twitter.com/dashi_oishi/status/1580479705605890048](https://twitter.com/dashi_oishi/status/1580479705605890048)
+
+改めまして、Do It Yourself!! ‐どぅー・いっと・ゆあせるふのopを少し手伝わせて頂きました！
+
+演出の新井さんに大変お世話になりました……！松尾さんのキャラデザも本当に可愛らしく描いててとても楽しかったです！！
+<img src="https://p.sda1.dev/7/1831ba2812808e6673d12409a8366b0e/Fe796PHUUAAUd__.gif" referrerpolicy="no-referrer">
+
+[https://twitter.com/AzouraArt/status/1580276991864938496](https://twitter.com/AzouraArt/status/1580276991864938496)
+
+I drew 2 cuts on the opening for DIY. I want to give a huge thanks to @Porkkyboy and @christophermyna for the opportunity. As well as the main staff for their patience working with me! 
+<img src="https://p.sda1.dev/7/ed7f51207799c26223cbab33357b3d16/20221013_212855.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/_aniihs_/status/1580219680089731072](https://twitter.com/_aniihs_/status/1580219680089731072)
+
+DIY二話、二原をお手伝いしてました！　かっぽう着たくみんかわいいね…
+<img src="https://p.sda1.dev/7/e34fe29c86f8dedef86d9c206940723d/20221013_212846.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/__ria_iks/status/1580219462678024192](https://twitter.com/__ria_iks/status/1580219462678024192)
+
+#02、色々やってました 有難うございました
+<img src="https://p.sda1.dev/7/f82d3832594b558e4d19b687eeba2530/20221013_212849.jpg" referrerpolicy="no-referrer">
+

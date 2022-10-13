@@ -14239,3 +14239,12 @@ PS：DARIUS系列我只浅玩过CS，欢迎补充
 
 另：锉刀的盘子技能突出一个敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不灭的旋律  
+##### 7387#       发表于 2022-10-13 21:34
+
+FA才出了1/5多一点还不急，倒是AN明年就要做完了，到时候新出的女演员下个月就可以出AN<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
