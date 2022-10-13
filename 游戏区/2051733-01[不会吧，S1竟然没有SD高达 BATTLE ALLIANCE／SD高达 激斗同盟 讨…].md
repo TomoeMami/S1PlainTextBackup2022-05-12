@@ -8162,3 +8162,15 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 
 发现DLC3，万代早就做完了。用DLC解锁工具就可以直接玩了……
 
+
+
+*****
+
+####  920619lqy  
+##### 777#       发表于 2022-10-13 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888179&amp;ptid=2051733" target="_blank">h122h 发表于 2022-10-12 22:36</a>
+
+**** 本内容被作者隐藏 ****</blockquote>
+还有这么好的东西嘛，提前弄出来有什么副作用吗，比如联机的时候
+
