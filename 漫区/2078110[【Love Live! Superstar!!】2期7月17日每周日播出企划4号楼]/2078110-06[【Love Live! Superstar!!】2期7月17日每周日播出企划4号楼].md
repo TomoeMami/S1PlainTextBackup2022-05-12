@@ -6496,3 +6496,35 @@ SB就是SoftBank，后面接机种
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉版泥潭隔这互相套娃，《反人类粪作》链接了两边拉拉宅的心，史称花田外交（smjb
 
+
+
+*****
+
+####  ads147147  
+##### 8134#       发表于 2022-10-13 10:25
+
+【中字】私のSymphony-涩谷香音《LoveLive!Superstar!!》第11话插入歌 UP主: 依然洳雪 https://www.bilibili.com/video/BV1EU4y1F78M
+
+过去的时间甚至不到一年，地下的评论一个个都像是笑话。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+什么都回不来了，包括sayu的声音
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  plazum  
+##### 8135#       发表于 2022-10-13 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57885307&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-13 09:24</a>
+
+仔细想想，更像是尽可能说好话。毕竟技术层面上，大纲层面上星2确实有不少可圈可点的地方，但是也就局限 ...</blockquote>
+大纲层面上星2有什么可圈可点的地方<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  darkendless  
+##### 8136#       发表于 2022-10-13 10:27
+
+这个企划做的最大的一件好事就是给了两国宅宅不少交流机会吧，这不得发个和平奖。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
