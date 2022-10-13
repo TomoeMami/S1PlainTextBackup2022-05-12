@@ -112,3 +112,19 @@ pve最好是黑+红cd pvp是遗迹黄+红攻速
 
 cd有72就能自动遗迹140的老太婆 一点不能少 怎么凑出来都行 我是升级了2个cd T6因西维特
 
+
+
+*****
+
+####  rgauss  
+##### 796#         楼主| 发表于 2022-10-13 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57896782&amp;ptid=2028054" target="_blank">要嗝屁了 发表于 2022-10-13 22:23</a>
+
+葛茉莉的酒吧第二阶段活动大概是什么样的？
+
+没有概念 据说要花钻石才能拿满奖励 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">奖励是不错，任务需要都每天都基本清完，每日任务有时候有消三百钻的。好像不用钻石也用做的差不多。
+
+攻略我给忘了，反正最后奖励是金票
+

@@ -5757,3 +5757,15 @@ woc 麻
 
 忙着用ai生成mea瑟图<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12603#       发表于 2022-10-13 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57896510&amp;ptid=2018830" target="_blank">thisisaspider 发表于 2022-10-13 22:04</a>
+
+忙着用ai生成mea瑟图</blockquote>
+把关键词交出来，省的我重输一遍。
+

@@ -1667,3 +1667,15 @@ DIY二話、二原をお手伝いしてました！　かっぽう着たくみ�
 
 好哎
 
+
+
+*****
+
+####  最强惠酱  
+##### 139#       发表于 2022-10-13 22:58
+
+13小时后见<img src="https://static.saraba1st.com/image/smiley/carton2017/281.png" referrerpolicy="no-referrer">
+江畑好像没有那么晃了
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

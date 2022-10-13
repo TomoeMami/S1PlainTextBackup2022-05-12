@@ -3325,3 +3325,15 @@ AI应该是不会记忆风格的，应该还是prompt的问题吧，加入画师
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  处男鉴黄师  
+##### 262#       发表于 2022-10-13 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57872797&amp;ptid=2098197" target="_blank">提货人 发表于 2022-10-12 11:45</a>
+
+顺便吐个槽，不知道是不是玩过火了，我roll nsfw的时候都是二次元图，想正经roll几张反而都出的2.5次元厚涂 ...</blockquote>
+你用啥模型？原版模型不是二次元，waifu和novelai都是偏二次元的
+
