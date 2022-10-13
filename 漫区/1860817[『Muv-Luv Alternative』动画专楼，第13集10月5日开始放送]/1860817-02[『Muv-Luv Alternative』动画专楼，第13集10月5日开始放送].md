@@ -1157,3 +1157,19 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  CharlieZ-  
+##### 1887#       发表于 2022-10-13 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887506&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-10-13 11:41</a>
+
+https://b23.tv/LtzoJvP
+
+----发送自 Sony J9110,Android 11</blockquote>
+感谢老哥，我超，这画的够细的，难怪都说动画冲击力不够，真按游戏这样画直接r21了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这里算是作者的恶趣味还是说想表达战场残酷之类的
+
