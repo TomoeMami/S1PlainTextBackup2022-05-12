@@ -1068,3 +1068,15 @@
 
 这个up主的文案真的好，都能造出印度蜜蜂这个梗
 
+
+
+*****
+
+####  burgerWang  
+##### 120#       发表于 2022-10-13 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886513&amp;ptid=2098925" target="_blank">可鲁 发表于 2022-10-13 10:50</a>
+
+他是真懂印度美食啊，比如那个饼叫什么，这个食物叫什么，加什么原料都说得明明白白，还对底层人民有着天 ...</blockquote>
+这点确实是最难得的，偶尔还会有正能量的人文关怀
+
