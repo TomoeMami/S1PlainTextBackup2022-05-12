@@ -7505,3 +7505,12 @@ nico的tag<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" 
 
 不过现在谷的重心都在二期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 8224#       发表于 2022-10-13 23:49
+
+ノンフィクション估计要出正式的1/7手办，那衣服做成景品真的能看吗，感觉放远了都不太行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
