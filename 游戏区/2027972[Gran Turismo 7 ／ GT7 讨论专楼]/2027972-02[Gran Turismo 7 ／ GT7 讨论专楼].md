@@ -310,3 +310,38 @@ BV1Sd4y1v72d，附上我的录像
 —— 来自 OPPO PDRM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 作为新人入坑前期用手柄应该还不错吧
 
+
+
+*****
+
+####  扑克脸军曹  
+##### 1672#       发表于 2022-10-13 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886685&amp;ptid=2027972" target="_blank">斯托雷加 发表于 2022-10-13 10:59</a>
+
+作为新人入坑前期用手柄应该还不错吧</blockquote>
+手柄的缺点的是按键行程太短，方向油门刹车需要线性操作的时候不好控制，ps5手柄的自适应扳机可以缓解一部分油门刹车线性控制的问题，算是友好的了
+
+新人入坑确实没必要直接上盘子，要是对不上电波玩不下去就是吃灰的节奏
+
+*****
+
+####  kila31  
+##### 1673#       发表于 2022-10-13 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886674&amp;ptid=2027972" target="_blank">斯托雷加 发表于 2022-10-13 10:59</a>
+我其实没有玩过赛车游戏，gt56在ps3上稍微体验过。不知道震动做的怎么样，听说可以体验到路面摩擦效果 ...</blockquote>
+手柄好用的，动作感应配合线性扳机有点破产版方向盘的意思了，可以做循迹刹车。振动让我印象最深的是轮胎抱死的时候，真的感到揪心。
+
+— from Google Pixel 6, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  iou90  
+##### 1674#       发表于 2022-10-13 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886973&amp;ptid=2027972" target="_blank">扑克脸军曹 发表于 2022-10-13 11:14</a>
+
+手柄的缺点的是按键行程太短，方向油门刹车需要线性操作的时候不好控制，ps5手柄的自适应扳机可以缓解一 ...</blockquote>
+最最明显是回头弯出弯方向的控制...
+

@@ -989,3 +989,15 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 三藏那礼装直接给升了100了，无视防御没准儿以后用的上，酒吞那张可惜了不是纯攻
 
+
+
+*****
+
+####  areklose  
+##### 3082#       发表于 2022-10-13 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886665&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-10-13 10:58</a>
+
+三藏那礼装直接给升了100了，无视防御没准儿以后用的上，酒吞那张可惜了不是纯攻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上次活动高难速杀不就是要无视防御吗
+

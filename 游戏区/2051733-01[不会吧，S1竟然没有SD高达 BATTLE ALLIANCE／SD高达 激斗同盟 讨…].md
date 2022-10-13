@@ -8140,3 +8140,14 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  猪突猛进  
+##### 775#       发表于 2022-10-13 11:20
+
+把更新内容打完了，视角等一些方面的微调还是不错的，还有资金获取增加等，只能说早干嘛去了，如果发卖有这素质不至于褒贬不一。
+
+不过AI僚机依然弱鸡，打BOSS还是秒躺，单机体验还是差了点<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

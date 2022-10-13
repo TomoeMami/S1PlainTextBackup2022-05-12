@@ -7984,3 +7984,23 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">看来发布会那天的评论让miko很受打击啊。分组问题推特空间说了一遍，今天开播开始也说了一遍，现在结束了又给35p说一遍。正巧，我打字时提到那天的评论区事情了。
 
+
+
+*****
+
+####  holoan  
+##### 2262#         楼主| 发表于 2022-10-13 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883897&amp;ptid=2086637" target="_blank">ZQXY2002 发表于 2022-10-13 01:29</a>
+
+看来发布会那天的评论让miko很受打击啊。分组问题推特空间说了一遍，今天开播开始也说了一遍，现在 ...</blockquote>
+说了3遍给你们听看来也没用，到最后你们还是不知道为什么，建议再回去多看几遍好好理解一下
+
+至于评论区关闭是另外一回事，切片都出来了也重新理解一下 [https://youtu.be/v8hOKJ69kbs](https://youtu.be/v8hOKJ69kbs)
+
+如果这个人这么容易受打击早就不办了好吧，这些问题这些人早该预料到了
+
+另外一提这次运营最大的硬伤不在于JP分组问题而在于ENID没有完全邀请，当然本来这个问题miko解释过了但是白皮观众们看起来并不理解，只是不断的复读批判，运营她们全请也不是不全请也不是
+
+所以办大型企划就是这样，你怎么搞都不能让所有观众都满意，真的那么在意负面声音那干脆一开始就别办了
+

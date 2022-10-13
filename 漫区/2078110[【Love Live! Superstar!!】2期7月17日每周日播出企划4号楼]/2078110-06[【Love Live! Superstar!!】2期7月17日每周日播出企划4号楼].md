@@ -6640,3 +6640,25 @@ SB就是SoftBank，后面接机种
 
 普通观众可能不一定有粉丝这么强烈的感受，评价或许不一定给的那么低，更别说和角色厨对比感受了，个人确实觉得粉丝滤镜会存在把好的评价得更好，把差的评价得更差。但是这个也没什么好多说的，如果说一期动画是拉人入坑成粉丝，那么二期动画本身就应该要考虑照顾粉丝的感受<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8147#       发表于 2022-10-13 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886824&amp;ptid=2078110" target="_blank">plazum 发表于 2022-10-13 11:06</a>
+……持保留意见
+
+我觉得在大纲层面上唯一称得上有价值的就是在LL系列中第一次把学园偶像依托于学校社团而 ...</blockquote>
+这个不如说星2直接将“入社团”等于“入Liella!”，这创新嘛…
+
+*****
+
+####  ruffian  
+##### 8148#       发表于 2022-10-13 11:13
+
+如果不结合场外因素，这就是个单纯的烂片，我看几集就不会看了，会一直关注下来并为它痛心疾首就是因为“场外因素”。也就是拉拉这个招牌够亮才会有那么多关注，普通烂片早就淹没在河里无人问津了，可能几年后才会被哪个吐槽up扒出来当乐子槽一期视频
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
