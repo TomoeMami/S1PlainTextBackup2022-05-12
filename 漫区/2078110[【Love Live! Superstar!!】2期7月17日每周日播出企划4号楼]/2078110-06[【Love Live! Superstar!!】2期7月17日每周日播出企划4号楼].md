@@ -7514,3 +7514,22 @@ nico的tag<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" 
 
 ノンフィクション估计要出正式的1/7手办，那衣服做成景品真的能看吗，感觉放远了都不太行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 8225#       发表于 2022-10-14 00:02
+
+[https://twitter.com/imaziro/status/1579806902175035393](https://twitter.com/imaziro/status/1579806902175035393)
+
+あらためまして、ラブライブ ！スーパースター！！2期ありがとうございました
+
+ED2絵コンテ演出、4話8話、リエラのうた、各話サブタイデザインetc…盛りだくさんやらせてもらいました。
+
+みなさまおつかれさまでした！
+<img src="https://p.sda1.dev/7/815826a493328c524d21e0411ec56f57/20221014_000125.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/suzuki_mi_ho_/status/1578313563101630466](https://twitter.com/suzuki_mi_ho_/status/1578313563101630466)
+<img src="https://p.sda1.dev/7/3f43d0093f4760f38b3ded3b9c9e2e3c/20221014_000129.jpg" referrerpolicy="no-referrer">
+
