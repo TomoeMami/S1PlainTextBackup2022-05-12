@@ -6610,3 +6610,33 @@ SB就是SoftBank，后面接机种
 我反而觉得什么 ...</blockquote>
 星二场外薄纱动画啊，场外运营不比动画得劲多了
 
+
+
+*****
+
+####  plazum  
+##### 8144#       发表于 2022-10-13 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886453&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-13 10:47</a>
+
+前提自然是香音传（首先得和美末2一样**自己大脑认可艾比。）从星1的被动，走向星2的主动，不少地方还是 ...</blockquote>
+……持保留意见
+
+我觉得在大纲层面上唯一称得上有价值的就是在LL系列中第一次把学园偶像依托于学校社团而存在并因而会受到新生入学的影响这一点给写了出来
+
+不过目前还只是写了新生加入，要是能写到老生毕业退出就更具有开创性了，不过我想这是不太可能的
+
+*****
+
+####  iuhehc  
+##### 8145#       发表于 2022-10-13 11:06
+
+场外运营也没好到哪里去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，下跪指令，高强度巡演，声优盾，加人什么的
+
+*****
+
+####  aoaoaodedede  
+##### 8146#       发表于 2022-10-13 11:06
+
+普通观众可能不一定有粉丝这么强烈的感受，评价或许不一定给的那么低，更别说和角色厨对比感受了，个人确实觉得粉丝滤镜会存在把好的评价得更好，把差的评价得更差。但是这个也没什么好多说的，如果说一期动画是拉人入坑成粉丝，那么二期动画本身就应该要考虑照顾粉丝的感受<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

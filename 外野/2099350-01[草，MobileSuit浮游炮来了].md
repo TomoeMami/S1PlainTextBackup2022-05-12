@@ -1256,3 +1256,38 @@ nt竟是我自己了
 
 这不是1945的子机吗
 
+
+
+*****
+
+####  体制  
+##### 144#       发表于 2022-10-13 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57882999&amp;ptid=2099350" target="_blank">克莉丝汀 发表于 2022-10-12 23:40</a>
+
+你想多了
+
+几个G的重力加速度，  弱鸡电竞选手能吃得住几个？</blockquote>
+大鞭哥……这位骨折过不行
+
+拳击手……这位是外国人也不行
+
+那好像没有了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  悲叹的夜想曲  
+##### 145#       发表于 2022-10-13 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57885633&amp;ptid=2099350" target="_blank">GMJ 发表于 2022-10-13 09:53</a>
+
+总有个发展过程，现在的自机不也不能变形上太空嘛。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不...我的意思是初音和AI扯不上关系。他的发音是真人录音，音调变化需要手动调教，编曲也是人工编写
+
+*****
+
+####  Fly_Fools  
+##### 146#       发表于 2022-10-13 11:10
+
+后面3个看起来专精对地？
+
