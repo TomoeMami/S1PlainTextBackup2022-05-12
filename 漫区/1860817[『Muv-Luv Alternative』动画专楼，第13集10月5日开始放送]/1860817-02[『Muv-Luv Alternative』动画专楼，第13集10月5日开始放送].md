@@ -1001,3 +1001,14 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 （然后玩玩无声曝光演出）
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">个人觉得动画没啥力度
 
+
+
+*****
+
+####  oskneo  
+##### 1875#       发表于 2022-10-13 07:53
+
+原作全年龄版这段表现如何
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

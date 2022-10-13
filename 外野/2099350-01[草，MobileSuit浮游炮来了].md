@@ -835,3 +835,38 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 健身也没到飞行员的专业训练程度  </blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">只要浮游炮足够猛,高G机动都省了
 
+
+
+*****
+
+####  HughNoman  
+##### 96#       发表于 2022-10-13 07:55
+
+忠诚僚机
+
+*****
+
+####  漫区专号  
+##### 97#       发表于 2022-10-13 07:56
+
+无人机相当于额外的弹仓，而带弹多了就会主要是执行对地任务。而后坐就是控制导弹发射决策的。无人机肯定是AI自主控制伴飞。
+
+*****
+
+####  起飞  
+##### 98#       发表于 2022-10-13 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57881630&amp;ptid=2099350" target="_blank">Freesil 发表于 2022-10-12 21:46</a>
+
+感觉就是射击游戏 副武器+3</blockquote>
+被你这么一说，确实
+
+主飞机旁边三个小飞机，并排在一起射子弹……
+
+*****
+
+####  窗外飞仙  
+##### 99#       发表于 2022-10-13 08:01
+
+后座也用x1x手柄吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
