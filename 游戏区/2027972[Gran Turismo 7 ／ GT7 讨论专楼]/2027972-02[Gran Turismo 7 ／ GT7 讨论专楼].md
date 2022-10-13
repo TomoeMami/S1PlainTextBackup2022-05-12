@@ -410,3 +410,20 @@ BV1Sd4y1v72d，附上我的录像
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1680#       发表于 2022-10-13 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886674&amp;ptid=2027972" target="_blank">斯托雷加 发表于 2022-10-13 10:59</a>
+我其实没有玩过赛车游戏，gt56在ps3上稍微体验过。不知道震动做的怎么样，听说可以体验到路面摩擦效果 ...</blockquote>
+压过道路涂线也是有感觉的。层主体验的时候没感觉出刹车的反馈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，可能是姿势不对
+
+这些担忧可以找附近的电玩体验店解决，实际玩上一小时就知道了。
+
+层主附近的店不光有联网可以玩驾照模式，还有的店提供方向盘，不知道是图马思特哪一款<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
