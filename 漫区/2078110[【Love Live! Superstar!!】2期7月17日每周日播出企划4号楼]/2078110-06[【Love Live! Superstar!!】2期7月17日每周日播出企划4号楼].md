@@ -6452,3 +6452,16 @@ nico上弹幕已经有人在刷“反人类粪作”了<img src="https://static.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我本来还想说漫区是不是比外野稳一点结果往下一拉就看到一串风怒
 
+
+
+*****
+
+####  ads147147  
+##### 8131#       发表于 2022-10-13 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57884965&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-13 08:46</a>
+现在还有全肯定厨吗，精神力可以说很强大了</blockquote>
+仔细想想，更像是尽可能说好话。毕竟技术层面上，大纲层面上星2确实有不少可圈可点的地方，但是也就局限于此了。最多也就说些星3肯定比出国加剧场版好这种不知所谓的话。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

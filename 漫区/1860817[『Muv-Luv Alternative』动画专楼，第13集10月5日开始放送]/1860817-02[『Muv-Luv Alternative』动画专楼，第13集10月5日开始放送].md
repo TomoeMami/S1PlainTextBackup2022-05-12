@@ -1029,3 +1029,39 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 
 按这个走势，估计12集播完得剧场版制作决定才能做完剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1877#       发表于 2022-10-13 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57884561&amp;ptid=1860817" target="_blank">oskneo 发表于 2022-10-13 07:53</a>
+
+原作全年龄版这段表现如何
+
+—— 来自 Sony XQ-AT52, Android 10上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+在原版cg上画了两只白银的手，刚好遮住头被咬后的创口
+
+另外steam版还是原汁原味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+毕竟白皮不管血腥暴力，但是色情很严
+
+*****
+
+####  liwangli1983  
+##### 1878#       发表于 2022-10-13 09:27
+
+动画党，最后来这么一下子吓了一跳，不过原作这么安排剧情也可以理解，按一般套路，主角成长要挫折，要告别导师走向独立
+
+—— 来自 samsung SM-G9910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  liwangli1983  
+##### 1879#       发表于 2022-10-13 09:28
+
+动画党，最后来这么一下子吓了一跳，不过原作这么安排剧情也可以理解，按一般套路，主角成长要挫折，要告别导师走向独立
+
+—— 来自 samsung SM-G9910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

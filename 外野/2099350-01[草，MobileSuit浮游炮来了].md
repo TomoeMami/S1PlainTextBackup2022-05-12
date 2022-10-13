@@ -1090,3 +1090,36 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 
 问题不大，靠唱歌就可以操纵了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GMJ  
+##### 126#       发表于 2022-10-13 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57882156&amp;ptid=2099350" target="_blank">悲叹的夜想曲 发表于 2022-10-12 22:27</a>
+
+快进到AI歌手和人类女制作人争风吃醋</blockquote>
+ai歌手有了  初音未来啊
+
+*****
+
+####  cat1230  
+##### 127#       发表于 2022-10-13 09:30
+
+沙罗曼蛇的僚机，正好也是3个。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  GMJ  
+##### 128#       发表于 2022-10-13 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57882999&amp;ptid=2099350" target="_blank">克莉丝汀 发表于 2022-10-12 23:40</a>
+
+你想多了
+
+几个G的重力加速度，  弱鸡电竞选手能吃得住几个？</blockquote>
+电竞选手当然是坐在地面基地里啦，通过主机的信号接力远程操作
+
