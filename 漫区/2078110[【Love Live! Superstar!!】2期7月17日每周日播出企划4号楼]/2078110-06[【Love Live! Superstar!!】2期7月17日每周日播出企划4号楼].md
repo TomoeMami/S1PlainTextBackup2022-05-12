@@ -6585,3 +6585,28 @@ SB就是SoftBank，后面接机种
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  darkendless  
+##### 8142#       发表于 2022-10-13 10:56
+
+一言蔽之就是烂片，不过除了喜欢动画鉴赏的人，什么都不知道只看动画的人基本不会看或是追完吧，一直觉得在没有其他因素加成下能把烂片从头到尾看完的人挺厉害的。
+
+拉拉动画只有无印2期和星是完整追完的，其他的要么x集直接弃要么追着追着有些集根本忘了看，后面再补。
+
+拉拉企划最吸引我的还是歌曲，世界观本质是给歌曲做加成，所以以前基本不会太在意角色和故事的内容，只有个大概印象。到星才把注意力放到了这些内容上，结果动画就拉了。<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 8143#       发表于 2022-10-13 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886343&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-13 10:41</a>
+
+其实我很不同意“星二期结合场外因素，所以评分才这么低，是差但不至于这么低的”这个观点
+
+我反而觉得什么 ...</blockquote>
+星二场外薄纱动画啊，场外运营不比动画得劲多了
+

@@ -284,3 +284,29 @@ BV1Sd4y1v72d，附上我的录像
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  斯托雷加  
+##### 1670#       发表于 2022-10-13 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886305&amp;ptid=2027972" target="_blank">再买自检星剁手 发表于 2022-10-13 10:39</a>
+
+根据层主在体验店的感觉，适配不用担心。只不过扳机手感和xbox手柄玩地平线5差别很大。
+
+例如以为踩了刹 ...</blockquote>
+我其实没有玩过赛车游戏，gt56在ps3上稍微体验过。不知道震动做的怎么样，听说可以体验到路面摩擦效果
+
+*****
+
+####  斯托雷加  
+##### 1671#       发表于 2022-10-13 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886411&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2022-10-13 10:45</a>
+
+油门的效果不错，刹车肯定是不如踏板了
+
+—— 来自 OPPO PDRM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+作为新人入坑前期用手柄应该还不错吧
+
