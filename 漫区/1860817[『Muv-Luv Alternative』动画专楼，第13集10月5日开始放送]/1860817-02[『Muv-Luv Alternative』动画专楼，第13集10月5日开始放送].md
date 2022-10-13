@@ -1311,3 +1311,30 @@ beta登场的时候还是没什么感觉，觉得还是bgm拉了胯
 
 —— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1899#       发表于 2022-10-13 18:23
+
+ 本帖最后由 吕玲绮的十字戟 于 2022-10-13 18:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57892985&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-13 17:54</a>
+
+白银主观认为自己只是二周目，实际上应该是所有路线都跑过
+
+恐惧beta后期有解释</blockquote>
+确实是二周目
+
+但实际上是所有一周目都跑了
+
+<img src="https://img.saraba1st.com/forum/202210/13/182609jqq0zbzxeb1q081g.png" referrerpolicy="no-referrer">
+
+<strong>时间线关系.png</strong> (88.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 18:26 上传
+
+Muv-Luv本传的时间线类似这么个关系
+

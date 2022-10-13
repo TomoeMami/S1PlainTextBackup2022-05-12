@@ -8174,3 +8174,26 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 **** 本内容被作者隐藏 ****</blockquote>
 还有这么好的东西嘛，提前弄出来有什么副作用吗，比如联机的时候
 
+
+
+*****
+
+####  h122h  
+##### 778#       发表于 2022-10-13 18:25
+
+ 本帖最后由 h122h 于 2022-10-13 18:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57892855&amp;ptid=2051733" target="_blank">920619lqy 发表于 2022-10-13 17:46</a>
+
+还有这么好的东西嘛，提前弄出来有什么副作用吗，比如联机的时候</blockquote>
+没测试多人，也不会去测试，本来就不是什么正规途径搞出来的。但是大概率他也没什么数据检测。单机就是和正常一样玩。B站都一堆视频了。
+
+*****
+
+####  makece  
+##### 779#       发表于 2022-10-13 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57626453&amp;ptid=2051733" target="_blank">ckseng 发表于 2022-9-24 16:30</a>
+
+话说这原来不是代哥的带货游戏 ？玩了一百小时感觉身体里隐藏的胶佬dna开始动了，结果搜了几台sd的模型跟游 ...</blockquote>
+新的那个MGSD会比较像这个游戏里的
+

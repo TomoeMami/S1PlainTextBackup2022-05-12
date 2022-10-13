@@ -1574,3 +1574,14 @@ op旋律好耳熟啊
 
 第二集没字幕 啊，巴哈都没买么
 
+
+
+*****
+
+####  leleq  
+##### 133#       发表于 2022-10-13 18:25
+
+布丁这 古典傲娇 不是oped定死了妥妥败犬役 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这世界观确实像矶光雄 参与度怕是不低
+

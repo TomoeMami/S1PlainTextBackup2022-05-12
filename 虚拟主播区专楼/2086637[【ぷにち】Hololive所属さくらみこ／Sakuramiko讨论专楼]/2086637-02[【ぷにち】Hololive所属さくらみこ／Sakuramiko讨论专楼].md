@@ -8031,3 +8031,30 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别车了，来看miko答题，我先赌个74
 
+
+
+*****
+
+####  holoan  
+##### 2266#         楼主| 发表于 2022-10-13 18:26
+
+你猜错了
+
+是0
+
+*****
+
+####  rs5621  
+##### 2267#       发表于 2022-10-13 18:27
+
+0分真的是超出我的想象，不愧是她了
+
+*****
+
+####  a2276382  
+##### 2268#       发表于 2022-10-13 18:30
+
+这就是零期生前辈么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
