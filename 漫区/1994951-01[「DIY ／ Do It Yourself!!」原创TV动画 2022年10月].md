@@ -1713,3 +1713,19 @@ DIY二話、二原をお手伝いしてました！　かっぽう着たくみ�
 
 大概是战吧逛多了，总觉的布丁不来个捶地哭差点意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  H2Ofrozen  
+##### 143#       发表于 2022-10-14 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57837171&amp;ptid=1994951" target="_blank">pzk 发表于 2022-10-10 01:02</a>
+
+女主完全无法集中注意力的样子确实有点像多动症……而且看着有股莫名其妙的怀旧的沉重和悲伤……
+
+真的很期 ...</blockquote>
+不像是ADHD 个人觉得看起来其实更像是轻度发育迟缓(developmental delay)的症状，比如运动协调性、学习/认知方面的表现
+
+(而且参照临床感觉还意外地设计得挺严谨的。。
+

@@ -1439,3 +1439,12 @@ Muv-Luv本传的时间线类似这么个关系
 
 那个怪是点了潜行吗,直接悄无声息的就过去一口嘎嘣脆了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CharlieZ-  
+##### 1907#       发表于 2022-10-14 01:18
+
+游戏是多周目？意思是可以死亡回溯吗，那老师不是能救活？
+
