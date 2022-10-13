@@ -618,3 +618,23 @@ Switch上也有
 
 剧情先不论，就视频里那些展示感觉很难有什么特色的战场设计或者亮点系统
 
+
+
+*****
+
+####  bwsusaga  
+##### 63#         楼主| 发表于 2022-10-13 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57891436&amp;ptid=2067291" target="_blank">绕指流光 发表于 2022-10-13 16:12</a>
+
+这宣传视频一股说不出来的&amp;#x5 ...</blockquote>
+目前来看属于很正统的古味战棋，
+
+战场上有类似神罪的元素交互系统。
+
+可以转职，职业有熟练度，
+
+职业熟练度高可以学的技能很多，
+
+应该是把FE那种多职业的技能细分划到一个职业里的设计。
+

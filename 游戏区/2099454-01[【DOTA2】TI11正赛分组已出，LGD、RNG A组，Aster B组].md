@@ -1483,3 +1483,60 @@ ti7，大爹是最气的吧，毕竟ti7液体拿冠军大爹一直耿耿于怀�
 
 好，把房子卖了all in液体了，等赚了钱给漏油们发红包
 
+
+
+*****
+
+####  nowaki  
+##### 182#       发表于 2022-10-13 16:24
+
+抬水位的，面八老毒狗了
+
+*****
+
+####  非建政专用号  
+##### 183#       发表于 2022-10-13 16:24
+
+房子多没地方花可以直接发给我的
+
+*****
+
+####  反方向的波  
+##### 184#       发表于 2022-10-13 16:24
+
+反向思考，艹艹是不是要感谢比伯
+
+*****
+
+####  六娃  
+##### 185#       发表于 2022-10-13 16:25
+
+王八一年光嫖娼都要花一两百个
+
+*****
+
+####  非建政专用号  
+##### 186#       发表于 2022-10-13 16:26
+
+问一下，塔子听狗比伯什么冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  masterffzhou  
+##### 187#       发表于 2022-10-13 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57891675&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-13 16:25</a>
+王八一年光嫖娼都要花一两百个</blockquote>
+羡慕啊，有钱真好
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rinne70  
+##### 188#       发表于 2022-10-13 16:28
+
+雪碧还说打不过rng，我手脚也卖了梭哈rng，之后赚回来的装义体
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
