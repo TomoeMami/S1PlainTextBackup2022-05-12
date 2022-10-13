@@ -1759,3 +1759,17 @@ cdpr原案更加压抑，而脱力噶最初构想包括从月球空降、炸了�
 怎么说呢……符合刻板印象？[f:067 ...</blockquote>
 那成连续两年被贴脸了，马上2077……大卫上塔是76年11月，V被开除是77年6月
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 3136#       发表于 2022-10-14 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57587936&amp;ptid=2069884" target="_blank">若菜 发表于 2022-9-21 22:56</a>
+
+日本没啥讨论度 好多人都没看到吧。
+
+向日葵这个盗版站都没人传</blockquote>
+向日葵现在好像只能连接youtube公开视频吧
+

@@ -1448,3 +1448,15 @@ Muv-Luv本传的时间线类似这么个关系
 
 游戏是多周目？意思是可以死亡回溯吗，那老师不是能救活？
 
+
+
+*****
+
+####  半分宅  
+##### 1908#       发表于 2022-10-14 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57898693&amp;ptid=1860817" target="_blank">大丈夫萌大乃 发表于 2022-10-13 12:52</a>
+
+那个怪是点了潜行吗,直接悄无声息的就过去一口嘎嘣脆了</blockquote>
+就是BETA方点出来专门杀人类步兵的小型种，自带雷达和潜行，但是防御力也低到用步枪就能打死。
+
