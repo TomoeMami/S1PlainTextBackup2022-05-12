@@ -1080,3 +1080,27 @@
 他是真懂印度美食啊，比如那个饼叫什么，这个食物叫什么，加什么原料都说得明明白白，还对底层人民有着天 ...</blockquote>
 这点确实是最难得的，偶尔还会有正能量的人文关怀
 
+
+
+*****
+
+####  晃来晃去  
+##### 121#       发表于 2022-10-13 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57853702&amp;ptid=2098925" target="_blank">fault 发表于 2022-10-11 02:22</a>
+
+我还以为是那个抹茶大肠</blockquote>
+我昨天刷到这个了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">这东西人类真的可以吃吗。
+
+*****
+
+####  憂鬱臺灣烏龜  
+##### 122#       发表于 2022-10-13 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57846010&amp;ptid=2098925" target="_blank">3Psm 发表于 2022-10-10 16:12</a>
+
+什么南亚饮食，这位up主态度很明显的，阿三料理跟巴铁料理完全不一样态度。
+
+而且文案鸡棒以外，还会根据文 ...</blockquote>
+没有吧，他的视频有印度的，有巴基斯坦的，也有孟加拉国的，都是同样对待。
+

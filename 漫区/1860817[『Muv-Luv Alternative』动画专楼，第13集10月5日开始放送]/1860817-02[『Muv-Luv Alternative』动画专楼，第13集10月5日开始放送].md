@@ -1129,3 +1129,17 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 
 查看全部评分
 
+
+
+*****
+
+####  CharlieZ-  
+##### 1885#       发表于 2022-10-13 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886388&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-13 10:43</a>
+
+这个是不适合一般人的，最好是求pm。如果有能力上熊猫站的话也能搜到gamecg
+
+—— 来自 OnePlus HD1905,  ...</blockquote>
+血腥程度类似euphoria那种吗，看来只能自己找了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
