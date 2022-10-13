@@ -6443,3 +6443,12 @@ nico上弹幕已经有人在刷“反人类粪作”了<img src="https://static.
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">现在还有全肯定厨吗，精神力可以说很强大了
 
+
+
+*****
+
+####  adw667  
+##### 8130#       发表于 2022-10-13 09:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我本来还想说漫区是不是比外野稳一点结果往下一拉就看到一串风怒
+
