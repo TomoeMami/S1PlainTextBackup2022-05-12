@@ -7142,3 +7142,40 @@ qq群还是会看到星动画质量不重要还是三次元引人的观点的，
 
 说白了还是看对动画的重视程度，不在乎的人做成怎样都不在乎的。烂是客观的，发怒是主观的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 8195#       发表于 2022-10-13 16:05
+
+<img src="https://img.saraba1st.com/forum/202210/13/160455jvdrxmc60wrm8jaz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221013_160412.jpg</strong> (40.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 16:04 上传
+
+新的写真
+
+*****
+
+####  lj205  
+##### 8196#       发表于 2022-10-13 16:09
+
+这个月应该要上的杂志不少，加上连续两个发电子写真集，估计上个月就是在各种拼命拍
+
+*****
+
+####  D麦林  
+##### 8197#       发表于 2022-10-13 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57889114&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-13 13:48</a>
+所以说是事后诸葛亮嘛
+
+我估摸着代哥看到星的数据不对头才临时想着赶紧重播缪斯，这有点鸡生蛋蛋 ...</blockquote>
+和星没关系吧
+我怎么记得感谢祭的时候说重播无印是为了给SIF2预热来着<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+虽然不太确切了 但我确实记得有类似的说法
+
