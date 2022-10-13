@@ -1152,3 +1152,15 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 梁山泊生死有命部喷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3095#       发表于 2022-10-13 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57890109&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-10-13 14:52</a>
+
+别说先辈的大皮鼓了，黑杯在bgo现在还是大头照呢，一眼看过去还以为是太太Alter从者实装了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你觉得这里有人在乎bgo吗？
+

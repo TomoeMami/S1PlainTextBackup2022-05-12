@@ -8013,3 +8013,21 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">你说是就是吧，受打击和抗击打又不矛盾。分组问题别讨论了，我已经看腻了。
 
+
+
+*****
+
+####  holoan  
+##### 2264#         楼主| 发表于 2022-10-13 18:02
+
+​笑えるトラブル！？
+
+你又搞什么飞机出来了
+
+*****
+
+####  rs5621  
+##### 2265#       发表于 2022-10-13 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别车了，来看miko答题，我先赌个74
+

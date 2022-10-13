@@ -163,3 +163,14 @@
 官方微博 Ruina废都物语 从9月21日开始就以解谜的方式定期发放一些游戏相关信息的QA，现将迄今为止的信息总 ...</blockquote>
 官博确定了昨天的答案就是“八连剑阵每一下单独计算，被闪避也可以暴击”
 
+
+
+*****
+
+####  kamarus  
+##### 421#       发表于 2022-10-13 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57892986&amp;ptid=2093296" target="_blank">宛若青空 发表于 2022-10-13 17:54</a>
+官博确定了昨天的答案就是“八连剑阵每一下单独计算，被闪避也可以暴击” ...</blockquote>
+菜刀流的最期<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
