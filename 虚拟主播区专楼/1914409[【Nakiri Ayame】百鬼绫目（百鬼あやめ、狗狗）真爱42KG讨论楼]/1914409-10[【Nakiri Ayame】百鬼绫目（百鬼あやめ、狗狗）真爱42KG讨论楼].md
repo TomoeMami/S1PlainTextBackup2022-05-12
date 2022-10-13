@@ -8097,3 +8097,12 @@ tmd怎么开始连推都不发了，还是你楼更懂绫总啊
 
 已经没有以前那种上opgg窥探绫总lol的热情了……
 
+
+
+*****
+
+####  一仙  
+##### 14405#       发表于 2022-10-13 17:23
+
+网络跟踪狂，堂堂毕业！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

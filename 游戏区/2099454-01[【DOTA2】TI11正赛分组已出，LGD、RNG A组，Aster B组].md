@@ -1999,3 +1999,55 @@ TI5 TI7和去年，伤我更深。TI8、9我反而没多大事。
 
 这个分组是不是下面八拿去小天鹅的钱买了李家坡黑帮啊
 
+
+
+*****
+
+####  lyjssj  
+##### 211#       发表于 2022-10-13 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鳖在算赛前实力了，也就两天了直接看ti就是了
+
+去年算来算去也没算出雪碧杀出来了啊
+
+*****
+
+####  没钱买手办  
+##### 212#       发表于 2022-10-13 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好急，前两周连着酬勤了12天工作病倒了这请了周一周二的假在家，早知道123在公司听比赛，45请假休息了
+
+*****
+
+####  nightmare902015  
+##### 213#       发表于 2022-10-13 17:21
+
+old money下面八：每年嫖娼花费一两百个。
+new money萧瑟：每年泡管人花费一两百个。
+高下立判。
+
+*****
+
+####  百世诸侯  
+##### 214#       发表于 2022-10-13 17:22
+
+什么内卷萨特，我砍
+
+*****
+
+####  walfeds  
+##### 215#       发表于 2022-10-13 17:23
+
+国庆酬勤，一定赚的很多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 216#       发表于 2022-10-13 17:23
+
+国庆酬勤，一定赚的很多吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
