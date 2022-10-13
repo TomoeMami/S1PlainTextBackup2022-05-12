@@ -357,3 +357,25 @@ BV1Sd4y1v72d，附上我的录像
 最最明显是回头弯出弯方向的控制...</blockquote>
 手柄用的不多，有时候就想着刷个每日抽奖券的时候会拿手柄跑一下x路线，对我来说最难受是高速弯需要微打方向的场景，用摇杆基本都是打多了的状态，要不断微调，特别难受
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1676#       发表于 2022-10-13 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886685&amp;ptid=2027972" target="_blank">斯托雷加 发表于 2022-10-13 10:59</a>
+作为新人入坑前期用手柄应该还不错吧</blockquote>
+没问题的，用手柄跑出比我们成绩还好的大有人在
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一个陆仁贾  
+##### 1677#       发表于 2022-10-13 12:21
+
+风怒
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

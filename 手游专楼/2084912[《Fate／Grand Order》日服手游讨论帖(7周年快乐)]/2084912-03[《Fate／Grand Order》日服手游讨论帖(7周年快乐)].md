@@ -1010,3 +1010,46 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 呼延灼语音又是一个直球ml的...你月果然觉得缝合怪非常适合用来卖ml才弄这么多出来吧
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3084#       发表于 2022-10-13 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57886140&amp;ptid=2084912" target="_blank">Blackson 发表于 2022-10-13 10:29</a>
+
+我个人阴谋论觉得不是设计克制，而就是要让绿卡色卡队比另两色体系队弱一个明显的层级
+
+先不提打手上的匮 ...</blockquote>
+其实单从冲浪角度来说，RBA还是优于CBA的，2技能额外提供的15绿卡和20攻能多增加一点回收量。
+
+比如这次活动，术本我用的是一宝太公望带圣诞轨迹，辅助是RBA+CBA的情况，一鞭下去只能回收47，换成双RBA就49甚至50了。
+
+不过绿卡打手还是免不了50NP礼装开局...
+
+除非是设计出能将暴击星转换为NP的拐，创造一个绿卡光炮才能稳定额外充能的情况，不然绿卡会一直很尴尬...
+
+感觉叶良树在很努力地改善自己数值膨胀的坏名声了（仅限绿卡）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 3085#       发表于 2022-10-13 12:19
+
+现在FGO要出一个新英灵，<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+看造型是A，<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+名字是B，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+实际是C，<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+缝合了E，<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+剧情里被F顶号，<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+出了一个G的灵衣，<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+最后羁绊资料5表示ko no D 哒！<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
