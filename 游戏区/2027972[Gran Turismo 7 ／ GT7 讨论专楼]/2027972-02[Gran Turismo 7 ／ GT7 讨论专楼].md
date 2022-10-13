@@ -391,3 +391,22 @@ BV1Sd4y1v72d，附上我的录像
 手柄用的不多，有时候就想着刷个每日抽奖券的时候会拿手柄跑一下x路线，对我来说最难受是高速弯需要微打 ...</blockquote>
 嗯 这里也是挺困难 比如铃鹿 比如富士
 
+
+
+*****
+
+####  扑克脸军曹  
+##### 1679#       发表于 2022-10-13 18:20
+
+<img src="https://img.saraba1st.com/forum/202210/13/181737tl40lgn41hly00y1.jpg" referrerpolicy="no-referrer">
+
+<strong>183d0d8f5a614-screenshotUrl.jpg</strong> (299.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 18:17 上传
+
+刷的最累的一期，最后24小时还在抬线，以前6000名都能金，这次不知道金牌有没有两千人，以后还是刷个银牌得了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
