@@ -8004,3 +8004,12 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 所以办大型企划就是这样，你怎么搞都不能让所有观众都满意，真的那么在意负面声音那干脆一开始就别办了
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2263#       发表于 2022-10-13 12:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">你说是就是吧，受打击和抗击打又不矛盾。分组问题别讨论了，我已经看腻了。
+

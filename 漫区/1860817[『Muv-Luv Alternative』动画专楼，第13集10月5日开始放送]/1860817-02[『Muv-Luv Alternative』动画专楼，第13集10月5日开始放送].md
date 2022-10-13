@@ -1173,3 +1173,20 @@ https://b23.tv/LtzoJvP
 
 这里算是作者的恶趣味还是说想表达战场残酷之类的
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1888#       发表于 2022-10-13 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887696&amp;ptid=1860817" target="_blank">CharlieZ- 发表于 2022-10-13 11:53</a>
+感谢老哥，我超，这画的够细的，难怪都说动画冲击力不够，真按游戏这样画直接r21了吧
+
+这里算是作 ...</blockquote>
+一方面是剧情需要，楼上动画党讲得好。
+
+另一方面做到这个程度属于作者恶趣味。游戏里恶趣味有两处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
