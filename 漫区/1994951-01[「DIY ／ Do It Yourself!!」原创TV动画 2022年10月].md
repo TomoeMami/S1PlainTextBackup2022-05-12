@@ -1759,3 +1759,12 @@ DIY二話、二原をお手伝いしてました！　かっぽう着たくみ�
 
 然后被发了伙伴卡<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  劳动塑造人  
+##### 147#       发表于 2022-10-14 07:00
+
+既然叫DIY部那就不能局限在木工小玩意儿上，组变速自行车，配设计用PC，手磨镜片道布森啥的都搞起来才有意思<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

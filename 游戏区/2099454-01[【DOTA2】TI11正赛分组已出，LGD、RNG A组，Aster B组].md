@@ -4302,3 +4302,12 @@ dota2怎么分在怀旧里，还是改成pc比较合适吧[@情商](https://bbs.
 
 还得是靠雪碧敲了lgd一个3比1
 
+
+
+*****
+
+####  UnhappyTails  
+##### 469#       发表于 2022-10-14 06:55
+
+我建议把复读机封一封，这么喜欢当复读机建议建个qq群<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
