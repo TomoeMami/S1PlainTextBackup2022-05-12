@@ -1121,3 +1121,16 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 别说先辈的大皮鼓了，黑杯在bgo现在还是大头照呢，一眼看过去还以为是太太Alter从者实装了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 3092#       发表于 2022-10-13 15:27
+
+你们别把她当呼延灼
+就把她当看过水浒喜欢呼延灼的恩普萨，见到你就假装自己是呼延灼又忍不住本性的骚鸡不就完了
+
+想舔二次元纸片人哪儿有这么多规矩
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

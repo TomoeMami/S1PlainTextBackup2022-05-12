@@ -1098,3 +1098,34 @@ major和esl这俩都是在同一组吧<img src="https://static.saraba1st.com/ima
 
 2022-10-13 15:15 上传
 
+
+
+*****
+
+####  一品堂官  
+##### 135#       发表于 2022-10-13 15:25
+
+有的，我就是啊。ti10过后入的坑。
+
+*****
+
+####  RaibowDash  
+##### 136#       发表于 2022-10-13 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">希望决赛是LGD对RNG
+
+*****
+
+####  walfeds  
+##### 137#       发表于 2022-10-13 15:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼ent在major和esl上和所有其他b组队都交过手了，唯独和鳖星打了七场
+
+*****
+
+####  星野航  
+##### 138#       发表于 2022-10-13 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">决赛真水厂打rng，那是真吐了
+杀伤力估计比去年水厂夺冠还大
+

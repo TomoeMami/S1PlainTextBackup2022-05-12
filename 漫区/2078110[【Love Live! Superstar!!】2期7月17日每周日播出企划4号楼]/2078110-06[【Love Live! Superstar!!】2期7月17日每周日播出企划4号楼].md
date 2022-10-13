@@ -7105,3 +7105,12 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己能猜到和官方认证还是不一样的吧
 
+
+
+*****
+
+####  ads147147  
+##### 8191#       发表于 2022-10-13 15:32
+
+看鲤鱼他们一直在玩vn梗，感觉也不会意识不到vn是三期生，只不过有些事猜到了没落下石锤前总会心存幻想，比如在星2播出第一集的时候我还对可香抱有幻想。
+
