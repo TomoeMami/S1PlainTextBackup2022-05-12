@@ -1338,3 +1338,19 @@ beta登场的时候还是没什么感觉，觉得还是bgm拉了胯
 
 Muv-Luv本传的时间线类似这么个关系
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1900#       发表于 2022-10-13 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57893043&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-13 17:57</a>
+
+关系户的部分是飞船船票人手一张吧，留在地球不是都到一线战斗么？
+
+—— 来自 OnePlus HD1905, Android  ...</blockquote>
+有票的只有冥夜一个人）
+
+把自己的票给了武，结果武又把票改了给自己心爱的人（根据路线决定）
+
