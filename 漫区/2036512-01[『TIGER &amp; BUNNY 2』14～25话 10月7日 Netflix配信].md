@@ -306,3 +306,12 @@ DOUBLE DECKER只是同为搭档系列，世界观好像还是不太一样？
 
 趴在地上想了想，剧情紧凑点把注水的内容删一删，提前一话打完boss把主线解决完，最后一话描写一下bunny是怎么继续当英雄单打独斗的，危急关头虎彻作为普通人英雄堂堂复活，观感会不会好一点<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人又如何  
+##### 114#       发表于 2022-10-13 22:49
+
+看完了，这个企划应该在这结束了吧，噬身之蛇背景太大了，想解决需要几个季的容量，可是虎无了兔残了露娜挂了，最后还给个跟遗照一样的照片……感觉已经被大人们放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

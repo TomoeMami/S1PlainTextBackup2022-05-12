@@ -8143,3 +8143,12 @@ tmd怎么开始连推都不发了，还是你楼更懂绫总啊
 
 这下不得不看了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Fami水  
+##### 14409#       发表于 2022-10-13 22:48
+
+钻石绫证明之战<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
