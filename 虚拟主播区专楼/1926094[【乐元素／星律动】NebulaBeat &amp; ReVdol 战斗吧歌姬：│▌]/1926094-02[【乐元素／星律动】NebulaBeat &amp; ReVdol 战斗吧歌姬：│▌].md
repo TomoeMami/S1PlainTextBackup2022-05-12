@@ -6994,3 +6994,14 @@ nicole那么讨厌企划，我其实挺理解的。搞点摇滚民谣的都讨�
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  isla  
+##### 2250#       发表于 2022-10-13 13:21
+
+我严重怀疑鸭鸭是当天才知道的，一下干沉默了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
