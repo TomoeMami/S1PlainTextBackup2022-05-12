@@ -2695,3 +2695,62 @@ https://ngabbs.com/read.php?tid=33836523
 
 寄给nowaki之前记得用针扎一下
 
+
+
+*****
+
+####  walfeds  
+##### 293#       发表于 2022-10-13 18:54
+
+反转了，不扎也能出意外的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lyjssj  
+##### 294#       发表于 2022-10-13 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">面8这b去年赛前就不基德，比赛前说什么训练赛输这个输那个，赢了t1以后装起来了“不会以为我们真打不过t1吧”
+
+今年还来什么对液体0%胜率打南美37开讲这种胡逼话。不方便透露可以不说，看好功德归零后gege再给他整个大活
+
+*****
+
+####  resorry  
+##### 295#       发表于 2022-10-13 18:55
+
+好呀，发完红包就搬砖去了，回来发现错过红包了，超哥给爷死
+
+*****
+
+####  resorry  
+##### 296#       发表于 2022-10-13 18:55
+
+ 本帖最后由 resorry 于 2022-10-13 18:57 编辑 
+
+连击刀
+
+*****
+
+####  柚上舍人  
+##### 297#       发表于 2022-10-13 18:58
+
+v我一万买台电脑，开始单排明年去接卡卡的班，拯救西恩DOTA，谢谢
+
+*****
+
+####  米德  
+##### 298#       发表于 2022-10-13 18:59
+
+玉玉了，漏油抢红包太狠了
+
+*****
+
+####  fopinecone  
+##### 299#       发表于 2022-10-13 19:00
+
+建议众筹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

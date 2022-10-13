@@ -14226,3 +14226,16 @@ PS：DARIUS系列我只浅玩过CS，欢迎补充
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">好好往后排排吧，眼瞅着fa都要过半了
 没活了可怎么办呀
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 7386#       发表于 2022-10-13 18:55
+
+[https://colopl.co.jp/alicegearaegis/special/rare_illust_gallery/](https://colopl.co.jp/alicegearaegis/special/rare_illust_gallery/)
+
+阿金把一些线下的官图贴了上来。马鞭草和文嘉<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+另：锉刀的盘子技能突出一个敷衍<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
