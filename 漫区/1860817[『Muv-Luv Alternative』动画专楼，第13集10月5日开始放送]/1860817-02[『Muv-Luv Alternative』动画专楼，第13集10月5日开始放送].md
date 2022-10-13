@@ -1386,3 +1386,34 @@ Muv-Luv本传的时间线类似这么个关系
 男主全锅 早点回去老师就不会被吃了</blockquote>
 但是没有成长event就没有足够觉悟，也没法和纯夏培养足够好感度，大决战就赢不了）
 
+
+
+*****
+
+####  Toby_dak  
+##### 1904#       发表于 2022-10-13 21:45
+
+<img src="https://img.saraba1st.com/forum/202210/13/224501tojffqdf3ttfdp02.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (68.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202210/13/224517s677m7ll68ooznnp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 21:45 上传
+
+<img src="https://img.saraba1st.com/forum/202210/13/224557kgu7gq0oyu3xo74x.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 21:45 上传
+

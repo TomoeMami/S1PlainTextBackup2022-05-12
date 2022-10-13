@@ -3310,3 +3310,20 @@ stratz的大数据作业何意啊</blockquote>
 
 不懂就问，32级是必出的吗
 
+
+
+*****
+
+####  情商  
+##### 361#         楼主| 发表于 2022-10-13 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/13/214710w2ma5t5mmala5mze.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221013214900.png</strong> (54.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 21:47 上传
+
