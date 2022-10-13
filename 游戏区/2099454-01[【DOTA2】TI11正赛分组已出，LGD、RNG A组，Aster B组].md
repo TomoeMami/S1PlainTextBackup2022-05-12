@@ -869,3 +869,36 @@ rng的问题应该是不要被lgd，og打出脑浆然后被鱼队当经验包吃
 
 鳄鱼mu就不怕吗
 
+
+
+*****
+
+####  7450  
+##### 109#       发表于 2022-10-13 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">今年只看TI的云玩家允不允许入内呀
+
+*****
+
+####  walfeds  
+##### 110#       发表于 2022-10-13 14:15
+
+作业2：来自用蒙特卡洛算法搞夺冠概率的分析师，datdota维护者noxville
+[https://www.pinnacle.com/en/espo ... pendium-predictions](https://www.pinnacle.com/en/esports-hub/betting-articles/dota-2/the-international-compendium-predictions)
+
+*****
+
+####  情商  
+##### 111#         楼主| 发表于 2022-10-13 14:16
+
+云玩家可以，别自己支持的队88burden了 学集美到处发电就行
+
+*****
+
+####  TIZI  
+##### 112#       发表于 2022-10-13 14:18
+
+想想昨天链子哥和甲鱼灾难性的搭档解说，刘嘉俊也不是一线选手了，上解说台未必是个好事
+
+再加上凶猛肥宅化后有了偶像包袱
+

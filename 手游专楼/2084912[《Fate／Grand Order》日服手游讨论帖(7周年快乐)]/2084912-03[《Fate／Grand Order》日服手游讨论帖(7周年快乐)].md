@@ -1089,3 +1089,15 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 2022-10-13 13:31 上传
 
+
+
+*****
+
+####  ceruleancard  
+##### 3089#       发表于 2022-10-13 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888483&amp;ptid=2084912" target="_blank">JMFluorece 发表于 2022-10-13 12:58</a>
+
+感觉好兄弟雌堕成离不开自己的大胸大屁股美少女这一点还满色的，就是告诉我她叫呼延灼就有点蚌埠住了[f:053 ...</blockquote>
+来玩bgo呗，bgo不叫呼延灼<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
