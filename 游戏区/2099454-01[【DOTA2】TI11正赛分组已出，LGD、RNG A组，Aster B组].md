@@ -4311,3 +4311,27 @@ dota2怎么分在怀旧里，还是改成pc比较合适吧[@情商](https://bbs.
 
 我建议把复读机封一封，这么喜欢当复读机建议建个qq群<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kazepollar  
+##### 470#       发表于 2022-10-14 07:07
+
+只能说超级集美论坛是这样的，让我觉得点进去肯定全是屎
+
+*****
+
+####  蛭人  
+##### 471#       发表于 2022-10-14 07:10
+
+管人痴都没死，凭什么复读机就不配活？
+
+*****
+
+####  反方向的波  
+##### 472#       发表于 2022-10-14 07:11
+
+<img src="https://p.sda1.dev/7/ce2d6bb0b942ea8cb99629e5fc570ad7/-1472285379.jpg" referrerpolicy="no-referrer">
+睡眼朦胧的窝看到这名单笑清醒了
+
