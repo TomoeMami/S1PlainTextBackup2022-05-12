@@ -870,3 +870,15 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 
 后座也用x1x手柄吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  迷蒙的青山  
+##### 100#       发表于 2022-10-13 08:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57882595&amp;ptid=2099350" target="_blank">烽火连城 发表于 2022-10-12 23:05</a>
+
+问一个小时候的街机游戏，纵版打飞机的，也是可以带小飞机，特点是小飞机除了伴飞发弹之外还能输入指令让它 ...</blockquote>
+1945吧，长按子弹，等小飞机在前面集中，再放手就可以了。
+

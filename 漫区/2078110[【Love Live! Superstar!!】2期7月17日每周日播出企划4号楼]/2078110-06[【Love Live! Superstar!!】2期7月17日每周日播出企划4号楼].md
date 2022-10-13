@@ -6411,3 +6411,17 @@ nico上弹幕已经有人在刷“反人类粪作”了<img src="https://static.
 —— 来自 S1Fun</blockquote>
 那贴的楼主先不谈，另一个叫 SB-Android 的，应该是中国人才会起的ID吧？
 
+
+
+*****
+
+####  iuhehc  
+##### 8127#       发表于 2022-10-13 08:02
+
+ 本帖最后由 iuhehc 于 2022-10-13 08:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883557&amp;ptid=2078110" target="_blank">名津流 发表于 2022-10-13 00:31</a>
+那贴的楼主先不谈，另一个叫 SB-Android 的，应该是中国人才会起的ID吧？</blockquote>
+那个不是id，是运营商+终端的代称吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
