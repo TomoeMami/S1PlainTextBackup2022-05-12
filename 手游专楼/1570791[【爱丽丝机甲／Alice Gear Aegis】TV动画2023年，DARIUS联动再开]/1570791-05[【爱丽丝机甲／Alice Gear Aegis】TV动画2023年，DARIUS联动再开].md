@@ -14257,3 +14257,12 @@ FA才出了1/5多一点还不急，倒是AN明年就要做完了，到时候新�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">意思FA623可以再缓缓是吧（
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 7389#       发表于 2022-10-13 22:31
+
+盘子左下角应该也是一个换皮的位置吧，阿金应该还能整挺久
+

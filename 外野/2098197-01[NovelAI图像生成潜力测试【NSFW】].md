@@ -3314,3 +3314,14 @@ AI应该是不会记忆风格的，应该还是prompt的问题吧，加入画师
 
 有什么关于自残的prompt吗？试了几个没什么效果
 
+
+
+*****
+
+####  果壳中的松鼠  
+##### 261#       发表于 2022-10-13 22:42
+
+有办法让upscaling之后的图变清晰的办法吗？webui出的结果虽然分辨率高了，但感觉还是很糊
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
