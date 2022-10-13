@@ -7026,3 +7026,37 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 
 所以说是因为星团的商业成绩一直很好吗，还是说三期早就已经决定好了
 
+
+
+*****
+
+####  Kfly  
+##### 8184#       发表于 2022-10-13 14:54
+
+怎么想都是早有预谋，但执行期间的自我调节能力实在太差，而计划因为惯性停不下来导致一发不可收拾
+
+9号九人生放（十二集刚播完）结尾non说：“<strong>昨天</strong>得知有第三季和新成员后就一直止不住颤抖”，要真是如此，官方心可真大，就算都猜到会有三期，但这时候才内部通知……
+
+*****
+
+####  梶原ひかり  
+##### 8185#       发表于 2022-10-13 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57889956&amp;ptid=2078110" target="_blank">CharlieZ- 发表于 2022-10-13 14:42</a>
+
+所以说是因为星团的商业成绩一直很好吗，还是说三期早就已经决定好了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">当初企划公布一期人设 全员一年级时候 很多人猜裂啦为了创新 打破缪水 一年级 二年级 三年级都在同一年参加LoveLive的定势 会有升年级 既然升年级 早就决定三期可能性应该非常大
+
+*****
+
+####  yicihanshu  
+##### 8186#       发表于 2022-10-13 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57890135&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-13 14:54</a>
+怎么想都是早有预谋，但执行期间的自我调节能力实在太差，而计划因为惯性停不下来导致一发不可收拾
+
+9号九 ...</blockquote>
+这个时候说怎么也不算迟的，档都没定，人都没选出来呢…
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
