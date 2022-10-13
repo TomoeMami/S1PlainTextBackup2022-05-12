@@ -3680,3 +3680,51 @@ ti10克里斯全程玩电锤都到了败者组再滚，今年b组talon，tsm，f
 知道第一页都是漏油就已经成分有问题了</blockquote>
 首先头像和id有很眼熟的，不眼熟的一翻历史记录卧槽果然是漏油
 
+
+
+*****
+
+####  迷途lite  
+##### 406#       发表于 2022-10-13 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57897562&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-13 23:21</a>
+首先头像和id有很眼熟的，不眼熟的一翻历史记录卧槽果然是漏油</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的意思是点进去看就有问题
+
+*****
+
+####  非建政专用号  
+##### 407#       发表于 2022-10-13 23:24
+
+楼主说你楼没看过管人的可以用石头砸nowaki，漏油应该能用石头把楼主砸死<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 408#       发表于 2022-10-13 23:26
+
+司马完美一边吸dota的血给4+2，一边搞皮套人，比pgl还过分。
+
+*****
+
+####  两三流浪者  
+##### 409#       发表于 2022-10-13 23:27
+
+叫nowaki来sg看看
+
+*****
+
+####  nowaki  
+##### 410#       发表于 2022-10-13 23:27
+
+石片放逐开始了是吧，石头在哪我先砸一个
+
+*****
+
+####  两三流浪者  
+##### 411#       发表于 2022-10-13 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57897618&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-13 23:27</a>
+石片放逐开始了是吧，石头在哪我先砸一个</blockquote>
+感觉你在皮套区讨论刀塔挺好的
+

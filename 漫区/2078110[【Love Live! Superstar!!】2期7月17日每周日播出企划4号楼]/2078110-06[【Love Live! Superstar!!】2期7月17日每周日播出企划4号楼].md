@@ -7487,3 +7487,21 @@ nico的tag<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" 
 
 2022-10-13 23:14 上传
 
+
+
+*****
+
+####  adw667  
+##### 8223#       发表于 2022-10-13 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57897425&amp;ptid=2078110" target="_blank">we89623 发表于 2022-10-13 23:10</a>
+
+这套打歌服太平庸了，我就纳闷了为啥不出ノンフィクション的....一直在等..
+
+ ...</blockquote>
+我倒是更喜欢这种纯白的
+
+ノンフィクション的话我更想要那个皇冠
+
+不过现在谷的重心都在二期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
