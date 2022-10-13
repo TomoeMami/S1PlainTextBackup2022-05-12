@@ -1175,3 +1175,35 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 反正对面是主角，是永远打不赢的，那干脆让主角左右互搏自己看戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rollingusagi  
+##### 3097#       发表于 2022-10-13 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这呼延灼，笑死我了，这性格怎么这么像吻里的梗小姐啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  凌云三才  
+##### 3098#       发表于 2022-10-13 20:47
+
+作为一个水浒和封神都翻烂了的原着党，呼延灼设定烂也就算了，黄飞虎和呼延灼都这么弱，搞得我连打活动的热情都丧失了...
+
+*****
+
+####  gpx234mqx  
+##### 3099#       发表于 2022-10-13 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57895260&amp;ptid=2084912" target="_blank">rollingusagi 发表于 2022-10-13 20:42</a>
+
+这呼延灼，笑死我了，这性格怎么这么像吻里的梗小姐啊
+
+  -- 来自 能看大图的 Stage1官方 Android客 ...</blockquote>
+性格完全是女妖怪的吧
+
+按道理说这完全是获得了呼延灼性能的女妖怪
+

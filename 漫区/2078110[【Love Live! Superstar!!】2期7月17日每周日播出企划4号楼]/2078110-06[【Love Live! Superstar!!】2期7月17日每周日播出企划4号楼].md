@@ -7317,3 +7317,15 @@ BLT不错，比jump的拍得好不少
  ...</blockquote>
 有一说一，as炎上时期在战吧可是有固定帖子的，虹的live（甚至包括小组live）也有专楼，这还是星第一季播前的事情。
 
+
+
+*****
+
+####  星降る森  
+##### 8209#       发表于 2022-10-13 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57895257&amp;ptid=2078110" target="_blank">路过的潜水帝王 发表于 2022-10-13 20:42</a>
+
+有一说一，as炎上时期在战吧可是有固定帖子的，虹的live（甚至包括小组live）也有专楼，这还是星第一季播 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">得了吧，那段时间战吧搬运的AS剧情翻译还是我翻的，我对那贴里的生态可太了解了。现在蹦跶的和早期的压根也不是一群人了，那群扭曲挺好夹脚复读机但凡看过AS剧情的嘴也没那么贱
+
