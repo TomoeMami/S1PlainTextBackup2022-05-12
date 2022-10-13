@@ -1134,3 +1134,12 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 想舔二次元纸片人哪儿有这么多规矩
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sevenight  
+##### 3093#       发表于 2022-10-13 15:40
+
+fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
+

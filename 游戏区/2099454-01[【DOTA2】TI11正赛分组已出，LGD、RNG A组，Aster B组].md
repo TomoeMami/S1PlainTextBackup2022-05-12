@@ -1129,3 +1129,43 @@ major和esl这俩都是在同一组吧<img src="https://static.saraba1st.com/ima
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">决赛真水厂打rng，那是真吐了
 杀伤力估计比去年水厂夺冠还大
 
+
+
+*****
+
+####  朝奈  
+##### 139#       发表于 2022-10-13 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888027&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-13 12:23</a>
+
+做饭阿姨都要特意秀一下雪啤的牌子吗。
+
+牛逼牛逼。有点理解大爹的愤怒了。</blockquote>
+邮局港剧,我见过相对正经的用雪碧做的菜是朝鲜冷面
+
+*****
+
+####  adretyu67  
+##### 140#       发表于 2022-10-13 15:38
+
+理性预计，rng前8，茶队前6，水厂前4.
+
+理想结局是茶队败者组送走水厂挺进前4<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+rng我真想不出一个靠谱的剧本能赢lgd，除非猴爹彻底被打尿了上轮椅，被泰迪对线开始爆杀被打进野抢仙贝的灵芝，撸狗鞭独木难支苦苦gg。
+
+*****
+
+####  战狼PTSD  
+##### 141#       发表于 2022-10-13 15:38
+
+收钱赞助了当然要展示啊，这不废话
+
+*****
+
+####  超法拉  
+##### 142#       发表于 2022-10-13 15:40
+
+希望樱花兄弟抓住最好的机会，实现鳖鳖前队友全比鳖鳖名次好的魔咒(这么说怪怪的)
+哎 机枪兵大q是没机会了
+
