@@ -3604,3 +3604,79 @@ bc小组赛不被淘汰就是胜利
 
 还在克神，克勾！
 
+
+
+*****
+
+####  苏西踩到我了  
+##### 397#       发表于 2022-10-13 23:14
+
+看了个刀塔英雄ai娘化，才意识到屠夫的姿势跟拎裙子一模一样
+
+*****
+
+####  resorry  
+##### 398#       发表于 2022-10-13 23:15
+
+聊完美世界的管人算不算可以统战的管人痴？一刀切所有管人痴是否犯了左倾的错误?
+
+*****
+
+####  nerugigannte  
+##### 399#       发表于 2022-10-13 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57897391&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-13 23:07</a>
+
+好好好，去v版看了一眼专楼都有了，楼主还是天天复读管人痴司马的nowaki</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">能不能解释下，为啥我点进去发现第一页全是漏油
+
+*****
+
+####  蛭人  
+##### 400#       发表于 2022-10-13 23:18
+
+能不能解释下，为啥我点进去发现第一页全是漏油
+
+*****
+
+####  非建政专用号  
+##### 401#       发表于 2022-10-13 23:20
+
+ti10克里斯全程玩电锤都到了败者组再滚，今年b组talon，tsm，fnc这几个b垫着，克神淹死在小组赛我直接反水好伐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 402#       发表于 2022-10-13 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57897524&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-13 23:18</a>
+
+能不能解释下，为啥我点进去发现第一页全是漏油</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">4页翻完了就一个人不是漏油
+
+*****
+
+####  迷途lite  
+##### 403#       发表于 2022-10-13 23:20
+
+知道第一页都是漏油就已经成分有问题了
+
+*****
+
+####  两三流浪者  
+##### 404#       发表于 2022-10-13 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57897532&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-13 23:18</a>
+能不能解释下，为啥我点进去发现第一页全是漏油</blockquote>
+漏油？刀狗里的败类！
+
+*****
+
+####  nerugigannte  
+##### 405#       发表于 2022-10-13 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57897549&amp;ptid=2099454" target="_blank">迷途lite 发表于 2022-10-13 23:20</a>
+
+知道第一页都是漏油就已经成分有问题了</blockquote>
+首先头像和id有很眼熟的，不眼熟的一翻历史记录卧槽果然是漏油
+

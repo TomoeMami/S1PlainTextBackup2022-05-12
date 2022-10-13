@@ -3337,3 +3337,15 @@ AI应该是不会记忆风格的，应该还是prompt的问题吧，加入画师
 顺便吐个槽，不知道是不是玩过火了，我roll nsfw的时候都是二次元图，想正经roll几张反而都出的2.5次元厚涂 ...</blockquote>
 你用啥模型？原版模型不是二次元，waifu和novelai都是偏二次元的
 
+
+
+*****
+
+####  提货人  
+##### 263#       发表于 2022-10-13 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57897322&amp;ptid=2098197" target="_blank">处男鉴黄师 发表于 2022-10-13 23:01</a>
+
+你用啥模型？原版模型不是二次元，waifu和novelai都是偏二次元的</blockquote>
+novelai par2版本，可能是prompt问题吧
+

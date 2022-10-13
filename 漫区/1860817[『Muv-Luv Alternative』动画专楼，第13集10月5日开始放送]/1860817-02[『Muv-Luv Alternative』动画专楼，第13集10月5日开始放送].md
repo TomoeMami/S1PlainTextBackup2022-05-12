@@ -1417,3 +1417,16 @@ Muv-Luv本传的时间线类似这么个关系
 
 2022-10-13 21:45 上传
 
+
+
+*****
+
+####  oskneo  
+##### 1905#       发表于 2022-10-13 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57889052&amp;ptid=1860817" target="_blank">acg_gyancDF 发表于 2022-10-13 13:44</a>
+我对MUV大概就看过那种视频解说的大概流程，想请问一下男主不应该是二周目的么？为什么这次面对BETA还会被 ...</blockquote>
+男主这么怕beta有原因，后面会说，那原因别的片可能会拿几话来说，muv中只是轻描淡写
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
