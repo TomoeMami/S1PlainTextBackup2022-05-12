@@ -1123,3 +1123,34 @@ ai歌手有了  初音未来啊
 几个G的重力加速度，  弱鸡电竞选手能吃得住几个？</blockquote>
 电竞选手当然是坐在地面基地里啦，通过主机的信号接力远程操作
 
+
+
+*****
+
+####  悲叹的夜想曲  
+##### 129#       发表于 2022-10-13 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57885341&amp;ptid=2099350" target="_blank">GMJ 发表于 2022-10-13 09:27</a>
+
+ai歌手有了  初音未来啊</blockquote>
+初音软件本体需要人工去一个一个音来调教，和莎朗比起来是不是差太多了
+
+*****
+
+####  takami  
+##### 130#       发表于 2022-10-13 09:36
+
+我只想说
+
+“小心洛天衣”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GMJ  
+##### 131#       发表于 2022-10-13 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57885105&amp;ptid=2099350" target="_blank">FK2 发表于 2022-10-13 09:03</a>
+
+很简单，把操作界面做成吉他形状就行了</blockquote>
+后座除了得是电竞选手操作飞机同时还得是音油玩家和职业偶像歌手是吧，而且必须能一心多用，在战场上要求能同时根据站场情况决策僚机行动，并操作音游键盘弹出旋律（这个也是僚机操作键盘），然后根据弹出的旋律即兴演唱。。这要求不比坐前面的还高了么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
