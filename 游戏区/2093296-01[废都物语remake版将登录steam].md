@@ -152,3 +152,14 @@
 
 怎么只招这几个职位啊，后悔当初没学点UI
 
+
+
+*****
+
+####  宛若青空  
+##### 420#       发表于 2022-10-13 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57848187&amp;ptid=2093296" target="_blank">厄斯沃穆 发表于 2022-10-10 18:27</a>
+官方微博 Ruina废都物语 从9月21日开始就以解谜的方式定期发放一些游戏相关信息的QA，现将迄今为止的信息总 ...</blockquote>
+官博确定了昨天的答案就是“八连剑阵每一下单独计算，被闪避也可以暴击”
+

@@ -1143,3 +1143,12 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
+
+
+*****
+
+####  里村紅葉  
+##### 3094#       发表于 2022-10-13 17:57
+
+梁山泊生死有命部喷了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
