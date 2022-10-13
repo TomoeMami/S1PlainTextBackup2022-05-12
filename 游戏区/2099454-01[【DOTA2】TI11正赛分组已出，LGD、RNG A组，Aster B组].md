@@ -1,0 +1,579 @@
+
+
+*****
+
+####  情商  
+##### 1#       楼主       发表于 2022-10-13 11:45
+
+ 本帖最后由 情商 于 2022-10-13 11:52 编辑 
+
+注：双修畜、假赛狗、管人痴与毒狗不得入内
+
+<img src="https://img.saraba1st.com/forum/202210/13/110337uibbtsrmi11t3qrg.jpg" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/202210/13/110355loeofo4o2290gxqg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 2#       发表于 2022-10-13 11:47
+
+换新楼啦？刚准备截图发过去
+
+*****
+
+####  情商  
+##### 3#         楼主| 发表于 2022-10-13 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887601&amp;ptid=2099454" target="_blank">我爱撩菜 发表于 2022-10-13 11:47</a>
+
+换新楼啦？刚准备截图发过去</blockquote>
+太卡了哪个楼，编辑半天
+
+*****
+
+####  walfeds  
+##### 4#       发表于 2022-10-13 11:48
+
+注：双修畜、假赛狗、管人痴与毒狗不得入内
+
+*****
+
+####  我爱撩菜  
+##### 5#       发表于 2022-10-13 11:49
+
+我也卡了半天，发现手机还快一点。 换楼的话赶紧加句 ：管人和管人痴勿入 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 6#       发表于 2022-10-13 11:50
+
+话说 看分组，感觉B组更加惨烈一点
+
+*****
+
+####  情商  
+##### 7#         楼主| 发表于 2022-10-13 11:52
+
+换楼后编辑起来不卡了，好起来了好起来了
+
+*****
+
+####  没钱买手办  
+##### 8#       发表于 2022-10-13 11:53
+
+注：双修畜、假赛狗、管人痴与毒狗不得入内
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Bernoulli  
+##### 9#       发表于 2022-10-13 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887613&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-13 11:48</a>
+
+注：双修畜、假赛狗、管人痴与毒狗不得入内</blockquote>
+你们还这么喜欢复读机的话，这楼卡起来也用不了多久。
+
+*****
+
+####  Rinne70  
+##### 10#       发表于 2022-10-13 11:54
+
+怀旧又是个啥
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  啊哈  
+##### 11#       发表于 2022-10-13 11:54
+
+听说基普major升级了，yatoro要是又玉玉了，今年感觉就没队能阻止23458拖着掀背上领奖台了
+
+*****
+
+####  啊哈  
+##### 12#       发表于 2022-10-13 11:55
+
+听说基普major升级了，yatoro要是又玉玉了，今年感觉就没队能阻止23458拖着掀背上领奖台了
+
+*****
+
+####  哈曼的YY  
+##### 13#       发表于 2022-10-13 11:56
+
+草 能不能把干瘪扔b组进败者组啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星野航  
+##### 14#       发表于 2022-10-13 11:56
+
+还有48h就可以看到今年的表演了，所谓无现场解说的ti<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 15#       发表于 2022-10-13 11:59
+
+和一个集美对线 他要我从a牲万评视频里找十几个集美才承认集美有问题
+我发nga那些投票贴给他看 曰“我又不上nga”
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  情商  
+##### 16#         楼主| 发表于 2022-10-13 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887705&amp;ptid=2099454" target="_blank">Rinne70 发表于 2022-10-13 11:54</a>
+
+怀旧又是个啥
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">老游戏可不得怀个旧
+
+*****
+
+####  莉拉厨  
+##### 17#       发表于 2022-10-13 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887726&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-13 11:56</a>
+还有48h就可以看到今年的表演了，所谓无现场解说的ti</blockquote>
+淘汰赛也不去吗，我以为进场馆了肯定要去的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  恐怖利刃  
+##### 18#       发表于 2022-10-13 12:02
+
+#普京加油助力PSG.LGD
+
+*****
+
+####  walfeds  
+##### 19#       发表于 2022-10-13 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887700&amp;ptid=2099454" target="_blank">Bernoulli 发表于 2022-10-13 11:54</a>
+
+你们还这么喜欢复读机的话，这楼卡起来也用不了多久。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">楼主没备注我备注下有什么问题？
+
+泥潭土豆服务器高楼必卡加抽楼都怪复读机？你楼去掉复读能少几页？莫名其妙
+
+*****
+
+####  莉拉厨  
+##### 20#       发表于 2022-10-13 12:02
+
+讲道理卡不是老楼太高的原因，确实是s1服务器顶不住了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 21#         楼主| 发表于 2022-10-13 12:03
+
+有关系的，这个楼就不卡，回复秒出，编辑也是秒编辑
+
+*****
+
+####  TI三冠王AME  
+##### 22#       发表于 2022-10-13 12:04
+
+老干瘪今年没有一点冠军相，在这担心实属多余，目测决赛日都混不进去
+
+*****
+
+####  银翼的维罗西  
+##### 23#       发表于 2022-10-13 12:10
+
+我有个疑问，管人痴不得入内刀楼还能有人吗
+
+*****
+
+####  六娃  
+##### 24#       发表于 2022-10-13 12:10
+
+discuz是这样的，高楼必卡
+
+*****
+
+####  六娃  
+##### 25#       发表于 2022-10-13 12:11
+
+当年做论坛的人也没想到20年后上网冲浪的货这么能水
+
+*****
+
+####  syndrome2032  
+##### 26#       发表于 2022-10-13 12:12
+
+仙贝仙贝，你嘛时候成为刀门第一啊
+
+*****
+
+####  syndrome2032  
+##### 27#       发表于 2022-10-13 12:12
+
+仙贝仙贝，你嘛时候成为刀门第一啊
+
+*****
+
+####  恐怖利刃  
+##### 28#       发表于 2022-10-13 12:13
+
+【【PSG.LGD】出征vlog】 [https://www.bilibili.com/video/BV1uG4y1n7HJ](https://www.bilibili.com/video/BV1uG4y1n7HJ)
+
+*****
+
+####  tasuku  
+##### 29#       发表于 2022-10-13 12:15
+
+纯血中国队冲冲冲！
+
+*****
+
+####  nowaki  
+##### 30#       发表于 2022-10-13 12:21
+
+冰龙铁集美
+
+
+
+*****
+
+####  syndrome2032  
+##### 31#       发表于 2022-10-13 12:23
+
+做饭阿姨都要特意秀一下雪啤的牌子吗。
+
+牛逼牛逼。有点理解大爹的愤怒了。
+
+去年是干煸藕鸡(og)，今年是雪啤(ts)泡鸡吗。
+
+*****
+
+####  阿虚家的三味  
+##### 32#       发表于 2022-10-13 12:23
+
+那么这次还会不会有出去打野全员xbb中招阳性的环节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yozoraxsx  
+##### 33#       发表于 2022-10-13 12:25
+
+弱弱的问一下还有人能进来吗（
+
+*****
+
+####  星野航  
+##### 34#       发表于 2022-10-13 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887776&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-13 13:02</a>
+
+淘汰赛也不去吗，我以为进场馆了肯定要去的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v ...</blockquote>
+有流言说只有第二阶段才去（
+
+这pgl承办属实搞笑东西有点太多
+
+*****
+
+####  星野航  
+##### 35#       发表于 2022-10-13 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887776&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-13 13:02</a>
+
+淘汰赛也不去吗，我以为进场馆了肯定要去的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v ...</blockquote>
+有流言说只有第二阶段才去（
+
+这pgl承办属实搞笑东西有点太多
+
+*****
+
+####  syndrome2032  
+##### 36#       发表于 2022-10-13 12:26
+
+去年中招是鳖茶自己跑出去聚餐，和打野没关系。今年鳖星提早去马来西亚集训，还和雪碧队员换衣服。现在没事应该就是真没事了。
+
+*****
+
+####  IG.430  
+##### 37#       发表于 2022-10-13 12:32
+
+ccnc也在a组啊，看好ccnc吊打霉鳖<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 38#       发表于 2022-10-13 12:33
+
+风怒
+
+*****
+
+####  asaon  
+##### 39#       发表于 2022-10-13 12:38
+
+注：双修畜、假赛狗、管人痴与毒狗不得入内
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">意思是黑话政键人能进啦？
+
+*****
+
+####  jk9hot  
+##### 40#       发表于 2022-10-13 12:40
+
+去年茶这事今年他们应该不敢再乱跑了吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  IG.430  
+##### 41#       发表于 2022-10-13 12:41
+
+你们游戏里读技能有这么仔细就好了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 42#       发表于 2022-10-13 12:42
+
+ 本帖最后由 IG.430 于 2022-10-13 12:45 编辑 
+
+感觉不是高楼的问题啊，就是鼠志豪的服务器上长大闸蟹了
+
+*****
+
+####  a1370303  
+##### 43#       发表于 2022-10-13 12:43
+
+来了来了，茶茶加油<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a1370303  
+##### 44#       发表于 2022-10-13 12:43
+
+蚂蚁连击
+
+*****
+
+####  Litccc  
+##### 45#       发表于 2022-10-13 12:50
+
+别加了，再加真的没有漏油了
+
+*****
+
+####  dev2ce  
+##### 46#       发表于 2022-10-13 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888062&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-13 12:26</a>
+有流言说只有第二阶段才去（
+
+这pgl承办属实搞笑东西有点太多</blockquote>
+pgl是这样的，最近两届csgo major也被喷爆，不过目前办比赛的普遍不行吧，v社又是懒狗一条
+
+*****
+
+####  dclara1  
+##### 47#       发表于 2022-10-13 12:55
+
+注：双修畜、假赛狗、管人痴与毒狗不得入内
+
+*****
+
+####  morwhipppo  
+##### 48#       发表于 2022-10-13 12:55
+
+没比赛摸鱼都没动力了，下午直接请两天的假不想上了
+
+*****
+
+####  米德  
+##### 49#       发表于 2022-10-13 13:03
+
+注：双修畜、假赛狗、管人痴与毒狗不得入内
+
+*****
+
+####  Centrum  
+##### 50#       发表于 2022-10-13 13:04
+
+希望LGD今年再次卫冕成功
+
+*****
+
+####  火鸡味锅巴  
+##### 51#       发表于 2022-10-13 13:06
+
+不装了，我是小超人。
+
+*****
+
+####  usoda  
+##### 52#       发表于 2022-10-13 13:08
+
+不装了，我是小超人。
+
+*****
+
+####  walfeds  
+##### 53#       发表于 2022-10-13 13:10
+
+明年BTS润了不搞刀塔了，不知道哪个怨种来接手独联体和东南亚的dpc
+
+*****
+
+####  yourSwaTer  
+##### 54#       发表于 2022-10-13 13:11
+
+注：双修畜、假赛狗、管人痴与毒狗不得入内
+
+*****
+
+####  TI三冠王AME  
+##### 55#       发表于 2022-10-13 13:14
+
+不装了，我是集美
+
+*****
+
+####  迷途lite  
+##### 56#       发表于 2022-10-13 13:16
+
+不装了，我是小尿布
+
+*****
+
+####  吃货红毛  
+##### 57#       发表于 2022-10-13 13:17
+
+B组看起来惨烈得离谱 A组强度低得离谱
+
+*****
+
+####  两三流浪者  
+##### 58#       发表于 2022-10-13 13:18
+
+小组后两名淘汰吧，等一个憋茶一轮游
+
+*****
+
+####  walfeds  
+##### 59#       发表于 2022-10-13 13:18
+
+<img src="https://img.saraba1st.com/forum/202210/13/131715ip6h6h6nyrmrr2nh.png" referrerpolicy="no-referrer">
+
+<strong>ds2i74lqpgt91.png</strong> (295.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 13:17 上传
+
+stratz的大数据作业<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">何意啊
+
+*****
+
+####  subject07  
+##### 60#       发表于 2022-10-13 13:21
+
+干脆傻狗式复读机也一起禁了吧
+
+
+
+*****
+
+####  聚散浮云  
+##### 61#       发表于 2022-10-13 13:23
+
+来了来了
+问题楼里究竟有没有不双修不假赛不看管不毒的纯粮刀狗呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  六娃  
+##### 62#       发表于 2022-10-13 13:23
+
+核中核消息，明年直接给水厂发冠军
+
+*****
+
+####  dclara1  
+##### 63#       发表于 2022-10-13 13:23
+
+干脆傻狗式复读机也一起禁了吧
+
+*****
+
+####  百世诸侯  
+##### 64#       发表于 2022-10-13 13:25
+
+我真的不双修不假赛不看管不毒，但我有一些别的爱好
+
+*****
+
+####  Litccc  
+##### 65#       发表于 2022-10-13 13:25
+
+有啊，我就是
+
+*****
+
+####  尖刺外婆  
+##### 66#       发表于 2022-10-13 13:25
+
+复读是傻狗的一部分，不得不品尝
+
+*****
+
+####  蛭人  
+##### 67#       发表于 2022-10-13 13:25
+
+有啊，我就是
+
+*****
+
+####  Cookiekira  
+##### 68#       发表于 2022-10-13 13:30
+
+有啊，我就是
+
+*****
+
+####  星野航  
+##### 69#       发表于 2022-10-13 13:30
+
+2w多的楼，差不多有1w是复读，确实该禁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恐怖利刃  
+##### 70#       发表于 2022-10-13 13:31
+
+一路高歌rng，遇上王chu被一个碾翻碾，血崩败者组一轮游。经典再现
+
+*****
+
+####  liva  
+##### 71#       发表于 2022-10-13 13:31
+
+伐木，伐木！
+
