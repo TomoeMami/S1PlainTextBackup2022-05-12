@@ -3284,3 +3284,20 @@ stratz的大数据作业何意啊</blockquote>
 
 完美官方这应援还是一如既往的拉啊，不如狗头人。
 
+
+
+*****
+
+####  情商  
+##### 359#         楼主| 发表于 2022-10-13 21:32
+
+我真是吐了
+
+<img src="https://img.saraba1st.com/forum/202210/13/213230fvimm47og5gisyc5.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221013213414.png</strong> (39.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-13 21:32 上传
+

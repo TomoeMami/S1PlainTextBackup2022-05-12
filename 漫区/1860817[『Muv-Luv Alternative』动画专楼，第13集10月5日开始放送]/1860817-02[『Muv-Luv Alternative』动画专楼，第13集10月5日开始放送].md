@@ -1374,3 +1374,15 @@ Muv-Luv本传的时间线类似这么个关系
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">男主全锅 早点回去老师就不会被吃了
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1903#       发表于 2022-10-13 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57895229&amp;ptid=1860817" target="_blank">アルメリア 发表于 2022-10-13 20:40</a>
+
+男主全锅 早点回去老师就不会被吃了</blockquote>
+但是没有成长event就没有足够觉悟，也没法和纯夏培养足够好感度，大决战就赢不了）
+

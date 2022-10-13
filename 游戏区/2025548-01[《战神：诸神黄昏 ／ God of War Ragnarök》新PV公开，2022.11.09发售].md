@@ -5388,3 +5388,26 @@ Jae Lee，母与子，芙蕾雅与巴德尔
 
 《战神 诸神黄昏》次世代沉浸体验宣传片公开，游戏和PS5同捆公布，将于11月9日推出 http://t.cn/A6oVjG6B ​​​
 
+
+
+*****
+
+####  真实之影  
+##### 596#       发表于 2022-10-13 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57802472&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-8 00:19</a>
+
+居然还有个南京的工作室果然国内外包的血汗
+
+http://www.of3d.com/about/index.html
+
+做动画的 ...</blockquote>
+他们是做动画的，神海4也有他们参与
+
+*****
+
+####  415452356  
+##### 597#       发表于 2022-10-13 21:23
+
+  这个宣传片对比贝姐3真是寒酸，希望媒体评分解禁的时候多放点gameplay画面吧
+

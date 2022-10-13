@@ -1603,3 +1603,29 @@ op旋律好耳熟啊
 
 节奏很悠闲，小予和布丁的互动很好玩，要是后面有刑部尚书环节就满足了
 
+
+
+*****
+
+####  Piano-Forest  
+##### 136#         楼主| 发表于 2022-10-13 21:28
+
+<img src="https://p.sda1.dev/7/d779a2ef3edd043f2008ca30cf616637/h0rAP7HKoxpG7Xf.gif" referrerpolicy="no-referrer">
+
+OP
+<img src="https://p.sda1.dev/7/ceba6345959d542289ccece8a391ad1f/20221013_212030.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/e5503932a3ccd11169d5d41b62029712/20221013_212031.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/c2d28457ff435933f7d7fc07857b0029/20221013_212032.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/25be61e51700f333ae39dcbecdb5f4b1/20221013_212034.jpg" referrerpolicy="no-referrer">
+
+ED
+<img src="https://p.sda1.dev/7/251106b3ca5e95c8068a4a96298ddb83/20221013_212040.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/1998fd84bc0f1a20dd125ce5d9b51d6c/20221013_212042.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/16dc2bb0b4c16830aff43befc04595e0/20221013_212044.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/11b350f3ea365968ae77a46afe3fe806/20221013_212045.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/7/8bb47e0a02fd5ecb516f604593cfbae5/20221013_212022.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/754486920abde83fe7ec61e5720ae3f9/20221013_212024.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/68c67a49b99ee8e97bd6d09d898d33c0/20221013_212026.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/94e5d00d5aa05875f68cdaf503209ca5/20221013_212027.jpg" referrerpolicy="no-referrer">
+
