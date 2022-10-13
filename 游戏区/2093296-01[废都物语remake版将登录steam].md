@@ -225,3 +225,16 @@
 
 现在才开始招人做有点不安啊，希望能把握好团队的厨力和能力吧<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宛若青空  
+##### 427#       发表于 2022-10-13 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57894674&amp;ptid=2093296" target="_blank">Hqchan 发表于 2022-10-13 19:57</a>
+捏脸应该也就是那几个部位来回换配件这种程度吧
+
+现在才开始招人做有点不安啊，希望能把握好团队的厨力和能 ...</blockquote>
+加人而已，不如说目前的可能进度可能比预想中的还好些。
+
