@@ -862,3 +862,17 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 后面不会有安慰呼延灼没鸡儿也挺好的剧情吧</blockquote>
 2破就没鸡真好了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3072#       发表于 2022-10-13 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57884428&amp;ptid=2084912" target="_blank">風卷豹 发表于 2022-10-13 07:15</a>
+
+没抽到虞姬礼装，亏惨了
+
+后面不会有安慰呼延灼没鸡儿也挺好的剧情吧</blockquote>
+2破就没鸡真好了
+

@@ -962,3 +962,28 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 
 这是ffr41带着三架frx99在飞。浮游炮是视频里的轰六挂无人机。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lenin  
+##### 110#       发表于 2022-10-13 08:59
+
+沙   罗   曼   蛇！
+
+*****
+
+####  cat339  
+##### 111#       发表于 2022-10-13 09:00
+
+前座踩油门算力加大, 后座输咒语炼金轰炸<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FK2  
+##### 112#       发表于 2022-10-13 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57884908&amp;ptid=2099350" target="_blank">天野银次X美堂蛮 发表于 2022-10-13 08:40</a>
+忽然跳到马裤螺丝去了吗？？</blockquote>
+很简单，把操作界面做成吉他形状就行了
+
