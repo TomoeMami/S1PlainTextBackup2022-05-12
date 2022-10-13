@@ -6887,3 +6887,22 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Enakina  
+##### 8170#       发表于 2022-10-13 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888544&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-10-13 13:04</a>
+最搞的是，就我看到的情况，星团动画起码对水虹动画有着极大的裨益
+因为大部分路人会选择时代相近的 ...</blockquote>
+水动画当年都骂成什么b样了，这还转正了我是没想到的，真就全靠同行衬托了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 8171#       发表于 2022-10-13 13:11
+
+星凭啥就得是个垫子？又不是我让它烂的，这不纯纯的搞对立？企划真这么想还想引流，我直接一个大字报挂出来警钟敲烂：“星往后每一代团都可能只是个拿来当前辈垫子的工具，慎入”
+
