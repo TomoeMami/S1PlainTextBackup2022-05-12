@@ -4335,3 +4335,28 @@ dota2怎么分在怀旧里，还是改成pc比较合适吧[@情商](https://bbs.
 <img src="https://p.sda1.dev/7/ce2d6bb0b942ea8cb99629e5fc570ad7/-1472285379.jpg" referrerpolicy="no-referrer">
 睡眼朦胧的窝看到这名单笑清醒了
 
+
+
+*****
+
+####  情商  
+##### 473#         楼主| 发表于 2022-10-14 07:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57898275&amp;ptid=2099454" target="_blank">AIDSL 发表于 2022-10-14 00:16</a>
+说真的，两套都没之前的普通的好看</blockquote>
+是的，都不去忘却之命
+
+*****
+
+####  情商  
+##### 474#         楼主| 发表于 2022-10-14 07:20
+
+一觉醒来又看到管人痴互相沙马，太可怕了
+
+*****
+
+####  Kazepollar  
+##### 475#       发表于 2022-10-14 07:21
+
+皮套痴能不能死啊，包括看中单光一的，滚滚滚。能不能明确一下本楼禁一切管人<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
