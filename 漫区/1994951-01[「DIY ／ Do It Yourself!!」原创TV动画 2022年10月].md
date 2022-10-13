@@ -1688,3 +1688,28 @@ DIY二話、二原をお手伝いしてました！　かっぽう着たくみ�
 
 布丁这个看着小团队一脸酸鸡的样子笑死了
 
+
+
+*****
+
+####  Piano-Forest  
+##### 141#         楼主| 发表于 2022-10-14 00:09
+
+[https://twitter.com/mizutamari_east/status/1580477586526048256](https://twitter.com/mizutamari_east/status/1580477586526048256)
+
+10月から放送している「Do It Yourself!!」のOPカラースクリプトをゴキンジョ@gokinjyo_oとして描かせて頂きました
+
+制作@PINEJAM_info様、監督@pochi1989様
+
+カラースクリプト、コンセプトアートのお仕事いつも楽しくさせて頂いてます。ありがとうございます
+<img src="https://p.sda1.dev/7/1078774c4aee956becc68bebbdeb98b7/20221014_000857.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/ec45eee4925f51c847c31d2edc635543/20221014_000858.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/7659f30a41e2a3b1a932f03f21ffabe3/20221014_000859.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hqtkkb  
+##### 142#       发表于 2022-10-14 00:10
+
+大概是战吧逛多了，总觉的布丁不来个捶地哭差点意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
