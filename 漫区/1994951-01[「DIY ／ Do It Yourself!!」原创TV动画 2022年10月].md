@@ -1738,3 +1738,24 @@ DIY二話、二原をお手伝いしてました！　かっぽう着たくみ�
 
 和气真的配啥都一个味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ddy2811  
+##### 145#       发表于 2022-10-14 02:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57882970&amp;ptid=1994951" target="_blank">水莲寺流歌 发表于 2022-10-12 23:37</a>
+
+主角名字里带you，青梅名字里带布，青梅因为主角和眼镜麻花辫同学互动而露出惊讶的表情，那么这是什 ...</blockquote>
+有了下一部少歌，还要有下一部虹咲么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mc凉月奏酱  
+##### 146#       发表于 2022-10-14 03:39
+
+布丁现在输输输，为的是将来全赢走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后被发了伙伴卡<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

@@ -8210,3 +8210,12 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 
 然而武器少的机体又有些非常迷惑的配置...DX那个流星锤明明可以做成格斗重击动作然后把SUB2弄成手电，不比现在这个光枪飞弹半天攒一个月光炮好多了
 
+
+
+*****
+
+####  HATENA  
+##### 781#       发表于 2022-10-14 01:57
+
+所以全能活了吗？活了我就玩最帅最强去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

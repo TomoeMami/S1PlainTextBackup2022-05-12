@@ -3349,3 +3349,37 @@ AI应该是不会记忆风格的，应该还是prompt的问题吧，加入画师
 你用啥模型？原版模型不是二次元，waifu和novelai都是偏二次元的</blockquote>
 novelai par2版本，可能是prompt问题吧
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 264#       发表于 2022-10-14 02:43
+
+感觉不够nsfw？
+
+<img src="https://img.saraba1st.com/forum/202210/14/024246tly1pv131bqvluxf.png" referrerpolicy="no-referrer">
+
+<strong>20221014_024134.png</strong> (62.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 02:42 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/024337qd6qyic1pi1161yd.png" referrerpolicy="no-referrer">
+
+<strong>20221014_024329.png</strong> (46.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 02:43 上传
+
+*****
+
+####  sakura79  
+##### 265#       发表于 2022-10-14 06:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57899157&amp;ptid=2098197" target="_blank">哈迪斯兜帽 发表于 2022-10-14 02:43</a>
+感觉不够nsfw？</blockquote>
+警查叔叔，就是这个人！
+

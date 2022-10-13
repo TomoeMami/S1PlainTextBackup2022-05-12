@@ -7533,3 +7533,16 @@ ED2絵コンテ演出、4話8話、リエラのうた、各話サブタイデザ
 [https://twitter.com/suzuki_mi_ho_/status/1578313563101630466](https://twitter.com/suzuki_mi_ho_/status/1578313563101630466)
 <img src="https://p.sda1.dev/7/3f43d0093f4760f38b3ded3b9c9e2e3c/20221014_000129.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  はなび  
+##### 8226#       发表于 2022-10-14 02:38
+
+今天才腾出手看了最终回
+
+前面基本都喷过了，但是看到那个“留学中止”我还是没忍住。虽然我知道这事，但是无论如何都没想到以这种令人错愕的形式呈现给观众，最后我的表情和香音的表情完美同步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大半夜笑得我满地打滚。太牛逼了，太杰作了，太巨魔了。你这么巨魔企划方不会生气吧哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十分必须十分
+
