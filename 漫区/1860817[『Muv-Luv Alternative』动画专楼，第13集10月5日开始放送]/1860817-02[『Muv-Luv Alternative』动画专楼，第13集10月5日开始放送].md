@@ -1065,3 +1065,12 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 
 —— 来自 samsung SM-G9910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  CharlieZ-  
+##### 1880#       发表于 2022-10-13 10:03
+
+这楼里能放原版名场面截图吗，想看看原作的冲击力，动画感觉保守了点
+

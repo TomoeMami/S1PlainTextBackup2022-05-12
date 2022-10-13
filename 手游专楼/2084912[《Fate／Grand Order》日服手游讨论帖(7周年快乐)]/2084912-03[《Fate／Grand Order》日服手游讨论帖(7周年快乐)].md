@@ -907,3 +907,30 @@ TMD 充满了后悔 什么傻逼卡 性能不行 卡面一般还TMD吃265的铜�
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  qixinno2  
+##### 3076#       发表于 2022-10-13 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个人资料也太逗比了吧
+
+「明明就只写了我强的地方！就只写了强的！」
+
+「我很强的对吧？对吧？对吧？对吧？」
+
+「很厉害吧。基本上尽是写的相当不错的
+
+  东西哦！」
+
+「这个！　都是这个的错！　可恶的教授！
+
+　可恶的燕青！」
+
+「我的技能组很优秀对吧！　夸夸我也
+
+　可以哦！　夸夸我吧！　求你了！」
+
+「只要用对地方就很强的啦！　只要用对地方！　真的！」
+
