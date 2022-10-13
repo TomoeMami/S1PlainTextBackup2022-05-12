@@ -7060,3 +7060,39 @@ s1的土豆服务器，拿出华语第三的实力啊<img src="https://static.sa
 
 —— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 8187#       发表于 2022-10-13 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57890221&amp;ptid=2078110" target="_blank">yicihanshu 发表于 2022-10-13 15:00</a>
+
+这个时候说怎么也不算迟的，档都没定，人都没选出来呢…
+
+—— 来自 Xiaomi 2201123C, Android 13上的 S1 ...</blockquote>
+之前的杂志nako说“试镜合格时，就听说成员会增加了”，这一对比已经够晚了吧
+
+*****
+
+####  Totokei  
+##### 8188#       发表于 2022-10-13 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57890135&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-13 14:54</a>
+怎么想都是早有预谋，但执行期间的自我调节能力实在太差，而计划因为惯性停不下来导致一发不可收拾
+
+9号九 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">结那就在那说她们不知道有三期和新成员不大可能吧，感觉还是大人的任务
+
+*****
+
+####  Kfly  
+##### 8189#       发表于 2022-10-13 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57890282&amp;ptid=2078110" target="_blank">Totokei 发表于 2022-10-13 15:04</a>
+
+结那就在那说她们不知道有三期和新成员不大可能吧，感觉还是大人的任务 ...</blockquote>
+所以我说“要是真的”，看她们对结那的态度应该是知道这回事的，但这时候说是才知道……
+总不能薇恩还要继续当对手团吧
+
