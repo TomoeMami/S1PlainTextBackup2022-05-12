@@ -915,3 +915,29 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 19年国庆当时那个方阵拉出来的就是这个吧？当时还以为是隐形无人机</blockquote>
 不矛盾，和J20一起飞，肯定是隐型无人机，而且地面系统肯定也能操纵（
 
+
+
+*****
+
+####  fireadol  
+##### 105#       发表于 2022-10-13 08:26
+
+这是银雷啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙与俯卧撑  
+##### 106#       发表于 2022-10-13 08:33
+
+外行觉得有个风险，一个电子干扰是不是都失控了…
+
+*****
+
+####  天野银次X美堂蛮  
+##### 107#       发表于 2022-10-13 08:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57884710&amp;ptid=2099350" target="_blank">pagedown 发表于 2022-10-13 08:15</a>
+
+后座不是还要负责唱歌，哪有那么多时间操纵这玩意儿</blockquote>
+忽然跳到马裤螺丝去了吗？？
+
