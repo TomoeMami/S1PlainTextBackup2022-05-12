@@ -1012,3 +1012,20 @@ muv战术机模型配上色帅真的帅啊，但是可以太冷门了，现在�
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1876#       发表于 2022-10-13 09:18
+
+看完了，期待了半天就这<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+省略了白银被美知留救走的桥段，专门给白银胯下一个分镜，但受众谁要看这个啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+麻里茉劝导有一点原作的味道，作为动画剧情算是合格了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+上半场的演习比想象中短，不是重点可以接受<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+按这个走势，估计12集播完得剧场版制作决定才能做完剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

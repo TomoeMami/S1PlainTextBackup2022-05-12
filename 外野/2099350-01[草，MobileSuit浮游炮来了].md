@@ -1048,3 +1048,45 @@ AI狗斗还为时尚早<img src="https://static.saraba1st.com/image/smiley/face2
 
 其实不是浮游炮，应该理解为街机游戏里的丢雷，不是很多这种游戏么，平时就是一架飞机打，偶尔呼唤一堆飞机过来丢个炸弹清屏
 
+
+
+*****
+
+####  heyfly  
+##### 121#       发表于 2022-10-13 09:14
+
+1带3，就是ghost啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GMJ  
+##### 122#       发表于 2022-10-13 09:23
+
+所以是靠自机上的5G遥控的么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蠕动  
+##### 123#       发表于 2022-10-13 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57883388&amp;ptid=2099350" target="_blank">nexus1 发表于 2022-10-13 00:16</a>
+
+我记得李晓峰说电竞选手挺重视体能的</blockquote>
+培养一个战斗机飞行员，消耗的资金，差不多可以接近等身浇筑一个纯金1：1雕像了，拿电竞选手来比战斗机飞行员，不公平，另外，战斗机飞行员每次执行作战任务，基本都要持续数小时甚至十几个小时的专注力，拥有这种天赋的人，都是十万里挑一的，电竞选手哪怕是世界排名第一的选手巅峰状态，也就摸到这个天赋的门槛而已，至于身体情况什么的，更是没得比。
+
+战斗机飞行员是集外表、内在、天赋、努力和运气于一体的天选之人，绝非普通人可比。不应该拿普通人的认知来衡量这个群体。
+
+*****
+
+####  失落之翼  
+##### 124#       发表于 2022-10-13 09:24
+
+莫名想起这个<img src="https://gimg2.baidu.com/image_search/src=http%3A%2F%2Fwww.wfjianmei.com%2Fupload_files%2Ftk818910.jpg&amp;refer=http%3A%2F%2Fwww.wfjianmei.com&amp;app=2002&amp;size=f9999,10000&amp;q=a80&amp;n=0&amp;g=0n&amp;fmt=auto?sec=1668216221&amp;t=d88945f423df17c3d6b17e8803357a3f" id="aimg_NJFWn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+*****
+
+####  bandage_n2_ki  
+##### 125#       发表于 2022-10-13 09:24
+
+问题不大，靠唱歌就可以操纵了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
