@@ -901,3 +901,12 @@ STEAM目前68%的好评率。
 
 等打折吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，坐等明年1月份火纹
 
+
+
+*****
+
+####  nage560  
+##### 87#       发表于 2022-10-14 12:27
+
+已买，就好棒子的烧鸡人设，多来点棒子单机吧。
+

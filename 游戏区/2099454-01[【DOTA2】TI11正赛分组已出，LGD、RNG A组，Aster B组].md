@@ -5595,3 +5595,21 @@ collapse这天梯胜率看傻了，9成以上<img src="https://static.saraba1st.
 
 |支持焦阳卡猴夺冠┗|｀O′|┛ 嗷~~|
 
+
+
+*****
+
+####  -SLSL-  
+##### 620#       发表于 2022-10-14 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57903174&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-14 12:18</a>
+鳖鳖?</blockquote>
+让我们恭喜team aster以3:2的比分击败og获得ti11冠军！只见观众席上一个人光速冲向领奖台，把不朽盾高高举起，镜头给到他的脸，原来是传奇一号位BurNing！
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 621#       发表于 2022-10-14 12:27
+
+说是管人痴其实都是狗萨特
+
