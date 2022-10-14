@@ -8056,3 +8056,36 @@ https://febri.jp/febri_talk/kyogoku_takahik ...</blockquote>
 
 单就<strong>“能接近痛苦”</strong>、<strong>“主人公”</strong>好像确实符合，剧中香音不就是各种“她是不是有什么苦衷呢”吗，把这当做共情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 8265#       发表于 2022-10-14 22:03
+
+ 本帖最后由 nufawneafg 于 2022-10-14 22:04 编辑 
+
+风怒
+
+*****
+
+####  nufawneafg  
+##### 8266#       发表于 2022-10-14 22:04
+
+ 本帖最后由 nufawneafg 于 2022-10-14 22:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911541&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-14 21:56</a>
+意思是说只有香音是“能贴近痛苦”的“主人公”，要我们以这个视角看星动画
+
+单就“能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">共情是心理投射，要找角色和观众的共同点的
+要是通过第三人来一句台词就能找到共同点早世界和平了，简直了搁这当过家家玩儿呢
+
+维也纳留学也是，简直是戏谑地解离共同感，导演和剧本绝对没有互相理解达成一致，灾难啊。
+
+*****
+
+####  darkendless  
+##### 8267#       发表于 2022-10-14 22:10
+
+快乐动画，不行；痛苦动画，行。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
