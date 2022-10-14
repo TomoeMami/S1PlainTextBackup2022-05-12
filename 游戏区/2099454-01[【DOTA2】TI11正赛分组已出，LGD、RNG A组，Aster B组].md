@@ -8074,3 +8074,12 @@ cndota以后怎么烂另说，nadota进货还是比cndota进货方便，主要�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  woyzeck  
+##### 874#       发表于 2022-10-14 23:55
+
+白皮踢球前十来了，世界杯年的欧冠狗都不看。
+
