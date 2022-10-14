@@ -7880,3 +7880,67 @@ IMG_9596(20221014-113502).JPG
 
 所以有这个战略和资源为什么不给现有四团做这种虚拟视频势尝试，硬要开新团，这团的受众对目前的LL来说铁左手倒右手吧？
 
+
+
+*****
+
+####  nufawneafg  
+##### 8253#       发表于 2022-10-14 20:33
+
+ 本帖最后由 nufawneafg 于 2022-10-14 20:36 编辑 
+
+有可能是拢不齐人
+又不是真的一家公司下面的成员，要你指哪打哪，合同期过了就得反复谈了
+这个时候反复续谈应该就不及找新人来得方便了
+
+*****
+
+####  starring  
+##### 8254#       发表于 2022-10-14 20:33
+
+换新公式照，还有新写生
+
+thumb_payton_221014.jpg
+(59.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 20:32 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/203219unkb6xlznsxbvs42.jpg" referrerpolicy="no-referrer">
+
+19698a90c5c43160f7df8a36a4152.jpg
+(130.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 20:32 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/203246zsaenaswvgaztfng.jpg" referrerpolicy="no-referrer">
+
+9c647f98486a1d138e49ef6efcf98.jpg
+(128.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 20:32 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/203249cbf94lqgfs7a0b2l.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 8255#       发表于 2022-10-14 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910347&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-14 20:33</a>
+
+换新公式照，还有新写生</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8256#       发表于 2022-10-14 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">pay子真好看啊
+

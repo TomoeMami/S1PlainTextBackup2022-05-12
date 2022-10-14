@@ -1291,3 +1291,14 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 这难道选的广告方案不一样钓到的人也不一样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 3108#       发表于 2022-10-14 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909339&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-10-14 19:30</a>
+这难道选的广告方案不一样钓到的人也不一样的吗</blockquote>
+不，应该是统一的，只是没有加入的剧情而已。
+

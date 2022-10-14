@@ -7631,3 +7631,29 @@ vrchat开淫趴是吧
 
 发前私信我
 
+
+
+*****
+
+####  情商  
+##### 826#         楼主| 发表于 2022-10-14 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910204&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-14 20:24</a>
+
+没想到双冠人气加成这么厉害啊。</blockquote>
+vp第一我是想不到的
+
+*****
+
+####  六娃  
+##### 827#       发表于 2022-10-14 20:40
+
+落泪，外国vkun还是多
+
+*****
+
+####  非建政专用号  
+##### 828#       发表于 2022-10-14 20:41
+
+vp也是vkun<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
