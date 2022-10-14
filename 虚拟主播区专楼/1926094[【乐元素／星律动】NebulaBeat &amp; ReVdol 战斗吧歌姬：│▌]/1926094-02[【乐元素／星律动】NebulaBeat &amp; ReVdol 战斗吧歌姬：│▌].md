@@ -7657,3 +7657,14 @@ saku 的pro一直我排第一</blockquote>
 
 n厂在日本的关系确实是国内独一份的，希望好好发展。
 
+
+
+*****
+
+####  一叶丈育  
+##### 2317#       发表于 2022-10-14 22:27
+
+怎么歌词里有马啊，差点ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/246.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

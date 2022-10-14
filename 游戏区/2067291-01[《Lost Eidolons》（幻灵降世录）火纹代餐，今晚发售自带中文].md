@@ -1123,3 +1123,28 @@ STEAM目前68%的好评率。
 捷克人也对中国人日本人不是一般的恨？</blockquote>
 你眼花了，从第一个demo开始就明摆的仿风花雪月
 
+
+
+*****
+
+####  bwsusaga  
+##### 104#         楼主| 发表于 2022-10-14 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909453&amp;ptid=2067291" target="_blank">nukejoker 发表于 2022-10-14 19:39</a>
+
+主机上的天国降临至今只有韩语和英文，没有中文和日文。
+
+捷克人也对中国人日本人不是一般的恨？</blockquote>
+你记忆错位了，
+
+这楼我从开始建就说是火纹代餐了，
+
+发售时我在标题加上了官方中文名字幻灵降世录。
+
+*****
+
+####  Leliel  
+##### 105#       发表于 2022-10-14 22:30
+
+中文语言下的地形说明文字小的简直没法看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

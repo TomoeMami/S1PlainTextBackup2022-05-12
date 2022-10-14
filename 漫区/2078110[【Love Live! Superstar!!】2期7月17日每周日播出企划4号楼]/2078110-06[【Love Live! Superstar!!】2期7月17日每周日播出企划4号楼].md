@@ -8132,3 +8132,34 @@ https://febri.jp/febri_talk/kyogoku_takahik ...</blockquote>
 
 感觉就是京极想青春伤痛一点，花田就一直想胡逼娱乐一点，再加上带货加人铁任务，就五马分尸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  darkendless  
+##### 8272#       发表于 2022-10-14 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911805&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-14 22:15</a>
+
+其实也差不多，仔细想想除了没怎么披露过过去的唐可可，其他人基本少不了向香音(香音是向可可，千是向恋恋) ...</blockquote>
+这其实是superstar企划人设的一大特点，不少角色都是既有优点也有缺点，比起萌点更强调角色的经历。这种角色处理不当就会影响观众观感，毕竟角色很明显存在一些阴暗的部分，怎么把阴暗的部分表现出来很依赖动画的水平，做不好观感就会差。这个原案其实用意很好，想进一步吸引更多人需要比萌系元素更深层次的东西，但动画做出来效果很差。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 8273#       发表于 2022-10-14 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911831&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-14 22:17</a>
+
+香音能次次共情别人大概也是默认“香音是受过挫折的孩子”，所以——别的角色：“我好受挫。”香音：“咱俩 ...</blockquote>
+我觉得他们就是这么认为的，相当于“香音受过挫”→“香音很能与他人共情”→“你看，香音说服他人是有原因的吧”。
+可拿这作为理由未免太单薄了，Liella里头基本都受点挫折吧，也没见她们都是理解大师，能露出这么达观的表情啊。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/14/222744vutx5jhjnxtk01t1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (87.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 22:27 上传
+

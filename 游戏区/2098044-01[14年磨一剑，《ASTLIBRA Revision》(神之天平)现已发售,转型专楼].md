@@ -1267,3 +1267,22 @@ https://w.atwiki.jp/astlibra/sp/list
 键盘能玩，甚至比手柄更灵活。</blockquote>
 是全键盘操作还是 鼠标攻击之类的?
 
+
+
+*****
+
+####  jy000129  
+##### 125#       发表于 2022-10-14 22:27
+
+银钥匙模具好难出啊，比金钥匙还难
+
+*****
+
+####  为了mf注册  
+##### 126#       发表于 2022-10-14 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911946&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-14 22:27</a>
+
+银钥匙模具好难出啊，比金钥匙还难</blockquote>
+金钥匙可以分解成模具，然后将金钥匙模具再分解为银钥匙模具
+
