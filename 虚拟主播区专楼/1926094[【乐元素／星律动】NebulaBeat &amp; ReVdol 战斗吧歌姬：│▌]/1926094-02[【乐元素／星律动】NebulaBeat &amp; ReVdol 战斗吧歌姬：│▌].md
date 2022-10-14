@@ -7608,3 +7608,14 @@ saku 的pro一直我排第一</blockquote>
 
 喷了，吉诺儿kino的账号诈尸发了一首原创歌
 
+
+
+*****
+
+####  藤宫由季  
+##### 2313#       发表于 2022-10-14 21:26
+
+这pv做的好用心，nb厂真的算得上有情有义了
+
+—— 来自 OPPO PDEM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

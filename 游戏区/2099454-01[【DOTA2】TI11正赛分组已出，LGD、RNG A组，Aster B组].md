@@ -7712,3 +7712,18 @@ vp也是vkun<img src="https://static.saraba1st.com/image/smiley/face2017/135.png
 
 —— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  莉拉厨  
+##### 834#       发表于 2022-10-14 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911020&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-14 21:19</a>
+为啥我觉得小智要赢了
+
+—— 来自 Xiaomi 21121210C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+菠菜公司都有剧本的好吧，硬实力更强的队伍往往要被迫亚军。上上次卡洛斯决赛本来拿下了，发现观众席上有3154个千面避役架着狙，为了保护小智的安全忍蛙才放水的。上次阿罗拉决赛也是铁剧本，末盘的时候小智水位太低，所以临时发给了博士一只卡璞呜呜拉赔率，结果他用个看起来特效很炫酷结果压根不致死的卡璞Z，你说这不是假赛是什么？
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
