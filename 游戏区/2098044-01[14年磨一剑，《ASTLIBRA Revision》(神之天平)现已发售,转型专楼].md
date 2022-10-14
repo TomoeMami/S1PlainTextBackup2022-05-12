@@ -660,3 +660,15 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 砍几刀下拉防御再砍几刀气满了扔凭依技，如果开了时停至少我打到第二章还是没什么难度的……今天回去关了 ...</blockquote>
 昨天发现身体不破防打上去是0<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  五块  
+##### 69#       发表于 2022-10-14 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900523&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-14 09:20</a>
+
+昨天发现身体不破防打上去是0</blockquote>
+急需连发键节省损耗，不然还是考虑适量改点攻击，这刮痧太伤手柄了。
+

@@ -1502,3 +1502,12 @@ Muv-Luv本传的时间线类似这么个关系
 —— 来自 OnePlus HD1905, Android  ...</blockquote>
 关系户的部分的人人都有一间单间宿舍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，小麻这类普通卫士新兵都是直接男女混住的
 
+
+
+*****
+
+####  Rhantolk  
+##### 1912#       发表于 2022-10-14 09:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主这唐突发癫后吓尿的样子真的笑死我哈哈，就是最后老师的便当感觉有些唐突了
+

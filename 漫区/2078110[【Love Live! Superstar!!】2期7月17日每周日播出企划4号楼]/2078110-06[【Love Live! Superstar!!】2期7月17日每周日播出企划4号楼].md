@@ -7572,3 +7572,16 @@ ED2絵コンテ演出、4話8話、リエラのうた、各話サブタイデザ
 动画&amp;杂志&amp;漫画&amp;广播&amp;推特&amp;巡演·<strong>可香糖合集</strong><img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 [什么是可香？](https://weibo.com/ttarticle/p/show?id=2309404824263306903972)
 
+
+
+*****
+
+####  starring  
+##### 8229#       发表于 2022-10-14 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900361&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-14 09:04</a>
+从目前历史上看，搞烂日升IP的编剧，哪一个都是混的风生水起，甚至说搞烂了就更风生水起了。
+
+远了说有光 ...</blockquote>
+还有木村畅这斯，age创形者鬼子战记还有prpr剧场版，现在又去祸害CG的手游，搞砸得越多混得越好<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

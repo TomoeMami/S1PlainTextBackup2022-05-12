@@ -4722,3 +4722,47 @@ DP改成吸固定伤害是不是吸脆皮更牛一点？
 
 液体没去成阿灵顿major吧
 
+
+
+*****
+
+####  walfeds  
+##### 520#       发表于 2022-10-14 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900541&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-14 09:21</a>
+
+液体没去成阿灵顿major吧</blockquote>
+你怎么也云了，液体是拿分就能保名额然后9-12名一份没拿，不是还有桶哥抹泪图吗
+
+*****
+
+####  syndrome2032  
+##### 521#       发表于 2022-10-14 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900579&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-14 09:24</a>
+你怎么也云了，液体是拿分就能保名额然后9-12名一份没拿，不是还有桶哥抹泪图吗 ...</blockquote>
+应该不是云，是晕了。
+
+*****
+
+####  银翼的维罗西  
+##### 522#       发表于 2022-10-14 09:28
+
+RNG昨日训练一把没赢，消息来源贴吧
+
+*****
+
+####  没钱买手办  
+##### 523#       发表于 2022-10-14 09:30
+
+小组赛开了是不是集美们又要发大水了，吐了
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 524#       发表于 2022-10-14 09:32
+
+RNG昨日训练全胜，对面河道都不过来，消息来源除沈粉丝群
+
