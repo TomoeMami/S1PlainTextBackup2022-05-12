@@ -1282,3 +1282,12 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神TM这呼延灼在商店里还会和水阿比一样唱歌的
 
+
+
+*****
+
+####  里村紅葉  
+##### 3107#       发表于 2022-10-14 19:30
+
+这难道选的广告方案不一样钓到的人也不一样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

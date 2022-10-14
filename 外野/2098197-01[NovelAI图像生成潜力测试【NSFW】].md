@@ -3533,3 +3533,28 @@ V-gesture好像就可以,但是涉及到手不要期待太多<img src="https://s
 
 2022-10-14 19:15 上传
 
+
+
+*****
+
+####  咲崎樱子  
+##### 276#       发表于 2022-10-14 19:22
+
+1girl, ahoge, animal ear fluff, animal ears, blonde hair, blue eyes, blush, breasts, cat ears, cat girl, cat tail, collarbone, cum, cum in mouth, cum on body, cum on breasts, cum on hair, cum on tongue, eyebrows visible through hair, facial, gradient background, hair between eyes, jacket, long hair, long sleeves, looking at viewer, navel, open mouth, pantyhose, sitting, small breasts, solo, tail, tongue, tongue out, very long hair, wariza, white legwear, facing viewer
+
+Negative prompt: lowres, bad anatomy, bad hands, text, error, missing fingers, extra digit, fewer digits, cropped, worst quality, low quality, normal quality, jpeg artifacts, signature, watermark, username, blurry
+
+Steps: 28, Sampler: Euler a, CFG scale: 6, Seed: 114517611, Size: 768x1024, Model hash: 925997e9, Batch size: 4, Batch pos: 2, Denoising strength: 0.55, Clip skip: 2, ENSD: -1
+
+猫耳萝莉喝牛奶 图呢 ？ 放不出来 ！
+
+*****
+
+####  mahoraga  
+##### 277#         楼主| 发表于 2022-10-14 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909231&amp;ptid=2098197" target="_blank">咲崎樱子 发表于 2022-10-14 19:22</a>
+
+1girl, ahoge, animal ear fluff, animal ears, blonde hair, blue eyes, blush, breasts, cat ears, cat g ...</blockquote>
+可以，已经传达到了，我已感知你的野心，我已明白你的霸念<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+

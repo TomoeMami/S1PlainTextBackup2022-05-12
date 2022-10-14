@@ -5949,3 +5949,38 @@ AI能补出麻鼻吗
 
 手只能多跑几遍看看有没有能看的，或者我看群里有不少人干脆选择手不外露的图。但是mea的手是灵魂的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12618#       发表于 2022-10-14 19:21
+
+ 本帖最后由 古战场亡魂 于 2022-10-14 19:25 编辑 
+
+拿左边这个能炼丹炼成右边这个……
+
+<img src="https://img.saraba1st.com/forum/202210/14/192116c66907876i6w6zu0.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20221014190536582.jpg</strong> (40.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/192126ab6pn553tt6z5qde.png" referrerpolicy="no-referrer">
+
+<strong>1girl,yellow blue heterochromatic pupil  s-102647740.png</strong> (40.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 19:21 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/192515wrxi6snjsnzirwwt.png" referrerpolicy="no-referrer">
+
+<strong>1girl,yellow blue heterochromatic pupil  s-3446211210.png</strong> (39.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 19:25 上传
+
