@@ -8365,3 +8365,14 @@ ZZZZZZZZZZZZZZZZZ
 
 一天50把dota是有用的 天道酬勤 ＃PGL颜值＃＃PGL学霸＃
 
+
+
+*****
+
+####  情商  
+##### 902#         楼主| 发表于 2022-10-15 07:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911772&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-14 22:12</a>
+别说QQ群了，之前和哥谭几个熊弟聚过一次餐，全都是萨特</blockquote>
+哥谭是吧，什么狗汉奸？
+
