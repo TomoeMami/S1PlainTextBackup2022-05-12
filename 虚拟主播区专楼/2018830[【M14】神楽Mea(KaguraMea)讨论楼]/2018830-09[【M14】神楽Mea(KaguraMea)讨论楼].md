@@ -6091,3 +6091,58 @@ AI能补出麻鼻吗
 
 2022-10-14 21:55 上传
 
+
+
+*****
+
+####  chelomei  
+##### 12624#       发表于 2022-10-15 02:15
+
+<img src="https://img.saraba1st.com/forum/202210/15/021340j9ys22q4jo2j9ej2.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221015021312.png</strong> (48.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 02:13 上传
+
+随便找了几张(39张,10000步)跑了跑,还是有一点效果的
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+kagura_mea.pt
+(18.92 KB, 下载次数: 0)
+
+2022-10-15 02:15 上传
+
+点击文件名下载附件
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| andeloz| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  chelomei  
+##### 12625#       发表于 2022-10-15 03:41
+
+ 本帖最后由 chelomei 于 2022-10-15 03:43 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/15/034320sbd1nto1brhx1n7t.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221015034001.png</strong> (209.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 03:43 上传
+
+稍微修了一点,效果挺不错了
+

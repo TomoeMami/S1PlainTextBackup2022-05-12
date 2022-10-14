@@ -1360,3 +1360,112 @@ https://w.atwiki.jp/astlibra/sp/list
 
 哇靠……就我一个人卡在第一章火把的素材不知道去哪拿吗……感觉自己好蠢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  A1LI  
+##### 134#       发表于 2022-10-15 01:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57914011&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-15 01:50</a>
+
+哇靠……就我一个人卡在第一章火把的素材不知道去哪拿吗……感觉自己好蠢 ...</blockquote>
+松脂在一开始那条河的对面，你走那会有剧情。
+
+木柴就在右面迷宫一开始那点地方，进去挺黑的，摸索一下跳过上面的地方，在右下角门的左面一点。
+
+都拿齐了就去商店。
+
+*****
+
+####  A1LI  
+##### 135#       发表于 2022-10-15 02:07
+
+这游戏的游戏性实在是不咋地……说真的果然不能报太高的期望，但是剧情还是有点意思的，目前还能吸引我继续玩下去。
+
+*****
+
+####  manyin1  
+##### 136#       发表于 2022-10-15 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57914048&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-15 01:58</a>
+
+松脂在一开始那条河的对面，你走那会有剧情。
+
+木柴就在右面迷宫一开始那点地方，进去挺黑的，摸索一下跳 ...</blockquote>
+需要一步一步触发剧情才行，要酒馆女说话了才行
+
+*****
+
+####  格林卡罗尔  
+##### 137#       发表于 2022-10-15 02:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57912321&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-14 22:56</a>
+
+第二关这个箱子愣是找不到路</blockquote>
+不是什么炸弹，是后面打哥布林用的钥匙石板，在右侧打开
+
+*****
+
+####  A1LI  
+##### 138#       发表于 2022-10-15 03:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57914210&amp;ptid=2098044" target="_blank">格林卡罗尔 发表于 2022-10-15 02:52</a>
+
+不是什么炸弹，是后面打哥布林用的钥匙石板，在右侧打开</blockquote>
+没看懂，那个石板不就只能打开地精巢穴嘛？还能打开哪？
+
+如果是巢穴里，没看见哪里有路通向那个宝箱啊。
+
+*****
+
+####  jy000129  
+##### 139#       发表于 2022-10-15 03:51
+
+吊，不看攻略谁知道那地方要用回旋镖
+
+*****
+
+####  逸一死吾亦死  
+##### 140#       发表于 2022-10-15 04:47
+
+剧情真是扑朔迷离，值了
+
+*****
+
+####  alisafusang  
+##### 141#       发表于 2022-10-15 04:55
+
+看起来十分好玩，有空试一试
+
+*****
+
+####  逸一死吾亦死  
+##### 142#       发表于 2022-10-15 05:07
+
+卧槽药草这伏笔，惊了，这游戏的剧情已经突破我的想象了
+
+*****
+
+####  PunkEgg  
+##### 143#       发表于 2022-10-15 05:09
+
+哥布林洞窟那个木头骨怎么变金头骨呀
+
+*****
+
+####  逸一死吾亦死  
+##### 144#       发表于 2022-10-15 05:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57914378&amp;ptid=2098044" target="_blank">PunkEgg 发表于 2022-10-15 05:09</a>
+
+哥布林洞窟那个木头骨怎么变金头骨呀</blockquote>
+湖中仙女，金骷髅银骷髅木骷髅
+
+*****
+
+####  逸一死吾亦死  
+##### 145#       发表于 2022-10-15 05:42
+
+有种预感，这游戏结局十有八九会把我整玉玉
+

@@ -61,3 +61,12 @@
 
 这要塞也别叫秃鹰之城了，叫头文字D吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转个弯跟飙车一样，我都不敢开这么冲
 
+
+
+*****
+
+####  terminator1990  
+##### 5472#       发表于 2022-10-15 02:48
+
+如果在没有获得费沙对走廊自由航行允许的情况下帝国军或同盟军强闯，会有什么后果？
+

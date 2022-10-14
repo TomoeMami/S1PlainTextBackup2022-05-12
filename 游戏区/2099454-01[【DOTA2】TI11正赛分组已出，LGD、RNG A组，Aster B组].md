@@ -8268,3 +8268,65 @@ ZZZZZZZZZZZZZZZZZ
 
 我玩酱油有个习惯，随身留个芒果不吃准备喂大哥，刚才一把救没蓝蓝猫，tp过去喂芒果，但蓝猫居然没意识到自己有蓝了，还慢悠悠走着被打死。太可惜了，蓝猫飞走不死我能吹一辈子两个礼拜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 893#       发表于 2022-10-15 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57913984&amp;ptid=2099454" target="_blank">苏西踩到我了 发表于 2022-10-15 01:45</a>
+
+我玩酱油有个习惯，随身留个芒果不吃准备喂大哥，刚才一把救没蓝蓝猫，tp过去喂芒果，但蓝猫居然没意识到自 ...</blockquote>
+这种中路需要酱油救救到了还没跑掉的中单建议直接开麦杀吗
+
+*****
+
+####  尖刺外婆  
+##### 894#       发表于 2022-10-15 01:59
+
+ 本帖最后由 尖刺外婆 于 2022-10-15 02:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57913984&amp;ptid=2099454" target="_blank">苏西踩到我了 发表于 2022-10-15 01:45</a>
+我玩酱油有个习惯，随身留个芒果不吃准备喂大哥，刚才一把救没蓝蓝猫，tp过去喂芒果，但蓝猫居然没意识到自 ...</blockquote>
+和畜生路人的配合不要超过接控制，高难度的还是得和一起开黑的沟通
+
+*****
+
+####  一品堂官  
+##### 895#       发表于 2022-10-15 02:19
+
+特么睡前看到狗头人联合管人投稿，何意啊狗少？
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  没钱买手办  
+##### 896#       发表于 2022-10-15 02:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打了快四个小时把DDS的人修罗打死了，用的还是皮克西空蓝赖皮法
+
+不得不感慨这皮克西就像畜长一样，躺在地上看人修罗输出也把玩家秒了，结果像gege一样非要往自己球篮里暴扣，结束了罪恶的一生
+
+*****
+
+####  恐怖利刃  
+##### 897#       发表于 2022-10-15 04:14
+
+<img src="https://img.saraba1st.com/forum/202210/15/041406rs7intisksenjodp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A974BB7C-9D1A-412A-B46E-4CC2FEF8FBCA.jpeg</strong> (169.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 04:14 上传
+
+*****
+
+####  Bot7  
+##### 898#       发表于 2022-10-15 05:28
+
+话说新加坡那边新变种XBB肆虐啊，怎么就刚好赶上TI11了呢
+
+不会又要变成TI决赛现场无观众了吧
+
