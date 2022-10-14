@@ -5313,3 +5313,25 @@ collapse一个星期天梯只输了两把整蛊黑鸟
 https://www.bilibili.com/video/BV1Ke411L7Jg  collapse将在15秒内让你的后背发凉</blockquote>
 剧透：夜魇上路盲杀<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六娃  
+##### 586#       发表于 2022-10-14 11:28
+
+A畜这把太典了，被collapse带个7000分的辅助线上打烂全场逮捕，最后气急败坏想杀残血collapse一次不点装备被反秀，最后手点魔棒没按出来
+
+*****
+
+####  TI三冠王AME  
+##### 587#       发表于 2022-10-14 11:30
+
+<img src="https://img.saraba1st.com/forum/202210/14/113006wwuxhmxozw4y7zlw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (121.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 11:30 上传
+

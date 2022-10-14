@@ -345,3 +345,12 @@ DOUBLE DECKER只是同为搭档系列，世界观好像还是不太一样？
 这结局彻底断了第三季的念想了，还想继续看虎兔啊。
 另外根据隔壁骑士不溶于水的传统，露娜还能活的。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  88is88  
+##### 118#       发表于 2022-10-14 11:22
+
+前13话有字幕组版本的吗，自带字幕看吐了
+
