@@ -5280,3 +5280,36 @@ yatoro平常用ame当ID，临TI了改成hao，这是何意啊？
 
 公司里有个10年刀龄刀友，pyq里有支持18年lgd 19年液体的内容，去年没发，能不能断定不是集妹是小超人啊
 
+
+
+*****
+
+####  六娃  
+##### 582#       发表于 2022-10-14 11:11
+
+collapse一个星期天梯只输了两把整蛊黑鸟
+这个逼真想上分我怀疑能上到两万分
+
+*****
+
+####  TI三冠王AME  
+##### 583#       发表于 2022-10-14 11:15
+
+[https://www.bilibili.com/video/BV1Ke411L7Jg](https://www.bilibili.com/video/BV1Ke411L7Jg)  collapse将在15秒内让你的后背发凉
+
+*****
+
+####  bluebaby  
+##### 584#       发表于 2022-10-14 11:16
+
+万一ti真玩三号位黑鸟呢，感觉二号位来个兽这种的不是不可以
+
+*****
+
+####  IG.430  
+##### 585#       发表于 2022-10-14 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57902192&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-14 11:15</a>
+https://www.bilibili.com/video/BV1Ke411L7Jg  collapse将在15秒内让你的后背发凉</blockquote>
+剧透：夜魇上路盲杀<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

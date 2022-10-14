@@ -5875,3 +5875,44 @@ ai麻图，那不就真成电子幽灵了
 
 艹？把训练的模型交出来
 
+
+
+*****
+
+####  草牛  
+##### 12614#       发表于 2022-10-14 11:10
+
+ 本帖最后由 草牛 于 2022-10-14 11:12 编辑 
+
+自己电脑有条件或者有gpu服务器的可以自己训练试试，理论上fanart或者mmd都可以，甚至恋活可能也行，训练素材尽量容易识别
+[https://bbs.saraba1st.com/2b/thread-2098494-1-1.html](https://bbs.saraba1st.com/2b/thread-2098494-1-1.html)这个贴后面几楼讲的很清楚了，不再重复
+
+至于迭代次数，你麻的异色瞳和发圈比较特别，迭代次数就要多一点，这个要自己掌握
+
+说一下训练出来的玩法，不同的pt之间可以按比例进行组合，同时pt也分人物和画风，可以把不同人物和不同画风组合在一起
+
+\stable-diffusion-webui\textual_inversion_templates这个文件夹中是pt模板
+
+<img src="https://img.saraba1st.com/forum/202210/14/110901jju8baifqzzjoq48.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221014110845.png</strong> (21.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 11:09 上传
+
+可以确定 style_filewords.txt 是训练画风，subject_filewords.txt是训练人物，hypernetwork.txt是前两天更新制作hypernetwork的功能，其他还没试过，可以试试
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| andeloz| + 1|好评加鹅|
+| aisakahammer| + 2|厉害|
+
+查看全部评分
+
