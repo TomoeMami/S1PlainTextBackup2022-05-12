@@ -3420,3 +3420,19 @@ novelai par2版本，可能是prompt问题吧
 
 raiden_shogun，雷电将军，然后你再输些相关特征，比如hair flower之类的也能强化稳定性
 
+
+
+*****
+
+####  lxsw  
+##### 269#       发表于 2022-10-14 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57905595&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-14 15:11</a>
+
+因为有角色名的prompt啊
+
+raiden_shogun，雷电将军，然后你再输些相关特征，比如hair flower之类的 ...</blockquote>
+不行啊，我复制了你的prompt，但每次roll出来的画风都不一样。。
+
+而你这两张造型画风打光都高度一致，只有姿势不同，所以我才想问你是怎么保持相同画风下roll不同姿势
+

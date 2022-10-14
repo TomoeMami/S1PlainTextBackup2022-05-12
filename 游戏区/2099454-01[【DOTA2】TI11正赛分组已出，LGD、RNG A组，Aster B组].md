@@ -6305,3 +6305,44 @@ TI11表演赛：萧瑟1VS19，给萧瑟分配的是20万血的巨大模型畜（
 
 好呀好呀 这样假把式开发 不想做可以不做的呀
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 692#       发表于 2022-10-14 15:25
+
+kky夺冠那会儿天梯多少名？
+
+*****
+
+####  bluebaby  
+##### 693#       发表于 2022-10-14 15:26
+
+kky夺冠那会我怀疑那四个带鳖鳖都能夺冠
+
+*****
+
+####  walfeds  
+##### 694#       发表于 2022-10-14 15:28
+
+<img src="https://img.saraba1st.com/forum/202210/14/152809suh73060sq6f143b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>bVb279j.jpeg</strong> (37.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 15:28 上传
+
+17年年底的图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">德张的排名已经不重要了
+
+*****
+
+####  Litccc  
+##### 695#       发表于 2022-10-14 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57903938&amp;ptid=2099454" target="_blank">Sabbah 发表于 2022-10-14 13:11</a>
+
+火星救援一下，大畜跳锤接SHIFT突+S竟然开不出BKB，实在太强了。</blockquote>
+可以可以，去斧王岛练了一分钟就成了，S之前还能加个踏，一套基本上可以秒杀敏核
+
