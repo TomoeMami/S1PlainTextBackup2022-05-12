@@ -1109,3 +1109,17 @@ STEAM目前68%的好评率。
 
 还不清楚动机和原因先别急着往民族矛盾上扯。
 
+
+
+*****
+
+####  allenz3  
+##### 103#       发表于 2022-10-14 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909453&amp;ptid=2067291" target="_blank">nukejoker 发表于 2022-10-14 19:39</a>
+
+主机上的天国降临至今只有韩语和英文，没有中文和日文。
+
+捷克人也对中国人日本人不是一般的恨？</blockquote>
+你眼花了，从第一个demo开始就明摆的仿风花雪月
+

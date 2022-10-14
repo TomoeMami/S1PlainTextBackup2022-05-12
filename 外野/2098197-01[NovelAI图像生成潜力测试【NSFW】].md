@@ -3603,3 +3603,30 @@ welcum<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  处男鉴黄师  
+##### 282#       发表于 2022-10-14 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909231&amp;ptid=2098197" target="_blank">咲崎樱子 发表于 2022-10-14 19:22</a>
+
+1girl, ahoge, animal ear fluff, animal ears, blonde hair, blue eyes, blush, breasts, cat ears, cat g ...</blockquote>
+size太大，显卡跑不了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mahoraga  
+##### 283#         楼主| 发表于 2022-10-14 20:48
+
+---顺手更新一下novelai调了什么---（主楼更新不了，眼泪掉下来）
+
+之前看了novelai的博客，讲了下他们到底调了什么万一，主要是三块
+
+1.Clip，clip可以认为是AI绘图的前置科技，针对CLIP改了两块东西，一是使用倒数第二层而非最后一层作为输出，他们认为最后一层过度提炼了语义，导致语义混合，比如黑发红瞳，黑色的语义和瞳孔混在一起，导致画出来黑发黑瞳之类的，不符合预期。第二是扩大了token限制，方法很简单，原本是75，他们按75的倍数扩，扩到三倍，在使用的时候将token每三个合成一个又变回75就可以了（怎么合的我没具体看，估计是直接求和或者平均了）
+
+2.训练图片比例优化，原本的训练方式都是512*512的图片，超过这个大小的就直接中心裁剪到512*512，导致不符合这个比例的图像绘画水平都会有所下降，novelai使用了多个比例桶，将不同比例的图像放进最接近自身的比例桶中，仍有出入的执行随机裁剪（比中心裁剪要好的是，避免经常断头断武器，各个方向随机断AI就不会去拟合这种裁剪），训练时一批的时候从同一个桶中抽取，保证同一批的图输入比例是一样的，但是不同批次之间的图像比例是不一样的，这样可以训练到不同比例的构图与绘画特色。
+
+3.加入了hypernet技术，这是一种加在自注意力机制上的小型网络，可以达到类似精调（在具体某种类型的数据集上继续训练某个大模型以使其对目标数据集有更好的效果）的效果，但是相比精调，以来它非常小型，方便拆卸，另外精调往往会损失模型的泛化能力，通用性降低，hypernet影响较小（大不了通用的时候卸载也是很快的）
+

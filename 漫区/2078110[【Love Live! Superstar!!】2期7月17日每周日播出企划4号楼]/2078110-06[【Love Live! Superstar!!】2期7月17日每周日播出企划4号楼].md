@@ -7944,3 +7944,16 @@ thumb_payton_221014.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">pay子真好看啊
 
+
+
+*****
+
+####  愛さ実  
+##### 8257#       发表于 2022-10-14 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57908977&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-14 19:06</a>
+之前说是视频势为主，中之人那边楼里有老哥跟我说也会有出镜，至于live什么的反正又没啥难度，皮套live开 ...</blockquote>
+企划什么样子都不知道怎么就有中之人也会出镜的情报了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
