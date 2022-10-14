@@ -936,3 +936,14 @@ STEAM目前68%的好评率。
 
 主角是一点也不讨喜，不知道为啥不让玩家自己捏人和捏士兵
 
+
+
+*****
+
+####  飞姆托  
+##### 90#       发表于 2022-10-14 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">中规中矩吧，动画播片做得不太行，价格小贵，不会看了看隔壁400的旅人，嗯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

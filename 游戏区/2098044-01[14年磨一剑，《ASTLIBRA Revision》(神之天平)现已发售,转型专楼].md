@@ -1041,3 +1041,14 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 
 金龙真是刮得累死，这游戏所有的boss血都有这么长吗
 
+
+
+*****
+
+####  dookiee  
+##### 103#       发表于 2022-10-14 15:55
+
+树枝的精通效果是什么<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
