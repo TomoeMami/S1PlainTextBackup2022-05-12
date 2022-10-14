@@ -5335,3 +5335,39 @@ A畜这把太典了，被collapse带个7000分的辅助线上打烂全场逮捕�
 
 2022-10-14 11:30 上传
 
+
+
+*****
+
+####  情商  
+##### 588#         楼主| 发表于 2022-10-14 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57902054&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-14 11:07</a>
+公司里有个10年刀龄刀友，pyq里有支持18年lgd 19年液体的内容，去年没发，能不能断定不是集妹是小超人啊 ...</blockquote>
+这不是一眼og黑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星野航  
+##### 589#       发表于 2022-10-14 11:38
+
+这小组赛解说排班哪里能看到啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 590#       发表于 2022-10-14 11:39
+
+笑死，A畜被collapse揍完之后排到继父，直接点了个绝中绝圣剑狼人
+
+*****
+
+####  IG.430  
+##### 591#       发表于 2022-10-14 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57902371&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-14 11:28</a>
+A畜这把太典了，被collapse带个7000分的辅助线上打烂全场逮捕，最后气急败坏想杀残血collapse一次不点装备 ...</blockquote>
+哪一把，来点比赛id
+
