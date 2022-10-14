@@ -3467,3 +3467,27 @@ mark，神了
 
 至于画风，要么靠roll，要么指定风格或者画师了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lxsw  
+##### 272#       发表于 2022-10-14 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57906415&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-14 16:08</a>
+
+视角可以用from front/side/behind/below，pov, cowboy shot, fisheye之类的prompt控制，
+
+打光就比较复杂 ...</blockquote>
+text to img有办法减少随机率吗，我感觉roll出来的图和你的相比，我的风格差别太大，50张都没有一张相似的<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  断片集  
+##### 273#       发表于 2022-10-14 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57906773&amp;ptid=2098197" target="_blank">lxsw 发表于 2022-10-14 16:32</a>
+
+text to img有办法减少随机率吗，我感觉roll出来的图和你的相比，我的风格差别太大，50张都没有一张相似 ...</blockquote>
+你用的是啥ai，我用的是stable diffusion webui，模型跑的novelai的泄漏版，加载了里面那个animevae.pt的
+
