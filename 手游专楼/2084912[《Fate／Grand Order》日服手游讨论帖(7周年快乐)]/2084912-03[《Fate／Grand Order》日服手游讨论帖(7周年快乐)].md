@@ -1262,3 +1262,14 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 是到如今有点火星了，不过今天听语音时突然发现，魔总的炼狱灵衣是全套语音的，不是简易灵衣那种就两句话的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zooandtoo  
+##### 3105#       发表于 2022-10-14 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草我不行了这哥雷姆谐出新高度
+
+阿维斯布隆你也被什么东西夺舍了吗233
+

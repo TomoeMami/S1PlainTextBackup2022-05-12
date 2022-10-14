@@ -7163,3 +7163,32 @@ suibiandagg新视频笑尿
 【【ti11应援】理性看dota 每个选手都有黑点 不要恶意抹黑Ame】 https://www.bilibi ...</blockquote>
 纯纯抄袭我最爱的见证詹姆斯
 
+
+
+*****
+
+####  Sabbah  
+##### 779#       发表于 2022-10-14 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">雅少就别把他那个被么么鳖爆杀的挂人截图混进来了吧，真的太辣了(王志勇语调
+
+*****
+
+####  超法拉  
+##### 780#       发表于 2022-10-14 17:58
+
+升腾火女这一套到底怎么玩啊，感觉好像没有传统那种出点物理输出的厉害
+
+
+
+*****
+
+####  情商  
+##### 781#         楼主| 发表于 2022-10-14 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57908101&amp;ptid=2099454" target="_blank">超法拉 发表于 2022-10-14 17:58</a>
+升腾火女这一套到底怎么玩啊，感觉好像没有传统那种出点物理输出的厉害</blockquote>
+刷新a账打团秒一个
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

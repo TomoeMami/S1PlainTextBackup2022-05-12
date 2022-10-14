@@ -7513,3 +7513,14 @@ ps：saku好像和kino同年？还是kino大一点？
 
 顺便一提：大学生火羽已经九百舰了(捶地
 
+
+
+*****
+
+####  天青月白  
+##### 2303#       发表于 2022-10-14 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57906184&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-10-14 15:48</a>
+saku 的pro一直我排第一</blockquote>
+即使不提态度，只凭直播表现她也是我认为nb全部人里面最好的
+
