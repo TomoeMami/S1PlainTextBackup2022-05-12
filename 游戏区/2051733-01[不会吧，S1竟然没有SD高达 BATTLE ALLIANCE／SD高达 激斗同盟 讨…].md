@@ -8219,3 +8219,14 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 
 所以全能活了吗？活了我就玩最帅最强去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mascode  
+##### 782#       发表于 2022-10-14 08:54
+
+<blockquote>HATENA 发表于 2022-10-14 01:57
+所以全能活了吗？活了我就玩最帅最强去了</blockquote>
+全能大增强，最帅最强这次更新受益最高
+

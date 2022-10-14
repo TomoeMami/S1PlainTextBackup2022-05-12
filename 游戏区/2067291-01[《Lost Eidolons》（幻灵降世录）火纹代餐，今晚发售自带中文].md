@@ -782,3 +782,24 @@ RPG里都有本土（韩国）的心头好，但不约而同会提到FF7。
 感觉还不如国产手游环形战争</blockquote>
 记得这部是魂味战棋？
 
+
+
+*****
+
+####  bwsusaga  
+##### 76#         楼主| 发表于 2022-10-14 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900183&amp;ptid=2067291" target="_blank">tyauto 发表于 2022-10-14 08:49</a>
+
+记得这部是魂味战棋？</blockquote>
+剧情完全抄剑风，和魂没啥关系。
+
+*****
+
+####  bwsusaga  
+##### 77#         楼主| 发表于 2022-10-14 08:54
+
+看评测有很多玩家对限制回合数不满，
+
+然后官方准备砍掉这个限制。
+
