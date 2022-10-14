@@ -1154,3 +1154,27 @@
 
 看了三姐那期，一看肤色和相貌就知道不是低种姓的，肯定更讲究
 
+
+
+*****
+
+####  杨雪崩  
+##### 127#       发表于 2022-10-14 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57848373&amp;ptid=2098925" target="_blank">weary11 发表于 2022-10-10 18:38</a>
+三哥那个脆球真是能人吃的？</blockquote>
+【印度脆球测评，干净又卫生！多少带点臭-哔哩哔哩】 https://b23.tv/sWhDjcg
+
+有国内up做过，他对这个脆球评价非常高，老哥自己开过食品小摊，烹饪水平谈不上多高但肯定是过关的…
+
+—— 来自 HUAWEI NOH-AN01, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+*****
+
+####  cryelse  
+##### 128#       发表于 2022-10-14 19:46
+
+感谢分享，确实很有意思
+
+看完昨天那个芝士煎饼，我终于明白为什么传统印象中的中年印度三哥都是那个体型了
+

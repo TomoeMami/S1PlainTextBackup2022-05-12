@@ -7831,3 +7831,32 @@ IMG_9596(20221014-113502).JPG
 
 草，鲤鱼在广播里说打铁像水獭（没听懂是不是）
 
+
+
+*****
+
+####  Kfly  
+##### 8250#       发表于 2022-10-14 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909051&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-14 19:10</a>
+
+草，鲤鱼在广播里说打铁说她像水獭（没听懂是不是）</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/14/194626qryg5vqyt0mkfm5q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 19:46 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/194833caphz2ksxppg2p2g.jpg" referrerpolicy="no-referrer">
+
+<strong>a1abf9f280dd89cb80cc6573eb442d3e1153841250.jpg</strong> (379.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 19:48 上传
+
+[【2022.4.20视频】](https://www.bilibili.com/video/BV1RT4y1h7BF)
+

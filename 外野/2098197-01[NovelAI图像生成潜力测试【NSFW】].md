@@ -3570,3 +3570,25 @@ Steps: 28, Sampler: Euler a, CFG scale: 6, Seed: 114517611, Size: 768x1024, Mode
 1girl, ahoge, animal ear fluff, animal ears, blonde hair, blue eyes, blush, breasts, cat ears, cat g ...</blockquote>
 welcum<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 279#       发表于 2022-10-14 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909231&amp;ptid=2098197" target="_blank">咲崎樱子 发表于 2022-10-14 19:22</a>
+
+1girl, ahoge, animal ear fluff, animal ears, blonde hair, blue eyes, blush, breasts, cat ears, cat g ...</blockquote>
+这年头色图都不用传了，给关键词就行……
+
+*****
+
+####  mahoraga  
+##### 280#         楼主| 发表于 2022-10-14 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909517&amp;ptid=2098197" target="_blank">古战场亡魂 发表于 2022-10-14 19:44</a>
+
+这年头色图都不用传了，给关键词就行……</blockquote>
+新型加密方式，我估计很快会开发出二维码分享prompt的功能
+
