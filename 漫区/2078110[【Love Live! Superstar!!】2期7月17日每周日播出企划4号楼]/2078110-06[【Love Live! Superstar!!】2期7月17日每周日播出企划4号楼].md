@@ -8281,3 +8281,17 @@ stm突然提拔，清宫戏看多了<img src="https://static.saraba1st.com/image
 
 总之就是想说下期外景什么时候放出来<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ddy2811  
+##### 8284#       发表于 2022-10-15 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911356&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-10-14 21:42</a>
+
+这个有人翻过吗
+
+https://febri.jp/febri_talk/kyogoku_takahik ...</blockquote>
+观众需要的是看到自己做点什么/向他人寻求帮助真的会有改变，而不是毫无说服力的共情……
+
