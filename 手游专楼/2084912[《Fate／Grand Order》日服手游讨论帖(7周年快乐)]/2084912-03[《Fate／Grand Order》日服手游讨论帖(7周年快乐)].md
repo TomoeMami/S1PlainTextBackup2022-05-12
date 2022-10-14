@@ -1302,3 +1302,20 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 这难道选的广告方案不一样钓到的人也不一样的吗</blockquote>
 不，应该是统一的，只是没有加入的剧情而已。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3109#       发表于 2022-10-14 21:11
+
+今天剧情选的黑胡子提案，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+小刚看到CM里有美女就跑过来了，进门就喊“美女呢？没有美女那美男也行啊！”舞娘上去迎接，小刚笑了一下，转头就问：“CM里的其他人呢(=ﾟДﾟ=)”
+
+另一边紫式部为了取材来找美男，正好看到主角团把拍广告的美男美女纸板人收起来，当场气哭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+就给人一种被海鲜炒饭骗进店然后发现主厨叫海鲜的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+...或者说，是听说沈腾特别出演就去看《日不落酒店》的观众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

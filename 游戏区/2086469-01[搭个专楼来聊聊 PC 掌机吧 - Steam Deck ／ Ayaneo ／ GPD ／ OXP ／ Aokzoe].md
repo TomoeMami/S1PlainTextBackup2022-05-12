@@ -5735,3 +5735,14 @@ gpd虽然营销low但是也是国内最早做win掌机的厂家吧，我当年�
 看了下咸鱼上的奥克5100左右 ...</blockquote>
 用了as我可以负责任的说，没有触摸板的x86掌机都是渣渣
 
+
+
+*****
+
+####  紫煜  
+##### 462#       发表于 2022-10-14 21:01
+
+我奥克终于要寄回了，五六天了，说是升级要排队很久，所以我选择换新<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

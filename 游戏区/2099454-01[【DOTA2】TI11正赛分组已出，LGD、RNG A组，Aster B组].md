@@ -7673,3 +7673,22 @@ vp也是vkun<img src="https://static.saraba1st.com/image/smiley/face2017/135.png
 由手机上传
 2022-10-14 20:45 上传
 
+
+
+*****
+
+####  战狼PTSD  
+##### 830#       发表于 2022-10-14 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910212&amp;ptid=2099454" target="_blank">逃离二次元 发表于 2022-10-14 20:25</a>
+
+憋尬黑，本lumi痴子等到a畜回家了肯定发个大的</blockquote>
+发前艾特我
+
+*****
+
+####  柚上舍人  
+##### 831#       发表于 2022-10-14 21:09
+
+看到rng八人确诊给我吓一跳，仔细一想rngdota加起来应该没有8个人，卡卡upup
+

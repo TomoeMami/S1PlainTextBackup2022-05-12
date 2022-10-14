@@ -1147,3 +1147,41 @@ https://w.atwiki.jp/astlibra/sp/list
 
 洞里的红蓝球到底应该怎么放啊....来回存个档,怪又全刷了,感觉不应该玩困难,刮痧太严重了.
 
+
+
+*****
+
+####  jy000129  
+##### 113#       发表于 2022-10-14 21:01
+
+第二关那个山洞中间的箱子怎么拿？
+
+*****
+
+####  A1LI  
+##### 114#       发表于 2022-10-14 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910708&amp;ptid=2098044" target="_blank">ygy52145214 发表于 2022-10-14 20:59</a>
+
+洞里的红蓝球到底应该怎么放啊....来回存个档,怪又全刷了,感觉不应该玩困难,刮痧太严重了. ...</blockquote>
+发现好像设定里可以随时更改难度……
+
+*****
+
+####  jy000129  
+##### 115#       发表于 2022-10-14 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57907263&amp;ptid=2098044" target="_blank">onlv星骸 发表于 2022-10-14 17:03</a>
+
+武器熟练度加快的嘉隆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看了看雷法杖那个吊升级速度和感人的输出率，不把树枝的熟练技能拿到手估计更难练
+
+*****
+
+####  helix  
+##### 116#       发表于 2022-10-14 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57907263&amp;ptid=2098044" target="_blank">onlv星骸 发表于 2022-10-14 17:03</a>
+武器熟练度加快的嘉隆</blockquote>
+草，我还说等拿到这个技能再练树枝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
