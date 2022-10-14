@@ -40,3 +40,15 @@
 别看上集黑狐父子装b分析费沙占比上涨，其实三国是一起堕落的，碰上金毛这个突变种肯定乱杀 ...</blockquote>
 他们哪来的自信要要求人家的经济呢？ 真当莱恩哈特是独裁者呢？
 
+
+
+*****
+
+####  yixiaqqq  
+##### 5470#       发表于 2022-10-14 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57908879&amp;ptid=1502023" target="_blank">宝儿 发表于 2022-10-14 18:59</a>
+
+他们哪来的自信要要求人家的经济呢？ 真当莱恩哈特是独裁者呢？</blockquote>
+是独裁者没错啊，这职业最擅长杀债主免债<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
