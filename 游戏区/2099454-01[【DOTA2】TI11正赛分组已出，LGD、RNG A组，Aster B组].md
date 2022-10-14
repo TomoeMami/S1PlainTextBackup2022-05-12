@@ -4976,3 +4976,52 @@ lgd最好小组赛就被打进败者组或者直接滚蛋，真让他鳖到决�
 最巅峰肯定是减CD大晕带位移那个版本啊，那会出隐刀约等于永久隐身，撒旦BKB的CD贼短，大晕飞过去就贴脸 ...</blockquote>
 战略意义还是没有现在强，至少不像现在可以第一轮出
 
+
+
+*****
+
+####  walfeds  
+##### 548#       发表于 2022-10-14 10:06
+
+不谈环境的话，影魔本体一直在加强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">changelog里都看不到几行称得上削弱的东西
+
+*****
+
+####  莉拉厨  
+##### 549#       发表于 2022-10-14 10:08
+
+这玩意对线实在恶心，咱们低分猪以前看到自家中单被影魔单杀心里还杀个马一下，现在内心只有原谅<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 550#       发表于 2022-10-14 10:08
+
+超哥能把影魔玩成对面不ban就输的绝活吗
+
+*****
+
+####  六娃  
+##### 551#       发表于 2022-10-14 10:09
+
+法核和炮台的好时代
+重大利好一个都不会的giegie
+
+*****
+
+####  百世诸侯  
+##### 552#       发表于 2022-10-14 10:11
+
+血精没改前entity这队就盯着一二摇摆拉席克玩，指定有冰蛙塞小纸条
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 553#       发表于 2022-10-14 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900901&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-14 09:49</a>
+外区dpc啊</blockquote>
+你们都这么硬核的嘛，外区的dpc也看的？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

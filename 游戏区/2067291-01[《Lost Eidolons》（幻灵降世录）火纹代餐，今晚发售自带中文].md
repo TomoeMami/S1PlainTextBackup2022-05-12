@@ -858,3 +858,22 @@ RPG里都有本土（韩国）的心头好，但不约而同会提到FF7。
 忍不住看了下昨天直播，第三章限制20回合， ...</blockquote>
 难不难和有没有两码事
 
+
+
+*****
+
+####  ztkong  
+##### 83#       发表于 2022-10-14 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">欧美风火纹。。。火纹就应该是二次元风啊。。。
+
+*****
+
+####  ppa11  
+##### 84#       发表于 2022-10-14 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57901092&amp;ptid=2067291" target="_blank">ztkong 发表于 2022-10-14 10:03</a>
+
+欧美风火纹。。。火纹就应该是二次元风啊。。。</blockquote>
+火纹的画风在发售的当时好像都挺二刺猿的
+

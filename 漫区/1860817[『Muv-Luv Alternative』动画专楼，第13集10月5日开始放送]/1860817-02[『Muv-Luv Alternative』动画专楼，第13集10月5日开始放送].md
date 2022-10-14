@@ -1511,3 +1511,16 @@ Muv-Luv本传的时间线类似这么个关系
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主这唐突发癫后吓尿的样子真的笑死我哈哈，就是最后老师的便当感觉有些唐突了
 
+
+
+*****
+
+####  6030sylar  
+##### 1913#       发表于 2022-10-14 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900614&amp;ptid=1860817" target="_blank">Rhantolk 发表于 2022-10-14 09:26</a>
+男主这唐突发癫后吓尿的样子真的笑死我哈哈，就是最后老师的便当感觉有些唐突了 ...</blockquote>
+白银武这唐突乱叫实在过于弱智
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

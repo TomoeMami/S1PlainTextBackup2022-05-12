@@ -1792,3 +1792,16 @@ ED做吉他想起这个了
 既然叫DIY部那就不能局限在木工小玩意儿上，组变速自行车，配设计用PC，手磨镜片道布森啥的都搞起来才有意 ...</blockquote>
 这个diy明显是美式diy。围着居家用品转。不是肥宅diy<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  劳动塑造人  
+##### 150#       发表于 2022-10-14 10:05
+
+ 本帖最后由 劳动塑造人 于 2022-10-14 10:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57899666&amp;ptid=1994951" target="_blank">根正苗红 发表于 2022-10-14 07:36</a>
+
+这个diy明显是美式diy。围着居家用品转。不是肥宅diy</blockquote>
+自行车挺居家的呀，日本的禧玛诺还是变速器龙头。道布森也不肥宅呀，要说美式DIY人家也可以算是典型代表了[https://www.bilibili.com/video/BV12E411o7ys](https://www.bilibili.com/video/BV12E411o7ys)。DIY PC也是广为人知的概念了。
+
