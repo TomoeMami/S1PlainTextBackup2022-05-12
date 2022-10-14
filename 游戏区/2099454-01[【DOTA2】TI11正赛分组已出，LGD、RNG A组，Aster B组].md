@@ -8040,3 +8040,37 @@ cndota以后怎么烂另说，nadota进货还是比cndota进货方便，主要�
 
 预测个屁，哥们低分猪的理解也预测不了什么东西了，抄作业还天天抄错<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yugao  
+##### 870#       发表于 2022-10-14 23:34
+
+今年骄阳能进前四就是胜利！
+
+
+
+*****
+
+####  nowaki  
+##### 871#       发表于 2022-10-14 23:34
+
+红色盾说明是骄阳年！
+
+*****
+
+####  rubicon  
+##### 872#       发表于 2022-10-14 23:37
+
+红色盾说明是秘鲁红龙hokori夸り骄傲年！
+
+*****
+
+####  jk9hot  
+##### 873#       发表于 2022-10-14 23:39
+
+红色盾代表南美年！
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
