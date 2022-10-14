@@ -6231,3 +6231,77 @@ TI11表演赛：萧瑟1VS19，给萧瑟分配的是20万血的巨大模型畜（
 
 750名就顶猎了，一两百名也无可厚非吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qdaqd123  
+##### 684#       发表于 2022-10-14 15:12
+
+支持唯一淳皇PURE,这不决赛日画Z<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 685#       发表于 2022-10-14 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57905419&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-14 15:01</a>
+
+讲个鬼故事，三支中国队的选手除了猴子爹以外天梯排名只有霉憋一个人进入了前50，也就排43，其余都是百名左 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">排名高的像油面飞飞撸狗没进ti啊
+
+另外皮球58鬼61冠晴65明鞭82，giegie勉强挤回了96
+
+*****
+
+####  Quark  
+##### 686#       发表于 2022-10-14 15:14
+
+完美的app看赛事数据只能对他默认的那一列进行升降序排列
+
+点其他列抬头没反应 是我的手机问题吗
+
+*****
+
+####  walfeds  
+##### 687#       发表于 2022-10-14 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57905636&amp;ptid=2099454" target="_blank">Quark 发表于 2022-10-14 15:14</a>
+
+完美的app看赛事数据只能对他默认的那一列进行升降序排列
+
+点其他列抬头没反应 是我的手机问题吗 ...</blockquote>
+是辣鸡app没做功能
+
+*****
+
+####  ck4pa  
+##### 688#       发表于 2022-10-14 15:18
+
+崩溃哥天梯151名，照样ti宰猪
+
+*****
+
+####  StrangerJ  
+##### 689#       发表于 2022-10-14 15:19
+
+有没有人统计过历届ti冠军天梯平均排名<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">想看看最低是多少
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 690#       发表于 2022-10-14 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57905719&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-14 15:19</a>
+有没有人统计过历届ti冠军天梯平均排名想看看最低是多少</blockquote>
+盲猜狗哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Quark  
+##### 691#       发表于 2022-10-14 15:20
+
+好呀好呀 这样假把式开发 不想做可以不做的呀
+

@@ -1018,3 +1018,26 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Sannapolis  
+##### 101#       发表于 2022-10-14 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57905407&amp;ptid=2098044" target="_blank">dookiee 发表于 2022-10-14 15:00</a>
+
+这游戏的市价是不是有问题村好剑卖三千，你面包店的果酱面包也卖三千，河里吗
+
+—— 来自 Xiaomi 22 ...</blockquote>
+游戏机制上的逻辑是这些食物是合成高阶武器的素材（就当是给打铁铺的礼物了），卖得和低阶武器差不多贵是正常的。
+
+游戏剧情上要解释的话就是外界魔物横行，人类的生存空间已经压缩得差不多了，没那么多地种粮，蛋糕甜点这些奢侈品卖得比普通武器贵也不是不可能
+
+*****
+
+####  格林卡罗尔  
+##### 102#       发表于 2022-10-14 15:20
+
+金龙真是刮得累死，这游戏所有的boss血都有这么长吗
+

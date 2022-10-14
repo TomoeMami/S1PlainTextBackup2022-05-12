@@ -3406,3 +3406,17 @@ novelai par2版本，可能是prompt问题吧
 
 那么多楼了都没见到胶衣扶她
 
+
+
+*****
+
+####  断片集  
+##### 268#       发表于 2022-10-14 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57905374&amp;ptid=2098197" target="_blank">lxsw 发表于 2022-10-14 14:59</a>
+
+大佬你这两张图是怎么在保留脸和衣服等特征下换不同的姿势的？我每次一换姿势prompt，人物也会跟着变了 ...</blockquote>
+因为有角色名的prompt啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+raiden_shogun，雷电将军，然后你再输些相关特征，比如hair flower之类的也能强化稳定性
+
