@@ -7546,3 +7546,29 @@ ED2絵コンテ演出、4話8話、リエラのうた、各話サブタイデザ
 
 大半夜笑得我满地打滚。太牛逼了，太杰作了，太巨魔了。你这么巨魔企划方不会生气吧哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十分必须十分
 
+
+
+*****
+
+####  ads147147  
+##### 8227#       发表于 2022-10-14 09:04
+
+ 本帖最后由 ads147147 于 2022-10-14 09:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57899144&amp;ptid=2078110" target="_blank">はなび 发表于 2022-10-14 02:38</a>
+今天才腾出手看了最终回</blockquote>
+从目前历史上看，搞烂日升IP的编剧，哪一个都是混的风生水起，甚至说搞烂了就更风生水起了。
+
+远了说有光头，中间说有大河内，近了（好像也不近）说有冈妈。
+
+想想花田的经历，搞烂了偶像大师，拉拉石头门京吹小南极啥的马上成为一代人的神作回忆，现在再搞烂拉拉，说不定能拿霓虹终身成就奖<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kfly  
+##### 8228#       发表于 2022-10-14 09:13
+
+动画&amp;杂志&amp;漫画&amp;广播&amp;推特&amp;巡演·<strong>可香糖合集</strong><img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+[什么是可香？](https://weibo.com/ttarticle/p/show?id=2309404824263306903972)
+

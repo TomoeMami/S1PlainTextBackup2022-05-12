@@ -18,3 +18,14 @@
 
 另外Viper AE meta预定。自己粗调已经和我自己刷了很久的FXX（2.25.227）铜谷差.222了。目前来看这车解法有点多，空力真的猛，基础也不差。看最终解法是拉力还是漂移，NA还是下机械增压。
 
+
+
+*****
+
+####  4ckc  
+##### 2486#       发表于 2022-10-14 09:10
+
+本周蛇头跟我一样开不惯后驱的菜鸡请老实开tcr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

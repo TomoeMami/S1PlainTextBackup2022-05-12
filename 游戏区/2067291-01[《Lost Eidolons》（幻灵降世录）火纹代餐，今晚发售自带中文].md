@@ -803,3 +803,14 @@ RPG里都有本土（韩国）的心头好，但不约而同会提到FF7。
 
 然后官方准备砍掉这个限制。
 
+
+
+*****
+
+####  allenz3  
+##### 78#       发表于 2022-10-14 09:06
+
+原来出了，晚上回去玩
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
