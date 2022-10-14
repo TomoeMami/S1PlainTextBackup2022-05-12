@@ -8186,3 +8186,29 @@ pay子新造型太美了
 
 香音是个屁共青，不是我的痛苦在你之上吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不然她怎么露出一副三藏都表演不出的演技。
 
+
+
+*****
+
+####  ruffian  
+##### 8277#       发表于 2022-10-14 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911974&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-14 22:29:52</a>
+我觉得他们就是这么认为的，相当于“香音受过挫”→“香音很能与他人共情”→“你看，香音说服他人是有原 ...</blockquote>说实话这两期动画里观感还行的几集都和感同身受没什么关系。
+一期第2集香音跟可可讲了自己失声的事，也没安排可可说懂哥台词剧情推进不一样丝滑吗？可可不需要和香音感同身受那些也不可能感同身受，她只需要看见眼前的香音在为此苦恼够了。第10集同理。给别人撑伞不需要自己淋过同样的雨，更何况你们每个人淋的都不是同一片雨。二期第4集也是一样，红蓝本来也没什么大的戏剧冲突，话说开就是了，反而是香音又突然莫名其妙化身懂哥把观感拉低了一点。
+第6集感觉演出最灾难了，说是“我”理解“你”，但观感像是用“我”的经历“压”你的感受，还挺让人不爽的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 8278#       发表于 2022-10-14 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910069&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-14 20:16</a>
+
+感觉就是来填充目前四团在非live非动画的“空隙”里企划的关注度和热度的。
+
+所以有这个战略和资源为什么不 ...</blockquote>
+突然提拔一个小皇子，让太子和小皇子相互猜疑，上演九子夺嫡的味道。
+

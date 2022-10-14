@@ -1190,3 +1190,17 @@
 
 —— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  十六夜pad长  
+##### 130#       发表于 2022-10-14 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909648&amp;ptid=2098925" target="_blank">laaaaaaag 发表于 2022-10-14 19:54</a>
+
+一个疑问，体力劳动的确是需要高碳水，多糖油来恢复体能/精神
+
+但是三哥这个好像超量的也太夸张了，真的是日 ...</blockquote>
+我估计是印度很多人还是素食主义者，当然他们素食分几个层级，所以蛋奶在某一层里算是素食可食用的。大概就因为这个，很多重体力缺蛋白质供应，只能靠超量鸡蛋芝士油脂保持了吧？
+

@@ -1157,3 +1157,32 @@ STEAM目前68%的好评率。
 
 价格还行啊 差不多是隔壁三角的一半
 
+
+
+*****
+
+####  bwsusaga  
+##### 107#         楼主| 发表于 2022-10-14 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909202&amp;ptid=2067291" target="_blank">油条小贩 发表于 2022-10-14 19:20</a>
+
+哥哥我在犹豫要不要买
+
+能给我截个技能树看看吗
+
+战棋要是技能少就不想玩了</blockquote>
+这会儿没法开游戏，
+
+中级职业三个技能，高级职业四个技能，有主动被动。
+
+技能确实不多。
+
+*****
+
+####  ryj  
+##### 108#       发表于 2022-10-14 23:05
+
+[https://www.bilibili.com/video/BV14e4y1S79W/](https://www.bilibili.com/video/BV14e4y1S79W/)
+
+B站上的直播录像 犹豫不决的可以先看看
+
