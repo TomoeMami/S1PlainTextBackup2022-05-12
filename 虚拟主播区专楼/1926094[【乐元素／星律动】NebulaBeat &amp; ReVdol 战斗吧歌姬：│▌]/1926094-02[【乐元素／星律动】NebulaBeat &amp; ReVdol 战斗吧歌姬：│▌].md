@@ -7394,3 +7394,40 @@ syl，算起来鸭鸭其实也没比九夏小多少，看魂号九夏估计是21
 
 3d势还是招有工作实习经验或者相关活动履历的人比较好，纯素人对工作对未来的预期会相差很多
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2293#         楼主| 发表于 2022-10-14 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904876&amp;ptid=1926094" target="_blank">66367749 发表于 2022-10-14 14:28</a>
+
+3d势还是招有工作实习经验或者相关活动履历的人比较好，纯素人对工作对未来的预期会相差很多 ...</blockquote>
+你指的是栗子酱kimo么<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  66367749  
+##### 2294#       发表于 2022-10-14 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904914&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-10-14 14:31</a>
+你指的是栗子酱kimo么</blockquote>
+离职的原因差远了吧
+
+*****
+
+####  ladiesman802  
+##### 2295#       发表于 2022-10-14 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904876&amp;ptid=1926094" target="_blank">66367749 发表于 2022-10-14 14:28</a>
+
+3d势还是招有工作实习经验或者相关活动履历的人比较好，纯素人对工作对未来的预期会相差很多 ...</blockquote>
+这不是马后炮，有一年工作经验的kino因为延毕跑了
+
+找个名牌大学毕业还是北京本地人吧，结果是公主病
+
+留下来的反而是最天真还是北漂的卡缇娅
+
+虽然厂子看人的眼光很准，但是运气是e级别
+

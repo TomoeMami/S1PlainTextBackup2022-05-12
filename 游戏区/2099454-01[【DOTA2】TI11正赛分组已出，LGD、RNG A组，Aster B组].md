@@ -6079,3 +6079,74 @@ lets go creepwave<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 想看全明星花式宰畜大赛，一次性满足楼友所有愿望
 
+
+
+*****
+
+####  bluebaby  
+##### 668#       发表于 2022-10-14 14:33
+
+练小黑的是被亚陀螺忽悠了吧，要ban的东西感觉不少
+
+*****
+
+####  TI三冠王AME  
+##### 669#       发表于 2022-10-14 14:34
+
+TI11表演赛：萧瑟1VS19，给萧瑟分配的是20万血的巨大模型畜（无冕之王VERSION），剩下19支战队的carry一起进行屠畜表演
+
+*****
+
+####  巴德那克  
+##### 670#       发表于 2022-10-14 14:37
+
+今年超哥这么勇吗？ 我对超哥的印象还停留在去年…… <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TI三冠王AME  
+##### 671#       发表于 2022-10-14 14:38
+
+<img src="https://img.saraba1st.com/forum/202210/14/143757y51esoeq3sl6iskj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (108.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 14:37 上传
+
+哇，像个局一样
+
+*****
+
+####  usoda  
+##### 672#       发表于 2022-10-14 14:38
+
+仙贝已经对崩溃哥PTSD了 一打照面肯定尿了一地 脑浆Y记得要多带点尿不湿啊
+
+*****
+
+####  甩不出去的黄牌  
+##### 673#       发表于 2022-10-14 14:39
+
+九块钱的面，八十四的浇头?<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 674#       发表于 2022-10-14 14:40
+
+葱油拌面不要，不要葱，不要葱，不要葱 面的浇葱也不要，不要，不要葱，不要葱，不要葱 面的浇葱也不要
+
+*****
+
+####  哈曼的YY  
+##### 675#       发表于 2022-10-14 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904642&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-14 14:09:23</a>
+不过选畜要ban屠夫和发条 确实没有选马西无脑
+
+—— 来自 OnePlus GM1910, Android 11上的  v2.5.2-play ...</blockquote>也挺怕毒狗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
