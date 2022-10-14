@@ -1319,3 +1319,14 @@ https://w.atwiki.jp/astlibra/sp/list
 
 太刷了，不小心死了还要打一堆怪
 
+
+
+*****
+
+####  蓝雉  
+##### 130#         楼主| 发表于 2022-10-14 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57912321&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-14 22:56</a>
+第二关这个箱子愣是找不到路</blockquote>
+这个要后面有了炸弹再来拿
+

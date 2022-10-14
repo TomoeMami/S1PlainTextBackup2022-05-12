@@ -8347,3 +8347,22 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 这么多年第一次见到直接说没有精神直播而不是说累了不播的推特
 
+
+
+*****
+
+####  holoan  
+##### 2300#         楼主| 发表于 2022-10-14 23:10
+
+<img src="https://img.saraba1st.com/forum/202210/14/231022fzgw4fe544zi5qs3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 23:10 上传
+
+感觉确实今天比较不正常
+
+多少年没看过freechat了
+
