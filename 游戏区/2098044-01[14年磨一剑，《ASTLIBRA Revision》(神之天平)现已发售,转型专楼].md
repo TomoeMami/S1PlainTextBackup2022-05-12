@@ -617,3 +617,12 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 
 感觉RPG成分重了点，act部分应该选极难，吃药放魔法不暂停才是真的刺激<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LeiaR  
+##### 65#       发表于 2022-10-14 08:48
+
+没太搞懂战斗系统，一直都是拉开距离在打，被刚学到凭依时的两个大史莱姆爆打。
+
