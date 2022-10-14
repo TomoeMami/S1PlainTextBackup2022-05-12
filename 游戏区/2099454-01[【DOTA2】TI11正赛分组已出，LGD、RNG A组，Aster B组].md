@@ -5025,3 +5025,58 @@ lgd最好小组赛就被打进败者组或者直接滚蛋，真让他鳖到决�
 外区dpc啊</blockquote>
 你们都这么硬核的嘛，外区的dpc也看的？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 554#       发表于 2022-10-14 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57901215&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-14 10:11</a>
+你们都这么硬核的嘛，外区的dpc也看的？</blockquote>
+卜看怎么知道淳真在西欧dpc第三赛季就已经开始把entity带活了
+
+*****
+
+####  ck4pa  
+##### 555#       发表于 2022-10-14 10:15
+
+感觉rng打液体都够呛
+
+*****
+
+####  iriyano  
+##### 556#       发表于 2022-10-14 10:17
+
+尬黑了啊，液体可是和vg打的有来有回的
+
+*****
+
+####  nowaki  
+##### 557#       发表于 2022-10-14 10:17
+
+cn dpc哥们才是真的不看，一帮老逼油子打比赛，东西欧那么多年轻选手不比国内dpc好看多了。
+
+*****
+
+####  六娃  
+##### 558#       发表于 2022-10-14 10:18
+
+也有和cndpc一样折磨的，比如ppy和kky俩老杂毛的队
+
+*****
+
+####  adretyu67  
+##### 559#       发表于 2022-10-14 10:19
+
+ 本帖最后由 adretyu67 于 2022-10-14 10:20 编辑 
+
+明天上午几点开？哦，10点
+
+*****
+
+####  反方向的波  
+##### 560#       发表于 2022-10-14 10:19
+
+但rng也是虐xg进来的，至于xg的水平嘛。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
