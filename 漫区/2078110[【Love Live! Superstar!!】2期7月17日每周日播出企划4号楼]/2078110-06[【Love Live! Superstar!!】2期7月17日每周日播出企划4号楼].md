@@ -7957,3 +7957,29 @@ thumb_payton_221014.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8258#       发表于 2022-10-14 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910591&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-10-14 20:51</a>
+
+企划什么样子都不知道怎么就有中之人也会出镜的情报了
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道 但我看五厕好像是真的
+
+*****
+
+####  D麦林  
+##### 8259#       发表于 2022-10-14 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910591&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-10-14 20:51</a>
+企划什么样子都不知道怎么就有中之人也会出镜的情报了
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://p.sda1.dev/7/d4d69d69720bcf0205bd012e85b82c15/CMP_20221014205904736.jpg" referrerpolicy="no-referrer">
+官网写的
+
