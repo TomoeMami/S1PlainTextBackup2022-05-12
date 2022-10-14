@@ -8029,3 +8029,30 @@ https://febri.jp/febri_talk/kyogoku_takahik ...</blockquote>
 两眼一黑，是怎么做到说的和成品近乎相反的
 让观众痛苦以使得观众理解痛苦么
 
+
+
+*****
+
+####  welcom  
+##### 8263#       发表于 2022-10-14 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911431&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-14 21:48</a>
+
+两眼一黑，是怎么做到说的和成品近乎相反的
+让观众痛苦以使得观众理解痛苦么 ...</blockquote>
+可能他们觉得输两次就算痛苦过了吧，也不知道为啥，人物塑造变这么肤浅了
+
+*****
+
+####  Kfly  
+##### 8264#       发表于 2022-10-14 21:56
+
+ 本帖最后由 Kfly 于 2022-10-14 21:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911431&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-14 21:48</a>
+
+两眼一黑，是怎么做到说的和成品近乎相反的
+让观众痛苦以使得观众理解痛苦么 ...</blockquote>
+意思是说只有香音是<strong>“</strong><strong>能贴近痛苦”</strong>的<strong>“主人公”</strong>，要我们以这个视角看星动画<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+单就<strong>“能接近痛苦”</strong>、<strong>“主人公”</strong>好像确实符合，剧中香音不就是各种“她是不是有什么苦衷呢”吗，把这当做共情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

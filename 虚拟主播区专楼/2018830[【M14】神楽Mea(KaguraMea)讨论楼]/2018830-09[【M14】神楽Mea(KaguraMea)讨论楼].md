@@ -6056,3 +6056,38 @@ AI能补出麻鼻吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">P站多了好多咩咩AI色图
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12623#       发表于 2022-10-14 21:55
+
+上面那个mea的画风插件，脸就没有不红的。
+
+把上面3张图让软件修了看看。
+
+<img src="https://img.saraba1st.com/forum/202210/14/215533i1cit41sobsotsvv.png" referrerpolicy="no-referrer">
+
+<strong>heterochromia , yellow eyesmelldansen,best quality,highly detailed,blue eye,silv.png</strong> (52.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/215533c13n31oq1liccbn1.png" referrerpolicy="no-referrer">
+
+<strong>heterochromia , yellow eyesmelldansen,best quality,highly detailed,blue eye,silv.png</strong> (56.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 21:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/215533ud6uqgzqkcukf5sw.png" referrerpolicy="no-referrer">
+
+<strong>heterochromia , yellow eyesmelldansen,best quality,highly detailed,blue eye,silv.png</strong> (61.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 21:55 上传
+
