@@ -5178,3 +5178,64 @@ ett暴打秘密</blockquote>
 影魔目前突围赛已经是第一轮非ban必选的了，主要线上和前期太强了很容易滚雪球直接滚死对面 ...</blockquote>
 影魔自从压炮叠伤害后我一直觉得对线很强，这版本强势感觉更多的是版本节奏不要带节奏，偏占线发育，影魔这种就厉害了
 
+
+
+*****
+
+####  adretyu67  
+##### 571#       发表于 2022-10-14 10:33
+
+反正干瘪应该没法给猴爹选沙发？给掀背选个沙发采灵芝倒是没问题。
+
+*****
+
+####  izayoi39  
+##### 572#       发表于 2022-10-14 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57901499&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-14 10:31</a>
+
+影魔自从压炮叠伤害后我一直觉得对线很强，这版本强势感觉更多的是版本节奏不要带节奏，偏占线发育，影魔 ...</blockquote>
+这版本是不需要中单打个人节奏，但是需要中单带着团队打扫图节奏，在这种节奏打法下影魔就会凸显的非常厉害，这英雄想赢比赛一直都是要带着队友打才厉害
+
+*****
+
+####  IG.430  
+##### 573#       发表于 2022-10-14 10:36
+
+ 本帖最后由 IG.430 于 2022-10-14 10:38 编辑 
+
+盒中盒消息，ghost提前拿到了rng的顶薪续约，还有事没事跟没续约的撸狗猪提一嘴。今早rng和lgd训练被打了个22：0，基地爆炸瞬间撸狗猪直接起身背后偷袭把陈国康按进显示器了。
+
+*****
+
+####  哈曼的YY  
+##### 574#       发表于 2022-10-14 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900870&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-14 09:47:24</a></blockquote>真到这时候麻烦三炮带走a畜谢谢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 575#       发表于 2022-10-14 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57901592&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-14 10:37</a>
+真到这时候麻烦三炮带走a畜谢谢
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+我想看李斯拱a➗进泉水<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 576#         楼主| 发表于 2022-10-14 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900985&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-14 09:56</a>
+今年的sf算不算dota2有史以来最强形态，对线强团战强后期出把法跳就有机会蒸发对方大哥
+
+ ...</blockquote>
+不如blink大晕版本
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

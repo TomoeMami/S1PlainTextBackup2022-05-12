@@ -7299,3 +7299,14 @@ syl，算起来鸭鸭其实也没比九夏小多少，看魂号九夏估计是21
 
 最搞笑的是啊碳觉得自己在这种环境里不高兴，其他人却没有不高兴，肯定是被pua了，不高兴的情况下还要上台表现出高兴她觉得不能接受。说白了，根本对社会和这个工作没有正确认识
 
+
+
+*****
+
+####  一叶丈育  
+##### 2283#       发表于 2022-10-14 10:32
+
+越来越感觉背离原教旨了，愈发怜爱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
