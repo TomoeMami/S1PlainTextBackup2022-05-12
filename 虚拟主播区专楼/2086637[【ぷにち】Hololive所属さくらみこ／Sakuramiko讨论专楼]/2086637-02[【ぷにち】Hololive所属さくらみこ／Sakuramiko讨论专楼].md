@@ -8245,3 +8245,12 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 萝卜宠物死了休一个月缺席运动会，看看白组还有谁能补<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 2290#       发表于 2022-10-14 12:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈人，运动会才宣布几天就少一人了
+
