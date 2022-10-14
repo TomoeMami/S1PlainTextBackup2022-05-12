@@ -1524,3 +1524,17 @@ Muv-Luv本传的时间线类似这么个关系
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1914#       发表于 2022-10-14 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57899747&amp;ptid=1860817" target="_blank">oskneo 发表于 2022-10-14 07:55</a>
+
+大家可能忘了，男主这周目的失败不止这点，125政变死的所有人本来这时间点都是不用死的，全都是男主这周 ...</blockquote>
+但是从结果论来说
+
+都是为了人类唯一胜利结局的必要牺牲<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
+

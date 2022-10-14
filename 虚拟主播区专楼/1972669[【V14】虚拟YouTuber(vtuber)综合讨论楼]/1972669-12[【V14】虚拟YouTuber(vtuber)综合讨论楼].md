@@ -11681,3 +11681,24 @@ msr参加喷喷大会，太给面子了
 人比人气死人了属于是……
 这娃娃比虹的都丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  毛头小希  
+##### 17570#       发表于 2022-10-14 11:58
+
+这迷茫的表情我愿称之为Q版邪神Saber
+
+真的可爱吗………………？
+
+不过我也分不清这个跟前阵子虹社棒球联动那批小玩偶哪个比较，呃，“可爱”
+
+<img src="https://img.saraba1st.com/forum/202210/14/115824bsoovoygg5llvbsu.png" referrerpolicy="no-referrer">
+
+<strong>main.png</strong> (379.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 11:58 上传
+

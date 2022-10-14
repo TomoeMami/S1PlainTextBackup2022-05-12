@@ -892,3 +892,12 @@ STEAM目前68%的好评率。
 
 不过这179的售价有点太高了……
 
+
+
+*****
+
+####  saitochiho  
+##### 86#       发表于 2022-10-14 12:00
+
+等打折吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">，坐等明年1月份火纹
+
