@@ -7488,3 +7488,28 @@ ps：saku好像和kino同年？还是kino大一点？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">所以saku现在就不在和乐元素有啥关系了阿，人去追寻更大的舞台了
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2301#       发表于 2022-10-14 17:45
+
+果然厂子加新人之前会搞专利的
+
+50C2BA83-E406-4808-ADB2-1A0E6225D906.jpeg
+(153.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 17:44 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/174443u3ia3yh1iq74n7r4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  frg  
+##### 2302#       发表于 2022-10-14 17:47
+
+顺便一提：大学生火羽已经九百舰了(捶地
+

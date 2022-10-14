@@ -7717,3 +7717,14 @@ IMG_9596(20221014-113502).JPG
 
 好事的前提是把第二季救了。要是救不了跟第二季一起烂，那更折磨。
 
+
+
+*****
+
+####  player3960  
+##### 8240#       发表于 2022-10-14 17:44
+
+好死不如赖活着，也比没有好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
