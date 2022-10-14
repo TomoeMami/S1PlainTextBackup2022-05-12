@@ -845,3 +845,16 @@ RPG里都有本土（韩国）的心头好，但不约而同会提到FF7。
 
 看了下评论，主要是对强制回合限制很不满，这数值定的很死么？
 
+
+
+*****
+
+####  白昼梦  
+##### 82#       发表于 2022-10-14 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900616&amp;ptid=2067291" target="_blank">allenz3 发表于 2022-10-14 09:26</a>
+看了下评论，主要是对强制回合限制很不满，这数值定的很死么？
+
+忍不住看了下昨天直播，第三章限制20回合， ...</blockquote>
+难不难和有没有两码事
+

@@ -5827,3 +5827,23 @@ woc 麻
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  草牛  
+##### 12609#       发表于 2022-10-14 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900869&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-10-14 09:47</a>
+这是ai画出来的？
+
+—— 来自 S1Fun</blockquote>
+有人把你麻原皮的prompt跑出来了
+
+*****
+
+####  aisakahammer  
+##### 12610#       发表于 2022-10-14 09:58
+
+好呀好呀，素材利用太精准了
+

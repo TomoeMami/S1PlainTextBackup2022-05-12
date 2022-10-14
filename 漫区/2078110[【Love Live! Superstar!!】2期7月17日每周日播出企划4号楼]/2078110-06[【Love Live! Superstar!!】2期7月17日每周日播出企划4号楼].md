@@ -7585,3 +7585,14 @@ ED2絵コンテ演出、4話8話、リエラのうた、各話サブタイデザ
 远了说有光 ...</blockquote>
 还有木村畅这斯，age创形者鬼子战记还有prpr剧场版，现在又去祸害CG的手游，搞砸得越多混得越好<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 8230#       发表于 2022-10-14 09:59
+
+就我周边路人粉的情况来说，第一季多少能引起关注，第二季开头就跟完全不存在一样
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
