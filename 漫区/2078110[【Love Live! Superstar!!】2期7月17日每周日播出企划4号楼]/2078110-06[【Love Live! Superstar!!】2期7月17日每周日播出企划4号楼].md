@@ -7754,3 +7754,41 @@ IMG_9596(20221014-113502).JPG
 
 如果是喜欢真人，动画就图一乐，出啥看啥呗，至少有动画就比没动画热度高，我巴不得星团三期完事以后再来三个剧场版，续到一期生（指真人）结婚生孩子才好呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8243#       发表于 2022-10-14 18:13
+
+<img src="https://img.saraba1st.com/forum/202210/14/181343w1lful0uxx45d60f.jpg" referrerpolicy="no-referrer">
+
+<strong>20221014_180942.jpg</strong> (186.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 18:13 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/181347lz35i23i3118kz4w.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221014_180939.jpg</strong> (339.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 18:13 上传
+
+*****
+
+####  aoaoaodedede  
+##### 8244#       发表于 2022-10-14 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57908338&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-14 18:13</a></blockquote>
+乐，这企划这时候才搬上来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 8245#       发表于 2022-10-14 18:19
+
+这时间也很阴间啊，一般不都是中午发的么
+

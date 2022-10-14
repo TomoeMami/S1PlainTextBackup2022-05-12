@@ -1084,3 +1084,19 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 https://w.atwiki.jp/astlibra/sp/list
 如果重制版没改动的话，游戏第五章会有个影响比较大的分支剧情，建议适当看一下攻略，避免读档重打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  casle  
+##### 107#       发表于 2022-10-14 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57907664&amp;ptid=2098044" target="_blank">我猫呢? 发表于 2022-10-14 17:29</a>
+
+贴个日文wiki
+
+https://w.atwiki.jp/astlibra/sp/list
+
+如果重制版没改动的话，游戏第五章会有个影响比较大的 ...</blockquote>
+我这里点进去显示是403 error，麻烦能反白简略说一下吗，感谢
+
