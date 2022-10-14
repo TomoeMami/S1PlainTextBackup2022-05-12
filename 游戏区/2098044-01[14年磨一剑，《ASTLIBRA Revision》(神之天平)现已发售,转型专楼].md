@@ -961,3 +961,17 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 体验很不错，就是大拇指要按废了</blockquote>
 第二章沼泽的商店里有卖铜剑，解锁自动连击
 
+
+
+*****
+
+####  pf67  
+##### 97#       发表于 2022-10-14 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904021&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-14 13:17</a>
+
+升级快没什么卵用，你看我红武比别人店武面板还要低三分之一。
+
+刚刚去打了下竞技场大毛毛虫，撞一下半血两 ...</blockquote>
+加点可以随时自由分配的，不是什么问题
+
