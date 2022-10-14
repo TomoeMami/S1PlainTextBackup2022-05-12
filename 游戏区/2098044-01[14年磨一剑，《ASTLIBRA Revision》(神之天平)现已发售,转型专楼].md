@@ -1351,3 +1351,12 @@ https://w.atwiki.jp/astlibra/sp/list
 
 这第四章要素也太多了
 
+
+
+*****
+
+####  manyin1  
+##### 133#       发表于 2022-10-15 01:50
+
+哇靠……就我一个人卡在第一章火把的素材不知道去哪拿吗……感觉自己好蠢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
