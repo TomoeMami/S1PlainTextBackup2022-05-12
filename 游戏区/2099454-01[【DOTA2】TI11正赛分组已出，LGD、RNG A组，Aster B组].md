@@ -8031,3 +8031,12 @@ cndota以后怎么烂另说，nadota进货还是比cndota进货方便，主要�
 
 预测个jb，还不是充钱
 
+
+
+*****
+
+####  非建政专用号  
+##### 869#       发表于 2022-10-14 23:29
+
+预测个屁，哥们低分猪的理解也预测不了什么东西了，抄作业还天天抄错<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

@@ -8225,3 +8225,19 @@ pay子新造型太美了
 stm突然提拔，清宫戏看多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 只能说我已等候多时了，急急急赶快端上来罢<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8280#       发表于 2022-10-14 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57912435&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-14 23:05</a>
+
+说实话这两期动画里观感还行的几集都和感同身受没什么关系。
+
+一期第2集香音跟可可讲了自己失声的事，也没安 ...</blockquote>
+应该说可可是有“共情”，也有“行动”，第一季可香回可堇回都是这样，舞台 独唱和王冠都是准备好的。
+
+香音S1E3后基本是就靠一张嘴，收进团后就基本不管了，这点堇、夏美最明显，跟收集成就似的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

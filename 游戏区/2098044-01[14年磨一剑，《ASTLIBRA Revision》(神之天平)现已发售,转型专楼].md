@@ -1330,3 +1330,15 @@ https://w.atwiki.jp/astlibra/sp/list
 第二关这个箱子愣是找不到路</blockquote>
 这个要后面有了炸弹再来拿
 
+
+
+*****
+
+####  onlv星骸  
+##### 131#       发表于 2022-10-14 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57912321&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-14 22:56</a>
+
+第二关这个箱子愣是找不到路</blockquote>
+ 右边有个门 用等下主线获取的哥布林石板能开
+
