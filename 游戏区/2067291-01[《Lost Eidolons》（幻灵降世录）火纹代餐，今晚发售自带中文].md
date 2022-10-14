@@ -1148,3 +1148,12 @@ STEAM目前68%的好评率。
 
 中文语言下的地形说明文字小的简直没法看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ryj  
+##### 106#       发表于 2022-10-14 23:00
+
+价格还行啊 差不多是隔壁三角的一半
+

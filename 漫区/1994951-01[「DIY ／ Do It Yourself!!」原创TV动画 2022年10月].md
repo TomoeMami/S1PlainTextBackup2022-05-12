@@ -1896,3 +1896,13 @@ ai自动化党一路走好笑死
 秋アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第2話放送後インタビュー：せるふ役 稲垣好さん&amp;#xD7;ぷりん役 市ノ瀬加那さん｜根底に“楽しい”があるのが大事。二人がいつも考えていることとは？
 [https://www.animatetimes.com/news/details.php?id=1665622767](https://www.animatetimes.com/news/details.php?id=1665622767)
 
+
+
+*****
+
+####  stevenzero  
+##### 157#       发表于 2022-10-14 23:02
+
+主角这个衣服穿的，想逼死强迫症啊！
+求你了，衣服要么全拉出来要么全塞进裙子里去好吗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

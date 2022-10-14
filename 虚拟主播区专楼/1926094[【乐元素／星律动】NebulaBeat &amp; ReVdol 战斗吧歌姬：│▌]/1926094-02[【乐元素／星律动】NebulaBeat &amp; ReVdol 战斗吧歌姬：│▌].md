@@ -7677,3 +7677,19 @@ n厂在日本的关系确实是国内独一份的，希望好好发展。
 
 许愿复活
 
+
+
+*****
+
+####  ladiesman802  
+##### 2319#       发表于 2022-10-14 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911956&amp;ptid=1926094" target="_blank">一叶丈育 发表于 2022-10-14 22:27</a>
+
+怎么歌词里有马啊，差点ptsd
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+kino：希望大家不要因为我而讨厌赛马娘。
+
+波波派：赛马娘我杀了你！
+

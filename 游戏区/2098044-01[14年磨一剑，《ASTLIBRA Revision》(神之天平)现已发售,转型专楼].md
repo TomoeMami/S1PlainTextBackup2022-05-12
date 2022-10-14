@@ -1295,3 +1295,27 @@ https://w.atwiki.jp/astlibra/sp/list
 
 草，这每一章也太刷了，不刷根本打不过boss。
 
+
+
+*****
+
+####  jy000129  
+##### 128#       发表于 2022-10-14 22:56
+
+<img src="https://img.saraba1st.com/forum/202210/14/225547cjr3oaqxq3hesxms.jpg" referrerpolicy="no-referrer">
+
+<strong>20221014225501_1.jpg</strong> (219.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 22:55 上传
+
+第二关这个箱子愣是找不到路
+
+*****
+
+####  masterkeaton  
+##### 129#       发表于 2022-10-14 22:58
+
+太刷了，不小心死了还要打一堆怪
+
