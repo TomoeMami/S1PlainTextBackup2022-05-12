@@ -6662,3 +6662,127 @@ nowaki能喊出管人痴似个马吧，王能做到？</blockquote>
 
 看了各种核中核消息，我已经提前原谅RNG一轮游了
 
+
+
+*****
+
+####  morwhipppo  
+##### 735#       发表于 2022-10-14 17:03
+
+第一天的赛程看下来必定要看集美狂欢扣水了，不出意外又是一堆今年还是只能看lgd啊
+
+*****
+
+####  walfeds  
+##### 736#       发表于 2022-10-14 17:03
+
+还没比赛看，感觉浑身小水人在爬
+
+*****
+
+####  a1370303  
+##### 737#       发表于 2022-10-14 17:05
+
+外国集美也不少呀，V社员工Wykrhm发的这个投票里老干鳖遥遥领先<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/14/170202idblcrogd7n2asrs.jpg" referrerpolicy="no-referrer">
+
+<strong>2022-10-14 165943.jpg</strong> (81.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 17:02 上传
+
+还有往年的数据
+
+<img src="https://img.saraba1st.com/forum/202210/14/170357fg5gqqqn5rsxeqqi.jpg" referrerpolicy="no-referrer">
+
+<strong>FfAR-ATUoAArawY.jpg</strong> (102.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 17:03 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/170409rzj5iqfxpj2qsihb.jpg" referrerpolicy="no-referrer">
+
+<strong>FfAR-AMVIAArSBA.jpg</strong> (116.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 17:04 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/170426koddpn3w2juojjrp.jpg" referrerpolicy="no-referrer">
+
+<strong>FfAR-ALUcAI0T2U.jpg</strong> (212.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 17:04 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/170439g6gjzaaibn8i1abi.jpg" referrerpolicy="no-referrer">
+
+<strong>FfAR-AMVIAE-Hxe.jpg</strong> (137.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 17:04 上传
+
+*****
+
+####  没钱买手办  
+##### 738#       发表于 2022-10-14 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都怪司马抽签，要是lgd分组和鳖茶换一下，可能小组赛就能看到畜长被崩溃哥打的尿漫狮城了
+
+*****
+
+####  yuyuagain  
+##### 739#       发表于 2022-10-14 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57905888&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-14 15:28</a>
+
+17年年底的图德张的排名已经不重要了</blockquote>
+那时候mc和老迹随便打打就天梯第一了，现在一个经常在100名徘徊，一个要非常功利才能上前10，令人感叹
+
+*****
+
+####  thistimeforlife  
+##### 740#       发表于 2022-10-14 17:08
+
+票选之王！
+
+*****
+
+####  nowaki  
+##### 741#       发表于 2022-10-14 17:08
+
+妮有没有发现自从司马ru开始搞饭圈养集美之后，ti10 11lgd的支持率完爆成绩差不多的ti8 9？
+
+*****
+
+####  六娃  
+##### 742#       发表于 2022-10-14 17:11
+
+太司马了，几千人的投票也能哪来发大水，要不上客户端看看战队关注数
+
+*****
+
+####  尖刺外婆  
+##### 743#       发表于 2022-10-14 17:11
+
+崩溃哥30把90%胜率<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 744#       发表于 2022-10-14 17:11
+
+哦艹，21年就有这么多人给克神贷款冠军了
+
+*****
+
+####  walfeds  
+##### 745#       发表于 2022-10-14 17:12
+
+赢！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是干瘪粉可不都是集美，还有海外小蚂蚁、海外小红包和海外清流粉的
+

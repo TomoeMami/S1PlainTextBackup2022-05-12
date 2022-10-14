@@ -1052,3 +1052,24 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  onlv星骸  
+##### 104#       发表于 2022-10-14 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57906259&amp;ptid=2098044" target="_blank">dookiee 发表于 2022-10-14 15:55</a>
+
+树枝的精通效果是什么
+
+—— 来自 Xiaomi 22081212C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+武器熟练度加快的嘉隆
+
+*****
+
+####  onlv星骸  
+##### 105#       发表于 2022-10-14 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">第二章这个解谜脑洞有点大 虽然挺绝的
+
