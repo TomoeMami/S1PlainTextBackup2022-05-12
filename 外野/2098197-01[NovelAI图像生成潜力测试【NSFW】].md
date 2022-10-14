@@ -3395,3 +3395,14 @@ novelai par2版本，可能是prompt问题吧
 有几个tag真的好色，我这个用的是masterpiece, best quality, raiden_shogun ,1girl, 1boy, t-shirt, swea ...</blockquote>
 大佬你这两张图是怎么在保留脸和衣服等特征下换不同的姿势的？我每次一换姿势prompt，人物也会跟着变了
 
+
+
+*****
+
+####  michael357  
+##### 267#       发表于 2022-10-14 15:07
+
+这什么AI鶸得很啊
+
+那么多楼了都没见到胶衣扶她
+
