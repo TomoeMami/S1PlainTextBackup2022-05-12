@@ -8083,3 +8083,14 @@ cndota以后怎么烂另说，nadota进货还是比cndota进货方便，主要�
 
 白皮踢球前十来了，世界杯年的欧冠狗都不看。
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 875#       发表于 2022-10-15 00:12
+
+今天是漏油投降一周年纪念日<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
