@@ -8237,3 +8237,16 @@ ZZZZZZZZZZZZZZZZZ
 我打四五，比较希望既有 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TI找个专业解说直播间观赛，结束后水平就回来了
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 890#       发表于 2022-10-15 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57913695&amp;ptid=2099454" target="_blank">匿名用户 发表于 2022-10-15 00:59</a>
+云了四五年了，现在想回坑，有什么地方可以比较系统的看攻略吗？文字、视频皆可。
+
+我打四五，比较希望既有 ...</blockquote>
+学技术就看斗鱼227229<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
