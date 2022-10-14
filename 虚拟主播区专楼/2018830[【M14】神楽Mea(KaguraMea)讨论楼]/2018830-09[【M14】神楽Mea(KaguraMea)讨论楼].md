@@ -5814,3 +5814,16 @@ woc 麻
 也有不换头的
 <img src="https://p.sda1.dev/7/155e7b120c666b6aca331118e94aba0c/B4C94528CA6212C352A8DA834E002D6D1665706578184.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 12608#       发表于 2022-10-14 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57899982&amp;ptid=2018830" target="_blank">草牛 发表于 2022-10-14 08:30</a>
+也有不换头的</blockquote>
+这是ai画出来的？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
