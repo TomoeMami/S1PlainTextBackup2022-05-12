@@ -4442,3 +4442,21 @@ dota2怎么分在怀旧里，还是改成pc比较合适吧[@情商](https://bbs.
 
 好啊十七分钟020的四号位小小打完来一句“你的刷钱路线有点难受”
 
+
+
+*****
+
+####  12481632  
+##### 486#       发表于 2022-10-14 08:09
+
+同一场是两个ob的一起解说的，都可以找二台看了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 487#       发表于 2022-10-14 08:11
+
+灌注中单光一，灌注中单光一谢谢喵<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
