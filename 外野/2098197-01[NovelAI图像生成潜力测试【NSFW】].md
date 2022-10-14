@@ -3516,3 +3516,20 @@ text to img有办法减少随机率吗，我感觉roll出来的图和你的相�
 
 2022-10-14 16:49 上传
 
+
+
+*****
+
+####  mahoraga  
+##### 275#         楼主| 发表于 2022-10-14 19:15
+
+V-gesture好像就可以,但是涉及到手不要期待太多<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/14/191506queuu6fyi5y3322e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 19:15 上传
+

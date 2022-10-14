@@ -7253,3 +7253,62 @@ suibiandagg新视频笑尿
 
 唯一指定强者英雄萨尔
 
+
+
+*****
+
+####  恐怖利刃  
+##### 789#       发表于 2022-10-14 19:14
+
+【没道理呀【弥希Miki&amp;中单光一】】 [https://www.bilibili.com/video/BV1xe4y1v7ot](https://www.bilibili.com/video/BV1xe4y1v7ot)
+
+*****
+
+####  nowaki  
+##### 790#       发表于 2022-10-14 19:17
+
+**版主离我家弥宝远一点啊
+
+*****
+
+####  a1370303  
+##### 791#       发表于 2022-10-14 19:19
+
+有一说一，耿鬼仙贝和快龙仙贝和处长一样处啊，淘汰赛全靠四赵云带躺<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恐怖利刃  
+##### 792#       发表于 2022-10-14 19:20
+
+<img src="https://img.saraba1st.com/forum/202210/14/192046ar4p4g00qowgtqnq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EC423F53-5B06-4F54-B4EF-625B9D994FE3.jpeg</strong> (171.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 19:20 上传
+
+这图看一次笑一次
+
+*****
+
+####  情商  
+##### 793#         楼主| 发表于 2022-10-14 19:21
+
+又开始恶心人了
+
+*****
+
+####  蛭人  
+##### 794#       发表于 2022-10-14 19:22
+
+艹，点进去前以为是应援ti，点进去后管人痴司马！
+
+*****
+
+####  StrangerJ  
+##### 795#       发表于 2022-10-14 19:23
+
+点进去后管人痴司马！
+

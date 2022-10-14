@@ -52,3 +52,12 @@
 他们哪来的自信要要求人家的经济呢？ 真当莱恩哈特是独裁者呢？</blockquote>
 是独裁者没错啊，这职业最擅长杀债主免债<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Siran_China  
+##### 5471#       发表于 2022-10-14 19:20
+
+这要塞也别叫秃鹰之城了，叫头文字D吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">转个弯跟飙车一样，我都不敢开这么冲
+
