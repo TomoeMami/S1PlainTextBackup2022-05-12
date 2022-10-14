@@ -3447,3 +3447,23 @@ mark，神了
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  断片集  
+##### 271#       发表于 2022-10-14 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57905884&amp;ptid=2098197" target="_blank">lxsw 发表于 2022-10-14 15:28</a>
+
+不行啊，我复制了你的prompt，但每次roll出来的画风都不一样。。
+
+而你这两张造型画风打光都高度一致，只 ...</blockquote>
+视角可以用from front/side/behind/below，pov, cowboy shot, fisheye之类的prompt控制，
+
+打光就比较复杂了，很多氛围词都可以控制，比如holy，xx rim light之类的，还有指定地点，比如大街啊，海滩之类的也会影响
+
+背景倒是很好控制，比如simple background，white background之类的
+
+至于画风，要么靠roll，要么指定风格或者画师了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
