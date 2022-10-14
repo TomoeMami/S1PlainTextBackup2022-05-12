@@ -8089,3 +8089,46 @@ https://febri.jp/febri_talk/kyogoku_takahik ...</blockquote>
 
 快乐动画，不行；痛苦动画，行。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8268#       发表于 2022-10-14 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911639&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-14 22:04</a>
+
+共情是心理投射，要找角色和观众的共同点的
+
+要是通过第三人来一句台词就能找到共同点早世界和平了 ...</blockquote>
+我说的是香音和说服对象的共情，我的理解是：他们认为香音之前受到过挫折，就把这当做香音“理解他人”的万用理由。
+但实际效操作下来过于刻意，观众是无法理解共情的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 8269#       发表于 2022-10-14 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911356&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-10-14 21:42:57</a>
+这个有人翻过吗</blockquote>其实也差不多，仔细想想除了没怎么披露过过去的唐可可，其他人基本少不了向香音(香音是向可可，千是向恋恋)叭叭我过去/现在怎么怎么不顺(唱不出声啊，校园霸凌啊，怀才不遇啊，家里快破产了啊，总是被甩在后面啊，干啥啥不行啊……)，然后一被嘴炮，我又觉得我行了，而且这回真行了。
+细究起来好像没有哪个角色是特别明快的。一期前三集的香音确实没有偏离京极的话太远，但是后来就越来越脱离现实了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 8270#       发表于 2022-10-14 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911805&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-14 22:15:10</a>
+其实也差不多，仔细想想除了没怎么披露过过去的唐可可，其他人基本少不了向香音(香音是向可可，千是向恋恋) ...</blockquote>香音能次次共情别人大概也是默认“香音是受过挫折的孩子”，所以——别的角色：“我好受挫。”香音：“咱俩一样。”——这种逻辑
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nufawneafg  
+##### 8271#       发表于 2022-10-14 22:20
+
+感觉就是京极想青春伤痛一点，花田就一直想胡逼娱乐一点，再加上带货加人铁任务，就五马分尸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

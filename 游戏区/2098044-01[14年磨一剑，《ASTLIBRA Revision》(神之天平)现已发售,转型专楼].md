@@ -1238,3 +1238,32 @@ https://w.atwiki.jp/astlibra/sp/list
 
 然后按住攻击键再反复按十字键上下就变成虎牙连斩了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 122#       发表于 2022-10-14 22:14
+
+问下..这游戏键鼠操作如何..能玩吗
+
+*****
+
+####  五块  
+##### 123#       发表于 2022-10-14 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911789&amp;ptid=2098044" target="_blank">alucardcz 发表于 2022-10-14 22:14</a>
+
+问下..这游戏键鼠操作如何..能玩吗</blockquote>
+键盘能玩，甚至比手柄更灵活。
+
+*****
+
+####  alucardcz  
+##### 124#       发表于 2022-10-14 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911809&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-14 22:15</a>
+
+键盘能玩，甚至比手柄更灵活。</blockquote>
+是全键盘操作还是 鼠标攻击之类的?
+
