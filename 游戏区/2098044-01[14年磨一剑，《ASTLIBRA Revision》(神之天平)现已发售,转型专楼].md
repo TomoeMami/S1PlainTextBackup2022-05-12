@@ -637,3 +637,26 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 没太搞懂战斗系统，一直都是拉开距离在打，被刚学到凭依时的两个大史莱姆爆打。 ...</blockquote>
 核心是打break和保持连击以享受倍率加成，然后就是规避攻击选择面还是比较多的，防御，后跳(这个需要解锁)，凭依的无敌时间，熟练掌握后基本就是站撸
 
+
+
+*****
+
+####  五块  
+##### 67#       发表于 2022-10-14 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900169&amp;ptid=2098044" target="_blank">LeiaR 发表于 2022-10-14 08:48</a>
+
+没太搞懂战斗系统，一直都是拉开距离在打，被刚学到凭依时的两个大史莱姆爆打。 ...</blockquote>
+砍几刀下拉防御再砍几刀气满了扔凭依技，如果开了时停至少我打到第二章还是没什么难度的……今天回去关了时停再打打。
+
+但这boss血是真厚，第一章boss一万血我一个雷枪才戳200，传说武器一刀才十几点伤害，打木桩打了差不多有近十分钟。
+
+*****
+
+####  蓝雉  
+##### 68#         楼主| 发表于 2022-10-14 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900484&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-14 09:17</a>
+砍几刀下拉防御再砍几刀气满了扔凭依技，如果开了时停至少我打到第二章还是没什么难度的……今天回去关了 ...</blockquote>
+昨天发现身体不破防打上去是0<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -814,3 +814,25 @@ RPG里都有本土（韩国）的心头好，但不约而同会提到FF7。
 
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  水千秋  
+##### 79#       发表于 2022-10-14 09:16
+
+昨晚想买，但看了一片骂声= =怎么回事 翻车了么
+
+*****
+
+####  mandora  
+##### 80#       发表于 2022-10-14 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57899933&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-14 08:22</a>
+你认真的么？
+
+环形战争虽然我也有在玩，但还是要说句烂。</blockquote>
+演出 美术什么的吧 环形感觉好点
+
+这个我看直播对话时候全程僵尸脸面瘫 还有使用群体技能还是啥的那单人进战斗场景尬演然后一群人在大地图冒数字就感觉挺雷的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

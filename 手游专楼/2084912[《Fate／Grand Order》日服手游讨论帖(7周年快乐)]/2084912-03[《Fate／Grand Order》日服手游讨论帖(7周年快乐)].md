@@ -1239,3 +1239,17 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 借楼问下ios有梯子自己注册了日区id，直接在tb买礼品卡充值就可以买石头了吗
 
+
+
+*****
+
+####  UNISONIA  
+##### 3103#       发表于 2022-10-14 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900256&amp;ptid=2084912" target="_blank">9252314024 发表于 2022-10-14 08:55</a>
+
+借楼问下ios有梯子自己注册了日区id，直接在tb买礼品卡充值就可以买石头了吗 ...</blockquote>
+新的日区iTunes号可能会出现一些奇奇怪怪的问题，万一锁了等个几天自己解锁，等到账户总消费额上去了应该就好了
+
+另外建议不要在苹果账号下随意多次切换IP，轻则马上锁号，重了被封也是有可能的
+
