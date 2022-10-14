@@ -7524,3 +7524,22 @@ ps：saku好像和kino同年？还是kino大一点？
 saku 的pro一直我排第一</blockquote>
 即使不提态度，只凭直播表现她也是我认为nb全部人里面最好的
 
+
+
+*****
+
+####  天青月白  
+##### 2304#       发表于 2022-10-14 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57907765&amp;ptid=1926094" target="_blank">awy47 发表于 2022-10-14 17:36</a>
+所以saku现在就不在和乐元素&amp; ...</blockquote>
+日乐倒闭了，这个没啥可说的。她们本来就是从声优养成学校还是啥的里面招来的，不会因为这就回国。
+
+*****
+
+####  天青月白  
+##### 2305#       发表于 2022-10-14 18:07
+
+<img src="https://p.sda1.dev/7/885241215e4049f317e4f5f9c548e918/CMP_20221014180644888.jpg" referrerpolicy="no-referrer">
+这又是什么活，出道回就开始整活是吧。
+

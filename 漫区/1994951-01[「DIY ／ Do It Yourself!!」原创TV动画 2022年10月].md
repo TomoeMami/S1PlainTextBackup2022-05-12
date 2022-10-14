@@ -1846,3 +1846,53 @@ ai自动化党一路走好笑死
 自行车挺居家的呀，日本的禧玛诺还是变速器龙头。道布森也不肥宅呀，要说美式DIY人家也可以算是典型代表了 ...</blockquote>
 就是说比较本源还没发散的diy。你跟老美说diy，第一反应是就是家里的桌椅板凳，修墙通下水道这些活计。总之就是不花钱找人自己整。这词再发散之前没那么多精神寓意在里面。挺土的一词。有点穷逼舍不得请人的意思在里面<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 155#       发表于 2022-10-14 18:10
+
+|||◤ キャラクター設定公開|
+|　　 &amp;#x1F528; #せるふ ⚙️　◢|||
+
+制服全身・表情設定を公開✨
+
+&amp;#x1F4F9;キャラクターPVｰせるふｰ(cv #稲垣好)
+[https://youtu.be/Jc3XkNPJpPg](https://youtu.be/Jc3XkNPJpPg)
+
+&amp;#x1F4FA;TVアニメ好評放送･配信中!!
+[https://diy-anime.com/onair/](https://diy-anime.com/onair/)
+
+&amp;#x1F4BF;CD･BD予約受付中!!
+[https://diy-anime.com/bd-cd/](https://diy-anime.com/bd-cd/)
+<img src="https://p.sda1.dev/7/7a687d5fc06d13259b059d4f93769090/diy_anime-1580830773245927425-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/1fd0b18c67727402e59a88e2f45abe9d/diy_anime-1580830773245927425-img2.jpg" referrerpolicy="no-referrer">
+
+|||◤ キャラクター設定公開|
+|　　 &amp;#x1F528; #ぷりん ⚙️　◢|||
+
+制服全身・表情設定を公開✨
+
+&amp;#x1F4F9;キャラクターPVｰぷりんｰ(cv #市ノ瀬加那)
+[https://youtu.be/Pfv6t91J67w](https://youtu.be/Pfv6t91J67w)
+
+&amp;#x1F4FA;TVアニメ好評放送･配信中!!
+[https://diy-anime.com/onair/](https://diy-anime.com/onair/)
+
+&amp;#x1F4BF;CD･BD予約受付中!!
+[https://diy-anime.com/bd-cd/](https://diy-anime.com/bd-cd/)
+<img src="https://p.sda1.dev/7/2c587527d836bf94105932c0f1848e20/diy_anime-1580838319763628034-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/6b95046f59ffcb0f5fcd712e555aa751/diy_anime-1580838319763628034-img2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  千恋万花  
+##### 156#       发表于 2022-10-14 18:11
+
+秋アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第1話放送後インタビュー：せるふ役 稲垣好さん&amp;#xD7;ぷりん役 市ノ瀬加那さん｜1話目で意気投合！ 2人の仲良し具合はアニメからも感じられるかも？
+[https://www.animatetimes.com/news/details.php?id=1665028048](https://www.animatetimes.com/news/details.php?id=1665028048)
+
+秋アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第2話放送後インタビュー：せるふ役 稲垣好さん&amp;#xD7;ぷりん役 市ノ瀬加那さん｜根底に“楽しい”があるのが大事。二人がいつも考えていることとは？
+[https://www.animatetimes.com/news/details.php?id=1665622767](https://www.animatetimes.com/news/details.php?id=1665622767)
+
