@@ -973,3 +973,27 @@ STEAM目前68%的好评率。
 
 我也好奇烧鸡的问题，看pv还有截图都没怎么看到女人，感觉不太行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bwsusaga  
+##### 94#         楼主| 发表于 2022-10-14 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904249&amp;ptid=2067291" target="_blank">jf8350143 发表于 2022-10-14 13:38</a>
+
+主角是一点也不讨喜，不知道为啥不让玩家自己捏人和捏士兵</blockquote>
+主角拿了刘邦的剧本，
+
+结果是个演义皇叔的性子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bwsusaga  
+##### 95#         楼主| 发表于 2022-10-14 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57906586&amp;ptid=2067291" target="_blank">diectt 发表于 2022-10-14 16:20</a>
+
+我也好奇烧鸡的问题，看pv还有截图都没怎么看到女人，感觉不太行</blockquote>
+妹子都挺美的，但确实不是传统烧鸡
+
