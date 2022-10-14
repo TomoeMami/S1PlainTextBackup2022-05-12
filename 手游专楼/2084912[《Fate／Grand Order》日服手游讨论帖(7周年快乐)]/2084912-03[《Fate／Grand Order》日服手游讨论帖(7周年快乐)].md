@@ -1273,3 +1273,12 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 阿维斯布隆你也被什么东西夺舍了吗233
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3106#       发表于 2022-10-14 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">神TM这呼延灼在商店里还会和水阿比一样唱歌的
+

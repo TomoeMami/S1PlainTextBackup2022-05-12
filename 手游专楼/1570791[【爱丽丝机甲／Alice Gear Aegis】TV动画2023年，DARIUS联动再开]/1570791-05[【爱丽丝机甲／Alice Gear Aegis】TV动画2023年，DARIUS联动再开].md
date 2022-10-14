@@ -14275,3 +14275,12 @@ FA才出了1/5多一点还不急，倒是AN明年就要做完了，到时候新�
 
 那个专精盘子还有个升级技能的功能也没开放
 
+
+
+*****
+
+####  希望之花  
+##### 7391#       发表于 2022-10-14 18:58
+
+直美up的前一天因为心情好把券都抽掉了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
