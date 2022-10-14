@@ -919,3 +919,33 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Sannapolis  
+##### 95#       发表于 2022-10-14 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904318&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-14 13:44</a>
+
+武器熟练度是看使用次数还是杀敌数？木棍练的好慢
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 S1Next-鹅 ...</blockquote>
+应该是杀敌次数（大概是杀怪时除了给人物也会给武器装备经验值），我在自家后院打岩打半天没见涨
+
+另外木棍的熟练度和同时期获得的其他武器比是很难升的，可能是跟金庸群侠传的野球拳差不多定位的东西
+
+不过说难升也是相对的，我第二章剧情打到后半就差不多升到80%左右了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jy000129| + 1||
+
+查看全部评分
+

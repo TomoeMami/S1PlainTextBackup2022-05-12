@@ -5933,3 +5933,44 @@ Scofield和StingeR就是克里斯的脑控人好伐，克里斯发病这两陪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我填的entity冠军
 
+
+
+*****
+
+####  walfeds  
+##### 650#       发表于 2022-10-14 13:53
+
+如果冠军不是og我希望是entity
+
+lets go creepwave<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  救死扶伤魔力瞎  
+##### 651#       发表于 2022-10-14 13:55
+
+就前几天的表现看来，能选兽二三摇摆的队伍总能占便宜，正赛可能bp数登顶。
+
+—— 来自 OPPO PGCM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 652#       发表于 2022-10-14 13:56
+
+相信纯真，期待决赛画Z
+
+*****
+
+####  没钱买手办  
+##### 653#       发表于 2022-10-14 13:57
+
+感觉马西是ban第一，畜或者影魔是pick第一了
+
+*****
+
+####  nightmare902015  
+##### 654#       发表于 2022-10-14 13:58
+
+兽的强度真是难顶。全方位削弱了一大圈进cw，单单是一个a帐就又抬起来了。
+

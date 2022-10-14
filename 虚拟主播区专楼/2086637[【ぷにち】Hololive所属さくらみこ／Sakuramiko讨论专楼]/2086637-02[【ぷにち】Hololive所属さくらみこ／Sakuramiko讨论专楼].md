@@ -8254,3 +8254,14 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈人，运动会才宣布几天就少一人了
 
+
+
+*****
+
+####  holoan  
+##### 2291#         楼主| 发表于 2022-10-14 13:50
+
+其实只要每组各少一个人就自动平衡了
+
+就看要牺牲谁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
