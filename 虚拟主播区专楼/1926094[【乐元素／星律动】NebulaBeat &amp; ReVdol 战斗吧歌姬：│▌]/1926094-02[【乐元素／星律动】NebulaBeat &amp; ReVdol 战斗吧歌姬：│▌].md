@@ -7554,3 +7554,12 @@ saku 的pro一直我排第一</blockquote>
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  天青月白  
+##### 2307#       发表于 2022-10-14 18:41
+
+黄色头发的是kino，紫色头发的是九夏<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
