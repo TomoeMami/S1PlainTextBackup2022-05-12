@@ -7634,3 +7634,16 @@ IMG_9596(20221014-113502).JPG
 
 <img src="https://img.saraba1st.com/forum/202210/14/113410aiq584ov99414qqy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8233#       发表于 2022-10-14 11:42
+
+<blockquote>「卒业生代表、涩谷かのん」（拍手）（号泣）
+
+すみれ「よかったの？」
+
+恋「ええ。私よりかのんさんの方が适任ですから」</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

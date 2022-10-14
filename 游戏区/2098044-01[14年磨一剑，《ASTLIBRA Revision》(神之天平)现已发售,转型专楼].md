@@ -785,3 +785,32 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 六级就打完第一章了……我十级才去打的都刮，看来回去要点一些攻击了，似乎比武器提升有效？ ...</blockquote>
 我是七级打的，主要就是多用土技能打头，盾牌用商店买的基本只要站在头下面站撸就行了，爪子打不着，大招完全可以防下，格挡槽稍微走两步就能回复了
 
+
+
+*****
+
+####  布里兰特  
+##### 81#       发表于 2022-10-14 11:43
+
+顺便问下雷枪怎么拿，是晶体点出来的吗
+
+*****
+
+####  五块  
+##### 82#       发表于 2022-10-14 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57902578&amp;ptid=2098044" target="_blank">布里兰特 发表于 2022-10-14 11:40</a>
+
+给个参考，我9级，加点了20攻，武器是商店买的那款45攻长剑，面板攻击力200出头，体感是砍了五分钟左右， ...</blockquote>
+我10级，武器89攻那把传奇，面板才130，技能用的雷枪应该是不如天山，面板差的是有点大<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  五块  
+##### 83#       发表于 2022-10-14 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57902656&amp;ptid=2098044" target="_blank">布里兰特 发表于 2022-10-14 11:43</a>
+
+顺便问下雷枪怎么拿，是晶体点出来的吗</blockquote>
+成长点出来的。
+
