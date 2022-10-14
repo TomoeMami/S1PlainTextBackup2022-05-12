@@ -7692,3 +7692,23 @@ vp也是vkun<img src="https://static.saraba1st.com/image/smiley/face2017/135.png
 
 看到rng八人确诊给我吓一跳，仔细一想rngdota加起来应该没有8个人，卡卡upup
 
+
+
+*****
+
+####  情商  
+##### 832#         楼主| 发表于 2022-10-14 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910862&amp;ptid=2099454" target="_blank">柚上舍人 发表于 2022-10-14 21:09</a>
+看到rng八人确诊给我吓一跳，仔细一想rngdota加起来应该没有8个人，卡卡upup</blockquote>
+早上我看到rng4个确证，还以为泰迪又无冠了
+
+*****
+
+####  没钱买手办  
+##### 833#       发表于 2022-10-14 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥我觉得小智要赢了
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
