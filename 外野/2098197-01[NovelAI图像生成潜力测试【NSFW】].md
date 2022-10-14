@@ -3491,3 +3491,28 @@ text to img有办法减少随机率吗，我感觉roll出来的图和你的相�
 text to img有办法减少随机率吗，我感觉roll出来的图和你的相比，我的风格差别太大，50张都没有一张相似 ...</blockquote>
 你用的是啥ai，我用的是stable diffusion webui，模型跑的novelai的泄漏版，加载了里面那个animevae.pt的
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 274#       发表于 2022-10-14 16:50
+
+那种双手比v forced smile该怎么实现<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/14/164851njh6e5lhzwe68jh5.png" referrerpolicy="no-referrer">
+
+<strong>78aa7c39158c414ab4c2ade8f3c92176.png</strong> (77.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 16:48 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/164927f9cag99e3h0rz0ha.png" referrerpolicy="no-referrer">
+
+<strong>70eacce6df484660b192e2b4ff1f4f26.png</strong> (59.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 16:49 上传
+

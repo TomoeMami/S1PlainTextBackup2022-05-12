@@ -8297,3 +8297,29 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a酱：明明是我先来的，天降的人气就这么高的么
 
+
+
+*****
+
+####  holoan  
+##### 2296#         楼主| 发表于 2022-10-14 16:43
+
+<img src="https://img.saraba1st.com/forum/202210/14/164256dppdncwpi7ip1gfz.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (106.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 16:42 上传
+
+这些个同人店都很强
+
+*****
+
+####  holoan  
+##### 2297#         楼主| 发表于 2022-10-14 16:45
+
+悲报
+
+白组濒临解散了
+
