@@ -38,3 +38,16 @@
 
 原厂胎很逆天了，湿地吉娃娃也不是很难受
 
+
+
+*****
+
+####  天神十三煞  
+##### 2488#         楼主| 发表于 2022-10-14 14:08
+
+为啥我觉得是碾压局
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+两局都是超三千分直接过了
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

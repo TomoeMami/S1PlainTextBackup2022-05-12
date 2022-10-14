@@ -949,3 +949,15 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 
 查看全部评分
 
+
+
+*****
+
+####  yla  
+##### 96#       发表于 2022-10-14 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904287&amp;ptid=2098044" target="_blank">h33 发表于 2022-10-14 13:42</a>
+
+体验很不错，就是大拇指要按废了</blockquote>
+第二章沼泽的商店里有卖铜剑，解锁自动连击
+
