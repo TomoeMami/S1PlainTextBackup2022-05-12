@@ -5525,3 +5525,73 @@ collapse这天梯胜率看傻了，9成以上<img src="https://static.saraba1st.
 
 预测选的雪碧冠军，要喜提积分咯
 
+
+
+*****
+
+####  Yugao  
+##### 611#       发表于 2022-10-14 12:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就不一样了，我贷款拳酱跨越10年夺冠
+
+*****
+
+####  nowaki  
+##### 612#       发表于 2022-10-14 12:12
+
+我怎么觉得雪碧很快就会暴毙 脑东京不开樱花模式这版本混不下去吧
+
+*****
+
+####  星野航  
+##### 613#       发表于 2022-10-14 12:12
+
+我就不一样了，我支持超哥处长鳖鳖争冠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 614#       发表于 2022-10-14 12:14
+
+我想看超哥卡卡再次夺得亚军
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 615#       发表于 2022-10-14 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57903093&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-14 12:12</a>
+我怎么觉得雪碧很快就会暴毙 脑东京不开樱花模式这版本混不下去吧</blockquote>
+32345<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">躺好脑东京
+东京只要到淘汰赛就醒过来了
+
+*****
+
+####  百世诸侯  
+##### 616#       发表于 2022-10-14 12:16
+
+我就不一样了，我支持my boy rtz圆梦
+
+*****
+
+####  syndrome2032  
+##### 617#       发表于 2022-10-14 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57903097&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-14 12:12</a>
+我就不一样了，我支持超哥处长鳖鳖争冠</blockquote>
+鳖鳖?
+
+*****
+
+####  反方向的波  
+##### 618#       发表于 2022-10-14 12:21
+
+支持淳真在决赛暴打对手后在地图上画出z字，fbi突袭v蛇总部逮捕纽维尔dota2大结局
+
+*****
+
+####  Keynes  
+##### 619#       发表于 2022-10-14 12:21
+
+|支持焦阳卡猴夺冠┗|｀O′|┛ 嗷~~|
+

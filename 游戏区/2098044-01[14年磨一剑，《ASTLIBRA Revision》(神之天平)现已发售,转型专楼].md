@@ -855,3 +855,14 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 
 昨天玩了下感觉不错就入手了。这游戏需要看攻略吗？很多老游戏不看攻略会错过很多内容来自: iPhone客户端
 
+
+
+*****
+
+####  Sannapolis  
+##### 89#       发表于 2022-10-14 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57902869&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-14 11:56</a>
+体验版忘记怎么玩了就重开了个新档，发现正式版天赋自由加属性，体验版是点星盘，两个之间有什么区别吗 ...</blockquote>
+星盘在正式版有保留，在选项菜单的成长里
+

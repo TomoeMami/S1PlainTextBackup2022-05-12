@@ -1538,3 +1538,16 @@ Muv-Luv本传的时间线类似这么个关系
 
 都是为了人类唯一胜利结局的必要牺牲<img src="https://static.saraba1st.com/image/smiley/carton2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KOPKOM  
+##### 1915#         楼主| 发表于 2022-10-14 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57901086&amp;ptid=1860817" target="_blank">6030sylar 发表于 2022-10-14 10:03</a>
+白银武这唐突乱叫实在过于弱智
+
+—— 来自 Realme RMX1851, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+本来潜意识就有PTSD，还被强行打了兴奋剂，没办法嘛
+
