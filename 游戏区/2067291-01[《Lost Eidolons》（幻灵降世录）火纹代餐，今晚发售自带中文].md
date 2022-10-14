@@ -744,3 +744,19 @@ RPG里都有本土（韩国）的心头好，但不约而同会提到FF7。
 感觉还不如国产手游环形战争</blockquote>
 那游戏氪金有毒，快跑<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bwsusaga  
+##### 73#         楼主| 发表于 2022-10-14 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57899748&amp;ptid=2067291" target="_blank">mandora 发表于 2022-10-14 07:55</a>
+
+感觉还不如国产手游环形战争</blockquote>
+你认真的么？
+
+环形战争虽然我也有在玩，但还是要说句烂。
+
+也就是没新战棋可玩了才去玩它。
+

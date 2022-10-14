@@ -1118,3 +1118,19 @@
 一期封神</blockquote>
 这集我竟然看过...
 
+
+
+*****
+
+####  3Psm  
+##### 124#       发表于 2022-10-14 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57887390&amp;ptid=2098925" target="_blank">憂鬱臺灣烏龜 发表于 2022-10-13 11:34</a>
+
+没有吧，他的视频有印度的，有巴基斯坦的，也有孟加拉国的，都是同样对待。 ...</blockquote>
+于细微处听烟雨
+
+除了印度的，最低也是个客观
+
+印度的就充满了欢乐
+
