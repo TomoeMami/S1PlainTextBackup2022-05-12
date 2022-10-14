@@ -26,3 +26,15 @@
 
 想不死第七关选不把王子交出去可以极大降低难度
 
+
+
+*****
+
+####  Dr.Web  
+##### 1333#       发表于 2022-10-14 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57409468&amp;ptid=2051152" target="_blank">fatbigbright 发表于 2022-9-9 13:39</a>
+
+三周目开启，作为SLG小白，我选的是第二档简单难度。推了霸王线和神教线，三周目打算推女主线，最后再推真 ...</blockquote>
+别这样, 三角是不错, 但不至于呀, 有时间玩点儿高水平的呀. 对了马上有皇骑了, 看看1995年的游戏是什么水平吧,
+

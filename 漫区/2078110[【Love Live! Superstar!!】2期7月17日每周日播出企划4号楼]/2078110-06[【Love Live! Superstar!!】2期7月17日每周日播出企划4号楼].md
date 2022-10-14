@@ -8241,3 +8241,15 @@ stm突然提拔，清宫戏看多了<img src="https://static.saraba1st.com/image
 
 香音S1E3后基本是就靠一张嘴，收进团后就基本不管了，这点堇、夏美最明显，跟收集成就似的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8281#       发表于 2022-10-14 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57912692&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-14 23:28:41</a></blockquote>“行动”是一方面吧，我还是觉得这俩人的“共情”不是一回事。一个是站在他人的角度感受到了他人的感情，一个是站在自己的角度俯视他人的感受，就像楼上说的“我的痛苦在你之上”那种感觉，夏美搁那破防时香音看她那个表情就差来句“就这？”了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+虽然他们想塑造的香音应该是前者，结果成了这个亚子<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

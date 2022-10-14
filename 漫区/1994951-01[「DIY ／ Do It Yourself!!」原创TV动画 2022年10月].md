@@ -1906,3 +1906,12 @@ ai自动化党一路走好笑死
 主角这个衣服穿的，想逼死强迫症啊！
 求你了，衣服要么全拉出来要么全塞进裙子里去好吗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Артём  
+##### 158#       发表于 2022-10-14 23:48
+
+所以主角团的名字都在捏他什么东西是吗，一个diy本体，一个3d打印。
+

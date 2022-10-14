@@ -8366,3 +8366,12 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 多少年没看过freechat了
 
+
+
+*****
+
+####  rs5621  
+##### 2301#       发表于 2022-10-14 23:44
+
+今天一下缺席2个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">,这可怎么补啊
+
