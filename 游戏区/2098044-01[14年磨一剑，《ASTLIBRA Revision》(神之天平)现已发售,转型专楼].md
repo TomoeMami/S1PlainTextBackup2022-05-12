@@ -823,3 +823,35 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 
 体验版忘记怎么玩了就重开了个新档，发现正式版天赋自由加属性，体验版是点星盘，两个之间有什么区别吗
 
+
+
+*****
+
+####  soranoguiji  
+##### 85#       发表于 2022-10-14 12:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不亏是freegame里评分前五的游戏，很好玩，我记得好像还有个女主角的外传吧，也端上来吧
+
+*****
+
+####  onlv星骸  
+##### 86#       发表于 2022-10-14 12:05
+
+出了一个金宝箱结果和门重叠了 按互动直接进门给刷没了。 又出了一个银宝箱结果还没捡就被怪砍死了 。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蓝雉  
+##### 87#         楼主| 发表于 2022-10-14 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57902958&amp;ptid=2098044" target="_blank">soranoguiji 发表于 2022-10-14 12:02</a>
+不亏是freegame里评分前五的游戏，很好玩，我记得好像还有个女主角的外传吧，也端上来吧 ...</blockquote>
+做那个外传的起因据说是男主面部用的免费素材版权方不让用了，作者觉得如果不用这张脸不行于是心态炸了停手了好几年，几年后突然就淡然了于是又开始做了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北冥有鱼  
+##### 88#       发表于 2022-10-14 12:08
+
+昨天玩了下感觉不错就入手了。这游戏需要看攻略吗？很多老游戏不看攻略会错过很多内容来自: iPhone客户端
+
