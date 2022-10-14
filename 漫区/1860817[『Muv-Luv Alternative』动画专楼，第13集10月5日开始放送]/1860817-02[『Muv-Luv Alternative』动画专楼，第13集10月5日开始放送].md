@@ -1474,3 +1474,17 @@ Muv-Luv本传的时间线类似这么个关系
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  oskneo  
+##### 1910#       发表于 2022-10-14 07:55
+
+ 本帖最后由 oskneo 于 2022-10-14 07:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57898876&amp;ptid=1860817" target="_blank">CharlieZ- 发表于 2022-10-14 01:18</a>
+游戏是多周目？意思是可以死亡回溯吗，那老师不是能救活？</blockquote>
+大家可能忘了，男主这周目的失败不止这点，125政变死的所有人本来这时间点都是不用死的，全都是男主这周目改变世界导致的死亡。玩惯loop系世界游戏的看到这部能loop一开始对本轮的死亡总有一种放心感，觉得之后应该能loop来拯救。
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

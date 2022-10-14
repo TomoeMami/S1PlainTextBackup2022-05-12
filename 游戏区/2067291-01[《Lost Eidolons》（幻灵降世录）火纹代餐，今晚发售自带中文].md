@@ -723,3 +723,12 @@ RPG里都有本土（韩国）的心头好，但不约而同会提到FF7。
 
 没有大地图战斗演出，连简单的攻击动作都没，关了战斗动画击败敌人时，敌人直接消失，连伤害数值都没。
 
+
+
+*****
+
+####  mandora  
+##### 71#       发表于 2022-10-14 07:55
+
+感觉还不如国产手游环形战争<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
