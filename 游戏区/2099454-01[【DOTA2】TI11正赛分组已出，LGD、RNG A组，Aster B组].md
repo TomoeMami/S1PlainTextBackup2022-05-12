@@ -7570,3 +7570,14 @@ vrchat开淫趴是吧
 
 ——写在小智受难前。
 
+
+
+*****
+
+####  一品堂官  
+##### 821#       发表于 2022-10-14 20:15
+
+不想看发癫直接塞抹布不就好了，管人痴又不会发红包口令。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
