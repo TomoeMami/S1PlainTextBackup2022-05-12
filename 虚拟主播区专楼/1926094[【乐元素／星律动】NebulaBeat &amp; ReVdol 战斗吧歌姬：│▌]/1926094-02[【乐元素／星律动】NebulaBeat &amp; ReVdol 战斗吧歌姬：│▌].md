@@ -7431,3 +7431,14 @@ syl，算起来鸭鸭其实也没比九夏小多少，看魂号九夏估计是21
 
 虽然厂子看人的眼光很准，但是运气是e级别
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2296#         楼主| 发表于 2022-10-14 15:48
+
+saku 的pro一直我排第一
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h74v73lkg0j20q51hc425.jpg" referrerpolicy="no-referrer">
+

@@ -3436,3 +3436,14 @@ raiden_shogun，雷电将军，然后你再输些相关特征，比如hair flowe
 
 而你这两张造型画风打光都高度一致，只有姿势不同，所以我才想问你是怎么保持相同画风下roll不同姿势
 
+
+
+*****
+
+####  zero33333  
+##### 270#       发表于 2022-10-14 15:46
+
+mark，神了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
