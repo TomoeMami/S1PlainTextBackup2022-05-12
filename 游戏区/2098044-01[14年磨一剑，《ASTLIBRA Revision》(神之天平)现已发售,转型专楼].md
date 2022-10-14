@@ -1109,3 +1109,16 @@ https://w.atwiki.jp/astlibra/sp/list
 
 哥布林的紫色魔法阵连击怎么破？只能站中间高台2段跳？
 
+
+
+*****
+
+####  pf67  
+##### 109#       发表于 2022-10-14 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909236&amp;ptid=2098044" target="_blank">白軍浪 发表于 2022-10-14 19:22</a>
+哥布林的紫色魔法阵连击怎么破？只能站中间高台2段跳？</blockquote>
+防御啊
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

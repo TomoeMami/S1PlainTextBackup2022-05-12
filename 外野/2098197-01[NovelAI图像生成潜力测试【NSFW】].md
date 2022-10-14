@@ -3592,3 +3592,14 @@ welcum<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" refe
 这年头色图都不用传了，给关键词就行……</blockquote>
 新型加密方式，我估计很快会开发出二维码分享prompt的功能
 
+
+
+*****
+
+####  杉田悠一  
+##### 281#       发表于 2022-10-14 20:26
+
+卧槽……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
