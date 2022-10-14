@@ -997,3 +997,15 @@ STEAM目前68%的好评率。
 我也好奇烧鸡的问题，看pv还有截图都没怎么看到女人，感觉不太行</blockquote>
 妹子都挺美的，但确实不是传统烧鸡
 
+
+
+*****
+
+####  nage560  
+##### 96#       发表于 2022-10-14 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57906540&amp;ptid=2067291" target="_blank">哆哆鸡 发表于 2022-10-14 16:16</a>
+
+这游戏有烧鸡吗，看楼里截图穿衣都很土啊</blockquote>
+法师妹子的衣服不算土了，毕竟中世纪。人设我觉得还行，对我口味。
+

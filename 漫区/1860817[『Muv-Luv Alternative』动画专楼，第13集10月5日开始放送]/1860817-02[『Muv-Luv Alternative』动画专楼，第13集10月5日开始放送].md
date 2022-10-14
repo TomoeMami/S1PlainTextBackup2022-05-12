@@ -1631,3 +1631,27 @@ Muv-Luv本传的时间线类似这么个关系
 
 —— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  创始’’’天翔  
+##### 1923#       发表于 2022-10-14 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57907793&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-14 17:38</a>
+
+考虑到横滨基地就是为了alt计划设立，独立宿舍算是较好的待遇，感觉没到关系户级别。这帮人的训练小队本 ...</blockquote>
+我记得好像美智留她们也是混住来着
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1924#       发表于 2022-10-14 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57907657&amp;ptid=1860817" target="_blank">cauchua 发表于 2022-10-14 17:29</a>
+
+顺便借楼问一下，STEAM上的那几个外传有民间汉化吗，或者说官方有没有画饼说会出官方汉化 ...</blockquote>
+单纯就剧情翻译视频的话，b站上有
+
+但是游戏汉化目前只有官中的本传部分
+
