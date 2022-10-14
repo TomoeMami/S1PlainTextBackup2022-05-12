@@ -5613,3 +5613,77 @@ collapse这天梯胜率看傻了，9成以上<img src="https://static.saraba1st.
 
 说是管人痴其实都是狗萨特
 
+
+
+*****
+
+####  百世诸侯  
+##### 622#       发表于 2022-10-14 12:36
+
+<img src="https://img.saraba1st.com/forum/202210/14/123559dfkccrf6rx2kme9q.jpg" referrerpolicy="no-referrer">
+
+<strong>8xQmy2o-f34eZcT1kShs-12h.jpg</strong> (141.42 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-14 12:35 上传
+
+哦牛批，还有这种东西的
+
+*****
+
+####  walfeds  
+##### 623#       发表于 2022-10-14 12:36
+
+<img src="https://img.saraba1st.com/forum/202210/14/123451hsutpl0suba0lm30.jpg" referrerpolicy="no-referrer">
+
+<strong>Fe_W2c2XkAAkWx9.jpg</strong> (209.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 12:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/123450etuedief6v8enq8d.jpg" referrerpolicy="no-referrer">
+
+<strong>Fe_XqqxXwAA8OhF.jpg</strong> (189.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 12:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/123450l1begbtwzl1zl394.jpg" referrerpolicy="no-referrer">
+
+<strong>Fe_XtboWAAEjhv7.jpg</strong> (136.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 12:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/123450ofzesvyr5qeeu5g1.jpg" referrerpolicy="no-referrer">
+
+<strong>Fe_b_D2XoAEYae9.jpg</strong> (230.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 12:34 上传
+
+昨天的noxville作业图片版
+
+<img src="https://img.saraba1st.com/forum/202210/14/123449b8kjdhhoe8ocpjgj.png" referrerpolicy="no-referrer">
+
+<strong>Fe_8-fEXEAAZx8r.png</strong> (43.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 12:34 上传
+
+顺便各队的评分排行，小电锤可以震怒了
+
+*****
+
+####  北条早苗  
+##### 624#       发表于 2022-10-14 12:40
+
+有mi神还能最少死亡，铁op
+

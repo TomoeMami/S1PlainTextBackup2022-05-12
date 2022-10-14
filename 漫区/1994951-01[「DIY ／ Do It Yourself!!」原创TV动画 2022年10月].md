@@ -1805,3 +1805,12 @@ ED做吉他想起这个了
 这个diy明显是美式diy。围着居家用品转。不是肥宅diy</blockquote>
 自行车挺居家的呀，日本的禧玛诺还是变速器龙头。道布森也不肥宅呀，要说美式DIY人家也可以算是典型代表了[https://www.bilibili.com/video/BV12E411o7ys](https://www.bilibili.com/video/BV12E411o7ys)。DIY PC也是广为人知的概念了。
 
+
+
+*****
+
+####  baiducaonima  
+##### 151#       发表于 2022-10-14 12:40
+
+好看，看哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
