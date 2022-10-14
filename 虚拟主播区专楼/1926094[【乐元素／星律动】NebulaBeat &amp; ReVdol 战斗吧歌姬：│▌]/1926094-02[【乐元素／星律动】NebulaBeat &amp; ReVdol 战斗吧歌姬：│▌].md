@@ -7543,3 +7543,14 @@ saku 的pro一直我排第一</blockquote>
 <img src="https://p.sda1.dev/7/885241215e4049f317e4f5f9c548e918/CMP_20221014180644888.jpg" referrerpolicy="no-referrer">
 这又是什么活，出道回就开始整活是吧。
 
+
+
+*****
+
+####  再迷  
+##### 2306#       发表于 2022-10-14 18:35
+
+我倒希望回来的人还是用原皮，或者像鸭鸭这种微调一下，都已经连公开的秘密都不算了，直接一点也挺好
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
