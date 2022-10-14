@@ -1073,3 +1073,14 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">第二章这个解谜脑洞有点大 虽然挺绝的
 
+
+
+*****
+
+####  我猫呢?  
+##### 106#       发表于 2022-10-14 17:29
+
+贴个日文wiki
+https://w.atwiki.jp/astlibra/sp/list
+如果重制版没改动的话，游戏第五章会有个影响比较大的分支剧情，建议适当看一下攻略，避免读档重打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

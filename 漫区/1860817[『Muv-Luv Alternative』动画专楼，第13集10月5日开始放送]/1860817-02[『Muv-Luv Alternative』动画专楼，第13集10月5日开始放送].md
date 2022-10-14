@@ -1569,3 +1569,37 @@ Muv-Luv本传的时间线类似这么个关系
 
 呜呜呜，小麻~~我的小麻
 
+
+
+*****
+
+####  cauchua  
+##### 1918#       发表于 2022-10-14 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57888105&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-13 12:31</a>
+
+一方面是剧情需要，楼上动画党讲得好。
+
+另一方面做到这个程度属于作者恶趣味。游戏里恶趣味有两处[f:067 ...</blockquote>
+还有一处指的是哪？AL世界观下纯夏的遭遇么
+
+*****
+
+####  再买自检星剁手  
+##### 1919#       发表于 2022-10-14 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57907545&amp;ptid=1860817" target="_blank">cauchua 发表于 2022-10-14 17:22</a>
+还有一处指的是哪？AL世界观下纯夏的遭遇么</blockquote>
+对头
+
+据说这俩部分的评价较差，因为一般人被喂了一口屎，特殊xp爱好者觉得不过瘾，属于两头不讨好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cauchua  
+##### 1920#       发表于 2022-10-14 17:29
+
+顺便借楼问一下，STEAM上的那几个外传有民间汉化吗，或者说官方有没有画饼说会出官方汉化
+
