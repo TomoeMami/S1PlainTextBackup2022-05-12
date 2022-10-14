@@ -5797,3 +5797,59 @@ rng这表情里的动物叫啥，狂小熊吗。
 
 火星救援一下，大畜跳锤接SHIFT突+S竟然开不出BKB，实在太强了。
 
+
+
+*****
+
+####  Keynes  
+##### 637#       发表于 2022-10-14 13:11
+
+管人吃不是人均两三个的
+
+*****
+
+####  12481632  
+##### 638#       发表于 2022-10-14 13:13
+
+虽然但是，我选择买份奶绿
+
+*****
+
+####  walfeds  
+##### 639#       发表于 2022-10-14 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57903817&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-14 13:01</a>
+
+这分析师去年准么
+
+看了一下今年也整出来了，想看看代码具体怎么设置的参数
+
+ ...</blockquote>
+[https://noxville.github.io/ti10-probabilities/](https://noxville.github.io/ti10-probabilities/)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">重温了下曲线图，感觉不太行
+
+*****
+
+####  星野航  
+##### 640#       发表于 2022-10-14 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57903976&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-14 14:13</a>
+
+https://noxville.github.io/ti10-probabilities/
+
+重温了下曲线图，感觉不太行</blockquote>
+看了一下他没有基础数据源，战队的战力是用glicko2算法整的，而且也是datdota这个网站给的一个接口，他直接用，接了个蒙特卡洛跑了下
+
+去年的话，排除雪碧这个黑马的话，整体战力趋势差不多，唯一差距可能是把eg搞得很高，看低og倒是很正常
+
+然后我去看了下，这xg在这个战力榜上高居前八<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，感觉今年也是大方向差不多，具体就难说了
+
+*****
+
+####  ArowRocher  
+##### 641#       发表于 2022-10-14 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57891088&amp;ptid=2099454" target="_blank">战狼PTSD 发表于 2022-10-13 15:53</a>
+什么司马赛程，管人痴才能同时看的了那么多吧</blockquote>
+早点适应监控室工作，晚年好当保安
+

@@ -114,3 +114,20 @@ miki的繁中服加到兑换里很久了，当时换了想回个贴来着结果�
 
 商店里能换72双马尾SSR和志保黑猫SR了，然而并没有双马尾，我也没花🌸了
 
+
+
+*****
+
+####  花开安菲路  
+##### 7022#       发表于 2022-10-14 13:14
+
+ 本帖最后由 花开安菲路 于 2022-10-14 13:17 编辑 
+
+【[motion test]CHEER UP! HEARTS UP! 望月杏奈 SHS活动服】 [https://www.bilibili.com/video/B ... 90917b118054c31d1ac](https://www.bilibili.com/video/BV1Je4y1S72Z?share_source=copy_web&amp;vd_source=ddbf30925f48090917b118054c31d1ac)
+
+杏奈可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+这是提取游戏动作代码，然后加了点物理渲染吧，游戏里有这效果就好了。
+
+去油管搜了下原作者，好像是个韩国杏奈P。
+
