@@ -947,3 +947,29 @@ STEAM目前68%的好评率。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  哆哆鸡  
+##### 91#       发表于 2022-10-14 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57903356&amp;ptid=2067291" target="_blank">nage560 发表于 2022-10-14 12:27</a>
+
+已买，就好棒子的烧鸡人设，多来点棒子单机吧。</blockquote>
+这游戏有烧鸡吗，看楼里截图穿衣都很土啊
+
+*****
+
+####  cherry__  
+##### 92#       发表于 2022-10-14 16:17
+
+有主机版吗
+
+*****
+
+####  diectt  
+##### 93#       发表于 2022-10-14 16:20
+
+我也好奇烧鸡的问题，看pv还有截图都没怎么看到女人，感觉不太行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
