@@ -6150,3 +6150,35 @@ TI11表演赛：萧瑟1VS19，给萧瑟分配的是20万血的巨大模型畜（
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  非建政专用号  
+##### 676#       发表于 2022-10-14 14:43
+
+萨尔怎么样，之前看老十一畜(dota2英雄)泥头车被d看乐了
+
+*****
+
+####  walfeds  
+##### 677#       发表于 2022-10-14 14:49
+
+<img src="https://img.saraba1st.com/forum/202210/14/144625nr6xmrx6cu49zo5h.jpg" referrerpolicy="no-referrer">
+
+<strong>Fe4b_OdagAEzaai.jpg</strong> (416.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 14:46 上传
+
+<img src="https://img.saraba1st.com/forum/202210/14/144624aii9i60ik8jkzitr.jpg" referrerpolicy="no-referrer">
+
+<strong>Fe4b_OdacAASt6o.jpg</strong> (414.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 14:46 上传
+
+23：你们的痛我懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
