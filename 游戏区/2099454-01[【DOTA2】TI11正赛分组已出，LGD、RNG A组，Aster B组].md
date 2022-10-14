@@ -5910,3 +5910,26 @@ glicko2这套算法还是挺扎实的，但基本上是基于过往战绩的一�
 
 今年还有一个一周间歇，更是增加了变化
 
+
+
+*****
+
+####  非建政专用号  
+##### 647#       发表于 2022-10-14 13:46
+
+Scofield和StingeR就是克里斯的脑控人好伐，克里斯发病这两陪着病来，克里斯病好了Scofield间歇发病
+
+*****
+
+####  非建政专用号  
+##### 648#       发表于 2022-10-14 13:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 649#       发表于 2022-10-14 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我填的entity冠军
+
