@@ -8094,3 +8094,12 @@ cndota以后怎么烂另说，nadota进货还是比cndota进货方便，主要�
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  蛭人  
+##### 876#       发表于 2022-10-15 00:18
+
+我从来都是逆风输出的啊，投降什么是投降？！
+

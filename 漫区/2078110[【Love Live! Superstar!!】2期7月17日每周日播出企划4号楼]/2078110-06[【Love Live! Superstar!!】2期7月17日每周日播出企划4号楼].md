@@ -8270,3 +8270,14 @@ stm突然提拔，清宫戏看多了<img src="https://static.saraba1st.com/image
 
 香音（主要是第二季）也有痛苦的表情，但拉人的时候一理解完总要露出“我都懂的”的笑容，但因为笑容过于魔性且说服内容本身就不怎么有逻辑（典型如芽衣和夏美，逻辑那叫一个跳跃），实际上把她和说服对象心与心的距离拉远了（有种“香音你怎么这么屑啊”的感觉）
 
+
+
+*****
+
+####  lucksolo  
+##### 8283#       发表于 2022-10-15 00:19
+
+拍突击外景的相关staff是不是也对加人操作不知情，所以气到拍完念信最后一期当做抗议就走了，导致后续再也没拍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+总之就是想说下期外景什么时候放出来<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
