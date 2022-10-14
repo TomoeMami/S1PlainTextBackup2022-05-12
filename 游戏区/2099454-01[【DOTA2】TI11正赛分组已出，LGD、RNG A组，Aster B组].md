@@ -5080,3 +5080,101 @@ cn dpc哥们才是真的不看，一帮老逼油子打比赛，东西欧那么�
 
 但rng也是虐xg进来的，至于xg的水平嘛。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yuyuagain  
+##### 561#       发表于 2022-10-14 10:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了2年nigma把我成功搞抑郁了，不过今年我转型成了ent粉丝！
+
+*****
+
+####  izayoi39  
+##### 562#       发表于 2022-10-14 10:22
+
+吴冠超的影魔就算了吧，所有影魔经典死亡画面吴冠超奉献的可不要太多。国内这三个中单里影魔最值得信任的还是ori，那是逆版本都能拿影魔赢比赛的。
+
+*****
+
+####  adretyu67  
+##### 563#       发表于 2022-10-14 10:24
+
+ 本帖最后由 adretyu67 于 2022-10-14 10:25 编辑 
+
+预选4个3:0
+
+bb暴打vp
+
+ett暴打秘密
+
+农药暴打infamous
+
+rng暴打xg
+
+xg和infamous成色不足看不出rng和hokori含金量
+
+bb能暴打vp其实是有点本事，但是十年来毛区就出了雪碧这么一个，很难想象小火箭能再次一鸣惊人。
+
+不就只剩下稳定宰猪秘密的ett了
+
+*****
+
+####  银翼的维罗西  
+##### 564#       发表于 2022-10-14 10:24
+
+我也觉得霉憋的影魔不行，霉憋影魔打到中期不知道抱大腿，喜欢自己单玩浪费强势期
+
+*****
+
+####  六娃  
+##### 565#       发表于 2022-10-14 10:25
+
+虽然larl很强能处刑gpk，但是daxak玩不了大核ti上肯定走不远的
+
+*****
+
+####  六娃  
+##### 566#       发表于 2022-10-14 10:29
+
+核中核消息，rng带flyby去新加坡就是为了陪太仓猪皇打雀魂
+
+*****
+
+####  izayoi39  
+##### 567#       发表于 2022-10-14 10:29
+
+影魔目前突围赛已经是第一轮非ban必选的了，主要线上和前期太强了很容易滚雪球直接滚死对面
+
+*****
+
+####  nowaki  
+##### 568#       发表于 2022-10-14 10:29
+
+bb的23都是vp青训，但是1号位老逼路子太妖了。
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 569#       发表于 2022-10-14 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57901387&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-14 10:24</a>
+预选4个3:0
+
+bb暴打vp
+
+ett暴打秘密</blockquote>
+超哥死灵龙是真没想到。
+说到底还是自己人了解自己人，抓着11搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 570#       发表于 2022-10-14 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57901470&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-14 10:29</a>
+
+影魔目前突围赛已经是第一轮非ban必选的了，主要线上和前期太强了很容易滚雪球直接滚死对面 ...</blockquote>
+影魔自从压炮叠伤害后我一直觉得对线很强，这版本强势感觉更多的是版本节奏不要带节奏，偏占线发育，影魔这种就厉害了
+
