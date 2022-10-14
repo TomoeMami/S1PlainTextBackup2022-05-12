@@ -5853,3 +5853,33 @@ https://noxville.github.io/ti10-probabilities/
 什么司马赛程，管人痴才能同时看的了那么多吧</blockquote>
 早点适应监控室工作，晚年好当保安
 
+
+
+*****
+
+####  walfeds  
+##### 642#       发表于 2022-10-14 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904043&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-14 13:19</a>
+
+看了一下他没有基础数据源，战队的战力是用glicko2算法整的，而且也是datdota这个网站给的一个接口，他直 ...</blockquote>
+datdota就是这位接手维护的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+去年我一个op都不敢对og有大的期待就是了，不过没撞上雪碧的话也许还能高两名
+
+只能说账面实力并不能完全反映真实表现，比如各路茶和my boy
+
+*****
+
+####  反方向的波  
+##### 643#       发表于 2022-10-14 13:29
+
+妮这抽象榜3号位上了noticed不上ta的sacred窝不是很认可
+
+*****
+
+####  walfeds  
+##### 644#       发表于 2022-10-14 13:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我寻思论抽象冠晴也不差啊
+
