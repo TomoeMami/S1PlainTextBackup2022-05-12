@@ -4460,3 +4460,53 @@ dota2怎么分在怀旧里，还是改成pc比较合适吧[@情商](https://bbs.
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  12481632  
+##### 488#       发表于 2022-10-14 08:12
+
+只给鳖鳖安排了一场茶队，还是打BC的，何意啊
+
+*****
+
+####  UnhappyTails  
+##### 489#       发表于 2022-10-14 08:15
+
+说到开始看比赛的时候
+
+我是ti6正赛开始看的<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+我以为ti7是之后五年最糟的一年，没想到ti7是之后五年最好的一年<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+眼睁睁看着cndota跌落到今天，开头的无敌爽文以后就是无休无止的虐主<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+真的难顶<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 490#       发表于 2022-10-14 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57894846&amp;ptid=2099454" target="_blank">iriyano 发表于 2022-10-13 20:09</a>
+
+退出重进一下
+
+V社真是艹尼玛了，这么多年没有一键领取也就算了了，老子领奖励也红字 ...</blockquote>
+今年有了，开箱子里面
+
+*****
+
+####  lyjssj  
+##### 491#       发表于 2022-10-14 08:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年主要比赛几乎都听阿版的，现在反而有点想去听听ob吹牛逼
+
+*****
+
+####  食粪者  
+##### 492#       发表于 2022-10-14 08:21
+
+么鳖不死，西恩就别想什么冠军了
+
