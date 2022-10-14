@@ -8295,3 +8295,19 @@ stm突然提拔，清宫戏看多了<img src="https://static.saraba1st.com/image
 https://febri.jp/febri_talk/kyogoku_takahik ...</blockquote>
 观众需要的是看到自己做点什么/向他人寻求帮助真的会有改变，而不是毫无说服力的共情……
 
+
+
+*****
+
+####  saya1892  
+##### 8285#       发表于 2022-10-15 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57912435&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-14 23:05</a>
+说实话这两期动画里观感还行的几集都和感同身受没什么关系。
+一期第2集香音跟可可讲了自己失声的事，也没安 ...</blockquote>
+其实我觉得可可比香帝好的一点就在于她「不懂」
+可可推动或者解决剧情问题的时候对手总是在哭，但可可并不总是能理解她们为什么哭，所以她选择的解决方式也不是装懂，更不会用自己的经历去压人
+虽然不知道花田在写教祖渡人的台词时心里在想什么，也不知道京极为什么一定要让涩谷观音脸上带着佛光，但对比下来可可就显得非常「真诚」
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
