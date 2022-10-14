@@ -7727,3 +7727,29 @@ vp也是vkun<img src="https://static.saraba1st.com/image/smiley/face2017/135.png
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 835#       发表于 2022-10-14 21:36
+
+忍蛙还是没有哥哥那么畜，哥哥是只要躺着不往自家篮筐暴扣就能赢，忍蛙好歹是王牌战落败，最多只能算W33的TA被OG的精灵干翻饮恨
+
+*****
+
+####  nowaki  
+##### 836#       发表于 2022-10-14 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911261&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-14 21:36</a>
+
+忍蛙还是没有哥哥那么畜，哥哥是只要躺着不往自家篮筐暴扣就能赢，忍蛙好歹是王牌战落败，最多只能算W33的T ...</blockquote>
+有一说一是被骨法和猴子打崩的
+
+*****
+
+####  你可以试试  
+##### 837#       发表于 2022-10-14 21:41
+
+每年都黑小智，每年都指望小智！不支持小智还能支持谁！难道支持华蓝道馆的小霞吗！要是没有小智真新镇连四天王都见不到！
+

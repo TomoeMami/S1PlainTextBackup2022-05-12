@@ -7619,3 +7619,32 @@ saku 的pro一直我排第一</blockquote>
 
 —— 来自 OPPO PDEM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  awy47  
+##### 2314#       发表于 2022-10-14 21:35
+
+<img src="https://img.saraba1st.com/forum/202210/14/213511qatbvamltt11ihfs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 21:35 上传
+
+虽然没啥关联，但是看到评论还是蚌埠住了
+
+*****
+
+####  喜闻乐见  
+##### 2315#         楼主| 发表于 2022-10-14 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911106&amp;ptid=1926094" target="_blank">藤宫由季 发表于 2022-10-14 21:26</a>
+
+这pv做的好用心，nb厂真的算得上有情有义了
+
+—— 来自 OPPO PDEM10, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h7557yxqx0j20g2042tbi.jpg" referrerpolicy="no-referrer">
+
