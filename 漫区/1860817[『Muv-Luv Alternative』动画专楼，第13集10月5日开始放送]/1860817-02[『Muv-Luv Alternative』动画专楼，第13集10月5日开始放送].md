@@ -1488,3 +1488,17 @@ Muv-Luv本传的时间线类似这么个关系
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  创始’’’天翔  
+##### 1911#       发表于 2022-10-14 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57893043&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-13 17:57</a>
+
+关系户的部分是飞船船票人手一张吧，留在地球不是都到一线战斗么？
+
+—— 来自 OnePlus HD1905, Android  ...</blockquote>
+关系户的部分的人人都有一间单间宿舍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，小麻这类普通卫士新兵都是直接男女混住的
+

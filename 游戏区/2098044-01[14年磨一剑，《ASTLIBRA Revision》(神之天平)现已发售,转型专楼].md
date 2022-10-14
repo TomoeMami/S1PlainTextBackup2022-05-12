@@ -608,3 +608,12 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 
 昨晚重玩第一章，出了1金1银开出护腕、武器设计图，真棒
 
+
+
+*****
+
+####  五块  
+##### 64#       发表于 2022-10-14 08:38
+
+感觉RPG成分重了点，act部分应该选极难，吃药放魔法不暂停才是真的刺激<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

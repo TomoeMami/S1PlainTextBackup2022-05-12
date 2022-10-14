@@ -5804,3 +5804,13 @@ woc 麻
 
 现在基本就是换头级别啊
 
+
+
+*****
+
+####  草牛  
+##### 12607#       发表于 2022-10-14 08:30
+
+也有不换头的
+<img src="https://p.sda1.dev/7/155e7b120c666b6aca331118e94aba0c/B4C94528CA6212C352A8DA834E002D6D1665706578184.jpg" referrerpolicy="no-referrer">
+
