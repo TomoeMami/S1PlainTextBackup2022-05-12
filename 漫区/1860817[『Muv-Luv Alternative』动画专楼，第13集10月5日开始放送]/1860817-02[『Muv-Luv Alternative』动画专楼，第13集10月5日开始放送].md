@@ -1603,3 +1603,31 @@ Muv-Luv本传的时间线类似这么个关系
 
 顺便借楼问一下，STEAM上的那几个外传有民间汉化吗，或者说官方有没有画饼说会出官方汉化
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1921#       发表于 2022-10-14 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57907657&amp;ptid=1860817" target="_blank">cauchua 发表于 2022-10-14 17:29</a>
+顺便借楼问一下，STEAM上的那几个外传有民间汉化吗，或者说官方有没有画饼说会出官方汉化 ...</blockquote>
+都~没有
+
+不会日语还可以啃英语<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  再买自检星剁手  
+##### 1922#       发表于 2022-10-14 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57900056&amp;ptid=1860817" target="_blank">创始’’’天翔 发表于 2022-10-14 08:38</a>
+关系户的部分是人人都有一间单间宿舍，小麻这类普通卫士新兵都是直接男女混住的 ...</blockquote>
+考虑到横滨基地就是为了alt计划设立，独立宿舍算是较好的待遇，感觉没到关系户级别。这帮人的训练小队本来就是为了培训进老狐狸直属部队的。
+
+现在un的剧情忘得差不多了，要是船票只有冥夜有一张，那还是冥夜的关系最硬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

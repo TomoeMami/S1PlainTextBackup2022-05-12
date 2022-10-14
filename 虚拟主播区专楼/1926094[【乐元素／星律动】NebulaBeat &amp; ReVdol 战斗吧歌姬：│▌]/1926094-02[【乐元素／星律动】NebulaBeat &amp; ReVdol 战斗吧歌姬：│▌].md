@@ -7479,3 +7479,12 @@ saku绝对pro
 
 ps：saku好像和kino同年？还是kino大一点？
 
+
+
+*****
+
+####  awy47  
+##### 2300#       发表于 2022-10-14 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">所以saku现在就不在和乐元素有啥关系了阿，人去追寻更大的舞台了
+
