@@ -3383,3 +3383,15 @@ novelai par2版本，可能是prompt问题吧
 感觉不够nsfw？</blockquote>
 警查叔叔，就是这个人！
 
+
+
+*****
+
+####  lxsw  
+##### 266#       发表于 2022-10-14 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57819947&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-9 00:36</a>
+
+有几个tag真的好色，我这个用的是masterpiece, best quality, raiden_shogun ,1girl, 1boy, t-shirt, swea ...</blockquote>
+大佬你这两张图是怎么在保留脸和衣服等特征下换不同的姿势的？我每次一换姿势prompt，人物也会跟着变了
+

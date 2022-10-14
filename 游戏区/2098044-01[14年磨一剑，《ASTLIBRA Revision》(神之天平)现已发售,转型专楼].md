@@ -975,3 +975,46 @@ op最后的群像图基本就是所有主要角色了吧,貌似没有常驻队�
 刚刚去打了下竞技场大毛毛虫，撞一下半血两 ...</blockquote>
 加点可以随时自由分配的，不是什么问题
 
+
+
+*****
+
+####  h33  
+##### 98#       发表于 2022-10-14 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904589&amp;ptid=2098044" target="_blank">yla 发表于 2022-10-14 14:05</a>
+第二章沼泽的商店里有卖铜剑，解锁自动连击</blockquote>
+没有合成所需长得像砖块一样的东西，买不了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yla  
+##### 99#       发表于 2022-10-14 15:00
+
+ 本帖最后由 yla 于 2022-10-14 15:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57905376&amp;ptid=2098044" target="_blank">h33 发表于 2022-10-14 14:59</a>
+
+没有合成所需长得像砖块一样的东西，买不了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">铜矿+熔炼工具合成铜锭。包里使用合成书，然后翻页。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| h33| + 1|草|
+
+查看全部评分
+
+*****
+
+####  dookiee  
+##### 100#       发表于 2022-10-14 15:00
+
+这游戏的市价是不是有问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">村好剑卖三千，你面包店的果酱面包也卖三千，河里吗
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
