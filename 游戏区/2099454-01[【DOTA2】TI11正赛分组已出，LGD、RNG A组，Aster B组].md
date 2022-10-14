@@ -5883,3 +5883,30 @@ datdota就是这位接手维护的<img src="https://static.saraba1st.com/image/s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我寻思论抽象冠晴也不差啊
 
+
+
+*****
+
+####  nowaki  
+##### 645#       发表于 2022-10-14 13:32
+
+xnova major上的冰龙老奶奶下限级发挥都是a厨坑的
+
+*****
+
+####  星野航  
+##### 646#       发表于 2022-10-14 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57904116&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-14 14:27</a>
+
+datdota就是这位接手维护的
+
+去年我一个op都不敢对og有大的期待就是了，不过没撞上雪碧的话也许还 ...</blockquote>
+怪不得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这可以理解为啥是这样的情况了
+
+glicko2这套算法还是挺扎实的，但基本上是基于过往战绩的一种推定，所以真打起来不好说
+
+今年还有一个一周间歇，更是增加了变化
+

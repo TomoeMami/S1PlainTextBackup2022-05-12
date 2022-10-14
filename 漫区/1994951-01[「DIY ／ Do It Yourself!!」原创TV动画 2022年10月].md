@@ -1834,3 +1834,15 @@ ED做吉他想起这个了
 
 ai自动化党一路走好笑死
 
+
+
+*****
+
+####  根正苗红  
+##### 154#       发表于 2022-10-14 13:31
+
+ 本帖最后由 根正苗红 于 2022-10-14 13:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57901128&amp;ptid=1994951" target="_blank">劳动塑造人 发表于 2022-10-14 10:05</a>
+自行车挺居家的呀，日本的禧玛诺还是变速器龙头。道布森也不肥宅呀，要说美式DIY人家也可以算是典型代表了 ...</blockquote>
+就是说比较本源还没发散的diy。你跟老美说diy，第一反应是就是家里的桌椅板凳，修墙通下水道这些活计。总之就是不花钱找人自己整。这词再发散之前没那么多精神寓意在里面。挺土的一词。有点穷逼舍不得请人的意思在里面<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
