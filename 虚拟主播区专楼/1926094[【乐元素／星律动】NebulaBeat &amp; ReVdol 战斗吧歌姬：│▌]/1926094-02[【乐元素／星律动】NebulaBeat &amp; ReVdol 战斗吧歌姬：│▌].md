@@ -7648,3 +7648,12 @@ saku 的pro一直我排第一</blockquote>
 —— 来自 OPPO PDEM10, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 <img src="http://tva1.sinaimg.cn/large/732205bcgy1h7557yxqx0j20g2042tbi.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ichthys  
+##### 2316#       发表于 2022-10-14 21:45
+
+n厂在日本的关系确实是国内独一份的，希望好好发展。
+

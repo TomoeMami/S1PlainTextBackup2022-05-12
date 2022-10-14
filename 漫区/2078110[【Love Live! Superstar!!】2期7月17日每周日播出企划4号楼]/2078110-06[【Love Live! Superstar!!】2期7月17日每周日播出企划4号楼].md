@@ -7992,3 +7992,40 @@ thumb_payton_221014.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saya1892  
+##### 8261#       发表于 2022-10-14 21:42
+
+这个有人翻过吗
+[https://febri.jp/febri_talk/kyogoku_takahiko_3/](https://febri.jp/febri_talk/kyogoku_takahiko_3/)
+
+看到拉板有人贴就翻了一下
+
+<img src="https://img.saraba1st.com/forum/202210/14/214133g9dutgdt5tftfrmg.png" referrerpolicy="no-referrer">
+
+<strong>3.png</strong> (83.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-14 21:41 上传
+
+ <blockquote>——「确立角色」有哪些要点？
+
+京极 关键在于本人动机，还有用表情动作来加入让观众能够共感的现实味。最新作《LoveLive！Superstar!!》里，主角香音是经历过挫折的孩子。《LoveLive!》是让观众打起精神的动画，所以主角大多设定为活泼明快的孩子，但我想，看着最近的女性和小孩子，她们需要的恐怕不只是光说「能行的！没事的！」，能贴近痛苦的主人公或许更有说服力吧。</blockquote>
+
+*****
+
+####  nufawneafg  
+##### 8262#       发表于 2022-10-14 21:48
+
+ 本帖最后由 nufawneafg 于 2022-10-14 21:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911356&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-10-14 21:42</a>
+这个有人翻过吗
+
+https://febri.jp/febri_talk/kyogoku_takahik ...</blockquote>
+两眼一黑，是怎么做到说的和成品近乎相反的
+让观众痛苦以使得观众理解痛苦么
+

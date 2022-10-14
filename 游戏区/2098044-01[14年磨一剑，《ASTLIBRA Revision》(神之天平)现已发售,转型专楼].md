@@ -1185,3 +1185,56 @@ https://w.atwiki.jp/astlibra/sp/list
 武器熟练度加快的嘉隆</blockquote>
 草，我还说等拿到这个技能再练树枝<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  五块  
+##### 117#       发表于 2022-10-14 21:46
+
+<blockquote>ygy52145214 发表于 2022-10-14 20:59
+洞里的红蓝球到底应该怎么放啊....来回存个档,怪又全刷了,感觉不应该玩困难,刮痧太严重了. ...</blockquote>
+蓝放到红的架子上，红的拿镇上水里洗一下。
+
+建议前期全点攻击，有效改善体验。
+
+*****
+
+####  白軍浪  
+##### 118#       发表于 2022-10-14 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910328&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-14 20:31</a>
+
+防御啊，破防了就跳
+
+—— 来自 OPPO PCLM10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+高度不够呀，我站在高台上面二段跳才躲得过，后面我正面压制莽死的
+
+*****
+
+####  A1LI  
+##### 119#       发表于 2022-10-14 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910708&amp;ptid=2098044" target="_blank">ygy52145214 发表于 2022-10-14 20:59</a>
+
+洞里的红蓝球到底应该怎么放啊....来回存个档,怪又全刷了,感觉不应该玩困难,刮痧太严重了. ...</blockquote>
+遇见第一个红球不拿，遇见第二个蓝球，拿，然后把蓝球放到红球的位置，然后带着红球出迷宫到城镇里的水里，红球就变蓝球了，然后蓝球放到boss房门口。
+
+*****
+
+####  sahhhh6x  
+##### 120#       发表于 2022-10-14 21:47
+
+打到第四章开始有点疲劳了 每个新章节都出一堆新材料 新图纸 上一章的装备直接变垃圾
+
+
+
+*****
+
+####  白軍浪  
+##### 121#       发表于 2022-10-14 21:48
+
+点自动攻击 上挑 空下
+
+然后按住攻击键再反复按十字键上下就变成虎牙连斩了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
