@@ -1511,3 +1511,18 @@ https://w.atwiki.jp/astlibra/sp/list
 如果是巢穴里，没看见哪里有路通向那个宝箱啊。 ...</blockquote>
 那个石板可以开好几条隐藏宝箱了
 
+
+
+*****
+
+####  masterkeaton  
+##### 149#       发表于 2022-10-15 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57914409&amp;ptid=2098044" target="_blank">逸一死吾亦死 发表于 2022-10-15 05:42</a>
+
+有种预感，这游戏结局十有八九会把我整玉玉</blockquote>
+没啥玉玉的，傻逼时间神的故事
+
+付下原版的通关流程，大致了解下剧情
+[https://www.bilibili.com/video/BV1YZ4y1A72M/?spm_id_from=333.788](https://www.bilibili.com/video/BV1YZ4y1A72M/?spm_id_from=333.788)
+
