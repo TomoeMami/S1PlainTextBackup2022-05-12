@@ -5984,3 +5984,565 @@ a畜它就没那个能力
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  坚定的团子党  
+##### 2282#       发表于 2022-10-15 15:12
+
+主要还是瑞文傻逼上高，给机会了
+
+*****
+
+####  qty  
+##### 2283#       发表于 2022-10-15 15:13
+
+我草，阿茶这波
+
+*****
+
+####  walfeds  
+##### 2284#       发表于 2022-10-15 15:13
+
+石头人也给机会是吧
+
+*****
+
+####  迷途lite  
+##### 2285#       发表于 2022-10-15 15:13
+
+这时间算得真的可以
+
+*****
+
+####  Litccc  
+##### 2286#       发表于 2022-10-15 15:13
+
+曾焦阳搞这么厉害干嘛
+
+*****
+
+####  迷途lite  
+##### 2287#       发表于 2022-10-15 15:14
+
+焦阳何意啊？
+
+*****
+
+####  Litccc  
+##### 2288#       发表于 2022-10-15 15:14
+
+刚说完就送了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 2289#       发表于 2022-10-15 15:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">焦阳？
+
+*****
+
+####  UnhappyTails  
+##### 2290#       发表于 2022-10-15 15:14
+
+如果lgd和tes同时被一轮游，我们能不能看到集美从此从电竞圈消失？
+
+如果可以那样的话我愿意发大额红包
+
+*****
+
+####  qty  
+##### 2291#       发表于 2022-10-15 15:14
+
+焦阳何意啊
+
+*****
+
+####  端木恋心  
+##### 2292#       发表于 2022-10-15 15:14
+
+骄阳波高是吧
+
+*****
+
+####  逃离二次元  
+##### 2293#       发表于 2022-10-15 15:14
+
+撸狗<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 2294#       发表于 2022-10-15 15:14
+
+焦阳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Keynes  
+##### 2295#       发表于 2022-10-15 15:15
+
+焦阳波高了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 2296#       发表于 2022-10-15 15:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 2297#       发表于 2022-10-15 15:15
+
+大家都1:1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 2298#       发表于 2022-10-15 15:15
+
+我焯，雪碧打的也太帅了，法跳影儿魔儿真是帅啊
+
+*****
+
+####  情商  
+##### 2299#         楼主| 发表于 2022-10-15 15:15
+
+nihgtfall这谜团是打算笑死谁啊
+
+*****
+
+####  sodah  
+##### 2300#       发表于 2022-10-15 15:16
+
+可惜还是寄了，去做核酸呢，怎么被破的两路的？
+
+*****
+
+####  TIZI  
+##### 2301#       发表于 2022-10-15 15:16
+
+这下鸭头肉也小血包了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aeons  
+##### 2302#       发表于 2022-10-15 15:16
+
+丫头肉这<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 2303#       发表于 2022-10-15 15:16
+
+A畜是真的牛批，死了两个人怎么还带线到外塔的
+
+*****
+
+####  zhrs456  
+##### 2304#       发表于 2022-10-15 15:16
+
+丫头肉经典COSPLAYA畜：A BAG OF BLOOD
+
+*****
+
+####  你可以试试  
+##### 2305#       发表于 2022-10-15 15:17
+
+恶魔血包<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 2306#       发表于 2022-10-15 15:18
+
+丫头肉好似 好似 好似
+
+*****
+
+####  吃货红毛  
+##### 2307#       发表于 2022-10-15 15:18
+
+萧瑟这什么意识。。
+
+*****
+
+####  勤练带来力量  
+##### 2308#       发表于 2022-10-15 15:18
+
+雪碧输了主舞台弹幕真的是要把我笑死<img src="https://p.sda1.dev/7/2787dcad71972c39606d30739634d2e5/-430c51b04749f378.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 2309#       发表于 2022-10-15 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">脑浆Y给不上大招，giegie可是给你们肉身探危险野区呢
+
+*****
+
+####  UnhappyTails  
+##### 2310#       发表于 2022-10-15 15:18
+
+没有打赏次数了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  xuzy0919  
+##### 2311#       发表于 2022-10-15 15:18
+
+处长死血开bkb然后暴毙的样子真的很靓仔<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  攻城匠师黑索  
+##### 2312#       发表于 2022-10-15 15:18
+
+A畜被打烂了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  天堂蜘蛛  
+##### 2313#       发表于 2022-10-15 15:18
+
+牛批牛批，几个马啊敢这么进野区
+
+95C38C41.png
+(1.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 15:18 上传
+
+<img src="https://img.saraba1st.com/forum/202210/15/151834ll33rppcfnfpn5pl.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 2314#       发表于 2022-10-15 15:19
+
+我前面这么肥<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 2315#       发表于 2022-10-15 15:19
+
+恁多1-1啊今天
+
+*****
+
+####  我爱撩菜  
+##### 2316#       发表于 2022-10-15 15:19
+
+= =这死灵龙又成了lgd体系陷阱了。 肯定说死灵龙团队决策了
+
+*****
+
+####  情商  
+##### 2317#         楼主| 发表于 2022-10-15 15:19
+
+gg咯，切换形态成小泰迪看rng了
+
+*****
+
+####  米德  
+##### 2318#       发表于 2022-10-15 15:19
+
+A畜太牛了 中军都不敢这么玩吧
+
+*****
+
+####  UnhappyTails  
+##### 2319#       发表于 2022-10-15 15:19
+
+ame又被秒咯！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  usoda  
+##### 2320#       发表于 2022-10-15 15:19
+
+处长三连送 哈哈 可以再畜一点
+
+*****
+
+####  sodah  
+##### 2321#       发表于 2022-10-15 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">**丢人啊，被EG干了。
+
+*****
+
+####  恐怖利刃  
+##### 2322#       发表于 2022-10-15 15:19
+
+被打爆了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 2323#       发表于 2022-10-15 15:20
+
+[语音]: 我前期那么肥
+
+*****
+
+####  zhrs456  
+##### 2324#       发表于 2022-10-15 15:20
+
+我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥我前妻这么肥
+
+*****
+
+####  反方向的波  
+##### 2325#       发表于 2022-10-15 15:20
+
+哭了哭了，这把不是杰出解说
+
+*****
+
+####  百世诸侯  
+##### 2326#       发表于 2022-10-15 15:20
+
+爽死我了，EG都能宰畜了
+
+*****
+
+####  六娃  
+##### 2327#       发表于 2022-10-15 15:20
+
+哭了哭了，天才少年影魔王回来了，谁2014年的时候不是arteezy粉丝呢
+
+*****
+
+####  xuzy0919  
+##### 2328#       发表于 2022-10-15 15:20
+
+鳖鳖野父：什么，对面也有鳖，leileleile<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 2329#       发表于 2022-10-15 15:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">3202年了，还是不肯给辫哥选赵云，喜欢捧仙贝
+
+*****
+
+####  战狼PTSD  
+##### 2330#       发表于 2022-10-15 15:20
+
+大鞭哥看来是不装了，爷不带孙子咯
+
+*****
+
+####  跑调跑掉  
+##### 2331#       发表于 2022-10-15 15:21
+
+杰出哥说好的eg a组垫底呢
+
+*****
+
+####  UnhappyTails  
+##### 2332#       发表于 2022-10-15 15:21
+
+彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！彻底疯狂！
+
+*****
+
+####  天堂蜘蛛  
+##### 2333#       发表于 2022-10-15 15:21
+
+小组赛都能这么天畜的表现辣是真的牛批哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  万世创伤伊莫库  
+##### 2334#       发表于 2022-10-15 15:21
+
+在外面没法看，所以干瘪是5个人都是脑浆状态吗？
+
+*****
+
+####  iriyano  
+##### 2335#       发表于 2022-10-15 15:21
+
+没想到还以为哥哥再畜今天lgd也会是全胜呢
+高估4赵云了
+
+*****
+
+####  Avantasi  
+##### 2336#       发表于 2022-10-15 15:21
+
+北美A畜都能宰A畜的吗
+
+*****
+
+####  你可以试试  
+##### 2337#       发表于 2022-10-15 15:21
+
+TS跪了，赶紧看看EG补偿一下
+
+*****
+
+####  UnhappyTails  
+##### 2338#       发表于 2022-10-15 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920235&amp;ptid=2099454" target="_blank">跑调跑掉 发表于 2022-10-15 15:21</a>
+杰出哥说好的eg a组垫底呢</blockquote>
+你看着，今晚杰畜必换一副嘴脸“拷打”lgd，再吹一波eg“进化”
+
+*****
+
+####  xuzy0919  
+##### 2339#       发表于 2022-10-15 15:21
+
+揭壳咯，揭开么么鳖的鳖壳
+
+*****
+
+####  逃离二次元  
+##### 2340#       发表于 2022-10-15 15:21
+
+ 本帖最后由 逃离二次元 于 2022-10-15 15:22 编辑 
+
+怀疑a醋想骗我红包
+已领完
+a醋下次再送就不发了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  UnhappyTails  
+##### 2341#       发表于 2022-10-15 15:21
+
+我前面这么肥
+
+*****
+
+####  mkii量产型  
+##### 2342#       发表于 2022-10-15 15:21
+
+喜欢搞粉圈是吧、粉丝给队友锅是吧，你队员反正是世界冠军，处长你在搞粉圈也是亚军
+
+*****
+
+####  银翼的维罗西  
+##### 2343#       发表于 2022-10-15 15:22
+
+[语音]: 我前期那么肥
+
+*****
+
+####  RaibowDash  
+##### 2344#       发表于 2022-10-15 15:22
+
+看得出来  LGD只要鞭一拉 整个队就是一盘散沙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mkii量产型  
+##### 2345#       发表于 2022-10-15 15:22
+
+可惜nga没法上了，没法看集美笑话
+
+*****
+
+####  12481632  
+##### 2346#       发表于 2022-10-15 15:22
+
+相信萧瑟！
+
+*****
+
+####  超法拉  
+##### 2347#       发表于 2022-10-15 15:22
+
+感觉张志成把自己搞进去了
+“对面兽都放了 这不选?”
+结果最后让boboka拿去保鹏子 这不是宝搞吗
+
+*****
+
+####  c88711611  
+##### 2348#       发表于 2022-10-15 15:22
+
+a畜的打团能力，永远可以相信好吧，团战哪波有用啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TheOccuria  
+##### 2349#       发表于 2022-10-15 15:22
+
+森哥剪辑要累死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 2350#       发表于 2022-10-15 15:22
+
+说实话，看天梯就知道lgd这几个人状态不行了，最后一年一轮游回家吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccchirose  
+##### 2351#       发表于 2022-10-15 15:22
+
+第一天的比赛好混沌啊，大家打强队弱队都是1-1是吧，og虽然2-0，场面也是很难看对面疯狂给机会才翻的
+
+*****
+
+####  xuzy0919  
+##### 2352#       发表于 2022-10-15 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920245&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-15 15:21</a>
+
+北美A畜都能宰A畜的吗</blockquote>
+rtz打鳖族战斗力翻倍，么么鳖也是鳖
+
+*****
+
+####  情商  
+##### 2353#         楼主| 发表于 2022-10-15 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920252&amp;ptid=2099454" target="_blank">逃离二次元 发表于 2022-10-15 15:21</a>
+
+怀疑a醋想骗我红包
+
+4个包：我前面这么肥
+
+a醋下次再送就不发了</blockquote>
+谢谢萨特
+
+*****
+
+####  UnhappyTails  
+##### 2354#       发表于 2022-10-15 15:23
+
+话说漏油有没有感觉，侯爹上轮椅了
+
+有种亲父垂老的感觉
+
+*****
+
+####  usoda  
+##### 2355#       发表于 2022-10-15 15:23
+
+四个赵云坐不起来的时候A醋直接原形毕露<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
