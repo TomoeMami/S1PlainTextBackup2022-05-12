@@ -1771,3 +1771,24 @@ https://w.atwiki.jp/astlibra/sp/list
 
 打到哥布林城怎么突然就改不了难度了？重制版是不是和原版一样经验和晶石掉落随难度升降？
 
+
+
+*****
+
+####  jy000129  
+##### 171#       发表于 2022-10-15 14:48
+
+ 本帖最后由 jy000129 于 2022-10-15 14:49 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/15/144751offgh2chcoxa8zbe.jpg" referrerpolicy="no-referrer">
+
+<strong>20221015144707_1.jpg</strong> (413.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 14:47 上传
+
+第四章这个箱子怎么开？哥布林钥匙和炸弹都没用
+
+刚说完找到了，桥右边石墙用哥布林钥匙打开<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
