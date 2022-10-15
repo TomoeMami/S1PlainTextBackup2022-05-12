@@ -8742,3 +8742,15 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ruffian  
+##### 8323#       发表于 2022-10-15 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919644&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-15 14:31:21</a>
+可堇倒还能想到要处理回国事件，但香音是真没想到会变成现在这样</blockquote>不瞒你说一期结局时我以为回国这事被直接略过去了没想到二期的处理比我以为的还恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

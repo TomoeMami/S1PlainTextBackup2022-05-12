@@ -1971,3 +1971,20 @@ ai自动化党一路走好笑死
 
 感觉画风有点粗糙
 
+
+
+*****
+
+####  坂上菠萝  
+##### 164#       发表于 2022-10-15 17:04
+
+英语老师配音是刘婧荦 [https://twitter.com/kkryu_k/status/1580704289684537344](https://twitter.com/kkryu_k/status/1580704289684537344)
+
+<img src="https://img.saraba1st.com/forum/202210/15/170441kh209wqhef2904fk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 17:04 上传
+
