@@ -1328,3 +1328,26 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 这活动的收益怎么感觉低的批爆，90++自带点数翻倍还差不多吧
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3111#       发表于 2022-10-15 18:34
+
+掉落现在是比较少，等通关后的90++吧
+
+*****
+
+####  保罗赫伯特  
+##### 3112#       发表于 2022-10-15 18:38
+
+新弓本有金蛋，但是体感掉落率也不是很高<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3113#       发表于 2022-10-15 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽了下 果然没女团长 滚了
+
