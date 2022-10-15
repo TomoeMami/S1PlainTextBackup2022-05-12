@@ -8375,3 +8375,14 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 今天一下缺席2个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">,这可怎么补啊
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2302#       发表于 2022-10-15 16:54
+
+ 本帖最后由 ZQXY2002 于 2022-10-15 16:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这下真狠啊，三支队伍都要重新编排了。想了想，红队抽一个给白队，486黄队不参加就正好三队都有9人。
+
