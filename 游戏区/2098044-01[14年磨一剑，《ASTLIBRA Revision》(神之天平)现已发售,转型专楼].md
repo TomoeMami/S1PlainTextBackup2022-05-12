@@ -1497,3 +1497,17 @@ https://w.atwiki.jp/astlibra/sp/list
 是全键盘操作还是 鼠标攻击之类的?</blockquote>
 纯键盘，其实就是个2d横板无Z轴的act，目前玩下来RPG成分更重，剧情比正经打怪（排除刷刷时间）用时久。
 
+
+
+*****
+
+####  masterkeaton  
+##### 148#       发表于 2022-10-15 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57914261&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-15 03:25</a>
+
+没看懂，那个石板不就只能打开地精巢穴嘛？还能打开哪？
+
+如果是巢穴里，没看见哪里有路通向那个宝箱啊。 ...</blockquote>
+那个石板可以开好几条隐藏宝箱了
+
