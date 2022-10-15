@@ -838,3 +838,714 @@ rng钓个鱼 杀个人结束比赛吧
 隔壁喷bian的是完全没看吧，这个马尔斯最大的问题是资源分配上，TS和TA带线太快了导致马尔斯太穷了，要是中 ...</blockquote>
 马尔斯自己出的啥呀，那是鳖跳刀的样子？
 
+
+
+*****
+
+####  nowaki  
+##### 4607#       发表于 2022-10-15 23:11
+
+起码80分钟
+
+*****
+
+####  迷途lite  
+##### 4608#       发表于 2022-10-15 23:11
+
+小熊出个飞鞋刷新，12秒bkb扣就完事了
+
+*****
+
+####  fopinecone  
+##### 4609#       发表于 2022-10-15 23:11
+
+谢谢漏油，抢到了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  夏溪澪mio  
+##### 4610#       发表于 2022-10-15 23:12
+
+笑死了，这熊
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  笑歌自若  
+##### 4611#       发表于 2022-10-15 23:12
+
+终于抢到一个了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 4612#       发表于 2022-10-15 23:12
+
+宝石td是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 4613#         楼主| 发表于 2022-10-15 23:12
+
+玉玉了，作业错了
+
+Rng一生黑好吧
+
+*****
+
+####  VanArkride  
+##### 4614#       发表于 2022-10-15 23:12
+
+这把bian技能也确实很辣的，ame辣和bian辣不矛盾的
+
+*****
+
+####  阿垃垃圾历  
+##### 4615#       发表于 2022-10-15 23:12
+
+折磨了 折磨了 
+
+*****
+
+####  scg2017  
+##### 4616#       发表于 2022-10-15 23:12
+
+把火枪bkb逼出来，然后老鹿跳上去虚无主义火枪就能拆了吧
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4617#       发表于 2022-10-15 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928759&amp;ptid=2099454" target="_blank">迷途lite 发表于 2022-10-15 23:11</a>
+小熊出个飞鞋刷新，12秒bkb扣就完事了</blockquote>
+有击退的
+
+*****
+
+####  yourSwaTer  
+##### 4618#       发表于 2022-10-15 23:12
+
+你下来啊，你上来啊<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 4619#       发表于 2022-10-15 23:12
+
+小熊是不是该敏捷跳大影刀啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 4620#       发表于 2022-10-15 23:12
+
+我受不了了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  nightmare902015  
+##### 4621#       发表于 2022-10-15 23:12
+
+桀桀，熊太多了
+
+*****
+
+####  你可以试试  
+##### 4622#       发表于 2022-10-15 23:13
+
+改变了游戏性质
+
+*****
+
+####  莉拉厨  
+##### 4623#       发表于 2022-10-15 23:13
+
+超哥1w7存款，喷了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4624#       发表于 2022-10-15 23:13
+
+80分钟的我，在笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 4625#       发表于 2022-10-15 23:14
+
+笑死，恶心人啊
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4626#       发表于 2022-10-15 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928797&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-15 23:13</a>
+80分钟的我，在笑</blockquote>
+gtmd杰畜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 4627#         楼主| 发表于 2022-10-15 23:14
+
+捏吗，超了30秒  陈国康你玩个熊德都玩不明白是吧
+
+*****
+
+####  walfeds  
+##### 4628#       发表于 2022-10-15 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">心累
+
+*****
+
+####  阿垃垃圾历  
+##### 4629#       发表于 2022-10-15 23:14
+
+牛逼 赢了 
+
+*****
+
+####  qty  
+##### 4630#       发表于 2022-10-15 23:14
+
+草，终于完了
+
+*****
+
+####  莉拉厨  
+##### 4631#       发表于 2022-10-15 23:14
+
+超哥最后一波像个战神
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷途lite  
+##### 4632#       发表于 2022-10-15 23:14
+
+什么塔防
+
+*****
+
+####  nightmare902015  
+##### 4633#       发表于 2022-10-15 23:14
+
+守卫剑阁也太恶心啦
+
+*****
+
+####  Quark  
+##### 4634#       发表于 2022-10-15 23:14
+
+尼玛作业超了30秒
+
+*****
+
+####  嘴瓢王者  
+##### 4635#       发表于 2022-10-15 23:14
+
+你必须攻击那个具有嘲讽的随从
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 4636#       发表于 2022-10-15 23:14
+
+舒服了 哥们的80分钟
+
+*****
+
+####  cuisite  
+##### 4637#       发表于 2022-10-15 23:14
+
+小超人昂首挺胸
+
+*****
+
+####  逃离二次元  
+##### 4638#       发表于 2022-10-15 23:14
+
+70分钟的我已经笑死了
+
+*****
+
+####  反方向的波  
+##### 4639#       发表于 2022-10-15 23:14
+
+我是boom打完已经司马脸了
+
+*****
+
+####  没钱买手办  
+##### 4640#       发表于 2022-10-15 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次一天结束了再发
+
+*****
+
+####  subject07  
+##### 4641#       发表于 2022-10-15 23:15
+
+还好是个菜队，这要是巅峰李逵会让观众知道什么叫究极折磨
+
+*****
+
+####  你气不气  
+##### 4642#       发表于 2022-10-15 23:15
+
+打，给我狠狠地打，我来开塔防
+
+*****
+
+####  六娃  
+##### 4643#       发表于 2022-10-15 23:15
+
+能不能来个强队制裁一下rng，真恶心啊
+
+*****
+
+####  勤练带来力量  
+##### 4644#       发表于 2022-10-15 23:15
+
+boom打完这把今晚要睡不着了
+
+*****
+
+####  Cantha  
+##### 4645#       发表于 2022-10-15 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">感觉超哥换了个打法，考虑队友了
+
+*****
+
+####  TIZI  
+##### 4646#       发表于 2022-10-15 23:15
+
+哪个兄弟洗了rng的脑让rng会玩带球了，立大功了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  御风沐雪  
+##### 4647#       发表于 2022-10-15 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 4648#       发表于 2022-10-15 23:15
+
+就LGD这比状态，败者组一轮游好吧。
+
+*****
+
+####  情商  
+##### 4649#         楼主| 发表于 2022-10-15 23:15
+
+明天og eg给我狠狠滴安排rng
+
+*****
+
+####  银翼的维罗西  
+##### 4650#       发表于 2022-10-15 23:15
+
+感觉都挺软的，这届有队能进前六算胜利
+
+
+
+*****
+
+####  猫狗猫  
+##### 4651#       发表于 2022-10-15 23:15
+
+核中核 lgd更衣室打起来了 xinq莫言根本拉不住大鞭 ame假发都打飞了
+
+*****
+
+####  反方向的波  
+##### 4652#       发表于 2022-10-15 23:15
+
+rng5-1的战绩打出了3-3的体感<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cobymar  
+##### 4653#       发表于 2022-10-15 23:15
+
+鳖皇解说这场满眼都是熟悉的画面
+
+*****
+
+####  Yugao  
+##### 4654#       发表于 2022-10-15 23:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">boom该不会被rng这把直接点化，功力尽废吧
+
+*****
+
+####  你可以试试  
+##### 4655#       发表于 2022-10-15 23:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">胜者即是正义！
+
+*****
+
+####  nowaki  
+##### 4656#       发表于 2022-10-15 23:16
+
+核中核ame头发被明鞭扯掉半边，明天带帽子打比赛
+
+*****
+
+####  哈萨维·诺亚  
+##### 4657#       发表于 2022-10-15 23:16
+
+真的恶心啊 机械之心拉西克 想想就昏迷
+
+*****
+
+####  不应  
+##### 4658#       发表于 2022-10-15 23:16
+
+败者组还要前8呢，lgd现在这水平在a组还能打赢谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 4659#       发表于 2022-10-15 23:17
+
+a帐bkb熊德😄
+
+*****
+
+####  白笛之音  
+##### 4660#       发表于 2022-10-15 23:17
+
+rat dota best dota<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 4661#       发表于 2022-10-15 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928841&amp;ptid=2099454" target="_blank">TIZI 发表于 2022-10-15 23:15</a>
+
+哪个兄弟洗了rng的脑让rng会玩带球了，立大功了
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+卡狗在IG时IG就爱带球
+
+*****
+
+####  roger_goodell  
+##### 4662#       发表于 2022-10-15 23:17
+
+邪恶睿达拿最后一名吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 4663#       发表于 2022-10-15 23:17
+
+我已经想象到杨沈仪的嘴脸了
+
+*****
+
+####  windhawind2  
+##### 4664#       发表于 2022-10-15 23:17
+
+感觉这届中国队看上去最有希望的竟然是rng 但是卡猴去年那么叼也才第4名 今年肉眼可见的平庸 所以感觉前景堪忧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 4665#       发表于 2022-10-15 23:18
+
+真就从早上十点打到晚上十一点，pgl，该杀
+
+*****
+
+####  テロメア  
+##### 4666#       发表于 2022-10-15 23:18
+
+杰士邦广告白投了，速推出伟哥还来得及
+
+*****
+
+####  nowaki  
+##### 4667#       发表于 2022-10-15 23:18
+
+我觉得og不一定打得过lgd，那可是mi酱
+
+*****
+
+####  c88711611  
+##### 4668#       发表于 2022-10-15 23:18
+
+你必须攻击那个具有嘲讽的随从
+
+太尼玛搞了，对面全体冲上来不管，先把小熊打掉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  horacio  
+##### 4669#       发表于 2022-10-15 23:18
+
+还真难说，那个bb前期叼的一笔，搞不好lgd直接被平推
+
+*****
+
+####  莉拉厨  
+##### 4670#       发表于 2022-10-15 23:18
+
+就看明天了，明天至少得拿3分，拿两分百分百进不了胜者组，一分没拿的话八王可以提前去RNG训练房门口下跪了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 4671#       发表于 2022-10-15 23:18
+
+我是去年的贷款高楼发帖人
+
+就去年那个隐晦贷款的大高楼，我发的
+
+今年为啥我一直不敢发，也没怎么聊过LGD
+
+原本打了一堆字，但精简一下说重点吧
+
+明鞭和他女朋友那个VLOG发了之后，我看了，作为曾经担任过某种政治思想工作岗位的人来说，或许我过于敏感，我觉得他已经心不在国内了。
+
+他女朋友对他的思想影响非常大，可能涉及性别矛盾，又或许涉及更大含义上的身份认同。
+
+也许过了今年后，他不再是我们广泛认知上的自己人了也说不准。
+
+个人的选择我们理应尊重，但还是希望最后一舞能完美谢幕而不是采用某些不理性方法。
+
+我知道这帖子发出来，如果LGD后面状态好起来了，我会被喷的很惨。但只要LGD能进决赛日，我被骂也无所谓了。
+
+希望只是我个人的无端揣测，希望我是错的。
+
+*****
+
+####  roger_goodell  
+##### 4672#       发表于 2022-10-15 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928481&amp;ptid=2099454" target="_blank">为了mf注册 发表于 2022-10-15 22:58</a>
+
+rng这局感觉要70分钟了，有火枪的局看起来是真无聊啊</blockquote>
+还真的70分24秒打完
+
+*****
+
+####  情商  
+##### 4673#         楼主| 发表于 2022-10-15 23:19
+
+Rng有锤子希望，打个a组倒数12都是翻盘局，碰见隔壁组的秘密雪碧或者本组的og eg估计人都是晕的
+
+*****
+
+####  嘴瓢王者  
+##### 4674#       发表于 2022-10-15 23:19
+
+对面没高地塔没视野 火枪再怎么也只能打一个目标 5个人带召唤物带保命装备真不觉得boom有推过去的希望
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 4675#       发表于 2022-10-15 23:19
+
+<img src="https://img.saraba1st.com/forum/202210/15/231915wvm40xzxxbyx7kkx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (70.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 23:19 上传
+
+*****
+
+####  woyzeck  
+##### 4676#       发表于 2022-10-15 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928904&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-15 23:18</a>
+
+我是去年的贷款高楼发帖人
+
+就去年那个隐晦贷款的大高楼，我发的</blockquote>
+典
+
+*****
+
+####  反方向的波  
+##### 4677#       发表于 2022-10-15 23:19
+
+我宣布今天的一天从pgl司马开始，从pgl司马结束
+
+*****
+
+####  情商  
+##### 4678#         楼主| 发表于 2022-10-15 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928906&amp;ptid=2099454" target="_blank">roger_goodell 发表于 2022-10-15 23:18</a>
+还真的70分24秒打完</blockquote>
+是70分29
+
+*****
+
+####  NaYo丶  
+##### 4679#       发表于 2022-10-15 23:19
+
+崩溃的3号位感觉都肥中肥 大鞭哥都穷中穷
+打线输输一半啊
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  阿垃垃圾历  
+##### 4680#       发表于 2022-10-15 23:19
+
+bb打两把rng都是前中期优  后期被翻  lgd这6把线劣真的难顶
+
+
+
+*****
+
+####  夏溪澪mio  
+##### 4681#       发表于 2022-10-15 23:20
+
+梦幻挑战没人发作业吗
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  mkii量产型  
+##### 4682#       发表于 2022-10-15 23:20
+
+版主好不容易做v有起色了今年却没爱过火箭了，可怜啊
+
+*****
+
+####  一品堂官  
+##### 4683#       发表于 2022-10-15 23:20
+
+我预测是70min-79:59 除了这把后面不会还有更鳖的吧？
+
+*****
+
+####  食粪者  
+##### 4684#       发表于 2022-10-15 23:20
+
+rng明天就整活
+
+*****
+
+####  嘴瓢王者  
+##### 4685#       发表于 2022-10-15 23:21
+
+是不是aster还有一轮吧
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈萨维·诺亚  
+##### 4686#       发表于 2022-10-15 23:21
+
+楼友们 享受比赛好吧 这RNG还不乐吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今天简直是我观赛以来最乐的一次小组赛DAY1
+
+*****
+
+####  莉拉厨  
+##### 4687#       发表于 2022-10-15 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928932&amp;ptid=2099454" target="_blank">夏溪澪mio 发表于 2022-10-15 23:20</a>
+
+梦幻挑战没人发作业吗
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+阿茶雪碧秘密的人往上一扔就行了
+
+*****
+
+####  情商  
+##### 4688#         楼主| 发表于 2022-10-15 23:21
+
+没有了b组今天只有2轮
+
+*****
+
+####  不应  
+##### 4689#       发表于 2022-10-15 23:21
+
+明天lgd打og和李逵，基本是两个0比2。后天就可以买机票回家了
+
+*****
+
+####  Centrum  
+##### 4690#       发表于 2022-10-15 23:21
+
+蓝猫：好累啊~
+
+*****
+
+####  你可以试试  
+##### 4691#       发表于 2022-10-15 23:22
+
+梦幻挑战无脑雪碧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">除非有金的不那么鱼的队。
+
+*****
+
+####  情商  
+##### 4692#         楼主| 发表于 2022-10-15 23:22
+
+梦幻挑战放b组就行了，明天b组比赛多
+
+*****
+
+####  nowaki  
+##### 4693#       发表于 2022-10-15 23:22
+
+面八群早上说今天吃两把，原来是只赢两把
+
+*****
+
+####  nightmare902015  
+##### 4694#       发表于 2022-10-15 23:22
+
+我的确不懂了，这版本有了旗兵并且升级经验增多之后，可以说是谁控制了兵线，谁就控制了钱和等级。玛西大鱼这种完全没法farm的英雄只要线上站住就很难穷。
+lgd不可能不懂这个道理吧，把把都是三路劣等着拖中后期何意啊。
+
+*****
+
+####  柚上舍人  
+##### 4695#       发表于 2022-10-15 23:23
+
+太乐了，明天来两队给rng上上强度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -433,3 +433,16 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 02是团/老七被判刑了，远程给风森传功，从此风森就是老7了
 
+
+
+*****
+
+####  赤道氮  
+##### 654#       发表于 2022-10-15 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922008&amp;ptid=2040765" target="_blank">仟音一心 发表于 2022-10-15 16:54</a>
+特摄全制霸，还都能变身。</blockquote>
+什么缝合怪<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
