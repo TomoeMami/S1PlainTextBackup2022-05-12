@@ -4260,3 +4260,134 @@ nowaki这时候该站出来给你的cp说两句话了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">邪恶睿达作为集美公认的最出色三号位无非是效仿最成功的刀圈前辈而已，就问你打牌到底有什么影响。
 
+
+
+*****
+
+####  反方向的波  
+##### 5002#       发表于 2022-10-16 01:22
+
+窝不好说，ateaf今天有吹风都不救队魂mi酱的#og内讧
+
+*****
+
+####  UnhappyTails  
+##### 5003#       发表于 2022-10-16 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930499&amp;ptid=2099454" target="_blank">cuisite 发表于 2022-10-16 01:19</a>
+和气点吧，今天看a畜这么表演，漏油不该开心大度点么</blockquote>
+我全程都在聊比赛，是有人要带到别的地方
+
+我还是那句话，楼里有任何人质疑我任何个人设备包括手机电脑存在过任何版本的lol包括客户端和mobile版本超过一分钟的，如果有我出门遭雷劈被车撞，如果没有你出门遭雷劈被车撞
+
+你就说敢不敢就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sadllk  
+##### 5004#       发表于 2022-10-16 01:24
+
+这就是做处长队友的下场啊
+
+*****
+
+####  nowaki  
+##### 5005#       发表于 2022-10-16 01:24
+
+有分歧为什么不sf solo呢
+
+*****
+
+####  六娃  
+##### 5006#       发表于 2022-10-16 01:24
+
+entity被ts碾压两局，一个是老东京状态爆棚二个是确实实力干不过冠军班子，进胜者组还是可以展望一下的
+以及yatoro这个逼继续倒腾他那德鲁伊影魔，有点想当豪华版A畜的意思了
+
+*****
+
+####  恐怖利刃  
+##### 5007#       发表于 2022-10-16 01:24
+
+今年感觉真没了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 5008#       发表于 2022-10-16 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930535&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-16 01:24</a>
+今年感觉真没了</blockquote>
+能进前6就是胜利
+
+*****
+
+####  情商  
+##### 5009#         楼主| 发表于 2022-10-16 01:26
+
+怎么今年么看到有人剪辑战队入场视频啊？
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nowaki  
+##### 5010#       发表于 2022-10-16 01:27
+
+我怎么记得鸭头肉去年也是这样瞎选瞎玩，掉到败者组才老实
+
+
+
+*****
+
+####  六娃  
+##### 5011#       发表于 2022-10-16 01:29
+
+yatoro基本可以看作是集美臆想中的A畜该有的水平，自然也有疑似A畜的倾向
+
+*****
+
+####  莉拉厨  
+##### 5012#       发表于 2022-10-16 01:30
+
+小组赛第一天就4000楼了，往后我都不敢想了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 5013#         楼主| 发表于 2022-10-16 01:31
+
+【Ti11 RNG intro-哔哩哔哩】 https://b23.tv/RS80In2
+
+今年这入场视频剪辑和bgm比去年还烂，吐了吐了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  六娃  
+##### 5014#       发表于 2022-10-16 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930577&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-16 01:31</a>
+【Ti11 RNG intro-哔哩哔哩】 https://b23.tv/RS80In2
+
+今年这入场视频剪辑和bgm比去年还烂，吐了吐了</blockquote>
+这个是pgl做的，valve做的应该会在主舞台才开始放
+当然不排除鸽了没做
+
+*****
+
+####  百世诸侯  
+##### 5015#       发表于 2022-10-16 01:32
+
+3000楼的复读
+
+*****
+
+####  UnhappyTails  
+##### 5016#       发表于 2022-10-16 01:32
+
+a/能不能拿个ti再来碰瓷同一类型啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
