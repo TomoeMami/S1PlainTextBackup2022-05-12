@@ -8301,3 +8301,358 @@ lgd翻了吗，点进去看领先4k
 
 哥们早就说了，有ccnc lgd不可能输
 
+
+
+*****
+
+####  奥帝努斯  
+##### 4054#       发表于 2022-10-15 21:22
+
+070，这巨魔也太惨了助攻都没有
+
+*****
+
+####  VanArkride  
+##### 4055#       发表于 2022-10-15 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926510&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-15 21:21</a>
+杰畜：床神个人能力不行
+
+我听到这句话差点没笑掉大牙</blockquote>
+abed这人波动太大，之前折腾6挂件的时候能看出个蛋的个人能力啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  proselyte  
+##### 4056#       发表于 2022-10-15 21:22
+
+又不抓肉山<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘴瓢王者  
+##### 4057#       发表于 2022-10-15 21:22
+
+其实lgd的阵眼是3，其次是2，这把能打回来的原因百分之九十是这个人马带节奏
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  陈苦瓜  
+##### 4058#       发表于 2022-10-15 21:22
+
+好起来了 好起来了 中国队都加油。
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4059#       发表于 2022-10-15 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926510&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-15 21:21</a>
+杰畜：床神个人能力不行
+
+我听到这句话差点没笑掉大牙</blockquote>
+abed心态有问题，新加坡那场还看不出来？
+
+*****
+
+####  银翼的维罗西  
+##### 4060#       发表于 2022-10-15 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926536&amp;ptid=2099454" target="_blank">VanArkride 发表于 2022-10-15 21:22</a>
+
+abed这人波动太大，之前折腾6挂件的时候能看出个蛋的个人能力啊</blockquote>
+abed个人能力还不强，建议多看看gege无敌的个人能力
+
+*****
+
+####  甩不出去的黄牌  
+##### 4061#       发表于 2022-10-15 21:23
+
+eg这么猛啊<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 4062#       发表于 2022-10-15 21:23
+
+犯罪呀，这小小把潮汐丢出去了
+
+*****
+
+####  越动天下  
+##### 4063#       发表于 2022-10-15 21:23
+
+LGD还要等 现在的领先是因为陈的领先
+
+*****
+
+####  VanArkride  
+##### 4064#       发表于 2022-10-15 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926552&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-15 21:23</a>
+abed个人能力还不强，建议多看看gege无敌的个人能力</blockquote>
+说abed波动你扯别人干啥<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 4065#       发表于 2022-10-15 21:23
+
+RNG要翻了啊
+
+*****
+
+####  战狼PTSD  
+##### 4066#       发表于 2022-10-15 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926532&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-15 21:22</a>
+
+对线没a老奶奶害死文丑那波啊</blockquote>
+没看 感觉LGD要一轮游了 大鞭要吃波大的润了
+
+*****
+
+####  阿垃垃圾历  
+##### 4067#       发表于 2022-10-15 21:24
+
+rng又要翻盘了 
+
+*****
+
+####  sodah  
+##### 4068#       发表于 2022-10-15 21:24
+
+这BOOM的海民也好菜。
+
+*****
+
+####  天堂蜘蛛  
+##### 4069#       发表于 2022-10-15 21:24
+
+GGNG这边先手全靠拉比克吹风
+
+*****
+
+####  walfeds  
+##### 4070#       发表于 2022-10-15 21:24
+
+rng好起来了，小超人集合
+
+*****
+
+####  吃货红毛  
+##### 4071#       发表于 2022-10-15 21:24
+
+油扒鸡被戏耍
+
+*****
+
+####  proselyte  
+##### 4072#       发表于 2022-10-15 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926540&amp;ptid=2099454" target="_blank">嘴瓢王者 发表于 2022-10-15 21:22</a>
+
+其实lgd的阵眼是3，其次是2，这把能打回来的原因百分之九十是这个人马带节奏
+
+—— 来自 OnePlus GM1910, A ...</blockquote>
+lgd像今天这样把把线劣也走不远
+
+*****
+
+####  xuzy0919  
+##### 4073#       发表于 2022-10-15 21:24
+
+1w3差距都打回来了，野区那波+天命双倍救命了
+
+*****
+
+####  马儿在流泪  
+##### 4074#       发表于 2022-10-15 21:24
+
+EG：我不装了，摊牌了
+
+*****
+
+####  非建政专用号  
+##### 4075#       发表于 2022-10-15 21:25
+
+小黑对水人谁优阿，感觉小黑破甲箭能把水人化了，水人a变小黑偷敏捷攻速小黑也废了
+
+*****
+
+####  米德  
+##### 4076#       发表于 2022-10-15 21:26
+
+苏哥儿怎么这么穷的 不应该无解肥吗
+
+*****
+
+####  IG.430  
+##### 4077#       发表于 2022-10-15 21:26
+
+有人马我谨慎看好小黑
+
+*****
+
+####  VanArkride  
+##### 4078#       发表于 2022-10-15 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926599&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-15 21:25</a>
+小黑对水人谁优阿，感觉小黑破甲箭能把水人化了，水人a变小黑偷敏捷攻速小黑也废了 ...</blockquote>
+看先后手吧，有点像蓝猫火猫的感觉
+
+*****
+
+####  xuzy0919  
+##### 4079#       发表于 2022-10-15 21:26
+
+鬼神草
+
+*****
+
+####  战狼PTSD  
+##### 4080#       发表于 2022-10-15 21:26
+
+水人爆杀敏核
+
+
+
+*****
+
+####  阿垃垃圾历  
+##### 4081#       发表于 2022-10-15 21:26
+
+rng打的还是有点吃力的 打eg看看成色 
+
+*****
+
+####  银翼的维罗西  
+##### 4082#       发表于 2022-10-15 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926561&amp;ptid=2099454" target="_blank">VanArkride 发表于 2022-10-15 21:23</a>
+
+说abed波动你扯别人干啥</blockquote>
+因为我觉得看不出ABED个人能力的大概率能看出gege的个人能力
+
+*****
+
+####  bluebaby  
+##### 4083#       发表于 2022-10-15 21:27
+
+亚陀螺说小黑克水人
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4084#       发表于 2022-10-15 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926599&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-15 21:25</a>
+小黑对水人谁优阿，感觉小黑破甲箭能把水人化了，水人a变小黑偷敏捷攻速小黑也废了 ...</blockquote>
+一个猜想不一定对，水人能波小黑脸啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏西踩到我了  
+##### 4085#       发表于 2022-10-15 21:28
+
+lgd'能打回优势的关键是人马出到挑战了，不怕老鹿和兽，可以顶着伤害和小强去杀老奶奶，在兽没bkb之前老奶奶一死就没法找小黑，小黑经济差的时候也能打出足够的输出，可以收割
+
+所以我说这把bp是lgd优势，索尼克在bp时一点都没有打团的画面，对游戏的理解不行
+
+*****
+
+####  Asukalangley33  
+##### 4086#       发表于 2022-10-15 21:28
+
+不会RNG把俊豪踢了以后直接变种了吧？？？
+
+从把送翻盘到把把翻盘
+
+*****
+
+####  izayoi39  
+##### 4087#       发表于 2022-10-15 21:29
+
+rng还是不适合让李斯打谜团这种3，这到淘汰赛以后是个大问题，对面前两手可以少一个谜团不用ban，到时候在bp上会吃大亏
+
+*****
+
+####  勤练带来力量  
+##### 4088#       发表于 2022-10-15 21:29
+
+水人打小黑就是容易暴毙，这把还有人马大护阵型
+
+*****
+
+####  漂灵  
+##### 4089#       发表于 2022-10-15 21:29
+
+小黑冷不丁两下暴击水人就死了，不过真打起来基本看队友
+
+*****
+
+####  反方向的波  
+##### 4090#       发表于 2022-10-15 21:29
+
+卡狗小小整了个龙心<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 4091#       发表于 2022-10-15 21:29
+
+卡狗四号位小小龙心笛子啊
+
+*****
+
+####  cobymar  
+##### 4092#       发表于 2022-10-15 21:30
+
+卡狗龙心小小致敬自己龙心菜恩
+
+—— 来自 Sony XQ-BC72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  asd235614  
+##### 4093#       发表于 2022-10-15 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草RNG中期那几波团怎么赢的根本看不懂
+
+*****
+
+####  逃离二次元  
+##### 4094#       发表于 2022-10-15 21:30
+
+听说rng被偷家了？
+
+*****
+
+####  Acatv  
+##### 4095#       发表于 2022-10-15 21:30
+
+龙心真的是kaka最喜欢的装备啊
+
+*****
+
+####  walfeds  
+##### 4096#       发表于 2022-10-15 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡师傅这个龙心
+
+*****
+
+####  テロメア  
+##### 4097#       发表于 2022-10-15 21:31
+
+偷不了，RNG基本上拿下了
+
+*****
+
+####  勤练带来力量  
+##### 4098#       发表于 2022-10-15 21:31
+
+ghost这把这个小鱼确实玩得可以
+

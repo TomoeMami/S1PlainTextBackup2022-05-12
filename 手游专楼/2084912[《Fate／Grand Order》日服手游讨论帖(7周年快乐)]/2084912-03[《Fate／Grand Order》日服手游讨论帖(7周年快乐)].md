@@ -1403,3 +1403,14 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 这下梵高2.0了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  風卷豹  
+##### 3120#       发表于 2022-10-15 21:30
+
+这个看到名人就晕倒的剧情塑造，别说呼延灼本人了，恩蒲萨看了都要抗议吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

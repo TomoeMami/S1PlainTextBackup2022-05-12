@@ -3743,3 +3743,14 @@ size太大，显卡跑不了<img src="https://static.saraba1st.com/image/smiley/
 
 Steps: 28, Sampler: Euler, CFG scale: 12, Seed: 1969404127, Size: 512x512, Model hash: 925997e9, Denoising strength: 0.5, Clip skip: 2, ENSD: 31337, Mask blur: 4 extras
 
+
+
+*****
+
+####  Dmitryeav  
+##### 290#       发表于 2022-10-15 21:21
+
+我糙，纹化输出
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
