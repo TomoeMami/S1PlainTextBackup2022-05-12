@@ -3729,3 +3729,17 @@ size太大，显卡跑不了<img src="https://static.saraba1st.com/image/smiley/
 
 说起来我也有看到网上有人直接剪一个手贴进去让AI微调的，感觉也是个路子
 
+
+
+*****
+
+####  lxsw  
+##### 289#       发表于 2022-10-15 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57906788&amp;ptid=2098197" target="_blank">断片集 发表于 2022-10-14 16:33</a>
+
+你用的是啥ai，我用的是stable diffusion webui，模型跑的novelai的泄漏版，加载了里面那个animevae.pt的 ...</blockquote>
+我是和你一样的配置，其余参数我是这样的：
+
+Steps: 28, Sampler: Euler, CFG scale: 12, Seed: 1969404127, Size: 512x512, Model hash: 925997e9, Denoising strength: 0.5, Clip skip: 2, ENSD: 31337, Mask blur: 4 extras
+
