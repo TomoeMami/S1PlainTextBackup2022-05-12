@@ -8616,3 +8616,14 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">现在嘛还可以把锅全甩给香音传  其他人描写不足   万万万一3期不搞香音传了还是稀烂就有意思了
 
+
+
+*****
+
+####  笋狐  
+##### 8311#       发表于 2022-10-15 13:28
+
+ 本帖最后由 笋狐 于 2022-10-15 13:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官方弱智操作能把官推西皮里双方的单推变成毒唯，毒唯逼到快不共戴天的地步是否是前无古人的成就
+

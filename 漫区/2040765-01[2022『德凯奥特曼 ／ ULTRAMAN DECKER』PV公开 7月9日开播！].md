@@ -249,3 +249,12 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 本来这个演员是不是要鹤野刚士来演
 
+
+
+*****
+
+####  笋狐  
+##### 638#       发表于 2022-10-15 13:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怪耶，明明两个人都是历战无数的老油子，形态也切得飞起，但打斗逼格却没有很高级的感觉，是武指的锅吗
+

@@ -1685,3 +1685,50 @@ https://w.atwiki.jp/astlibra/sp/list
 
 以前的地图回得去吗
 
+
+
+*****
+
+####  我猫呢?  
+##### 162#       发表于 2022-10-15 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918546&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-15 12:56</a>
+没见过3倍攻的技能，2级冰魔法也没有，boss3W2的hp，我蓄力攻击单发伤害只有30，boss摸我两下人就没了
+
+  - ...</blockquote>
+冰魔法点技能树就能点出来，3倍攻击技能在金箱子掉的武器上
+
+*****
+
+####  quanlix  
+##### 163#       发表于 2022-10-15 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918843&amp;ptid=2098044" target="_blank">我猫呢? 发表于 2022-10-15 13:22:00</a>
+冰魔法点技能树就能点出来，3倍攻击技能在金箱子掉的武器上</blockquote>印象里技能树已经锁死了，晚上在看看
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  黒長直姫  
+##### 164#       发表于 2022-10-15 13:30
+
+你们能切窗口吗 我切窗口游戏就卡死
+
+*****
+
+####  黒長直姫  
+##### 165#       发表于 2022-10-15 13:30
+
+沼泽第二面有青蛙哪里道中被围着的那个宝箱怎么拿啊
+
+*****
+
+####  jy000129  
+##### 166#       发表于 2022-10-15 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918783&amp;ptid=2098044" target="_blank">dazzle 发表于 2022-10-15 13:16</a>
+
+你等级怎么这么高的，我到这才10级，800块钱，就这还是为了买铜剑刷了半天怪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">全幸运，每件装备熟练刷满，就摁刷
+
