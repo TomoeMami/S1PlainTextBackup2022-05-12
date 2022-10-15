@@ -1553,3 +1553,15 @@ https://w.atwiki.jp/astlibra/sp/list
 
 <img src="https://img.saraba1st.com/forum/202210/15/104553m3r91nkvrq2qjs0d.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  casle  
+##### 152#       发表于 2022-10-15 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916409&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-10-15 10:46</a>
+
+请教一下，这个地方的宝箱该怎么拿？</blockquote>
+从这张图右边的房间趟岩浆回这里，打破箱子右边的墙壁
+
