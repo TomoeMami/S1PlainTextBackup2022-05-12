@@ -7729,3 +7729,15 @@ kino：希望大家不要因为我而讨厌赛马娘。
 
 重复内容编辑
 
+
+
+*****
+
+####  一叶丈育  
+##### 2324#       发表于 2022-10-15 19:42
+
+现阶段自称ai的，不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过如果是厂长可能真的会搞语音合成的投稿和程序员手动调试的直播吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

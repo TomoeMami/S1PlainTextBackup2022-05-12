@@ -3713,3 +3713,19 @@ size太大，显卡跑不了<img src="https://static.saraba1st.com/image/smiley/
 什么叫出图30秒， 修手一整年啊……
 <img src="https://pic1.imgdb.cn/item/634a6e9716f2c2beb1369f71.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mahoraga  
+##### 288#         楼主| 发表于 2022-10-15 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57921487&amp;ptid=2098197" target="_blank">白左 发表于 2022-10-15 16:27</a>
+
+花絮
+
+什么叫出图30秒， 修手一整年啊……</blockquote>
+哈哈哈，这招，这招我看是误差收敛，是深度淆习的一部分，不得不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+说起来我也有看到网上有人直接剪一个手贴进去让AI微调的，感觉也是个路子
+
