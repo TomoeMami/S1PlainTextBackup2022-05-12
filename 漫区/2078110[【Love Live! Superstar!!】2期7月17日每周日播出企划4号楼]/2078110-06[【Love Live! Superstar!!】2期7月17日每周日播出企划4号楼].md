@@ -8568,3 +8568,15 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 堇在可可面前调侃ll我印象中有好几次啊，但是天平往可可那边倾斜的太多是真的。而且不说别的，星团动画时间 ...</blockquote>
 而且星2这么一搞，还真就是这样的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8307#       发表于 2022-10-15 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917905&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-10-15 12:17</a>
+
+第五集这里确实有台词失误的嫌疑，其他集的部分我不觉得有什么大的失误。这里怎么翻译都行，卑しい这个词 ...</blockquote>
+堇动画里要是像这样多来几句“那些话我就当做赞美收下了”之类的话，或许还能缓和一下气氛，结果说的都是“才怪，烦死了”、“说话方式”这类语气比较强烈、且因为简短显得更有重量的话，气氛好点的时候可以当做吐槽，但气氛差的时候就难免给人一种火上浇油的感觉
+

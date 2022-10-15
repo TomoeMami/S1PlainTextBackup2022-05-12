@@ -2899,3 +2899,244 @@ Nowaki跟unhappynotail居然都看这个管人，很难不怀疑相爱相杀
 
 可以啊
 
+
+
+*****
+
+####  nowaki  
+##### 1876#       发表于 2022-10-15 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918605&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-15 13:01</a>
+
+Nowaki跟unhappynotail居然都看这个管人，很难不怀疑相爱相杀</blockquote>
+哥们并不看
+
+*****
+
+####  没钱买手办  
+##### 1877#       发表于 2022-10-15 13:04
+
+别钓了
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 1878#       发表于 2022-10-15 13:05
+
+泽马搞那么厉害第一天就想透支了是吧
+
+*****
+
+####  情商  
+##### 1879#         楼主| 发表于 2022-10-15 13:05
+
+哇 这tb走到大鱼人脸上跟大鱼人搂起来了，绷不住
+
+*****
+
+####  zhrs456  
+##### 1880#       发表于 2022-10-15 13:05
+
+OG这两波上高属实技能不给到位 不然一波就拿下了
+
+*****
+
+####  zaku007  
+##### 1881#       发表于 2022-10-15 13:05
+
+og打boom看起来og还挺厉害的，就是怎么atf玩个大鱼
+
+*****
+
+####  你可以试试  
+##### 1882#       发表于 2022-10-15 13:06
+
+一进去就是nowaki-2
+
+*****
+
+####  六娃  
+##### 1883#       发表于 2022-10-15 13:06
+
+ 本帖最后由 六娃 于 2022-10-15 13:07 编辑 
+
+yopaj偷完冠超的天才少年接着偷狂劲儿最后偷孤胆英雄
+人设都给你偷光了
+
+*****
+
+####  百世诸侯  
+##### 1884#       发表于 2022-10-15 13:06
+
+刚刚下楼买川菜，看到LGD输了直接高兴地加了个菜，现在哥们撑得动不了了，属于是被老干鳖超维DOTA Gank了一波
+
+*****
+
+####  walfeds  
+##### 1885#       发表于 2022-10-15 13:06
+
+管人痴还是二人幸终吧
+
+*****
+
+####  情商  
+##### 1886#         楼主| 发表于 2022-10-15 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918653&amp;ptid=2099454" target="_blank">zaku007 发表于 2022-10-15 13:05</a>
+og打boom看起来og还挺厉害的，就是怎么atf玩个大鱼</blockquote>
+这boom菜成这样了，og打成这德行，真的厉害吗水友们，这b滚滚跟tb换成中国选手来玩的话早就被漏油沙马一百次了
+
+*****
+
+####  nowaki  
+##### 1887#       发表于 2022-10-15 13:07
+
+不能因为哥们头像就判断哥们看哪个管人，那百世诸侯难道是ame粉吗
+
+*****
+
+####  你可以试试  
+##### 1888#       发表于 2022-10-15 13:08
+
+不会真的纯净神夺冠了吧
+
+*****
+
+####  逃离二次元  
+##### 1889#       发表于 2022-10-15 13:09
+
+一进去就是nowaki-2
+nowaki×unhappytail 谁懂
+
+*****
+
+####  勤练带来力量  
+##### 1890#       发表于 2022-10-15 13:09
+
+ 本帖最后由 勤练带来力量 于 2022-10-15 13:11 编辑 
+
+看错了
+
+
+
+*****
+
+####  ccchirose  
+##### 1891#       发表于 2022-10-15 13:09
+
+lgd和og看起来状态都一般啊，下轮观察观察大家都看好的Entity和雪碧怎么样了
+
+*****
+
+####  lyjssj  
+##### 1892#       发表于 2022-10-15 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">lgd这把把线劣，有点堪忧呀
+
+*****
+
+####  zhrs456  
+##### 1893#       发表于 2022-10-15 13:09
+
+RESO这3转1POM玩的真不错
+
+*****
+
+####  UnhappyTails  
+##### 1894#       发表于 2022-10-15 13:09
+
+求求你们还是磕pywxdy吧
+
+我巴不得nwk死
+
+*****
+
+####  莉拉厨  
+##### 1895#       发表于 2022-10-15 13:10
+
+睡个觉，起床刚好看阿茶受难第二把<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 1896#       发表于 2022-10-15 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918682&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-15 13:09</a>
+雪碧打enity开了</blockquote>
+就造谣是吧，fnatic啊
+
+*****
+
+####  没钱买手办  
+##### 1897#       发表于 2022-10-15 13:10
+
+我要是V社就出1500级送泳装马西至宝，然后ti之后砍成狗
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lmslardar  
+##### 1898#       发表于 2022-10-15 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918682&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-15 13:09</a>
+
+雪碧打enity开了</blockquote>
+ety不是在打bc吗
+
+*****
+
+####  迷途lite  
+##### 1899#       发表于 2022-10-15 13:11
+
+ett也开了，鳖星也开了
+
+*****
+
+####  nightmare902015  
+##### 1900#       发表于 2022-10-15 13:11
+
+entity不是在打og？
+
+*****
+
+####  nowaki  
+##### 1901#       发表于 2022-10-15 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918711&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-15 13:11</a>
+
+entity不是在打og？</blockquote>
+打bc
+
+*****
+
+####  逃离二次元  
+##### 1902#       发表于 2022-10-15 13:12
+
+果然a黑都是云观众
+
+*****
+
+####  walfeds  
+##### 1903#       发表于 2022-10-15 13:12
+
+秘密这感觉也宰了呀
+
+*****
+
+####  迷途lite  
+##### 1904#       发表于 2022-10-15 13:12
+
+鳖星拿到马西了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想换台了
+
+*****
+
+####  IG.430  
+##### 1905#       发表于 2022-10-15 13:12
+
+reso这pom疯狂偷输出，好滑
+
