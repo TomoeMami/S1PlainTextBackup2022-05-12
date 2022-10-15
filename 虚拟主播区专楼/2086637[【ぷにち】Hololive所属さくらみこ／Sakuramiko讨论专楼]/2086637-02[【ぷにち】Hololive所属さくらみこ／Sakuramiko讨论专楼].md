@@ -8737,3 +8737,44 @@ mikoVS色色miko
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这sc攻击性一点也不强。还有这人分组解释应该也没听明白。
 
+
+
+*****
+
+####  rs5621  
+##### 2335#       发表于 2022-10-15 22:31
+
+完了，miko怎么没声音了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ZQXY2002  
+##### 2336#       发表于 2022-10-15 22:33
+
+好家伙，叠伤出伤害，给miko搞哭了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qesto  
+##### 2337#       发表于 2022-10-15 22:33
+
+完了哭了
+
+*****
+
+####  rs5621  
+##### 2338#       发表于 2022-10-15 22:33
+
+草,傻狗anti
+
+*****
+
+####  qesto  
+##### 2339#       发表于 2022-10-15 22:35
+
+我就说不该趟这浑水吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+下次运动会，谁爱主办谁主办
+

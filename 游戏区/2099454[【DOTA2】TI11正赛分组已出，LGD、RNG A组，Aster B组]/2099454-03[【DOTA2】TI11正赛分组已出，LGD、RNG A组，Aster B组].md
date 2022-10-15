@@ -10623,3 +10623,404 @@ fata<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 
 这把是不是属于舞台给AME搭起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  反方向的波  
+##### 4348#       发表于 2022-10-15 22:34
+
+哇，rng这个肉山newbee附体了呀
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4349#       发表于 2022-10-15 22:34
+
+有kaka就是nb盾团
+
+*****
+
+####  莉拉厨  
+##### 4350#       发表于 2022-10-15 22:34
+
+开扣!
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  二宮飛鳥酱  
+##### 4351#       发表于 2022-10-15 22:34
+
+fata这把大到过人吗
+
+*****
+
+####  iriyano  
+##### 4352#       发表于 2022-10-15 22:34
+
+fata<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuisite  
+##### 4353#       发表于 2022-10-15 22:34
+
+fata真的老菜逼了
+
+*****
+
+####  我爱撩菜  
+##### 4354#       发表于 2022-10-15 22:34
+
+这跳走了。这么秀嘛
+
+*****
+
+####  坚定的团子党  
+##### 4355#       发表于 2022-10-15 22:34
+
+fata又空大了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 4356#       发表于 2022-10-15 22:35
+
+原谅fata哥吧，毕竟老c9的血脉还在他身上流动
+
+*****
+
+####  scg2017  
+##### 4357#       发表于 2022-10-15 22:35
+
+a畜又不出bkb
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  没钱买手办  
+##### 4358#       发表于 2022-10-15 22:35
+
+我印象里有前几年有一把脖子神也是猛犸空一堆，但是最后还赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 4359#       发表于 2022-10-15 22:35
+
+威乐明年能不能+条规矩，老b混子杂毛滚出ti
+
+*****
+
+####  勤练带来力量  
+##### 4360#       发表于 2022-10-15 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928000&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-15 22:35</a>
+我印象里有前几年有一把脖子神也是猛犸空一堆，但是最后还赢了</blockquote>
+就去年ti吧，脑11的下限猛犸
+
+*****
+
+####  情商  
+##### 4361#         楼主| 发表于 2022-10-15 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928000&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-15 22:35</a>
+我印象里有前几年有一把脖子神也是猛犸空一堆，但是最后还赢了</blockquote>
+去年，放不出大
+
+*****
+
+####  吃货红毛  
+##### 4362#       发表于 2022-10-15 22:36
+
+这就是那种一整把大不到 大到一次lgd就寄的那种来自: iPhone客户端
+
+*****
+
+####  cuisite  
+##### 4363#       发表于 2022-10-15 22:36
+
+a畜真的能送啊
+
+*****
+
+####  莉拉厨  
+##### 4364#       发表于 2022-10-15 22:36
+
+看了一眼经济才发现这量子bian25分钟7800<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  人別離苦  
+##### 4365#       发表于 2022-10-15 22:36
+
+好似喵
+
+*****
+
+####  反方向的波  
+##### 4366#       发表于 2022-10-15 22:36
+
+立贴为证，小强火枪的高rng要尿裤了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 4367#       发表于 2022-10-15 22:37
+
+哈哈哈哈哈哈哈哈，笑死了，畜长这波铁集锦了
+
+*****
+
+####  qty  
+##### 4368#       发表于 2022-10-15 22:37
+
+火枪守高有点麻烦
+
+*****
+
+####  嘴瓢王者  
+##### 4369#       发表于 2022-10-15 22:37
+
+这么肥的老鹿刷bkb带危险线刷关键装备没人蹲 真指望萧瑟大腿吗。
+
+fb穷这个队是真的没节奏
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4370#       发表于 2022-10-15 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928010&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-15 22:35</a>
+去年，放不出大</blockquote>
+vg永远是你的家——杰畜 啊绿
+
+*****
+
+####  你可以试试  
+##### 4371#       发表于 2022-10-15 22:37
+
+含泪打开支付宝红包
+
+*****
+
+####  米德  
+##### 4372#       发表于 2022-10-15 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927939&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-15 22:32</a>
+
+那不是bone7吗</blockquote>
+我想起来了 是bulba
+
+*****
+
+####  夏溪澪mio  
+##### 4373#       发表于 2022-10-15 22:37
+
+a'出大隐刀干什么？
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  米德  
+##### 4374#       发表于 2022-10-15 22:38
+
+含泪打开支付宝红包
+
+*****
+
+####  scg2017  
+##### 4375#       发表于 2022-10-15 22:38
+
+相信a畜，在出大影刀
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  没钱买手办  
+##### 4376#       发表于 2022-10-15 22:38
+
+隐刀TA,哥哥的出装艺术教学小组赛就开始了吗
+
+*****
+
+####  莉拉厨  
+##### 4377#       发表于 2022-10-15 22:38
+
+35不行！
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cuisite  
+##### 4378#       发表于 2022-10-15 22:38
+
+a畜不出bkb真的搞
+
+*****
+
+####  逃离二次元  
+##### 4379#       发表于 2022-10-15 22:38
+
+含泪打开支付宝红包
+
+*****
+
+####  qty  
+##### 4380#       发表于 2022-10-15 22:39
+
+我想象不出现在这3个西恩队怎么面对雪碧
+
+
+
+*****
+
+####  百世诸侯  
+##### 4381#       发表于 2022-10-15 22:39
+
+含泪打开支付宝红包
+
+*****
+
+####  nowaki  
+##### 4382#       发表于 2022-10-15 22:39
+
+红包会有吗 会有吗
+
+*****
+
+####  濡鸦之羽_  
+##### 4383#       发表于 2022-10-15 22:39
+
+bian：当做最后一把打，也不要怕输
+
+*****
+
+####  莉拉厨  
+##### 4384#       发表于 2022-10-15 22:39
+
+别搞啊，这把大隐刀有屁用啊
+下一件a了，准备带线当孤胆英雄了是吧
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  勤练带来力量  
+##### 4385#       发表于 2022-10-15 22:40
+
+我开始相信超级假赛论坛的内讧论了
+
+*****
+
+####  walfeds  
+##### 4386#       发表于 2022-10-15 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的出装全部是未来艺术
+
+*****
+
+####  cuisite  
+##### 4387#       发表于 2022-10-15 22:40
+
+ta出隐刀，漏油们学就完事了
+
+*****
+
+####  嘴瓢王者  
+##### 4388#       发表于 2022-10-15 22:40
+
+两大哥这么肥没人打架看着真的膈应
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 4389#       发表于 2022-10-15 22:40
+
+出了bkb又按不出来，为什么要出
+
+*****
+
+####  5678给  
+##### 4390#       发表于 2022-10-15 22:41
+
+鞭，我的超人！！
+
+*****
+
+####  Cookiekira  
+##### 4391#       发表于 2022-10-15 22:41
+
+我也相信内讧了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuisite  
+##### 4392#       发表于 2022-10-15 22:41
+
+量子鞭也跟森哥一样玉玉了？
+
+*****
+
+####  超级柯南迷  
+##### 4393#       发表于 2022-10-15 22:41
+
+内讧了吧，摄像头bian都看不到脸
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4394#       发表于 2022-10-15 22:41
+
+rng这是瘪式dota吧，恶心了
+看好被eg吊打
+
+*****
+
+####  非建政专用号  
+##### 4395#       发表于 2022-10-15 22:42
+
+突然想起来major里og对bc生死局，克神的ta好像是bkb出到一半转魔龙枪了？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 4396#       发表于 2022-10-15 22:42
+
+这把难道不是大鞭哥打的太差了啊。
+
+*****
+
+####  反方向的波  
+##### 4397#       发表于 2022-10-15 22:42
+
+哇这个杂贺孙市打了rng一万枪啊
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4398#       发表于 2022-10-15 22:43
+
+rng尼玛，硬来的啊？？？？
+
+*****
+
+####  百世诸侯  
+##### 4399#       发表于 2022-10-15 22:43
+
+bian被cia指头了，摄像头里看不见
+
