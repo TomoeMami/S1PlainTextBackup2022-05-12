@@ -9141,3 +9141,260 @@ b站也就看看自由基这几个了，官方频道太傻逼了
 
 这解说太不专业了，完全吸引不了观众啊
 
+
+
+*****
+
+####  adretyu67  
+##### 996#       发表于 2022-10-15 10:12
+
+睿站有英文流吗
+
+*****
+
+####  枫雨  
+##### 997#       发表于 2022-10-15 10:12
+
+还没开，真就电子竞技没有准时咯，年年都这样
+
+*****
+
+####  莉拉厨  
+##### 998#       发表于 2022-10-15 10:13
+
+电子竞技没有准时<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  柚上舍人  
+##### 999#       发表于 2022-10-15 10:13
+
+真要开个纯净流直播大家谁还去看解说
+
+*****
+
+####  walfeds  
+##### 1000#       发表于 2022-10-15 10:13
+
+老鼠台pgl只开三路直播何意啊？
+
+*****
+
+####  nerugigannte  
+##### 1001#       发表于 2022-10-15 10:14
+
+搞你妈呢，这么多年了，酒店打小组赛还他妈能迟到？
+
+*****
+
+####  StrangerJ  
+##### 1002#       发表于 2022-10-15 10:14
+
+突围赛不都挺准时的，正赛怎么又延迟了
+
+*****
+
+####  逃离二次元  
+##### 1003#       发表于 2022-10-15 10:14
+
+pgl司马
+
+*****
+
+####  百世诸侯  
+##### 1004#       发表于 2022-10-15 10:15
+
+pgl死妈
+
+*****
+
+####  Horusddt  
+##### 1005#       发表于 2022-10-15 10:15
+
+好呀，今天又准备打到12点是吧
+
+*****
+
+####  莉拉厨  
+##### 1006#       发表于 2022-10-15 10:15
+
+12点？明早十点！
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 1007#       发表于 2022-10-15 10:16
+
+<img src="https://p.sda1.dev/7/31a50591581ec5c2797174ded4b83558/Screenshot_2022-10-15-10-15-46-37_0fc56bb0559abc2fbe7530b672106a57.jpg" referrerpolicy="no-referrer">
+熊弟们我猜22点是不是有点保守了
+
+*****
+
+####  Fstt  
+##### 1008#       发表于 2022-10-15 10:16
+
+那只能全程跟着阿版看了
+
+— from Xiaomi 22041211AC, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  情商  
+##### 1009#         楼主| 发表于 2022-10-15 10:16
+
+坏了坏了，公司电脑开了梯子也打不开老鼠台，我要鱼鱼了
+
+*****
+
+####  Litccc  
+##### 1010#       发表于 2022-10-15 10:17
+
+草，rng是那个高华脸解说，吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 1011#       发表于 2022-10-15 10:17
+
+要是碰见鳖队集合，怕不是有一路线路要播到深夜了。
+
+而且今年5路全开，小组赛很多都看不到了。很多队伍的野路子阵容看不到了啊。
+
+以前看完中国队还能切到别的路线看个开头结尾。
+
+*****
+
+####  walfeds  
+##### 1012#       发表于 2022-10-15 10:17
+
+我rnm，老鼠台rng这一路是高华脸moxxi<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 1013#       发表于 2022-10-15 10:17
+
+小组赛没舞台也能不准时的，主办方真cs啊
+
+*****
+
+####  dclara1  
+##### 1014#       发表于 2022-10-15 10:18
+
+twitch是moxxi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 1015#       发表于 2022-10-15 10:18
+
+高华脸的图呢
+
+*****
+
+####  walfeds  
+##### 1016#       发表于 2022-10-15 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916008&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-15 10:18</a>
+
+高华脸的图呢</blockquote>
+让别人发鬼图是吧
+
+*****
+
+####  勤练带来力量  
+##### 1017#       发表于 2022-10-15 10:19
+
+别发鬼图，我超
+
+*****
+
+####  端木恋心  
+##### 1018#       发表于 2022-10-15 10:19
+
+我看已经改10.30开第一场了。
+
+*****
+
+####  百世诸侯  
+##### 1019#       发表于 2022-10-15 10:19
+
+我超，别
+
+*****
+
+####  柚上舍人  
+##### 1020#       发表于 2022-10-15 10:19
+
+别说了，我刚吃的早饭蠢蠢欲动了
+
+
+
+*****
+
+####  trackerList  
+##### 1021#       发表于 2022-10-15 10:19
+
+<img src="https://img.saraba1st.com/forum/202210/15/101943n4j4tvlq4rqq1dqj.png" referrerpolicy="no-referrer">
+
+<strong>moximoxi.png</strong> (20.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 10:19 上传
+
+来了来了
+
+*****
+
+####  逃离二次元  
+##### 1022#       发表于 2022-10-15 10:20
+
+pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马pgl司马
+
+*****
+
+####  端木恋心  
+##### 1023#       发表于 2022-10-15 10:20
+
+举报了举报了
+
+*****
+
+####  哈萨维·诺亚  
+##### 1024#       发表于 2022-10-15 10:20
+
+PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马
+
+*****
+
+####  sodah  
+##### 1025#       发表于 2022-10-15 10:21
+
+偏要发是吧？
+
+*****
+
+####  Litccc  
+##### 1026#       发表于 2022-10-15 10:21
+
+英文台也尬住了，没想到准备最充分的居然是杰出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 1027#       发表于 2022-10-15 10:21
+
+我超我超我超，早饭要吐出来了
+
+*****
+
+####  百世诸侯  
+##### 1028#       发表于 2022-10-15 10:21
+
+举报了
+
