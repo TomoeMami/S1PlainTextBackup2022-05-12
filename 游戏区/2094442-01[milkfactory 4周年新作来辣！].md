@@ -83,3 +83,19 @@
 
 FGO也依然有出品，碧蓝档案意外没被梗？也可能只是我看不出来
 
+
+
+*****
+
+####  LrGsite  
+##### 94#         楼主| 发表于 2022-10-15 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922776&amp;ptid=2094442" target="_blank">zooandtoo 发表于 2022-10-15 17:39</a>
+
+梗马娘真的不少。。
+
+赤骥，海湾，黑发的那个是茶座吧。
+
+FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</blockquote>
+有个妈妈的造型好像米浴，确实好像没有BA的？
+
