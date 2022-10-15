@@ -7057,3 +7057,211 @@ NA DOTO BEST DOTO
 
 什么情况？？？eg把og干了？
 
+
+
+*****
+
+####  米德  
+##### 3897#       发表于 2022-10-15 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年发现牛了一整年结果TI被削到根本玩不了 今年装蠢一整年TI再发力
+
+我觉得有这种可能
+
+*****
+
+####  莉拉厨  
+##### 3898#       发表于 2022-10-15 20:31
+
+核中核 狗庄剧本是eg小组第一 hokori第二 lgd第三 集美先别投降
+
+*****
+
+####  六娃  
+##### 3899#       发表于 2022-10-15 20:32
+
+群里有个8000分大神上午说eg有六强水平，还被窝嘲笑，这下脸肿了
+
+*****
+
+####  端木恋心  
+##### 3900#       发表于 2022-10-15 20:32
+
+BB已经0-5了不会第一天0-6吧。
+
+
+
+*****
+
+####  银翼的维罗西  
+##### 3901#       发表于 2022-10-15 20:33
+
+RTZ好恐怖，一个拍拍熊打花仙子阵容居然输出和老鹿差不多
+
+*****
+
+####  非建政专用号  
+##### 3902#       发表于 2022-10-15 20:33
+
+哥们南美 dota best dota喊了那么久，现在改美洲 dota best dota了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 3903#       发表于 2022-10-15 20:34
+
+想想fly这不就是美版卡卡，踢了eg major一轮游，回来立刻变强队<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  zhrs456  
+##### 3904#       发表于 2022-10-15 20:34
+
+这把OG紫猫浪了太多波 不然还能打 每次有点优势就少个紫猫 
+
+*****
+
+####  usoda  
+##### 3905#       发表于 2022-10-15 20:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">MAGA！
+
+*****
+
+####  蛭人  
+##### 3906#       发表于 2022-10-15 20:35
+
+很难想象，被人怒喷不打天梯的EG成为了A组实力第一。
+
+*****
+
+####  zhrs456  
+##### 3907#       发表于 2022-10-15 20:35
+
+BOXI好狠
+
+*****
+
+####  walfeds  
+##### 3908#       发表于 2022-10-15 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">fly第一个dpc去talon可是淹死在海选
+
+*****
+
+####  ninini212  
+##### 3909#       发表于 2022-10-15 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鳖鳖耶夫开始重新证明自己北美一哥的牌面不仅仅在于粉丝多赞助多
+
+*****
+
+####  isla  
+##### 3910#       发表于 2022-10-15 20:36
+
+还有ban puck的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  izayoi39  
+##### 3911#       发表于 2022-10-15 20:36
+
+bb这bp是被打懵逼了吗，这版本最强的2和3都放给对面
+
+*****
+
+####  没钱买手办  
+##### 3912#       发表于 2022-10-15 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">维萨吉的胜率怎么成这样了
+
+*****
+
+####  反方向的波  
+##### 3913#       发表于 2022-10-15 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉rng中期要被老挝人和yopaj冲死了
+
+*****
+
+####  walfeds  
+##### 3914#       发表于 2022-10-15 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57925648&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-15 20:37</a>
+
+维萨吉的胜率怎么成这样了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那当然是感谢各位绝活哥的精彩表现
+
+*****
+
+####  坚定的团子党  
+##### 3915#       发表于 2022-10-15 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57925641&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-15 20:36:11</a>
+fly第一个dpc去talon可是淹死在海选</blockquote>卡卡被ig踢了之后不也找脑11组队征战海选，然后一轮游<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  izayoi39  
+##### 3916#       发表于 2022-10-15 20:39
+
+看了今天og的比赛就明白了，og的bp还是上个版本的，就是靠三大哥手活够硬来硬吃对面，碰到实力差得不远的就懵逼了
+
+*****
+
+####  六娃  
+##### 3917#       发表于 2022-10-15 20:39
+
+我超，蔡宜风代打
+
+*****
+
+####  哈萨维·诺亚  
+##### 3918#       发表于 2022-10-15 20:39
+
+PGL这么草台么
+
+*****
+
+####  Asukalangley33  
+##### 3919#       发表于 2022-10-15 20:40
+
+这个PGL真的低能
+
+放个木犀照片上来
+
+<img src="https://img.saraba1st.com/forum/202210/15/203943klhjaohclhhidada.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221015203920.png</strong> (57.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 20:39 上传
+
+*****
+
+####  反方向的波  
+##### 3920#       发表于 2022-10-15 20:40
+
+哈人，pgl给老挝人的头像是mushi
+
+*****
+
+####  izayoi39  
+##### 3921#       发表于 2022-10-15 20:40
+
+维萨吉这英雄敢放的都是清楚对面的3玩得不好吧
+
+*****
+
+####  银翼的维罗西  
+##### 3922#       发表于 2022-10-15 20:40
+
+这把霉憋也可以出法师克星，打对面两把法师克星就好打了
+
