@@ -1549,3 +1549,483 @@ lgd不可能不懂这个道理吧，把把都是三路劣等着拖中后期何�
 
 太乐了，明天来两队给rng上上强度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  roger_goodell  
+##### 4696#       发表于 2022-10-15 23:23
+
+明天og 液体四比零暴打lgd了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 4697#       发表于 2022-10-15 23:23
+
+lgd线劣的问题ti10就有了，ame要不是一路打皮鞋过来，早就去败者组了
+
+*****
+
+####  Avantasi  
+##### 4698#       发表于 2022-10-15 23:24
+
+大鞭哥不会真的在这个时候在这条世界线润德国吧，哪怕北欧都好啊
+
+*****
+
+####  tengshuo980  
+##### 4699#       发表于 2022-10-15 23:24
+
+相信超哥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星野航  
+##### 4700#       发表于 2022-10-15 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928904&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-16 00:18</a>
+
+我是去年的贷款高楼发帖人
+
+就去年那个隐晦贷款的大高楼，我发的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可太典了
+
+这么着急是吧，顺带就引到这种东西上，集美确实是没脑没心
+
+*****
+
+####  Litccc  
+##### 4701#       发表于 2022-10-15 23:24
+
+清真鲈鱼又开始高强度干活了，不过只删对lgd不利的帖子，让我想起了全世界最好的二哈
+
+*****
+
+####  银翼的维罗西  
+##### 4702#       发表于 2022-10-15 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928955&amp;ptid=2099454" target="_blank">不应 发表于 2022-10-15 23:21</a>
+
+明天lgd打og和李逵，基本是两个0比2。后天就可以买机票回家了</blockquote>
+李逵我看也不厉害，和RNG半斤八两，明天老干鳖估计能拿两分
+
+*****
+
+####  bluebaby  
+##### 4703#       发表于 2022-10-15 23:24
+
+lgd三路劣不是bp劣是打劣了啊，这个就没办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DearRye  
+##### 4704#       发表于 2022-10-15 23:25
+
+“撸狗是真的有点多了”，撸狗确实证明了这一点<img src="https://p.sda1.dev/7/e55ed3df93a7bbd57555991b1e9e6c5f/CMP_20221015232416900.png" referrerpolicy="no-referrer">
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 4705#       发表于 2022-10-15 23:25
+
+ame对线可是连axx小刘都打不过的
+
+*****
+
+####  憧憬鲨  
+##### 4706#       发表于 2022-10-15 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了一天把人看萎了，LGD现在还有进胜者组的希望吗
+
+*****
+
+####  情商  
+##### 4707#         楼主| 发表于 2022-10-15 23:25
+
+盲猜是夜饮潇湘举报的
+
+*****
+
+####  哈萨维·诺亚  
+##### 4708#       发表于 2022-10-15 23:25
+
+批站弹幕举报人多了就会封，怀念艹艹惹<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DearRye  
+##### 4709#       发表于 2022-10-15 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57929018&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-15 23:25</a>
+盲猜是夜饮潇湘举报的</blockquote>
+那倒不是，我说这话的时候他还在调侃确实是
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  二宮飛鳥酱  
+##### 4710#       发表于 2022-10-15 23:26
+
+杰出举报的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  外挂全家脚气  
+##### 4711#       发表于 2022-10-15 23:26
+
+RNG有啥希望，KAKA刚来就说是去年IG的低配，现在打得这个样子还行吧，不过能走多远是个疑问
+
+今天看下来有点戏的也只是茶而已，但也仅仅只是有点戏
+
+至于LGD，我前面就说过，这种最后一年最后冲一次的基本上都是悲剧结尾，所以LGD可能比RNG成绩还差
+
+好消息是LGD不是最强了，CN DOTA最黑暗的时候过去了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 海原穹乃|-1|死妈撸狗怎么还赖着不走了？|
+
+查看全部评分
+
+*****
+
+####  IG.430  
+##### 4712#       发表于 2022-10-15 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928932&amp;ptid=2099454" target="_blank">夏溪澪mio 发表于 2022-10-15 23:20</a>
+梦幻挑战没人发作业吗
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+这个是取单场最高，所以只要不是一把不赢，小组赛你放词条好的金卡就行了
+
+铜卡全部炼掉，赌金色冠超，用过都说好，出不了也不要太强求。金卡差不多了就留碎片，等淘汰赛了按照小组排名赌强队的金卡。
+
+*****
+
+####  哈萨维·诺亚  
+##### 4713#       发表于 2022-10-15 23:26
+
+相信my boy！
+
+*****
+
+####  百世诸侯  
+##### 4714#       发表于 2022-10-15 23:26
+
+<img src="https://img.saraba1st.com/forum/202210/15/232650w4psmmb9o9433rb9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 23:26 上传
+
+来了来了
+
+*****
+
+####  zhacaizn  
+##### 4715#       发表于 2022-10-15 23:26
+
+上次是克格勃，这次是开除国籍，确实有点搞笑
+
+*****
+
+####  你可以试试  
+##### 4716#       发表于 2022-10-15 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 4717#       发表于 2022-10-15 23:27
+
+b友也就这点出息了。我在某个绿色管人直播间骂两句刀狗屁事没有，骂两句撸狗就给我封了一天。
+
+*****
+
+####  fopinecone  
+##### 4718#       发表于 2022-10-15 23:27
+
+版主自己都在玩撸狗梗好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  BloodWingS  
+##### 4719#       发表于 2022-10-15 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928992&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-15 23:24</a>
+
+大鞭哥不会真的在这个时候在这条世界线润德国吧，哪怕北欧都好啊</blockquote>
+为了爱情，懂又不懂啊漏油
+
+*****
+
+####  roxas.sora  
+##### 4720#       发表于 2022-10-15 23:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">明天lgd会不会出现要rng让分的情况，有节目效果了啊
+
+*****
+
+####  nowaki  
+##### 4721#       发表于 2022-10-15 23:27
+
+茶茶今天打得其实还可以了，看看明天打克神检验下真实强度
+
+*****
+
+####  5678给  
+##### 4722#       发表于 2022-10-15 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928904&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-15 23:18</a>
+我是去年的贷款高楼发帖人
+
+就去年那个隐晦贷款的大高楼，我发的</blockquote>
+怎么连政治问题都来了？集美藏了这么久，憋不住了？
+
+*****
+
+####  哈萨维·诺亚  
+##### 4723#       发表于 2022-10-15 23:27
+
+注：双修畜、假赛狗、管人痴与毒狗不得入内
+
+*****
+
+####  UnhappyTails  
+##### 4724#       发表于 2022-10-15 23:27
+
+<img src="https://s3.bmp.ovh/imgs/2022/10/15/f9581af6eeafbc27.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://s3.bmp.ovh/imgs/2022/10/15/21d553617a178c51.jpeg" referrerpolicy="no-referrer">
+
+今日积分榜
+
+*****
+
+####  蛭人  
+##### 4725#       发表于 2022-10-15 23:28
+
+回去看了下统计数据，经典输出不如四号位。
+
+<img src="https://img.saraba1st.com/forum/202210/15/232808r9chdctf3a3s4hcf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 23:28 上传
+
+*****
+
+####  端木恋心  
+##### 4726#       发表于 2022-10-15 23:28
+
+所以鞭哥女友定居德国了？
+
+*****
+
+####  莉拉厨  
+##### 4727#       发表于 2022-10-15 23:28
+
+大鞭哥以为提前退役能躲节奏没想到节奏更大了，乐
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 4728#       发表于 2022-10-15 23:28
+
+哥们儿又不是不会上液体百科
+
+*****
+
+####  反方向的波  
+##### 4729#       发表于 2022-10-15 23:28
+
+超级假赛论坛怎么清蒜蜗壳粉丝的料都是你楼嚼剩下的，不过我翻了半天还没有东野奎吾那条
+
+*****
+
+####  二宮飛鳥酱  
+##### 4730#       发表于 2022-10-15 23:28
+
+unhappytails如何看待EG今天豪取6胜啊
+
+*****
+
+####  情商  
+##### 4731#         楼主| 发表于 2022-10-15 23:28
+
+我数了一下，一天4300回复，几十个复读机贡献了s1一半的流量
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  你可以试试  
+##### 4732#       发表于 2022-10-15 23:29
+
+玛尔斯伤害没哥哥高，清算！
+
+*****
+
+####  你可以试试  
+##### 4733#       发表于 2022-10-15 23:29
+
+我数了一下，一天4300回复，几十个复读机贡献了s1一半的流量
+
+*****
+
+####  Litccc  
+##### 4734#       发表于 2022-10-15 23:29
+
+东野魁梧，谢谢支持
+
+*****
+
+####  千千千千鸟  
+##### 4735#       发表于 2022-10-15 23:29
+
+rng最强rng最强rng最强！
+
+超哥最强超哥最强超哥最强！
+
+*****
+
+####  夜光铃  
+##### 4736#       发表于 2022-10-15 23:29
+
+集美论坛这是把以往决赛日的故事提前放送了？
+
+*****
+
+####  莉拉厨  
+##### 4737#       发表于 2022-10-15 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57929071&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-15 23:28</a>
+回去看了下统计数据，经典输出不如四号位。</blockquote>
+哦牛逼，超鬼玛尔斯输出只比五姐肥ta低600
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈萨维·诺亚  
+##### 4738#       发表于 2022-10-15 23:29
+
+东野魁梧，谢谢支持
+
+*****
+
+####  5678给  
+##### 4739#       发表于 2022-10-15 23:29
+
+你们只记得尾巴看不上eg，却不记得尾巴看得上的boom连处长都不如！
+
+*****
+
+####  逃离二次元  
+##### 4740#       发表于 2022-10-15 23:30
+
+unhappytails如何看待EG今天豪取6胜啊
+
+
+
+*****
+
+####  tengshuo980  
+##### 4741#       发表于 2022-10-15 23:30
+
+看好lgd明天直接滚
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  月亮与五块钱  
+##### 4742#       发表于 2022-10-15 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928904&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-15 23:18</a>
+
+我是去年的贷款高楼发帖人
+
+就去年那个隐晦贷款的大高楼，我发的</blockquote>
+这啥跟啥，你是哪的人和打的咋样有啥关系，美国人就不要ti奖金了是吧。队里莫言本身就不是国人，大了说量子国籍影响谷爱凌夺冠了吗？
+
+无非就是钱赚够了没有取胜的心了，对成绩没有追求，水平下滑ti随便捡点钱了事。
+
+刀塔本身是个开放的竞技比赛，唯国际论太狭隘了，除了中国从业人数稳定，欧美东南亚人员都是乱跑的。
+
+*****
+
+####  莉拉厨  
+##### 4743#       发表于 2022-10-15 23:30
+
+东野贵物，谢谢支持
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 4744#       发表于 2022-10-15 23:30
+
+漏油们看好的ett 1-3呀
+
+*****
+
+####  bluebaby  
+##### 4745#       发表于 2022-10-15 23:30
+
+不知道明天有没有施舍看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 4746#       发表于 2022-10-15 23:31
+
+晚安漏油们 明天还要看一天 后天就上班了<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 4747#       发表于 2022-10-15 23:31
+
+nowaki这时候还在给尾巴哥说话，哭了哭了
+
+*****
+
+####  TI三冠王AME  
+##### 4748#       发表于 2022-10-15 23:31
+
+我数了一下，一天4300回复，几十个复读机贡献了s1一半的流量
+
+*****
+
+####  fopinecone  
+##### 4749#       发表于 2022-10-15 23:31
+
+雪碧去年第一天0-6，相信pure！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
