@@ -4067,3 +4067,413 @@ bb经验还是不足啊
 
 秘密应该是翻了，水人一变血魔bc直接尿<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我爱撩菜  
+##### 3505#       发表于 2022-10-15 18:13
+
+李逵舒服，这也能翻
+
+*****
+
+####  一品堂官  
+##### 3506#       发表于 2022-10-15 18:13
+
+查猪上个核心三的版本就不太行 喜欢玩这种清道夫角色 以后还能转酱油加教练 想好后路了属于
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  外挂全家脚气  
+##### 3507#       发表于 2022-10-15 18:13
+
+外卡也有几颗牙！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 3508#       发表于 2022-10-15 18:13
+
+这么大的红包只拿了一块钱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 3509#       发表于 2022-10-15 18:13
+
+我还以为只加一个口音，没想到老北京口音这么地道。
+
+*****
+
+####  万世创伤伊莫库  
+##### 3510#       发表于 2022-10-15 18:13
+
+液体真翻了，秘密应该也快了，我人真晕了，这就是美洲Dota吗？
+
+
+
+*****
+
+####  米德  
+##### 3511#       发表于 2022-10-15 18:13
+
+我还以为只加一个口音，没想到老北京口音这么地道。
+
+*****
+
+####  逃离二次元  
+##### 3512#       发表于 2022-10-15 18:13
+
+我还以为只加一个口音，没想到老北京口音这么地道。
+
+*****
+
+####  cobymar  
+##### 3513#       发表于 2022-10-15 18:13
+
+娟儿到时候要是胡说偶像是该黑脸还是和她家人连麦呢
+
+*****
+
+####  你可以试试  
+##### 3514#       发表于 2022-10-15 18:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">我是假超人
+
+*****
+
+####  zhrs456  
+##### 3515#       发表于 2022-10-15 18:14
+
+喝可乐了 谢谢漏友<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 3516#       发表于 2022-10-15 18:14
+
+我还以为只加一个口音，没想到老北京口音这么地道。
+
+*****
+
+####  TI三冠王AME  
+##### 3517#       发表于 2022-10-15 18:14
+
+我还以为只加一个口音，没想到老北京口音这么地道。
+
+*****
+
+####  阿垃垃圾历  
+##### 3518#       发表于 2022-10-15 18:14
+
+土娟今天的造型还不错呢  
+
+*****
+
+####  吃货红毛  
+##### 3519#       发表于 2022-10-15 18:14
+
+奇怪 那怎么没SCCC 难道明天
+
+*****
+
+####  Quark  
+##### 3520#       发表于 2022-10-15 18:14
+
+我还以为只加一个口音，没想到老北京口音这么地道。
+
+*****
+
+####  walfeds  
+##### 3521#       发表于 2022-10-15 18:15
+
+我真不是小超人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 3522#       发表于 2022-10-15 18:15
+
+可以可以，终于让哥们儿抢到一个，漏油能处<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Acatv  
+##### 3523#       发表于 2022-10-15 18:15
+
+好呀好呀 手真快啊你们这些csdx
+
+*****
+
+####  一品堂官  
+##### 3524#       发表于 2022-10-15 18:15
+
+出错8次啦 加几个儿啊
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  万世创伤伊莫库  
+##### 3525#       发表于 2022-10-15 18:15
+
+脑东京教你玩卡尔(
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 3526#       发表于 2022-10-15 18:15
+
+尼玛这么地道的口音漏油也那么快？
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 3527#       发表于 2022-10-15 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923449&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-15 18:15</a>
+出错8次啦 加几个儿啊
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+全加
+
+*****
+
+####  azccc52  
+##### 3528#       发表于 2022-10-15 18:15
+
+好呀好呀 手真快啊你们这些csdx
+
+*****
+
+####  迷途lite  
+##### 3529#       发表于 2022-10-15 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天第一个，这下人生如意了
+
+*****
+
+####  反方向的波  
+##### 3530#       发表于 2022-10-15 18:16
+
+要打的儿太多了没抢到，rng给我输
+
+*****
+
+####  TI三冠王AME  
+##### 3531#       发表于 2022-10-15 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923449&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-15 18:15</a>
+
+出错8次啦 加几个儿啊
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+卡儿卡儿我儿要儿玩儿老儿鹿儿
+
+有几个字加几个儿，已经领完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  azccc52  
+##### 3532#       发表于 2022-10-15 18:16
+
+该看脑东京教你玩卡尔了
+
+*****
+
+####  阿垃垃圾历  
+##### 3533#       发表于 2022-10-15 18:16
+
+csdx啊  我一个都没抢到 明明我是铁血小超人  集美 管人痴 小团体 双修狗不准抢红包
+
+*****
+
+####  情商  
+##### 3534#         楼主| 发表于 2022-10-15 18:16
+
+哦儿牛儿皮儿，打儿完儿了儿没儿了儿
+
+*****
+
+####  一品堂官  
+##### 3535#       发表于 2022-10-15 18:17
+
+故意为难漏油啊，输了几分钟没抢到？
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  qty  
+##### 3536#       发表于 2022-10-15 18:17
+
+打到现在貌似OG的状态最好啊
+
+*****
+
+####  你可以试试  
+##### 3537#       发表于 2022-10-15 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">原来这么地道
+
+*****
+
+####  我爱撩菜  
+##### 3538#       发表于 2022-10-15 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我也是小超人啊，再发多一次啊
+
+*****
+
+####  六娃  
+##### 3539#       发表于 2022-10-15 18:18
+
+冠超说我一周打5把天梯这表现服不服老哥们
+
+*****
+
+####  啊哈  
+##### 3540#       发表于 2022-10-15 18:18
+
+连麦解说   鳖：这个非常猛。土娟用点头回应
+
+
+
+*****
+
+####  walfeds  
+##### 3541#       发表于 2022-10-15 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">快进到eg暴打og
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 3542#       发表于 2022-10-15 18:18
+
+只能说灵性的漏油还是很多的，30秒就有3个人对了，3分钟不到就抢完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Imanmi  
+##### 3543#       发表于 2022-10-15 18:18
+
+eet这个蜘蛛是不是要乱杀了
+
+*****
+
+####  我爱撩菜  
+##### 3544#       发表于 2022-10-15 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">观摩了一下ams+偶像组合 。2个不如各自开直播自己说吧
+
+*****
+
+####  nightmare902015  
+##### 3545#       发表于 2022-10-15 18:20
+
+ett也太迷信四号位sven了吧，真的有这么强吗
+
+*****
+
+####  我爱撩菜  
+##### 3546#       发表于 2022-10-15 18:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下次我也要想个要猜的密码红包才行 。妈的要不漏油们给几个意见我综合一下
+
+*****
+
+####  Troywest  
+##### 3547#       发表于 2022-10-15 18:20
+
+不会是鳖式dota了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 3548#       发表于 2022-10-15 18:20
+
+kataomi比kaka还英雄勺，望周知
+
+*****
+
+####  zhliiiii  
+##### 3549#       发表于 2022-10-15 18:20
+
+我只觉得悲伤😞  历年来的cnDOTA遮羞布 也遮不住了吗  真的很难过  口下积德吧
+
+*****
+
+####  zhliiiii  
+##### 3550#       发表于 2022-10-15 18:20
+
+很简单，每年辛辛苦苦进决赛，虽然没拿到冠军但场上场下都是费尽心力，要跟队友博弈还要跟网友对线。说实话，是我的话早就累了，反正只要拿不到冠军，水友最后还是往死里喷，不如随心所欲享受比赛。就菜了，就摆烂了，就技不如人了，咋了？打得好有人喝彩吗？打的努力有人加油嘛？打出成绩，有人接受吗？只要不是冠军结果都是一样的，累了，倦了，疲了，还是早点结束吧，省得最后又是心力交瘁…
+
+*****
+
+####  nowaki  
+##### 3551#       发表于 2022-10-15 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923535&amp;ptid=2099454" target="_blank">我爱撩菜 发表于 2022-10-15 18:20</a>
+
+下次我也要想个要猜的密码红包才行 。妈的要不漏油们给几个意见我综合一下 ...</blockquote>
+建议用香槟的歌词 xxx下一句这样
+
+*****
+
+####  情商  
+##### 3552#         楼主| 发表于 2022-10-15 18:21
+
+很简单，每年辛辛苦苦进决赛，虽然没拿到冠军但场上场下都是费尽心力，要跟队友博弈还要跟网友对线。说实话，是我的话早就累了，反正只要拿不到冠军，水友最后还是往死里喷，不如随心所欲享受比赛。就菜了，就摆烂了，就技不如人了，咋了？打得好有人喝彩吗？打的努力有人加油嘛？打出成绩，有人接受吗？只要不是冠军结果都是一样的，累了，倦了，疲了，还是早点结束吧，省得最后又是心力交瘁…
+
+*****
+
+####  zhliiiii  
+##### 3553#       发表于 2022-10-15 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 3554#       发表于 2022-10-15 18:21
+
+沙雕怎么那么，哈哈哈哈哈
+
+*****
+
+####  woyzeck  
+##### 3555#       发表于 2022-10-15 18:21
+
+我只觉得悲伤😞  历年来的cnDOTA遮羞布 也遮不住了吗  真的很难过  口下积德吧
+
+*****
+
+####  nightmare902015  
+##### 3556#       发表于 2022-10-15 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923535&amp;ptid=2099454" target="_blank">我爱撩菜 发表于 2022-10-15 18:20</a>
+下次我也要想个要猜的密码红包才行 。妈的要不漏油们给几个意见我综合一下 ...</blockquote>
+迷题：现在b站舰长数最多的完美旗下管人是——
+
+*****
+
+####  你可以试试  
+##### 3557#       发表于 2022-10-15 18:21
+
+建议直接私发我
+
+*****
+
+####  啊哈  
+##### 3558#       发表于 2022-10-15 18:21
+
+<blockquote>吃货红毛 发表于 2022-10-15 18:14
+奇怪 那怎么没SCCC 难道明天</blockquote>
+小组赛都没他，应该是要去线下解说淘汰赛
+
