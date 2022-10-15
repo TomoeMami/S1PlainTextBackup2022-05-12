@@ -280,3 +280,12 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  NZ-333  
+##### 641#       发表于 2022-10-15 16:40
+
+龟龟，仁叔这怪人性化的
+
