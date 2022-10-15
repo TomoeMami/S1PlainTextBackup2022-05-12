@@ -7265,3 +7265,95 @@ PGL这么草台么
 
 这把霉憋也可以出法师克星，打对面两把法师克星就好打了
 
+
+
+*****
+
+####  walfeds  
+##### 3923#       发表于 2022-10-15 20:43
+
+代打还行
+
+*****
+
+####  反方向的波  
+##### 3924#       发表于 2022-10-15 20:44
+
+哈人，怎么boom双游都出来了
+
+*****
+
+####  izayoi39  
+##### 3925#       发表于 2022-10-15 20:44
+
+fly虽然现在手活不行了，但是bp功底还是在的啊，fly我记得算是bp优势率最高的几个bp手了
+
+*****
+
+####  qty  
+##### 3926#       发表于 2022-10-15 20:44
+
+啥情况？刚点进去就看见卡卡暴毙
+
+*****
+
+####  walfeds  
+##### 3927#       发表于 2022-10-15 20:45
+
+杀潮汐杀了一百年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 3928#       发表于 2022-10-15 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57925597&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-15 20:33</a>
+RTZ好恐怖，一个拍拍熊打花仙子阵容居然输出和老鹿差不多</blockquote>
+cnRTZ早就要求二手ban花仙子了。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  外挂全家脚气  
+##### 3929#       发表于 2022-10-15 20:45
+
+卡卡暴毙不是很自然么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 3930#       发表于 2022-10-15 20:45
+
+笑不动了，boom4分钟4人搓中，霉鳖：玩nm
+
+
+
+*****
+
+####  六娃  
+##### 3931#       发表于 2022-10-15 20:47
+
+rng不会兽和马西，进了淘汰赛要被乱干
+
+*****
+
+####  外挂全家脚气  
+##### 3932#       发表于 2022-10-15 20:49
+
+4台这解说<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏西踩到我了  
+##### 3933#       发表于 2022-10-15 20:50
+
+这把lgd赢了，这沙币战队ban谜团维萨吉什么狗屁理解，而lgd选火猫陈上强度了
+
+*****
+
+####  proselyte  
+##### 3934#       发表于 2022-10-15 20:51
+
+火猫和陈？
+

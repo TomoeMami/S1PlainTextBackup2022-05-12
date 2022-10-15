@@ -1387,3 +1387,19 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 这波操作属实是逆天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也行吧，起码给呼延灼保留了一丝最后的尊严
 
+
+
+*****
+
+####  壳壳牛  
+##### 3118#       发表于 2022-10-15 20:46
+
+倒是把名字改了啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  我不太会吹  
+##### 3119#       发表于 2022-10-15 20:48
+
+这下梵高2.0了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
