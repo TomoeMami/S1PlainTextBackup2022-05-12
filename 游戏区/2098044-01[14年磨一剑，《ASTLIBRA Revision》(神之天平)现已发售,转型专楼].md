@@ -1750,3 +1750,15 @@ https://w.atwiki.jp/astlibra/sp/list
 我直接走的话会卡在这个角落，后面打完boss拿到鞋子后才能正常走过去 ...</blockquote>
 其实跳一下就可以过版了
 
+
+
+*****
+
+####  jy000129  
+##### 169#       发表于 2022-10-15 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918946&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-15 13:30</a>
+
+沼泽第二面有青蛙哪里道中被围着的那个宝箱怎么拿啊</blockquote>
+地精大门钥匙可以顺手开这里
+

@@ -8643,3 +8643,24 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 可可是否可以达成唯一无个人回无C位无个人曲的三无角色，就看第三季了
 
+
+
+*****
+
+####  ruffian  
+##### 8314#       发表于 2022-10-15 13:53
+
+说不定呢。回国包袱已经甩掉了，就算有个人回也不过是像这期恋回一样耍宝一集，就这样一集也未必愿意给。独唱和c位就更别想了，12个人诶，二期生还有人没c呢凭啥轮到你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cxj649  
+##### 8315#       发表于 2022-10-15 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919180&amp;ptid=2078110" target="_blank">剁 发表于 2022-10-15 13:48</a>
+
+可可是否可以达成唯一无个人回无C位无个人曲的三无角色，就看第三季了</blockquote>
+个人曲还是有的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
