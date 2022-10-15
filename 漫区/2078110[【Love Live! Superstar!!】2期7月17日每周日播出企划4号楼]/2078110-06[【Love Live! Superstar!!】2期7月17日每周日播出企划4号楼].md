@@ -8381,3 +8381,65 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 特别是牵扯到批判角色就会连带引出群体对立，动画片是死的，观众是活的，到头来也是让更多人不爽或是提供乐子。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8293#       发表于 2022-10-15 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916697&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-15 11:04</a>
+
+堇在可可面前调侃ll我印象中有好几次啊，但是天平往可可那边倾斜的太多是真的。而且不说别的，星团动画时间 ...</blockquote>
+对大赛一问三不知这件事堇以外的人基本都是这样（第一季），全都要可可科普。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+第二季好一点，有芽衣和可可一起闹了，而且第七集堇也有去主动调查大赛信息。
+
+这也是为什么我觉得Liella不像一个团队的原因之一，连一同奋斗的目标都只有一两个人清楚，这样的队伍真的有凝聚力吗？
+
+更何况星动画时间跳跃很快，你们这么多时间里难道只顾着训练了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在时间如此快速的情况下，角色基本没有变化就很有问题。
+
+比如堇总是吐槽可可的基建，这也是可堇互怼的劣化版（火药味没那么重）。可是都过了这么久（拿神津岛基建作起点快一年了），堇你还是不理解可可为什么要这么做吗？上来帮把手我都可以把这当做可堇的成长了。
+
+制作组对星内部的互动真的非常浅层，或者说就是摆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 8294#       发表于 2022-10-15 11:34
+
+我对可堇最大的不满就在这里，可可跟其他人相处时都很正常一碰见堇就跟变了个人一样，堇和可可捆绑之前也并不是什么好脾气人设吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aoaoaodedede  
+##### 8295#       发表于 2022-10-15 11:35
+
+还是想看看新颖一点的观点或者是更专业的解读，只不过有些要么是完全浮于表面，要么是老观点了
+
+*****
+
+####  ruffian  
+##### 8296#       发表于 2022-10-15 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917252&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-15 11:34:48</a>
+对大赛一问三不知这件事堇以外的人基本都是这样（第一季），全都要可可科普。
+
+ ...</blockquote>但是其他人没有听完科普之后再贬一句啊，而堇对lovelive至少是口头上的轻视一直持续到第9集，这也是俩人一期时一直不对付的根源。不过第9集可可没怼她而是拿出视频让堇服了，堇对学园偶像是有一条从轻视到认同再到重视的暗线在的。星的暗线大都乱七八糟，堇心态上的转变和从“我”到“我们”的成长是收得比较完美的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 8297#       发表于 2022-10-15 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917372&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-15 11:41:30</a>
+但是其他人没有听完科普之后再贬一句啊，而堇对lovelive至少是口头上的轻视一直持续到第9集，这也是俩人一 ...</blockquote>就是有点费可可<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
