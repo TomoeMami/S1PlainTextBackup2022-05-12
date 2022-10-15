@@ -1577,3 +1577,17 @@ https://w.atwiki.jp/astlibra/sp/list
 是不是需要穿免疫地形伤害的那个装备？
 我试过直接从右边房间左下角趟岩浆走，走不过去
 
+
+
+*****
+
+####  casle  
+##### 154#       发表于 2022-10-15 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916755&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-10-15 11:06</a>
+
+是不是需要穿免疫地形伤害的那个装备？
+
+我试过直接从右边房间左下角趟岩浆走，走不过去 ...</blockquote>
+拿了那个鞋子去也可以，我是血够厚硬走过去的
+

@@ -143,3 +143,19 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 629#       发表于 2022-10-15 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916233&amp;ptid=2040765" target="_blank">柳柳昭陵 发表于 2022-10-15 10:34</a>
+
+完全是武居打戏一泡污的问题</blockquote>
+说实话变奇迹只是为了闪到对方那变强壮已经有点意义不明了）
+
+结果强壮几下吃瘪又变奇迹然后继续变强壮……
+
+您老到底想怎么打
+

@@ -8372,3 +8372,12 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  darkendless  
+##### 8292#       发表于 2022-10-15 11:25
+
+特别是牵扯到批判角色就会连带引出群体对立，动画片是死的，观众是活的，到头来也是让更多人不爽或是提供乐子。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

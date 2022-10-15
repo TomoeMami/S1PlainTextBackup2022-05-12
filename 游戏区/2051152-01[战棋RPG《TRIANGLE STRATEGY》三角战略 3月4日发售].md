@@ -47,3 +47,16 @@
 
 女主的cv和mio是一个人，一开始还没听出来，然后我又补了个番，叫回复术士的重启人生，怎么说，有点爽。
 
+
+
+*****
+
+####  Aresu  
+##### 1335#       发表于 2022-10-15 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911778&amp;ptid=2051152" target="_blank">Beavis 发表于 2022-10-14 22:13</a>
+不死羽饰的取得有几点想问
+复活耳环、绝技复活、奥义复活、死人后撤退重打
+这几个手段能用吗？</blockquote>
+绝技不行 其他都可以
+

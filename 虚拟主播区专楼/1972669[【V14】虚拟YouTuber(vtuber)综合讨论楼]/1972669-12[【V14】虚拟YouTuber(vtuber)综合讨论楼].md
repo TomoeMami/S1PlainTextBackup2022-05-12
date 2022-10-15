@@ -11783,3 +11783,22 @@ ui4s突然的突
 
 看了下队练，虽然依然有一些我觉得不太平衡的队但总体还是挺有趣的所以完全可以接受，这次与我挺不满的上一届相比的最大区别可能就是一个随机组队，感觉liver主办避火的方法一是跟运营合办，二是将一切交给随机。自己觉得“某些内容很好所以要自己办”“按我的方法组一定更有趣”的话不管最后办得如何主办都必被喷。顺便一说我挺高兴虾勇没继续当主办的。
 
+
+
+*****
+
+####  毛头小希  
+##### 17579#       发表于 2022-10-15 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57915004&amp;ptid=1972669" target="_blank">Porsche 发表于 2022-10-15 08:50</a>
+
+我仔细在找联动的要素在哪，终于发现每个人都套了个球队臂章
+
+彩虹真尼玛的是越有钱越抠，生日谷缩 ...</blockquote>
+姑且还是有每人出新图的，正常比例Q版各一套，而且难得的没有崩，在虹谷图里算是质量不错的
+
+至于为啥布娃娃就是直接换头量产就不清楚了……
+
+具体看这个网址↓
+[https://collection.rakuten.net/c ... c-league_nijisanji/](https://collection.rakuten.net/c-league_nijisanji/https://collection.rakuten.net/c-league_nijisanji/)
+
