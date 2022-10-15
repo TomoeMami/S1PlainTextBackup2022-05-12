@@ -5723,3 +5723,265 @@ lgd菜成这样，ru水怎么喝
 
 目前来看火卡比冰雷卡的show多一些，看来奇迹卡的含金量比拓普卡高
 
+
+
+*****
+
+####  qty  
+##### 3726#       发表于 2022-10-15 19:11
+
+看到现在其他两个西恩队都算正常发挥，就nm老干瘪第一天就尿一地
+
+*****
+
+####  坚定的团子党  
+##### 3727#       发表于 2022-10-15 19:12
+
+杜鹏水人冥场面的还得是三核水人被单核ta翻盘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 3728#       发表于 2022-10-15 19:12
+
+什么时候卡尔能再拿一次冠军
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  非建政专用号  
+##### 3729#       发表于 2022-10-15 19:13
+
+看了下野王的发条有把a，发条a的强度这么高的?
+
+*****
+
+####  nightmare902015  
+##### 3730#       发表于 2022-10-15 19:13
+
+干嘛，当着你四个人面我就波高了，有脾气吗
+
+*****
+
+####  proselyte  
+##### 3731#       发表于 2022-10-15 19:14
+
+ 本帖最后由 proselyte 于 2022-10-15 19:15 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/15/191553oxzrlr7nrn22all5.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (7.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 19:15 上传
+
+*****
+
+####  外挂全家脚气  
+##### 3732#       发表于 2022-10-15 19:14
+
+鹏哥高地1打5<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 3733#       发表于 2022-10-15 19:14
+
+这水人玩爽了
+
+*****
+
+####  IG.430  
+##### 3734#       发表于 2022-10-15 19:14
+
+除了跳跳不会卡尔，冠军中单都是卡尔王吧<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 3735#       发表于 2022-10-15 19:14
+
+鹏子高光了！
+
+*****
+
+####  tengshuo980  
+##### 3736#       发表于 2022-10-15 19:14
+
+鹏哥发飙了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  轮太  
+##### 3737#       发表于 2022-10-15 19:14
+
+正确的波高水人
+
+变虚空跳回来
+
+*****
+
+####  情商  
+##### 3738#         楼主| 发表于 2022-10-15 19:14
+
+Monet这水人玩的我蚌埠住了
+
+*****
+
+####  米德  
+##### 3739#       发表于 2022-10-15 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水人波高 卡尔B刀
+
+*****
+
+####  二宮飛鳥酱  
+##### 3740#       发表于 2022-10-15 19:15
+
+鹏哥波高地愣是打出了两个买活才死，笑嘻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 3741#         楼主| 发表于 2022-10-15 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57924381&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-15 19:14</a>
+除了跳跳不会卡尔，冠军中单都是卡尔王吧</blockquote>
+S4也不会啊
+
+*****
+
+####  Hieda  
+##### 3742#       发表于 2022-10-15 19:15
+
+爽局<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 3743#       发表于 2022-10-15 19:15
+
+那就再加个s4吧<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 3744#       发表于 2022-10-15 19:15
+
+感觉除了lgd，强队还是强队啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 3745#       发表于 2022-10-15 19:16
+
+mikoto预选透支了，正赛直接偿还
+
+*****
+
+####  月亮与五块钱  
+##### 3746#       发表于 2022-10-15 19:16
+
+爽局，老鹿优势局吸血太摁了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qty  
+##### 3747#       发表于 2022-10-15 19:17
+
+笑死了，虚空大住两个结果一个没打死
+
+*****
+
+####  天堂蜘蛛  
+##### 3748#       发表于 2022-10-15 19:17
+
+看到现在其他两个西恩队都算正常发挥，就nm老干瘪第一天就尿一地
+
+*****
+
+####  枯风瘦雪02  
+##### 3749#       发表于 2022-10-15 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57924359&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-15 19:13</a>
+看了下野王的发条有把a，发条a的强度这么高的?</blockquote>
+起码占一个视野掌控，A杖过载那段时间从无到有点亮一条线地图毫无压力。更别说送的cs一样的200攻速
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  迷途lite  
+##### 3750#       发表于 2022-10-15 19:17
+
+刚发现谢斌大肠的组合可以叫dddc
+老逼卡卡今犹在，不见当年门票盖
+
+
+
+*****
+
+####  吃货红毛  
+##### 3751#       发表于 2022-10-15 19:18
+
+D4C是吧
+
+*****
+
+####  情商  
+##### 3752#         楼主| 发表于 2022-10-15 19:18
+
+迅雷队这个飞机好叼啊，在谜团凋零和大圣大里面一打五
+
+*****
+
+####  nowaki  
+##### 3753#       发表于 2022-10-15 19:18
+
+很难想象这么菜的fnc居然赢了ts一局
+
+紫猫这陷阱英雄真的别选，选出来真的没用
+
+*****
+
+####  六娃  
+##### 3754#       发表于 2022-10-15 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57924445&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-15 19:18</a>
+迅雷队这个飞机好叼啊，在谜团凋零和大圣大里面一打五</blockquote>
+窝指定秘鲁超人了解一哈
+
+*****
+
+####  非建政专用号  
+##### 3755#       发表于 2022-10-15 19:19
+
+哈人，我是不是不该喊鹏子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 3756#         楼主| 发表于 2022-10-15 19:20
+
+陈志豪怎么变声音了，广东腔变得有点像日本人说话了
+
+*****
+
+####  hahamamamia  
+##### 3757#       发表于 2022-10-15 19:21
+
+鹏子？鹏哥！
+
+*****
+
+####  情商  
+##### 3758#         楼主| 发表于 2022-10-15 19:22
+
+东南亚a畜还是早点退役吧，不知道把多少东南亚天才少年中单打到换位置了还赖在一号位上面
+

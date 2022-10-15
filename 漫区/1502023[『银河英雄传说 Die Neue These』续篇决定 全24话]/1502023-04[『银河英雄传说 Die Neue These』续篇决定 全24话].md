@@ -102,3 +102,16 @@
 
 但现在平衡已经崩溃，报了信同盟也无力阻拦了，所以说黑狐水平也就这样，看不清形势，不赶紧收缩当个小透明反倒更大规模跳到台前，一看就是读历史书少了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liu461  
+##### 5476#       发表于 2022-10-15 19:16
+
+为了圆坎普是戈林一样的飞行员出身上将结果来了个段这种瞠目结舌的高机动要塞秀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+中间那段意义不明的手指微操堪比杰刚队长对大青椒了
+
+于是说好要冷却的要塞炮也能连发了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
