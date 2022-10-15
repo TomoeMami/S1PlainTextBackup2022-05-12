@@ -8464,3 +8464,35 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 导致观众对“怼”的印象就停在“恶劣”的部分，而两人这么做“其实是关系很好的表现”这一层是看不到的，因为压根没写。
 
+
+
+*****
+
+####  darkendless  
+##### 8300#       发表于 2022-10-15 11:52
+
+ 本帖最后由 darkendless 于 2022-10-15 11:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917452&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-15 11:47</a>
+它们对可堇“怼”的描写感觉像是只写了一半，为怼而怼，后续角色什么反应，过激的发言怎么收场都是需要写 ...</blockquote>
+抱歉理解有点问题，编辑一下，两人关系就是好坏并存，坏的部分写了，好的部分其实写了，两期动画都有，但批判带节奏肯定是抓表现不好的部分。最后几集的互动也都很正常没见人提出来反复夸。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 8301#       发表于 2022-10-15 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917372&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-15 11:41</a>
+
+但是其他人没有听完科普之后再贬一句啊，而堇对lovelive至少是口头上的轻视一直持续到第9集，这也是俩人一 ...</blockquote>
+这个我第一季完结分析的时候也觉得堇对大赛态度真正开始转变应该是在第九集看了视频
+
+<img src="https://img.saraba1st.com/forum/202210/15/115057p43151i6opoe6bja.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (391.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 11:50 上传
+
+然而到第二季我感觉她只是摆正了学园偶像的态度，第二季前半部分也其他成员一样还是没有去主动了解学园偶像（当然这也可能是制作组故意拿来作为“可堇互怼”的契机：堇一脸不懂再由可可科普也快成定式了，反正我是看腻了，毕竟都一年了实在不合适吧？）
+

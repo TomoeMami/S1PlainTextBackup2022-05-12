@@ -1591,3 +1591,21 @@ https://w.atwiki.jp/astlibra/sp/list
 我试过直接从右边房间左下角趟岩浆走，走不过去 ...</blockquote>
 拿了那个鞋子去也可以，我是血够厚硬走过去的
 
+
+
+*****
+
+####  Sannapolis  
+##### 155#       发表于 2022-10-15 11:53
+
+我直接走的话会卡在这个角落，后面打完boss拿到鞋子后才能正常走过去<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+20221015111410_2.jpg
+(389.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 11:52 上传
+
+<img src="https://img.saraba1st.com/forum/202210/15/115235vjpgg1nujoo5uxj5.jpg" referrerpolicy="no-referrer">
+
