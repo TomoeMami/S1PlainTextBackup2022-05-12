@@ -3881,3 +3881,124 @@ lga听完涕泗横流，纷纷称赞出神赛果我亲爷爷<img src="https://st
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yourSwaTer  
+##### 4957#       发表于 2022-10-16 00:52
+
+看了下lgd和eg第二把。队友上路抓死虚空，他在中路同时送还不能买活。
+这也能清算队友？
+
+*****
+
+####  尖刺外婆  
+##### 4958#       发表于 2022-10-16 00:54
+
+这几把文爱胖子保线保的也是个jb，要是天梯张睿达已经把文丑拉近黑名单了
+
+*****
+
+####  情商  
+##### 4959#         楼主| 发表于 2022-10-16 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930273&amp;ptid=2099454" target="_blank">yourSwaTer 发表于 2022-10-16 00:52</a>
+看了下lgd和eg第二把。队友上路抓死虚空，他在中路同时送还不能买活。
+这也能清算队友？ ...</blockquote>
+不是买活了去送？
+
+*****
+
+####  c88711611  
+##### 4960#       发表于 2022-10-16 00:54
+
+集美经典出什么都没用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这话术从ti8说到现在了
+
+*****
+
+####  六娃  
+##### 4961#       发表于 2022-10-16 00:57
+
+潘寅星这死妈野种从阿灵顿开始就清算量子鞭了好吧
+
+*****
+
+####  yourSwaTer  
+##### 4962#       发表于 2022-10-16 00:57
+
+顺便看了眼b站官方的录播视频，评论区怎么这么多撸狗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 4963#       发表于 2022-10-16 00:58
+
+超哥今天最感动我的还是打bb第一把卡卡被抓，眉皇闪上去交了大愣是把卡卡救下来了
+
+看到他吴冠超都这样感觉是真的有点感动
+
+*****
+
+####  反方向的波  
+##### 4964#       发表于 2022-10-16 00:59
+
+窝印象很深去年okE仔有一把见人就鲨又肥又狂的ta最后一个大件还是出了bkb，按清蒜去年中立道具带到结尾的思维那今年进不了外卡的菜狗都知道出bkb 卜出还能有理由洗的也是艹艹
+
+*****
+
+####  scg2017  
+##### 4965#       发表于 2022-10-16 00:59
+
+mlgbd三号位无解穷的比赛又不是没见过，不出bkb的ta倒确实罕见呢
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 4966#       发表于 2022-10-16 01:00
+
+一年看一次比赛的别在这来戏，你打2号位没救过队友？
+闪上去又是什么逼东西
+
+*****
+
+####  银翼的维罗西  
+##### 4967#       发表于 2022-10-16 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930321&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-16 00:58</a>
+
+超哥今天最感动我的还是打bb第一把卡卡被抓，眉皇闪上去交了大愣是把卡卡救下来了
+
+看到他吴冠超都这样感觉 ...</blockquote>
+霉憋刚才那把带球局三代盾居然没跟德鲁伊抢A杖，虽然我觉得老鹿拿了A正面就能打过，但是看来霉憋时真的想赢，那会已经准备带球了，转羊刀估计也是为了压制火猫带线
+
+*****
+
+####  月亮与五块钱  
+##### 4968#       发表于 2022-10-16 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930321&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-16 00:58</a>
+超哥今天最感动我的还是打bb第一把卡卡被抓，眉皇闪上去交了大愣是把卡卡救下来了
+
+看到他吴冠超都这样感觉 ...</blockquote>
+懂不懂什么叫文卡卡武眉笔啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nowaki  
+##### 4969#       发表于 2022-10-16 01:01
+
+闪上去？
+
+*****
+
+####  情商  
+##### 4970#         楼主| 发表于 2022-10-16 01:02
+
+好好好，闪上去都来了
+

@@ -389,3 +389,17 @@ DOUBLE DECKER只是同为搭档系列，世界观好像还是不太一样？
 
 —— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  suebin  
+##### 122#       发表于 2022-10-16 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923223&amp;ptid=2036512" target="_blank">miro112233 发表于 2022-10-15 18:04</a>
+
+看完了，想到大概率没有第三季了还是挺伤感的。感觉蛇组织应该是暗喻所谓的deep state，就算你知道它存在， ...</blockquote>
+最后一幕已经是入冬了 然后写了最佳英雄拍档于9月18日解散 还进了名人堂 
+
+就算这个系列有后文 大概也不是老虎和兔子当主角了 
+
