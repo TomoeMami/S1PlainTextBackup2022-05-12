@@ -1944,3 +1944,12 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  AeonsTorn  
+##### 185#       发表于 2022-10-15 20:11
+
+这个长按飞剑的伤害判定是啥啊，感觉打大型怪物有时候可以疯狂刷血
+

@@ -7741,3 +7741,28 @@ kino：希望大家不要因为我而讨厌赛马娘。
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2325#       发表于 2022-10-15 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人设而已，我不觉得现在厂里有那闲钱整啥高科技
+
+*****
+
+####  喜闻乐见  
+##### 2326#         楼主| 发表于 2022-10-15 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/mw690/732205bcgy1h768bx3o7sj207t01e0sq.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/mw690/732205bcgy1h768c0gf4sj208r01iglr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 2327#       发表于 2022-10-15 20:10
+
+所以九夏困厕所里面了吗？
+

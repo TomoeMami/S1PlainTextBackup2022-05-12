@@ -110,3 +110,12 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 
 这组母女是不是人设在前作里出现过？
 
+
+
+*****
+
+####  isa2456  
+##### 96#       发表于 2022-10-15 20:03
+
+嗯了，怎么还有两个月啊<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+

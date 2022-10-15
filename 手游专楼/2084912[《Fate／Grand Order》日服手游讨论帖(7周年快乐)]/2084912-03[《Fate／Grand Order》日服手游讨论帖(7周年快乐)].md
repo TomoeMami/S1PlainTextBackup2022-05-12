@@ -1378,3 +1378,12 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">临时改卡 5%的呼延灼
 
+
+
+*****
+
+####  JMFluorece  
+##### 3117#       发表于 2022-10-15 20:08
+
+这波操作属实是逆天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也行吧，起码给呼延灼保留了一丝最后的尊严
+
