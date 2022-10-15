@@ -1880,3 +1880,27 @@ https://w.atwiki.jp/astlibra/sp/list
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  A1LI  
+##### 179#       发表于 2022-10-15 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57915640&amp;ptid=2098044" target="_blank">masterkeaton 发表于 2022-10-15 09:50</a>
+
+那个石板可以开好几条隐藏宝箱了</blockquote>
+靠，这要没攻略谁知道，不过城镇里有个房间里的门可以用这个石板开，里面有一堆特别牛比的敌人。
+
+*****
+
+####  A1LI  
+##### 180#       发表于 2022-10-15 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57914882&amp;ptid=2098044" target="_blank">格林卡罗尔 发表于 2022-10-15 08:29</a>
+
+就我回复的坛友截图里的宝箱，右边有个不易察觉的门，开法和哥布林洞窟差不多
+
+—— 来自 Xiaomi M2012K1 ...</blockquote>
+多谢，已经开了！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+

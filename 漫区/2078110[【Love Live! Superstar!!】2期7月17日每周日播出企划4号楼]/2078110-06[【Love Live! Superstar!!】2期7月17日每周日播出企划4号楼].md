@@ -8798,3 +8798,33 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 8327#       发表于 2022-10-15 17:33
+
+这样写恋回的效果，好听一点就是nagi说的：又看到了恋不为人知的可爱一面 <blockquote>在第一季结束的时候我就想看到小恋可爱的地方，不管是在Live的MC里，还是在生放里，广播里我都有说过。到了第二季，在很多很多地方都感觉到“原来小恋也有这么多可爱的地方”“也有这么崭新的一面啊”，首先作为叶月恋的声优，找到了小恋新的一面，能在第二季看到已然成长的小恋，真的很开心。</blockquote>说难听一点，这就像上了一层debuff，无限接近于原地踏步，而这并不是恋急需的东西。
+
+拿沉迷游戏当做恋新的魅力点还是有些微妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  谁的无聊中  
+##### 8328#       发表于 2022-10-15 17:35
+
+只能说花田还挺适合写搞笑的。。。。
+
+*****
+
+####  沙茶酱  
+##### 8329#       发表于 2022-10-15 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922431&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-10-15 17:20</a>
+
+这个站上还有花田的访谈
+
+关&amp;#x ...</blockquote>
+过夜回算是虹一期一个很关键剧情转折点
+
