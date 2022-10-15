@@ -3644,3 +3644,17 @@ size太大，显卡跑不了<img src="https://static.saraba1st.com/image/smiley/
 之前看了novelai的博客，讲了下他们到底 ...</blockquote>
 这里能给个连接么？是说他们有更新内容？如果是的话，这些更新在现在用的这套ai 训练上还无法利用吧？
 
+
+
+*****
+
+####  mahoraga  
+##### 285#         楼主| 发表于 2022-10-15 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918992&amp;ptid=2098197" target="_blank">zerona 发表于 2022-10-15 13:34</a>
+
+这里能给个连接么？是说他们有更新内容？如果是的话，这些更新在现在用的这套ai 训练上还无法利用吧？ ...</blockquote>
+[https://blog.novelai.net/novelai ... fusion-e10d38db82ac](https://blog.novelai.net/novelai-improvements-on-stable-diffusion-e10d38db82ac)
+
+既然被人强行开源了我感觉社区应该会比较快跟上的
+
