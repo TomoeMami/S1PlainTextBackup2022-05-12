@@ -9398,3 +9398,195 @@ PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司�
 
 举报了
 
+
+
+*****
+
+####  rubicon  
+##### 1029#       发表于 2022-10-15 10:21
+
+俄语频道睇Eiritel啊，懂又不懂
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 1030#       发表于 2022-10-15 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916065&amp;ptid=2099454" target="_blank">rubicon 发表于 2022-10-15 10:21</a>
+俄语频道睇Eiritel啊，懂又不懂</blockquote>
+听不懂啊，看女解说不会上p站啊
+
+*****
+
+####  jk9hot  
+##### 1031#       发表于 2022-10-15 10:22
+
+我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹我曹
+
+*****
+
+####  resorry  
+##### 1032#       发表于 2022-10-15 10:22
+
+PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马
+
+*****
+
+####  反方向的波  
+##### 1033#       发表于 2022-10-15 10:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">卧槽太恶心了，等我编辑个小红包
+
+*****
+
+####  哈萨维·诺亚  
+##### 1034#       发表于 2022-10-15 10:23
+
+第一场就延 我看nm
+
+*****
+
+####  情商  
+##### 1035#         楼主| 发表于 2022-10-15 10:24
+
+这位姐是上汽女主的同胞姐妹吗？
+
+*****
+
+####  nerugigannte  
+##### 1036#       发表于 2022-10-15 10:24
+
+PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马
+
+*****
+
+####  反方向的波  
+##### 1037#       发表于 2022-10-15 10:25
+
+口令：PGL泥马炸了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fopinecone| + 1|谢谢老板|
+| 逃离二次元| + 1|哦牛|
+
+查看全部评分
+
+*****
+
+####  六娃  
+##### 1038#       发表于 2022-10-15 10:26
+
+要不明年十点开吧
+
+*****
+
+####  勤练带来力量  
+##### 1039#       发表于 2022-10-15 10:26
+
+半小时过去了
+
+*****
+
+####  六娃  
+##### 1040#       发表于 2022-10-15 10:26
+
+核中核消息，延迟到十点半是因为克格勃正在入场
+
+*****
+
+####  柚上舍人  
+##### 1041#       发表于 2022-10-15 10:26
+
+感谢漏油，三毛我能买两颗小白菜
+
+*****
+
+####  Keynes  
+##### 1042#       发表于 2022-10-15 10:27
+
+GL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马
+
+*****
+
+####  fopinecone  
+##### 1043#       发表于 2022-10-15 10:27
+
+PGL司马
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  哈萨维·诺亚  
+##### 1044#       发表于 2022-10-15 10:27
+
+PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 1045#       发表于 2022-10-15 10:27
+
+谢谢泥pgl，出门买菜都快到家了比赛还没开
+
+*****
+
+####  walfeds  
+##### 1046#       发表于 2022-10-15 10:28
+
+三毛都没领到，PGL泥马炸了
+
+*****
+
+####  雅朵莉雀  
+##### 1047#       发表于 2022-10-15 10:28
+
+好久没见过角斗士出现在赛场上了，是不是该看一波betboom打角斗士
+
+*****
+
+####  沈经文  
+##### 1048#       发表于 2022-10-15 10:29
+
+三毛都没领到，PGL泥马炸了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tasuku  
+##### 1049#       发表于 2022-10-15 10:30
+
+<img src="https://img.saraba1st.com/forum/202210/15/103011vffku27u12nvnep2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (58.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 10:30 上传
+
+感觉刀圈解说都有点穷..
+
+*****
+
+####  iriyano  
+##### 1050#       发表于 2022-10-15 10:30
+
+我还说睡过了结果还没开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Litccc  
+##### 1051#       发表于 2022-10-15 10:31
+
+lgd开了
+
