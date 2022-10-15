@@ -8468,3 +8468,40 @@ ZZZZZZZZZZZZZZZZZ
 
 话说上面那个群到底是不是你楼的群啊不是我退了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 913#       发表于 2022-10-15 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57915010&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-15 08:50</a>
+
+这些恶臭发言真是看的人恶心
+
+话说上面那个群到底是不是你楼的群啊不是我退了 ...</blockquote>
+别急，我找到机会就开始带管人痴节奏
+
+*****
+
+####  UnhappyTails  
+##### 914#       发表于 2022-10-15 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57915032&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-15 08:54</a>
+别急，我找到机会就开始带管人痴节奏</blockquote>
+不是我准备进你楼的群发个小红包助助兴来着，这一大堆不认识的人算了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 915#       发表于 2022-10-15 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 916#       发表于 2022-10-15 08:56
+
+我看不懂，但是我大受震撼，处男完全不懂这么多的套路
+
