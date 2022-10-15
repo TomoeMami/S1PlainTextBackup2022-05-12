@@ -1245,3 +1245,17 @@ B站上的直播录像 犹豫不决的可以先看看
 
 礼物有每个人的特定类型么，还是想加好感度就无脑送就行了
 
+
+
+*****
+
+####  bwsusaga  
+##### 115#         楼主| 发表于 2022-10-16 06:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57929830&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-16 00:12</a>
+
+礼物有每个人的特定类型么，还是想加好感度就无脑送就行了</blockquote>
+还是有对应喜好度的，只是要一个个SL来试很麻烦
+
+才推到第八章，DLC送的马见不着啊。
+
