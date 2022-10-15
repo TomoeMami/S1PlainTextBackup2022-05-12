@@ -4002,3 +4002,186 @@ mlgbd三号位无解穷的比赛又不是没见过，不出bkb的ta倒确实罕�
 
 好好好，闪上去都来了
 
+
+
+*****
+
+####  百世诸侯  
+##### 4971#       发表于 2022-10-16 01:03
+
+别急，是那个闪灵好吧，闪上去没问题
+
+*****
+
+####  六娃  
+##### 4972#       发表于 2022-10-16 01:03
+
+原来集美已经快进到 #faithbian叛国 了，今年的戏说不定能超越去年
+
+*****
+
+####  zsu222  
+##### 4973#       发表于 2022-10-16 01:03
+
+记得major期间rng连续被翻盘的时候，到处都是各种rng锐评的切片，每个切片都在清算老北京和查猪
+
+*****
+
+####  UnhappyTails  
+##### 4974#       发表于 2022-10-16 01:03
+
+tmd，我的任何个人设备上存在过一秒钟lol客户端我遭雷劈，没存在过楼友遭雷劈，怎么样？
+
+*****
+
+####  情商  
+##### 4975#         楼主| 发表于 2022-10-16 01:04
+
+不懂，只知道你对lol赛制很了解，我经常看csgo比赛还是不懂csgo赛制
+
+*****
+
+####  UnhappyTails  
+##### 4976#       发表于 2022-10-16 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930332&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-16 01:00</a>
+一年看一次比赛的别在这来戏，你打2号位没救过队友？
+闪上去又是什么逼东西 ...</blockquote>
+笑了，major和dpc哪个我没在楼里发过言？要么就是你不看楼要么就是你不看比赛选一个咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+说我云可以，说我不看比赛不就送死？真当论坛没有记忆？
+
+*****
+
+####  UnhappyTails  
+##### 4977#       发表于 2022-10-16 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930371&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-16 01:04</a>
+不懂，只知道你对lol赛制很了解，我经常看csgo比赛还是不懂csgo赛制</blockquote>
+那我两个室友都是撸狗我有什么办法？他们吃饭聊s赛我不能捂着耳朵吃吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 4978#       发表于 2022-10-16 01:06
+
+意思看一年比赛和一年看一次比赛的水平差不多还挺骄傲
+
+*****
+
+####  UnhappyTails  
+##### 4979#       发表于 2022-10-16 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930386&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-16 01:06</a>
+意思看一年比赛和一年看一次比赛的水平差不多还挺骄傲</blockquote>
+你说水平一样就一样？你是哪来的杂毛？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+真把自己当回事了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 4980#       发表于 2022-10-16 01:07
+
+支持漏油一换一
+
+
+
+*****
+
+####  百世诸侯  
+##### 4981#       发表于 2022-10-16 01:07
+
+nowaki这时候该站出来给你的cp说两句话了
+
+*****
+
+####  反方向的波  
+##### 4982#       发表于 2022-10-16 01:07
+
+尾巴哥小群拉我，感觉错过很多红包
+
+*****
+
+####  白笛之音  
+##### 4983#       发表于 2022-10-16 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930314&amp;ptid=2099454" target="_blank">yourSwaTer 发表于 2022-10-16 00:57</a>
+顺便看了眼b站官方的录播视频，评论区怎么这么多撸狗</blockquote>
+你在撸狗大本营问为什么有这么多撸狗，和在这里问楼里为什么有这么多傻狗有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  cuisite  
+##### 4984#       发表于 2022-10-16 01:09
+
+支持中山公园线下白头
+
+*****
+
+####  UnhappyTails  
+##### 4985#       发表于 2022-10-16 01:10
+
+我说吴冠超交大救酱油是他在团队性上的进步我就问你有什么问题？
+
+不是你在这里给我杠？评价这个和看不看比赛有他妈毛关系？
+
+吴冠超这次ti目前表现出来的心态至少比去年小象强了不少，不能说是自我调整了？
+
+你不如就直说吴冠超骑了你亲妈不准别人说一句好得了，出于尊重楼友家人我不会再吹吴冠超一句的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 4986#       发表于 2022-10-16 01:10
+
+好起来了，比赛一结束又开始互相杀吗了，我建议水友们和气点，这届TI没准能看到CN无一打入前六的历史性战绩，到时再杀也不迟
+
+*****
+
+####  nowaki  
+##### 4987#       发表于 2022-10-16 01:10
+
+尾巴哥在管人楼也是这样的狂躁，我早已习惯。
+
+*****
+
+####  情商  
+##### 4988#         楼主| 发表于 2022-10-16 01:11
+
+【核桃：lgd状态一般，训练队内吵架！-哔哩哔哩】 https://b23.tv/wz8SR3E
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  六娃  
+##### 4989#       发表于 2022-10-16 01:11
+
+犯蹭当楼宠当出幻觉了，以为自己不是在表演猴戏
+半月蝶莲都知道水平不行假装被创死，傻逼得还不如集美
+一个中单救队友的操作就能来戏，太弱智了
+
+*****
+
+####  百世诸侯  
+##### 4990#       发表于 2022-10-16 01:12
+
+我建议水友们和气点，这届TI没准能看到CN无一打入前六的历史性战绩，到时再杀也不迟
+
+*****
+
+####  你气不气  
+##### 4991#       发表于 2022-10-16 01:12
+
+要不是司马sg审核+只能用国内手机号注册，不然这里已经是二次元撸狗的家了
+
+*****
+
+####  桐道悠  
+##### 4992#       发表于 2022-10-16 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用没准，如果还是今天的状态，前6肯定没西恩队。
+
