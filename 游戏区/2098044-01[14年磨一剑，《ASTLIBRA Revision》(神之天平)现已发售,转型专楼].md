@@ -1609,3 +1609,23 @@ https://w.atwiki.jp/astlibra/sp/list
 
 <img src="https://img.saraba1st.com/forum/202210/15/115235vjpgg1nujoo5uxj5.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我猫呢?  
+##### 156#       发表于 2022-10-15 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57908417&amp;ptid=2098044" target="_blank">casle 发表于 2022-10-14 18:20</a>
+
+我这里点进去显示是403 error，麻烦能反白简略说一下吗，感谢</blockquote>
+第五章后半段要进城堡，城堡中与与迷之少女对话时的选择会影响少女的命运和后面的boss战
+
+贴一下wiki原文
+
+连れていく→不死の王リッチ戦后、死亡。
+
+连れて行かず、そのまま放置して魔王撃破→消灭（テキストが若干违うだけで扱いは死亡と同じ）
+
+连れて行かず、ガウと合流后に会话してから魔王撃破→生存（追加ボスとアイテム「爱情」入手あり。6章后半で援护してくれる）
+

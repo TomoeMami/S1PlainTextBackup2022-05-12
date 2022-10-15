@@ -1319,3 +1319,12 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 ...或者说，是听说沈腾特别出演就去看《日不落酒店》的观众<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3110#       发表于 2022-10-15 12:04
+
+这活动的收益怎么感觉低的批爆，90++自带点数翻倍还差不多吧
+

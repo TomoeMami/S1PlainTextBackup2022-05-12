@@ -1942,3 +1942,14 @@ ai自动化党一路走好笑死
 
 这个DIY滑雪板长椅上的钉子总觉得坐上去很容易勾到衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最强惠酱  
+##### 161#       发表于 2022-10-15 12:08
+
+椅子脚是方型不固定在地板，靠背突出，往后靠非常容易翻车的感觉
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
