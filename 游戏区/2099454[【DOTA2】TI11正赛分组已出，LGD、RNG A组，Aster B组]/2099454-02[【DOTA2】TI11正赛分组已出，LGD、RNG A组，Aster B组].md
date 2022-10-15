@@ -2584,3 +2584,318 @@ micke就是个低配冠超
 
 感觉vis军团选出来就可以敲gg了，装你妈理解第一
 
+
+
+*****
+
+####  食粪者  
+##### 1837#       发表于 2022-10-15 12:51
+
+我看出来了，屠畜还是得看亲爹og
+
+*****
+
+####  六娃  
+##### 1838#       发表于 2022-10-15 12:51
+
+内幕消息，红龙一号位是南美毒枭太子，LGD酒店第二把已经被带枪手下包围了，LGD根本不敢赢！
+
+*****
+
+####  迷途lite  
+##### 1839#       发表于 2022-10-15 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918460&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-15 12:50</a>
+肯定看ts打entity啊，鳖星和tundra是什么屌东西</blockquote>
+ts打ett四点了，第二轮是ts打fnc，ett打bc
+
+*****
+
+####  seki_m  
+##### 1840#       发表于 2022-10-15 12:52
+
+想看pure在ts高地画z字
+
+*****
+
+####  情商  
+##### 1841#         楼主| 发表于 2022-10-15 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918477&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-15 12:51</a>
+最后已经不会打团了，军团决斗有盾的霉鳖，守高集火还有30秒盾的霉鳖（还没弄死）
+
+感觉vis军团选出来就可 ...</blockquote>
+并没有决斗梅鳖，梅鳖是被丢进去的
+
+*****
+
+####  jk9hot  
+##### 1842#       发表于 2022-10-15 12:52
+
+肯定看ts打entity啊，鳖星和tundra是什么屌东西
+
+*****
+
+####  反方向的波  
+##### 1843#       发表于 2022-10-15 12:52
+
+dyrachyo这水人波上了高地，dyrachyo把对面全鲨了
+
+*****
+
+####  iriyano  
+##### 1844#       发表于 2022-10-15 12:52
+
+哇这叼比赛也太多了
+
+老子摆了，睡午觉去了
+
+*****
+
+####  nowaki  
+##### 1845#       发表于 2022-10-15 12:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">就我一个人支持鹏子吗
+
+*****
+
+####  反方向的波  
+##### 1846#       发表于 2022-10-15 12:53
+
+鳖造谣了，雪碧打entity是第四轮，下一轮是克神大战pure
+<img src="https://p.sda1.dev/7/be697b9c08ca04074334fe74d119e6f9/CMP_20221015125349501.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  UnhappyTails  
+##### 1847#       发表于 2022-10-15 12:53
+
+鳖孙赶紧死
+
+*****
+
+####  北条早苗  
+##### 1848#       发表于 2022-10-15 12:53
+
+OG现在真就一三互换了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 1849#       发表于 2022-10-15 12:53
+
+og只要bp倾斜atf就打得舒服很多，中东dota天选之子什么时候转一啊
+
+*****
+
+####  Litccc  
+##### 1850#       发表于 2022-10-15 12:54
+
+相信焦阳
+
+*****
+
+####  迷途lite  
+##### 1851#       发表于 2022-10-15 12:55
+
+相信焦阳
+
+*****
+
+####  asd235614  
+##### 1852#       发表于 2022-10-15 12:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3台来了，又有我最喜欢的pure又有南美后现代主义dota
+
+*****
+
+####  吃货红毛  
+##### 1853#       发表于 2022-10-15 12:55
+
+GG这水人好狂野无限波高杀人 最后还波水泉杀人
+
+一会看茶队 另一台看雪碧
+
+*****
+
+####  nowaki  
+##### 1854#       发表于 2022-10-15 12:55
+
+今年的进场视频呢
+
+*****
+
+####  情商  
+##### 1855#         楼主| 发表于 2022-10-15 12:55
+
+Misha还抢taiga的野，我是taiga就给这b两圈
+
+*****
+
+####  zhliiiii  
+##### 1856#       发表于 2022-10-15 12:56
+
+这也能怪到ame？ame是不是没把都要1打5才行啊，首先第二把全线崩盘，虚空只能爆输出，其次单罩酱油是为了延缓对面推进节奏，不会觉得正面团打得过吧，出银月是为了刷的更快，并且在大招里稳定秒人，最后一波大发条，t回去5打4还是有一点点点的机会，但是被发条买活留了，总结只能说马西强度太高了，干穿三路，这个ti应该稳坐1ban了，而且这个队也不弱感觉，换路把bian和xinq两个推进节奏点打崩了直接
+
+*****
+
+####  zhliiiii  
+##### 1857#       发表于 2022-10-15 12:56
+
+放一把玛西试试水，看见喷子在狂欢
+
+*****
+
+####  UnhappyTails  
+##### 1858#       发表于 2022-10-15 12:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer"> 
+
+ECA07286-76EF-4C12-85DC-C74492ED290A.png
+(311.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 12:56 上传
+
+<img src="https://img.saraba1st.com/forum/202210/15/125619ihq7siy6q226klu1.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 1859#         楼主| 发表于 2022-10-15 12:57
+
+Boom这滚滚疯狂犯罪
+
+*****
+
+####  zhliiiii  
+##### 1860#       发表于 2022-10-15 12:57
+
+不是 小组赛不试错难道淘汰赛去试吗 突围赛基本把把都在ban玛西 拿个lich出来看看能不能打呗 第一把输了就要唱衰成这样 难道一定要小组赛全胜膨胀到决赛被教育才开心吗
+
+
+
+*****
+
+####  walfeds  
+##### 1861#       发表于 2022-10-15 12:57
+
+atf真就不练畜是吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">我急了，别抱着那堆破逼英雄了
+
+*****
+
+####  zhliiiii  
+##### 1862#       发表于 2022-10-15 12:57
+
+lxo+还是典啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 1863#       发表于 2022-10-15 12:57
+
+看PURE了
+
+*****
+
+####  zhrs456  
+##### 1864#       发表于 2022-10-15 12:58
+
+[https://www.twitch.tv/team/pgl_stats](https://www.twitch.tv/team/pgl_stats) 方便切频道
+
+*****
+
+####  莉拉厨  
+##### 1865#       发表于 2022-10-15 12:58
+
+这og点进来一看人头30比18经济领先两万，咋运营的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lmslardar  
+##### 1866#       发表于 2022-10-15 12:59
+
+李斯状态可以，但就是拿的英雄很奇怪，希望拿点正常的，我对rng进胜者组充满信心，只要下次别总拿蛇皮英雄了
+
+*****
+
+####  UnhappyTails  
+##### 1867#       发表于 2022-10-15 12:59
+
+顺便再宣传一下am1真爱+集美语录楼，带给你最不如意的生活体验
+
+[https://www.saraba1st.com/2b/thread-2064223-1-1.html](https://www.saraba1st.com/2b/thread-2064223-1-1.html)
+
+*****
+
+####  情商  
+##### 1868#         楼主| 发表于 2022-10-15 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918577&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-15 12:58</a>
+这og点进来一看人头30比18经济领先两万，咋运营的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅 ...</blockquote>
+野外打赢了一波团然后控盾拆了所有外塔加一个高地塔就把boom关了
+
+*****
+
+####  sodah  
+##### 1869#       发表于 2022-10-15 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918569&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-15 12:58</a>
+
+https://www.twitch.tv/team/pgl_stats 方便切频道</blockquote>
+谢谢漏油。
+
+*****
+
+####  Kazepollar  
+##### 1870#       发表于 2022-10-15 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918561&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-15 12:57</a>
+ 不是 小组赛不试错难道淘汰赛去试吗 突围赛基本把把都在ban玛西 拿个lich出来看看能不能打呗 第一把输了就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">更希望今年一路试错直接败者组滚蛋呢
+
+*****
+
+####  反方向的波  
+##### 1871#       发表于 2022-10-15 13:00
+
+盒中盒说鳖星训练赛谁都打不过当然要看一下了，感觉会有惊喜
+
+*****
+
+####  zhrs456  
+##### 1872#       发表于 2022-10-15 13:00
+
+玛希拿盾可以啊
+
+*****
+
+####  情商  
+##### 1873#         楼主| 发表于 2022-10-15 13:01
+
+Nowaki跟unhappynotail居然都看这个管人，很难不怀疑相爱相杀
+
+<img src="https://p.sda1.dev/7/ab606c9fccc8292e747f30721a98b9fc/CMP_20221015130112218.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 1874#       发表于 2022-10-15 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918597&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-15 13:00:24</a>
+盒中盒说鳖星训练赛谁都打不过当然要看一下了，感觉会有惊喜</blockquote>可能是真的，毕竟茶队现在是皮球加四个百名开外的菜逼<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  百世诸侯  
+##### 1875#       发表于 2022-10-15 13:01
+
+可以啊
+
