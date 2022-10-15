@@ -9866,3 +9866,375 @@ betboom不是3比0干掉vp的吗
 
 小明鞭这发型和头像……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 1086#       发表于 2022-10-15 10:41
+
+只有相信泽马了
+
+*****
+
+####  六娃  
+##### 1087#       发表于 2022-10-15 10:42
+
+原来第一场就是eg和qc，北美内战打出血
+
+*****
+
+####  Papercup  
+##### 1088#       发表于 2022-10-15 10:42
+
+RNG设备有问题？
+
+*****
+
+####  IG.430  
+##### 1089#       发表于 2022-10-15 10:42
+
+moxxi其实是韩国人
+所以叫高韩比较好<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哆哆鸡  
+##### 1090#       发表于 2022-10-15 10:42
+
+好久没看了，有人知道为什么是B站独播了吗
+
+*****
+
+####  六娃  
+##### 1091#       发表于 2022-10-15 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916339&amp;ptid=2099454" target="_blank">哆哆鸡 发表于 2022-10-15 10:42</a>
+好久没看了，有人知道为什么是B站独播了吗</blockquote>
+小组赛被外包出去了，批站买了独家版权
+
+*****
+
+####  哈萨维·诺亚  
+##### 1092#       发表于 2022-10-15 10:44
+
+量子边这杀人饭一样的造型 偷我普森的活儿是吧
+
+*****
+
+####  horacio  
+##### 1093#       发表于 2022-10-15 10:44
+
+所以意思是淘汰赛我可以客户端无延迟观看了吗？
+
+*****
+
+####  TIZI  
+##### 1094#       发表于 2022-10-15 10:44
+
+第一轮就rng液体这把值得看吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  哆哆鸡  
+##### 1095#       发表于 2022-10-15 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916349&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-15 10:43</a>
+
+小组赛被外包出去了，批站买了独家版权</blockquote>
+还能这样，v社以前不是说过所有人都能播的吗
+
+*****
+
+####  StrangerJ  
+##### 1096#       发表于 2022-10-15 10:44
+
+看了一圈，嫪毐这造型有点逗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 1097#       发表于 2022-10-15 10:45
+
+可以看yopaj是不是真的一年走完了冠超整个生涯
+
+*****
+
+####  adretyu67  
+##### 1098#       发表于 2022-10-15 10:45
+
+量子鞭不是上个major披头散发就是这个ti大背头，看样子也是决心加入艺术家行列了。
+
+*****
+
+####  坚定的团子党  
+##### 1099#       发表于 2022-10-15 10:45
+
+rng迟到被罚了30秒备用时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 1100#       发表于 2022-10-15 10:45
+
+A畜上来送一血？
+
+*****
+
+####  吃货红毛  
+##### 1101#       发表于 2022-10-15 10:45
+
+LGD本届比赛一血由AME送出<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+仔细一想应该是本届TI第一个人头<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhwpjy  
+##### 1102#       发表于 2022-10-15 10:46
+
+不是 何意啊处长
+
+*****
+
+####  iriyano  
+##### 1103#       发表于 2022-10-15 10:46
+
+东野奎武发型？
+
+*****
+
+####  VanArkride  
+##### 1104#       发表于 2022-10-15 10:46
+
+一级5没啥好说的，撞上就是死
+
+*****
+
+####  JoelBirch  
+##### 1105#       发表于 2022-10-15 10:46
+
+好呀好呀正赛一血啊
+
+*****
+
+####  adretyu67  
+##### 1106#       发表于 2022-10-15 10:46
+
+艹，还真是泰迪起床气了？
+
+*****
+
+####  ArowRocher  
+##### 1107#       发表于 2022-10-15 10:46
+
+经典
+
+*****
+
+####  哈萨维·诺亚  
+##### 1108#       发表于 2022-10-15 10:46
+
+RNG真的是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 1109#       发表于 2022-10-15 10:46
+
+是ti第一个一血吗哈哈哈哈哈哈
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 1110#       发表于 2022-10-15 10:47
+
+是整个ti11一血吗
+
+
+
+*****
+
+####  快乐癞皮狗  
+##### 1111#       发表于 2022-10-15 10:47
+
+lgd杰畜rng嫪毐我看你吗
+
+*****
+
+####  反方向的波  
+##### 1112#       发表于 2022-10-15 10:47
+
+开了开了，第一轮畜马西尸王小强全进了ban位
+
+*****
+
+####  逃离二次元  
+##### 1113#       发表于 2022-10-15 10:47
+
+a畜还是牛哇
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 1114#       发表于 2022-10-15 10:48
+
+566和小何哈哈哈哈
+
+*****
+
+####  迷途lite  
+##### 1115#       发表于 2022-10-15 10:48
+
+送正赛第一个人头表现了畜长勇送第一的决心
+他真的好努力<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  azccc52  
+##### 1116#       发表于 2022-10-15 10:48
+
+同问下，淘汰赛客户端还有延迟吗？想拉几个没玩过的朋友一起看<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡噜噜  
+##### 1117#       发表于 2022-10-15 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916387&amp;ptid=2099454" target="_blank">坚定的团子党 发表于 2022-10-15 10:45</a>
+
+rng迟到被罚了30秒备用时间</blockquote>
+不愧是超哥的队啊
+
+*****
+
+####  IG.430  
+##### 1118#       发表于 2022-10-15 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916448&amp;ptid=2099454" target="_blank">azccc52 发表于 2022-10-15 10:48</a>
+同问下，淘汰赛客户端还有延迟吗？想拉几个没玩过的朋友一起看</blockquote>
+没有
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| azccc52| + 1|感谢解答|
+
+查看全部评分
+
+*****
+
+####  逃离二次元  
+##### 1119#       发表于 2022-10-15 10:49
+
+a畜？？？
+
+*****
+
+####  阿垃垃圾历  
+##### 1120#       发表于 2022-10-15 10:49
+
+好死  A处死两次了 
+
+*****
+
+####  夏溪澪mio  
+##### 1121#       发表于 2022-10-15 10:49
+
+ti第二个人头😆
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JoelBirch  
+##### 1122#       发表于 2022-10-15 10:49
+
+好呀好呀，再来一个独中三元好不好啊
+
+*****
+
+####  ArowRocher  
+##### 1123#       发表于 2022-10-15 10:49
+
+ti11二血
+
+*****
+
+####  mkii量产型  
+##### 1124#       发表于 2022-10-15 10:49
+
+好似，开香槟了
+
+*****
+
+####  哈萨维·诺亚  
+##### 1125#       发表于 2022-10-15 10:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又送咯
+
+*****
+
+####  吃货红毛  
+##### 1126#       发表于 2022-10-15 10:49
+
+萧——瑟——
+
+*****
+
+####  a1370303  
+##### 1127#       发表于 2022-10-15 10:50
+
+好呀好呀，处长变身死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PigMourne  
+##### 1128#       发表于 2022-10-15 10:50
+
+超哥睡过被罚时，萧瑟连送一二血，西恩开门不利呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新的瑞拉  
+##### 1129#       发表于 2022-10-15 10:50
+
+两连死……
+
+*****
+
+####  TI三冠王AME  
+##### 1130#       发表于 2022-10-15 10:50
+
+哥哥的优势路直接被南美人打穿了，笑了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  方舟失智博士  
+##### 1131#       发表于 2022-10-15 10:50
+
+小何这造型太阴阳人了
+
+*****
+
+####  白野苍衣  
+##### 1132#       发表于 2022-10-15 10:50
+
+畜牲第一天就显形了
+
+*****
+
+####  天堂蜘蛛  
+##### 1133#       发表于 2022-10-15 10:51
+
+上来就线烂了
+

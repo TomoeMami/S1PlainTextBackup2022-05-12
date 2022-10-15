@@ -1933,3 +1933,12 @@ ai自动化党一路走好笑死
 
 ジュリエット・クイーン・エリザベス8世 全名暂时不清楚，昵称 ジョブ子 是「Job」。
 
+
+
+*****
+
+####  Wildfire  
+##### 160#       发表于 2022-10-15 10:47
+
+这个DIY滑雪板长椅上的钉子总觉得坐上去很容易勾到衣服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
