@@ -6406,3 +6406,14 @@ chelomei之前的学习模型：
 
 至于之后的背景填充和手势动作啥的，那是可以调整的。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12641#       发表于 2022-10-16 06:58
+
+异色瞳的问题也解决了，{left yellow eye}, {right blue eye},beautiful detailed eyes,{heterochromia_yellow_blue}
+
+能有效的降低其他颜色的异色瞳。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
