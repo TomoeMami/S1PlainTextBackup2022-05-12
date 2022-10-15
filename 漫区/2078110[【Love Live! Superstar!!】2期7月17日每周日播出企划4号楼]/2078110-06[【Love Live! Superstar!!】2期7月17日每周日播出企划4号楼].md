@@ -8443,3 +8443,24 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  darkendless  
+##### 8298#       发表于 2022-10-15 11:44
+
+其实让堇把第9集说的那些话一开始就坦白就没这么多事了，还能提前一年享受好态度的可可。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">剧本：还是得要冲突剧情。
+
+*****
+
+####  Kfly  
+##### 8299#       发表于 2022-10-15 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917253&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-15 11:34</a>
+
+我对可堇最大的不满就在这里，可可跟其他人相处时都很正常一碰见堇就跟变了个人一样，堇和可可捆绑之前也并 ...</blockquote>
+它们对可堇“怼”的描写感觉像是只写了一半，为怼而怼，后续角色什么反应，过激的发言怎么收场都是需要写的（实际上过激发言就是完全可以避免的），但就是没有。
+
+导致观众对“怼”的印象就停在“恶劣”的部分，而两人这么做“其实是关系很好的表现”这一层是看不到的，因为压根没写。
+
