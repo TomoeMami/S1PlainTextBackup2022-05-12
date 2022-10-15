@@ -1565,3 +1565,15 @@ https://w.atwiki.jp/astlibra/sp/list
 请教一下，这个地方的宝箱该怎么拿？</blockquote>
 从这张图右边的房间趟岩浆回这里，打破箱子右边的墙壁
 
+
+
+*****
+
+####  Sannapolis  
+##### 153#       发表于 2022-10-15 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916657&amp;ptid=2098044" target="_blank">casle 发表于 2022-10-15 11:01</a>
+从这张图右边的房间趟岩浆回这里，打破箱子右边的墙壁</blockquote>
+是不是需要穿免疫地形伤害的那个装备？
+我试过直接从右边房间左下角趟岩浆走，走不过去
+

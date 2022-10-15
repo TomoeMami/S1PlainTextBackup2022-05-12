@@ -8335,3 +8335,22 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 以及我已经对“霸凌”俩字ptsd了
 
+
+
+*****
+
+####  ruffian  
+##### 8288#       发表于 2022-10-15 11:04
+
+堇在可可面前调侃ll我印象中有好几次啊，但是天平往可可那边倾斜的太多是真的。而且不说别的，星团动画时间线特别跳，从第4集到第5集之间隔了少说有一个月了，但是堇入团这么久还是对ll大赛一问三不知给她科普了还要嘲一句业余大赛，然而当时在贴吧看见好几个人说“没说错啊本来就是业余啊”
+那这没办法了，堇怎么调侃都是对的呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 8289#       发表于 2022-10-15 11:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能花田想写沙皇大战梨老八 结果最后不让打就卡那儿了
+
