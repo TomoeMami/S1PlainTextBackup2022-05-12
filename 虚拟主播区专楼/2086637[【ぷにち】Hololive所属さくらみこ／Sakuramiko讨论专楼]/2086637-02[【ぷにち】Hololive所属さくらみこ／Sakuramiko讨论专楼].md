@@ -8421,3 +8421,31 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 如果今年还有出场OP动画外注的话那整个动画都要重做
 
+
+
+*****
+
+####  rs5621  
+##### 2306#       发表于 2022-10-15 17:54
+
+这样下来看，缺人确实挺麻烦的，关联的东西太多了。难怪昨天没心情直播。
+
+syl今晚又玩灵魂能力6了，怎么这直播封面全是筋肉男啊，捏的八字母和mio没放上去可惜了
+
+<img src="https://img.saraba1st.com/forum/202210/15/175349knezmykxbjrgzegw.png" referrerpolicy="no-referrer">
+
+<strong>~JGA]G9MJ]M_AKV4FMP_OWB.png</strong> (191 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 17:53 上传
+
+*****
+
+####  rs5621  
+##### 2307#       发表于 2022-10-15 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次玩这游戏的时候有个七字母民捏了个星姐一直没挤进去，后面放弃了。
+
+星姐捏得还挺像的，今晚看下他能不能混进去。
+
