@@ -3548,3 +3548,157 @@ Eg赛前自己说自己状态无敌 估计也采访过其他队有内幕吧
 </blockquote>
 有毛病，别像个nga2b一样
 
+
+
+*****
+
+####  woyzeck  
+##### 4920#       发表于 2022-10-16 00:23
+
+去年TS第一天一场没赢，相信萧瑟 去年TS第一天一场没赢，相信萧瑟 去年TS第一天一场没赢，相信萧瑟
+
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4921#       发表于 2022-10-16 00:24
+
+贴吧啥开始了，什么陪女友，逛夜店都来了，提前开始分锅
+
+*****
+
+####  TI三冠王AME  
+##### 4922#       发表于 2022-10-16 00:24
+
+凡是你在本楼看到的像是NGA二比的言论都是楼友搬运的货真价实的NGA二比言论，望周知
+
+*****
+
+####  情商  
+##### 4923#         楼主| 发表于 2022-10-16 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57929499&amp;ptid=2099454" target="_blank">李锐可 发表于 2022-10-15 23:51</a>
+xdm曼巴门徒的言论有没有懒人包啊，懒得翻了</blockquote>
+大概就是打拳、微博追忆蜗壳和秀自己小学生级别的阅读理解，然后把东野圭吾打成东野奎吾了
+
+*****
+
+####  woyzeck  
+##### 4924#       发表于 2022-10-16 00:25
+
+凡是你在本楼看到的像是NGA二比的言论都是楼友小号在nga发的然后再搬到楼里让大家开心的货真价实的二比言论，望周知
+
+*****
+
+####  战狼PTSD  
+##### 4925#       发表于 2022-10-16 00:25
+
+[https://nga.178.com/read.php?tid=33876040](https://nga.178.com/read.php?tid=33876040)
+
+超级假赛论坛开始辣
+
+*****
+
+####  情商  
+##### 4926#         楼主| 发表于 2022-10-16 00:25
+
+凡是你在本楼看到的像是NGA二比的言论都是楼友小号在nga发的然后再搬到楼里让大家开心的货真价实的二比言论，望周知
+
+*****
+
+####  战狼PTSD  
+##### 4927#       发表于 2022-10-16 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57929995&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-16 00:24</a>
+
+贴吧啥开始了，什么陪女友，逛夜店都来了，提前开始分锅</blockquote>
+那个不是12号的经典造谣吗
+
+*****
+
+####  战狼PTSD  
+##### 4928#       发表于 2022-10-16 00:26
+
+凡是你在本楼看到的像是NGA二比的言论都是楼主小号在nga发的然后再搬到楼里让大家开心的货真价实的二比言论，望周知
+
+*****
+
+####  AualloniaMK2  
+##### 4929#       发表于 2022-10-16 00:26
+
+预祝lgd好死喵，lgd好死谢谢喵<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 4930#       发表于 2022-10-16 00:26
+
+可能是新加坡有buff，去年新加坡美酒直到决赛第三把前eg都搞得厉害得一匹，窝都准备好加入清蒜苏猴队伍了。
+相信rtz和床哥！
+
+*****
+
+####  aki1ostt  
+##### 4931#       发表于 2022-10-16 00:27
+
+ 本帖最后由 aki1ostt 于 2022-10-16 00:29 编辑 
+
+RNG今天后面的四把只有打BB的第一把和打BOOM的第一把算正经翻盘吧。
+
+打BB第二把其实也就中期拉扯阶段落后5k左右，然后超哥一波四杀完就碾压了，算不上什么翻盘。
+
+打BOOM第二把也是，前中期小优，但是中期拉席克被马西单防加上有火枪，一直上不去高，然后拉扯阶段有时候落后一点，最后转RAT赢下比赛，主动权基本都还是掌握在RNG手里的。
+
+*****
+
+####  fopinecone  
+##### 4932#       发表于 2022-10-16 00:27
+
+屎还是楼友会搬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  情商  
+##### 4933#         楼主| 发表于 2022-10-16 00:28
+
+【《屏幕外的萧瑟仙贝到底咋死的？》TI11小组赛第一天 EG VS LGD-哔哩哔哩】 https://b23.tv/3tejK66
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  UnhappyTails  
+##### 4934#       发表于 2022-10-16 00:28
+
+是时候双修（包括nga）也禁止入楼了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuisite  
+##### 4935#       发表于 2022-10-16 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930011&amp;ptid=2099454" target="_blank">战狼PTSD 发表于 2022-10-16 00:25</a>
+
+https://nga.178.com/read.php?tid=33876040
+
+超级假赛论坛开始辣</blockquote>
+原友是这样的，不基德。csgo那边的nafany也遭报应了
+
+*****
+
+####  TI三冠王AME  
+##### 4936#       发表于 2022-10-16 00:30
+
+<img src="https://img.saraba1st.com/forum/202210/16/003031wqq2dds4qhkkmkbe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 00:30 上传
+
+妮也想看八王替补某人？希望我们想的是同一个人嗷
+
