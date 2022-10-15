@@ -8386,3 +8386,14 @@ _~O~TRS)Y0E@GD(5CTTZ8OS.bmp
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这下真狠啊，三支队伍都要重新编排了。想了想，红队抽一个给白队，486黄队不参加就正好三队都有9人。
 
+
+
+*****
+
+####  holoan  
+##### 2303#         楼主| 发表于 2022-10-15 17:17
+
+再重编一次准备好再被骂一次吧
+
+明年肯定不可能再开了SB才这么喜欢每年都被人骂一次
+

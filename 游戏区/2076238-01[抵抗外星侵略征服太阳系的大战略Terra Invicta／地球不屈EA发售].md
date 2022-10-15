@@ -1853,3 +1853,14 @@ yy一下
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">目前已经军事实力上超越了外星太君了，并且还派船攻占了太君的前线基地，地球上的外星人太君都被抓起来或者暗杀了，外星太君，是时候还血债了
 
+
+
+*****
+
+####  agion117  
+##### 168#       发表于 2022-10-15 17:11
+
+完全没有游戏理解，国家控制点全吃掉更好还是吃一部分好？占了日法德比利时几乎没有余力吃其他国家了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
