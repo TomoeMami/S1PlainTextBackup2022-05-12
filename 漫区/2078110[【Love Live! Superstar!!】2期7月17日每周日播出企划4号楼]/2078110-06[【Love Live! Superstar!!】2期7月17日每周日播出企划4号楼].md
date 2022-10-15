@@ -8851,3 +8851,14 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927962&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-15 22:33</a></blockquote>
 三个pjsk的，什么时候鲤鱼也能进去（2周年没加新团队3周年还有机会吗<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8332#       发表于 2022-10-15 22:45
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-10-15 22:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是リスアニ！LIVE2023吗，说起来第二天就是3rd东京day1了真忙啊
+

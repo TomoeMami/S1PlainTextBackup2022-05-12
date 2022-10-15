@@ -410,3 +410,12 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 估计就是真飞鸟位了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  喷火飞龙  
+##### 652#       发表于 2022-10-15 22:50
+
+前面说有没有出现过的，我隐约记得有一部赛文OV是团顶了风森变身？
+
