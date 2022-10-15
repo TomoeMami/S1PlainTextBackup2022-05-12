@@ -8437,3 +8437,14 @@ ZZZZZZZZZZZZZZZZZ
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">畜男表示我看不懂但我大受震撼，亚达哟
 
+
+
+*****
+
+####  帽子戏法马夏尔  
+##### 910#       发表于 2022-10-15 08:17
+
+说好的肥宅论坛呢，为什么漏油们都这么老炮<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
