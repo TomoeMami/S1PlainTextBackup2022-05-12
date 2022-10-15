@@ -1973,3 +1973,15 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 请问下火山地区哪里使用回旋镖呀
 
+
+
+*****
+
+####  九门惠  
+##### 188#       发表于 2022-10-15 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926523&amp;ptid=2098044" target="_blank">PunkEgg 发表于 2022-10-15 21:22</a>
+
+请问下火山地区哪里使用回旋镖呀</blockquote>
+有一个跨几个场景的落下处，中间有个场景左侧有条路，那里尽头会提示把石头打下去
+
