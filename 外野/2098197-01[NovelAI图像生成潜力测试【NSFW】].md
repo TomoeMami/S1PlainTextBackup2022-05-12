@@ -3763,3 +3763,14 @@ Steps: 28, Sampler: Euler, CFG scale: 12, Seed: 1969404127, Size: 512x512, Model
 
 问楼主一句，逼真吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  怀言者  
+##### 292#       发表于 2022-10-15 22:01
+
+是不是只能生成二次元的图<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2206122SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

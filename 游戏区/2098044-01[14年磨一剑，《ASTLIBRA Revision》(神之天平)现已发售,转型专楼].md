@@ -2011,3 +2011,12 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  casle  
+##### 191#       发表于 2022-10-15 22:05
+
+学会用双手武器配角斗士盾击之后一下子简单了起来，全程霸体输出<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
