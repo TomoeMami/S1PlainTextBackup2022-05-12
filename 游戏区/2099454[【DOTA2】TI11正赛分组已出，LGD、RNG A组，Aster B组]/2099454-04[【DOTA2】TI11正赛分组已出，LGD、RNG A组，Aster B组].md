@@ -4514,3 +4514,265 @@ rng对阵容强势点的把控是比较差的，容易把自己容错率打没�
 
 小组赛不是在酒店打吗
 
+
+
+*****
+
+####  woyzeck  
+##### 5032#       发表于 2022-10-16 01:53
+
+管人痴都是这么拆管人痴的台的么
+
+*****
+
+####  UnhappyTails  
+##### 5033#       发表于 2022-10-16 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930729&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-16 01:52</a>
+小组赛不是在酒店打吗</blockquote>
+那就是还没反应过来已经正赛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asd235614  
+##### 5034#       发表于 2022-10-16 01:56
+
+ 本帖最后由 asd235614 于 2022-10-16 02:06 编辑 
+
+话说自从去年被NGA恶心到润到你楼来，这一年和楼友一起看国区和东欧西欧的DPC，一起看major，一起看利雅得，收获了很多欢乐和段子，从楼友这也学了不少dota小技巧，现在作为一个三十老逼和朋友开黑也回归初心打的越来越快乐了，感谢楼友也发个红包吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+密码是七个字，前三是楼友最喜欢的后现代主义dota选手，后四是他的后现代主义成名操作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">动词是拆合，免得楼友误会
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| walfeds| + 1|小电锤upup|
+
+查看全部评分
+
+*****
+
+####  战狼PTSD  
+##### 5035#       发表于 2022-10-16 02:00
+
+有一说一，女王的BLINK不是闪烁吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 5036#         楼主| 发表于 2022-10-16 02:02
+
+居然不是克里斯分解电锤，害我又被禁止领红包了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  战狼PTSD  
+##### 5037#       发表于 2022-10-16 02:02
+
+怎么不是王淳煜波高水人 可恶
+
+*****
+
+####  蛭人  
+##### 5038#       发表于 2022-10-16 02:02
+
+居然不是克里斯分解电锤，害我又被禁止领红包了
+
+*****
+
+####  越动天下  
+##### 5039#       发表于 2022-10-16 02:04
+
+这个红包我还真想不出来
+
+*****
+
+####  asd235614  
+##### 5040#       发表于 2022-10-16 02:04
+
+ 本帖最后由 asd235614 于 2022-10-16 02:05 编辑 
+
+想了一下还是编辑到上面了
+
+
+
+*****
+
+####  情商  
+##### 5041#         楼主| 发表于 2022-10-16 02:04
+
+我笑了 徘到了一个 一级学飞的先知，这盘打完睡觉了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  战狼PTSD  
+##### 5042#       发表于 2022-10-16 02:06
+
+睡前不要打DOTA
+
+*****
+
+####  蛭人  
+##### 5043#       发表于 2022-10-16 02:08
+
+一级学飞偷鸡是吧，不基德。
+
+*****
+
+####  solmyrli  
+##### 5044#       发表于 2022-10-16 02:12
+
+看看接下来两个比赛日Lgd啥状态，就知道第一天究竟是扮猪还是真猪了……飞一会，先飞一会<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  苹果皮卡丘  
+##### 5045#       发表于 2022-10-16 02:21
+
+学习一下集美，抛开本楼具体发言不谈，感觉当年在管人区潜水的时候在管综就天天看尾巴被人追着引用“尾巴哥别云了”
+
+*****
+
+####  蛭人  
+##### 5046#       发表于 2022-10-16 02:24
+
+尾巴哥别云了
+
+*****
+
+####  nowaki  
+##### 5047#       发表于 2022-10-16 02:25
+
+ 本帖最后由 nowaki 于 2022-10-16 02:27 编辑 
+
+CN dota的旗帜明天 一定挺起来 LGD今天有点负重比赛的味道 bp都没按大热来 是一只玩自己思路的队伍 非常有潜力 相反我不看好 茶队转自超级集美论坛
+
+*****
+
+####  六娃  
+##### 5048#       发表于 2022-10-16 02:28
+
+25分钟分身紫苑A杖的娜迦被队友送输了呀，四个傻逼在后面看劳资拆高地被杀两条命
+
+*****
+
+####  Vladimeow  
+##### 5049#       发表于 2022-10-16 02:30
+
+是否可以展望一下老干瘪掉进败者组光速淘汰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 5050#         楼主| 发表于 2022-10-16 02:30
+
+遇到个问题，为什么开了永世法衣还会被法伤断跳啊，开挑战就不会。
+
+关键团先手差点没打出来
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  情商  
+##### 5051#         楼主| 发表于 2022-10-16 02:39
+
+试出来了，点了天赋，伤害超过阈值破了罩子<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  你气不气  
+##### 5052#       发表于 2022-10-16 02:46
+
+好几年前看过中单光一的直播，说话跟太监一样，而且皮套特别丑
+
+*****
+
+####  战狼PTSD  
+##### 5053#       发表于 2022-10-16 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930940&amp;ptid=2099454" target="_blank">Vladimeow 发表于 2022-10-16 02:30</a>
+
+是否可以展望一下老干瘪掉进败者组光速淘汰</blockquote>
+面8不要脸的把把给大便哥点毒龙应该不会
+
+*****
+
+####  你气不气  
+##### 5054#       发表于 2022-10-16 02:46
+
+<blockquote>情商 发表于 2022-10-16 01:44
+意思是恁也是夜宴萨特？
+
+论坛助手,iPad</blockquote>
+被蝙蝠拉接猛犸拱了，没办法
+
+*****
+
+####  walfeds  
+##### 5055#       发表于 2022-10-16 02:53
+
+看了一天ti都没空看另一边ti，还是明天再说吧，睡了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈曼的YY  
+##### 5056#       发表于 2022-10-16 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930011&amp;ptid=2099454" target="_blank">战狼PTSD 发表于 2022-10-16 00:25</a>
+[https://nga.178.com/read.php?tid=33876040](https://nga.178.com/read.php?tid=33876040)
+
+超级假赛论坛开始辣</blockquote><blockquote>有一说一，扫帚柄先知，海洋之心狼人，带一整场，放现在我依然要质疑</blockquote>
+这回复他妈的108赞 我鲨了集美全家
+
+*****
+
+####  iriyano  
+##### 5057#       发表于 2022-10-16 03:07
+
+惊了半夜起来尿尿居然还能捡到红包
+
+*****
+
+####  UnhappyTails  
+##### 5058#       发表于 2022-10-16 03:18
+
+管人我还真是云的，楼里也都知道我云的，管人平时直播真没意思
+
+口令是尾巴哥别云了，我不知道平时大家给多少，给少了别骂
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 情商| + 1||
+| 战狼PTSD| + 1|发红包就是本楼好同志|
+
+查看全部评分
+
+*****
+
+####  情商  
+##### 5059#         楼主| 发表于 2022-10-16 03:21
+
+沈志豪锐评
+
+<img src="https://p.sda1.dev/7/6cbea721851021924d1d830e3b186a70/CMP_20221016032113305.jpg" referrerpolicy="no-referrer">
+

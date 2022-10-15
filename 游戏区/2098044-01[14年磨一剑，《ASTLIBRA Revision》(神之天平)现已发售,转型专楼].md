@@ -2066,3 +2066,63 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 草，我有个很严重的问题，第一章的村庄过去是不是后面就不能去了，我在第三章打到个第一章的图纸，但是回不去没商店可以买啊，逗我？
 
+
+
+*****
+
+####  蓝雉  
+##### 197#         楼主| 发表于 2022-10-16 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930512&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-16 01:21</a>
+草，我有个很严重的问题，第一章的村庄过去是不是后面就不能去了，我在第三章打到个第一章的图纸，但是回不 ...</blockquote>
+城里的武器店和新手村共通的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A1LI| + 2|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  心と魂  
+##### 198#       发表于 2022-10-16 03:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930512&amp;ptid=2098044" target="_blank"> A1LI 发表于 2022-10-16 01:21</a> 草，我有个很严重的问题，第一章的村庄过去是不是后面就不能去了，我在第三章打到个第一章的图纸，但是回不去没商店可以买啊，逗我？ </blockquote>
+第一张那些装备在主城铁匠铺好像也可以做来自: iPhone客户端
+
+*****
+
+####  帆影FX  
+##### 199#       发表于 2022-10-16 03:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930182&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-16 00:41</a>
+
+草了这剧情分支间隔时间那么离谱的吗
+
+第五章魔王城第二个捷径的机关怎么开？这游戏把捷径机关藏那么好是真 ...</blockquote>
+从左边那堆柱子上一路跳过去
+
+*****
+
+####  yla  
+##### 200#       发表于 2022-10-16 03:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930144&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-16 00:38</a>
+
+第四关有天平吗？序章2个，第二章1个，第三章1个，第四章没找到</blockquote>
+第四章最后boss房前的存档点右上跳到屋顶往右走
+
+*****
+
+####  pf67  
+##### 201#       发表于 2022-10-16 03:59
+
+第五章的不死之王怎么打，疯狂召唤boss和杂兵
+

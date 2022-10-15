@@ -6218,3 +6218,191 @@ kagura_mea.pt
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">又要变成LOL人柱力了
 
+
+
+*****
+
+####  chelomei  
+##### 12634#       发表于 2022-10-16 02:03
+
+ 本帖最后由 chelomei 于 2022-10-16 02:05 编辑 
+
+认真挑了44张图，跑了1万步出来效果还是一般，军服含量爆表
+
+限制个功耗,挂机睡觉跑10万步好了
+
+QQ图片20221016020319.jpg
+(85.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 02:03 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/020356h8xo3rzwxpo11jvh.jpg" referrerpolicy="no-referrer">
+
+QQ图片20221016020319.jpg
+(85.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 02:04 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/020404z000tt20fyhtagay.jpg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 往世雷书| + 1||
+
+查看全部评分
+
+*****
+
+####  lovcavil  
+##### 12635#       发表于 2022-10-16 02:27
+
+<img src="https://img.saraba1st.com/forum/202210/16/022552fi1kr1r3odh6s377.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221016022539.png</strong> (111.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 02:25 上传
+
+这也能ai小画家交流的么？借了隔壁的咒语
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 往世雷书| + 1||
+
+查看全部评分
+
+*****
+
+####  古战场亡魂  
+##### 12636#       发表于 2022-10-16 03:07
+
+ 本帖最后由 古战场亡魂 于 2022-10-16 03:25 编辑 
+
+这是没有学习，用咒语堆出来的。
+
+楼里有能力的帮忙优化一下咒语，比如这个帽子怎么处理，这个胸口的领带怎么处理，比如这个头发上的发箍怎么处理。
+
+正面：1girl,blush,frilled_apron,{{{white hair}}},{{{very long hair}}},heterochromia,{{{black military cap with gold bevel tooth pattern}}},{{{light blue  ribbon}}},
+
+looking_at_viewer,hair bow,short sleeves,solo,twintails,virtual youtuber,white apron,white background,white gloves,blunt bangs,white silk stocking
+
+负面：{{{red eyes}}},{{{green eyes}}},{{{purple eyes}}},headwear,bow,neckerchief,nsfw,lowres,bad anatomy,bad hands,text,error,missing fingers,extra digit,fewer digits,cropped,worst quality,low quality,normal quality,jpeg artifacts,signature,watermark,username,blurry,missing arms,long neck,Humpbacked
+
+<img src="https://img.saraba1st.com/forum/202210/16/030512cesyjjii7ha9jaxa.png" referrerpolicy="no-referrer">
+
+<strong>00921-66815644-1girl,blush,frilled_apron,{{{white hair}}},{{{very long hair}}},h.png</strong> (49.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 03:05 上传
+
+*****
+
+####  古战场亡魂  
+##### 12637#       发表于 2022-10-16 03:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这是我挑了16张学了3000多次的pt，不加任何词条。
+
+<img src="https://img.saraba1st.com/forum/202210/16/033355ueek9ex98koeetdf.png" referrerpolicy="no-referrer">
+
+<strong>01034-2340624984-kaguramea-prompt.png</strong> (52.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 03:33 上传
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+kaguramea.pt
+
+2022-10-16 03:28 上传
+点击文件名下载附件
+
+18.92 KB, 下载次数: 0
+
+*****
+
+####  lovcavil  
+##### 12638#       发表于 2022-10-16 03:47
+
+我有点误解了训练集，我以为一般都是各种形式都带点，然后抽象出特征。实际结果就变成了抽奖里再抽奖，经常出现那些画风惊奇的还有q版的，而且迭代多了就直接变抽象了，不知道是不是过拟合了（大概风格50步，subject3000步，不理解）。应该只用那些大手子的画会好点。
+
+*****
+
+####  古战场亡魂  
+##### 12639#       发表于 2022-10-16 04:01
+
+正面词条：best quality,highly detailed,{{{masterpiece}}},ultra-detailed,illustration,solo负面词条：nsfw,lowres,bad anatomy,bad hands,text,error,missing fingers,extra digit,fewer digits,cropped,worst quality,low quality,normal quality,jpeg artifacts,signature,watermark,username,blurry,missing arms,long neck,Humpbacked
+
+草牛的学习模型：
+
+<img src="https://img.saraba1st.com/forum/202210/16/040004l5bkj59030mezp66.png" referrerpolicy="no-referrer">
+
+<strong>grid-0055.png</strong> (269.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 04:00 上传
+
+chelomei之前的学习模型：
+
+<img src="https://img.saraba1st.com/forum/202210/16/040105ycx161j3js1ioj6u.png" referrerpolicy="no-referrer">
+
+<strong>grid-0056.png</strong> (262.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 04:01 上传
+
+我的学习模型：
+
+<img src="https://img.saraba1st.com/forum/202210/16/040123fbpaddbjvcwusa9e.png" referrerpolicy="no-referrer">
+
+<strong>grid-0054.png</strong> (271.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 04:01 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 往世雷书| + 1||
+
+查看全部评分
+
+*****
+
+####  古战场亡魂  
+##### 12640#       发表于 2022-10-16 04:04
+
+ 本帖最后由 古战场亡魂 于 2022-10-16 04:08 编辑 
+
+你们别瞎喂了，挑点空白背景多一点，正面多一点的，服装完整一致图适当学习。
+
+抽30张学习个3000次就差不多了。
+
+至于之后的背景填充和手势动作啥的，那是可以调整的。
+

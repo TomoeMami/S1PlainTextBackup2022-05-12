@@ -8898,3 +8898,23 @@ live啊。不过鲤鱼和リスアニ确实渊源不小，之前北京碰到emi�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">有live看 都是好事 
 
+
+
+*****
+
+####  liu461  
+##### 8337#       发表于 2022-10-16 02:30
+
+还车啥官方弱智操作呢，内娱怎么碰皇卡位降咖祭天是不是看太少了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+复盘来看前三集小星星要有多成功，花田这些官方就要有多不爽，因为明捧的皇只有圣香音一个，作为祭天位的可可太出挑了，所以要不惜一切手段去恶剪，去配莫名其妙的盐台词，去减少镜头打到打压的目的，而可可也根本不是唯一的受害者<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 8338#       发表于 2022-10-16 03:22
+
+官方开个选举看看呗，看看这样子干到底是什么效果
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

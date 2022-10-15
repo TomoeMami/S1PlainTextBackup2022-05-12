@@ -11830,3 +11830,12 @@ niru、cheeky什么小废物
 
 今天不是一直在玩希尔嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天天座理世  
+##### 17582#       发表于 2022-10-16 02:31
+
+训练赛nrk替补一直用的希尔，正赛叶师上用密客有点搞了
+
