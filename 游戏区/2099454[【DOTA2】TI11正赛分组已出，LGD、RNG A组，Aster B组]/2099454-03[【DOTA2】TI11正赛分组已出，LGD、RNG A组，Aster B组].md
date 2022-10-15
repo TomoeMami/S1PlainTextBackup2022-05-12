@@ -3735,3 +3735,335 @@ bb这个队能被翻这么多把，绝对是有队员心理上有重大缺陷，
 
 厨子我真觉得打3可以，喜欢出了关键装备打架，先手吃技能，切入也好
 
+
+
+*****
+
+####  TI三冠王AME  
+##### 3463#       发表于 2022-10-15 18:03
+
+QC要是2:0液体了，晚上是不是真有可能宰两把畜
+
+*****
+
+####  我爱撩菜  
+##### 3464#       发表于 2022-10-15 18:03
+
+这老鹿血精真是不讲道理
+
+*****
+
+####  zhrs456  
+##### 3465#       发表于 2022-10-15 18:03
+
+入了就是入了
+
+*****
+
+####  白野苍衣  
+##### 3466#       发表于 2022-10-15 18:03
+
+入了就是入了
+
+*****
+
+####  外挂全家脚气  
+##### 3467#       发表于 2022-10-15 18:03
+
+外卡发力了，液体和秘密都打回来了..
+
+*****
+
+####  walfeds  
+##### 3468#       发表于 2022-10-15 18:03
+
+入了就是入了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 3469#       发表于 2022-10-15 18:03
+
+入了就是入了
+
+*****
+
+####  你可以试试  
+##### 3470#       发表于 2022-10-15 18:04
+
+虽然管人吃司马，但是和外野撸狗比还是更像个人
+
+*****
+
+####  cuisite  
+##### 3471#       发表于 2022-10-15 18:04
+
+入了就是入了
+
+*****
+
+####  IG.430  
+##### 3472#       发表于 2022-10-15 18:04
+
+何意啊 抓着入
+
+*****
+
+####  Mikumiku831  
+##### 3473#       发表于 2022-10-15 18:04
+
+入了就是入了
+
+*****
+
+####  asd235614  
+##### 3474#       发表于 2022-10-15 18:04
+
+入了就是入了！
+
+*****
+
+####  cobymar  
+##### 3475#       发表于 2022-10-15 18:04
+
+牛逼牛逼
+
+*****
+
+####  迷途lite  
+##### 3476#       发表于 2022-10-15 18:04
+
+居然是am带头入的，我替超哥不值
+
+*****
+
+####  枫雨  
+##### 3477#       发表于 2022-10-15 18:04
+
+超哥的版本啊
+
+*****
+
+####  非建政专用号  
+##### 3478#       发表于 2022-10-15 18:05
+
+ 本帖最后由 非建政专用号 于 2022-10-15 18:06 编辑 
+
+司了马了，过来你楼看了一眼都是无用信息复读，切回去bc除了wisper死完<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+司了马了，打完这句话切回去又来一遍<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+哥们这个切入该去打一了
+
+*****
+
+####  Imanmi  
+##### 3479#       发表于 2022-10-15 18:05
+
+哇ac这水人，又致敬ame
+
+*****
+
+####  我爱撩菜  
+##### 3480#       发表于 2022-10-15 18:05
+
+哇进去就看到水人暴毙，李逵翻盘咯
+
+
+
+*****
+
+####  IG.430  
+##### 3481#       发表于 2022-10-15 18:06
+
+啥情况啊，不回gg而且抓着虐泉，中间有drama吗
+
+*****
+
+####  一品堂官  
+##### 3482#       发表于 2022-10-15 18:06
+
+温泉好泡
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  nightmare902015  
+##### 3483#       发表于 2022-10-15 18:06
+
+没有drama，我也不知道为什么连续一直入，可能只是试试看血精虚无主义老鹿强度
+
+*****
+
+####  walfeds  
+##### 3484#       发表于 2022-10-15 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漏油看来要硬生生把液体奶活了
+
+*****
+
+####  mkii量产型  
+##### 3485#       发表于 2022-10-15 18:06
+
+北京人状态太好了，我建议ti引入替补机制，关键局北京人自己打，平时上替补节省体力
+
+*****
+
+####  格雷殿下  
+##### 3486#       发表于 2022-10-15 18:06
+
+bb经验还是不足啊
+
+*****
+
+####  万世创伤伊莫库  
+##### 3487#       发表于 2022-10-15 18:07
+
+我人晕了，去看了眼GSL，回来液体和秘密都要翻了
+
+*****
+
+####  哈曼的YY  
+##### 3488#       发表于 2022-10-15 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923185&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-15 18:02:46</a>
+厨子我真觉得打3可以，喜欢出了关键装备打架，先手吃技能，切入也好</blockquote>准备每个位置都夺一次冠是吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  a1370303  
+##### 3489#       发表于 2022-10-15 18:07
+
+偶像和土娟一组啊，偶像坐大牢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 3490#       发表于 2022-10-15 18:07
+
+液体又被翻回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 3491#       发表于 2022-10-15 18:07
+
+野人回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/7/58bf6f98dce33bcf7b41de4d3ec0210c/-3fd8a6f13d6086ef.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  我爱撩菜  
+##### 3492#       发表于 2022-10-15 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923283&amp;ptid=2099454" target="_blank">a1370303 发表于 2022-10-15 18:07</a>
+
+偶像和土娟一组啊，偶像坐大牢
+
+—— 来自 OnePlus LE2110, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+哇，这什么场面。哪个频道过去观摩一下
+
+*****
+
+####  一品堂官  
+##### 3493#       发表于 2022-10-15 18:08
+
+什么退赛节奏 还能退赛的 没游进来的都赖着不想走了 针灸涝的涝死？
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  IG.430  
+##### 3494#       发表于 2022-10-15 18:08
+
+都怪430个鳖登大鸽特鸽，好啦，现在偶像要跟土娟坐牢了，你开心啦
+
+*****
+
+####  windhawind2  
+##### 3495#       发表于 2022-10-15 18:09
+
+还是觉得rng的3号位人马没啥特殊作用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  a1370303  
+##### 3496#       发表于 2022-10-15 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923305&amp;ptid=2099454" target="_blank">我爱撩菜 发表于 2022-10-15 18:08</a>
+哇，这什么场面。哪个频道过去观摩一下</blockquote>
+频道D
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷途lite  
+##### 3497#       发表于 2022-10-15 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923305&amp;ptid=2099454" target="_blank">我爱撩菜 发表于 2022-10-15 18:08</a>
+哇，这什么场面。哪个频道过去观摩一下</blockquote>
+主舞台d路
+
+*****
+
+####  格雷殿下  
+##### 3498#       发表于 2022-10-15 18:10
+
+感觉人马不如屠夫
+
+*****
+
+####  Troywest  
+##### 3499#       发表于 2022-10-15 18:10
+
+东京哥要教对面玩卡尔了么23333
+
+*****
+
+####  nightmare902015  
+##### 3500#       发表于 2022-10-15 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923325&amp;ptid=2099454" target="_blank">windhawind2 发表于 2022-10-15 18:09</a>
+还是觉得rng的3号位人马没啥特殊作用踩很难先手到人 赤红甲笛子任意一个三号位都能出吧 这把不是ts ...</blockquote>
+人马本来就没啥用，就图他一个快速重置站位
+
+*****
+
+####  反方向的波  
+##### 3501#       发表于 2022-10-15 18:11
+
+妮选别的英雄杨沈怡连道具都开不出来
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 3502#       发表于 2022-10-15 18:12
+
+请大家喝个可乐
+
+口令：卡卡我要玩老鹿
+
+为了避免有假粉，这个口令必须用超哥的昌平口音打出来才能领，请小超人自己悟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 3503#         楼主| 发表于 2022-10-15 18:12
+
+谢谢提醒，卜会点进d了
+
+*****
+
+####  非建政专用号  
+##### 3504#       发表于 2022-10-15 18:12
+
+秘密应该是翻了，水人一变血魔bc直接尿<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
