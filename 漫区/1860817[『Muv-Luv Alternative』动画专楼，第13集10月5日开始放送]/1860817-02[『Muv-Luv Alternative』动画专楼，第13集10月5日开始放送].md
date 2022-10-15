@@ -1690,3 +1690,21 @@ Muv-Luv本传的时间线类似这么个关系
 
 下一集小麻是不是要再死一次了
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1928#       发表于 2022-10-15 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57912146&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-10-14 22:41</a>
+
+有没有人说下tda的人类现况？ 
+
+为什么看续作的pv奶黄包都整了出来 小武不是把那啥都捏碎了吗 ...</blockquote>
+残存的人类聚集在北美大陆，勉强把JFK的hive给敲碎了
+
+但是BETA还在源源不断的被运来，轨道卫星上的核弹用一枚少一枚，迟早会拦不住敌人的登陆单元
+
+奶黄包本身不需要纯夏这样的单元也能用，但是对驾驶员的负担很大
+

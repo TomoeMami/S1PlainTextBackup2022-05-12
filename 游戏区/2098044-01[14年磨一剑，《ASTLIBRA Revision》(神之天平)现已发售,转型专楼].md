@@ -1469,3 +1469,19 @@ https://w.atwiki.jp/astlibra/sp/list
 
 有种预感，这游戏结局十有八九会把我整玉玉
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 146#       发表于 2022-10-15 08:29
+
+ 本帖最后由 格林卡罗尔 于 2022-10-15 08:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57914261&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-15 03:25</a>
+没看懂，那个石板不就只能打开地精巢穴嘛？还能打开哪？
+
+如果是巢穴里，没看见哪里有路通向那个宝箱啊。 ...</blockquote>
+就我回复的坛友截图里的宝箱，右边有个不易察觉的门，开法和哥布林洞窟差不多
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
