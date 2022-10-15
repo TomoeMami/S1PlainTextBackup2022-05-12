@@ -1864,3 +1864,14 @@ yy一下
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  johnkamsar  
+##### 169#       发表于 2022-10-15 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">已经打到学院派最后一个目标：逼迫外星太君议和
+星际海军已经尽可能爆兵（事实上已经达到了全宇宙63%水平，但游戏要求至少75%才行），陆地人口和政权控制已经完成，剩下就是军队的事情了
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">外星太君们，该选择你们的路线啦～是选择和平共处五项原则呢，还是说选择被核爆掉所有首脑后的全面灭族战争呢？
+

@@ -7357,3 +7357,200 @@ rng不会兽和马西，进了淘汰赛要被乱干
 
 火猫和陈？
 
+
+
+*****
+
+####  越动天下  
+##### 3935#       发表于 2022-10-15 20:51
+
+我感觉选的不好
+
+*****
+
+####  夏溪澪mio  
+##### 3936#       发表于 2022-10-15 20:51
+
+等一个线劣0-10<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 3937#       发表于 2022-10-15 20:52
+
+只能说这俩英雄没有一选价值
+
+*****
+
+####  你可以试试  
+##### 3938#       发表于 2022-10-15 20:52
+
+含泪BP啊懂又不懂
+
+*****
+
+####  proselyte  
+##### 3939#       发表于 2022-10-15 20:52
+
+玛西真不选或ban吗
+
+*****
+
+####  吃货红毛  
+##### 3940#       发表于 2022-10-15 20:52
+
+快 LGD选个线强阵容 然后让我看看怎么被打爆
+
+*****
+
+####  テロメア  
+##### 3941#       发表于 2022-10-15 20:53
+
+soniqs功课做到异世界去了
+
+*****
+
+####  proselyte  
+##### 3942#       发表于 2022-10-15 20:53
+
+抬走吧
+
+什么人马
+
+*****
+
+####  天堂蜘蛛  
+##### 3943#       发表于 2022-10-15 20:53
+
+人马逆天
+
+*****
+
+####  吃货红毛  
+##### 3944#       发表于 2022-10-15 20:54
+
+意思是要开始拙劣的模仿
+
+*****
+
+####  walfeds  
+##### 3945#       发表于 2022-10-15 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">面八真眼角有泪是吧
+
+*****
+
+####  六娃  
+##### 3946#       发表于 2022-10-15 20:54
+
+南美doto，强壮
+jajaja！
+
+*****
+
+####  莉拉厨  
+##### 3947#       发表于 2022-10-15 20:55
+
+两边都看不懂啊，左边点个哑巴出来，右边顶着兽玩小黑
+
+*****
+
+####  反方向的波  
+##### 3948#       发表于 2022-10-15 20:55
+
+yopaj还没带队推，大哥真是mushi？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 3949#       发表于 2022-10-15 20:56
+
+看不起马家的颠勺姑娘？
+
+*****
+
+####  非建政专用号  
+##### 3950#       发表于 2022-10-15 20:56
+
+完美真是司马了，ams+憋憋的解说，差点睡着
+
+*****
+
+####  反方向的波  
+##### 3951#       发表于 2022-10-15 20:58
+
+哇胡良智这种老头打到第三个bo2已经意识模糊了啊
+
+*****
+
+####  Litccc  
+##### 3952#       发表于 2022-10-15 20:58
+
+选手摄像头能不能换成娟，不然真要睡着了
+
+*****
+
+####  StrangerJ  
+##### 3953#       发表于 2022-10-15 20:59
+
+换台👀干瘪呀<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 3954#       发表于 2022-10-15 20:59
+
+某北美电竞相关记者表示懒狗社把各大战队的人都叫去开会
+
+表示要MAKE DOTA GREAT AGAIN，明年高规格拉满<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/15/205936zgbda4l4uvh40kgv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221015205921.png</strong> (21.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 20:59 上传
+
+*****
+
+####  walfeds  
+##### 3955#       发表于 2022-10-15 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926108&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-15 20:59</a>
+
+某北美电竞相关记者表示懒狗社把各大战队的人都叫去开会
+
+表示要MAKE DOTA GREAT AGAIN，明年高规格拉满[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妮信吗，我卜信
+
+*****
+
+####  外挂全家脚气  
+##### 3956#       发表于 2022-10-15 21:00
+
+LGD这，看对面阵容有种不知道怎么赢的画面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 3957#       发表于 2022-10-15 21:00
+
+司马懒狗东西要干活?
+
+*****
+
+####  adretyu67  
+##### 3958#       发表于 2022-10-15 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926108&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-15 20:59</a>
+
+某北美电竞相关记者表示懒狗社把各大战队的人都叫去开会
+
+表示要MAKE DOTA GREAT AGAIN，明年高规格拉满[f:0 ...</blockquote>
+第一条那么重要不说吗。
+
+畜赛特继续做，但是要到ti决赛才出（比今年还晚）
+
