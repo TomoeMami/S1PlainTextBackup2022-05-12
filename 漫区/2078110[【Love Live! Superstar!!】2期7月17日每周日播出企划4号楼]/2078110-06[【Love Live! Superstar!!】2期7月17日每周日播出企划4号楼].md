@@ -8664,3 +8664,18 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 可可是否可以达成唯一无个人回无C位无个人曲的三无角色，就看第三季了</blockquote>
 个人曲还是有的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8316#       发表于 2022-10-15 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919255&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-15 13:53</a>
+
+说不定呢。回国包袱已经甩掉了，就算有个人回也不过是像这期恋回一样耍宝一集，就这样一集也未必愿意给。独 ...</blockquote>
+这么说我想起之前看到的一个第一季结尾的分析，恋是在第一季就把自己的关键剧情（学园偶像、妈妈、救校）全解决完了，后面不好再展开写，必须要加新东西（现在看来是沉迷游戏，草）
+
+可可现在其实也差不多啊，能展开写个人回的回国剧情基本无了（第三季还拿这个说事那就真是没活了，鱼生放都说回国的事已经结束了），与之相关的姐姐父母大概率神隐，不会出现了，第三季真要拿可可说事大概也要加新东西。
+这下可恋了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

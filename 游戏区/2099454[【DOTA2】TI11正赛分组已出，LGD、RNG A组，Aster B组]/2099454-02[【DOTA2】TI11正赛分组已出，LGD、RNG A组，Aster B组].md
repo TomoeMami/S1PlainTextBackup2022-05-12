@@ -4375,3 +4375,285 @@ sucksa
 
 鸭头肉这德鲁伊是新练的吗
 
+
+
+*****
+
+####  没钱买手办  
+##### 2068#       发表于 2022-10-15 14:03
+
+这宝哥怎么像僵尸一样
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Lesismoe  
+##### 2069#       发表于 2022-10-15 14:03
+
+没梗吧，这个入的有点莫名奇妙
+
+*****
+
+####  情商  
+##### 2070#         楼主| 发表于 2022-10-15 14:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">外卡那帮睿智蜘蛛比起33这套出装简直小丑，出bkb和强袭打正面有a杖 紫苑/羊刀作用大？
+
+
+
+*****
+
+####  情商  
+##### 2071#         楼主| 发表于 2022-10-15 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919382&amp;ptid=2099454" target="_blank">Lesismoe 发表于 2022-10-15 14:03</a>
+
+没梗吧，这个入的有点莫名奇妙</blockquote>
+准备杀牛头暴走
+
+*****
+
+####  Litccc  
+##### 2072#       发表于 2022-10-15 14:03
+
+基地爆炸前杀了个五号位双头龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 2073#       发表于 2022-10-15 14:04
+
+进去找暴走，对面不基德润了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 2074#       发表于 2022-10-15 14:04
+
+南美队这么猛的？
+
+*****
+
+####  Bernoulli  
+##### 2075#       发表于 2022-10-15 14:04
+
+石头人这状态放突围赛出不来吧
+
+*****
+
+####  walfeds  
+##### 2076#       发表于 2022-10-15 14:04
+
+秘密怎么被宰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 2077#       发表于 2022-10-15 14:05
+
+要是鳖星入的时候公屏打一个for fata那节目效果爆炸
+
+*****
+
+####  六娃  
+##### 2078#       发表于 2022-10-15 14:05
+
+怎么还不开，三分钟没看到批九表演我身上仿佛有蜘蛛在爬
+
+*****
+
+####  情商  
+##### 2079#         楼主| 发表于 2022-10-15 14:05
+
+lgd这状态放突围赛出不来吧
+
+*****
+
+####  UnhappyTails  
+##### 2080#       发表于 2022-10-15 14:05
+
+别胡说，放南美预选也出不来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 2081#       发表于 2022-10-15 14:05
+
+ETT拿娜迦萨尔了
+
+*****
+
+####  你可以试试  
+##### 2082#       发表于 2022-10-15 14:05
+
+等一个LGD回家的漏油大红包
+
+*****
+
+####  usoda  
+##### 2083#       发表于 2022-10-15 14:06
+
+ni公子已经上轮椅了 勿念
+
+*****
+
+####  米德  
+##### 2084#       发表于 2022-10-15 14:06
+
+lgd这状态放突围赛出不来吧
+
+*****
+
+####  nowaki  
+##### 2085#       发表于 2022-10-15 14:06
+
+批九只是输了直邀队鳖茶
+
+哥哥可是输给了南美降级队hokori
+
+*****
+
+####  syndrome2032  
+##### 2086#       发表于 2022-10-15 14:06
+
+有无萨特讲解一下干瘪怎么输了红龙一局。
+
+*****
+
+####  六娃  
+##### 2087#       发表于 2022-10-15 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919431&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-15 14:06</a>
+有无萨特讲解一下干瘪怎么输了红龙一局。</blockquote>
+本来是要输两局的，南美兄弟没经验给翻了第一把
+
+*****
+
+####  DDWarrior  
+##### 2088#       发表于 2022-10-15 14:07
+
+转发一下隔壁论坛的测试<img src="https://p.sda1.dev/7/94918badbec6f180c441201cb72080c3/CMP_20221015140718489.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 2089#       发表于 2022-10-15 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919431&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-15 14:06</a>
+有无萨特讲解一下干瘪怎么输了红龙一局。</blockquote>
+被干烂了
+
+*****
+
+####  百世诸侯  
+##### 2090#       发表于 2022-10-15 14:07
+
+有无萨特讲解一下干瘪怎么赢了红龙一局。
+
+*****
+
+####  asd235614  
+##### 2091#       发表于 2022-10-15 14:07
+
+卧槽酱油萨尔娜迦大哥大鱼，这摇的也太欢了
+
+*****
+
+####  六娃  
+##### 2092#       发表于 2022-10-15 14:08
+
+一号位是pure，妖路子很难不多
+
+*****
+
+####  syndrome2032  
+##### 2093#       发表于 2022-10-15 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919437&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-15 14:07</a>
+本来是要输两局的，南美兄弟没经验给翻了第一把</blockquote>
+懂了，第二把我就看了个开头就午睡去了。
+
+张睿达一把谜团一把死灵龙。大约状态也不怎么好。
+
+*****
+
+####  walfeds  
+##### 2094#       发表于 2022-10-15 14:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼公子表示不想坐轮椅又站了起来
+
+*****
+
+####  IG.430  
+##### 2095#       发表于 2022-10-15 14:09
+
+thunder这梅肯松鼠，哥们开了眼了
+
+*****
+
+####  你可以试试  
+##### 2096#       发表于 2022-10-15 14:09
+
+第一把没看，红龙第一把怎么输鳖的？
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 2097#       发表于 2022-10-15 14:09
+
+屠夫打出了帕奇维克的感觉
+
+*****
+
+####  漂灵  
+##### 2098#       发表于 2022-10-15 14:10
+
+<blockquote>syndrome2032 发表于 2022-10-15 14:06
+有无萨特讲解一下干瘪怎么输了红龙一局。</blockquote>
+马西+老奶奶对线捅穿，处长对线被水人点烂，后期被发条单防
+
+*****
+
+####  syndrome2032  
+##### 2099#       发表于 2022-10-15 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919460&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-15 14:09</a>
+第一把没看，红龙第一把怎么输鳖的？</blockquote>
+控盾不会打压制上高，一直没拉开经验经济差，最后tb成型让仙贝装到了。
+
+*****
+
+####  UnhappyTails  
+##### 2100#       发表于 2022-10-15 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919431&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-15 14:06</a>
+有无萨特讲解一下干瘪怎么输了红龙一局。</blockquote>
+二十几分钟就碎了全程没还手
+
+
+
+*****
+
+####  Bernoulli  
+##### 2101#       发表于 2022-10-15 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919387&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-15 14:03</a>
+
+基地爆炸前杀了个五号位双头龙</blockquote>
+感觉皮球的仇恨值经常拉得很高。
+
+*****
+
+####  walfeds  
+##### 2102#       发表于 2022-10-15 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">风风打克神好狠
+
+*****
+
+####  zhrs456  
+##### 2103#       发表于 2022-10-15 14:12
+
+纯真神玩大鱼去了 
+
