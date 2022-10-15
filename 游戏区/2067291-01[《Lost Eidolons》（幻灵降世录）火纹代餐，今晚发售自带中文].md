@@ -1236,3 +1236,12 @@ B站上的直播录像 犹豫不决的可以先看看
 结果是个演义皇叔的性子</blockquote>
 性子其实也满像刘邦的，毕竟都是流氓出生，就是开了小白脸滤镜，没那么又老又痞，还臭不要脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tand177  
+##### 114#       发表于 2022-10-16 00:12
+
+礼物有每个人的特定类型么，还是想加好感度就无脑送就行了
+
