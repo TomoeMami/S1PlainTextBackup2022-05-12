@@ -99,3 +99,14 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是我看不�
 FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</blockquote>
 有个妈妈的造型好像米浴，确实好像没有BA的？
 
+
+
+*****
+
+####  我就再氪一单  
+##### 95#       发表于 2022-10-15 19:09
+
+绿毛那个脸有点一言难尽，尤其是闭眼的差分<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+这组母女是不是人设在前作里出现过？
+

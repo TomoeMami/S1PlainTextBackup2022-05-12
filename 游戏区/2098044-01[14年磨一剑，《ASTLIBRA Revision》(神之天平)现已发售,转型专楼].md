@@ -1915,3 +1915,12 @@ https://w.atwiki.jp/astlibra/sp/list
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  帆影FX  
+##### 182#       发表于 2022-10-15 19:08
+
+这第六章的解谜就离谱，我都不知道不看攻略怎么过，好多需要用到物品的交互一点提示都没有
+
