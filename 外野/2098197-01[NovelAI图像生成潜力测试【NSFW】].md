@@ -3774,3 +3774,15 @@ Steps: 28, Sampler: Euler, CFG scale: 12, Seed: 1969404127, Size: 512x512, Model
 
 —— 来自 Xiaomi 2206122SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lxlyandccc  
+##### 293#       发表于 2022-10-15 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909231&amp;ptid=2098197" target="_blank">咲崎樱子 发表于 2022-10-14 19:22</a>
+
+1girl, ahoge, animal ear fluff, animal ears, blonde hair, blue eyes, blush, breasts, cat ears, cat g ...</blockquote>
+新时代<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -2029,3 +2029,15 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 海蛇洞窟最深处前一张图的那个宝箱在哪里，探测技能显示有一个但找不到有点膈应
 
+
+
+*****
+
+####  jy000129  
+##### 193#       发表于 2022-10-15 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927692&amp;ptid=2098044" target="_blank">fyzqwzh 发表于 2022-10-15 22:19</a>
+
+海蛇洞窟最深处前一张图的那个宝箱在哪里，探测技能显示有一个但找不到有点膈应 ...</blockquote>
+靠右边下排有一个很隐蔽的箭头，按上就出箱子
+

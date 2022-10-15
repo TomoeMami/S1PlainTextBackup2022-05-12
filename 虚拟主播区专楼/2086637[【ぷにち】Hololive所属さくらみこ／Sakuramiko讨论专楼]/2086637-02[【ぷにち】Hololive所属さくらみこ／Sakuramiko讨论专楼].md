@@ -8697,3 +8697,43 @@ mikoVS色色miko
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 2331#       发表于 2022-10-15 22:25
+
+这个超长红sc被无视了啊
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 2332#         楼主| 发表于 2022-10-15 22:26
+
+能无视最好，不知道
+
+*****
+
+####  qesto  
+##### 2333#       发表于 2022-10-15 22:26
+
+<img src="https://img.saraba1st.com/forum/202210/15/222649d77f35gtl7g90aaw.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (62.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 22:26 上传
+
+这个吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ZQXY2002  
+##### 2334#       发表于 2022-10-15 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这sc攻击性一点也不强。还有这人分组解释应该也没听明白。
+

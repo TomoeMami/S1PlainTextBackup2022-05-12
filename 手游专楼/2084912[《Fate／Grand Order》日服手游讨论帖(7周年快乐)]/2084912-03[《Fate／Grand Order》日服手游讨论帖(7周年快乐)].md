@@ -1414,3 +1414,17 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  上坂莲华  
+##### 3121#       发表于 2022-10-15 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57890648&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-10-13 15:27</a>
+
+你们别把她当呼延灼
+
+就把她当看过水浒喜欢呼延灼的恩普萨，见到你就假装自己是呼延灼又忍不住本性的骚鸡不 ...</blockquote>
+大预言家<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
