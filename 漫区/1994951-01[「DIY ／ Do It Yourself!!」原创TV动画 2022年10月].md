@@ -1962,3 +1962,12 @@ ai自动化党一路走好笑死
 
 布丁女士我知道你很急但你先别急<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  アルメリア  
+##### 163#       发表于 2022-10-15 16:46
+
+感觉画风有点粗糙
+

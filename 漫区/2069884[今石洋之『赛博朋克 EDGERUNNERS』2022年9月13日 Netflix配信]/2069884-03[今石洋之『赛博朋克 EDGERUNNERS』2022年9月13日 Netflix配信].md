@@ -1821,3 +1821,27 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 
 本间表示目前没有偷偷在做第2季、他希望今后有机会和日本的工作室再度合作、是边缘行者第2季还是其他作品就不知道了
 
+
+
+*****
+
+####  碳酸锂缓释片  
+##### 3139#       发表于 2022-10-15 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57459629&amp;ptid=2069884" target="_blank">碳酸锂缓释片 发表于 2022-9-13 06:46</a>
+
+结果今天凌晨把 1 日倒计时提前发了出来，看来是真数错日期了。以及，1 day 还用复数，扳机的英文水平堪 ...</blockquote>
+后天有曜哥的直播，预告图是和之前倒计时对应的 Lucy。
+
+【お知らせ】
+
+10月17日(月)12时より配信开始！⚡️
+
+「サイバーパンク: エッジランナーズ」にてキャラクターデザインを担当した吉成曜によるライブドローイングを行います‼️
+
+何のキャラを描くかは当日配信にて発表💻
+
+ぜひご视聴お愿い致します。
+<img src="http://tva1.sinaimg.cn/large/006ajUXPly1h762atp6dtg30a00ebe82.gif" referrerpolicy="no-referrer">
+[https://twitter.com/trigger_inc/status/1581170389165563906](https://twitter.com/trigger_inc/status/1581170389165563906)
+
