@@ -1847,3 +1847,25 @@ https://w.atwiki.jp/astlibra/sp/list
 可以回去刷</blockquote>
 谢谢！
 
+
+
+*****
+
+####  jy000129  
+##### 176#       发表于 2022-10-15 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919943&amp;ptid=2098044" target="_blank">dookiee 发表于 2022-10-15 14:59</a>
+
+问一下，是不是每关大致都是一个传奇装备+两个稀有装备？</blockquote>
+我才玩到第四关，起码前三关都有一把红武
+
+*****
+
+####  Sannapolis  
+##### 177#       发表于 2022-10-15 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919943&amp;ptid=2098044" target="_blank">dookiee 发表于 2022-10-15 14:59</a>
+
+问一下，是不是每关大致都是一个传奇装备+两个稀有装备？</blockquote>
+我看了下收集到的设计图，每关应该是两把武器、一面盾、一套衣服和一个饰品，一共五个装备设计图
+
