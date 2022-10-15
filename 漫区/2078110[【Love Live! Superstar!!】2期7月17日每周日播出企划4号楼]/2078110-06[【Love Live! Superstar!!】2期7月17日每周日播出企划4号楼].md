@@ -8862,3 +8862,12 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是リスアニ！LIVE2023吗，说起来第二天就是3rd东京day1了真忙啊
 
+
+
+*****
+
+####  lj205  
+##### 8333#       发表于 2022-10-15 22:56
+
+挺好挺好，希望这次能顺顺利利
+
