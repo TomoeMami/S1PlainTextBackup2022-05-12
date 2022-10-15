@@ -8679,3 +8679,17 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 可可现在其实也差不多啊，能展开写个人回的回国剧情基本无了（第三季还拿这个说事那就真是没活了，鱼生放都说回国的事已经结束了），与之相关的姐姐父母大概率神隐，不会出现了，第三季真要拿可可说事大概也要加新东西。
 这下可恋了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8317#       发表于 2022-10-15 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919412&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-15 14:05:28</a>
+这么说我想起之前看到的一个第一季结尾的分析，恋是在第一季就把自己的关键剧情（学园偶像、妈妈、救校） ...</blockquote>这倒没啥，其他角色也都一样。
+
+二期恋回挺不明所以的，感觉官方也看出来一期恋回太拉了二期让花田弥补一下(补了个寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，三期真要有心补个可回，就算是整活回也没关系，虽然我私心想看幼可(想peach
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
