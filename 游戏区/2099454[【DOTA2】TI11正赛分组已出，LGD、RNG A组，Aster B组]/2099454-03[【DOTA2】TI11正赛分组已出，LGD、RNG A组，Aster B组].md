@@ -3054,3 +3054,400 @@ am穷得裤裆都没的时候跟队打架看看能不能混点头思路上是没
 
 小超人昂首挺胸
 
+
+
+*****
+
+####  苹果皮卡丘  
+##### 3375#       发表于 2022-10-15 17:44
+
+你看管人痴被点草管人痴也旁若无人地进本楼啊，还是自己做不到不以为耻
+
+*****
+
+####  iriyano  
+##### 3376#       发表于 2022-10-15 17:44
+
+什么情况cncc要2:0液体了
+
+*****
+
+####  没钱买手办  
+##### 3377#       发表于 2022-10-15 17:44
+
+这老鹿看哭了
+
+*****
+
+####  sodah  
+##### 3378#       发表于 2022-10-15 17:44
+
+卧槽这小鹿。
+
+*****
+
+####  nightmare902015  
+##### 3379#       发表于 2022-10-15 17:45
+
+别汴京了，这楼就是皮套吃，黑话，复读和汴京太多了。
+人马的踩真的是，开雾跳踩也踩不到人
+
+*****
+
+####  zhrs456  
+##### 3380#       发表于 2022-10-15 17:45
+
+查理斯打肉山团 夜宴这个树林站位不止站过一次了 研究过RNG录像给个高台眼肉山团就能提了
+
+*****
+
+####  没钱买手办  
+##### 3381#       发表于 2022-10-15 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918754&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-15 13:14</a>
+
+萨特发言，等p6出了就找萨特哥v一份了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还在P6，我看畜长夺冠和P6谁出不好说
+
+*****
+
+####  你可以试试  
+##### 3382#       发表于 2022-10-15 17:45
+
+小鹿单杀卡尔！毒刺标枪！
+
+*****
+
+####  外挂全家脚气  
+##### 3383#       发表于 2022-10-15 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922820&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-15 17:41</a>
+
+那你在这找什么画面感？不会以为你在这滚刀肉就能改变事实吧？要不学习一下被泥头车创思的蝶姓集美？ ...</blockquote>
+什么找画面，有人指名道姓我我当然要回复啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 周藤信彦|-2|撸狗4k➕|
+
+查看全部评分
+
+*****
+
+####  TI三冠王AME  
+##### 3384#       发表于 2022-10-15 17:45
+
+草，霉瘪这A冰柱也是畜意盎然
+
+*****
+
+####  憧憬鲨  
+##### 3385#       发表于 2022-10-15 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泰迪这捡半天捡不起来太搞笑了
+点了半天冰柱，然后又点到魔晶，吃了魔晶才捡到盾
+
+*****
+
+####  反方向的波  
+##### 3386#       发表于 2022-10-15 17:46
+
+霉鳖拿盾点到巫妖柱子
+
+*****
+
+####  迷途lite  
+##### 3387#       发表于 2022-10-15 17:46
+
+别尬黑，在找盾<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 3388#       发表于 2022-10-15 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922848&amp;ptid=2099454" target="_blank">耐赫伊勒缇 发表于 2022-10-15 17:42</a>
+
+去年animajor夺冠，我跟nga/max清算ti89maybe、fy的ame粉丝battle过很多次，劝他们理智看待现实，我可以 ...</blockquote>
+那只能说明你是lxo啊，关我op骂处长p事
+
+*****
+
+####  坚定的团子党  
+##### 3389#       发表于 2022-10-15 17:46
+
+BB这队真不行，卡卡前期送给你抓，有用吗？ts刷起来了就不好打了
+
+*****
+
+####  nightmare902015  
+##### 3390#       发表于 2022-10-15 17:46
+
+bb也没反应过来还有tm不拿盾的
+
+
+
+*****
+
+####  sodah  
+##### 3391#       发表于 2022-10-15 17:47
+
+ent这套看起来也就这样啊。
+
+*****
+
+####  万世创伤伊莫库  
+##### 3392#       发表于 2022-10-15 17:47
+
+雪碧G1应该是拿下了，从楼友们的战报和我看的一局来看，感觉死灵龙有点小版本陷阱的样子
+
+*****
+
+####  勤练带来力量  
+##### 3393#       发表于 2022-10-15 17:47
+
+我超，超
+
+*****
+
+####  迷途lite  
+##### 3394#       发表于 2022-10-15 17:47
+
+可以啊
+
+*****
+
+####  Mikumiku831  
+##### 3395#       发表于 2022-10-15 17:47
+
+超哥护队友了 我哭辣
+
+*****
+
+####  Imanmi  
+##### 3396#       发表于 2022-10-15 17:48
+
+rng拿下了拿下了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 3397#       发表于 2022-10-15 17:48
+
+基本翻了
+
+*****
+
+####  蛭人  
+##### 3398#       发表于 2022-10-15 17:48
+
+每一把都当最后一把来打 然后也不要怕一轮游
+
+*****
+
+####  nightmare902015  
+##### 3399#       发表于 2022-10-15 17:48
+
+只能说40龙不配一个luna啥的，很难比得上谜团。
+
+*****
+
+####  情商  
+##### 3400#         楼主| 发表于 2022-10-15 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922907&amp;ptid=2099454" target="_blank">外挂全家脚气 发表于 2022-10-15 17:45</a>
+
+什么找画面，有人指名道姓我我当然要回复啊</blockquote>
+你自己犯贱进来回踩lgd的样子 让人看了不爽还不能说了？你以为你是谁？卜是你自己进来找画面感谁会搭理你？
+
+*****
+
+####  walfeds  
+##### 3401#       发表于 2022-10-15 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922899&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-15 17:45</a>
+
+还在P6，我看畜长夺冠和P6谁出不好说</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这我还是相信a社好吧
+
+*****
+
+####  反方向的波  
+##### 3402#       发表于 2022-10-15 17:49
+
+noticed这个÷玩的打架永远想和人马斗智斗勇把窝看哭了
+
+*****
+
+####  horacio  
+##### 3403#       发表于 2022-10-15 17:49
+
+cn终于要迎来第一个2比0了，真不容易
+
+*****
+
+####  Asukalangley33  
+##### 3404#       发表于 2022-10-15 17:49
+
+话说LGD不会没人会玩SF和谜团吧？？？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+要不然不会一直不玩啊
+
+*****
+
+####  sodah  
+##### 3405#       发表于 2022-10-15 17:50
+
+这卡尔还不如把符吃了，去对面脸上送。
+
+*****
+
+####  Keynes  
+##### 3406#       发表于 2022-10-15 17:51
+
+卜哭卜是小超人
+
+*****
+
+####  迷途lite  
+##### 3407#       发表于 2022-10-15 17:51
+
+雪碧好凶相
+
+*****
+
+####  米德  
+##### 3408#       发表于 2022-10-15 17:51
+
+纯真神倒了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 3409#       发表于 2022-10-15 17:51
+
+卜哭卜是小超人
+
+*****
+
+####  你可以试试  
+##### 3410#       发表于 2022-10-15 17:51
+
+处长永远不能夺冠，记住是永远
+
+*****
+
+####  asd235614  
+##### 3411#       发表于 2022-10-15 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这把前期裂成那样我还以为没了，BB这队团打的真的有点问题
+
+*****
+
+####  cuisite  
+##### 3412#       发表于 2022-10-15 17:52
+
+小超人 upup
+
+*****
+
+####  柚上舍人  
+##### 3413#       发表于 2022-10-15 17:52
+
+赢了赢了，超哥力中暴力
+
+*****
+
+####  莉拉厨  
+##### 3414#       发表于 2022-10-15 17:52
+
+宣布了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 3415#       发表于 2022-10-15 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922961&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-15 17:49</a>
+话说LGD不会没人会玩SF和谜团吧？？？
+
+要不然不会一直不玩啊</blockquote>
+sf我记得不是对面拿了，就是被ban了
+谜团大鞭哥玩过了啊。
+
+*****
+
+####  Troywest  
+##### 3416#       发表于 2022-10-15 17:52
+
+Pure尽力了，队友CBA<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 3417#       发表于 2022-10-15 17:52
+
+马西杀宙斯好爽
+
+*****
+
+####  外挂全家脚气  
+##### 3418#       发表于 2022-10-15 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922952&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-15 17:48</a>
+
+你自己犯贱进来回踩lgd的样子 让人看了不爽还不能说了？你以为你是谁？卜是你自己进来找画面感谁会搭理你 ...</blockquote>
+踩LGD不是DOTA核心玩家的政治正确么，怎么这也要被骂<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuisite  
+##### 3419#       发表于 2022-10-15 17:52
+
+你们不会指望a畜玩sf吧，就a畜这傻逼切入他真的配么
+
+*****
+
+####  ayeah  
+##### 3420#       发表于 2022-10-15 17:53
+
+影魔一ban，尊重超哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  VanArkride  
+##### 3421#       发表于 2022-10-15 17:53
+
+maybe状态真的好
+
+*****
+
+####  端木恋心  
+##### 3422#       发表于 2022-10-15 17:53
+
+超哥强啊
+
+*****
+
+####  TI三冠王AME  
+##### 3423#       发表于 2022-10-15 17:53
+
+BB这队感觉要一崩到底回家了...
+
+*****
+
+####  六娃  
+##### 3424#       发表于 2022-10-15 17:53
+
+今夜我们都是小超人，27岁中单打成这样真的可以了
+

@@ -1845,3 +1845,12 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 <img src="http://tva1.sinaimg.cn/large/006ajUXPly1h762atp6dtg30a00ebe82.gif" referrerpolicy="no-referrer">
 [https://twitter.com/trigger_inc/status/1581170389165563906](https://twitter.com/trigger_inc/status/1581170389165563906)
 
+
+
+*****
+
+####  Giri7mi  
+##### 3140#       发表于 2022-10-15 17:46
+
+一口气看完十集，意难平啊。<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -346,3 +346,25 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 预告那个转身的背影就是&amp;#x62 ...</blockquote>
 就是（要不仁叔就当中年飞鸟信吧）
 
+
+
+*****
+
+####  yuki-0014  
+##### 646#       发表于 2022-10-15 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922536&amp;ptid=2040765" target="_blank">ykyin09 发表于 2022-10-15 17:26</a>
+
+感觉不会是戴拿本尊出场，可能就是个回忆镜头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">该不会又是路人心中的光吧
+
+*****
+
+####  yuki-0014  
+##### 647#       发表于 2022-10-15 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922643&amp;ptid=2040765" target="_blank">仟音一心 发表于 2022-10-15 17:32</a>
+
+就是（要不仁叔就当中年飞鸟信吧）</blockquote>
+确实，仁叔可比晦气人好多了
+
