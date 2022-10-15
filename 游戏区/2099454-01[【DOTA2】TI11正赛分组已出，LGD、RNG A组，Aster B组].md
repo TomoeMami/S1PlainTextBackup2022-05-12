@@ -9590,3 +9590,279 @@ PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司马PGL司�
 
 lgd开了
 
+
+
+*****
+
+####  莉拉厨  
+##### 1052#       发表于 2022-10-15 10:32
+
+射了，就好高华这口<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 1053#       发表于 2022-10-15 10:32
+
+<img src="https://img.saraba1st.com/forum/202210/15/103207lubj1lelitqzy6xj.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-10-15_10-31-53.png</strong> (299.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 10:32 上传
+
+什么草台班子
+
+*****
+
+####  TI三冠王AME  
+##### 1054#       发表于 2022-10-15 10:32
+
+高华这个嘴型确实有点真空章鱼吸的味道，嗯了
+
+*****
+
+####  asd235614  
+##### 1055#       发表于 2022-10-15 10:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">早早醒了结果半小时RNG还没开，PGL真的草台
+
+*****
+
+####  Litccc  
+##### 1056#       发表于 2022-10-15 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916200&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-15 10:32</a>
+
+高华这个嘴型确实有点真空章鱼吸的味道，嗯了</blockquote>
+回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 1057#       发表于 2022-10-15 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916166&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-15 10:30</a>
+
+感觉刀圈解说都有点穷..</blockquote>
+看看链子哥，不愧是被包养的，好生羡慕
+
+*****
+
+####  azccc52  
+##### 1058#       发表于 2022-10-15 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57915631&amp;ptid=2099454" target="_blank">Gosin 发表于 2022-10-15 09:49</a>
+个人建议拿客户端看比赛就行
+
+这样起码想知道魔晶/天赋/A杖/物品的时候自己可以看
+
+ ...</blockquote>
+客户端只有官方流解说吧，ob解说真行嘛
+
+*****
+
+####  六娃  
+##### 1059#       发表于 2022-10-15 10:34
+
+笑死，角斗士打小火箭这场十个选手解说能认识几个
+
+*****
+
+####  坚定的团子党  
+##### 1060#       发表于 2022-10-15 10:34
+
+核中核，超哥刚起床，11点开
+
+*****
+
+####  反方向的波  
+##### 1061#       发表于 2022-10-15 10:34
+
+任天堂宣布高华脸加入splatoon3dlc
+
+*****
+
+####  阿垃垃圾历  
+##### 1062#       发表于 2022-10-15 10:34
+
+rng的还不开是吧  司马了pgl
+
+*****
+
+####  情商  
+##### 1063#         楼主| 发表于 2022-10-15 10:35
+
+三毛都没领到，PGL泥马炸了
+
+*****
+
+####  StrangerJ  
+##### 1064#       发表于 2022-10-15 10:35
+
+怎么就RNG还不开？
+
+*****
+
+####  horacio  
+##### 1065#       发表于 2022-10-15 10:35
+
+真的好想吐槽，就像没办法弄个解说台，把大家聚在一起解说，这摄像头也不要把人家的床也拍进去
+
+*****
+
+####  walfeds  
+##### 1066#       发表于 2022-10-15 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小刘家徒四壁啊
+
+*****
+
+####  nxmonitor  
+##### 1067#       发表于 2022-10-15 10:36
+
+LGD拿了个茶队阵容……
+
+*****
+
+####  天堂蜘蛛  
+##### 1068#       发表于 2022-10-15 10:36
+
+老干瘪还在玩上版本的东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 1069#       发表于 2022-10-15 10:37
+
+小刘家这样子是因为出了个毒狗败了……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 1070#       发表于 2022-10-15 10:38
+
+不然就他那么早做直播的人，怎么说也能攒出点家底的，只不过家里不做人……
+
+*****
+
+####  walfeds  
+##### 1071#       发表于 2022-10-15 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">og这bp，危
+
+*****
+
+####  Litccc  
+##### 1072#       发表于 2022-10-15 10:38
+
+不是说他老爹是毒狗吗？
+
+*****
+
+####  哆哆鸡  
+##### 1073#       发表于 2022-10-15 10:38
+
+杰出变官方解说了？出息了啊
+
+*****
+
+####  新的瑞拉  
+##### 1074#       发表于 2022-10-15 10:38
+
+小组赛都在藏吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 1075#       发表于 2022-10-15 10:39
+
+rng那组是睡过了？
+
+*****
+
+####  adretyu67  
+##### 1076#       发表于 2022-10-15 10:39
+
+小刘前几年不就是差点穷死吗。
+
+OG怎么又给atf一选电棍了。。怎么感觉atm英雄币的问题还是没解决啊
+
+*****
+
+####  jk9hot  
+##### 1077#       发表于 2022-10-15 10:39
+
+小刘老爸把钱赌光了欠一屁股债
+
+*****
+
+####  iriyano  
+##### 1078#       发表于 2022-10-15 10:40
+
+xm怎么已经加入mdy解说团了
+
+*****
+
+####  雅朵莉雀  
+##### 1079#       发表于 2022-10-15 10:40
+
+让我康康atf手上的电棍还有多少强度
+
+还有betboom和角斗士两支公认的不太厉害的队哪个更菜<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rubicon  
+##### 1080#       发表于 2022-10-15 10:40
+
+角斗士全绝活啊
+
+
+
+*****
+
+####  六娃  
+##### 1081#       发表于 2022-10-15 10:40
+
+小组赛第一天随便打打，先选上个版本的摸摸套路
+
+*****
+
+####  Litccc  
+##### 1082#       发表于 2022-10-15 10:40
+
+<img src="https://img.saraba1st.com/forum/202210/15/104039zacw0vgixxirwz1k.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-10-15_10-40-31.png</strong> (298.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 10:40 上传
+
+看起来是设备有问题
+
+*****
+
+####  azccc52  
+##### 1083#       发表于 2022-10-15 10:40
+
+三毛都没领到，PGL泥马炸了
+
+*****
+
+####  StrangerJ  
+##### 1084#       发表于 2022-10-15 10:41
+
+betboom不是3比0干掉vp的吗
+
+*****
+
+####  nxmonitor  
+##### 1085#       发表于 2022-10-15 10:41
+
+小明鞭这发型和头像……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

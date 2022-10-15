@@ -1526,3 +1526,12 @@ https://w.atwiki.jp/astlibra/sp/list
 付下原版的通关流程，大致了解下剧情
 [https://www.bilibili.com/video/BV1YZ4y1A72M/?spm_id_from=333.788](https://www.bilibili.com/video/BV1YZ4y1A72M/?spm_id_from=333.788)
 
+
+
+*****
+
+####  sahhhh6x  
+##### 150#       发表于 2022-10-15 10:34
+
+第四章除了炸弹炸开的 还有一个场景出口处左下方的宝箱怎么拿啊
+
