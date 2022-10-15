@@ -2156,3 +2156,15 @@ md，第四章这个蛇神，第二形态老是直接秒我
 还有多路线的吗？是要带上那女的？</blockquote>
 可以看下156楼反白，最好选择不要带，之后打BOSS前出来对话
 
+
+
+*****
+
+####  逸一死吾亦死  
+##### 205#       发表于 2022-10-16 06:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57931587&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-16 06:41</a>
+
+可以看下156楼反白，最好选择不要带，之后打BOSS前出来对话</blockquote>
+沃日，回档
+

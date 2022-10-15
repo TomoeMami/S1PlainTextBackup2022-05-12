@@ -4776,3 +4776,14 @@ CN dota的旗帜明天 一定挺起来 LGD今天有点负重比赛的味道 bp�
 
 <img src="https://p.sda1.dev/7/6cbea721851021924d1d830e3b186a70/CMP_20221016032113305.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  聚散浮云  
+##### 5060#       发表于 2022-10-16 06:46
+
+好呀好呀又到了倒nga💩环节了是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
