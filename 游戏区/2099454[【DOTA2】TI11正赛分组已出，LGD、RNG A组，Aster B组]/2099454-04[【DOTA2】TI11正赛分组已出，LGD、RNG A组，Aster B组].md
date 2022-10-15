@@ -4415,3 +4415,102 @@ rng对阵容强势点的把控是比较差的，容易把自己容错率打没�
 
 看了眼giegie第一视角集锦，下次窝天梯被薄纱时先开麦问3号位有没有一个国外女友
 
+
+
+*****
+
+####  你气不气  
+##### 5020#       发表于 2022-10-16 01:42
+
+<blockquote>情商 发表于 2022-10-16 01:15
+要不是司马sg审核+只能用国内手机号注册，不然这里已经是二次元撸狗的家了
+
+啊？去年不就是吗，去年你楼一 ...</blockquote>
+去年我还能用sg的号，没来你楼
+
+*****
+
+####  Saki不小心  
+##### 5021#       发表于 2022-10-16 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930583&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-16 01:32:42</a>
+雪碧到了淘汰赛肯定会回归大控大核的，上个版本那么偏伪核推进都逆版本选大控拿了MAJOR，德鲁伊也就随便玩 ...</blockquote>熊德中路打火猫，ts上路打马西，我估计30分钟就能解决战斗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  情商  
+##### 5022#         楼主| 发表于 2022-10-16 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930654&amp;ptid=2099454" target="_blank">你气不气 发表于 2022-10-16 01:42</a>
+去年我还能用sg的号，没来你楼</blockquote>
+意思是恁也是夜宴萨特？
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  asd235614  
+##### 5023#       发表于 2022-10-16 01:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卡狗一天只能打三把dota，后面三把已经过载了很正常
+
+*****
+
+####  蛭人  
+##### 5024#       发表于 2022-10-16 01:45
+
+艹，zdgy明目张胆在直播间求爱国火箭是吧，和杰出才混几天啊，就学会讨口了。
+
+*****
+
+####  赤星ビスコ  
+##### 5025#       发表于 2022-10-16 01:46
+
+拉比克那把是第几把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 5026#       发表于 2022-10-16 01:46
+
+我怎么觉得第一把的kaka是最离谱的
+
+*****
+
+####  asd235614  
+##### 5027#       发表于 2022-10-16 01:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那可能是先用拉比克偿还了，后面才能稍微透支点
+
+*****
+
+####  恐怖利刃  
+##### 5028#       发表于 2022-10-16 01:48
+
+是真的，最后直播画面停在bian挥拳的一瞬间，pgl紧急切断了直播流，已经有消息说lgd要官宣退赛了，直播时候站在bian摄像头里的人其实是寡头派的高管，我只希望lgd能安全回国
+
+*****
+
+####  woyzeck  
+##### 5029#       发表于 2022-10-16 01:50
+
+雪碧今天能把ent两把打的一点脾气都没有是我没想到的，从对线开始ent就没一分钟领先过。
+
+*****
+
+####  UnhappyTails  
+##### 5030#       发表于 2022-10-16 01:50
+
+拉比克那把感觉卡猴有点梦游仙境了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可能年纪大了，还没反应过来进玻璃房了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 5031#       发表于 2022-10-16 01:52
+
+小组赛不是在酒店打吗
+

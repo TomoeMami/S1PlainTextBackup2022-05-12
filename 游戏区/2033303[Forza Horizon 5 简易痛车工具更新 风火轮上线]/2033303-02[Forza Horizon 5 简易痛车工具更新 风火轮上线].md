@@ -80,3 +80,17 @@
 
 这新更新的表演赛也太垃圾了，没引擎声音，最后左边那辆大牛拉的烟也是bug吧<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天神十三煞  
+##### 2492#         楼主| 发表于 2022-10-16 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916171&amp;ptid=2033303" target="_blank">萱时令 发表于 2022-10-14 18:30</a>
+
+这新更新的表演赛也太垃圾了，没引擎声音，最后左边那辆大牛拉的烟也是bug吧 ...</blockquote>
+不是表演赛，是新故事的章节
+
+重开就有，估计是新加电台造成的问题
+
