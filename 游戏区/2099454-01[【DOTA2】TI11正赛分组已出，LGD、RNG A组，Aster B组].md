@@ -8412,3 +8412,28 @@ ZZZZZZZZZZZZZZZZZ
 
 不过确实是男人不坏女人不爱，我认识的几个女人里全都看不起老实人<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nerugigannte  
+##### 907#       发表于 2022-10-15 07:56
+
+亲切得喊了别的同事姐姐，不止一个，和别人聊八卦的时候好像被添油加醋传到女朋友耳朵里生气了，周末好好看比赛了
+
+*****
+
+####  tengshuo980  
+##### 908#       发表于 2022-10-15 07:57
+
+萨特我砍
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  walfeds  
+##### 909#       发表于 2022-10-15 08:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">畜男表示我看不懂但我大受震撼，亚达哟
+
