@@ -3658,3 +3658,58 @@ size太大，显卡跑不了<img src="https://static.saraba1st.com/image/smiley/
 
 既然被人强行开源了我感觉社区应该会比较快跟上的
 
+
+
+*****
+
+####  白左  
+##### 286#       发表于 2022-10-15 16:26
+
+没想到看沙雕网友发图还能发掘新的xp
+
+原来出图没感觉不是ai不行，只是还没遇到属于自己的tag……
+
+体会到了xp被冲爆是什么感觉<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/15/161648lpymwu6iuwcgvfcp.png" referrerpolicy="no-referrer">
+
+<strong>00655-3804153020-(masterpiece), best quality, beautiful detailed eyes, expressio.png</strong> (46.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 16:16 上传
+
+<img src="https://img.saraba1st.com/forum/202210/15/161648shpspjumxzpmadps.png" referrerpolicy="no-referrer">
+
+<strong>00647-154925315-(masterpiece), best quality, beautiful detailed eyes, expression.png</strong> (53.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 16:16 上传
+
+<img src="https://img.saraba1st.com/forum/202210/15/161648htb888ltdo08pidt.png" referrerpolicy="no-referrer">
+
+<strong>00291-2679820279-(masterpiece), best quality, sunlight, beautiful detailed eyes,.png</strong> (32.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 16:16 上传
+
+<img src="https://img.saraba1st.com/forum/202210/15/161648pktkbyxf3mm370k8.png" referrerpolicy="no-referrer">
+
+<strong>00277-1113043299-(masterpiece), best quality, sunlight, beautiful detailed eyes,.png</strong> (48.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 16:16 上传
+
+*****
+
+####  白左  
+##### 287#       发表于 2022-10-15 16:27
+
+花絮
+
+什么叫出图30秒， 修手一整年啊……
+<img src="https://pic1.imgdb.cn/item/634a6e9716f2c2beb1369f71.gif" referrerpolicy="no-referrer">
+
