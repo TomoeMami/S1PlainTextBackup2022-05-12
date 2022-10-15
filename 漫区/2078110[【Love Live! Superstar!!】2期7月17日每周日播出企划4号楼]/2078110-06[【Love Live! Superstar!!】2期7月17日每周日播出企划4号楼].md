@@ -8693,3 +8693,25 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ruffian  
+##### 8318#       发表于 2022-10-15 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919412&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-15 14:05:28</a>
+这么说我想起之前看到的一个第一季结尾的分析，恋是在第一季就把自己的关键剧情（学园偶像、妈妈、救校） ...</blockquote>其实我一期结局时就在想队里香堇可三个完全体了二期还能演啥？没想到二期加人了，更没想到香音开了新任务<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kfly  
+##### 8319#       发表于 2022-10-15 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57919596&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-15 14:25</a>
+
+其实我一期结局时就在想队里香堇可三个完全体了二期还能演啥？没想到二期加人了，更没想到香音开了新任务[f ...</blockquote>
+可堇倒还能想到要处理回国事件，但香音是真没想到会变成现在这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
