@@ -1369,3 +1369,12 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 伊丽莎白XJAPAN实装希望
 
+
+
+*****
+
+####  qixinno2  
+##### 3116#       发表于 2022-10-15 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">临时改卡 5%的呼延灼
+

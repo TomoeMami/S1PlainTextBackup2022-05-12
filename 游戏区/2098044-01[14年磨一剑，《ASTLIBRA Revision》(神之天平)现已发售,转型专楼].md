@@ -1933,3 +1933,14 @@ https://w.atwiki.jp/astlibra/sp/list
 
 玩到第三章火山，这地图容易迷路，刷怪刷到开金银宝箱都出不了好东西
 
+
+
+*****
+
+####  pf67  
+##### 184#       发表于 2022-10-15 19:59
+
+md，第四章这个蛇神，第二形态老是直接秒我
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
