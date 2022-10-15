@@ -1988,3 +1988,46 @@ ai自动化党一路走好笑死
 
 2022-10-15 17:04 上传
 
+
+
+*****
+
+####  千恋万花  
+##### 165#       发表于 2022-10-15 17:28
+
+|||◤キャラクター設定公開|
+|　　 &amp;#x1F528; #くれい ⚙️　◢|||
+
+制服全身・表情設定を公開✨
+
+&amp;#x1F4F9;キャラクターPVｰくれいｰ(cv #佐倉綾音)
+[https://youtu.be/QUbYcmE_ugQ](https://youtu.be/QUbYcmE_ugQ)
+
+&amp;#x1F4FA;TVアニメ好評放送･配信中!
+
+NST放送は明日9:30～!
+[https://diy-anime.com/onair/](https://diy-anime.com/onair/)
+
+&amp;#x1F4BF;CD･BD予約受付中!
+[https://diy-anime.com/bd-cd/](https://diy-anime.com/bd-cd/)
+<img src="https://p.sda1.dev/7/234cd4da04d990162d4621d04bf9506a/diy_anime-1581193165020622848-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/5b6f306bfa14a61abcb5dbb67057de94/diy_anime-1581193165020622848-img2.jpg" referrerpolicy="no-referrer">
+
+|||◤キャラクター設定公開|
+|　　 &amp;#x1F528; #たくみ ⚙️　◢|||
+
+制服全身・表情設定を公開✨
+
+&amp;#x1F4F9;キャラクターPVｰたくみｰ(cv #和氣あず未)
+[https://youtu.be/OOOOxmPIHd8](https://youtu.be/OOOOxmPIHd8)
+
+&amp;#x1F4FA;TVアニメ好評放送･配信中!
+
+NST放送は明日9:30～
+[https://diy-anime.com/onair/](https://diy-anime.com/onair/)
+
+&amp;#x1F4BF;CD･BD予約受付中!
+[https://diy-anime.com/bd-cd/](https://diy-anime.com/bd-cd/)
+<img src="https://p.sda1.dev/7/8bd08fea100b592b1db935f685727c4f/diy_anime-1581200705695514626-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/0782e285d8d88dfa137dd9787df76cf8/diy_anime-1581200705695514626-img2.jpg" referrerpolicy="no-referrer">
+

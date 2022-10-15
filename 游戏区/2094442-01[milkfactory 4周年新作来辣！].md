@@ -58,3 +58,15 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  大哀之君  
+##### 92#       发表于 2022-10-15 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918932&amp;ptid=2094442" target="_blank">信长的呕吐 发表于 2022-10-15 13:29</a>
+
+名字差一个字 怕不是姐妹</blockquote>
+前作那人的双胞胎妹妹
+

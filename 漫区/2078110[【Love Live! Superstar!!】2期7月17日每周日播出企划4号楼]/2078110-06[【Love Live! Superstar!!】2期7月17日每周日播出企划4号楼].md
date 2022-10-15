@@ -8776,3 +8776,25 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 看来他还是适合写恋打游戏这样的剧情，苦大仇深真的做不来<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8325#       发表于 2022-10-15 17:24
+
+二期恋回其实能看得出花田写得很顺畅很开心，大家不满意的点主要是它是恋回<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ads147147  
+##### 8326#       发表于 2022-10-15 17:32
+
+学校过夜回虹虹不是实现了吗，甚至还是大戏里的前戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我直说花田整活能力不比大河内差，但是上下限估计比大河内夸张。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

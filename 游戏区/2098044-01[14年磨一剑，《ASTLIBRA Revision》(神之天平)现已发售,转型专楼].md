@@ -1869,3 +1869,14 @@ https://w.atwiki.jp/astlibra/sp/list
 问一下，是不是每关大致都是一个传奇装备+两个稀有装备？</blockquote>
 我看了下收集到的设计图，每关应该是两把武器、一面盾、一套衣服和一个饰品，一共五个装备设计图
 
+
+
+*****
+
+####  黒長直姫  
+##### 178#       发表于 2022-10-15 17:32
+
+第四章这个黄油展开笑死 黑你在干什么呀黑
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

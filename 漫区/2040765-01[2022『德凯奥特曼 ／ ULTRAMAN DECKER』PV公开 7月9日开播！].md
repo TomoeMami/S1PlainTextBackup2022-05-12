@@ -316,3 +316,22 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 由手机上传
 2022-10-15 16:54 上传
 
+
+
+*****
+
+####  yuki-0014  
+##### 643#       发表于 2022-10-15 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">预告那个转身的背影就是戴拿了吧
+
+*****
+
+####  ykyin09  
+##### 644#       发表于 2022-10-15 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57922482&amp;ptid=2040765" target="_blank">yuki-0014 发表于 2022-10-15 17:24</a>
+
+预告那个转身的背影就是&amp;#x62 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不会是戴拿本尊出场，可能就是个回忆镜头
+
