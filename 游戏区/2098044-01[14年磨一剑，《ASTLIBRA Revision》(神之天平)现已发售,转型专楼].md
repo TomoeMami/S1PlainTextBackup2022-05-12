@@ -1816,3 +1816,20 @@ https://w.atwiki.jp/astlibra/sp/list
 
 3、魔物图鉴后面会开吗，掉率是随缘的吗，人在刷钥匙模具已经要吐了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 174#       发表于 2022-10-15 15:25
+
+ 本帖最后由 黒長直姫 于 2022-10-15 15:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920102&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-15 15:11</a>
+
+人在第二章痛苦刷材料中，求解答几个问题：
+
+1、像第一章那种在半空中的靶子要怎么打？第二章也有一个空中靶 ...</blockquote>
+竞技场有弩拿 可以瞄准直射 好像是第三场第一个吧
+
+可以回去刷 
+
