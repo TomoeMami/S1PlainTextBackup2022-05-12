@@ -1985,3 +1985,29 @@ md，第四章这个蛇神，第二形态老是直接秒我
 请问下火山地区哪里使用回旋镖呀</blockquote>
 有一个跨几个场景的落下处，中间有个场景左侧有条路，那里尽头会提示把石头打下去
 
+
+
+*****
+
+####  dookiee  
+##### 189#       发表于 2022-10-15 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57925199&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-10-15 20:11</a>
+这个长按飞剑的伤害判定是啥啊，感觉打大型怪物有时候可以疯狂刷血
+还有银色钥匙模板的缺口好大，有没有方 ...</blockquote>
+感觉是判定为飞行道具了，打空中的怪倍率高
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黒長直姫  
+##### 190#       发表于 2022-10-15 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57925199&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-10-15 20:11</a>
+这个长按飞剑的伤害判定是啥啊，感觉打大型怪物有时候可以疯狂刷血
+还有银色钥匙模板的缺口好大，有没有方 ...</blockquote>
+上面有人说了呀 分解金色的模板
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

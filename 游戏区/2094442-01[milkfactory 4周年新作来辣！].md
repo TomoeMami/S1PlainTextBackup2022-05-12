@@ -119,3 +119,12 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 
 嗯了，怎么还有两个月啊<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  角龙大剑  
+##### 97#       发表于 2022-10-15 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">有雌小鬼诶，话说每次最吸引我的是看官网的角色介绍，各种乱七八糟有用没用的详细设定，三围数据都要配一句话
+
