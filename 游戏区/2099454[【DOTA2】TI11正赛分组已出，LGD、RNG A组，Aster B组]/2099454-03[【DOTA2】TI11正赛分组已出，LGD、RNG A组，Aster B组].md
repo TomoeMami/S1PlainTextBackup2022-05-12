@@ -5985,3 +5985,230 @@ D4C是吧
 
 东南亚a畜还是早点退役吧，不知道把多少东南亚天才少年中单打到换位置了还赖在一号位上面
 
+
+
+*****
+
+####  反方向的波  
+##### 3759#       发表于 2022-10-15 19:23
+
+pakazs eslone上一把脑浆局一把教学局一把脑浆局一把教学局的不是已经看过了么
+
+*****
+
+####  二宮飛鳥酱  
+##### 3760#       发表于 2022-10-15 19:23
+
+瑞文这个比，越看越菜，但是他今天咬了雪碧一分，今天不黑他<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 3761#       发表于 2022-10-15 19:24
+
+nga说hao声音很怪像tvb，去听了是有那味了哈哈哈哈哈
+
+*****
+
+####  漂灵  
+##### 3762#       发表于 2022-10-15 19:24
+
+超！
+
+D776288F-8676-49C1-97D7-E8E85508251F.jpeg
+(20.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202210/15/192357kab550zuzojweweu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+AE99827A-CDB8-4C2A-8205-B6FFBF27256A.jpeg
+(30.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202210/15/192357dfgkdeh2ss0jb2ex.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 3763#       发表于 2022-10-15 19:24
+
+哇这小小 牛
+
+*****
+
+####  莉拉厨  
+##### 3764#       发表于 2022-10-15 19:24
+
+暗黑芒果好秀啊，把被拉的飞机从谜团大里丢出去了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 3765#       发表于 2022-10-15 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57924508&amp;ptid=2099454" target="_blank">漂灵 发表于 2022-10-15 19:24</a>
+超！</blockquote>
+魂殿大长老
+
+*****
+
+####  nightmare902015  
+##### 3766#       发表于 2022-10-15 19:24
+
+为啥能把人从黑洞里丢出去，这物理引擎不真实啊。
+
+*****
+
+####  格雷殿下  
+##### 3767#       发表于 2022-10-15 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">hao是开了变声器吗
+
+*****
+
+####  情商  
+##### 3768#         楼主| 发表于 2022-10-15 19:24
+
+哦想起来了，窝最高gpm和补刀填的就是这个哥们
+
+*****
+
+####  walfeds  
+##### 3769#       发表于 2022-10-15 19:24
+
+hao这逼id怎么还挂着newbee<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 3770#       发表于 2022-10-15 19:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的金卡先辈今天梦幻积分还没银卡超哥多
+
+*****
+
+####  情商  
+##### 3771#         楼主| 发表于 2022-10-15 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57924523&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-15 19:24</a>
+hao这逼id怎么还挂着newbee</blockquote>
+mu也是啊
+
+*****
+
+####  情商  
+##### 3772#         楼主| 发表于 2022-10-15 19:26
+
+Eg打og开了，op们集合了
+
+*****
+
+####  六娃  
+##### 3773#       发表于 2022-10-15 19:26
+
+老东京打的像2号位奇迹鳖，pakasz打的像1号位奇迹鳖
+泪目，奇迹鳖进ti啦
+
+*****
+
+####  星野航  
+##### 3774#       发表于 2022-10-15 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不是yatoro这影魔整蛊，那盘有的翻
+
+影魔从带盾开始狂送三次，肯定要寄
+
+*****
+
+####  非建政专用号  
+##### 3775#       发表于 2022-10-15 19:27
+
+老迹兵分两路进军ti，哭了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 3776#       发表于 2022-10-15 19:28
+
+开了开了，看atf宰杀鳖鳖耶夫
+
+*****
+
+####  情商  
+##### 3777#         楼主| 发表于 2022-10-15 19:28
+
+合理的，老迹双国际兵分两路打没问题
+
+*****
+
+####  walfeds  
+##### 3778#       发表于 2022-10-15 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57924544&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-15 19:26</a>
+
+Eg打og开了，op们集合了</blockquote>
+今天这bp，op已经遭不住了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不被eg2-0就是胜利
+
+*****
+
+####  反方向的波  
+##### 3779#       发表于 2022-10-15 19:29
+
+ateaf伐木机来了
+
+*****
+
+####  格雷殿下  
+##### 3780#       发表于 2022-10-15 19:29
+
+二哈狂喜，获得双份的快乐
+
+
+
+*****
+
+####  蛭人  
+##### 3781#       发表于 2022-10-15 19:29
+
+有一说一，AMS的着装风格还是比璨璨强的。
+
+<img src="https://img.saraba1st.com/forum/202210/15/192928xx32a2ftxnxdudd9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (54.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 19:29 上传
+
+*****
+
+####  六娃  
+##### 3782#       发表于 2022-10-15 19:30
+
+33又来死灵龙被批九整蛊是吧
+tundra的事情为何总是如此糟糕
+
+*****
+
+####  Kazepollar  
+##### 3783#       发表于 2022-10-15 19:31
+
+dd怎么长成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 3784#       发表于 2022-10-15 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57924587&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-15 19:29</a>
+有一说一，AMS的着装风格还是比璨璨强的。</blockquote>
+纯路人，听说左边是何雍正的妈
+

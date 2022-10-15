@@ -376,3 +376,16 @@ DOUBLE DECKER只是同为搭档系列，世界观好像还是不太一样？
 
 跑去5ch看了一下，说是有一个公开放映会放最后一话，本来粉丝们以为放映会结束后会有什么续作相关的大新闻，结果啥都没有，弄得跟葬礼一样…………staff你们没有心
 
+
+
+*****
+
+####  aqualyre  
+##### 121#       发表于 2022-10-15 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923709&amp;ptid=2036512" target="_blank">二重梦境 发表于 2022-10-15 18:30</a>
+跑去5ch看了一下，说是有一个公开放映会放最后一话，本来粉丝们以为放映会结束后会有什么续作相关的大新闻 ...</blockquote>
+官推还放了平田广明和森田成一给试听会打广告的小视频，两个人癫得要命，没想到看完氛围宛如葬礼吗（扶额
+
+—— 来自 HUAWEI TET-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
