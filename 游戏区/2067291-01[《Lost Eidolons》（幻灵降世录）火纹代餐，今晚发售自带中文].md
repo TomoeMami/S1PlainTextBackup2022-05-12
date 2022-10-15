@@ -1215,3 +1215,24 @@ B站上的直播录像 犹豫不决的可以先看看
 
 这字体我真的要瞎了，地形说明纳米级字号就不说了，个教程都要拿放大镜才能看清，先不急着玩了
 
+
+
+*****
+
+####  tand177  
+##### 112#       发表于 2022-10-15 23:56
+
+还挺和口味的，男主就是个滤镜版刘邦，我还挺喜欢主角团的几兄弟的
+
+*****
+
+####  tand177  
+##### 113#       发表于 2022-10-16 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57906654&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-14 16:23</a>
+
+主角拿了刘邦的剧本，
+
+结果是个演义皇叔的性子</blockquote>
+性子其实也满像刘邦的，毕竟都是流氓出生，就是开了小白脸滤镜，没那么又老又痞，还臭不要脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
