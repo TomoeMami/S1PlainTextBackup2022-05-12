@@ -7018,3 +7018,483 @@ eg这把战略转移做的有点好，上路明牌单sf漏线，其余4人直接
 
 但是漏油吹的ts也被指定东南亚菜鸡fnc宰了一把啊，ent甚至被克神宰了
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 2413#       发表于 2022-10-15 15:31
+
+但是漏油吹的ts也被指定东南亚菜鸡fnc宰了一把啊，ent甚至被克神宰了
+
+*****
+
+####  哈曼的YY  
+##### 2414#       发表于 2022-10-15 15:31
+
+阿灵顿就清算鞭了 不意外
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  逃离二次元  
+##### 2415#       发表于 2022-10-15 15:32
+
+骨折了妮在外面打钢板是吧
+
+*****
+
+####  UnhappyTails  
+##### 2416#       发表于 2022-10-15 15:32
+
+开始了开始了开始了！最喜欢的一集！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/15/153207k7yfg1311hpgp1ky.png" referrerpolicy="no-referrer">
+
+<strong>EBB813D6-925F-4122-8025-5CC095287718.png</strong> (164.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 15:32 上传
+
+*****
+
+####  lyjssj  
+##### 2417#       发表于 2022-10-15 15:32
+
+<img src="https://img.saraba1st.com/forum/202210/15/153127cy56ihugiu282y2q.png" referrerpolicy="no-referrer">
+
+<strong>FEFDE2D9-9685-431D-8016-C50EA7B7B785.png</strong> (130.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 15:31 上传
+
+顺序错了，不是3245，是梓3245
+
+*****
+
+####  nerugigannte  
+##### 2418#       发表于 2022-10-15 15:32
+
+呃呃呃，打钱不如南美c，而且还没对上强势3号位呢
+
+*****
+
+####  情商  
+##### 2419#         楼主| 发表于 2022-10-15 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920408&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-15 15:30</a>
+
+骨折了妮在外面打钢板是吧</blockquote>
+所以萌猩球问啊，妹打过
+
+*****
+
+####  反方向的波  
+##### 2420#       发表于 2022-10-15 15:32
+
+<img src="https://p.sda1.dev/7/c15b1b7c1b46238d20fb6cd6c80ad928/CMP_20221015153223411.jpg" referrerpolicy="no-referrer">
+妮这个甚至是什么意思啊？
+
+*****
+
+####  迷途lite  
+##### 2421#       发表于 2022-10-15 15:33
+
+这下真的狂欢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 2422#       发表于 2022-10-15 15:33
+
+顺序错了，不是3245，是梓3245
+
+*****
+
+####  masterkeaton  
+##### 2423#       发表于 2022-10-15 15:33
+
+秘鲁doto崛起带起北美崛起了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 2424#       发表于 2022-10-15 15:33
+
+<img src="https://p.sda1.dev/7/7e5652671cb2e08a4bc5c33e14b413c4/CMP_20221015153223411.jpg" referrerpolicy="no-referrer">
+妮这个甚至是什么意思啊？
+
+*****
+
+####  plok201  
+##### 2425#       发表于 2022-10-15 15:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这状态感觉今年能开香槟了
+
+*****
+
+####  walfeds  
+##### 2426#       发表于 2022-10-15 15:33
+
+傻狗疯狂星期六<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 2427#         楼主| 发表于 2022-10-15 15:33
+
+哦牛皮，这是美东15号14点吗？
+
+<img src="https://img.saraba1st.com/forum/202210/15/153331gt3yppymp3gttnlf.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221015153324.png</strong> (9.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 15:33 上传
+
+*****
+
+####  adretyu67  
+##### 2428#       发表于 2022-10-15 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920451&amp;ptid=2099454" target="_blank">逃离二次元 发表于 2022-10-15 15:33</a>
+
+妮这个甚至是什么意思啊？</blockquote>
+克神也是虾仁饭石锤
+
+*****
+
+####  狗头人  
+##### 2429#       发表于 2022-10-15 15:34
+
+太监论坛对主子可真是忠心耿耿<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bernoulli  
+##### 2430#       发表于 2022-10-15 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920329&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-15 15:26</a>
+
+b组第一轮全是1-1</blockquote>
+打了，又好像没打
+
+
+
+*****
+
+####  5678给  
+##### 2431#       发表于 2022-10-15 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920437&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-15 15:32</a>
+开始了开始了开始了！最喜欢的一集！</blockquote>
+快回群里接受清算，别搁这水楼了
+
+*****
+
+####  哈曼的YY  
+##### 2432#       发表于 2022-10-15 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920426&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-15 15:31:35</a>
+但是漏油吹的ts也被指定东南亚菜鸡fnc宰了一把啊，ent甚至被克神宰了</blockquote>打了tb两条命还是很精彩的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dclara1  
+##### 2433#       发表于 2022-10-15 15:35
+
+妮这个甚至是什么意思啊？
+
+*****
+
+####  逃离二次元  
+##### 2434#       发表于 2022-10-15 15:35
+
+小团体？nmsl
+
+*****
+
+####  nowaki  
+##### 2435#       发表于 2022-10-15 15:36
+
+小团体？nmsl
+
+*****
+
+####  zhrs456  
+##### 2436#       发表于 2022-10-15 15:36
+
+小团体尼玛死了
+
+*****
+
+####  情商  
+##### 2437#         楼主| 发表于 2022-10-15 15:36
+
+小团体？nmsl
+
+*****
+
+####  情商  
+##### 2438#         楼主| 发表于 2022-10-15 15:36
+
+注：双修畜、假赛狗、管人痴、小团体与毒狗不得入内
+
+*****
+
+####  Litccc  
+##### 2439#       发表于 2022-10-15 15:36
+
+小团体司马，纯手打
+
+*****
+
+####  百世诸侯  
+##### 2440#       发表于 2022-10-15 15:36
+
+怎么有几个a畜第一把翻盘时出来欢呼的缩壳了，怎么会是呢
+
+*****
+
+####  walfeds  
+##### 2441#       发表于 2022-10-15 15:36
+
+小团体？nmsl
+
+*****
+
+####  米德  
+##### 2442#       发表于 2022-10-15 15:36
+
+小团体司马，纯手打
+
+*****
+
+####  迷途lite  
+##### 2443#       发表于 2022-10-15 15:37
+
+小团体司马，纯复制
+
+*****
+
+####  情商  
+##### 2444#         楼主| 发表于 2022-10-15 15:37
+
+小司马团体，纯脚打
+
+*****
+
+####  四级过了  
+##### 2445#       发表于 2022-10-15 15:37
+
+哦？看来今年有希望啊，一般lgd不行的时候，中国队就有黑马站出来了
+
+*****
+
+####  adretyu67  
+##### 2446#       发表于 2022-10-15 15:37
+
+狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢狂欢
+
+*****
+
+####  Avantasi  
+##### 2447#       发表于 2022-10-15 15:37
+
+我想看lgd小组赛滚出，ngalxo+天崩地裂
+
+*****
+
+####  六娃  
+##### 2448#       发表于 2022-10-15 15:37
+
+小手打团体，纯司马
+
+*****
+
+####  战狼PTSD  
+##### 2449#       发表于 2022-10-15 15:38
+
+小团体？nmsl
+
+*****
+
+####  小拖  
+##### 2450#       发表于 2022-10-15 15:38
+
+全炸<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  苹果皮卡丘  
+##### 2451#       发表于 2022-10-15 15:38
+
+管人痴和小团体本是不分的嘛
+
+*****
+
+####  吃货红毛  
+##### 2452#       发表于 2022-10-15 15:38
+
+ 本帖最后由 吃货红毛 于 2022-10-15 15:40 编辑 
+
+一时不知道这到底算强度高 还是都在拉
+
+另外玛西这个选人界面的头像框真可爱 一双铁拳走天下<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 2453#       发表于 2022-10-15 15:38
+
+og打gg怎么标了个16点，atf吃牛肉粒食物中毒了吗
+
+*****
+
+####  fallenwisdom  
+##### 2454#       发表于 2022-10-15 15:39
+
+ame打了那么多年c连被眩晕时取消序列操作都不会？
+
+*****
+
+####  qty  
+##### 2455#       发表于 2022-10-15 15:39
+
+老干瘪这怎么都是一头黄毛
+
+*****
+
+####  你气不气  
+##### 2456#       发表于 2022-10-15 15:39
+
+这楼里的集美也都是太监，护林员能为了林老师勇敢地跟狗粉丝对抗，集美连给哥哥把尿都不愿意
+
+*****
+
+####  nowaki  
+##### 2457#       发表于 2022-10-15 15:40
+
+面八眼角有泪
+
+*****
+
+####  12481632  
+##### 2458#       发表于 2022-10-15 15:40
+
+小团体4000+，纯手打
+
+*****
+
+####  zpl123  
+##### 2459#       发表于 2022-10-15 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">LGD和RNG齐齐放马西
+
+*****
+
+####  eienyami  
+##### 2460#       发表于 2022-10-15 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920379&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-15 15:28</a>
+哥哥尽力了，队友cba。
+
+你给我哥哥maybe chalice fy xnova，能输？</blockquote>
+艹，这也行…
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  吃货红毛  
+##### 2461#       发表于 2022-10-15 15:40
+
+呜哇 AME小鱼来啦
+
+*****
+
+####  walfeds  
+##### 2462#       发表于 2022-10-15 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">面八眼角有泪
+
+*****
+
+####  六娃  
+##### 2463#       发表于 2022-10-15 15:40
+
+上把输完下面八召集2345开会的时候，A畜又在整理头发
+
+*****
+
+####  情商  
+##### 2464#         楼主| 发表于 2022-10-15 15:41
+
+卜是，哪个什么蝶的是卜是真的被泥头车创死了，2个月不说话人间蒸发了
+
+*****
+
+####  nowaki  
+##### 2465#       发表于 2022-10-15 15:41
+
+哇哇哇哇，绝活小鱼
+
+*****
+
+####  迷途lite  
+##### 2466#       发表于 2022-10-15 15:41
+
+芜湖，小畜人来咯
+
+*****
+
+####  cuisite  
+##### 2467#       发表于 2022-10-15 15:41
+
+a畜小鱼，漏油们有福了
+
+*****
+
+####  nerugigannte  
+##### 2468#       发表于 2022-10-15 15:41
+
+处长绝活leile leile<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对面前期可是有小鹿的啊
+
+*****
+
+####  zhrs456  
+##### 2469#       发表于 2022-10-15 15:42
+
+泰昌拿PUCK了
+
+*****
+
+####  TI三冠王AME  
+##### 2470#       发表于 2022-10-15 15:42
+
+我外卖已经点好了
+
+*****
+
+####  六娃  
+##### 2471#       发表于 2022-10-15 15:42
+
+我宣布ti11是最好的一届
+
+*****
+
+####  adretyu67  
+##### 2472#       发表于 2022-10-15 15:42
+
+因为是处长的绝活啊
+

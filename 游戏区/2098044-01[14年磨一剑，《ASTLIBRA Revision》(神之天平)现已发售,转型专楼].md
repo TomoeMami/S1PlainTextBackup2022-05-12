@@ -1833,3 +1833,17 @@ https://w.atwiki.jp/astlibra/sp/list
 
 可以回去刷 
 
+
+
+*****
+
+####  朔洵千夜  
+##### 175#       发表于 2022-10-15 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920322&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-15 15:25</a>
+
+竞技场有弩拿 可以瞄准直射 好像是第三场第一个吧
+
+可以回去刷</blockquote>
+谢谢！
+
