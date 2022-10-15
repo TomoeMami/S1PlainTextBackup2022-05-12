@@ -399,3 +399,14 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 毕竟透的是“未来的D”
 
+
+
+*****
+
+####  上坂莲华  
+##### 651#       发表于 2022-10-15 21:58
+
+未来的奏大博士可能认不出来么，台词也是【这个时代的德凯】
+
+估计就是真飞鸟位了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

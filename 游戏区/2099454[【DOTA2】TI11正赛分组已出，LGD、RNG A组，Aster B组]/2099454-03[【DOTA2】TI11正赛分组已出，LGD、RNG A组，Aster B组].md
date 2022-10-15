@@ -9480,3 +9480,303 @@ a畜那一下跟着杀兽早杀掉了
 
 水人打人马特别难受的，路人我试过，尸王没带够芒果+水人，挠不动我人马，水人但凡点人马三下就得去吃树。
 
+
+
+*****
+
+####  逃离二次元  
+##### 4202#       发表于 2022-10-15 21:51
+
+看了一天比赛，真的好累，身体上已经提前步入老比状态了<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 4203#       发表于 2022-10-15 21:52
+
+话说这dodo还是她队友故意夹着个嗓子大舌头听着和前妻一个智障味儿，这比娟儿还烂啊卧槽
+
+*****
+
+####  nxmonitor  
+##### 4204#       发表于 2022-10-15 21:52
+
+这话说的，小黑小强两个线弱的走一路到底是想打过谁？对面还是兽和老奶奶，兽级别起来了不死就挺难的，也确实死了好几次……
+
+*****
+
+####  莉拉厨  
+##### 4205#       发表于 2022-10-15 21:53
+
+这gg的5学个法球点人，水人300血在塔下嗯see，我玩nm
+
+*****
+
+####  tasuku  
+##### 4206#       发表于 2022-10-15 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927014&amp;ptid=2099454" target="_blank">我爱撩菜 发表于 2022-10-15 21:43</a>
+
+挖草= =EG 2：0 OG啊  ，EG觉醒了吗？之前怎么印象都是菜的抠脚了</blockquote>
+有misha神带EG，虐个OG怎么了
+
+*****
+
+####  勤练带来力量  
+##### 4207#       发表于 2022-10-15 21:53
+
+苏哥儿可是能被oc处刑的人，上一把你们有感受到水人找个人的存在吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 4208#       发表于 2022-10-15 21:54
+
+小黑没跟小强那波杀老奶奶结果被反杀，其实线上也没那么难得。
+只能说处长发作了
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 4209#       发表于 2022-10-15 21:54
+
+等明天RNG碰EG了，看看RNG究竟成色如何
+
+*****
+
+####  反方向的波  
+##### 4210#       发表于 2022-10-15 21:54
+
+Betboom今天打了一波0-6，应该是人没了
+
+*****
+
+####  逃离二次元  
+##### 4211#       发表于 2022-10-15 21:55
+
+ 本帖最后由 逃离二次元 于 2022-10-15 21:56 编辑 
+
+靠dpc积分晋级的鱼队eg首日6-0，@UnhappyTails 如何评价
+
+*****
+
+####  六娃  
+##### 4212#       发表于 2022-10-15 21:55
+
+ccnc现在对线是最强一档的中，还是一血ts打火猫，说猴爹对线没打好的屁股真的太烂
+
+*****
+
+####  非建政专用号  
+##### 4213#       发表于 2022-10-15 21:55
+
+和漏油讨论半天水人小黑，水人隐身了是真你妈畜生东西阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 4214#       发表于 2022-10-15 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927163&amp;ptid=2099454" target="_blank">逃离二次元 发表于 2022-10-15 21:51</a>
+
+看了一天比赛，真的好累，身体上已经提前步入老比状态了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">确实，睡了十一个小时起来现在又犯困了
+
+*****
+
+####  nowaki  
+##### 4215#       发表于 2022-10-15 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927176&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-15 21:52</a>
+
+话说这dodo还是她队友故意夹着个嗓子大舌头听着和前妻一个智障味儿，这比娟儿还烂啊卧槽 ...</blockquote>
+古堡龙姬
+
+*****
+
+####  nxmonitor  
+##### 4216#       发表于 2022-10-15 21:56
+
+至于水人对线那就是打不过人马的，前面有几把选人马就是用来压制水人的，只不过后面人马隐形了而已……SQ最大的BP问题是选了个没先手的亚巴顿，导致9-0没法建立经济优势，而中期抓人人马开个大就能躲过大多数gank……
+
+*****
+
+####  Narrative  
+##### 4217#       发表于 2022-10-15 21:56
+
+比赛太密集了，一天都在看
+
+*****
+
+####  外挂全家脚气  
+##### 4218#       发表于 2022-10-15 21:56
+
+3号位玛西吗
+
+*****
+
+####  eienyami  
+##### 4219#       发表于 2022-10-15 21:57
+
+这也能弄个ban位吗？
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  proselyte  
+##### 4220#       发表于 2022-10-15 21:57
+
+没兽了
+
+*****
+
+####  walfeds  
+##### 4221#       发表于 2022-10-15 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">还想周末打游戏的，结果一天都被比赛套牢了
+
+*****
+
+####  天堂蜘蛛  
+##### 4222#       发表于 2022-10-15 21:58
+
+哇超级集美论坛是真的能岁月史书啊
+
+明明上路自己对线打的烂为什么要把另外四个一块儿拉下水啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  proselyte  
+##### 4223#       发表于 2022-10-15 21:58
+
+马格纳斯
+
+乐.jpg
+
+*****
+
+####  来自星星的大哥  
+##### 4224#       发表于 2022-10-15 21:58
+
+LGD这是怎么了，看一天了，莫言不会TS和兽吗
+
+*****
+
+####  非建政专用号  
+##### 4225#       发表于 2022-10-15 21:59
+
+直接拉比克也太乐了
+
+*****
+
+####  反方向的波  
+##### 4226#       发表于 2022-10-15 21:59
+
+一天盖了3300+楼，当中有多少是复读机啊
+
+*****
+
+####  莉拉厨  
+##### 4227#       发表于 2022-10-15 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927191&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-15 21:53</a>
+
+这gg的5学个法球点人，水人300血在塔下嗯see，我玩nm</blockquote>
+好呀好呀两级标两级魅惑，这是能打TI的五号位吗
+
+*****
+
+####  nxmonitor  
+##### 4228#       发表于 2022-10-15 21:59
+
+估计八师傅预期中，人马选出来压制水人保护小黑，火猫小劣TS然后能带节奏，然而开局就出了岔子小强送了一血，导致火猫比预想中的劣不少，只是SQ除了兽能冲上去没有一个人能跟上的，如果老奶奶换成玛西赢面就大很多……
+
+*****
+
+####  六娃  
+##### 4229#       发表于 2022-10-15 21:59
+
+eg很有可能复刻ti8，胜者组第一挑个爹
+等等，好像ti7也是
+等等，好像ti6也是
+
+*****
+
+####  逃离二次元  
+##### 4230#       发表于 2022-10-15 22:00
+
+ 本帖最后由 逃离二次元 于 2022-10-15 22:02 编辑 
+
+哦牛，纯辅助是吧
+<img src="https://p.sda1.dev/7/002bf307dedbe777fb1e5ce215f26220/-2037484058.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 4231#       发表于 2022-10-15 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926992&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-15 21:42</a>
+LGD开局0-9听说，5盘全部线上大劣有点意思的，合理怀疑LGD全队和面8去新家坡小天鹅射的鼠标都拿不动 ...</blockquote>
+芽笼是吧
+
+*****
+
+####  izayoi39  
+##### 4232#       发表于 2022-10-15 22:00
+
+我反正是已经预想到rng打强队时候对面的bp了就是ban影魔放谜团和兽逼rng硬吃bp上的这杯毒酒，rng没法玩谜团和兽后面会很难受
+
+*****
+
+####  walfeds  
+##### 4233#       发表于 2022-10-15 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狼人小小没输过
+
+*****
+
+####  AIDSL  
+##### 4234#       发表于 2022-10-15 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927200&amp;ptid=2099454" target="_blank">夏溪澪mio 发表于 2022-10-15 21:54</a>
+
+小黑没跟小强那波杀老奶奶结果被反杀，其实线上也没那么难得。
+
+只能说处长发作了</blockquote>
+那波我特地打开客户端看了，感觉是特地赶紧死给莫言灌瓶去的。
+
+*****
+
+####  Litccc  
+##### 4235#       发表于 2022-10-15 22:01
+
+一天盖了3300+楼，当中有多少是复读机啊
+
+*****
+
+####  逃离二次元  
+##### 4236#       发表于 2022-10-15 22:02
+
+一天盖了3300+楼，当中有多少是复读机啊
+
+*****
+
+####  a1370303  
+##### 4237#       发表于 2022-10-15 22:02
+
+一天盖了3300+楼，当中有多少是复读机啊
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷途lite  
+##### 4238#       发表于 2022-10-15 22:02
+
+一天盖了3300+楼，当中有多少是复读机啊
+
