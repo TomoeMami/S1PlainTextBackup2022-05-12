@@ -1792,3 +1792,12 @@ https://w.atwiki.jp/astlibra/sp/list
 
 刚说完找到了，桥右边石墙用哥布林钥匙打开<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dookiee  
+##### 172#       发表于 2022-10-15 14:59
+
+问一下，是不是每关大致都是一个传奇装备+两个稀有装备？
+
