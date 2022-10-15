@@ -11758,3 +11758,19 @@ ui4s突然的突
 但是误导剪辑还要主播自己禁止别人剪辑。
 令人感叹
 
+
+
+*****
+
+####  Porsche  
+##### 17577#       发表于 2022-10-15 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57902901&amp;ptid=1972669" target="_blank">毛头小希 发表于 2022-10-14 11:58</a>
+这迷茫的表情我愿称之为Q版邪神Saber
+
+真的可爱吗………………？
+
+不过我也分不清这个跟前阵子虹社棒球联动那 ...</blockquote>
+我仔细在找联动的要素在哪，终于发现每个人都套了个球队臂章<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+彩虹真尼玛的是越有钱越抠，生日谷缩水不提了，这给娃娃球衣做六种图案都懒了是吧
+
