@@ -8354,3 +8354,21 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能花田想写沙皇大战梨老八 结果最后不让打就卡那儿了
 
+
+
+*****
+
+####  darkendless  
+##### 8290#       发表于 2022-10-15 11:13
+
+这类吐槽视频除了观点回声还有什么意义。整个动画都烂了再把烂作中有问题的部分反复拿来鞭尸不就是单纯地发泄情绪。我还能唱反调说第9集是二期最精彩的一集，前面有冲突的铺垫最后矛盾爆发，起码不会让人看着想睡过去，反观其他集无聊得要命。<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 8291#       发表于 2022-10-15 11:21
+
+讨论一部烂片没啥意义。花钱买买中之人谷子就完了。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

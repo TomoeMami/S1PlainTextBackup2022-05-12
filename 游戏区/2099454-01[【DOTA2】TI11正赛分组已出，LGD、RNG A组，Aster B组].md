@@ -10933,3 +10933,235 @@ zai这大招tp有点流畅
 
 insania在打钱，然后指挥马桶去守塔<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  啊哈  
+##### 1228#       发表于 2022-10-15 11:12
+
+<blockquote>哆哆鸡 发表于 2022-10-15 10:44
+还能这样，v社以前不是说过所有人都能播的吗</blockquote>
+前阵子赛事运营方面换了个负责人好像
+
+*****
+
+####  nerugigannte  
+##### 1229#       发表于 2022-10-15 11:12
+
+南美队带盾打的什么东西啊，视野不做5不开是把
+
+*****
+
+####  勤练带来力量  
+##### 1230#       发表于 2022-10-15 11:12
+
+谜团空大了哇哇哇
+
+
+
+*****
+
+####  Cookiekira  
+##### 1231#       发表于 2022-10-15 11:12
+
+这个zai<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 1232#       发表于 2022-10-15 11:13
+
+就没呢个能力啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 1233#       发表于 2022-10-15 11:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杰畜真是多听一句都想吐啊
+
+*****
+
+####  adretyu67  
+##### 1234#       发表于 2022-10-15 11:13
+
+液体这把没了啊，小鱼穷的要死，指望zai和米奇带节奏吗。
+
+*****
+
+####  VanArkride  
+##### 1235#       发表于 2022-10-15 11:14
+
+这把nts状态确实不行
+
+*****
+
+####  DarkDuck  
+##### 1236#       发表于 2022-10-15 11:14
+
+被一个南美队打成这样<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恐怖利刃  
+##### 1237#       发表于 2022-10-15 11:14
+
+哦牛皮，国外直接发不了弹幕了
+
+*****
+
+####  莉拉厨  
+##### 1238#       发表于 2022-10-15 11:14
+
+懂又不懂，八王先吃一把！
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  坚定的团子党  
+##### 1239#       发表于 2022-10-15 11:14
+
+感觉rng现在明显比lgd强呀，lgd这打得什么几把，打个弱队这么费劲，赶紧一轮游回家吧
+
+*****
+
+####  阿垃垃圾历  
+##### 1240#       发表于 2022-10-15 11:14
+
+rng节奏很好啊 
+
+*****
+
+####  没钱买手办  
+##### 1241#       发表于 2022-10-15 11:14
+
+刚起床，怎么感觉要被南美队揭壳了
+
+*****
+
+####  horacio  
+##### 1242#       发表于 2022-10-15 11:16
+
+这发条在干嘛呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 1243#       发表于 2022-10-15 11:17
+
+RNG这边感觉拖后就不好打了
+
+*****
+
+####  莉拉厨  
+##### 1244#       发表于 2022-10-15 11:17
+
+这发条不是铁假赛？什么技能没有往哥哥脸上走？
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jk9hot  
+##### 1245#       发表于 2022-10-15 11:17
+
+RNG节奏不错呀，一人被抓4张TP
+
+*****
+
+####  恐怖利刃  
+##### 1246#       发表于 2022-10-15 11:18
+
+kakagod
+
+*****
+
+####  walfeds  
+##### 1247#       发表于 2022-10-15 11:18
+
+马体也轮流犯畜了是吧
+
+*****
+
+####  qty  
+##### 1248#       发表于 2022-10-15 11:18
+
+这波漂亮
+
+*****
+
+####  迷途lite  
+##### 1249#       发表于 2022-10-15 11:19
+
+zai这个b又撤退大结果被kaka制裁了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 1250#       发表于 2022-10-15 11:20
+
+ 本帖最后由 六娃 于 2022-10-15 11:21 编辑 
+
+rng确实打得挺有章法
+卧槽，拍拍疯了
+
+*****
+
+####  bluebaby  
+##### 1251#       发表于 2022-10-15 11:20
+
+lgd13不和可以确认了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  horacio  
+##### 1252#       发表于 2022-10-15 11:20
+
+谜团拉完大被tb换血，可以说死得其所
+
+*****
+
+####  恐怖利刃  
+##### 1253#       发表于 2022-10-15 11:20
+
+我正在使用faithbian治疗宝
+
+*****
+
+####  反方向的波  
+##### 1254#       发表于 2022-10-15 11:21
+
+rng开始了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 1255#       发表于 2022-10-15 11:21
+
+宰了宰了，换台
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一夜秋风袭锦城  
+##### 1256#       发表于 2022-10-15 11:21
+
+这个换血也能吹？逆天
+
+*****
+
+####  qty  
+##### 1257#       发表于 2022-10-15 11:21
+
+草，刚说完就送
+
+*****
+
+####  iriyano  
+##### 1258#       发表于 2022-10-15 11:21
+
+卡卡戏来了？
+
