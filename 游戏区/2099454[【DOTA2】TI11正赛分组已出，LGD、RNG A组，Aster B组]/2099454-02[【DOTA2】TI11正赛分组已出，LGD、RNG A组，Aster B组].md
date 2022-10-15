@@ -1010,3 +1010,449 @@ timado就感觉是北美天梯环境练出来的，吃最多的资源然后一�
 
 被宰猪了，调整一下吧= =
 
+
+
+*****
+
+####  端木恋心  
+##### 1639#       发表于 2022-10-15 12:21
+
+lgd状态奇差无比啊
+
+*****
+
+####  六娃  
+##### 1640#       发表于 2022-10-15 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917958&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-15 12:20</a>
+timado就感觉是北美天梯环境练出来的，吃最多的资源然后一打五</blockquote>
+timado对线不错，反应手速也很快，不然就他的脑子内战处刑不了rtz的
+
+*****
+
+####  StrangerJ  
+##### 1641#       发表于 2022-10-15 12:22
+
+装最吊的放马西<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">熟悉的干瘪回来了
+
+*****
+
+####  攻城匠师黑索  
+##### 1642#       发表于 2022-10-15 12:22
+
+采灵芝被逮捕<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lmslardar  
+##### 1643#       发表于 2022-10-15 12:22
+
+中国队这都什么BP，不求你克制至少拿点版本强势别都放给对面啊
+
+*****
+
+####  IG.430  
+##### 1644#       发表于 2022-10-15 12:22
+
+跟漏油说一声，twitch右下角follow左边有个squad mode按钮，自带监视器好吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 1645#       发表于 2022-10-15 12:22
+
+可惜了第一把sf玩得不行，团队整体脑子也不行，让4赵云把畜保住了
+
+*****
+
+####  情商  
+##### 1646#         楼主| 发表于 2022-10-15 12:22
+
+撩菜哥看到a畜这操作估计要玉玉了
+
+*****
+
+####  你可以试试  
+##### 1647#       发表于 2022-10-15 12:22
+
+掀鳖壳喽！
+
+*****
+
+####  aruruu  
+##### 1648#       发表于 2022-10-15 12:22
+
+开雾不排眼，装自己最屌？
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sodah  
+##### 1649#       发表于 2022-10-15 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">南美队都打不过咯。
+
+*****
+
+####  阿垃垃圾历  
+##### 1650#       发表于 2022-10-15 12:22
+
+宰猪宰猪 lgd被宰猪咯 
+
+
+
+*****
+
+####  qty  
+##### 1651#       发表于 2022-10-15 12:22
+
+草，老干瘪快点敲了吧，打的什么玩意儿
+
+*****
+
+####  逃离二次元  
+##### 1652#       发表于 2022-10-15 12:22
+
+舒服了
+
+*****
+
+####  nowaki  
+##### 1653#       发表于 2022-10-15 12:22
+
+lgd的问题都存在一年了，优势路对线太弱，别人这把直接换路就是按着你最菜的点打
+
+*****
+
+####  莉拉厨  
+##### 1654#       发表于 2022-10-15 12:23
+
+讲道理马西确实不能放了，感觉第二天见不到了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 1655#       发表于 2022-10-15 12:23
+
+这军团要把rng打烂啊
+什么是sszai的军团，那没事了
+
+*****
+
+####  银翼的维罗西  
+##### 1656#       发表于 2022-10-15 12:23
+
+好死喵好死喵，西恩刀塔好死
+
+*****
+
+####  吃货红毛  
+##### 1657#       发表于 2022-10-15 12:23
+
+马桶哥军团还行
+
+我超 AME被玛西从虚空大里搬出去还行
+
+*****
+
+####  逃离二次元  
+##### 1658#       发表于 2022-10-15 12:23
+
+桶哥的军团啊
+
+*****
+
+####  憧憬鲨  
+##### 1659#       发表于 2022-10-15 12:24
+
+马西波高了，这就是摆大巴战术的含金量啊
+
+*****
+
+####  sodah  
+##### 1660#       发表于 2022-10-15 12:24
+
+表演来了。
+
+*****
+
+####  我爱撩菜  
+##### 1661#       发表于 2022-10-15 12:24
+
+萧瑟前面有多装，这盘就有多丑 
+
+*****
+
+####  nowaki  
+##### 1662#       发表于 2022-10-15 12:24
+
+处长死就死了呗，你交大干嘛呢
+
+*****
+
+####  12481632  
+##### 1663#       发表于 2022-10-15 12:24
+
+相信A÷
+
+*****
+
+####  tengshuo980  
+##### 1664#       发表于 2022-10-15 12:24
+
+好呀好呀，被南美网吧队宰猪了呀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Asukalangley33  
+##### 1665#       发表于 2022-10-15 12:25
+
+看来大家都知道，打LGD冲着优势路突破就行了
+
+找全队最硬的跟giegie对线，默认无解肥
+
+*****
+
+####  情商  
+##### 1666#         楼主| 发表于 2022-10-15 12:25
+
+懂不懂一个人大3个的含金量
+
+*****
+
+####  izayoi39  
+##### 1667#       发表于 2022-10-15 12:25
+
+桶哥的军团啊，看好吴冠超影魔线上无解肥然后无限刷钱结果自家地图被对面越打越少然后被碾死
+
+*****
+
+####  walfeds  
+##### 1668#       发表于 2022-10-15 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">揭壳
+
+*****
+
+####  情商  
+##### 1669#         楼主| 发表于 2022-10-15 12:25
+
+哇，队友守高，a畜直接采灵芝，熟悉的感觉
+
+*****
+
+####  六娃  
+##### 1670#       发表于 2022-10-15 12:25
+
+讲道理，对面的南美网吧队，打不过k1和pakaz的
+A畜今年确实是到头了
+
+*****
+
+####  sodah  
+##### 1671#       发表于 2022-10-15 12:25
+
+抑制不住的表演欲。
+
+*****
+
+####  我爱撩菜  
+##### 1672#       发表于 2022-10-15 12:26
+
+这算是完美combo了，可惜输出不够打不死
+
+*****
+
+####  莉拉厨  
+##### 1673#       发表于 2022-10-15 12:26
+
+四赵云什么意思，哥哥一死就坐起来玩了是吧
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  银翼的维罗西  
+##### 1674#       发表于 2022-10-15 12:26
+
+希望今天老干鳖和RNG一个2比0别赢
+
+*****
+
+####  IG.430  
+##### 1675#       发表于 2022-10-15 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917986&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-15 12:22</a>
+跟漏油说一声，twitch右下角follow左边有个squad mode按钮，自带监视器好吧 ...</blockquote>
+再重复一次<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+syl 理性讨论，穆里尼奥是不是现代足球第一人
+
+*****
+
+####  情商  
+##### 1676#         楼主| 发表于 2022-10-15 12:26
+
+这虚空还出银月不出bkb+金箍棒，懂又不懂
+
+*****
+
+####  qty  
+##### 1677#       发表于 2022-10-15 12:27
+
+就这发挥，这届西恩队不会连淘汰赛都进不去吧
+
+*****
+
+####  nowaki  
+##### 1678#       发表于 2022-10-15 12:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杰出，发条+玛西后期不厉害
+
+*****
+
+####  反方向的波  
+##### 1679#       发表于 2022-10-15 12:27
+
+南美还是少一个独联体张志成这样的老奸巨猾5号位，这把都优成这样了视野还一片黑
+
+*****
+
+####  Midnight.Coup  
+##### 1680#       发表于 2022-10-15 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918081&amp;ptid=2099454" target="_blank">qty 发表于 2022-10-15 12:27</a>
+
+就这发挥，这届西恩队不会连淘汰赛都进不去吧</blockquote>
+败者组吧
+
+
+
+*****
+
+####  桐道悠  
+##### 1681#       发表于 2022-10-15 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918081&amp;ptid=2099454" target="_blank">qty 发表于 2022-10-15 12:27</a>
+
+就这发挥，这届西恩队不会连淘汰赛都进不去吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两个一轮游的，一个前六的，认清现实好伐
+
+*****
+
+####  scg2017  
+##### 1682#       发表于 2022-10-15 12:28
+
+a畜就是路人里那种不出bkb的c。
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  StrangerJ  
+##### 1683#       发表于 2022-10-15 12:28
+
+对面也是菜的抠脚，说不定又要被翻
+
+*****
+
+####  情商  
+##### 1684#         楼主| 发表于 2022-10-15 12:28
+
+开大单杀一个老太婆，太对了哥，看这高地怎么守
+
+*****
+
+####  walfeds  
+##### 1685#       发表于 2022-10-15 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917939&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-15 12:19</a>
+
+听说mi酱带领og在坐过山车，有没有op前十来说一下</blockquote>
+用神必阵容打硬实力dota<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 1686#       发表于 2022-10-15 12:28
+
+这配合已经变形了
+
+*****
+
+####  没钱买手办  
+##### 1687#       发表于 2022-10-15 12:28
+
+<img src="https://p.sda1.dev/7/55e41be8a06b8e0d55cb3b8bbd00937e/26e87029d1ceeca9.jpg" referrerpolicy="no-referrer">开始了
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  UnhappyTails  
+##### 1688#       发表于 2022-10-15 12:28
+
+看到这里突然有点心疼bian和y
+
+他们曾是最骄傲的王者
+
+现在居然沦落到成为这种人的陪衬
+
+*****
+
+####  我爱撩菜  
+##### 1689#       发表于 2022-10-15 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918097&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-15 12:28</a>
+
+开大单杀一个老太婆，太对了哥，看这高地怎么守</blockquote>
+又是靠四赵云完美combo吓跑对面呗，自己乖乖野区采灵芝
+
+*****
+
+####  情商  
+##### 1690#         楼主| 发表于 2022-10-15 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918109&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-15 12:28</a>
+看到这里突然有点心疼bian和y
+
+他们曾是最骄傲的王者</blockquote>
+拆队狗有什么好心疼的，鉴定为应得此赏
+
+*****
+
+####  蛭人  
+##### 1691#       发表于 2022-10-15 12:29
+
+好呀好呀，电锤银月，1500血的FV。
+
+*****
+
+####  情商  
+##### 1692#         楼主| 发表于 2022-10-15 12:30
+
+请关注小地图粉色蠢逼在哪采灵芝
+
+队友在上半区找节奏，粉色蠢逼在天辉小野刷野，然后队友遭遇团战，粉色蠢逼在夜宴三角区
+
+*****
+
+####  莉拉厨  
+##### 1693#       发表于 2022-10-15 12:31
+
+赵公子合意啊？去洗吧脸吧
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 1694#       发表于 2022-10-15 12:31
+
+怎么回事，除沈1打2单杀马桶
+
