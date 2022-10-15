@@ -1904,3 +1904,14 @@ https://w.atwiki.jp/astlibra/sp/list
 —— 来自 Xiaomi M2012K1 ...</blockquote>
 多谢，已经开了！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dookiee  
+##### 181#       发表于 2022-10-15 19:01
+
+火山这段单传秘法的剧情有点强行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
