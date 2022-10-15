@@ -8556,3 +8556,15 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 
 当然我在上一栋楼也有提出过建议 只要宣布LL世界和GB系列一个世界观 在LL大赛引入Gunpla Battle环节就能解决这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ddy2811  
+##### 8306#       发表于 2022-10-15 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916697&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-15 11:04</a>
+
+堇在可可面前调侃ll我印象中有好几次啊，但是天平往可可那边倾斜的太多是真的。而且不说别的，星团动画时间 ...</blockquote>
+而且星2这么一搞，还真就是这样的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

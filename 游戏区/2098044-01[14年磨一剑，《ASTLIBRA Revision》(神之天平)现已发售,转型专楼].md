@@ -1640,3 +1640,17 @@ https://w.atwiki.jp/astlibra/sp/list
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  我猫呢?  
+##### 158#       发表于 2022-10-15 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918226&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-15 12:36</a>
+谁跟我说说火山的这个眼球boss应该怎么打，感觉完全无解
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+可以用双手剑类武器打，攻击力要堆高一点。开场保持距离集中打boss的一侧，避免碰到外侧火球，坚持到boss飞到头顶后用冰系二级技能可以造成多端输出，打破至少一个外侧火球以后就很好打了
+如果有攻击力三倍的技能也可以装上，开场先偷一会鸡，等boss开始攻击后再卸掉技能以免暴毙
+

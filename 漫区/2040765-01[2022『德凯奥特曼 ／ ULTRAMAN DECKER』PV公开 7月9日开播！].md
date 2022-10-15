@@ -208,3 +208,26 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 这集打戏节奏够快，看着是挺爽的，不过仁叔后半段表现确实迷糊，非得强壮型硬怼
 
+
+
+*****
+
+####  浅川雏羽  
+##### 634#       发表于 2022-10-15 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来仁叔这一头金毛加上之前舅舅党透的“未来的D”而不是直接说未来的戴卡
+
+仁叔演的不会是真飞鸟吧
+
+*****
+
+####  Case  
+##### 635#       发表于 2022-10-15 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918119&amp;ptid=2040765" target="_blank">游蜓 发表于 2022-10-15 12:29</a>
+
+这集打戏节奏够快，看着是挺爽的，不过仁叔后半段表现确实迷糊，非得强壮型硬怼 ...</blockquote>
+看得出更擅长战斗的底子是有的。但好久没变身了。
+
+变身奇迹型时候还低头看了眼自己。
+
