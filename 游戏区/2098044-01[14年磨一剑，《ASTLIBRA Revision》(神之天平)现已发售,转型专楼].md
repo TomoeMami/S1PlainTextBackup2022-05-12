@@ -1485,3 +1485,15 @@ https://w.atwiki.jp/astlibra/sp/list
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  五块  
+##### 147#       发表于 2022-10-15 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57911811&amp;ptid=2098044" target="_blank">alucardcz 发表于 2022-10-14 22:15</a>
+
+是全键盘操作还是 鼠标攻击之类的?</blockquote>
+纯键盘，其实就是个2d横板无Z轴的act，目前玩下来RPG成分更重，剧情比正经打怪（排除刷刷时间）用时久。
+
