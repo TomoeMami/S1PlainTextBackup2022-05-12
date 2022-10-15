@@ -2020,3 +2020,12 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 学会用双手武器配角斗士盾击之后一下子简单了起来，全程霸体输出<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fyzqwzh  
+##### 192#       发表于 2022-10-15 22:19
+
+海蛇洞窟最深处前一张图的那个宝箱在哪里，探测技能显示有一个但找不到有点膈应
+

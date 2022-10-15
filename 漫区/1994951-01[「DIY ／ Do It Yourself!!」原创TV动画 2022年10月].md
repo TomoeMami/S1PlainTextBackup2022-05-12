@@ -2040,3 +2040,14 @@ NST放送は明日9:30～
 
 呜呜，好看
 
+
+
+*****
+
+####  dozen  
+##### 167#       发表于 2022-10-15 22:16
+
+虽然扭曲怪们很瞩目布丁女士，但论扭曲潜力还是眼镜妹看起来比较大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看起来世界观不是故事发展的重要楔子
+

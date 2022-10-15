@@ -8661,3 +8661,39 @@ miko跟着角色一起叫，笑死了
 
 这个要捏难度很高了
 
+
+
+*****
+
+####  holoan  
+##### 2327#         楼主| 发表于 2022-10-15 22:15
+
+6V又来了
+
+*****
+
+####  rs5621  
+##### 2328#       发表于 2022-10-15 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">今晚35p们厉害，捏的人质量都不错
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 2329#         楼主| 发表于 2022-10-15 22:17
+
+ID其实和上一期的6V一样
+
+这个人可能捏了一堆
+
+*****
+
+####  rs5621  
+##### 2330#       发表于 2022-10-15 22:18
+
+mikoVS色色miko
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
