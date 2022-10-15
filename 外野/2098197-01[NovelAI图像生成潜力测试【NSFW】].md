@@ -3630,3 +3630,17 @@ size太大，显卡跑不了<img src="https://static.saraba1st.com/image/smiley/
 
 3.加入了hypernet技术，这是一种加在自注意力机制上的小型网络，可以达到类似精调（在具体某种类型的数据集上继续训练某个大模型以使其对目标数据集有更好的效果）的效果，但是相比精调，以来它非常小型，方便拆卸，另外精调往往会损失模型的泛化能力，通用性降低，hypernet影响较小（大不了通用的时候卸载也是很快的）
 
+
+
+*****
+
+####  zerona  
+##### 284#       发表于 2022-10-15 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57910561&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-14 20:48</a>
+
+---顺手更新一下novelai调了什么---（主楼更新不了，眼泪掉下来）
+
+之前看了novelai的博客，讲了下他们到底 ...</blockquote>
+这里能给个连接么？是说他们有更新内容？如果是的话，这些更新在现在用的这套ai 训练上还无法利用吧？
+

@@ -1213,3 +1213,30 @@
 
 这些视频的神奇在于，吃饭时候可以看，拉屎时候也可以看<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  redblueman  
+##### 132#       发表于 2022-10-15 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909648&amp;ptid=2098925" target="_blank">laaaaaaag 发表于 2022-10-14 19:54</a>
+一个疑问，体力劳动的确是需要高碳水，多糖油来恢复体能/精神
+但是三哥这个好像超量的也太夸张了，真的是日 ...</blockquote>
+你看那些路人一个个不正常的大肚子，估计印度男性平民人均中度脂肪肝
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  redblueman  
+##### 133#       发表于 2022-10-15 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57851395&amp;ptid=2098925" target="_blank">浅薄者 发表于 2022-10-10 21:50</a>
+我不该在饭点看这个
+
+有点好奇，三哥那儿路边小吃都这个画风吗？是视频拍摄者故意猎奇挑“干净又卫生”的拍 ...</blockquote>
+以我看了几百个印度街头美食的经验来看，路边摊基本都这水平，有些看起来高端一点的整洁明亮的店面，后厨也是这水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

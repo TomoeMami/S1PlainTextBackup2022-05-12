@@ -1732,3 +1732,21 @@ https://w.atwiki.jp/astlibra/sp/list
 你等级怎么这么高的，我到这才10级，800块钱，就这还是为了买铜剑刷了半天怪 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">全幸运，每件装备熟练刷满，就摁刷
 
+
+
+*****
+
+####  jy000129  
+##### 167#       发表于 2022-10-15 13:33
+
+第四关救黑魔女方式的选项是不是结局分支？
+
+*****
+
+####  黒長直姫  
+##### 168#       发表于 2022-10-15 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917550&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-10-15 11:53</a>
+我直接走的话会卡在这个角落，后面打完boss拿到鞋子后才能正常走过去 ...</blockquote>
+其实跳一下就可以过版了
+

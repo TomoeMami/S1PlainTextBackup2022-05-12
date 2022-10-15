@@ -88,3 +88,17 @@
 
 看到最后莱因哈特笑的那里有人说“笑得像卡缪”想了想确实hhh
 
+
+
+*****
+
+####  yixiaqqq  
+##### 5475#       发表于 2022-10-15 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57914194&amp;ptid=1502023" target="_blank">terminator1990 发表于 2022-10-15 02:48</a>
+
+如果在没有获得费沙对走廊自由航行允许的情况下帝国军或同盟军强闯，会有什么后果？ ...</blockquote>
+如果是原来的形势，费沙报个信对面就来阻击了，就是百年前伊谢尔伦回廊的翻版，没要塞当基地反倒会更麻烦，事后还会被费沙报复，风险太大不划算。
+
+但现在平衡已经崩溃，报了信同盟也无力阻拦了，所以说黑狐水平也就这样，看不清形势，不赶紧收缩当个小透明反倒更大规模跳到台前，一看就是读历史书少了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
