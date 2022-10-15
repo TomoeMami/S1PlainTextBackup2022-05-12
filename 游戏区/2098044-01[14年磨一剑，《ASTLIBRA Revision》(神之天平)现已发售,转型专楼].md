@@ -1666,3 +1666,22 @@ https://w.atwiki.jp/astlibra/sp/list
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  dazzle  
+##### 160#       发表于 2022-10-15 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57912321&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-14 22:56</a>
+
+第二关这个箱子愣是找不到路</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">你等级怎么这么高的，我到这才10级，800块钱，就这还是为了买铜剑刷了半天怪
+
+*****
+
+####  fyzqwzh  
+##### 161#       发表于 2022-10-15 13:20
+
+以前的地图回得去吗
+

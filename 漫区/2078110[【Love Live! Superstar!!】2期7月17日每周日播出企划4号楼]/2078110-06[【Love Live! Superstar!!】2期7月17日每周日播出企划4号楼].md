@@ -8580,3 +8580,39 @@ b站刷到个批评可堇的视频，二期动画的塑造就不说了，一期�
 第五集这里确实有台词失误的嫌疑，其他集的部分我不觉得有什么大的失误。这里怎么翻译都行，卑しい这个词 ...</blockquote>
 堇动画里要是像这样多来几句“那些话我就当做赞美收下了”之类的话，或许还能缓和一下气氛，结果说的都是“才怪，烦死了”、“说话方式”这类语气比较强烈、且因为简短显得更有重量的话，气氛好点的时候可以当做吐槽，但气氛差的时候就难免给人一种火上浇油的感觉
 
+
+
+*****
+
+####  Kfly  
+##### 8308#       发表于 2022-10-15 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57917409&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-10-15 11:44</a>
+
+其实让堇把第9集说的那些话一开始就坦白就没这么多事了，还能提前一年享受好态度的可可。剧本： ...</blockquote>
+还有第一季大赛和演艺圈的争论，这些话真的应该全在动画里直接说出来，搁这阅读理解呢，分析得出来时一回事，说给观众看又是另一回事啊
+
+<img src="https://img.saraba1st.com/forum/202210/15/130937etn1157t7c7p1wpp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-15 13:09 上传
+
+*****
+
+####  darkendless  
+##### 8309#       发表于 2022-10-15 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918731&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-15 13:12</a>
+还有第一季大赛和演艺圈的争论，这些话真的应该全在动画里直接说出来，搁这阅读理解呢，分析得出来时一回 ...</blockquote>
+这期杂志的对话有些地方感觉就像是在给动画打补丁，估计电击编辑部的也是对这垃圾动画看不下去了。不如换杂志的几位主笔来写脚本。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 8310#       发表于 2022-10-15 13:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">现在嘛还可以把锅全甩给香音传  其他人描写不足   万万万一3期不搞香音传了还是稀烂就有意思了
+
