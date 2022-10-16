@@ -128,3 +128,17 @@
 
 而且我觉得如果莱因哈特当了舅舅，无论这外甥素质如何，性格像谁，似乎都会更有趣一些……
 
+
+
+*****
+
+####  yixiaqqq  
+##### 5478#       发表于 2022-10-16 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933311&amp;ptid=1502023" target="_blank">hourousha 发表于 2022-10-16 10:31</a>
+
+说起来，原着里是‘老皇帝怕失去安妮罗杰——之前妃子有难产死亡的记录，特意没让她怀孕’来规避了莱因哈特 ...</blockquote>
+一是f4一直是我死之后管它洪水滔天
+
+二是这集被讨论的小皇帝是f4的孙子，正统性没丢
+

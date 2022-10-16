@@ -2332,3 +2332,14 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 每个武器装备刷满给被动和cost上限也能提高收集动力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pf67  
+##### 221#       发表于 2022-10-16 12:50
+
+求第五关魔王城里第二个boss打法，打了几次不像能过去的样子。
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

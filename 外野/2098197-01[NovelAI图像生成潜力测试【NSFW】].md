@@ -3786,3 +3786,17 @@ Steps: 28, Sampler: Euler, CFG scale: 12, Seed: 1969404127, Size: 512x512, Model
 1girl, ahoge, animal ear fluff, animal ears, blonde hair, blue eyes, blush, breasts, cat ears, cat g ...</blockquote>
 新时代<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cyp909  
+##### 294#       发表于 2022-10-16 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927370&amp;ptid=2098197" target="_blank">怀言者 发表于 2022-10-15 22:01</a>
+
+是不是只能生成二次元的图
+
+—— 来自 Xiaomi 2206122SC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+跟原版模型0.75混合的话，用真人关键字，特别是欧美明星当脸模会有非常逼真的效果，我已经试了，非常射爆<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
