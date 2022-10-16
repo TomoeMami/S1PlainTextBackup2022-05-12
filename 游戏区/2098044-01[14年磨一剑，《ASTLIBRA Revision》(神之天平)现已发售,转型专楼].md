@@ -2292,3 +2292,15 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  蓝雉  
+##### 217#         楼主| 发表于 2022-10-16 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934521&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-16 12:04</a>
+
+好办，斩龙剑拿到没？练到精通，会给一个技能，三倍伤害但是被敌人打到就即死，但是这关敌人是不会攻击你 ...</blockquote>
+过了,有点极限,给的东西还挺重要<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
