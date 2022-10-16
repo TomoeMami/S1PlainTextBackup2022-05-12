@@ -1439,3 +1439,14 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 不过刚才闪断更新好像把羁绊资料改了，该不会是因为有粉丝炎上所以优化了一下设定？
 
+
+
+*****
+
+####  rollingusagi  
+##### 3123#       发表于 2022-10-16 08:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以改叫妖精骑士呼延灼了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
