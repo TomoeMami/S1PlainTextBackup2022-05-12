@@ -6780,3 +6780,21 @@ kagura_mea.pt
 
 今天下的早啊
 
+
+
+*****
+
+####  chelomei  
+##### 12656#       发表于 2022-10-16 22:18
+
+训练集没有做镜像处理,瞳色基本稳定了,也都做了背景处理,出来的效果还不错,鸢尾花logo基本能还原了
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+kagura_mea1.pt
+
+2022-10-16 22:05 上传
+点击文件名下载附件
+
+24.92 KB, 下载次数: 0
+

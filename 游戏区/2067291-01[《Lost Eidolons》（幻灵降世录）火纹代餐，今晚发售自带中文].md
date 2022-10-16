@@ -1458,3 +1458,15 @@ B站上的直播录像 犹豫不决的可以先看看
 看上的那个女猎人跑了，还会不会回来啊？</blockquote>
 可以确定肯定会回来，我前3个全没招募，后面都回来了
 
+
+
+*****
+
+####  tand177  
+##### 133#       发表于 2022-10-16 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945045&amp;ptid=2067291" target="_blank">diectt 发表于 2022-10-16 22:07</a>
+
+可以确定肯定会回来，我前3个全没招募，后面都回来了</blockquote>
+Ok，我扫了眼后期职业，感觉就缺个皮甲弓（罗宾我当板甲弓练）、第二个牧师，还有个近战法师，前两个人刚好填坑
+

@@ -1984,3 +1984,37 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 那B站上那些说V50级3项满20的评论也是出自桌游设定吗，看他们吹得振振有词的，有点不解 ...</blockquote>
 没问题。V如果50级别，数值是非常高，对标桌面人物数值的。
 
+
+
+*****
+
+####  猫睛石  
+##### 3151#       发表于 2022-10-16 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943051&amp;ptid=2069884" target="_blank">zxzx7753 发表于 2022-10-16 20:15</a>
+不算be也不he 算个ne
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+我的标准是男主有没有死掉，死了就是BE<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  高龙  
+##### 3152#       发表于 2022-10-16 22:17
+
+<img src="https://img.saraba1st.com/forum/202210/16/221642a416a6mw460dya4i.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (35.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 22:16 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/221709vo4nofoowfnhc9cw.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (30.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 22:17 上传
+

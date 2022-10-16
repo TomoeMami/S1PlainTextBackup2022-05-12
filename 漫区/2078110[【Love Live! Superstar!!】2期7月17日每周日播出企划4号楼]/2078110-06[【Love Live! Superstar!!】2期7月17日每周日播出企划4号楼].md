@@ -9765,3 +9765,16 @@ live，视频，杂志，直播，CD售卖、内嵌卡牌游戏，这app内容�
 想起那个商谚，“一流企业做标准”
 尽管做不到精尖独创，但是表面够缝，也能成让大伙哑口无言的“标准”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 8418#       发表于 2022-10-16 22:19
+
+还是给我的感觉就是填充垃圾时间的，比虹当年随意太多了，标准的企划书没写完拿了钱走一步看一步的做法。
+
+而且虹也不算真多少随意，两代立德领进门的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
