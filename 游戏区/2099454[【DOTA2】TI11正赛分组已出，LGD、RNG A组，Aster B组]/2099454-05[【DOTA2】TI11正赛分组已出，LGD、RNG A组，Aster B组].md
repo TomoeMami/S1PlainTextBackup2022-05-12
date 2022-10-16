@@ -6492,3 +6492,442 @@ bian这把装备是有点问题的，虽然有兽王大断谜团大，但是不�
 
 有点东南亚天梯的味道了这个ti，每盘打完能入就入
 
+
+
+*****
+
+####  非建政专用号  
+##### 6859#       发表于 2022-10-16 18:01
+
+我建议zai畜晚点单机的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AIDSL  
+##### 6860#       发表于 2022-10-16 18:01
+
+Lina这盘就是萧瑟的定位啊，狗的价值就是吃伤害+钻Lina救命+撕裂伤口帮Lina省一个撒旦。
+
+前面难看是因为鞭被揍成了y，没人当莫言。
+
+*****
+
+####  憧憬鲨  
+##### 6861#       发表于 2022-10-16 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940512&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-16 18:00</a>
+这比赛里又不是只有一波是这样啊，关键那波翻盘团就是火女被动先手让液体全冲进来被谜团拉了一个好大才翻 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能nts学中国文化学到三国了，跑去找了本火凤燎原看吧
+
+*****
+
+####  阿垃垃圾历  
+##### 6862#       发表于 2022-10-16 18:01
+
+rng每次基地杀完人都要冲泉  好凶啊 
+
+*****
+
+####  lyjssj  
+##### 6863#       发表于 2022-10-16 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天是西恩dota大奇迹日了
+
+*****
+
+####  windhawind2  
+##### 6864#       发表于 2022-10-16 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940512&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-16 18:00:51</a>
+这比赛里又不是只有一波是这样啊，关键那波翻盘团就是火女被动先手让液体全冲进来被谜团拉了一个好大才翻 ...</blockquote>翻盘团不是文爱胖子先手丢刚被秒了打赢的？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  subject07  
+##### 6865#       发表于 2022-10-16 18:02
+
+小小mvp，每次先手找到刚被精准扔到狗身上
+
+*****
+
+####  windhawind2  
+##### 6866#       发表于 2022-10-16 18:03
+
+顺便sszai真是fw啊 没bkb没林肯的谜团能把大拉满<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  情商  
+##### 6867#         楼主| 发表于 2022-10-16 18:03
+
+核中核，my boy在玩沙发
+
+*****
+
+####  恐怖利刃  
+##### 6868#       发表于 2022-10-16 18:03
+
+西恩会师决赛！西恩会师决赛！
+
+*****
+
+####  莉拉厨  
+##### 6869#       发表于 2022-10-16 18:03
+
+首功肯定是赵公子，没有他去断一代盾和二代盾魔晶这两波30分钟就破路了，哪有后面莫言顶住的可能性
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一夜秋风袭锦城  
+##### 6870#       发表于 2022-10-16 18:03
+
+bkb也作用有限，这刚被和畜打起来都是直接找谜团的，死于老鹿aoe的可能远小于直接被刚被搂死。其实最好的策略真就是拖，拖到40分钟lina小狗装备成型就是auto win。
+
+
+
+*****
+
+####  百世诸侯  
+##### 6871#       发表于 2022-10-16 18:03
+
+希望撸狗鞭能找回状态，你这么摆到时候LGD被淘汰了也没法把火力集中在A畜身上，让我们A黑很难办的
+
+*****
+
+####  你可以试试  
+##### 6872#       发表于 2022-10-16 18:04
+
+骂骂咧咧关闭支付宝
+
+*****
+
+####  VanArkride  
+##### 6873#       发表于 2022-10-16 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940578&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-16 18:03</a>
+首功肯定是赵公子，没有他去断一代盾和二代盾魔晶这两波30分钟就破路了，哪有后面莫言顶住的可能性
+
+——  ...</blockquote>
+一代盾谜团不来真没看懂，有个祭品光环肯定打掉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 6874#       发表于 2022-10-16 18:04
+
+myboy竟然玩起了影魔，梦回秘密了
+
+*****
+
+####  哈萨维·诺亚  
+##### 6875#       发表于 2022-10-16 18:04
+
+希望撸狗鞭能找回状态，你这么摆到时候LGD被淘汰了也没法把火力集中在A畜身上，让我们A黑很难办的
+
+*****
+
+####  izayoi39  
+##### 6876#       发表于 2022-10-16 18:04
+
+本来火女这定位应该是小狗该做的，奈何a畜这在前面卖的水准太差了，猴爹一看不对劲就换了身正面装抗伤害
+
+*****
+
+####  情商  
+##### 6877#         楼主| 发表于 2022-10-16 18:04
+
+希望撸狗鞭能找回状态，你这么摆到时候LGD被淘汰了也没法把火力集中在A畜身上，让我们A黑很难办的
+
+*****
+
+####  sfour  
+##### 6878#       发表于 2022-10-16 18:05
+
+太监论坛的搞笑功力还是一如既往，量子鞭最后对面溃败残局了拉个刷新大开始“说话”“道歉”，真的太过傻逼，我真怀疑太监论坛这些发帖的心理年龄有没有超过初中生。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  逃离二次元  
+##### 6879#       发表于 2022-10-16 18:05
+
+希望撸狗鞭能找回状态，你这么摆到时候LGD被淘汰了也没法把火力集中在A畜身上，让我们A黑很难办的
+
+*****
+
+####  情商  
+##### 6880#         楼主| 发表于 2022-10-16 18:06
+
+红龙被eg打的生活不能自理了，很难想象lgd能被红龙打的生活不能自理
+
+*****
+
+####  nxmonitor  
+##### 6881#       发表于 2022-10-16 18:06
+
+小狗这把已经抗住了啊，然而还是有兽和兽王强行冲脸，之后才出了强袭硬刚的……
+
+*****
+
+####  一夜秋风袭锦城  
+##### 6882#       发表于 2022-10-16 18:06
+
+这把45拉满了，y队萨尔几个D救大命，赵公子抢一代盾更是拯救游戏了。不然一代盾刚被直接就上干瘪高地了，连还手机会都不会有。
+
+*****
+
+####  米德  
+##### 6883#       发表于 2022-10-16 18:06
+
+据说超哥TI人头历史第一了
+
+*****
+
+####  StrangerJ  
+##### 6884#       发表于 2022-10-16 18:06
+
+量子鞭啥时候变成撸狗的
+
+*****
+
+####  windhawind2  
+##### 6885#       发表于 2022-10-16 18:06
+
+顺便bian这状态有梗啊 上一个ti前宣布退役的西恩ti冠军三号位成绩可不大好看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  dc5281  
+##### 6886#       发表于 2022-10-16 18:06
+
+rng还需要观察一下打强队的表现
+
+不过从预选开始，到小组赛现在为止，rng打团的能力确实很强，预选3-0xg的时候就挺明显了，对线一般55开甚至小劣，但是打团思路清晰肌肉拉满
+
+小组赛打下来哪怕是输液体的那局，劣势团的拉扯也很好
+
+*****
+
+####  银翼的维罗西  
+##### 6887#       发表于 2022-10-16 18:06
+
+液体真的不行，这中单上限太低了，中路这样摇人帮他波波起节奏去送，上路被谜团拉大更是搞笑，既T不中也爆不到谜团，选择了唯一被打灭的方式，有哥哥小小那味了
+
+*****
+
+####  情商  
+##### 6888#         楼主| 发表于 2022-10-16 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940613&amp;ptid=2099454" target="_blank">sfour 发表于 2022-10-16 18:05</a>
+太监论坛的搞笑功力还是一如既往，量子鞭最后对面溃败残局了拉个刷新大开始“说话”“道歉”，真的太过傻逼 ...</blockquote>
+戏来了是这样
+
+*****
+
+####  一夜秋风袭锦城  
+##### 6889#       发表于 2022-10-16 18:06
+
+希望撸狗鞭能找回状态，你这么摆到时候LGD被淘汰了也没法把火力集中在A畜身上，让我们A黑很难办的
+
+*****
+
+####  情商  
+##### 6890#         楼主| 发表于 2022-10-16 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940643&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-16 18:06</a>
+量子鞭啥时候变成撸狗的</blockquote>
+[@Litccc](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=500945) 上开哥是我
+
+*****
+
+####  莉拉厨  
+##### 6891#       发表于 2022-10-16 18:07
+
+下把液体输了就产生lgd2:0液体2:0eg2:0lgd死循环了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  恐怖利刃  
+##### 6892#       发表于 2022-10-16 18:08
+
+总击杀榜第一是苏猴，第二may皇，今年怎么都超了
+
+*****
+
+####  格雷殿下  
+##### 6893#       发表于 2022-10-16 18:08
+
+一个兽王，先手打不了，后手打不了，偷高地偷不了，视野鸟也没有，你说他是来干嘛的?
+
+*****
+
+####  米德  
+##### 6894#       发表于 2022-10-16 18:08
+
+希望撸狗鞭能找回状态，你这么摆到时候LGD被淘汰了也没法把火力集中在A畜身上，让我们A黑很难办的
+
+*****
+
+####  百世诸侯  
+##### 6895#       发表于 2022-10-16 18:09
+
+<img src="https://img.saraba1st.com/forum/202210/16/180901cpzyhhp7f1z7hawh.jpg" referrerpolicy="no-referrer">
+
+<strong>-3ed2a307767faaa8.jpg</strong> (147.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-16 18:09 上传
+
+来了来了
+
+*****
+
+####  Sabbah  
+##### 6896#       发表于 2022-10-16 18:09
+
+仙贝夜魇前哨那个满血后撤步卖lina是真的给我看晕了，尤其是他自己出装要的是冰眼晕锤就显得格外滑稽。
+
+*****
+
+####  Keynes  
+##### 6897#       发表于 2022-10-16 18:09
+
+不会让么么鳖混进胜者组了吧，真别恶心我<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 6898#       发表于 2022-10-16 18:09
+
+去年只有含浆量的胜决不就是zai种的兽王<img src="https://static.saraba1st.com/image/smiley/face2017/246.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿垃垃圾历  
+##### 6899#       发表于 2022-10-16 18:10
+
+想看一把超哥的卡尔 能满足我么 杨队 
+
+*****
+
+####  izayoi39  
+##### 6900#       发表于 2022-10-16 18:10
+
+这把lgd前期打得没问题的，开始劣那波就是小狗和谜团站位太糟糕了，兽一波突进直接冲小狗的时候找到了在后面的谜团导致那波团崩了开始连锁反应
+
+
+
+*****
+
+####  米德  
+##### 6901#       发表于 2022-10-16 18:10
+
+哇 og也被暂时零葑了
+
+*****
+
+####  Kazepollar  
+##### 6902#       发表于 2022-10-16 18:10
+
+万一lgd二比零rng，那才是真吃屎了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 6903#         楼主| 发表于 2022-10-16 18:10
+
+经典太阳是🐔叫出来的
+
+*****
+
+####  VanArkride  
+##### 6904#       发表于 2022-10-16 18:10
+
+又是谜团小小<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 6905#       发表于 2022-10-16 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天还是cn亡了
+
+今天就是会师决赛了
+
+只能说小组赛就是这样的，让我想起了去年跟19年
+
+*****
+
+####  非建政专用号  
+##### 6906#       发表于 2022-10-16 18:11
+
+赶紧发两个控制裁一下0龙心谜团<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 6907#       发表于 2022-10-16 18:11
+
+看OG今天这么丑陋活该回家
+
+*****
+
+####  方舟失智博士  
+##### 6908#       发表于 2022-10-16 18:12
+
+大团控三号位定胜负的版本 是不是可以请那个男人神了
+
+*****
+
+####  反方向的波  
+##### 6909#       发表于 2022-10-16 18:12
+
+点进去一看og人头0/10
+
+*****
+
+####  izayoi39  
+##### 6910#       发表于 2022-10-16 18:12
+
+og不就是这样吗，只会本能dota，也就bzm可能实在受不了了开始打个节奏中，奈何队友还是没人干活
+
+*****
+
+####  Horusddt  
+##### 6911#       发表于 2022-10-16 18:12
+
+rng后面打lgdogeg，搞不好就是0-6
+
+*****
+
+####  Buttercry  
+##### 6912#       发表于 2022-10-16 18:12
+
+<blockquote>izayoi39 发表于 2022-10-16 18:10
+这把lgd前期打得没问题的，开始劣那波就是小狗和谜团站位太糟糕了，兽一波突进直接冲小狗的时候找到了在后 ...</blockquote>
+那波是眼位致命，站位全看完了
+
+*****
+
+####  莉拉厨  
+##### 6913#       发表于 2022-10-16 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940700&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-16 18:09</a>
+不会让么么鳖混进胜者组了吧，真别恶心我</blockquote>
+如果能保持今天这个状态，剩下四个对手是rng gg boom bb，你觉得打不过吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
