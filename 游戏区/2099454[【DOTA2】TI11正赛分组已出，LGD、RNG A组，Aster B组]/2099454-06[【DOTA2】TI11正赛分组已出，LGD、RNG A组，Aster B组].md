@@ -3726,3 +3726,16 @@ with the 阳，eg你知道你在10/14诅咒了自己吗？</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  Rorgen  
+##### 7962#       发表于 2022-10-17 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57947397&amp;ptid=2099454" target="_blank">battleship64 发表于 2022-10-17 01:10</a>
+41经理？
+
+论坛助手,iPhone</blockquote>
+超人蛙杨舜华是lgd13年到18年的领队，陆浩是cdec领队转lgd经理转rng经理
+
