@@ -2543,3 +2543,24 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 那这选项有啥意义啊，传送到未来之前那个boss也是，吭哧吭哧费半天劲干死了啥也没有
 
+
+
+*****
+
+####  masterkeaton  
+##### 241#       发表于 2022-10-16 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57935185&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-16 12:50</a>
+
+求第五关魔王城里第二个boss打法，打了几次不像能过去的样子。
+
+—— 来自 OPPO PCLM10, Android 12上的 S1 ...</blockquote>
+回去找猎人有剧情，后面打根
+
+*****
+
+####  quanlix  
+##### 242#       发表于 2022-10-16 16:07
+
+另外谁打过南瓜魔女了，30级去被打成狗
+

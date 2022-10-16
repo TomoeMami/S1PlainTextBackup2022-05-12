@@ -247,3 +247,12 @@
 
 我想知道明年的龙娘活动会变成怎样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  snakeling  
+##### 43633#       发表于 2022-10-16 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">歪了七宝大公的表示，开了20np后大公也不是不能作为金时的替代品。。。
+
