@@ -6590,3 +6590,17 @@ kagura_mea.pt
 
 2022-10-16 18:29 上传
 
+
+
+*****
+
+####  草牛  
+##### 12647#       发表于 2022-10-16 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941007&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-10-16 18:23</a>
+
+草牛，我找到一个挺适合你模型的形容词，成品率五分之二，但是良品率很高。
+
+我自己的模型因为动作太少了 ...</blockquote>
+太对了，我用的不少都是这里的
+
