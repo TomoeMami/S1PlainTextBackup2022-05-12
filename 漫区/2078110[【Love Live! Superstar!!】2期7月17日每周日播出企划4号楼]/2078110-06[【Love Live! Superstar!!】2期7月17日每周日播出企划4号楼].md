@@ -9823,3 +9823,19 @@ ag all star打铁好多返图，事务所赶紧多给点声优资源吧
 
 鱼这写真拍的可以
 
+
+
+*****
+
+####  lj205  
+##### 8424#       发表于 2022-10-16 23:24
+
+这次两天约会的主题表现蛮有感觉的，虽然憨憨照还是有，但给人更拉近距离感，顺便整个图片质量也好了不少，期待下个月的写真<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kata魂  
+##### 8425#       发表于 2022-10-16 23:29
+
+男友衬衫<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

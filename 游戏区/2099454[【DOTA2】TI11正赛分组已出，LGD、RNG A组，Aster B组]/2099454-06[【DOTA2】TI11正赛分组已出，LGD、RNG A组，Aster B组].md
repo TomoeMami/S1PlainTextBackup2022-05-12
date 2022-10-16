@@ -3451,3 +3451,95 @@ with the 阳，eg你知道你在10/14诅咒了自己吗？<img src="https://stat
 
 阳了还瞒报，真是不积德呀
 
+
+
+*****
+
+####  食粪者  
+##### 7932#       发表于 2022-10-16 23:22
+
+希望潘婕和a畜以及集美们全体4000+
+
+*****
+
+####  百世诸侯  
+##### 7933#       发表于 2022-10-16 23:24
+
+退役神/移民神此时此刻立马公布自己有阳性症状，就能一转被青蒜的劣势了
+
+*****
+
+####  UnhappyTails  
+##### 7934#       发表于 2022-10-16 23:24
+
+🙋‍♂️爷就是只看rng和茶，除了场间没看过一把lgd
+
+*****
+
+####  情商  
+##### 7935#         楼主| 发表于 2022-10-16 23:25
+
+小骷髅加强了还上不了cw，还得是把天地迷宫的巨型骷髅天赋拿出来啊
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  battleship64  
+##### 7936#       发表于 2022-10-16 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946205&amp;ptid=2099454" target="_blank">屠夫 发表于 2022-10-16 23:18</a>
+with the 阳，eg你知道你在10/14诅咒了自己吗？</blockquote>
+应该是goat吧，吹的有点狠
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  battleship64  
+##### 7937#       发表于 2022-10-16 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946212&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-16 23:19</a>
+龙骑都没人选了吗，这版本应该还能上场啊</blockquote>
+哪吧选了哈斯卡啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nowaki  
+##### 7938#       发表于 2022-10-16 23:30
+
+<img src="https://img.saraba1st.com/forum/202210/16/232946renbmeokoyngokgh.png" referrerpolicy="no-referrer">
+
+<strong>42FDB096-A58A-47F2-86F6-0348C514F08B.png</strong> (391.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 23:29 上传
+
+无妄之灾
+
+*****
+
+####  希望之花  
+##### 7939#       发表于 2022-10-16 23:30
+
+<blockquote>百世诸侯 发表于 2022-10-16 23:19
+龙骑都没人选了吗，这版本应该还能上场啊</blockquote>
+昨天有一场选了，龙之血统在兽面前跟纸一样当抹布在随便踩
+
+*****
+
+####  nerugigannte  
+##### 7940#       发表于 2022-10-16 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">百事诸侯又在说黑话了
+
+*****
+
+####  Litccc  
+##### 7941#       发表于 2022-10-16 23:31
+
+集美已经在暗示rng举报了，因为lgd打rng和其他两个队处罚不一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

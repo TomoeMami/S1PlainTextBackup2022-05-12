@@ -2018,3 +2018,17 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 
 2022-10-16 22:17 上传
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 3153#       发表于 2022-10-16 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932479&amp;ptid=2069884" target="_blank">爱吃冻鳗的猫 发表于 2022-10-16 09:10</a>
+
+也能想到的只有大卫赛博精神病发作把小伙伴杀了</blockquote>
+可能最后出现的不是重锤，是公司V和杰克
+
+要偷的东西不是重力骨架，是白狼闺女
+

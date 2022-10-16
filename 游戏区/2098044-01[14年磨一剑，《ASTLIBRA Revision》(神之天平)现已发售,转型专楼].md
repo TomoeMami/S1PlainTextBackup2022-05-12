@@ -3008,3 +3008,80 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 问题是你这个副武器触发和升龙冲突啊
 
+
+
+*****
+
+####  元气海牛  
+##### 284#       发表于 2022-10-16 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946210&amp;ptid=2098044" target="_blank">casle 发表于 2022-10-16 23:19</a>
+
+能救
+
+进城堡的时候别带小女孩，等和老盖乌会合了准备去打魔王之前回去跟小女孩对话 ...</blockquote>
+感谢，可惜没预留存档，只有等下周目了，话说这游戏感觉流程巨长，不知道通关后还有没有二周目的干劲
+
+*****
+
+####  A1LI  
+##### 285#       发表于 2022-10-16 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946215&amp;ptid=2098044" target="_blank">白軍浪 发表于 2022-10-16 23:19</a>
+
+摸了吸血鬼猎人的头骨觉醒副武器太草了
+
+问题是你这个副武器触发和升龙冲突啊
+
+ ...</blockquote>
+我猜是给法系流派用的。
+
+*****
+
+####  A1LI  
+##### 286#       发表于 2022-10-16 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946210&amp;ptid=2098044" target="_blank">casle 发表于 2022-10-16 23:19</a>
+
+能救
+
+进城堡的时候别带小女孩，等和老盖乌会合了准备去打魔王之前回去跟小女孩对话 ...</blockquote>
+原来要那么靠后才回去跟小女孩对话，我一开始没带小女孩，后面直接和红毛打boss了，幸亏多存了个存档，不然后悔死。
+
+*****
+
+####  A1LI  
+##### 287#       发表于 2022-10-16 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946254&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-16 23:22</a>
+
+感谢，可惜没预留存档，只有等下周目了，话说这游戏感觉流程巨长，不知道通关后还有没有二周目的干劲 ...</blockquote>
+这游戏流程一点都不长，时间全用来刷武器技能上了，这点比较恶心。
+
+*****
+
+####  jy000129  
+##### 288#       发表于 2022-10-16 23:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">吊，第六关的解谜太阴间了
+
+*****
+
+####  白軍浪  
+##### 289#       发表于 2022-10-16 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946255&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-16 23:22</a>
+
+我猜是给法系流派用的。</blockquote>
+后期钱多可以用火药子弹倾泻火力吧？
+
+*****
+
+####  元气海牛  
+##### 290#       发表于 2022-10-16 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946272&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-16 23:23</a>
+
+这游戏流程一点都不长，时间全用来刷武器技能上了，这点比较恶心。</blockquote>
+是的，刷着刷着游戏时间就20多个小时了
+

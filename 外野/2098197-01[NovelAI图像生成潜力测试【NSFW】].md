@@ -3857,3 +3857,15 @@ https://blog.novelai.net/novelai-improvements-on-stable-diffusion-e10d38db82ac
 能具体说下是哪两个ckpt混合吗，谢谢！</blockquote>
 原版sd+novelai的latest，0.75+0.25最逼真，但是0.65/0.5最好抽卡
 
+
+
+*****
+
+####  Issue  
+##### 300#       发表于 2022-10-16 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57926759&amp;ptid=2098197" target="_blank">BT有理 发表于 2022-10-15 21:33</a>
+
+问楼主一句，逼真吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">：<blockquote>画b成功率为零，不是0.00001，而是0，〇，zero。</blockquote>
+
