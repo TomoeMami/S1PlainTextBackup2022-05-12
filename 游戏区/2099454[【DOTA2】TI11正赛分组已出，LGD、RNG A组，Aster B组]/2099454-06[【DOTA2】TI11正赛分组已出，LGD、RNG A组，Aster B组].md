@@ -3702,3 +3702,27 @@ with the 阳，eg你知道你在10/14诅咒了自己吗？</blockquote>
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Rorgen  
+##### 7960#       发表于 2022-10-17 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57947134&amp;ptid=2099454" target="_blank">a1370303 发表于 2022-10-17 00:38</a>
+有个问题，潘飞是ti8真视界里2:1领先后让超哥要是下把赢了记得把衣服脱了赞助商露出来的那个人吗？
+
+——  ...</blockquote>
+那个是冠超的homie超人蛙，前lgd现rng领队
+
+*****
+
+####  battleship64  
+##### 7961#       发表于 2022-10-17 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57947381&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-17 01:08</a>
+那个是冠超的homie超人蛙，前lgd现rng领队</blockquote>
+41经理？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -2072,3 +2072,15 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 3157#       发表于 2022-10-17 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57947092&amp;ptid=2069884" target="_blank">tand177 发表于 2022-10-17 00:34</a>
+
+抛开剧本内容的重要性不谈，讲故事的节奏编排第一集和第四集并列全剧最佳，这两集基本全是文戏，但铺垫的部 ...</blockquote>
+第四集基本上是照着AMC电视剧的拍法拍的，开头虽然不知道一屏幕水珠是尿但大卫的表情已经威力巨大了
+
