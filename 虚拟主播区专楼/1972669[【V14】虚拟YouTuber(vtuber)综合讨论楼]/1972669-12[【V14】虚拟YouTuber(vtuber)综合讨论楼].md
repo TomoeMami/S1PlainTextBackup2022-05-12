@@ -11877,3 +11877,23 @@ https://youtu.be/e_Q_zbpBzwQ
 镭射的感觉真棒啊</blockquote>
 之前已经由于过于用力把嗓子唱坏过一次了，后来就一直维持现在这种声线
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17587#       发表于 2022-10-16 19:32
+
+ 本帖最后由 渡鸦骑士 于 2022-10-16 19:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942045&amp;ptid=1972669" target="_blank">Porsche 发表于 2022-10-16 19:18</a>
+之前已经由于过于用力把嗓子唱坏过一次了，后来就一直维持现在这种声线 ...</blockquote>
+感觉现在这个声线她不太能掌握的住啊<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+六个月新曲啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  天天座理世  
+##### 17588#       发表于 2022-10-16 19:35
+
+hnn这szb工商是真的一点准备都没啊，妹妹和kmt都是上过M有点家底也充值了一单，这hnn没粉尘没充值，这卡组都合不起啊。观众已经在教碎哪个版本前的卡了
+

@@ -2759,3 +2759,30 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lazycat233  
+##### 261#       发表于 2022-10-16 19:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的，想省药把自己浪死了，白打十几分钟
+
+*****
+
+####  黒長直姫  
+##### 262#       发表于 2022-10-16 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941871&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-16 19:09</a>
+第一章洞窟怎么开门啊，我还以为蓝红球对调就行</blockquote>
+要给红球泡泡水
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lazycat233  
+##### 263#       发表于 2022-10-16 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这洞窟的龙要多少级才能打，我简单难度打都不掉血
+
