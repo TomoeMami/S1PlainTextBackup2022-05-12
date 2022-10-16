@@ -8939,3 +8939,14 @@ live啊。不过鲤鱼和リスアニ确实渊源不小，之前北京碰到emi�
 诶？
 笑死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 8341#       发表于 2022-10-16 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57931771&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-16 07:26:29</a></blockquote>鲤鱼又从爱喵那学了点东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
