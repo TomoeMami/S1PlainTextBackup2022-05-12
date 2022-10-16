@@ -8981,3 +8981,14 @@ mikoVS色色miko
 所酱真的很开心，有了新封面
 好，是海外剧话题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 2357#       发表于 2022-10-16 17:45
+
+代打的事上个月就说了，这些35p忘得真快
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
