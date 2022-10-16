@@ -175,3 +175,15 @@
 
 真要生了，金毛态度姑且不论，红毛没死的时候才值得玩味呀<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 5482#       发表于 2022-10-16 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940343&amp;ptid=1502023" target="_blank">liu461 发表于 2022-10-16 17:53</a>
+
+真要生了，金毛态度姑且不论，红毛没死的时候才值得玩味呀</blockquote>
+还要看是男是女了
+
