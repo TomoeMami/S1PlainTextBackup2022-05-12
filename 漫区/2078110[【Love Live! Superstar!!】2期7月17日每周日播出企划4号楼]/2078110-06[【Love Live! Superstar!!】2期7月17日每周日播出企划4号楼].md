@@ -9865,3 +9865,14 @@ ag all star打铁好多返图，事务所赶紧多给点声优资源吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 8428#       发表于 2022-10-17 03:31
+
+LoveLive!Superchat!!
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

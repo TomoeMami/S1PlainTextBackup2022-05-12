@@ -3204,3 +3204,50 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 二章金箱子出了把屠龙，技能是狂暴，三倍伤害，一触即死，太刺激了
 
+
+
+*****
+
+####  pf67  
+##### 301#       发表于 2022-10-17 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57947196&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-17 00:44</a>
+
+下面这个箭头箱子怎么过去？求大佬</blockquote>
+记录点右边的雪是可以下去的
+
+*****
+
+####  pf67  
+##### 302#       发表于 2022-10-17 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943886&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-16 21:01</a>
+
+雪山这个200T有什么说法？戴了那个-9999敏的道具也没触发</blockquote>
+单纯就是身上重量超过200t就能过去了，拿个石像盾基本就OK
+
+*****
+
+####  pf67  
+##### 303#       发表于 2022-10-17 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946272&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-16 23:23</a>
+
+这游戏流程一点都不长，时间全用来刷武器技能上了，这点比较恶心。</blockquote>
+别说，相比其他的ARPG，本作剧情已经算挺多的了
+
+*****
+
+####  sahhhh6x  
+##### 304#       发表于 2022-10-17 02:23
+
+后面的剧情挺微妙的 各种狗血
+
+*****
+
+####  AeonsTorn  
+##### 305#       发表于 2022-10-17 04:50
+
+第五章最后的boss连战打麻了，重打了好几次废了一堆资源，结果打完发现拿的是存档前装的拳刃，我说怎么这么费劲
+感觉自动格挡这个装了有利有弊，经常精力攒半天一不留神自动格挡就耗掉了
+
