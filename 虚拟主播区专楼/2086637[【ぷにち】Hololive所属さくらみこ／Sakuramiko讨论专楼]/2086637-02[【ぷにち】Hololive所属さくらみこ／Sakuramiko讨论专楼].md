@@ -8935,3 +8935,14 @@ mikoVS色色miko
 
 所以miko20年休完回来之后说过以后不会再长期休让粉丝受罪
 
+
+
+*****
+
+####  rs5621  
+##### 2352#       发表于 2022-10-16 14:35
+
+<img src="https://p.sda1.dev/7/4c4800ff8e4e2ccd324ccb2c7b3996f6/CMP_20221016143302055.png" referrerpolicy="no-referrer">负面情绪看来是自己消化掉了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
