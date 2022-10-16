@@ -142,3 +142,15 @@
 
 二是这集被讨论的小皇帝是f4的孙子，正统性没丢
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 5479#       发表于 2022-10-16 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933311&amp;ptid=1502023" target="_blank">hourousha 发表于 2022-10-16 10:31</a>
+
+说起来，原着里是‘老皇帝怕失去安妮罗杰——之前妃子有难产死亡的记录，特意没让她怀孕’来规避了莱因哈特 ...</blockquote>
+反正是事前交代过的不算临用了再度合一个理由
+
