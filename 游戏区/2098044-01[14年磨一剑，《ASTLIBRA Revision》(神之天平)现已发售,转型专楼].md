@@ -3178,3 +3178,20 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 https://w.atwiki.jp/astlibra/</blockquote>
 醉了 沼泽的宝箱只提到一个小徽章 还有一个在哪啊~
 
+
+
+*****
+
+####  jy000129  
+##### 299#       发表于 2022-10-17 00:44
+
+<img src="https://img.saraba1st.com/forum/202210/17/004134l24uu9xqq958vd2h.jpg" referrerpolicy="no-referrer">
+
+<strong>20221017003354_1.jpg</strong> (399.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 00:41 上传
+
+下面这个箭头箱子怎么过去？求大佬
+

@@ -2059,3 +2059,16 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 3156#       发表于 2022-10-17 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945163&amp;ptid=2069884" target="_blank">猫睛石 发表于 2022-10-16 22:13</a>
+我的标准是男主有没有死掉，死了就是BE</blockquote>
+看看op
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
