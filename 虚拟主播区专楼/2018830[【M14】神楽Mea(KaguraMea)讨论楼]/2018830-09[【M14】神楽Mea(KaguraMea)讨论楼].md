@@ -6489,3 +6489,104 @@ kagura_mea.pt
 
 2022-10-16 17:20 上传
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12645#       发表于 2022-10-16 18:23
+
+ 本帖最后由 古战场亡魂 于 2022-10-16 18:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57901114&amp;ptid=2018830" target="_blank">草牛 发表于 2022-10-14 10:04</a>
+
+不是拼的，用的是本地部署的训练功能
+
+想用需要8g显存，默认100000次迭代喂50张图要24小时左右，训练完会生 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/16/182153tj68smin2ixrf26j.png" referrerpolicy="no-referrer">
+
+<strong>02446-3368098884-kaguramea2,(extremely detailed CG unity 8k wallpaper),(((m.png</strong> (47.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 18:21 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/182159uu7udqmy29q9u9yv.png" referrerpolicy="no-referrer">
+
+<strong>02444-3368098882-kaguramea2,(extremely detailed CG unity 8k wallpaper),(((m.png</strong> (43.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 18:21 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/182208fogrg9bvzrgp1lll.png" referrerpolicy="no-referrer">
+
+<strong>02436-3351864692-kaguramea2,(extremely detailed CG unity 8k wallpaper),(((m.png</strong> (57.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 18:22 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/182544q95jagpt9d7qkt09.png" referrerpolicy="no-referrer">
+
+<strong>tmp6vfl5zug.png</strong> (45.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 18:25 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/182544zyyj4du2rb200j02.png" referrerpolicy="no-referrer">
+
+<strong>tmpajyggqxs.png</strong> (78.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 18:25 上传
+
+草牛，我找到一个挺适合你模型的形容词，成品率五分之二，但是良品率很高。
+
+我自己的模型因为动作太少了反而不好用。
+
+正面词汇：(extremely detailed CG unity 8k wallpaper),(((masterpiece))), (((best quality))), ((ultra-detailed)), (best illustration),(best shadow), ((an extremely delicate and beautiful)),dynamic angle,floating,
+
+负面词汇： low-quality,low-quality illustration, low-quality background, lowres, bad anatomy, bad hands, text, error, missing fingers, extra digit, fewer digits, cropped, worst quality, low quality, normal quality, jpeg artifacts, signature, watermark, username, blurry,Missing limbs,three arms, bad feet,text font ui,signature,blurry,text font ui,malformed hands,long neck,limb,Sleeveles,bad anatomy disfigured malformed mutated,(mutated hands and fingers :1.5).(long body :1.3),(mutation ,poorly drawn :1.2), bad anatomy, disfigured, malformed, mutated,multiple breasts,futa,yaoi,three legs
+
+*****
+
+####  草牛  
+##### 12646#       发表于 2022-10-16 18:29
+
+转型炼丹楼是吧
+
+<img src="https://img.saraba1st.com/forum/202210/16/175854hdetpcdkc7lprfcp.png" referrerpolicy="no-referrer">
+
+<strong>00914-4184787319-kaguramea,talking head,{wet hair,floating hair,finely detailed .png</strong> (114.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/175908ix7sw1311jzdt1tg.png" referrerpolicy="no-referrer">
+
+<strong>00919-3224731823-kaguramea,expressionless,{wet hair,floating hair,finely detaile.png</strong> (93.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 17:59 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/181720p3yi53yuyp5tp5ty.png" referrerpolicy="no-referrer">
+
+<strong>00935-643810119-kaguramea,{wet hair,floating hair,finely detailed beautiful face.png</strong> (52.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 18:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/182915jgzxgmddqq9b12yn.png" referrerpolicy="no-referrer">
+
+<strong>00315-1051885254-kaguramea,expressionless,{wet hair,floating hair,finely detaile.png</strong> (58.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 18:29 上传
+

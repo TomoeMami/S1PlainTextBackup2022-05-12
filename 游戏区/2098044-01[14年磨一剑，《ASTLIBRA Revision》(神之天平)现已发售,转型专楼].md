@@ -2681,3 +2681,25 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 玩到第一章boss前有些疑问，这游戏是不是后面要经常刷素材，是不是有类似火把对话这种推进方式和蓝球解谜，以及boss站是不是都刮痧
 
+
+
+*****
+
+####  A1LI  
+##### 254#       发表于 2022-10-16 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940979&amp;ptid=2098044" target="_blank">caius 发表于 2022-10-16 18:21</a>
+
+玩到第一章boss前有些疑问，这游戏是不是后面要经常刷素材，是不是有类似火把对话这种推进方式和蓝球解谜， ...</blockquote>
+没错，素材用来合新武器和防具，新武器和防具不仅数值提升，你还要装备上用一阵子刷出技能来，如果每一关都认真刷了，那boss就是屎。
+
+*****
+
+####  黒長直姫  
+##### 255#       发表于 2022-10-16 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940979&amp;ptid=2098044" target="_blank">caius 发表于 2022-10-16 18:21</a>
+
+玩到第一章boss前有些疑问，这游戏是不是后面要经常刷素材，是不是有类似火把对话这种推进方式和蓝球解谜， ...</blockquote>
+蓝球解谜已经是这个游戏最大的仁慈···
+

@@ -1337,3 +1337,27 @@ B站上的直播录像 犹豫不决的可以先看看
 如果一直不刷好感，人还会跑掉……</blockquote>
 那会呆这儿几个任务的时间阿？
 
+
+
+*****
+
+####  tand177  
+##### 123#       发表于 2022-10-16 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940970&amp;ptid=2067291" target="_blank">diectt 发表于 2022-10-16 18:21</a>
+
+泡寡妇好评，寡妇是我玩这游戏的主要动力</blockquote>
+主要年轻漂亮的都是隔壁型男队里的，自己队伍里就是群大老粗，就寡妇最温润了<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+*****
+
+####  diectt  
+##### 124#       发表于 2022-10-16 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940999&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-16 18:22</a>
+
+那会呆这儿几个任务的时间阿？</blockquote>
+体感是3-4个任务左右
+
+寡妇真的好 人美心善还能干
+
