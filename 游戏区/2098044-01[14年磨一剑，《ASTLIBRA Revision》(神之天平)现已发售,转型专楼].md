@@ -3166,3 +3166,15 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你穿她衣服，她就穿比基尼。五章结束的时候她入队走几步路的时候，你换她衣服她也会变比基尼
 
+
+
+*****
+
+####  黒長直姫  
+##### 298#       发表于 2022-10-17 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946930&amp;ptid=2098044" target="_blank">casle 发表于 2022-10-17 00:20</a>
+
+https://w.atwiki.jp/astlibra/</blockquote>
+醉了 沼泽的宝箱只提到一个小徽章 还有一个在哪啊~
+
