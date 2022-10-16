@@ -1395,3 +1395,17 @@ B站上的直播录像 犹豫不决的可以先看看
 
 不像项羽队里贵族多，颜值差距就很真实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bwsusaga  
+##### 128#         楼主| 发表于 2022-10-16 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942582&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-16 19:52</a>
+
+打到第八章了，台本意外的很不错，有趣的同时又很成熟，没有日式过家家的味道，配音也很到位，就是我好后悔 ...</blockquote>
+每次主角找人尬聊的时候对面各种反应也挺有意思的
+
+“当你想对员工展现领导亲和力，但你话题找的实在太逊了”的感觉
+
