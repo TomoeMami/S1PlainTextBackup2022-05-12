@@ -2143,3 +2143,21 @@ PINE JAM 官推发过一张
 
 长椅的钉子为什么不完全钉进去，之前看另一部diy漫画有提到这个操作，现在看完特别担心钉子勾到衣服<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  BanSkids_  
+##### 176#       发表于 2022-10-16 13:27
+
+布丁女士明明赢麻了，只是傲娇没明白两个人双箭头
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  CharlieZ-  
+##### 177#       发表于 2022-10-16 13:30
+
+这画风看着简单，但看着效果意外的不错，没有便宜动画的质感<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">看的好舒服
+
