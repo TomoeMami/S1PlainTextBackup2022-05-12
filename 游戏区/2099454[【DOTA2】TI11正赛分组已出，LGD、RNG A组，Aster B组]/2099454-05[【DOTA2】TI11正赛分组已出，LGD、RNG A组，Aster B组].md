@@ -1395,3 +1395,182 @@ ts不怕冲脸啊，血克南美北美
 
 喔，别吵了别吵了，焦阳儿玩儿影儿魔儿了
 
+
+
+*****
+
+####  百世诸侯  
+##### 6180#       发表于 2022-10-16 15:02
+
+<img src="https://img.saraba1st.com/forum/202210/16/150221w5wck05p2kpcc15l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (15.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 15:02 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/150231k4r1eq203h1341mm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 15:02 上传
+
+又炸死一个
+
+
+
+*****
+
+####  逃离二次元  
+##### 6181#       发表于 2022-10-16 15:03
+
+下一个就是妮
+
+*****
+
+####  nxmonitor  
+##### 6182#       发表于 2022-10-16 15:03
+
+这entity的蝙蝠是顶着全能选出来的？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 6183#       发表于 2022-10-16 15:03
+
+下一个就是妮
+
+*****
+
+####  Litccc  
+##### 6184#       发表于 2022-10-16 15:03
+
+<img src="https://p.sda1.dev/7/88c06c69e5512e204e91038e9a22d072/CMP_20221016150314431.png" referrerpolicy="no-referrer">
+
+*****
+
+####  啊哈  
+##### 6185#       发表于 2022-10-16 15:03
+
+20年xxs的3号位沉默嗦的查理斯直接gg
+
+*****
+
+####  情商  
+##### 6186#         楼主| 发表于 2022-10-16 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57936988&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-16 15:02</a>
+又炸死一个</blockquote>
+这哥们被炸死不稀奇，毕竟能来你楼找人p自己手机安装了 防诈骗app的人
+
+*****
+
+####  Keynes  
+##### 6187#       发表于 2022-10-16 15:03
+
+nga….
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 6188#       发表于 2022-10-16 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57936997&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-16 15:03</a></blockquote>
+哈哈哈哈哈哈，小蓝鸟那个女孩子洗脸动图笑死
+
+*****
+
+####  脚本水平  
+##### 6189#       发表于 2022-10-16 15:04
+
+你们圣剑sf solo吧，哪边的圣剑有克敌机先就哪边赢
+
+*****
+
+####  暂无此人N先生  
+##### 6190#       发表于 2022-10-16 15:05
+
+新og就是lgd杏奴，几乎就没赢过<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 6191#       发表于 2022-10-16 15:05
+
+司了马了，gojira牛头练出来了？
+
+*****
+
+####  c88711611  
+##### 6192#       发表于 2022-10-16 15:07
+
+今天支付宝红包只能关闭了啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 6193#       发表于 2022-10-16 15:07
+
+鹏子在干嘛？
+
+*****
+
+####  TI三冠王AME  
+##### 6194#       发表于 2022-10-16 15:07
+
+鹏子又装自己最会压制的了
+
+*****
+
+####  反方向的波  
+##### 6195#       发表于 2022-10-16 15:08
+
+雪碧又进入相信对面3号位的状态了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 6196#         楼主| 发表于 2022-10-16 15:08
+
+这蜘蛛玩出老十一的味道了
+
+*****
+
+####  外挂全家脚气  
+##### 6197#       发表于 2022-10-16 15:08
+
+有点意思，今天CN队伍好像都在打提速推进阵容
+
+*****
+
+####  六娃  
+##### 6198#       发表于 2022-10-16 15:09
+
+鹏子完全没搞懂德鲁伊这英雄该怎么玩，建议提两条中华去敲马桶房间请教一下
+
+*****
+
+####  北欧王座  
+##### 6199#       发表于 2022-10-16 15:11
+
+lgd赢了尼楼应该内斗到死了，最后以有个人自爆聊龙骑而结束。
+
+*****
+
+####  情商  
+##### 6200#         楼主| 发表于 2022-10-16 15:12
+
+这话属实，lgd夺冠你楼马上全部清算我了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  二宮飛鳥酱  
+##### 6201#       发表于 2022-10-16 15:13
+
+雪碧要输南美队第一把了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

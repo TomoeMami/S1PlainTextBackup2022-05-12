@@ -2446,3 +2446,32 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 —— 来自 OPPO PCLM10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
 草，弓箭也行，神经病吧，我他妈都能站在机关上了，不能用手嘛，非要拿剑射，简直吃饱了撑的，什么**谜题这是。
 
+
+
+*****
+
+####  AeonsTorn  
+##### 231#       发表于 2022-10-16 15:04
+
+怎么回旧地图啊？第一章的图知道可以出城过去，之后几章的图怎么回去？
+
+*****
+
+####  五块  
+##### 232#       发表于 2022-10-16 15:08
+
+<blockquote>AeonsTorn 发表于 2022-10-16 15:04
+怎么回旧地图啊？第一章的图知道可以出城过去，之后几章的图怎么回去？</blockquote>
+家里右边的门。
+
+*****
+
+####  pf67  
+##### 233#       发表于 2022-10-16 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57936843&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-16 14:51</a>
+草，弓箭也行，神经病吧，我他妈都能站在机关上了，不能用手嘛，非要拿剑射，简直吃饱了撑的，什么**谜题 ...</blockquote>
+大概是正常二段跳应该跳不上去，所以实际上这解谜只做了远程的
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
