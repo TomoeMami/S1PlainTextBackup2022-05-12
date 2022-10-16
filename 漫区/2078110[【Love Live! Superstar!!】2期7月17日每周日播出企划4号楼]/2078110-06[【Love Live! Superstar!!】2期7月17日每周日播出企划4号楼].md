@@ -9485,3 +9485,99 @@ QQ截图20221016200907.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刚刚在看孤独摇滚动画，小孤独和虹夏让我幻视s1ep1的可香了。阴角（？）主角是可以写的很有意思的，为什么香音会从一开始“笨蛋～要是能唱出来早就唱了”这样让人眼前一亮的人设变成现在的香圣啊（悲）
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8386#       发表于 2022-10-16 20:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这app我猜多半就是个套皮浏览器，里面放放视频搞搞付费项目
+
+*****
+
+####  Enakina  
+##### 8387#       发表于 2022-10-16 20:35
+
+虹团也没尝到什么甜头啊，说实话音乐剧也好，管人也罢，开创新领域我是挺支持的，但我现在对这个企划是毫无信任了，星团都运营成什么鬼样子了
+
+*****
+
+####  谁的无聊中  
+##### 8388#       发表于 2022-10-16 20:35
+
+制服不错啊，很好看的。
+
+*****
+
+####  Kfly  
+##### 8389#       发表于 2022-10-16 20:36
+
+ 本帖最后由 Kfly 于 2022-10-16 20:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943394&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-10-16 20:33</a>
+
+这app我猜多半就是个套皮浏览器，里面放放视频搞搞付费项目</blockquote>
+官网好像说是app里有卡牌和live<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 8390#       发表于 2022-10-16 20:36
+
+这宣传图，人数不是9啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8391#       发表于 2022-10-16 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，早晚加4人
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8392#       发表于 2022-10-16 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等下怎么是六人，c位都不好搞
+
+*****
+
+####  cat1230  
+##### 8393#       发表于 2022-10-16 20:37
+
+开个新团给套皮？那还不如把老人拉出来加上现役队员统统套皮，有空就直播这样不更好
+
+*****
+
+####  cybernetics31  
+##### 8394#       发表于 2022-10-16 20:37
+
+看这个pv，，，，感觉人都齐了吧（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 8395#       发表于 2022-10-16 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这校服有种隔壁土鸡莉莉的感觉
+
+*****
+
+####  dozen  
+##### 8396#       发表于 2022-10-16 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943432&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-16 20:36</a>
+这宣传图，人数不是9啊</blockquote>
+一星期一人一天，最后一天全员，为了这样安排吧
+
+*****
+
+####  Kfly  
+##### 8397#       发表于 2022-10-16 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943487&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-10-16 20:37</a>
+
+看这个pv，，，，感觉人都齐了吧（招的是后面加的3人吧喂（</blockquote>
+招募的是app的名字<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[【中字·续报】虚拟学园偶像宣传视频（Virtual School Idol Teaser Movie）](https://www.bilibili.com/video/BV1dg411b7nn/)
+

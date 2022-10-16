@@ -6604,3 +6604,44 @@ kagura_mea.pt
 我自己的模型因为动作太少了 ...</blockquote>
 太对了，我用的不少都是这里的
 
+
+
+*****
+
+####  草牛  
+##### 12648#       发表于 2022-10-16 20:39
+
+再发点ai图，首先要感谢麻将妹整理的promt，后面忘了
+
+<img src="https://img.saraba1st.com/forum/202210/16/203857g908uvfua3ffvvq9.png" referrerpolicy="no-referrer">
+
+<strong>00323-2804625051-(kaguramea),(blue right eyes and Golden left eyes),(smallest br.png</strong> (55.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 20:38 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/203933qhhwnpe43jqphwwp.png" referrerpolicy="no-referrer">
+
+<strong>00003-3715532702-kaguramea,heart-shaped pupils,(ahegao),(ultra thin bikini), (pu.png</strong> (42.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/203933onoo11vc01dbo9ne.png" referrerpolicy="no-referrer">
+
+<strong>00045-642610473-(kaguramea),(blue right eyes and Golden left eyes),(smallest bre.png</strong> (59.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/203933oezbh6114icaeac6.png" referrerpolicy="no-referrer">
+
+<strong>00046-642610474-(kaguramea),(blue right eyes and Golden left eyes),(smallest bre.png</strong> (56.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 20:39 上传
+

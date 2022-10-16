@@ -2827,3 +2827,27 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lazycat233  
+##### 268#       发表于 2022-10-16 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943329&amp;ptid=2098044" target="_blank">dookiee 发表于 2022-10-16 20:30</a>
+
+只有性能强化的装备才有绿水晶吧，有一些是给个技能
+
+—— 来自 Xiaomi 22081212C, Android 12上的 S1Nex ...</blockquote>
+那有些武器右上角那个球是什么
+
+*****
+
+####  A1LI  
+##### 269#       发表于 2022-10-16 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943488&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-16 20:37</a>
+
+那有些武器右上角那个球是什么</blockquote>
+属性
+

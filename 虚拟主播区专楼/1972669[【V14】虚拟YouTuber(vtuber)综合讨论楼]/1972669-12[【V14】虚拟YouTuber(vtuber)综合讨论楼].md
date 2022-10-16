@@ -11897,3 +11897,12 @@ https://youtu.be/e_Q_zbpBzwQ
 
 hnn这szb工商是真的一点准备都没啊，妹妹和kmt都是上过M有点家底也充值了一单，这hnn没粉尘没充值，这卡组都合不起啊。观众已经在教碎哪个版本前的卡了
 
+
+
+*****
+
+####  rzrbtk  
+##### 17589#       发表于 2022-10-16 20:30
+
+郡队十五战全灭<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，真实娱乐赛了
+
