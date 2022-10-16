@@ -5746,3 +5746,14 @@ gpd虽然营销low但是也是国内最早做win掌机的厂家吧，我当年�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  bypass  
+##### 463#         楼主| 发表于 2022-10-16 08:02
+
+[https://www.bilibili.com/video/BV14e4y1v7sy](https://www.bilibili.com/video/BV14e4y1v7sy)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> Aokzoe 真的是每天都会有人出新的吐槽视频
+
