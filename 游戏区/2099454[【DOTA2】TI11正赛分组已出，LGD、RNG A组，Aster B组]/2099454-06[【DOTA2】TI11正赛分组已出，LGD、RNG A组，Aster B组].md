@@ -3868,3 +3868,14 @@ image.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">额，加40权限是为了防止水军入侵吗
 
+
+
+*****
+
+####  小19  
+##### 7976#       发表于 2022-10-17 06:35
+
+<blockquote>帕林马哲理 发表于 2022-10-17 06:19
+潘飞不是代ruru坐过牢么，这种刑满释放人员也能随便出国感染别人啊。 ...</blockquote>
+认错人了 潘飞不是ruru弟弟 没有亲戚关系。 虽然都信潘。 那个叫潘义好像。
+
