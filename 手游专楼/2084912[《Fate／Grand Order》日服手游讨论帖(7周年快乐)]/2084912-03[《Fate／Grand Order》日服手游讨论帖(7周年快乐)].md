@@ -1493,3 +1493,17 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 我就说为啥强化界面有五个道具栏但是跳级强化一直不实装...版权恶霸真厉害啊...
 
+
+
+*****
+
+####  alucardcz  
+##### 3128#       发表于 2022-10-16 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941059&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-16 18:26</a>
+
+转自B站：
+
+今天举行的マチ★アソビFGO舞台活动中，赤羽根向开发人员提出最想要的功能是一键技能强化，但是 ...</blockquote>
+都是借口  说白了还不是不想动？
+
