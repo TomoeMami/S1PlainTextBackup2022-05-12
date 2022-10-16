@@ -1295,3 +1295,45 @@ B站上的直播录像 犹豫不决的可以先看看
 怎么招募访客阿？送礼物刷好感度么？</blockquote>
 如果一直不刷好感，人还会跑掉……
 
+
+
+*****
+
+####  diectt  
+##### 119#       发表于 2022-10-16 18:13
+
+ 本帖最后由 diectt 于 2022-10-16 18:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940644&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-16 18:06</a>
+
+如果一直不刷好感，人还会跑掉……</blockquote>
+然后后面还会回来可以继续招<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我已经漏过人了
+
+*****
+
+####  tand177  
+##### 120#       发表于 2022-10-16 18:13
+
+这么麻烦，那我哪还有多的领导力去泡寡妇阿<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  diectt  
+##### 121#       发表于 2022-10-16 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940801&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-16 18:13</a>
+
+这么麻烦，那我哪还有多的领导力去泡寡妇阿</blockquote>
+泡寡妇好评，寡妇是我玩这游戏的主要动力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tand177  
+##### 122#       发表于 2022-10-16 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940644&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-16 18:06</a>
+
+如果一直不刷好感，人还会跑掉……</blockquote>
+那会呆这儿几个任务的时间阿？
+
