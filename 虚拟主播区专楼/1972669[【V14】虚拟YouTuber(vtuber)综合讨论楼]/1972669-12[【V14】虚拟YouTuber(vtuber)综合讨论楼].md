@@ -11839,3 +11839,28 @@ niru、cheeky什么小废物
 
 训练赛nrk替补一直用的希尔，正赛叶师上用密客有点搞了
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17583#       发表于 2022-10-16 19:01
+
+喷喷大赛这……开场没到10万<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Porsche  
+##### 17584#       发表于 2022-10-16 19:06
+
+星乃めあ四周年live 全程无料<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+https://youtu.be/e_Q_zbpBzwQ
+
+*****
+
+####  渡鸦骑士  
+##### 17585#       发表于 2022-10-16 19:08
+
+感觉歌差点感觉。
+是我的问题嘛？
+

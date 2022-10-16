@@ -2720,3 +2720,42 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 第四关第一个扭蛋在哪出的？好像漏掉了
 
+
+
+*****
+
+####  黒長直姫  
+##### 257#       发表于 2022-10-16 19:06
+
+第七章旅馆前倒数第二面被台阶包围的箱子怎么拿呀
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lazycat233  
+##### 258#       发表于 2022-10-16 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一章洞窟怎么开门啊，我还以为蓝红球对调就行
+
+*****
+
+####  jy000129  
+##### 259#       发表于 2022-10-16 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941871&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-16 19:09</a>
+
+第一章洞窟怎么开门啊，我还以为蓝红球对调就行</blockquote>
+你把红球带回村试试<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pf67  
+##### 260#       发表于 2022-10-16 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937574&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-16 15:43</a>
+第六章去扭蛋，四个徽章</blockquote>
+五章就能拿到了
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
