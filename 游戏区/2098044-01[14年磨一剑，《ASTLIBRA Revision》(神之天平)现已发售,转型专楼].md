@@ -2613,3 +2613,16 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 木棍还是早点练满 后期茫茫多的武器护甲盾牌要练熟练度
 
+
+
+*****
+
+####  黒長直姫  
+##### 248#       发表于 2022-10-16 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57938888&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-16 16:40</a>
+木棍还是早点练满 后期茫茫多的武器护甲盾牌要练熟练度</blockquote>
+我木棍熟练完全不涨吖 是特别难吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
