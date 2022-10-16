@@ -8254,3 +8254,12 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 有的射击机武装之间明显有取消但是没做取消特效 ...</blockquote>
 试试百式，那才是真的臭，难切而且切成了也意义不明。霰弹和放烟花一样…
 
+
+
+*****
+
+####  Ky·Kiske  
+##### 785#       发表于 2022-10-16 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">被SD三兄弟玩成屎了，这关混战是不是不多人没法打，三个初生血又多攻击力又变态
+

@@ -7964,3 +7964,226 @@ monet这又入场了，怎么都感觉好几次了，这次的茶真的烫嘴
 
 major冠亚军菜的没眼看，dpc王者eg乱干，看来dpc是比major有用啊
 
+
+
+*****
+
+####  nowaki  
+##### 5464#       发表于 2022-10-16 11:51
+
+什么队有自信打谜团玛西啊，我是看不懂雪碧的
+
+*****
+
+####  逃离二次元  
+##### 5465#       发表于 2022-10-16 11:51
+
+克神要把石头人2:0咯<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白笛之音  
+##### 5466#       发表于 2022-10-16 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934344&amp;ptid=2099454" target="_blank">acg_s1 发表于 2022-10-16 11:50</a>
+
+monet这又入场了，怎么都感觉好几次了，这次的茶真的烫嘴</blockquote>
+这次人均入场，哪个队都是。只能理解为大家都东南亚天梯大多了
+
+*****
+
+####  Asukalangley33  
+##### 5467#       发表于 2022-10-16 11:52
+
+海马斯顶头了啊
+
+silent眼角有泪
+
+*****
+
+####  TIZI  
+##### 5468#       发表于 2022-10-16 11:52
+
+克神怎么开始玩大屁股这种笨重玩意了啊
+bc不会bp可以不bp，这么打下去克神灵性都打没了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  六娃  
+##### 5469#       发表于 2022-10-16 11:52
+
+不是，焦阳18 19年要是有这队友，那可是对线noone不落下风的曾焦阳
+
+*****
+
+####  情商  
+##### 5470#         楼主| 发表于 2022-10-16 11:53
+
+不落个鸟毛，直接被打的上轮椅了
+
+*****
+
+####  UnhappyTails  
+##### 5471#       发表于 2022-10-16 11:54
+
+这都能不落。。。
+
+*****
+
+####  梅德韦杰夫  
+##### 5472#       发表于 2022-10-16 11:54
+
+LGD最强的时候就是中国DOTA最绝望的时候
+
+这句话也可以反过来说
+
+*****
+
+####  lyjssj  
+##### 5473#       发表于 2022-10-16 11:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个时候又得说下ssr球神了，算是茶队刮卡摸到的最好的卡了吧
+
+*****
+
+####  Kazepollar  
+##### 5474#       发表于 2022-10-16 11:54
+
+真不落，那个时候骄阳一个人打一整个队一半输出都很多次
+
+*****
+
+####  snarc1  
+##### 5475#       发表于 2022-10-16 11:55
+
+牙脱落神也送了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  六娃  
+##### 5476#       发表于 2022-10-16 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934382&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-16 11:53</a>
+不落个鸟毛，直接被打的上轮椅了</blockquote>
+有问你有什么影响，major赢没赢吧
+
+*****
+
+####  nowaki  
+##### 5477#       发表于 2022-10-16 11:55
+
+这vs不换大哥的吗
+
+*****
+
+####  银翼的维罗西  
+##### 5478#       发表于 2022-10-16 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934335&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-16 11:49</a>
+
+中单前十出来评价一下这次TI版本骄阳的状态</blockquote>
+4000分中单看了三把茶感觉曾焦阳不是特别兴奋，但是我感觉他打的很自信很放松，刚才肉山那波看见两酱油跳上去直接烫死感觉还是比较浪的，其实影魔AA能秒他的，但他就自信自己杀完还能跑，也有可能是觉得被秒也无所谓
+
+*****
+
+####  qty  
+##### 5479#       发表于 2022-10-16 11:55
+
+雪碧这啥情况啊？
+
+*****
+
+####  Keynes  
+##### 5480#       发表于 2022-10-16 11:55
+
+皮球这一年的表现把xg.nowaki爆了好吧
+
+*****
+
+####  夏溪澪mio  
+##### 5481#       发表于 2022-10-16 11:56
+
+卧槽小黑狂风可以吹飞机导弹
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 5482#       发表于 2022-10-16 11:56
+
+玛西谜团真的能放出来吗
+
+*****
+
+####  为了mf注册  
+##### 5483#       发表于 2022-10-16 11:56
+
+感觉这把雪碧又要被干了啊
+
+*****
+
+####  sodah  
+##### 5484#       发表于 2022-10-16 11:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那不是酱油，是timado的蠢逼屠夫。
+
+*****
+
+####  nightmare902015  
+##### 5485#       发表于 2022-10-16 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934419&amp;ptid=2099454" target="_blank">夏溪澪mio 发表于 2022-10-16 11:56</a>
+卧槽小黑狂风可以吹飞机导弹
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+是大推推推得吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 5486#       发表于 2022-10-16 11:58
+
+玛西bkb了，我宣布雪碧已经输了
+
+*****
+
+####  izayoi39  
+##### 5487#       发表于 2022-10-16 11:59
+
+谜团这玩意儿这版本主要是对线和团战都太强了，bp放出来等于说你要用2手来针对这个谜团
+
+*****
+
+####  walfeds  
+##### 5488#       发表于 2022-10-16 11:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸭陀螺也搞八音盒何意啊
+
+*****
+
+####  やト  
+##### 5489#       发表于 2022-10-16 12:00
+
+ 八音盒很魔性啊
+
+*****
+
+####  Keynes  
+##### 5490#       发表于 2022-10-16 12:00
+
+还在yatoro偶像是ame，感觉集美的智商真的有点捉急了
+
+
+
+*****
+
+####  UnhappyTails  
+##### 5491#       发表于 2022-10-16 12:00
+
+这下z字要写在纯真神大腿上了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+

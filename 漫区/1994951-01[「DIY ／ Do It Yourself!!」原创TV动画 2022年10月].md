@@ -2085,3 +2085,32 @@ NST放送は明日9:30～
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">好看捏，希望这个世界观不会有黑深残的展开。轻松的感觉真好啊
 
+
+
+*****
+
+####  Piano-Forest  
+##### 172#         楼主| 发表于 2022-10-16 11:55
+
+[https://twitter.com/imoji3/status/1581356750284140545](https://twitter.com/imoji3/status/1581356750284140545)
+
+Do It Yourself!!全部かわいいけど横顔の上唇とてもかわいい
+
+松尾さんのデザインすばらしすぎるかわいい…線も天才すぎる… キャラと背景の色味もかわいい好き
+<img src="https://p.sda1.dev/7/f305cb286b3145c86dc604781191b68b/20221016_115450.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lyz1196  
+##### 173#       发表于 2022-10-16 11:56
+
+<img src="https://img.saraba1st.com/forum/202210/16/115524zklge84v1qmlhln1.jpg" referrerpolicy="no-referrer">
+
+<strong>4508e79bgy1h76zbw4w0cj20ku0rs0v7.jpg</strong> (162.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 11:55 上传
+
+看板还真的做出来了，长椅呢？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

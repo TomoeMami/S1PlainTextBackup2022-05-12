@@ -9003,3 +9003,12 @@ live啊。不过鲤鱼和リスアニ确实渊源不小，之前北京碰到emi�
 真要降某个人的人气，温水煮青蛙肯定比你直接丢核弹更能达到目的，再说这一看就有毛病的剧本快把所有人都炸 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐女士现在还是烫，估计不行
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8346#       发表于 2022-10-16 12:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要降单个角色人气哪有直接掀桌子的
+
