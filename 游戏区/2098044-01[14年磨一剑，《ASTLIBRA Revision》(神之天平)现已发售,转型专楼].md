@@ -2256,3 +2256,39 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 第4章救黑魔女获得的爱情道具是干啥用的……
 
+
+
+*****
+
+####  A1LI  
+##### 214#       发表于 2022-10-16 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934116&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-16 11:31</a>
+
+斗技场第四章第四关怎么打啊,那几口大锅太硬了,是有什么机制吗</blockquote>
+好办，斩龙剑拿到没？练到精通，会给一个技能，三倍伤害但是被敌人打到就即死，但是这关敌人是不会攻击你的。
+
+另外斩龙剑作为双手武器伤害本来就高，如果你之前把大剑的那个技能，就是增加双手武器攻速的那个给刷出来了，装备上，然后敏捷再多点一些，那双手武器攻击速度也不慢，然后平A过去那几个锅就没了。
+
+*****
+
+####  黒長直姫  
+##### 215#       发表于 2022-10-16 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934116&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-16 11:31</a>
+斗技场第四章第四关怎么打啊,那几口大锅太硬了,是有什么机制吗</blockquote>
+上三倍伤害的被动
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  黒長直姫  
+##### 216#       发表于 2022-10-16 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934292&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-16 11:47</a>
+切屏游戏暂停能不能改啊，想播片的时候切群聊啥的</blockquote>
+我切屏直接死进程 醉了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

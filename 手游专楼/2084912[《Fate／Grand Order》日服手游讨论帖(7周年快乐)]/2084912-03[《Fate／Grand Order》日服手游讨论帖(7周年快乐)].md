@@ -1450,3 +1450,15 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  exiaexa  
+##### 3124#       发表于 2022-10-16 12:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927782&amp;ptid=2084912" target="_blank">上坂莲华 发表于 2022-10-15 22:24</a>
+大预言家</blockquote>
+算不上什么预言吧，只能说大家想舔美少女的想法战胜了理性就是这样的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
