@@ -9293,3 +9293,476 @@ axx荣升护国神脸，上船的停不下来
 
 我是boxi我也哭了，把把定点定时刷新在中路，司马东西还是压不住马来人
 
+
+
+*****
+
+####  Horusddt  
+##### 7221#       发表于 2022-10-16 19:11
+
+喜欢给zai让位置是这样的啊
+
+*****
+
+####  4591  
+##### 7222#       发表于 2022-10-16 19:11
+
+ 本帖最后由 4591 于 2022-10-16 19:14 编辑 
+
+水晶这水人,哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枯风瘦雪02  
+##### 7223#       发表于 2022-10-16 19:11
+
+马桶有钱了也终结不了真的是从他领衔液体开始就有的问题了吧……这火枪看着这么肥就是被碾得满地跑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  woyzeck  
+##### 7224#       发表于 2022-10-16 19:12
+
+就这micke外卡打遍天下无敌手，杀油面如同杀猪，在猴爹面前和个超凡一样。
+
+*****
+
+####  血狂毘沙门  
+##### 7225#       发表于 2022-10-16 19:12
+
+虽然都赢了 但是lgd这前期埋坑太严重了 遇到强队怎么搞
+
+*****
+
+####  两三流浪者  
+##### 7226#       发表于 2022-10-16 19:12
+
+集美狂欢咯！世界第一水人！
+
+*****
+
+####  leia_rolando  
+##### 7227#       发表于 2022-10-16 19:12
+
+凌乱了，到底是老干爹杰士邦力第一还是马体实属不行，这xjb 摇都能赢
+
+*****
+
+####  反方向的波  
+##### 7228#       发表于 2022-10-16 19:12
+
+点开楼友发帖记录连管人看得也是A/，能说出这把4阿斗也不奇怪了<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 7229#         楼主| 发表于 2022-10-16 19:12
+
+这水人不是小水晶的吗
+
+*****
+
+####  情商  
+##### 7230#         楼主| 发表于 2022-10-16 19:12
+
+哇，5号位谜团，ppy真是司马了
+
+
+
+*****
+
+####  nightmare902015  
+##### 7231#       发表于 2022-10-16 19:13
+
+只能说版本线优越重要，lgd要填的坑就越大
+
+*****
+
+####  万世创伤伊莫库  
+##### 7232#       发表于 2022-10-16 19:13
+
+这把前面没看，但后面一是量子鞭带了好几波线没被抓，二是NTS的几个定点爆发秒杀，4/5的关键卖自己反打也行，水人有秀的镜头吗？
+
+*****
+
+####  tasuku  
+##### 7233#       发表于 2022-10-16 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941929&amp;ptid=2099454" target="_blank">leia_rolando 发表于 2022-10-16 19:12</a>
+
+凌乱了，到底是老干爹杰士邦力第一还是马体实属不行，这xjb 摇都能赢</blockquote>
+外卡队你还要求什么
+
+*****
+
+####  外挂全家脚气  
+##### 7234#       发表于 2022-10-16 19:13
+
+还是5阿斗好吧，纯粹是液体傻逼了，优势的时候不压制不推进，让阿斗都刷出关键装了，然后关键时刻不买活，被分割击杀，既然不想赢那不就是输咯
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 两三流浪者|-1|撸狗看得懂比赛吗?|
+
+查看全部评分
+
+*****
+
+####  tasuku  
+##### 7235#       发表于 2022-10-16 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941951&amp;ptid=2099454" target="_blank">万世创伤伊莫库 发表于 2022-10-16 19:13</a>
+
+这把前面没看，但后面一是量子鞭带了好几波线没被抓，二是NTS的几个定点爆发秒杀，4/5的关键卖自己反打也行 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">哥哥变态杀戮波高三杀看不到是吧
+
+*****
+
+####  吃货红毛  
+##### 7236#       发表于 2022-10-16 19:14
+
+这BB宰了VP之后来TI被宰得不能自理233 
+
+*****
+
+####  勤练带来力量  
+##### 7237#       发表于 2022-10-16 19:14
+
+集美们直接开始幻想时间了，第一天血崩、对线爆炸，今年一定是wings剧本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 7238#       发表于 2022-10-16 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不求他秀 不畜就行了
+
+*****
+
+####  acacaclove  
+##### 7239#       发表于 2022-10-16 19:14
+
+rng最近是外接大脑了？
+
+比以前聪明多了
+
+*****
+
+####  4591  
+##### 7240#       发表于 2022-10-16 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941934&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-16 19:12</a>
+
+这水人不是小水晶的吗</blockquote>
+看错了,我的,但是还是好好笑
+
+*****
+
+####  HydraCat  
+##### 7241#       发表于 2022-10-16 19:14
+
+怎么有人这么急呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+还查成分证明自己的理论是吧，几岁了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  银翼的维罗西  
+##### 7242#       发表于 2022-10-16 19:14
+
+外卡中单太几把菜了，我记忆中micke就毫无天赋，居然在外卡打的像不动超人，战术地位全队最高，来了正赛原形毕露，难怪把桶哥打玉玉了
+
+*****
+
+####  你可以试试  
+##### 7243#       发表于 2022-10-16 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">让量子bian在上路freefarm也不知道是什么操作
+
+*****
+
+####  迷途lite  
+##### 7244#       发表于 2022-10-16 19:15
+
+a畜不送就是高光镜头了，要求不要太高
+
+*****
+
+####  JoelBirch  
+##### 7245#       发表于 2022-10-16 19:15
+
+这把主要还是液体的问题，明鞭断线都是后面的事儿了，前面上路烂掉之后没转压制，然后就是那波滚滚不买活的盾团，什么弱智
+
+*****
+
+####  莉拉厨  
+##### 7246#       发表于 2022-10-16 19:15
+
+来来来，说到做到，发个小红包，《有点甜》里面的
+￥你炼金我[][][]
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 你可以试试| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  TI三冠王AME  
+##### 7247#       发表于 2022-10-16 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941978&amp;ptid=2099454" target="_blank">HydraCat 发表于 2022-10-16 19:14</a>
+
+怎么有人这么急呢
+
+还查成分证明自己的理论是吧，几岁了啊</blockquote>
+能说出四阿斗的弱智就算了吧，NGA集美都知道拧个绳，你看得懂比赛吗？
+
+*****
+
+####  wyqjlol  
+##### 7248#       发表于 2022-10-16 19:15
+
+艹axx奔着600船去了
+
+*****
+
+####  Keynes  
+##### 7249#       发表于 2022-10-16 19:15
+
+集美开始了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 7250#       发表于 2022-10-16 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941974&amp;ptid=2099454" target="_blank">acacaclove 发表于 2022-10-16 19:14</a>
+
+rng最近是外接大脑了？
+
+比以前聪明多了</blockquote>
+懂不懂门票卡的含金量呀
+
+*****
+
+####  AIDSL  
+##### 7251#       发表于 2022-10-16 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941951&amp;ptid=2099454" target="_blank">万世创伤伊莫库 发表于 2022-10-16 19:13</a>
+
+这把前面没看，但后面一是量子鞭带了好几波线没被抓，二是NTS的几个定点爆发秒杀，4/5的关键卖自己反打也行 ...</blockquote>
+2连爆破手雷
+
+*****
+
+####  非建政专用号  
+##### 7252#       发表于 2022-10-16 19:15
+
+打一就别想着秀好伐，脑子想秀嗯出来的是什么东西大家心里都有数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  帕林马哲理  
+##### 7253#       发表于 2022-10-16 19:15
+
+micke打2实在是缺乏灵性，但第二盘马桶的出装也是稍微有点冒险，太容易被秒了。
+
+*****
+
+####  哈曼的YY  
+##### 7254#       发表于 2022-10-16 19:16
+
+这两天大起大落啊 rng明天能不能狠狠地宰干瘪 其他两个鱼队不指望了
+
+*****
+
+####  zhrs456  
+##### 7255#       发表于 2022-10-16 19:16
+
+拳击手这毒瘤打法贪谜团还好吧 总比拿个CM在那刷BKB恶心队友好 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  迷途lite  
+##### 7256#       发表于 2022-10-16 19:16
+
+axx这上船上了十分钟了我靠
+
+*****
+
+####  阿垃垃圾历  
+##### 7257#       发表于 2022-10-16 19:16
+
+lgd今天两个2-0一下子好起来了啊 
+
+*****
+
+####  HydraCat  
+##### 7258#       发表于 2022-10-16 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941990&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-16 19:15</a>
+能说出四阿斗的弱智就算了吧，NGA集美都知道拧个绳，你看得懂比赛吗？</blockquote>
+是不是必须得在我头上按个集美帽子你才觉得合理啊？调侃一下，能急成这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+别急，老干瘪决赛会送的（前提是能进）
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  你可以试试  
+##### 7259#       发表于 2022-10-16 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">虽然我看过，但我觉得还是用《有点绿》更好，你这样会让管人吃拿到的
+
+*****
+
+####  为了mf注册  
+##### 7260#       发表于 2022-10-16 19:17
+
+玉玉了，看明天rng能不能狠狠地宰畜了，不然集美又要发大水了
+
+
+
+*****
+
+####  fallenwisdom  
+##### 7261#       发表于 2022-10-16 19:18
+
+液体看到老干爹的团战阵容犹豫不是很正常？  想等一个水人白送
+
+*****
+
+####  非建政专用号  
+##### 7262#       发表于 2022-10-16 19:18
+
+boom内战能不能快点阿<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+急着看克神大战ori
+
+*****
+
+####  没钱买手办  
+##### 7263#       发表于 2022-10-16 19:18
+
+擦尼玛到处都在发大水
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 7264#       发表于 2022-10-16 19:18
+
+玉玉了 再见了今天的dota
+
+*****
+
+####  Litccc  
+##### 7265#       发表于 2022-10-16 19:18
+
+一个问题，axx算管人么？
+
+*****
+
+####  奇迹之巅  
+##### 7266#       发表于 2022-10-16 19:19
+
+就赢了一把小组赛李逵集美就开始发水**了？
+生活好如意啊
+
+*****
+
+####  TI三冠王AME  
+##### 7267#       发表于 2022-10-16 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942027&amp;ptid=2099454" target="_blank">HydraCat 发表于 2022-10-16 19:17</a>
+
+是不是必须得在我头上按个集美帽子你才觉得合理啊？调侃一下，能急成这样啊
+
+别急，老干瘪决赛会送 ...</blockquote>
+没说你是集美啊，你是不是除了脑子眼睛还有点问题？说弱智话被人点草了就立马你急了你急了，这种傻逼话术可以在自己的低龄圈子里慢慢玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 7268#       发表于 2022-10-16 19:19
+
+玉玉了 再见了今天的dota
+
+*****
+
+####  银翼的维罗西  
+##### 7269#       发表于 2022-10-16 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942047&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-16 19:18</a>
+
+boom内战能不能快点阿
+
+急着看克神大战ori</blockquote>
+克神打ORI也有看头吗，别被曾焦阳选老鹿不学G羞辱
+
+*****
+
+####  一夜秋风袭锦城  
+##### 7270#       发表于 2022-10-16 19:19
+
+打一就别想着秀好伐，脑子想秀嗯出来的是什么东西大家心里都有数
+
+*****
+
+####  掉头学姐  
+##### 7271#       发表于 2022-10-16 19:19
+
+真傻 币啊，一堆说说a黑，围着lgd的比赛看啊，sg傻狗真是丢人啊
+
+*****
+
+####  米德  
+##### 7272#       发表于 2022-10-16 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就干鳖这前中期 换个脑子清醒点的队直接压制到死了 集美还能发大水的 该说不愧是集美吗
+
+*****
+
+####  nightmare902015  
+##### 7273#       发表于 2022-10-16 19:20
+
+我也觉得，看lgd的比赛老想着这个一怎么不秀，是不行的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  azccc52  
+##### 7274#       发表于 2022-10-16 19:20
+
+玉玉了 再见了今天的dota
+
+*****
+
+####  没钱买手办  
+##### 7275#       发表于 2022-10-16 19:21
+
+他妈的，被集美同学嘲讽了
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

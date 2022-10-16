@@ -11864,3 +11864,16 @@ https://youtu.be/e_Q_zbpBzwQ
 感觉歌差点感觉。
 是我的问题嘛？
 
+
+
+*****
+
+####  Porsche  
+##### 17586#       发表于 2022-10-16 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941855&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-10-16 19:08</a>
+感觉歌差点感觉。
+是我的问题嘛？
+镭射的感觉真棒啊</blockquote>
+之前已经由于过于用力把嗓子唱坏过一次了，后来就一直维持现在这种声线
+
