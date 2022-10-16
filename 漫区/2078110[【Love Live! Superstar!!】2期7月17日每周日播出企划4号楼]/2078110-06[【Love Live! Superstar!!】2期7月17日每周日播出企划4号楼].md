@@ -9696,3 +9696,24 @@ live，视频，杂志，直播，CD售卖、内嵌卡牌游戏，这app内容�
 当然是想着玩点新鲜的呗，目前看不还老一套吗，音乐剧就挺新鲜的</blockquote>
 确实，感觉到了新瓶旧酒的醇厚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  川陀  
+##### 8411#       发表于 2022-10-16 21:50
+
+新开的两个团里面，舞台剧我觉得演完也就没了，看演员的年龄差距也不小，不像是要长期发展的。
+管人这里看描述总感觉要搞毕业制，不知道第一波毕业了会有什么动作。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 8412#       发表于 2022-10-16 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944598&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-16 21:41</a>
+确实，感觉到了新瓶旧酒的醇厚</blockquote>
+他这要是真能玩出点花样我还挺期待的，要还是老模式的话，明明都已经三团了，还非要在加一个干嘛，那我只能觉得可能是真的营收不达标，着急圈钱了
+

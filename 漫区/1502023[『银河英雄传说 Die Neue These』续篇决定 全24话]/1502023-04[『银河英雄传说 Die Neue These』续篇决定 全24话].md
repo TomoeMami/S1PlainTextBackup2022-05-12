@@ -187,3 +187,15 @@
 真要生了，金毛态度姑且不论，红毛没死的时候才值得玩味呀</blockquote>
 还要看是男是女了
 
+
+
+*****
+
+####  机动小蜜蜂  
+##### 5483#       发表于 2022-10-16 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933311&amp;ptid=1502023" target="_blank">hourousha 发表于 2022-10-16 10:31</a>
+
+说起来，原着里是‘老皇帝怕失去安妮罗杰——之前妃子有难产死亡的记录，特意没让她怀孕’来规避了莱因哈特 ...</blockquote>
+所以说嘛，到底就还是爽文主角模板
+
