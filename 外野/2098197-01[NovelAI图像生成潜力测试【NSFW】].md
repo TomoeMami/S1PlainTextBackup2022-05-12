@@ -3800,3 +3800,15 @@ Steps: 28, Sampler: Euler, CFG scale: 12, Seed: 1969404127, Size: 512x512, Model
 —— 来自 Xiaomi 2206122SC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 跟原版模型0.75混合的话，用真人关键字，特别是欧美明星当脸模会有非常逼真的效果，我已经试了，非常射爆<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jiang.gg  
+##### 295#       发表于 2022-10-16 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57909231&amp;ptid=2098197" target="_blank">咲崎樱子 发表于 2022-10-14 19:22</a>
+
+1girl, ahoge, animal ear fluff, animal ears, blonde hair, blue eyes, blush, breasts, cat ears, cat g ...</blockquote>
+出现了猫类才会有的第二对MiMi, 福瑞狂喜
+
