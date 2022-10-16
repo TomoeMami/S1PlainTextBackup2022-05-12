@@ -48,3 +48,27 @@
 
 还是换我来替他俩承受被开盒的风险吧<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vivaynia  
+##### 90#       发表于 2022-10-16 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57903181&amp;ptid=2098027" target="_blank">贝极星 发表于 2022-10-14 12:18</a>
+
+111恭喜中奖，麻烦私信窝联系方式或者地址</blockquote>
+没有私信的权限呢。
+
+
+
+*****
+
+####  vivaynia  
+##### 91#       发表于 2022-10-16 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57903181&amp;ptid=2098027" target="_blank">贝极星 发表于 2022-10-14 12:18</a>
+
+111恭喜中奖，麻烦私信窝联系方式或者地址</blockquote>
+方便的话麻烦加一下QQ1940656321,已经重roll了就当我没说
+

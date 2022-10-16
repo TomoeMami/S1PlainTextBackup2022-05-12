@@ -3826,3 +3826,22 @@ https://blog.novelai.net/novelai-improvements-on-stable-diffusion-e10d38db82ac
 既然被人强行开源了 ...</blockquote>
 谢谢。我也看了下文章。看到了我关心的关于训练时候采用分辨率的解释。看来要为了匹配注释，那么必须把所有的图都改到512*512 以内，不然就会被“掐头去尾”然后因为注释“错误” 造成训练bug。这个版本如果能赶紧出现的话还好，不然这一部操作就是必须了。
 
+
+
+*****
+
+####  violettor  
+##### 297#       发表于 2022-10-16 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57935181&amp;ptid=2098197" target="_blank">cyp909 发表于 2022-10-16 12:50</a>
+ 跟原版模型0.75混合的话，用真人关键字，特别是欧美明星当脸模会有非常逼真的效果，我已经试了，非常射爆 ...</blockquote>
+能具体说下是哪两个ckpt混合吗，谢谢！
+
+*****
+
+####  schneehertz  
+##### 298#       发表于 2022-10-16 14:49
+
+在漫区发了个Sampler和Steps相关测试的贴
+[https://bbs.saraba1st.com/2b/thread-2099958-1-1.html](https://bbs.saraba1st.com/2b/thread-2099958-1-1.html)
+

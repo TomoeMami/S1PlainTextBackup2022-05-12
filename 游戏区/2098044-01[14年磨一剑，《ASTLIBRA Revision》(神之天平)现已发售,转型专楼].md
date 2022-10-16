@@ -2387,3 +2387,62 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  A1LI  
+##### 226#       发表于 2022-10-16 14:42
+
+是出bug了嘛，第4章水下的机关调查没用？被困在一个都是水的房间里，然后左上右上都是开关但是无法动作。
+
+*****
+
+####  pf67  
+##### 227#       发表于 2022-10-16 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57936730&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-16 14:42</a>
+是出bug了嘛，第4章水下的机关调查没用？被困在一个都是水的房间里，然后左上右上都是开关但是无法动作。 ...</blockquote>
+用回旋镖吧
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A1LI| + 2|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  manyin1  
+##### 228#       发表于 2022-10-16 14:45
+
+这游戏真还让人沉迷的，而且难度真不低，我选中等都被打得调难度了，选地狱以上的有得痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startea15  
+##### 229#       发表于 2022-10-16 14:49
+
+这游戏我不满意的地方是装备素材有点难刷很难受😣
+syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找的青梅女主吧还有黑会有好结局吗
+
+*****
+
+####  A1LI  
+##### 230#       发表于 2022-10-16 14:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57936750&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-16 14:43</a>
+
+用回旋镖吧
+
+—— 来自 OPPO PCLM10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+草，弓箭也行，神经病吧，我他妈都能站在机关上了，不能用手嘛，非要拿剑射，简直吃饱了撑的，什么**谜题这是。
+
