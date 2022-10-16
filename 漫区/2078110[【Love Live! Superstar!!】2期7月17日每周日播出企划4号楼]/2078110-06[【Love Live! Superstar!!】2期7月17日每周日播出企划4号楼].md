@@ -8950,3 +8950,15 @@ live啊。不过鲤鱼和リスアニ确实渊源不小，之前北京碰到emi�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ruffian  
+##### 8342#       发表于 2022-10-16 09:06
+
+真要降某个人的人气，温水煮青蛙肯定比你直接丢核弹更能达到目的，再说这一看就有毛病的剧本快把所有人都炸烂完了有什么用啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+行，就算真是唐女士喧宾夺主了，那现在唐女士对香哥哥构不成威胁了，可以赏个甜枣了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

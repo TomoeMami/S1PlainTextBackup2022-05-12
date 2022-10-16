@@ -1937,3 +1937,16 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 
 官网找到原文。
 
+
+
+*****
+
+####  爱吃冻鳗的猫  
+##### 3147#       发表于 2022-10-16 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57923271&amp;ptid=2069884" target="_blank">快递抢不到 发表于 2022-10-15 18:06</a>
+看到有人微博上发的。
+
+今石洋之：『赛博朋克 边缘行者』CDPR原本提案的结局更加离谱 (笑)</blockquote>
+也能想到的只有大卫赛博精神病发作把小伙伴杀了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
