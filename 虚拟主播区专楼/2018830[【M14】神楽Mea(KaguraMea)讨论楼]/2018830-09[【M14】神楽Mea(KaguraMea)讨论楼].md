@@ -6645,3 +6645,51 @@ kagura_mea.pt
 
 2022-10-16 20:39 上传
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12649#       发表于 2022-10-16 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943523&amp;ptid=2018830" target="_blank">草牛 发表于 2022-10-16 20:39</a>
+
+再发点ai图，首先要感谢麻将妹整理的promt，后面忘了
+
+//up</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 草牛| + 2|好评加鹅|
+| ZUOUZU| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  chelomei  
+##### 12650#       发表于 2022-10-16 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943523&amp;ptid=2018830" target="_blank">草牛 发表于 2022-10-16 20:39</a>
+
+再发点ai图，首先要感谢麻将妹整理的promt，后面忘了
+
+//up</blockquote>
+我这边用了自己跑的embedding包,打了r18tag有时候会出现金色的车头灯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  草牛  
+##### 12651#       发表于 2022-10-16 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943763&amp;ptid=2018830" target="_blank">chelomei 发表于 2022-10-16 20:53</a>
+我这边用了自己跑的embedding包,打了r18tag有时候会出现金色的车头灯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在裸体那个字上多打几个括号试试，狠狠的脱掉
+
