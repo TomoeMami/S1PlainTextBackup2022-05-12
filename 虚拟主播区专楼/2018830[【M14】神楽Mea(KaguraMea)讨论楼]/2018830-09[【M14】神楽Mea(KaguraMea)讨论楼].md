@@ -6426,3 +6426,33 @@ chelomei之前的学习模型：
 
 炼丹热情高诶<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chelomei  
+##### 12643#       发表于 2022-10-16 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57931163&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-10-16 04:01</a>
+
+正面词条：best quality,highly detailed,{{{masterpiece}}},ultra-detailed,illustration,solo负面词条：n ...</blockquote>
+恩,之前是随便拉了二十多张图跑的,这次我花了一晚上挑的图,跑了20000步
+
+QQ图片20221016152707.png
+(86.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 15:27 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/152715yjjt2epnpflf2djt.png" referrerpolicy="no-referrer">
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+kagura_mea.pt
+
+2022-10-16 15:24 上传
+点击文件名下载附件
+
+21.92 KB, 下载次数: 0
+
