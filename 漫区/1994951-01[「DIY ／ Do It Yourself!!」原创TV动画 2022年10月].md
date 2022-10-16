@@ -2114,3 +2114,32 @@ Do It Yourself!!全部かわいいけど横顔の上唇とてもかわいい
 
 看板还真的做出来了，长椅呢？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 174#       发表于 2022-10-16 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934420&amp;ptid=1994951" target="_blank">lyz1196 发表于 2022-10-16 11:56</a>
+
+看板还真的做出来了，长椅呢？</blockquote>
+这招牌有好多张
+
+Theme Songs 发售纪念活动上拿的这张应该是 GAMERS 的
+<img src="https://p.sda1.dev/7/b2b203e6f3c56579b721efcb39f7d048/akiba_gema-1580219241755824138-img1.jpg" referrerpolicy="no-referrer">
+
+PINE JAM 官推发过一张
+<img src="https://p.sda1.dev/7/3432831302dc39a56a417e7f0e4f28d1/PINEJAM_info-1577584380003745793-img1.jpg" referrerpolicy="no-referrer">
+
+先行上映会现场做过一张
+<img src="https://p.sda1.dev/7/331754e8bbcdf00e79a17b25165586c9/diy_anime-1580566530546229252-img2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/9c4271f0437c6c756d9eaf7f7bbe4188/diy_anime-1580566530546229252-img3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  细菌爆炸  
+##### 175#       发表于 2022-10-16 13:08
+
+长椅的钉子为什么不完全钉进去，之前看另一部diy漫画有提到这个操作，现在看完特别担心钉子勾到衣服<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
