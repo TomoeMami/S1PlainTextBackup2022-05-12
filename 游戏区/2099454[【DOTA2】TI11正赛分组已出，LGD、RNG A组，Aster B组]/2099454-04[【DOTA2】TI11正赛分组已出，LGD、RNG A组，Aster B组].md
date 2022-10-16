@@ -5402,3 +5402,91 @@ ti9到打比赛，才发现还是全村希望<img src="https://static.saraba1st.
  ti9到打比赛，才发现还是全村希望</blockquote>
 全村希望指的是和vg打完内战后一场外战都没赢的全村希望吗<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  izayoi39  
+##### 5129#       发表于 2022-10-16 09:54
+
+ti9那个更新一出来，我就知道国内队伍没啥希望了，ti前版本一直都是线优转压制的打法，国内队伍都是这套打法为主，lgd倒是因为摆了一年所以更适应ti9的打法，最后还是打4保1体系最强的og夺了冠
+
+*****
+
+####  尖刺外婆  
+##### 5130#       发表于 2022-10-16 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932256&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-16 08:43</a>
+【Ti11小组赛第一日 萧瑟精彩表演top7】 https://www.bilibili.com/video/BV1B44y1f7wz?share_source=copy_ ...</blockquote>
+虚空和ta两把的行为和出装选择意思就是“劳资不想玩了”
+
+
+
+*****
+
+####  情商  
+##### 5131#         楼主| 发表于 2022-10-16 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932375&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-16 08:56</a>
+yatoro的经济输出比更低，giegie不是最菜的</blockquote>
+你不说我都没发现东南亚a畜是最低的
+
+*****
+
+####  北欧王座  
+##### 5132#       发表于 2022-10-16 09:56
+
+再别说了，虽然我没发红包，但是一个红包都没领，四舍五入等于我发包了。
+
+*****
+
+####  北欧王座  
+##### 5133#       发表于 2022-10-16 09:56
+
+yatoro玩你妈影魔熊德感觉就不想赢
+
+*****
+
+####  TI三冠王AME  
+##### 5134#       发表于 2022-10-16 09:58
+
+再别说了，虽然我没发红包，但是一个红包都没领，四舍五入等于我发包了。
+
+*****
+
+####  情商  
+##### 5135#         楼主| 发表于 2022-10-16 09:58
+
+Pgl今天准时开比赛，我就不杀吗了
+
+*****
+
+####  zhliiiii  
+##### 5136#       发表于 2022-10-16 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932809&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-16 09:46</a>
+说到ti4就想起劳资那个时候是ig粉，被让三追四的时候快被恶心死了
+后面wpc复仇还挺爽的 ...</blockquote>
+wpc就是让三追四啊
+
+*****
+
+####  逃离二次元  
+##### 5137#       发表于 2022-10-16 10:00
+
+Pgl今天准时开比赛，我就不杀吗了
+
+*****
+
+####  w2210059  
+##### 5138#       发表于 2022-10-16 10:00
+
+太逗了，打这么丑还怪上家属了，幸好皮套人没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 5139#       发表于 2022-10-16 10:01
+
+开了开了兄弟们，RNG开了
+

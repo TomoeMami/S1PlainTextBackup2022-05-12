@@ -5770,3 +5770,15 @@ https://www.bilibili.com/video/BV14e4y1v7sy
  Aokzoe 真的是每天都会有人出新的吐槽视频 ...</blockquote>
 草 评论里有吐槽修理后寄回来的机器从1T变512G的
 
+
+
+*****
+
+####  紫煜  
+##### 465#       发表于 2022-10-16 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932054&amp;ptid=2086469" target="_blank">Fuero 发表于 2022-10-16 08:14:30</a>
+草 评论里有吐槽修理后寄回来的机器从1T变512G的</blockquote>不知道会不会有512g寄过去32＋2t寄回来的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

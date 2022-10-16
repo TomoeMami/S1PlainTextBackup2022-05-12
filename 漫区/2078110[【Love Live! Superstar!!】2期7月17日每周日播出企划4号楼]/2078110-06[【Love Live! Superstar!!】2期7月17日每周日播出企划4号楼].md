@@ -8979,3 +8979,15 @@ live啊。不过鲤鱼和リスアニ确实渊源不小，之前北京碰到emi�
 
 2022-10-16 09:19 上传
 
+
+
+*****
+
+####  nufawneafg  
+##### 8344#       发表于 2022-10-16 09:53
+
+ 本帖最后由 nufawneafg 于 2022-10-16 09:59 编辑 
+
+要是阴谋论吃得开接受程度这么高，也就不用指望选举了，没用的，不如趁早结束这场哑迷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+属于是企划不PUA观众自我CPU上了
+
