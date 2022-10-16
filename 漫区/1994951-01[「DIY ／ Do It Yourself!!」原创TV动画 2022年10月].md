@@ -2181,3 +2181,13 @@ PINE JAM 官推发过一张
 
 看第一集觉得好慢啊，女主这种同一句对话能重复三个来回的呆逼感太拖节奏了。这集看完，忽然觉得：这熟悉的节奏感，不就是我玩动森吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">锤个篱笆锤错格子，池塘钓个鱼跑得没有鱼转身快，给每个朋友演示带着图坦卡蒙面具跑步摔倒，如此种种……
 
+
+
+*****
+
+####  千恋万花  
+##### 180#       发表于 2022-10-16 16:44
+
+Do It Your Radio!! 第 1 回开始配信，嘉宾是 市ノ瀬加那
+[https://www.onsen.ag/program/diy-anime](https://www.onsen.ag/program/diy-anime)
+
