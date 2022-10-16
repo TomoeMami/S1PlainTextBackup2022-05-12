@@ -6693,3 +6693,27 @@ kagura_mea.pt
 我这边用了自己跑的embedding包,打了r18tag有时候会出现金色的车头灯</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在裸体那个字上多打几个括号试试，狠狠的脱掉
 
+
+
+*****
+
+####  chelomei  
+##### 12652#       发表于 2022-10-16 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943803&amp;ptid=2018830" target="_blank">草牛 发表于 2022-10-16 20:56</a>
+
+在裸体那个字上多打几个括号试试，狠狠的脱掉</blockquote>
+脱掉了,但是是金色的车头灯,类似用了训练包帽檐会变金色那样
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 草牛| + 1|就当是乳贴🤣|
+
+查看全部评分
+
