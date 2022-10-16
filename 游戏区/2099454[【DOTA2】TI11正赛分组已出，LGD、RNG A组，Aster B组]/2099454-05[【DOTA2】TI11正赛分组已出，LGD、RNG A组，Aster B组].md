@@ -11120,3 +11120,282 @@ ob的解说没注意，憋憋和ams的解说突出一个脑内自带一秒延迟
 
 再ban下去k1自动爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  azccc52  
+##### 7441#       发表于 2022-10-16 20:03
+
+别戟把出神了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">看个rng一直搁那解说lgd，真是司马了
+
+*****
+
+####  -SLSL-  
+##### 7442#       发表于 2022-10-16 20:03
+
+别嘎黑，有一边的含冠量高一点
+
+*****
+
+####  恐怖利刃  
+##### 7443#       发表于 2022-10-16 20:03
+
+卧槽这赤红甲这么吊
+
+*****
+
+####  thistimeforlife  
+##### 7444#       发表于 2022-10-16 20:03
+
+这把不得不想看鳖鳖解说了 官方走起<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 7445#       发表于 2022-10-16 20:03
+
+算了别吵了，我发个红包庆祝一下今天俩中国队4：0吧
+
+口令就预祝一下茶茶下面一场比赛2：0获胜
+
+口令为：XX选择了XXX。XX是啥漏油应该都懂
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tengshuo980| + 1|好评加鹅|
+| 反方向的波| + 1|vkun不装了是吧|
+| JoelBirch| + 1|大气大气|
+| a1370303| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  Bernoulli  
+##### 7446#       发表于 2022-10-16 20:03
+
+Aster的德鲁伊也值得ban的吗？
+
+*****
+
+####  fopinecone  
+##### 7447#       发表于 2022-10-16 20:03
+
+放一把打打看， 小电锤别急<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  反方向的波  
+##### 7448#       发表于 2022-10-16 20:05
+
+怎么有个b开挂，20块的红包抢了10块
+
+*****
+
+####  非建政专用号  
+##### 7449#       发表于 2022-10-16 20:05
+
+要是克神的滚滚，茶队auto win了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 7450#       发表于 2022-10-16 20:05
+
+别急，待会就啪一个五手大屁股
+
+*****
+
+####  情商  
+##### 7451#         楼主| 发表于 2022-10-16 20:06
+
+超级vkun专楼
+
+*****
+
+####  tengshuo980  
+##### 7452#       发表于 2022-10-16 20:06
+
+终于抢到了一个，感谢不是狗头人八股文的红包<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  horacio  
+##### 7453#       发表于 2022-10-16 20:06
+
+雪碧又被当猪宰了
+
+*****
+
+####  nxmonitor  
+##### 7454#       发表于 2022-10-16 20:06
+
+明天哪里九个亚军了？TI6的冠军不算了呗，7个亚军……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 7455#       发表于 2022-10-16 20:07
+
+bc来个土猫谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 7456#       发表于 2022-10-16 20:07
+
+ts和tsm先不急，timado和bryle这俩傻批是能整大活的
+
+*****
+
+####  外挂全家脚气  
+##### 7457#       发表于 2022-10-16 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942698&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-16 19:58</a>
+
+看了一下TS的阵容也是一股怪味，还是那个说**D、OG和TS肯定一起练了，然后都练蠢了…… ...</blockquote>
+[TEAM SPIRIT: BOOTCAMP IN MALAYSIA](https://www.youtube.com/watch?v=sFugvpzcFtg)
+
+ET,OG,LGD,RNG打得很好，绝对是跟TS一起练的
+
+<img src="https://img.saraba1st.com/forum/202210/16/200513d8ouq808qfzqqgcu.jpg" referrerpolicy="no-referrer">
+
+<strong>TS.jpg</strong> (269.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 20:05 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 两三流浪者|-1|我看撸狗都是说和tes一起练的啊.|
+
+查看全部评分
+
+*****
+
+####  希望之花  
+##### 7458#       发表于 2022-10-16 20:07
+
+不图不挂素质抢红包
+
+*****
+
+####  nightmare902015  
+##### 7459#       发表于 2022-10-16 20:07
+
+我就去开了听可乐也没抢到火女红包，玉玉。
+
+*****
+
+####  12481632  
+##### 7460#       发表于 2022-10-16 20:08
+
+vkun没抢到红包，玉玉了
+
+*****
+
+####  六娃  
+##### 7461#       发表于 2022-10-16 20:08
+
+能不能把把让谭大卫玩冰女保saberlight啊，今天的拉比克大圣把劳资看吐了
+
+*****
+
+####  zhrs456  
+##### 7462#       发表于 2022-10-16 20:09
+
+超级VKUN专楼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhrs456  
+##### 7463#       发表于 2022-10-16 20:09
+
+土豆土豆
+
+*****
+
+####  HydraCat  
+##### 7464#       发表于 2022-10-16 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942779&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-16 20:02</a>
+“这把ame血C啊，直接一赵云带四阿斗了”
+
+谁脑补了</blockquote>
+这句话就是调侃啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+我怎么可能是那个意思，真把我当暗黑集美了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fopinecone  
+##### 7465#       发表于 2022-10-16 20:09
+
+怎么不是电锤选择了克里斯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  反方向的波  
+##### 7466#       发表于 2022-10-16 20:09
+
+雪碧今天一个2-0都打不出来那好日子到头了，这状态打后面的秘密石头人鳖星还有汉堡猫只有窝克能上去送2分<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 7467#       发表于 2022-10-16 20:10
+
+啊？前面看TS均势挺放心的，怎么几分钟不到TSM都上TS高了
+
+*****
+
+####  tasuku  
+##### 7468#       发表于 2022-10-16 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942791&amp;ptid=2099454" target="_blank">azccc52 发表于 2022-10-16 20:03</a>
+
+别戟把出神了看个rng一直搁那解说lgd，真是司马了</blockquote>
+你看看axx这波饮水，当解说的谁不想吃lgd的饭呢
+
+*****
+
+####  情商  
+##### 7469#         楼主| 发表于 2022-10-16 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942929&amp;ptid=2099454" target="_blank">HydraCat 发表于 2022-10-16 20:09</a>
+
+这句话就是调侃啊
+
+我怎么可能是那个意思，真把我当暗黑集美了</blockquote>
+谁有空听你在这澡皮？你这角度真新颖 被点草了就是我在调侃是吧
+
+*****
+
+####  Keynes  
+##### 7470#       发表于 2022-10-16 20:10
+
+有一说一，我要是解说我也想恰lgd的饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

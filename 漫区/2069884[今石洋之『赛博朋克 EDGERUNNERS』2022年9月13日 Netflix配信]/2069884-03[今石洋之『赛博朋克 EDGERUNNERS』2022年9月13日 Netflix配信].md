@@ -1950,3 +1950,12 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 今石洋之：『赛博朋克 边缘行者』CDPR原本提案的结局更加离谱 (笑)</blockquote>
 也能想到的只有大卫赛博精神病发作把小伙伴杀了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猫睛石  
+##### 3148#       发表于 2022-10-16 20:03
+
+想问下这部是不是BE，我看了一半闻到危险的味道<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+

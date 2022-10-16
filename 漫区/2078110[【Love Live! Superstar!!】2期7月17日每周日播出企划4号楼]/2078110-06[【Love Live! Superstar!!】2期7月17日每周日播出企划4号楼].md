@@ -9362,3 +9362,39 @@ jk鱼的感觉我也好喜欢捏🥰
 
 话说三期生会不会只有一个人，总感觉vn转校也是当配角或者半个对手团的样子
 
+
+
+*****
+
+####  starring  
+##### 8375#       发表于 2022-10-16 20:06
+
+ 本帖最后由 starring 于 2022-10-16 20:09 编辑 
+
+看错，app标题公开招募
+
+QQ截图20221016200907.png
+(102.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 20:09 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/200922u5h15j5q0gg0tz10.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 8376#       发表于 2022-10-16 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942861&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-16 20:06</a>
+管人团也要公开招募？</blockquote>
+募集的是app的名字
+
+*****
+
+####  Enakina  
+##### 8377#       发表于 2022-10-16 20:09
+
+意义不明的pv，所以和以前有什么区别呢，管人要素我都没看出来
+
