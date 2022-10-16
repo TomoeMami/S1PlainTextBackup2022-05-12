@@ -2304,3 +2304,31 @@ md，第四章这个蛇神，第二形态老是直接秒我
 好办，斩龙剑拿到没？练到精通，会给一个技能，三倍伤害但是被敌人打到就即死，但是这关敌人是不会攻击你 ...</blockquote>
 过了,有点极限,给的东西还挺重要<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yongze  
+##### 218#       发表于 2022-10-16 12:34
+
+被坛游安利了开始玩了个开头，及时刹车，玩了个开始已经体会到这玩意儿有多能让人沉迷了，动作模组虽然有独立游戏的那种僵硬，但是打击反馈很舒适，战斗节奏也很爽快，配合装备级别（还有纸娃娃系统这种直观体验），角色个人能力提升的系统，很朴素但是很直接的能让人投入其中
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  A1LI  
+##### 219#       发表于 2022-10-16 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934975&amp;ptid=2098044" target="_blank">yongze 发表于 2022-10-16 12:34</a>
+
+被坛游安利了开始玩了个开头，及时刹车，玩了个开始已经体会到这玩意儿有多能让人沉迷了，动作模组虽然有独 ...</blockquote>
+一开始特别僵硬，但是后来有武器能刷出来增加重武器攻速的技能，然后升级多点一些敏捷也能有效减少硬直。
+
+*****
+
+####  蓝雉  
+##### 220#         楼主| 发表于 2022-10-16 12:42
+
+每个武器装备刷满给被动和cost上限也能提高收集动力<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
