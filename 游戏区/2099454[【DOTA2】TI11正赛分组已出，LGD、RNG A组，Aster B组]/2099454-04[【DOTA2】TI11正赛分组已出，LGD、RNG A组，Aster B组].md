@@ -5004,3 +5004,65 @@ ame在绝境时求救，回应他的是OK林仔的“啊～起！”
 
 葑茖莥芘
 
+
+
+*****
+
+####  bluebaby  
+##### 5085#       发表于 2022-10-16 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932190&amp;ptid=2099454" target="_blank">安斧天高辽 发表于 2022-10-16 08:36</a>
+A组有个0-6的和个1-5，小组回家有点难度，不过败者组一轮游的希望还是很大的 ...</blockquote>
+虽然人家1-5，但我们也是2-4啊
+
+*****
+
+####  12481632  
+##### 5086#       发表于 2022-10-16 08:51
+
+葑茖莥芘
+
+*****
+
+####  情商  
+##### 5087#         楼主| 发表于 2022-10-16 08:52
+
+葑葛莥芘
+
+*****
+
+####  resorry  
+##### 5088#       发表于 2022-10-16 08:54
+
+葑葛莥芘
+
+*****
+
+####  星野航  
+##### 5089#       发表于 2022-10-16 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932096&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-16 09:22</a></blockquote>
+yatoro的经济输出比更低，giegie不是最菜的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 5090#       发表于 2022-10-16 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932256&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-16 08:43</a>
+
+【Ti11小组赛第一日 萧瑟精彩表演top7】 https://www.bilibili.com/video/BV1B44y1f7wz?share_source=copy_ ...</blockquote>
+完了，以前我还觉得哥哥的切入和我一个4000分的差不多
+
+现在我都看不懂哥哥的切入了
+
+*****
+
+####  奇迹之巅  
+##### 5091#       发表于 2022-10-16 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932256&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-16 08:43</a>
+【Ti11小组赛第一日 萧瑟精彩表演top7】 https://www.bilibili.com/video/BV1B44y1f7wz?share_source=copy_ ...</blockquote>
+生生看笑了
+急着退役的到底是谁我不好说
+
