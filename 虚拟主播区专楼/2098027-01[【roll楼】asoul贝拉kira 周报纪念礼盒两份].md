@@ -105,3 +105,19 @@
 
 安徽省合肥市蜀山区安徽医科大学第一附属医院外科一号楼 15955139180 姓名一二三
 
+
+
+*****
+
+####  贝极星  
+##### 95#         楼主| 发表于 2022-10-16 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944530&amp;ptid=2098027" target="_blank">vivaynia 发表于 2022-10-16 21:37</a>
+
+你好，我这边没收到好友通知，方便的话能提供一下你的联系方式吗。或者你直接发吧我也不怕开盒。
+
+安徽省 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">咋回事啊
+
+好的好的，麻烦也加下我qq吧，3204668424，方便后面确认收货
+

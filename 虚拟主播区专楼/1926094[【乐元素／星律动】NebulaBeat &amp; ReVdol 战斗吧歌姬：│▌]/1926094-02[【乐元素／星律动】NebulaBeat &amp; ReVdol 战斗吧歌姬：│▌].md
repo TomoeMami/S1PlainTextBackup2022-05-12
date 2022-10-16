@@ -7802,3 +7802,17 @@ kino：希望大家不要因为我而讨厌赛马娘。
 
 九夏笑死了
 
+
+
+*****
+
+####  werecat  
+##### 2332#       发表于 2022-10-16 22:44
+
+之前看贴吧给nb出谋划策，提名进厂候选人，有挺多人提到一个叫说说crystal的，说她歌力很强，而且最近变成了自由人。当时也有人说这人在四川，应该不会进京。
+
+今天我刷完美姐妹切片的时候，发现完美四妹露米唱歌的时候，很多人在刷说说。看来她是给招进完美了。之前我还猜测kino会去完美，这在她毕业之后也不是不可能。甚至还能期待下k9在完美重聚。
+
+四妹唱歌的切片在这里：
+[https://www.bilibili.com/video/B ... d9df6d572858d73b98c](https://www.bilibili.com/video/BV1Wd4y117EV/?spm_id_from=333.788.recommend_more_video.0&amp;vd_source=bcf7ba39deacfd9df6d572858d73b98c)
+

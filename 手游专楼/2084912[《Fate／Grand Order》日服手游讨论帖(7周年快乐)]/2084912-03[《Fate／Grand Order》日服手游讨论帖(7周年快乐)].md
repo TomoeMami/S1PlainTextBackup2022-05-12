@@ -1530,3 +1530,14 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">感觉就是借口 我记得一堆游戏有一键加满之类的设计
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3131#       发表于 2022-10-16 22:47
+
+我也感觉是借口，15年的游戏被19年的专利卡住，这段时间FGO的程序员在干啥...
+
+估计就是想拖到某个时间点再实装让玩家感恩戴德，结果突然发现被其他公司截胡了，自己不敢抄也懒得想新方法...只好摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
