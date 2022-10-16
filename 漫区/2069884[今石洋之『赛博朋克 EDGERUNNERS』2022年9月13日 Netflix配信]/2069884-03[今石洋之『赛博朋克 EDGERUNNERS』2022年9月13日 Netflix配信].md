@@ -1972,3 +1972,15 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  高龙  
+##### 3150#       发表于 2022-10-16 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57871376&amp;ptid=2069884" target="_blank">dewaydu 发表于 2022-10-12 09:53</a>
+
+那B站上那些说V50级3项满20的评论也是出自桌游设定吗，看他们吹得振振有词的，有点不解 ...</blockquote>
+没问题。V如果50级别，数值是非常高，对标桌面人物数值的。
+

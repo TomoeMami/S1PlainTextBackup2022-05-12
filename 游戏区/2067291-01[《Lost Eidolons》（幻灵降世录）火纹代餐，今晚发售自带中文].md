@@ -1434,3 +1434,27 @@ B站上的直播录像 犹豫不决的可以先看看
 
 她出现的那个回合，她喜欢的道具送训练长矛+士兵徽章，一阶段基本就快满了。
 
+
+
+*****
+
+####  tand177  
+##### 131#       发表于 2022-10-16 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944946&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-16 22:02</a>
+
+看楼里说之后还会再出现，
+
+是卡林么，</blockquote>
+是的，沉迷泡寡妇，后来才看到楼里说会跑，还有小傲娇帮忙雇杀手是增加新队友的意思么？
+
+*****
+
+####  diectt  
+##### 132#       发表于 2022-10-16 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944284&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-16 21:23</a>
+
+看上的那个女猎人跑了，还会不会回来啊？</blockquote>
+可以确定肯定会回来，我前3个全没招募，后面都回来了
+

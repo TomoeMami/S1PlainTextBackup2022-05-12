@@ -2641,3 +2641,288 @@ LGD电子竞技俱乐部总经理潘飞于10月13日在日常监测中发现结�
 
 再别说了，给哥哥上上强度，整点恶毒的。潘飞病毒jy**哥哥**奶油泡芙最后传染
 
+
+
+*****
+
+####  北欧王座  
+##### 7833#       发表于 2022-10-16 22:01
+
+s……b屏蔽词
+
+*****
+
+####  nowaki  
+##### 7834#       发表于 2022-10-16 22:02
+
+大胆预测明天lgd0-6
+
+*****
+
+####  tengshuo980  
+##### 7835#       发表于 2022-10-16 22:02
+
+看好明天一选马西打碎处长憋壳
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  为了mf注册  
+##### 7836#       发表于 2022-10-16 22:02
+
+妮们这样咒骂干瘪，等明天rng没打过，小心楼里发大水啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 7837#       发表于 2022-10-16 22:02
+
+这次比赛还有个非常离谱的英雄，QOP上了7场一场没赢，连霉憋那压了影魔的QOP也输了，也是RNG目前为止输的唯一一把
+
+*****
+
+####  北欧王座  
+##### 7838#       发表于 2022-10-16 22:03
+
+没有多少rng粉啊。如果按个按钮能一换一，我可以把它拍出火。xcm，输了就输了。
+
+*****
+
+####  六娃  
+##### 7839#       发表于 2022-10-16 22:03
+
+预测小组赛滚蛋队
+beastcoast talon soniqs boom
+
+*****
+
+####  你可以试试  
+##### 7840#       发表于 2022-10-16 22:03
+
+新加坡铁集美，明天被RNG二比零就有借口说都是因为被暗算了
+
+*****
+
+####  nowaki  
+##### 7841#       发表于 2022-10-16 22:03
+
+今天打液体的两场，要不是micke犯病，马桶都把处长鳖壳打碎了。
+
+处长一直是个废物，撸狗鞭已经玉玉了，压制住24稳赢，相信文武合璧
+
+*****
+
+####  北欧王座  
+##### 7842#       发表于 2022-10-16 22:04
+
+这次决不投降，铁血集美黑。lgd最强的时候老子照喷，纯度99.99%。你永远不可能见到我不操a畜妈的逼
+
+*****
+
+####  winkle  
+##### 7843#       发表于 2022-10-16 22:05
+
+这楼加权限了啊，防洪堤砌起来
+
+*****
+
+####  情商  
+##### 7844#         楼主| 发表于 2022-10-16 22:05
+
+问一下楼里面的小电锤bc的哪个巴西经理Guashineen现在还在bc吗
+
+*****
+
+####  一品堂官  
+##### 7845#       发表于 2022-10-16 22:06
+
+上次看女王大赛赢还是雪碧major决赛第二把 
+
+*****
+
+####  tengshuo980  
+##### 7846#       发表于 2022-10-16 22:06
+
+天时 lgd被处罚
+地利 新加坡卡神福地
+人和 文武合璧
+此战必2:0lgd
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  情商  
+##### 7847#         楼主| 发表于 2022-10-16 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945000&amp;ptid=2099454" target="_blank">winkle 发表于 2022-10-16 22:05</a>
+
+这楼加权限了啊，防洪堤砌起来</blockquote>
+卜是，主打一个防止抢红包
+
+*****
+
+####  北欧王座  
+##### 7848#       发表于 2022-10-16 22:06
+
+是这样。液体足够强，强到可以一拳锤中lgd弱点。但是又不够强，不能完全击碎lgd的防线。需要强度，更高的强度。逼出真正生死决战看谁的刀更快的时刻，然后相信萧瑟。
+
+*****
+
+####  六娃  
+##### 7849#       发表于 2022-10-16 22:06
+
+我想象了一下，tundra在bp时的队内语音
+爹，来把ck好吗，我觉得这把ck好打，我选个黑鸟救你
+
+*****
+
+####  坚定的团子党  
+##### 7850#       发表于 2022-10-16 22:06
+
+女王这英雄有啥用，对线强度还行但难单杀，后期就一个大
+
+*****
+
+####  Avantasi  
+##### 7851#       发表于 2022-10-16 22:07
+
+什么叫同行但是没在大名单里？自费跑毒吗
+
+*****
+
+####  usoda  
+##### 7852#       发表于 2022-10-16 22:07
+
+千言万语一句话：相信萧瑟
+
+*****
+
+####  adretyu67  
+##### 7853#       发表于 2022-10-16 22:07
+
+ 本帖最后由 adretyu67 于 2022-10-16 22:10 编辑 
+
+不如祈祷春晚泰迪直接开启昌平野人模式，直接对线中路就把猴爹打穿。
+
+micke这个逼在a队液体打了这么多年，是真的挺菜的。
+
+*****
+
+####  tontyoutoure  
+##### 7854#       发表于 2022-10-16 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940041&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-16 17:41</a>
+
+干瘪是不是最international的亚洲队了，队里有德国人马来人日本人西恩人</blockquote>
+你这么一说差个意大利人组成轴心国<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 7855#       发表于 2022-10-16 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945047&amp;ptid=2099454" target="_blank">tontyoutoure 发表于 2022-10-16 22:07</a>
+
+你这么一说差个意大利人组成轴心国</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">你在暗示什么
+
+*****
+
+####  battleship64  
+##### 7856#       发表于 2022-10-16 22:08
+
+感觉削了圣坛 灌瓶 小野以后，一堆打不过钻野中单不行了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  asd235614  
+##### 7857#       发表于 2022-10-16 22:09
+
+草刚发现楼加了40的权限，防洪堤么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 7858#       发表于 2022-10-16 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">对超哥的信任一般般，这个逼是个什么东西大家都懂。只能说有限的信任。希望如此吧
+
+*****
+
+####  nowaki  
+##### 7859#       发表于 2022-10-16 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945004&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-16 22:05</a>
+
+问一下楼里面的小电锤bc的哪个巴西经理Guashineen现在还在bc吗</blockquote>
+在
+
+*****
+
+####  nerugigannte  
+##### 7860#       发表于 2022-10-16 22:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年淘汰赛阶段我说情愿xx夺冠lgd不夺冠就行还被骂魔怔呢，谢谢giegie今年没人骂我了
+
+
+
+*****
+
+####  反方向的波  
+##### 7861#       发表于 2022-10-16 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">40权限一加不敢区外野发一个字了，万一被葑了要在小黑屋里看完整个ti
+
+*****
+
+####  Rorgen  
+##### 7862#       发表于 2022-10-16 22:11
+
+秘密今天0-2tundra把自己干进败者组了，给水晶连选两把水人，ppy不如请我去bp，我都知道1.5 2.5 2.5
+
+*****
+
+####  roxas.sora  
+##### 7863#       发表于 2022-10-16 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">第二天过后全部进入胜者组，外国队今天发挥开始爆炸拉，感觉今年这三队都是冠军有力竞争者啊，特别是茶和rng疯狂宰猪
+
+*****
+
+####  proselyte  
+##### 7864#       发表于 2022-10-16 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945099&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-16 22:11</a>
+
+40权限一加不敢区外野发一个字了，万一被葑了要在小黑屋里看完整个ti ...</blockquote>
+你开个小号去外野吧
+
+*****
+
+####  Avantasi  
+##### 7865#       发表于 2022-10-16 22:12
+
+隐瞒上报也太司马了，想搞得我giegie夺冠是吧？
+
+*****
+
+####  莉拉厨  
+##### 7866#       发表于 2022-10-16 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945038&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-16 22:07</a>
+什么叫同行但是没在大名单里？自费跑毒吗</blockquote>
+V社只愿意给一个队包八个人的费用，多出来的人愿意来可以来但是要自己出钱
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  银翼的维罗西  
+##### 7867#       发表于 2022-10-16 22:12
+
+茶怎么这么厉害，我感觉骄阳状态一般啊，刚才那把老鹿也是辣眼睛，发挥不如克神
+

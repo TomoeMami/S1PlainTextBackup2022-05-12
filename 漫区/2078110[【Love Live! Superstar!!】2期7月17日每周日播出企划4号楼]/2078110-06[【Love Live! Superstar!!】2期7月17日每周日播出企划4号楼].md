@@ -9732,3 +9732,36 @@ live，视频，杂志，直播，CD售卖、内嵌卡牌游戏，这app内容�
 大概率的是成品也很难划时代，唯一利好就是在供给端处于优势地位，但手气这玩意也太也玄学了
 那就没招了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yicihanshu  
+##### 8414#       发表于 2022-10-16 22:04
+
+虽然但是，这玩意在s1应该放动漫区还是游戏区还是管人区。什么对虚拟偶像的全新理解，还整个抽卡app，一切变现方式的最终形态都是抽奖是吧。
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cybernetics31  
+##### 8415#       发表于 2022-10-16 22:06
+
+真人要live的，要出动画的多媒体，肯定还是漫区了
+
+*****
+
+####  cat1230  
+##### 8416#       发表于 2022-10-16 22:08
+
+星3期成员：我还没开始难道就结束了吗<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 8417#       发表于 2022-10-16 22:10
+
+想起那个商谚，“一流企业做标准”
+尽管做不到精尖独创，但是表面够缝，也能成让大伙哑口无言的“标准”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
