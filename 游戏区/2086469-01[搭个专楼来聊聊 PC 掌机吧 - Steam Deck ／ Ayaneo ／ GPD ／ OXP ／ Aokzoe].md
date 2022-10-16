@@ -5823,3 +5823,16 @@ https://www.bilibili.com/video/BV14e4y1v7sy
 
 这个寄错了太乐了
 
+
+
+*****
+
+####  医生狼多  
+##### 470#       发表于 2022-10-16 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933972&amp;ptid=2086469" target="_blank">navarra 发表于 2022-10-16 11:20</a>
+不是x86，而且是888改名的g3x
+
+—— 来自 samsung SM-G9880, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+想起来了，这玩意已经宣布了好久了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">造型好像比最开始有变化
+
