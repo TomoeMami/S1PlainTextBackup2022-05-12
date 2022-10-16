@@ -5318,3 +5318,87 @@ mi儿ra儿，我要玩影儿魔儿
 
 只能说冠军和亚军格局还是差的多，烟花神第一年被坑了，第二年还勤勤恳恳heA畜打到胜决，量子鞭第一年发现被坑，第二年直接让你ti直接现形
 
+
+
+*****
+
+####  nowaki  
+##### 5120#       发表于 2022-10-16 09:44
+
+有没有可能当时队内第一人是maybe，fy想不想好好打要看maybe脸色
+
+*****
+
+####  c88711611  
+##### 5121#       发表于 2022-10-16 09:45
+
+那小鱼怎么不能洗，对面火猫全屏抓人，哥哥送了没办法。
+
+这么多年，集美就拿没办法来洗a畜的畜生操作和畜生出装，然后清算队友，这就是集美，这就是a畜
+
+*****
+
+####  syndrome2032  
+##### 5122#       发表于 2022-10-16 09:46
+
+ti9lgd摆了一年烂好吗。
+
+林森眼睛手术鸽了
+泰迪结婚还是啥换xm替补
+
+到ti才坐起来打。
+
+*****
+
+####  Kazepollar  
+##### 5123#       发表于 2022-10-16 09:46
+
+说到ti4就想起劳资那个时候是ig粉，被让三追四的时候快被恶心死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+后面wpc复仇还挺爽的
+
+*****
+
+####  银翼的维罗西  
+##### 5124#       发表于 2022-10-16 09:47
+
+我感觉上个MAJOR应该是把量子鞭打绝望了，上个假三真一的版本可以说是量子鞭这么多年三号位对比赛权重影响最大的版本，而且还是个推进版本，每把时间短整活型一号位整活的空间也小，连这种版本都能让哥哥送冠，量子鞭的内心一定比当年手断了打不了比赛还绝望，所以不久就发文提前退役。
+
+*****
+
+####  哈曼的YY  
+##### 5125#       发表于 2022-10-16 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932635&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-16 09:30:00</a>
+看到泥潭微博都在围yyf救bian，作为真·老ig粉还是要帮大家回忆一下当年的情况
+
+09年开始看比赛，注册时间 ...</blockquote>艹艹艹艹！
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 5126#       发表于 2022-10-16 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932808&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-16 09:46</a>
+ti9lgd摆了一年烂好吗。
+
+林森眼睛手术鸽了</blockquote>
+ti9到打比赛，才发现还是全村希望<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 5127#       发表于 2022-10-16 09:52
+
+我觉得心态是不一样的，艹艹当时是自己坑了想最后拼一把好光荣退役，bian是万念俱灰没了心气了
+
+*****
+
+####  Kazepollar  
+##### 5128#       发表于 2022-10-16 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932858&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-16 09:51</a>
+ ti9到打比赛，才发现还是全村希望</blockquote>
+全村希望指的是和vg打完内战后一场外战都没赢的全村希望吗<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+

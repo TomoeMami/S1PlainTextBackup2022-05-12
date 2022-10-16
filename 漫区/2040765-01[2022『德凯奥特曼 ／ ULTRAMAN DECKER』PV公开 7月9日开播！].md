@@ -446,3 +446,19 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 —— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  喷火飞龙  
+##### 655#       发表于 2022-10-16 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57928596&amp;ptid=2040765" target="_blank">浅川雏羽 发表于 2022-10-15 23:04</a>
+
+98和99OV是团拟态风森，98是单回限定，99是因为风森快寄了所以用他的姿态常驻在UG
+
+02是团/老七被判刑了， ...</blockquote>
+谢谢，所以是没有团当着风森面取回变身能力然后自己变身（类似这集这种）的桥段？
+
+赛文OV太久前看的，完全没印象了……
+
