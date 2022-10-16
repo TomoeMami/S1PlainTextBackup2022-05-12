@@ -10715,3 +10715,408 @@ sf经济怎么这么差
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  莉拉厨  
+##### 7391#       发表于 2022-10-16 19:51
+
+明天lgd2:0rng的话我必把我的20个小号借给集美群友们让他们进来battle好吧，争取游戏版单日过万
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JoelBirch  
+##### 7392#       发表于 2022-10-16 19:51
+
+现在外面都是「十战十C」这么吹的，至于到底C不C，没有那么重要啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 7393#       发表于 2022-10-16 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942534&amp;ptid=2099454" target="_blank">-SLSL- 发表于 2022-10-16 19:50</a>
+sf经济怎么这么差</blockquote>
+一波压炮失误 被脑东京对线打回来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  scg2017  
+##### 7394#       发表于 2022-10-16 19:52
+
+a畜玩什么水人小鱼灵感很多，大圣巨魔这类倒是公式化出装
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DearRye  
+##### 7395#       发表于 2022-10-16 19:52
+
+LGD这两个2-0把你楼的人心都打散了，**该死，还是早点淘汰吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 7396#         楼主| 发表于 2022-10-16 19:52
+
+哇10站10吸
+
+*****
+
+####  -SLSL-  
+##### 7397#       发表于 2022-10-16 19:52
+
+绝了，这崩溃哥能让他跑了？
+
+*****
+
+####  winkle  
+##### 7398#       发表于 2022-10-16 19:52
+
+明天LGD再2:0一下RNG这楼就不用复读刷kpi了，直接进行抗洪大战
+
+*****
+
+####  六娃  
+##### 7399#       发表于 2022-10-16 19:52
+
+撸狗猪还没打直接跪下了还行，不愧是A畜指定杏奴，周海洋对位A畜都比他打得好
+
+*****
+
+####  TI三冠王AME  
+##### 7400#       发表于 2022-10-16 19:53
+
+你和20个集美待一个群，当他们的辛苦奴隶是吧？
+
+*****
+
+####  Keynes  
+##### 7401#       发表于 2022-10-16 19:53
+
+集美真先别急，后面有你急的
+
+*****
+
+####  scg2017  
+##### 7402#       发表于 2022-10-16 19:53
+
+十连胜了吗就十战十c？
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷途lite  
+##### 7403#       发表于 2022-10-16 19:53
+
+十战十（个）c
+
+*****
+
+####  非建政专用号  
+##### 7404#       发表于 2022-10-16 19:53
+
+司马完美，克神大战ori是憋憋和ams解说是吧，看你妈<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 7405#       发表于 2022-10-16 19:54
+
+崩溃为什么一个3/3/0的大鱼人能这么有钱
+
+*****
+
+####  勤练带来力量  
+##### 7406#       发表于 2022-10-16 19:54
+
+楼友们猜猜看这是谁的战绩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/7/53bbfcfdf9c93b4623ac4b52f22b2bd2/ecd863ec54e736d120097bc8de504fc2d462692a.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 7407#       发表于 2022-10-16 19:54
+
+司马完美，克神大战ori是憋憋和ams解说是吧，看你妈
+
+*****
+
+####  IG.430  
+##### 7408#       发表于 2022-10-16 19:55
+
+一眼mi
+
+*****
+
+####  反方向的波  
+##### 7409#       发表于 2022-10-16 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942616&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-16 19:54</a>
+楼友们猜猜看这是谁的战绩</blockquote>
+诸葛misha
+
+*****
+
+####  HydraCat  
+##### 7410#       发表于 2022-10-16 19:55
+
+可惜了，老干瘪要是能直接回家还挺有乐子的，昨天都开香槟了，开早了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  柚上舍人  
+##### 7411#       发表于 2022-10-16 19:55
+
+偶像和小人妈妈连麦，世纪大和解
+
+*****
+
+####  勤练带来力量  
+##### 7412#       发表于 2022-10-16 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942637&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-16 19:55</a>
+诸葛misha</blockquote>
+这哥们打了8场死了70次真的是人才啊
+
+*****
+
+####  迷途lite  
+##### 7413#       发表于 2022-10-16 19:55
+
+鳖星这是不是今天最后一把了？想洗个澡躺床了
+
+*****
+
+####  情商  
+##### 7414#         楼主| 发表于 2022-10-16 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942654&amp;ptid=2099454" target="_blank">迷途lite 发表于 2022-10-16 19:55</a>
+
+鳖星这是不是今天最后一把了？想洗个澡躺床了</blockquote>
+是的
+
+*****
+
+####  六娃  
+##### 7415#       发表于 2022-10-16 19:56
+
+yatoro：躺了两天好舒服
+老东京：昨天打累了今天划一划
+collapse：布查佬wcnm
+
+*****
+
+####  scg2017  
+##### 7416#       发表于 2022-10-16 19:56
+
+我看贴吧说的，鳖鳖解说水平完爆ob菜市场
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  两三流浪者  
+##### 7417#       发表于 2022-10-16 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942556&amp;ptid=2099454" target="_blank">HydraCat 发表于 2022-10-16 19:51</a>
+
+别尬黑，说的是两赵云，后面还补充了一句。
+
+前面那把我还说了四赵云，要不要一起清算啊</blockquote>
+清算什么，我想当集美都来不及，真羡慕你这种看到哥哥每补一个兵就高潮一次的体质
+
+*****
+
+####  Keynes  
+##### 7418#       发表于 2022-10-16 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942590&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-16 19:52</a>
+
+撸狗猪还没打直接跪下了还行，不愧是A畜指定杏奴，周海洋对位A畜都比他打得好 ...</blockquote>
+这不是去年还是多久之前的图？
+
+*****
+
+####  TI三冠王AME  
+##### 7419#       发表于 2022-10-16 19:57
+
+骨法小小二连跪不就是下午OG的misha吗
+
+*****
+
+####  外挂全家脚气  
+##### 7420#       发表于 2022-10-16 19:57
+
+可以看光一和出神嘛<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 7421#       发表于 2022-10-16 19:57
+
+带盾送团灭，笑了
+
+*****
+
+####  IG.430  
+##### 7422#       发表于 2022-10-16 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942668&amp;ptid=2099454" target="_blank">scg2017 发表于 2022-10-16 19:56</a>
+我看贴吧说的，鳖鳖解说水平完爆ob菜市场
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 S1Next- ...</blockquote>
+没听过m&amp;b 和r&amp;b解说的淘汰赛吗<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HydraCat  
+##### 7423#       发表于 2022-10-16 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942670&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-16 19:56</a>
+清算什么，我想当集美都来不及，真羡慕你这种看到哥哥每补一个兵就高潮一次的体质 ...</blockquote>
+你回我的三次消息都是你在脑补，要么是扣到高潮，要么是补个兵就高潮。
+感觉你的脑补能力和集美很像啊，爱了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nxmonitor  
+##### 7424#       发表于 2022-10-16 19:58
+
+看了一下TS的阵容也是一股怪味，还是那个说**D、OG和TS肯定一起练了，然后都练蠢了……
+
+*****
+
+####  迷途lite  
+##### 7425#       发表于 2022-10-16 19:59
+
+鳖鳖解说节目效果一直可以的，口条清晰思路也还可以，形象也不差，但是他以前在自己直播间解说鳖星劣势局就司马脸，跟天梯劣势差不多在那唉声叹气的看着难受
+
+*****
+
+####  非建政专用号  
+##### 7426#       发表于 2022-10-16 19:59
+
+bc和茶开了，小电锤集合<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 7427#       发表于 2022-10-16 19:59
+
+徐志雷和土娟解说好嘎啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 7428#       发表于 2022-10-16 19:59
+
+娟今天感觉穿得还可以
+
+*****
+
+####  反方向的波  
+##### 7429#       发表于 2022-10-16 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942650&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-16 19:55</a>
+这哥们打了8场死了70次真的是人才啊</blockquote>
+妮应该看一下mi酱代表作6670582140，窝们都是看着他的比赛长大的，乌克兰光头这把允许他死20次，打完就坐上了轮椅
+
+*****
+
+####  六娃  
+##### 7430#       发表于 2022-10-16 20:00
+
+徐老鳖说话像念大悲咒，喜欢听他解说的我只能理解为家里有白事
+
+*****
+
+####  lyjssj  
+##### 7431#       发表于 2022-10-16 20:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望茶能把BC2-0，这样今天西恩外战结果就是13-1，大宰猪日
+
+*****
+
+####  迷途lite  
+##### 7432#       发表于 2022-10-16 20:00
+
+土娟就纯废物，这么多年了yammers解说都练出来了，土娟还就只有一双腿
+
+*****
+
+####  非建政专用号  
+##### 7433#       发表于 2022-10-16 20:00
+
+ob的解说没注意，憋憋和ams的解说突出一个脑内自带一秒延迟<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzy200912345  
+##### 7434#       发表于 2022-10-16 20:00
+
+搁这椅子上做法呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  儛進  
+##### 7435#       发表于 2022-10-16 20:00
+
+热知识，明天将 有9个亚军在一起打比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 7436#       发表于 2022-10-16 20:01
+
+雪碧怎么打tsm都这么吃力
+
+*****
+
+####  TI三冠王AME  
+##### 7437#       发表于 2022-10-16 20:01
+
+哦牛批，又放茶队马西死灵龙，你是没挨过樱花双雄的殴打是吧
+
+*****
+
+####  方舟失智博士  
+##### 7438#       发表于 2022-10-16 20:02
+
+9个亚军可还行
+
+*****
+
+####  两三流浪者  
+##### 7439#       发表于 2022-10-16 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942695&amp;ptid=2099454" target="_blank">HydraCat 发表于 2022-10-16 19:58</a>
+
+你回我的三次消息都是你在脑补，要么是扣到高潮，要么是补个兵就高潮。
+
+感觉你的脑补能力和集美很像啊， ...</blockquote>
+“这把ame血C啊，直接一赵云带四阿斗了”
+
+谁脑补了
+
+*****
+
+####  非建政专用号  
+##### 7440#       发表于 2022-10-16 20:03
+
+再ban下去k1自动爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
