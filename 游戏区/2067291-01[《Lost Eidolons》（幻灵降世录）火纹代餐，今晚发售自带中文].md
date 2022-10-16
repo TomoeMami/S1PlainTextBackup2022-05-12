@@ -1259,3 +1259,27 @@ B站上的直播录像 犹豫不决的可以先看看
 
 才推到第八章，DLC送的马见不着啊。
 
+
+
+*****
+
+####  tand177  
+##### 116#       发表于 2022-10-16 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57931532&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-16 06:16</a>
+
+还是有对应喜好度的，只是要一个个SL来试很麻烦
+
+才推到第八章，DLC送的马见不着啊。 ...</blockquote>
+怎么招募访客阿？送礼物刷好感度么？
+
+*****
+
+####  diectt  
+##### 117#       发表于 2022-10-16 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57940495&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-16 18:00</a>
+
+怎么招募访客阿？送礼物刷好感度么？</blockquote>
+做任务送礼物，1阶好感度满就能招募了
+

@@ -1462,3 +1462,19 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 算不上什么预言吧，只能说大家想舔美少女的想法战胜了理性就是这样的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  9252314024  
+##### 3125#       发表于 2022-10-16 17:59
+
+好弱智阿 说坏话的这边要哄 被说坏话的这边还要哄 什么过家家
+
+*****
+
+####  里村紅葉  
+##### 3126#       发表于 2022-10-16 18:01
+
+天草立绘拿着把刀说自己不擅长哄小孩怎么感觉怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
