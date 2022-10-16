@@ -7816,3 +7816,15 @@ kino：希望大家不要因为我而讨厌赛马娘。
 四妹唱歌的切片在这里：
 [https://www.bilibili.com/video/B ... d9df6d572858d73b98c](https://www.bilibili.com/video/BV1Wd4y117EV/?spm_id_from=333.788.recommend_more_video.0&amp;vd_source=bcf7ba39deacfd9df6d572858d73b98c)
 
+
+
+*****
+
+####  ladiesman802  
+##### 2333#       发表于 2022-10-16 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945670&amp;ptid=1926094" target="_blank">werecat 发表于 2022-10-16 22:44</a>
+
+之前看贴吧给nb出谋划策，提名进厂候选人，有挺多人提到一个叫说说crystal的，说她歌力很强，而且最近变成 ...</blockquote>
+其实现在的版本，歌力没有太多优势，乐元素挑人还不如挑一个杂谈力厉害的，能够融入团体的人。
+

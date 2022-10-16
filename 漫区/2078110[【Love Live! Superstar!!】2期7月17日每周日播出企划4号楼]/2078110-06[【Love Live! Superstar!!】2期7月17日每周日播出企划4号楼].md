@@ -9796,3 +9796,21 @@ live，视频，杂志，直播，CD售卖、内嵌卡牌游戏，这app内容�
 
 ag all star打铁好多返图，事务所赶紧多给点声优资源吧
 
+
+
+*****
+
+####  lj205  
+##### 8421#       发表于 2022-10-16 23:06
+
+鱼的新写真还是不少憨憨图<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 8422#       发表于 2022-10-16 23:08
+
+[https://www.bilibili.com/video/BV1cW4y1n7ev/](https://www.bilibili.com/video/BV1cW4y1n7ev/)
+
+这OP，还是听不出第二句是啥
+

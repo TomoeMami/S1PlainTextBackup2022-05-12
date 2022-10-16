@@ -2956,3 +2956,22 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 第二章沼泽洞窟里的两个宝箱，地下那个宝箱怎么开啊
 
+
+
+*****
+
+####  元气海牛  
+##### 279#       发表于 2022-10-16 23:03
+
+求问傲娇白魔法师能救嘛？ 魔王剧情人傻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  A1LI  
+##### 280#       发表于 2022-10-16 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945973&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-16 23:03</a>
+
+求问傲娇白魔法师能救嘛？ 魔王剧情人傻了</blockquote>
+我也卡这点了，进城堡那个小孩带了到boss时就死了，要是不带据说还有两种情况，但是不知道怎么触发？
+
