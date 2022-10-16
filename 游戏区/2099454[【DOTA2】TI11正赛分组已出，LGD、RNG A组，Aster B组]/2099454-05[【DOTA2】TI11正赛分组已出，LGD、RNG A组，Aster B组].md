@@ -3284,3 +3284,142 @@ ti亚军出的我出不的？
 
 龙心船长打野去了呃呃
 
+
+
+*****
+
+####  nxmonitor  
+##### 6430#       发表于 2022-10-16 16:13
+
+TS要翻了，南美队就这样，只会玩一个前期……
+
+*****
+
+####  反方向的波  
+##### 6431#       发表于 2022-10-16 16:13
+
+出龙心致敬冠超，采灵芝致敬giegie，pakazs铁lxo啊
+
+*****
+
+####  nxmonitor  
+##### 6432#       发表于 2022-10-16 16:14
+
+刚说就送了，没大凭啥守塔啊？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 6433#         楼主| 发表于 2022-10-16 16:14
+
+皮球如果没走这波就好了，可惜了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  越动天下  
+##### 6434#       发表于 2022-10-16 16:15
+
+这个跳刀太早了
+
+*****
+
+####  情商  
+##### 6435#         楼主| 发表于 2022-10-16 16:15
+
+7分钟跳刀
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  belldandy_ye  
+##### 6436#       发表于 2022-10-16 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937712&amp;ptid=2099454" target="_blank">seki_m 发表于 2022-10-16 15:51</a>
+
+感觉问题出在下路那波队伍和sf脱节</blockquote>
+第一个盾不给影魔纯纯脑残行为，推进阵容熊德主身能上去拍塔的局面它需要带盾？
+
+影魔没盾又不肯老实后方看戏对面蝙蝠不拉你真的没天理了.
+
+*****
+
+####  Hieda  
+##### 6437#       发表于 2022-10-16 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要被tk滚雪球滚没了
+
+*****
+
+####  nowaki  
+##### 6438#       发表于 2022-10-16 16:18
+
+ta基本上到点了
+
+*****
+
+####  nowaki  
+##### 6439#       发表于 2022-10-16 16:18
+
+龙心船长这个思路，有没有漏油给我这个低分猪说说
+
+*****
+
+####  情商  
+##### 6440#         楼主| 发表于 2022-10-16 16:20
+
+ent这个队的中单外号叫什么
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nowaki  
+##### 6441#       发表于 2022-10-16 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57938294&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-16 16:20</a>
+
+ent这个队的中单外号叫什么
+
+论坛助手,iPad</blockquote>
+德二中
+
+*****
+
+####  情商  
+##### 6442#         楼主| 发表于 2022-10-16 16:21
+
+沉默没大不推中路塔的
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  非建政专用号  
+##### 6443#       发表于 2022-10-16 16:21
+
+司了马了，bc要给fnc送两分，哭了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  空月の梦  
+##### 6444#       发表于 2022-10-16 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57938294&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-16 16:20</a>
+
+ent这个队的中单外号叫什么
+
+论坛助手,iPad</blockquote>
+德国风哥
+
+*****
+
+####  情商  
+##### 6445#         楼主| 发表于 2022-10-16 16:22
+
+一个b斯文把中路线站住了，我是真的看不懂
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

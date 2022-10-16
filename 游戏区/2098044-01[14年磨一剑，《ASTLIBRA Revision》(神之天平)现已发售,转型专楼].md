@@ -2564,3 +2564,17 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 另外谁打过南瓜魔女了，30级去被打成狗
 
+
+
+*****
+
+####  A1LI  
+##### 243#       发表于 2022-10-16 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937068&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-16 15:09</a>
+
+大概是正常二段跳应该跳不上去，所以实际上这解谜只做了远程的
+
+—— 来自 OPPO PCLM10, Android 12上的  ...</blockquote>
+其实可以的，断桥那点在下面按上+攻击，那个高挑攻击接二段跳就能上去，我就是这么被骗到了。
+
