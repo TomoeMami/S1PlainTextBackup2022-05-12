@@ -5803,3 +5803,23 @@ https://www.bilibili.com/video/BV14e4y1v7sy
 
 雷蛇也出云掌机了，399刀
 
+
+
+*****
+
+####  navarra  
+##### 468#       发表于 2022-10-16 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933833&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-10-16 11:09</a>
+雷蛇也出云掌机了，399刀</blockquote>
+不是x86，而且是888改名的g3x
+
+—— 来自 samsung SM-G9880, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  硫黄  
+##### 469#       发表于 2022-10-16 11:24
+
+这个寄错了太乐了
+
