@@ -2651,3 +2651,24 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 论坛助手,iPhone</blockquote>
 木棍特别慢……但是满收益挺高的。
 
+
+
+*****
+
+####  pf67  
+##### 251#       发表于 2022-10-16 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937943&amp;ptid=2098044" target="_blank">masterkeaton 发表于 2022-10-16 16:03</a>
+
+回去找猎人有剧情，后面打根</blockquote>
+我说的是打不死之王了
+
+不过已经过了，还是法师强，洗点把攻击削了，狂加法力血和防御，然后用雷魔法杖无脑狂轰
+
+*****
+
+####  Kojimaru  
+##### 252#       发表于 2022-10-16 17:42
+
+草，原来npc问是否是要来找神之天平要点否<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一直卡在第一章，前两张史莱姆图都掘地三尺了
+
