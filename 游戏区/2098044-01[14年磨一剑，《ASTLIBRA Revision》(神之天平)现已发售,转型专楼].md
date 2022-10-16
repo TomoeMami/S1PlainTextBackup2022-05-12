@@ -2975,3 +2975,36 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 求问傲娇白魔法师能救嘛？ 魔王剧情人傻了</blockquote>
 我也卡这点了，进城堡那个小孩带了到boss时就死了，要是不带据说还有两种情况，但是不知道怎么触发？
 
+
+
+*****
+
+####  元气海牛  
+##### 281#       发表于 2022-10-16 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946068&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-16 23:09</a>
+
+我也卡这点了，进城堡那个小孩带了到boss时就死了，要是不带据说还有两种情况，但是不知道怎么触发？ ...</blockquote>
+我是已经过了这章了，下章开头回忆杀小白小黑和贤者剧情给我整emo了，这游戏剧情一直在刀与糖之间反复切换是什么道理<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  casle  
+##### 282#       发表于 2022-10-16 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945973&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-16 23:03</a>
+
+求问傲娇白魔法师能救嘛？ 魔王剧情人傻了</blockquote>
+能救
+
+进城堡的时候别带小女孩，等和老盖乌会合了准备去打魔王之前回去跟小女孩对话
+
+*****
+
+####  白軍浪  
+##### 283#       发表于 2022-10-16 23:19
+
+摸了吸血鬼猎人的头骨觉醒副武器太草了
+
+问题是你这个副武器触发和升龙冲突啊
+

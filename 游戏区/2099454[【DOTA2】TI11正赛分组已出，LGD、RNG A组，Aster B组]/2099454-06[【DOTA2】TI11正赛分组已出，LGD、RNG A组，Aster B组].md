@@ -3369,3 +3369,85 @@ pgl真的司马，pure比赛暂停写个z就全队判负，lgd瞒报新冠就罚
 
 14号撸狗鞭还跑去和eg合影呢 潘飞现在跳出来说自我隔离谁信？
 
+
+
+*****
+
+####  食粪者  
+##### 7924#       发表于 2022-10-16 23:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">见畜俱乐部，开眼了
+
+*****
+
+####  蛭人  
+##### 7925#       发表于 2022-10-16 23:14
+
+别说了邪恶明鞭最后一秀，不带口罩到处合影，最后全员阳性，千古罪人是吧。
+
+*****
+
+####  一品堂官  
+##### 7926#       发表于 2022-10-16 23:16
+
+我这个人比较和善不会说恶毒的话，如果真瞒报，漏油帮我说说心里话锐评一下这个队吧！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 7927#       发表于 2022-10-16 23:17
+
+希望lgd全部队员加老板管理层中招XBB<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 7928#       发表于 2022-10-16 23:18
+
+这也太符合水厂人设了，从潘婕到潘飞到张宁到王淳煜的一窝死妈贱畜
+
+*****
+
+####  屠夫  
+##### 7929#       发表于 2022-10-16 23:18
+
+with the 阳，eg你知道你在10/14诅咒了自己吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/16/231806a7eg7o6jnx8j3z73.png" referrerpolicy="no-referrer">
+
+<strong>$A2$J0]B)G]H4{LZ4HRCXUW.png</strong> (169.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 23:18 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/231844bz7dsxuuanpm0mdm.jpg" referrerpolicy="no-referrer">
+
+<strong>e4a8d28065380cd763cb502de444ad345b828174.jpg</strong> (178.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 23:18 上传
+
+*****
+
+####  百世诸侯  
+##### 7930#       发表于 2022-10-16 23:19
+
+<img src="https://img.saraba1st.com/forum/202210/16/231725pm8oeokjkej9b0x8.jpg" referrerpolicy="no-referrer">
+
+<strong>7PG7CWKFCLUG[I[O)GCO[4I.jpg</strong> (68.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 23:17 上传
+
+龙骑都没人选了吗，这版本应该还能上场啊
+
+*****
+
+####  johnwick  
+##### 7931#       发表于 2022-10-16 23:19
+
+阳了还瞒报，真是不积德呀
+
