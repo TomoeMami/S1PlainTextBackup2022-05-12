@@ -3273,3 +3273,28 @@ https://w.atwiki.jp/astlibra/</blockquote>
  ...</blockquote>
 可以常驻吧，你换她得衣服就行了
 
+
+
+*****
+
+####  浅羽直之  
+##### 308#       发表于 2022-10-17 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948063&amp;ptid=2098044" target="_blank">ultraseven 发表于 2022-10-17 07:26</a>
+请问能用Steam Deck玩吗？看了下ProtonDB上没有信息</blockquote>
+我全程用steamdeck玩的，一切正常，续航六个半小时
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ultraseven| + 1|谢谢！已经买了|
+
+查看全部评分
+
