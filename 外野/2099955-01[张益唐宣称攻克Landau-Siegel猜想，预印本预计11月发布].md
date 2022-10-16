@@ -667,3 +667,19 @@ Dirichlet L函数，不 ...</blockquote>
 
 方向错了，知识越多越反动，又一个殖人有什么好关注的。
 
+
+
+*****
+
+####  鹳狸猿我错了  
+##### 62#       发表于 2022-10-17 07:43
+
+ 本帖最后由 鹳狸猿我错了 于 2022-10-17 07:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944802&amp;ptid=2099955" target="_blank">素理想 发表于 2022-10-16 21:53</a>
+[https://arxiv.org/abs/0705.4306](https://arxiv.org/abs/0705.4306)
+
+[Submitted on 29 May 2007]
+
+On the Landau-Siegel Zeros Conjecture</blockquote>
+合着张说的是07年的论文，那这个所谓的解决更没讨论价值了
+
