@@ -3850,3 +3850,12 @@ image.png
 
 我要报考国际刑事警察学院，立志缉拿战犯潘飞！
 
+
+
+*****
+
+####  帕林马哲理  
+##### 7974#       发表于 2022-10-17 06:19
+
+潘飞不是代ruru坐过牢么，这种刑满释放人员也能随便出国感染别人啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+
