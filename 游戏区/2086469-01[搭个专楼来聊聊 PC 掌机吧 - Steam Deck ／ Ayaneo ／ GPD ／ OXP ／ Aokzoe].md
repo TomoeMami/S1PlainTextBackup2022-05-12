@@ -5757,3 +5757,16 @@ gpd虽然营销low但是也是国内最早做win掌机的厂家吧，我当年�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> Aokzoe 真的是每天都会有人出新的吐槽视频
 
+
+
+*****
+
+####  Fuero  
+##### 464#       发表于 2022-10-16 08:14
+
+<blockquote>bypass 发表于 2022-10-16 08:02
+https://www.bilibili.com/video/BV14e4y1v7sy
+
+ Aokzoe 真的是每天都会有人出新的吐槽视频 ...</blockquote>
+草 评论里有吐槽修理后寄回来的机器从1T变512G的
+

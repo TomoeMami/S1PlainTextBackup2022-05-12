@@ -4857,3 +4857,41 @@ lgd这队我给你们讲，慢热，喜欢后程发力，有底蕴，就算回�
 
 小组赛才打了一天集美们就忍不住抢先占领舆论阵地清算队友了，不过按a畜儿子的话来讲这都是有脑人身攻击
 
+
+
+*****
+
+####  百世诸侯  
+##### 5069#       发表于 2022-10-16 08:14
+
+<img src="https://img.saraba1st.com/forum/202210/16/081420xsmnnkkbpmpqtmwp.jpg" referrerpolicy="no-referrer">
+
+<strong>2ba98b58139a01d7.jpg</strong> (52.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-16 08:14 上传
+
+*****
+
+####  恐怖利刃  
+##### 5070#       发表于 2022-10-16 08:18
+
+#张睿达涉危害国家安全罪被引渡回国
+
+
+
+*****
+
+####  恐怖利刃  
+##### 5071#       发表于 2022-10-16 08:22
+
+<img src="https://img.saraba1st.com/forum/202210/16/082217qwawme6x5wpne7wb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BEAD73DB-B831-453A-9F2A-601C6AC9C976.jpeg</strong> (234.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 08:22 上传
+
