@@ -8274,3 +8274,27 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 被SD三兄弟玩成屎了，这关混战是不是不多人没法打，三个初生血又多攻击力又变态 ...</blockquote>
 拉远了以后这几个家伙会回陨石坑，可以慢慢耗
 
+
+
+*****
+
+####  gpx234mqx  
+##### 787#       发表于 2022-10-16 14:18
+
+ 本帖最后由 gpx234mqx 于 2022-10-16 14:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57628758&amp;ptid=2051733" target="_blank">二丁目拓也 发表于 2022-9-24 19:27</a>
+
+这个更接近SDCS</blockquote>
+不是的SDCS是旧版的SD造型
+
+也就是大头
+
+0F8C3814-B7A8-42AD-9B05-2183CC3AB4B8.jpeg
+(486.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 14:18 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/141848poocoptrgi6r11t0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

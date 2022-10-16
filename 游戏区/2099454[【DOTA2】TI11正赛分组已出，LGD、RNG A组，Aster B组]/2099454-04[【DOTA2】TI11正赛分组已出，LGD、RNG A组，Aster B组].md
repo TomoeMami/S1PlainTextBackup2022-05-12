@@ -11971,3 +11971,80 @@ atf不想玩可以不玩，看着恶心
 
 LGD今天还要打谁
 
+
+
+*****
+
+####  asd235614  
+##### 5991#       发表于 2022-10-16 14:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">CCNC这补刀压了超哥刚狂一下镜头切回来直接被单杀了
+
+*****
+
+####  情商  
+##### 5992#         楼主| 发表于 2022-10-16 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57936319&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-16 14:11</a>
+LGD今天还要打谁</blockquote>
+马体
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Kazepollar  
+##### 5993#       发表于 2022-10-16 14:12
+
+我都不知道你们从哪儿觉得og厉害的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+我感觉这水平可能突围赛都游不出来
+
+*****
+
+####  反方向的波  
+##### 5994#       发表于 2022-10-16 14:12
+
+畅畅n畅是这样的，nm紫猫打老鹿还敢乱走路
+
+*****
+
+####  迷途lite  
+##### 5995#       发表于 2022-10-16 14:13
+
+还在lgd，你们甚至不愿意看超哥处刑ggng
+
+*****
+
+####  Aunn  
+##### 5996#       发表于 2022-10-16 14:14
+
+misha什么时候家里有事，这og智商基本是之前rng的状态
+
+*****
+
+####  Cantha  
+##### 5997#       发表于 2022-10-16 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer"> 莫言这几年表现有冠军的样子。可惜啊
+
+*****
+
+####  nowaki  
+##### 5998#       发表于 2022-10-16 14:14
+
+mi酱是队魂
+
+*****
+
+####  非建政专用号  
+##### 5999#       发表于 2022-10-16 14:14
+
+og现在bp和指挥是谁，mi神？
+
+*****
+
+####  万世创伤伊莫库  
+##### 6000#       发表于 2022-10-16 14:15
+
+boxi这状态真是好，感觉EG有可能要被2-0了
+
