@@ -3739,3 +3739,26 @@ with the 阳，eg你知道你在10/14诅咒了自己吗？</blockquote>
 论坛助手,iPhone</blockquote>
 超人蛙杨舜华是lgd13年到18年的领队，陆浩是cdec领队转lgd经理转rng经理
 
+
+
+*****
+
+####  battleship64  
+##### 7963#       发表于 2022-10-17 01:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57947471&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-17 01:19</a>
+超人蛙杨舜华是lgd13年到18年的领队，陆浩是cdec领队转lgd经理转rng经理</blockquote>
+艹，太复杂了，溜了溜了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  seki_m  
+##### 7964#       发表于 2022-10-17 01:26
+
+看了下lgd打液体第一把，这第一个肉山决策太差了吧
+打到还剩四分之一血打不动，要不是xinq运气好抢了盾就是一波大劣<img src="https://p.sda1.dev/7/475ac589a0ba0aa5e04d218cd9e9a967/CMP_20221017012533420.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2229A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

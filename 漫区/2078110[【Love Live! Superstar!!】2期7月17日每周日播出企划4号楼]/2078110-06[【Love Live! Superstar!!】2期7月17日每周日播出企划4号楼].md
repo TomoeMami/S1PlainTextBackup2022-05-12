@@ -9848,3 +9848,20 @@ ag all star打铁好多返图，事务所赶紧多给点声优资源吧
 
 这本质量好高啊，可第一本纸质的出的是YJ实在是太库亚西了
 
+
+
+*****
+
+####  stygian  
+##### 8427#       发表于 2022-10-17 01:30
+
+<img src="https://img.saraba1st.com/forum/202210/17/013025euczcuuc3ooyqy97.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 01:30 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
