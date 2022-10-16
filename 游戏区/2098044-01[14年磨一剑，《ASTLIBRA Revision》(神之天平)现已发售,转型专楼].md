@@ -2475,3 +2475,62 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  quanlix  
+##### 234#       发表于 2022-10-16 15:41
+
+第四章不签契约怎么继续，boss没判断，拖时间也没见有剧情
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  pf67  
+##### 235#       发表于 2022-10-16 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937534&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-16 15:41</a>
+第四章不签契约怎么继续，boss没判断，拖时间也没见有剧情
+
+  -- 来自 有消息提醒的 Stage1官方 Android客 ...</blockquote>
+无法继续，必然死局
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yla  
+##### 236#       发表于 2022-10-16 15:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">修女的内衣就只给看一眼吗，我还惦记着放天平上，结果穿完就没了？
+
+*****
+
+####  六至九  
+##### 237#       发表于 2022-10-16 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937562&amp;ptid=2098044" target="_blank">yla 发表于 2022-10-16 15:43</a>
+修女的内衣就只给看一眼吗，我还惦记着放天平上，结果穿完就没了？</blockquote>
+第六章去扭蛋，四个徽章
+
+*****
+
+####  yla  
+##### 238#       发表于 2022-10-16 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937574&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-16 15:43</a>
+
+第六章去扭蛋，四个徽章</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">竟然放扭蛋里
+
+*****
+
+####  六至九  
+##### 239#       发表于 2022-10-16 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937639&amp;ptid=2098044" target="_blank">yla 发表于 2022-10-16 15:47</a>
+竟然放扭蛋里</blockquote>
+不对，不是四个，但确实是在扭蛋里
+
