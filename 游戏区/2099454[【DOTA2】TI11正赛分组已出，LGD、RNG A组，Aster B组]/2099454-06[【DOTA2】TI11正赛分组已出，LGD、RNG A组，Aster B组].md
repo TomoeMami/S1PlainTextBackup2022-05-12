@@ -2290,3 +2290,354 @@ lgd被处罚了 好像是经理阳了没上报
 
 什么情况，贴吧开始造谣lgd明天被处罚比赛bp时间，因为经理得了新冠
 
+
+
+*****
+
+####  非建政专用号  
+##### 7795#       发表于 2022-10-16 21:51
+
+赢了克神败者组，输了兄弟领红包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小电锤输不了阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 7796#       发表于 2022-10-16 21:51
+
+<img src="https://img.saraba1st.com/forum/202210/16/215119amfkgu8vxgthmmg5.jpg" referrerpolicy="no-referrer">
+
+<strong>1443814658.jpg</strong> (246.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 21:51 上传
+
+什么情况，好起来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Asukalangley33  
+##### 7797#       发表于 2022-10-16 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944754&amp;ptid=2099454" target="_blank">坚定的团子党 发表于 2022-10-16 21:50</a>
+
+什么情况，贴吧开始造谣lgd明天被处罚比赛bp时间，因为经理得了新冠</blockquote>
+黄翔问了大飞本人，大飞说确实羊了，但是他是自费去的，跟LGD没关系
+
+*****
+
+####  proselyte  
+##### 7798#       发表于 2022-10-16 21:51
+
+话说
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">阿斗和赵云是不是也可以说是泽连斯基和北约
+
+*****
+
+####  游山赫乃丈丶  
+##### 7799#       发表于 2022-10-16 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944613&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-16 21:42</a>
+
+雪碧团战执行力看得出功底，但是这对线把劣，有点整蛊</blockquote>
+第一把感觉都是随便选随便打 第二把稍微选好点就能打了
+
+*****
+
+####  两三流浪者  
+##### 7800#       发表于 2022-10-16 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944754&amp;ptid=2099454" target="_blank">坚定的团子党 发表于 2022-10-16 21:50</a>
+
+什么情况，贴吧开始造谣lgd明天被处罚比赛bp时间，因为经理得了新冠</blockquote>
+感觉不如nga
+
+
+
+*****
+
+####  情商  
+##### 7801#         楼主| 发表于 2022-10-16 21:52
+
+ruru这卜飞去夏威夷亲自给v胖解释清楚？
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 7802#       发表于 2022-10-16 21:52
+
+🐏了阳了
+
+*****
+
+####  银翼的维罗西  
+##### 7803#       发表于 2022-10-16 21:53
+
+老干鳖明天打的不都是鱼队吗，术士八根本不需要备用时间好吧
+
+*****
+
+####  两三流浪者  
+##### 7804#       发表于 2022-10-16 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944764&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-16 21:51</a>
+
+什么情况，好起来了
+
+—— 来自 S1Fun</blockquote>
+看好败者组第一轮和雪碧生死战
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 7805#       发表于 2022-10-16 21:53
+
+给8王 10s思考<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 7806#       发表于 2022-10-16 21:53
+
+《RNG黑暗降临，操纵比赛迫害PSG LGD》
+
+*****
+
+####  情商  
+##### 7807#         楼主| 发表于 2022-10-16 21:53
+
+《RNG黑暗降临，操纵比赛迫害PSG LGD》
+
+*****
+
+####  adretyu67  
+##### 7808#       发表于 2022-10-16 21:54
+
+这惩罚和国内防疫管控力度比起来已经是很轻了。
+
+国内你敢玩这种杂技直接抓你去隔离再说。
+
+*****
+
+####  反方向的波  
+##### 7809#       发表于 2022-10-16 21:54
+
+<img src="https://p.sda1.dev/7/b3e57ef87b1ba51b7ae6fa96d65f21bd/-8134db3980543b3.jpg" referrerpolicy="no-referrer">
+哦牛批还有这种操作
+
+*****
+
+####  StrangerJ  
+##### 7810#       发表于 2022-10-16 21:54
+
+小小才是版本答案？<img src="https://p.sda1.dev/7/1ddcc7f77b76cbca31a9d055cc239543/CMP_20221016215424533.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 7811#       发表于 2022-10-16 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944804&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-16 21:54</a>
+这惩罚和国内防疫管控力度比起来已经是很轻了。
+
+国内你敢玩这种杂技官老爷直接抓你去隔离再说。 ...</blockquote>
+新加坡口罩都不戴，v社算管的紧了
+
+*****
+
+####  六娃  
+##### 7812#       发表于 2022-10-16 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944690&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-16 21:46</a>
+批九怎么7-3？</blockquote>
+skiter绝活娜迦混沌五场狂砍47 6 51的数据今天带队5-1，批九只要不拖后腿他们队的13两个绝活哥是能C的
+
+*****
+
+####  StrangerJ  
+##### 7813#       发表于 2022-10-16 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944808&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-16 21:54</a>
+哦牛批还有这种操作</blockquote>
+这rng为啥被区别对待？
+
+*****
+
+####  两三流浪者  
+##### 7814#       发表于 2022-10-16 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944812&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-16 21:54</a>
+
+小小才是版本答案？</blockquote>
+还是看淘汰赛
+
+*****
+
+####  游山赫乃丈丶  
+##### 7815#       发表于 2022-10-16 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944812&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-16 21:54</a>
+
+小小才是版本答案？</blockquote>
+我觉得版本答案还是夜神夜神
+
+*****
+
+####  端木恋心  
+##### 7816#       发表于 2022-10-16 21:56
+
+真官宣了啊
+
+*****
+
+####  情商  
+##### 7817#         楼主| 发表于 2022-10-16 21:56
+
+na得看对面视野怎么样
+
+*****
+
+####  roger_goodell  
+##### 7818#       发表于 2022-10-16 21:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">不是都说新加坡已经躺平不防疫了吗？怎么还要管控的
+
+*****
+
+####  星野航  
+##### 7819#       发表于 2022-10-16 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944767&amp;ptid=2099454" target="_blank">游山赫乃丈丶 发表于 2022-10-16 22:51</a>
+
+第一把感觉都是随便选随便打 第二把稍微选好点就能打了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的么
+
+给状态最好的老东京选个滚滚打沙发（
+
+而且一些位置的老哥状态说实话真的有问题
+
+*****
+
+####  tengshuo980  
+##### 7820#       发表于 2022-10-16 21:56
+
+dota之神发力了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  两三流浪者  
+##### 7821#       发表于 2022-10-16 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944825&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-16 21:55</a>
+
+这rng为啥被区别对待？</blockquote>
+我猜是rng自己选的
+
+*****
+
+####  nightmare902015  
+##### 7822#       发表于 2022-10-16 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944812&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-16 21:54</a>
+小小才是版本答案？</blockquote>
+不如谷爱凌一根，冰雪天才
+
+*****
+
+####  nowaki  
+##### 7823#       发表于 2022-10-16 21:57
+
+【LGD电子竞技俱乐部公告】
+
+LGD电子竞技俱乐部总经理潘飞于10月13日在日常监测中发现结果呈阳性，而后马上开展自我隔离。由于不在上报的8人官方名单内但同为随行人员，未及时上报感到非常抱歉。
+
+对此V社对俱乐部做出处罚：
+
+1.17日对阵RNG比赛丧失优先选边权
+
+2.17日对阵BOOM和GG比赛扣除备用BP时间
+
+另外队员、教练及所有其他随行人员核酸检测结果皆为阴性，可正常参赛工作。
+
+俱乐部遵从V社的处罚决定，同时会和官方一起严格遵守各项防控措施，保护选手，做好健康监测。
+
+*****
+
+####  一品堂官  
+##### 7824#       发表于 2022-10-16 21:58
+
+去看了下新闻回来又错过一个。玉玉了。
+
+*****
+
+####  反方向的波  
+##### 7825#       发表于 2022-10-16 21:59
+
+你们这有点哈人了，25个红包都不够分的
+窝建议本楼直接直通徐林森粉丝群
+
+*****
+
+####  情商  
+##### 7826#         楼主| 发表于 2022-10-16 21:59
+
+你们这有点哈人了，25个红包都不够分的
+
+锁个权限好吧
+
+*****
+
+####  六娃  
+##### 7827#       发表于 2022-10-16 21:59
+
+如何评价
+鳖茶新冠咒骂家破人亡
+水厂新冠祝福身体健康
+
+*****
+
+####  北欧王座  
+##### 7828#       发表于 2022-10-16 22:00
+
+怎么不阳一个啊，可惜了可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 7829#       发表于 2022-10-16 22:00
+
+本人就在森哥粉丝群啊 森哥群里也是有集美的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 7830#       发表于 2022-10-16 22:00
+
+基德基德
+
+
+
+*****
+
+####  情商  
+##### 7831#         楼主| 发表于 2022-10-16 22:00
+
+如何评价
+
+鳖茶新冠咒骂家破人亡
+
+水厂新冠祝福身体健康
+
+*****
+
+####  北欧王座  
+##### 7832#       发表于 2022-10-16 22:00
+
+再别说了，给哥哥上上强度，整点恶毒的。潘飞病毒jy**哥哥**奶油泡芙最后传染
+

@@ -9717,3 +9717,18 @@ live，视频，杂志，直播，CD售卖、内嵌卡牌游戏，这app内容�
 确实，感觉到了新瓶旧酒的醇厚</blockquote>
 他这要是真能玩出点花样我还挺期待的，要还是老模式的话，明明都已经三团了，还非要在加一个干嘛，那我只能觉得可能是真的营收不达标，着急圈钱了
 
+
+
+*****
+
+####  nufawneafg  
+##### 8413#       发表于 2022-10-16 21:56
+
+ 本帖最后由 nufawneafg 于 2022-10-16 22:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944770&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-10-16 21:51</a>
+他这要是真能玩出点花样我还挺期待的，要还是老模式的话，明明都已经三团了，还非要在加一个干嘛，那我只 ...</blockquote>
+只能说意图是很明显，只能看成品和市场了
+不过可以确定的是市场还挺疲软的
+大概率的是成品也很难划时代，唯一利好就是在供给端处于优势地位，但手气这玩意也太也玄学了
+那就没招了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

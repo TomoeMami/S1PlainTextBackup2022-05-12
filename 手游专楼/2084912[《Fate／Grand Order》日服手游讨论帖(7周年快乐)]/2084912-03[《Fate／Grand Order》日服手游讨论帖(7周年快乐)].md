@@ -1507,3 +1507,17 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 今天举行的マチ★アソビFGO舞台活动中，赤羽根向开发人员提出最想要的功能是一键技能强化，但是 ...</blockquote>
 都是借口  说白了还不是不想动？
 
+
+
+*****
+
+####  katun  
+##### 3129#       发表于 2022-10-16 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941059&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-16 18:26</a>
+
+转自B站：
+
+今天举行的マチ★アソビFGO舞台活动中，赤羽根向开发人员提出最想要的功能是一键技能强化，但是 ...</blockquote>
+这居然是dena的专利，那为啥宝大师最近才实装一键强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

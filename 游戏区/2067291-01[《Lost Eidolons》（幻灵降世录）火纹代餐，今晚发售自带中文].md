@@ -1418,3 +1418,19 @@ B站上的直播录像 犹豫不决的可以先看看
 
 看上的那个女猎人跑了，还会不会回来啊？
 
+
+
+*****
+
+####  bwsusaga  
+##### 130#         楼主| 发表于 2022-10-16 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944284&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-16 21:23</a>
+
+看上的那个女猎人跑了，还会不会回来啊？</blockquote>
+看楼里说之后还会再出现，
+
+是卡林么，
+
+她出现的那个回合，她喜欢的道具送训练长矛+士兵徽章，一阶段基本就快满了。
+
