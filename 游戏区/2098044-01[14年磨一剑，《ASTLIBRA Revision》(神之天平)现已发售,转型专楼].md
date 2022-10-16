@@ -2888,3 +2888,26 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 天平如果一边倒会削弱多少效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我看书能加经验获取
 
+
+
+*****
+
+####  黒長直姫  
+##### 273#       发表于 2022-10-16 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943886&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-16 21:01</a>
+雪山这个200T有什么说法？戴了那个-9999敏的道具也没触发</blockquote>
+装备栏的重量那里数字大于200吧大概 我也是上了金锚不行然后把天平下空了没减重就行了，但是一直没注意数字
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蓝雉  
+##### 274#         楼主| 发表于 2022-10-16 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944271&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-16 21:22</a>
+
+天平如果一边倒会削弱多少效果，我看书能加经验获取，看了下，上面的数字就是效果百分比么 ...</blockquote>
+百分比
+

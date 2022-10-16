@@ -9675,3 +9675,24 @@ live，视频，杂志，直播，CD售卖、内嵌卡牌游戏，这app内容�
 
 本来就算无噱头纯管人也是全新团啊，坛友在想什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 8409#       发表于 2022-10-16 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944401&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-16 21:29</a>
+本来就算无噱头纯管人也是全新团啊，坛友在想什么呢
+又不可能让以前的成员为主力来直播，没签这个合 ...</blockquote>
+当然是想着玩点新鲜的呗，目前看不还老一套吗，音乐剧就挺新鲜的
+
+*****
+
+####  nufawneafg  
+##### 8410#       发表于 2022-10-16 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57944489&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-10-16 21:35</a>
+当然是想着玩点新鲜的呗，目前看不还老一套吗，音乐剧就挺新鲜的</blockquote>
+确实，感觉到了新瓶旧酒的醇厚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

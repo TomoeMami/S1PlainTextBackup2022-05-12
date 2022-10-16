@@ -91,3 +91,17 @@
 方便的话麻烦加一下QQ1940656321,已经重roll了就当我没说</blockquote>
 加了加了
 
+
+
+*****
+
+####  vivaynia  
+##### 94#       发表于 2022-10-16 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57936912&amp;ptid=2098027" target="_blank">贝极星 发表于 2022-10-16 14:55</a>
+
+加了加了</blockquote>
+你好，我这边没收到好友通知，方便的话能提供一下你的联系方式吗。或者你直接发吧我也不怕开盒。
+
+安徽省合肥市蜀山区安徽医科大学第一附属医院外科一号楼 15955139180 姓名一二三
+
