@@ -3120,3 +3120,21 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 主角家后院的宝箱怎么拿？
 
+
+
+*****
+
+####  dookiee  
+##### 294#       发表于 2022-10-17 00:05
+
+各位讨论剧情可以反白一下吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一天打一章但也想看看漏油的反馈，不想被剧透呀
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  易方世界  
+##### 295#       发表于 2022-10-17 00:09
+
+战斗强度跟难度比想象中要大的多啊……难怪说能玩60个小时。
+

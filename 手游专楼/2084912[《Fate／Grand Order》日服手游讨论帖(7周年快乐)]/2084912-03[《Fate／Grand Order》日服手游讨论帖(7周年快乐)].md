@@ -1541,3 +1541,16 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 估计就是想拖到某个时间点再实装让玩家感恩戴德，结果突然发现被其他公司截胡了，自己不敢抄也懒得想新方法...只好摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新吾  
+##### 3132#       发表于 2022-10-17 00:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想绕过专利有的是办法
+
+例如隔壁pcr就推出了一个道具能让玩家从0直接升到满破（平时这道具一个月只送你一个），你游完全可以推出一个xx道具碎片，让玩家打通活动猴收集合成来控制获取数量。
+
+再说了，人家有专利不代表不能购买使用权，你游躺着恰了这么多年都不肯想想办法方便玩家吗。
+
