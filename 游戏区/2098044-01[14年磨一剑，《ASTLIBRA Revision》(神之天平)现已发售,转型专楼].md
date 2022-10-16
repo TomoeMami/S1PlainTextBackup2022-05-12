@@ -2578,3 +2578,15 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 —— 来自 OPPO PCLM10, Android 12上的  ...</blockquote>
 其实可以的，断桥那点在下面按上+攻击，那个高挑攻击接二段跳就能上去，我就是这么被骗到了。
 
+
+
+*****
+
+####  朔洵千夜  
+##### 244#       发表于 2022-10-16 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57936066&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-16 13:52</a>
+
+其实这个boss可以二阶段用弩逃课，伤害贼高，特别是装了投掷强化</blockquote>
+我用的手柄，每次用弩瞄准线都得转半天，实战还是算了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
