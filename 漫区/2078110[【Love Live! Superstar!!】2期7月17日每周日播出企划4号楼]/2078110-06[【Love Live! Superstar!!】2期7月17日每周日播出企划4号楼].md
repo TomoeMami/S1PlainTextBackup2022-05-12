@@ -9644,3 +9644,34 @@ syl其实我是不太清楚，这个经济环境下身为服务业为什么要�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">游戏sif2啊
 
+
+
+*****
+
+####  Kfly  
+##### 8405#       发表于 2022-10-16 21:23
+
+live，视频，杂志，直播，CD售卖、内嵌卡牌游戏，这app内容真多啊
+
+*****
+
+####  nufawneafg  
+##### 8406#       发表于 2022-10-16 21:24
+
+就是把现在分散各处的内容集合了一下吧
+
+*****
+
+####  Enakina  
+##### 8407#       发表于 2022-10-16 21:28
+
+感觉就是个借着管人噱头的全新团了
+所以这次主角还是abc的人吗
+
+*****
+
+####  nufawneafg  
+##### 8408#       发表于 2022-10-16 21:29
+
+本来就算无噱头纯管人也是全新团啊，坛友在想什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
