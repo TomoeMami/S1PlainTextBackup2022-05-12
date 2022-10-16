@@ -3152,3 +3152,17 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 论坛助手,iPhone</blockquote>
 [https://w.atwiki.jp/astlibra/](https://w.atwiki.jp/astlibra/)
 
+
+
+*****
+
+####  yla  
+##### 297#       发表于 2022-10-17 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943952&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-16 21:04</a>
+
+这第四章剧情太乐了,正经和严肃穿插的好到位顺便小黑的比基尼后面能常驻就好了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你穿她衣服，她就穿比基尼。五章结束的时候她入队走几步路的时候，你换她衣服她也会变比基尼
+

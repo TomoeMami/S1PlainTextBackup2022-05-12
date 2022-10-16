@@ -3893,3 +3893,15 @@ https://blog.novelai.net/novelai-improvements-on-stable-diffusion-e10d38db82ac
 画B者说：</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我怎么看到群U整的挺<strong>逼</strong>真的
 
+
+
+*****
+
+####  mintslime  
+##### 303#       发表于 2022-10-17 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946563&amp;ptid=2098197" target="_blank">nexus1 发表于 2022-10-16 23:44</a>
+
+我怎么看到群U整的挺逼真的</blockquote>
+全身图远看有条缝观感就不错，但是事实上如果截那种带大马赛克的黄图丢进ai里去码，你就会受到严重精神伤害，更过分的是，有些生成图码比原图还厚
+
