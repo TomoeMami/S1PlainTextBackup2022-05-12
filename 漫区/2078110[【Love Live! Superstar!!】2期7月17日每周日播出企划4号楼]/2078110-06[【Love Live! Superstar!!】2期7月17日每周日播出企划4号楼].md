@@ -9398,3 +9398,53 @@ QQ截图20221016200907.png
 
 意义不明的pv，所以和以前有什么区别呢，管人要素我都没看出来
 
+
+
+*****
+
+####  愛さ実  
+##### 8378#       发表于 2022-10-16 20:14
+
+说了个“卒业まで”，难道这团有毕业制度？在宣传pv提这事有点怪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 8379#       发表于 2022-10-16 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好怪啊，365天的意思是让你下个APP？那确实Ltuber了，根本不上油管（）
+
+*****
+
+####  iuhehc  
+##### 8380#       发表于 2022-10-16 20:18
+
+哪种类型的啊 不会是超天酱那种吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kfly  
+##### 8381#       发表于 2022-10-16 20:21
+
+有官推了
+
+<img src="https://img.saraba1st.com/forum/202210/16/202128cggpbkcrkw76r5sr.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ184-39cpZaT3cSmr-sg.jpg</strong> (104.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 20:21 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/202132jvlhww6dy2nqdivd.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ184-ak9aK28T3cSsg-g0.jpg</strong> (85 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 20:21 上传
+

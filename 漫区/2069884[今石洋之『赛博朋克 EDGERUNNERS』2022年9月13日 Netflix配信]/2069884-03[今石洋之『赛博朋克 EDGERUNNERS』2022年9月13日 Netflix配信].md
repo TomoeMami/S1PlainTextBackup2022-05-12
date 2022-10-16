@@ -1959,3 +1959,16 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 
 想问下这部是不是BE，我看了一半闻到危险的味道<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zxzx7753  
+##### 3149#       发表于 2022-10-16 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942797&amp;ptid=2069884" target="_blank">猫睛石 发表于 2022-10-16 20:03</a>
+想问下这部是不是BE，我看了一半闻到危险的味道</blockquote>
+不算be也不he 算个ne<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

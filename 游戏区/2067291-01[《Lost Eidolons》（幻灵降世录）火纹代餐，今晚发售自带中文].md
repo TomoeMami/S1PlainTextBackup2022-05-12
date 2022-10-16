@@ -1381,3 +1381,17 @@ B站上的直播录像 犹豫不决的可以先看看
 
 打到第八章了，台本意外的很不错，有趣的同时又很成熟，没有日式过家家的味道，配音也很到位，就是我好后悔开永久死亡模式啊，每次打到关卡最后用完悔棋次数，一个不注意死一个人就得整盘重来，能不能关掉啊
 
+
+
+*****
+
+####  bwsusaga  
+##### 127#         楼主| 发表于 2022-10-16 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941040&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-16 18:24</a>
+
+主要年轻漂亮的都是隔壁型男队里的，自己队伍里就是群大老粗，就寡妇最温润了 ...</blockquote>
+毕竟主角队里大半农民
+
+不像项羽队里贵族多，颜值差距就很真实<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
