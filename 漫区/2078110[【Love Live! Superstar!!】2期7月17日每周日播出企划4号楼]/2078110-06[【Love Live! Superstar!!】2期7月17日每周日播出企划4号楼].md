@@ -9068,3 +9068,17 @@ live啊。不过鲤鱼和リスアニ确实渊源不小，之前北京碰到emi�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是因为草台才掀了桌子
 
+
+
+*****
+
+####  qratosone  
+##### 8351#       发表于 2022-10-16 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57935289&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-16 12:56</a>
+
+总之“菜”和“摆”可以解释所有问题
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+u1s1，最后这两集并不是摆，而是直接报复社会
+

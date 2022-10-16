@@ -3845,3 +3845,15 @@ https://blog.novelai.net/novelai-improvements-on-stable-diffusion-e10d38db82ac
 在漫区发了个Sampler和Steps相关测试的贴
 [https://bbs.saraba1st.com/2b/thread-2099958-1-1.html](https://bbs.saraba1st.com/2b/thread-2099958-1-1.html)
 
+
+
+*****
+
+####  cyp909  
+##### 299#       发表于 2022-10-16 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57936756&amp;ptid=2098197" target="_blank">violettor 发表于 2022-10-16 14:44</a>
+
+能具体说下是哪两个ckpt混合吗，谢谢！</blockquote>
+原版sd+novelai的latest，0.75+0.25最逼真，但是0.65/0.5最好抽卡
+

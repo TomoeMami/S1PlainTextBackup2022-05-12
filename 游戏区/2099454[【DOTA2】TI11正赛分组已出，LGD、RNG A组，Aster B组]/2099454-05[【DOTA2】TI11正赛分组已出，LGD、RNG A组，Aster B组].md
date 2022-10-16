@@ -1574,3 +1574,179 @@ lgd赢了尼楼应该内斗到死了，最后以有个人自爆聊龙骑而结�
 
 雪碧要输南美队第一把了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nxmonitor  
+##### 6202#       发表于 2022-10-16 15:14
+
+说不定真的是TS、OG和LGD互相练，练出一个拖后阵容然后纷纷被打爆呢……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sodah  
+##### 6203#       发表于 2022-10-16 15:14
+
+雪碧也干了。
+
+*****
+
+####  4591  
+##### 6204#       发表于 2022-10-16 15:14
+
+这一天半看下来,像TI4,全是在推进
+
+*****
+
+####  nowaki  
+##### 6205#       发表于 2022-10-16 15:15
+
+雪碧1换6
+
+*****
+
+####  聚散浮云  
+##### 6206#       发表于 2022-10-16 15:15
+
+超级脑浆来了
+
+*****
+
+####  二宮飛鳥酱  
+##### 6207#       发表于 2022-10-16 15:15
+
+说完南美队送了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 6208#       发表于 2022-10-16 15:15
+
+瞎逼乱冲
+
+*****
+
+####  反方向的波  
+##### 6209#       发表于 2022-10-16 15:16
+
+丫头肉死了我们四赵云这波好打
+
+*****
+
+####  nakeroudaibe  
+##### 6210#       发表于 2022-10-16 15:16
+
+雪碧又是让人目瞪口呆的大劣团灭对面<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  米德  
+##### 6211#       发表于 2022-10-16 15:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虚空没大还敢这么冲
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 6212#       发表于 2022-10-16 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937143&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-16 15:16</a>
+丫头肉死了我们四赵云这波好打</blockquote>
+死的不是马西么
+
+*****
+
+####  北欧王座  
+##### 6213#       发表于 2022-10-16 15:16
+
+先辈就是鲁路修，承受了恶意。我哭死
+
+*****
+
+####  反方向的波  
+##### 6214#       发表于 2022-10-16 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937150&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-16 15:16</a>
+死的不是马西么</blockquote>
+我的我的看岔了
+
+*****
+
+####  nxmonitor  
+##### 6215#       发表于 2022-10-16 15:17
+
+TI4根本不是推进啊，小组赛淘汰赛各种战术都有，只是VG玩推进到了总决赛，结果碰到NB不玩推进就拼谁拳头更硬的直接没了……
+
+*****
+
+####  情商  
+##### 6216#         楼主| 发表于 2022-10-16 15:17
+
+这波茶队打得可以
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  テロメア  
+##### 6217#       发表于 2022-10-16 15:18
+
+大老师，这是何意啊
+
+*****
+
+####  情商  
+##### 6218#         楼主| 发表于 2022-10-16 15:19
+
+ti4不是推进，ti4是rotk用推进把除了newbee以外的队送走了，然后宇智波下面cosplay
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  IG.430  
+##### 6219#       发表于 2022-10-16 15:19
+
+这蜘蛛，xxs跳脸没反应的，xxs都愣了
+
+*****
+
+####  非建政专用号  
+##### 6220#       发表于 2022-10-16 15:20
+
+蜘蛛累了，这把就是xxs疯狂骑脸，开摆<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 6221#       发表于 2022-10-16 15:20
+
+壳以壳以，ori出的黯灭，跟哥们儿三千分沙发一个思路
+
+*****
+
+####  坚定的团子党  
+##### 6222#       发表于 2022-10-16 15:21
+
+卧槽，小强戳四个
+
+*****
+
+####  DearRye  
+##### 6223#       发表于 2022-10-16 15:21
+
+卧槽，马修，刺了个潮汐大
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 6224#       发表于 2022-10-16 15:21
+
+wdnmd 刺出潮汐大
+ka神加油啊
+
