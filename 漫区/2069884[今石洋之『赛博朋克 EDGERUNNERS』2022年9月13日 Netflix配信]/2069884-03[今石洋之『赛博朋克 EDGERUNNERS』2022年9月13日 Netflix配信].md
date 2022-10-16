@@ -1923,3 +1923,17 @@ CDPR最初给出的条件：主角大卫是学生身份、以及与夜之城为�
 
 今天才看完，看完感觉游戏本体和原作世界观确实比较过时，加上动画里的东西游戏里九成都没有就更气了。
 
+
+
+*****
+
+####  快递抢不到  
+##### 3146#       发表于 2022-10-16 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57930510&amp;ptid=2069884" target="_blank">咸鱼无双 发表于 2022-10-16 01:21</a>
+
+这个全文两万字哪里有的看</blockquote>
+[https://www.famitsu.com/news/202210/15278443.html](https://www.famitsu.com/news/202210/15278443.html)
+
+官网找到原文。
+
