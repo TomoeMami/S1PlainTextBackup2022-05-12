@@ -8298,3 +8298,15 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 
 <img src="https://img.saraba1st.com/forum/202210/16/141848poocoptrgi6r11t0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  HATENA  
+##### 788#       发表于 2022-10-16 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57934378&amp;ptid=2051733" target="_blank">Ky·Kiske 发表于 2022-10-16 11:52</a>
+
+被SD三兄弟玩成屎了，这关混战是不是不多人没法打，三个初生血又多攻击力又变态 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">先让队友跟79骡去拉会仇恨，然后自己选一个拉走单挑，打完再拉一个打死，剩下一个就随便打了
+

@@ -72,3 +72,22 @@
 111恭喜中奖，麻烦私信窝联系方式或者地址</blockquote>
 方便的话麻烦加一下QQ1940656321,已经重roll了就当我没说
 
+
+
+*****
+
+####  乐一丶  
+##### 92#       发表于 2022-10-16 14:53
+
+黑幕我！啊结束了 那好吧 我自己也抢到了捏嘿嘿
+
+*****
+
+####  贝极星  
+##### 93#         楼主| 发表于 2022-10-16 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57936812&amp;ptid=2098027" target="_blank">vivaynia 发表于 2022-10-16 14:48</a>
+
+方便的话麻烦加一下QQ1940656321,已经重roll了就当我没说</blockquote>
+加了加了
+
