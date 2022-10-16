@@ -3138,3 +3138,17 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 战斗强度跟难度比想象中要大的多啊……难怪说能玩60个小时。
 
+
+
+*****
+
+####  casle  
+##### 296#       发表于 2022-10-17 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946487&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-16 23:37</a>
+
+谁发个日文攻略地址 全收集太痛苦了  
+
+论坛助手,iPhone</blockquote>
+[https://w.atwiki.jp/astlibra/](https://w.atwiki.jp/astlibra/)
+
