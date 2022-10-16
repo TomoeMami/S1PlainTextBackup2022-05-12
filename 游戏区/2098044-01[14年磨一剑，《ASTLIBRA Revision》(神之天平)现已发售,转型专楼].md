@@ -2879,3 +2879,12 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 这第四章剧情太乐了,正经和严肃穿插的好到位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lazycat233  
+##### 272#       发表于 2022-10-16 21:22
+
+天平如果一边倒会削弱多少效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，我看书能加经验获取
+
