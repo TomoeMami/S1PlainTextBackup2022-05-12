@@ -3260,3 +3260,16 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 请问能用Steam Deck玩吗？看了下ProtonDB上没有信息
 
+
+
+*****
+
+####  iceplatinum  
+##### 307#       发表于 2022-10-17 07:01
+
+<blockquote>蓝雉 发表于 2022-10-16 21:04
+这第四章剧情太乐了,正经和严肃穿插的好到位顺便小黑的比基尼后面能常驻就好了
+
+ ...</blockquote>
+可以常驻吧，你换她得衣服就行了
+
