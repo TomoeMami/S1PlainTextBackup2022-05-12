@@ -8991,3 +8991,15 @@ live啊。不过鲤鱼和リスアニ确实渊源不小，之前北京碰到emi�
 要是阴谋论吃得开接受程度这么高，也就不用指望选举了，没用的，不如趁早结束这场哑迷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 属于是企划不PUA观众自我CPU上了
 
+
+
+*****
+
+####  剁  
+##### 8345#       发表于 2022-10-16 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932449&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-16 09:06</a>
+
+真要降某个人的人气，温水煮青蛙肯定比你直接丢核弹更能达到目的，再说这一看就有毛病的剧本快把所有人都炸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐女士现在还是烫，估计不行
+

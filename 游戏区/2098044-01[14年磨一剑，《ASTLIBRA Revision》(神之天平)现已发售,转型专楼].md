@@ -2238,3 +2238,12 @@ md，第四章这个蛇神，第二形态老是直接秒我
 
 斗技场第四章第四关怎么打啊,那几口大锅太硬了,是有什么机制吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lazycat233  
+##### 212#       发表于 2022-10-16 11:47
+
+切屏游戏暂停能不能改啊，想播片的时候切群聊啥的
+

@@ -5836,3 +5836,20 @@ https://www.bilibili.com/video/BV14e4y1v7sy
 —— 来自 samsung SM-G9880, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 想起来了，这玩意已经宣布了好久了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">造型好像比最开始有变化
 
+
+
+*****
+
+####  医生狼多  
+##### 471#       发表于 2022-10-16 11:44
+
+雷蛇发布全球首款5G游戏掌机——雷蛇锋刃游戏掌机（RAZER EDGE），提供Wi-Fi版、创始人版、Verizon 5G版（eSIM）三种版本，售价分别为399.99美元（约合人民币2876元）、499.99美元（约合人民币3595元），5G版暂未公布价格，目前掌机仅面向美国市场提供。
+
+雷蛇表示，雷蛇锋刃游戏掌机原生适配数千个3A游戏，随时随地无限制地访问游戏资源，同时保证远程使用、内容兼容以及使用体验。
+
+核心配置上，该掌机配备一块6.8英寸AMOLED屏，分辨率为2400*1080，支持144Hz高刷，内置LPDDR5 8GB运存，128GB存储（UFS 3.1），支持最高2TB的MicroSD扩展，前置500万像素镜头，5000mAh电池。
+
+雷蛇锋刃游戏掌机搭载一颗高通骁龙G3x Gen 1处理器，拥有3Ghz八核Kryo CPU和Adreno GPU，可以看做是骁龙888的增强版，绝对性能弱于骁龙8。
+
+据了解，掌机支持Android游戏、PC串流和Xbox云游戏，机身为260*85*11 mm，平板模式重264g，安上手柄重401g，手柄配备3.5mm耳机接口。
+
