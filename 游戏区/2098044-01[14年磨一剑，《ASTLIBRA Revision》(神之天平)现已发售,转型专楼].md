@@ -2168,3 +2168,15 @@ md，第四章这个蛇神，第二形态老是直接秒我
 可以看下156楼反白，最好选择不要带，之后打BOSS前出来对话</blockquote>
 沃日，回档
 
+
+
+*****
+
+####  sahhhh6x  
+##### 206#       发表于 2022-10-16 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57924301&amp;ptid=2098044" target="_blank">帆影FX 发表于 2022-10-15 19:08</a>
+
+这第六章的解谜就离谱，我都不知道不看攻略怎么过，好多需要用到物品的交互一点提示都没有 ...</blockquote>
+看不懂日文啊 4个宝石怎么拿的啊 原地转圈了好久了
+
