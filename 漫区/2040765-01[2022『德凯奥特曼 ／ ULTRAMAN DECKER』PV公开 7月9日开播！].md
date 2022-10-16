@@ -462,3 +462,19 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 赛文OV太久前看的，完全没印象了……
 
+
+
+*****
+
+####  浅川雏羽  
+##### 656#       发表于 2022-10-16 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932849&amp;ptid=2040765" target="_blank">喷火飞龙 发表于 2022-10-16 09:50</a>
+谢谢，所以是没有团当着风森面取回变身能力然后自己变身（类似这集这种）的桥段？
+
+赛文OV太久前看的，完 ...</blockquote>
+嗯，因为团和风森同时存在的情况下，自始自终都只有团能变身，风森只是被借了形象
+到了风森自己成为赛文的02ov，团就没有登场了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

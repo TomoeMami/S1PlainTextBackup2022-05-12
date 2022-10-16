@@ -5490,3 +5490,191 @@ Pgl今天准时开比赛，我就不杀吗了
 
 开了开了兄弟们，RNG开了
 
+
+
+*****
+
+####  Kazepollar  
+##### 5140#       发表于 2022-10-16 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932955&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-16 09:59</a>
+ wpc就是让三追四啊</blockquote>
+后面还有一届wpc，四比二复仇了
+
+*****
+
+####  xuzy0919  
+##### 5141#       发表于 2022-10-16 10:03
+
+这入场好蠢啊
+
+*****
+
+####  坚定的团子党  
+##### 5142#       发表于 2022-10-16 10:04
+
+妈的，突然发现abed打lgd第一局的兽出了三双鞋，很有艺术天赋呀<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  吃货红毛  
+##### 5143#       发表于 2022-10-16 10:05
+
+歪日 自由基没播 茶队这比赛是杰特么大出
+
+*****
+
+####  北欧王座  
+##### 5144#       发表于 2022-10-16 10:06
+
+看到杰出就烦。昨天打完还在给萧瑟洗地。然后说自己一直吹rng。我吹你妈个逼
+
+*****
+
+####  情商  
+##### 5145#         楼主| 发表于 2022-10-16 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932955&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-16 09:59</a>
+wpc就是让三追四啊</blockquote>
+后面还有一届
+
+*****
+
+####  tasuku  
+##### 5146#       发表于 2022-10-16 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932727&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-16 09:37</a>
+
+不要靠近a畜，会变得不幸
+
+超级集美论坛已经自动无视打eg第二把鞭的doom解决掉rtz虚空一脚踹开翻盘大门，然 ...</blockquote>
+你也云了吧
+
+哥哥先死好不好
+
+*****
+
+####  UnhappyTails  
+##### 5147#       发表于 2022-10-16 10:08
+
+今晚哈了大酒，自己瞎琢磨突然想了很多思维盲区
+
+其实仔细一想ru表一定要捧处长这样一个低能兰裤裆阿斗到底是图什么呢？
+
+即便是开头选错了，maybe这个一代饭圈王走了重组的时候不就该连ame一起换了吗
+
+就算你说2不是中国人吸不到cndota粉，4太肥，5脑浆，这不还有量子鞭吗
+
+量子鞭不但脑子比蠢鱼好，而且还知道怎么炒热度，知道怎么搞粉丝经济还有较强的语言能力，不像哮喘晚期只会龙咳
+
+仔细一想让量子鞭立饭圈人设还有更多好处，比如说量子鞭拿过ti，可以用成绩和清流粉干住黑子，比如处长可以一步到位成为最佳垃圾桶，量子鞭一尿裤就推给处长，毕竟量子鞭都尿了处长不尿的局就没见过
+
+如果ru表这么玩的话，可以想象现在的舆论会改变非常多，不会有成体系的人朝着ame这个德不配位旗帜开炮
+
+所以潘婕到底图啥，就因为ame他妈超爱他这张脸？？？
+
+*****
+
+####  やト  
+##### 5148#       发表于 2022-10-16 10:09
+
+ 饭圈运营不是脸第一？
+
+*****
+
+####  tasuku  
+##### 5149#       发表于 2022-10-16 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933042&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-16 10:08</a>
+
+今晚哈了大酒，自己瞎琢磨突然想了很多思维盲区
+
+其实仔细一想ru表一定要捧处长这样一个低能兰裤裆阿斗到底 ...</blockquote>
+搞不懂女性审美的
+
+很多人就好么么鳖这种太监味儿
+
+*****
+
+####  lmslardar  
+##### 5150#       发表于 2022-10-16 10:11
+
+虽然我知道拿出来是嘲讽集美甩锅bian的，但抛去甩锅部分其他的说的倒也不是没道理
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  强袭型抹布  
+##### 5151#       发表于 2022-10-16 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933054&amp;ptid=2099454" target="_blank">やト 发表于 2022-10-16 10:09</a>
+饭圈运营不是脸第一？</blockquote>
+a畜的脸也配吹啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  吃货红毛  
+##### 5152#       发表于 2022-10-16 10:11
+
+茶来了个死灵龙 支持正义处刑
+
+*****
+
+####  枯风瘦雪02  
+##### 5153#       发表于 2022-10-16 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933042&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-16 10:08</a>
+
+今晚哈了大酒，自己瞎琢磨突然想了很多思维盲区
+
+其实仔细一想ru表一定要捧处长这样一个低能兰裤裆阿斗到底 ...</blockquote>
+阿bian又不是LGD自己人，也表现过了不会乖乖听老板话，哪来的培养价值
+
+*****
+
+####  やト  
+##### 5154#       发表于 2022-10-16 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933071&amp;ptid=2099454" target="_blank">强袭型抹布 发表于 2022-10-16 10:11</a>
+
+a畜的脸也配吹啊</blockquote>
+ 但实际效果不是挺好的
+
+*****
+
+####  逃离二次元  
+##### 5155#       发表于 2022-10-16 10:11
+
+a畜以前长得还行
+现在已经残了，全靠美颜
+
+*****
+
+####  tasuku  
+##### 5156#       发表于 2022-10-16 10:11
+
+这事也不能怪出神吧
+
+**V蛇不卖版权就没观战延迟老子随便自己切
+
+归根结底就是沃尔沃司马
+
+*****
+
+####  柚上舍人  
+##### 5157#       发表于 2022-10-16 10:12
+
+今天看看拳击手的成色
+
+*****
+
+####  Keynes  
+##### 5158#       发表于 2022-10-16 10:12
+
+你上微博搜搜ame能看到不少旅人发情你就知道了
+
