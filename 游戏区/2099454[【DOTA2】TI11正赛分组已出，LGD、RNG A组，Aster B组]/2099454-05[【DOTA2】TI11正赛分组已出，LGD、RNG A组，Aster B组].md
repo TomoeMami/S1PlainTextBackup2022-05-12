@@ -4303,3 +4303,207 @@ skiter真的好强，又拿绝活带批九吃分了，他真的我哭死
 
 别问，团队决策
 
+
+
+*****
+
+####  StrangerJ  
+##### 6563#       发表于 2022-10-16 17:01
+
+大木现在认得全技能效果吗
+
+*****
+
+####  六娃  
+##### 6564#       发表于 2022-10-16 17:01
+
+这把猴爹火女量子鞭谜团脑浆歪萨尔，感觉要带躺了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 6565#       发表于 2022-10-16 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57939225&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-16 16:56</a>
+选谜团要G了……</blockquote>
+刚刚ts教了一把谜团滚滚
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 6566#       发表于 2022-10-16 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57939328&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-16 17:01</a>
+这把猴爹火女量子鞭谜团脑浆歪萨尔，感觉要带躺了</blockquote>
+真的是猴爹的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 6567#       发表于 2022-10-16 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57939285&amp;ptid=2099454" target="_blank">拿拿子 发表于 2022-10-16 16:59</a>
+
+集美论坛早就进化成腚姐论坛了，浑身G点，皮球id有个Dreame也要发帖质疑暗喻哥哥 ...</blockquote>
+那个应该是鳖星拉到的赞助吧，搜了下是做智能家电的
+
+*****
+
+####  adretyu67  
+##### 6568#       发表于 2022-10-16 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57939285&amp;ptid=2099454" target="_blank">拿拿子 发表于 2022-10-16 16:59</a>
+
+集美论坛早就进化成腚姐论坛了，浑身G点，皮球id有个Dreame也要发帖质疑暗喻哥哥 ...</blockquote>
+那个应该是鳖星拉到的赞助吧，搜了下是做智能家电的
+
+*****
+
+####  xuzy0919  
+##### 6569#       发表于 2022-10-16 17:02
+
+这火女，是猴爹飘了还是处长飘了
+
+*****
+
+####  Hieda  
+##### 6570#       发表于 2022-10-16 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57939358&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-16 17:02</a>
+那个应该是鳖星拉到的赞助吧，搜了下是做智能家电的</blockquote>
+寻觅的扫拖机器人泥潭应该挺多人用的
+
+
+
+*****
+
+####  非建政专用号  
+##### 6571#       发表于 2022-10-16 17:04
+
+bzm吃九层油，中东王爷代打了
+
+*****
+
+####  Litccc  
+##### 6572#       发表于 2022-10-16 17:04
+
+追觅的拖地机器人挺好用的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 6573#       发表于 2022-10-16 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57939387&amp;ptid=2099454" target="_blank">Hieda 发表于 2022-10-16 17:04</a>
+寻觅的扫拖机器人泥潭应该挺多人用的</blockquote>
+一般，洗地机不如添可，没干湿分离
+机器人虽然石头找了肖战，东西还可以
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 6574#       发表于 2022-10-16 17:05
+
+哦豁，亚军小狗
+
+*****
+
+####  adretyu67  
+##### 6575#       发表于 2022-10-16 17:05
+
+仙贝小狗，看样子这把真是猴爹带躺了
+
+*****
+
+####  坚定的团子党  
+##### 6576#       发表于 2022-10-16 17:05
+
+季军小狗来啦
+
+*****
+
+####  吃货红毛  
+##### 6577#       发表于 2022-10-16 17:06
+
+想看莫言火女力中暴力
+
+*****
+
+####  adretyu67  
+##### 6578#       发表于 2022-10-16 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57939415&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-16 17:05</a>
+
+哦豁，亚军小狗</blockquote>
+小狗是季军<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 6579#       发表于 2022-10-16 17:07
+
+哥们儿先把支付宝打开了，相信萧瑟！
+
+*****
+
+####  adretyu67  
+##### 6580#       发表于 2022-10-16 17:07
+
+液体打干瘪，接受0:2，1:1血赚，2:0又可以看仙贝的精彩表演了。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Horusddt  
+##### 6581#       发表于 2022-10-16 17:08
+
+这核桃单口也太尴尬了
+
+*****
+
+####  StrangerJ  
+##### 6582#       发表于 2022-10-16 17:10
+
+张盼也忒划了
+
+*****
+
+####  nowaki  
+##### 6583#       发表于 2022-10-16 17:10
+
+火女带飞局，小狗不重要
+
+*****
+
+####  吃货红毛  
+##### 6584#       发表于 2022-10-16 17:10
+
+坏了 莫言要寄
+
+*****
+
+####  迷途lite  
+##### 6585#       发表于 2022-10-16 17:10
+
+我靠，打不过就垚人
+
+*****
+
+####  非建政专用号  
+##### 6586#       发表于 2022-10-16 17:11
+
+两分钟不到中路刷新一个畜(dota2英雄)
+
+*****
+
+####  百世诸侯  
+##### 6587#       发表于 2022-10-16 17:11
+
+龟龟，才几分钟boxi来中路游走了
+
+*****
+
+####  izayoi39  
+##### 6588#       发表于 2022-10-16 17:11
+
+这boxi就是明显知道咋打lgd啊，就是线上打小明鞭，然后一直游nts，让4赵云前期很难受啊
+
