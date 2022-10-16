@@ -5794,3 +5794,12 @@ https://www.bilibili.com/video/BV14e4y1v7sy
 草 评论里有吐槽修理后寄回来的机器从1T变512G的</blockquote>
 说的就是这个：[https://www.bilibili.com/video/BV1914y177Rm](https://www.bilibili.com/video/BV1914y177Rm) <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 467#       发表于 2022-10-16 11:09
+
+雷蛇也出云掌机了，399刀
+
