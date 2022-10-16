@@ -9246,3 +9246,16 @@ u1s1，最后这两集并不是摆，而是直接报复社会
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57939179&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-16 16:53</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  川陀  
+##### 8363#       发表于 2022-10-16 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57937360&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-10-16 15:33</a>
+发现pixiv百科事典里记载了superstar动画的炎上问题，一些基本的问题都有涵盖到，大半动画集数和成员角色都 ...</blockquote>
+星二第九集和as21章简直是天作之合，都是剧情逻辑混乱不清，人物行为动机成迷，但是靠着发糖还能挽回一点点观感。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

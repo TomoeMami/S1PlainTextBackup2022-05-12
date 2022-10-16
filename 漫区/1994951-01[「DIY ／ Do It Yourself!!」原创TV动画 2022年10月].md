@@ -2191,3 +2191,15 @@ PINE JAM 官推发过一张
 Do It Your Radio!! 第 1 回开始配信，嘉宾是 市ノ瀬加那
 [https://www.onsen.ag/program/diy-anime](https://www.onsen.ag/program/diy-anime)
 
+
+
+*****
+
+####  千恋万花  
+##### 181#       发表于 2022-10-16 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57938967&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-10-16 16:44</a>
+
+Do It Your Radio!! 第 1 回开始配信，嘉宾&amp;#x662 ...</blockquote>
+下一回（10 月 30 日）的嘉宾是大森日雅（ジョブ子 役）
+

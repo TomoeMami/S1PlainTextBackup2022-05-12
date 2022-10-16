@@ -2626,3 +2626,28 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  黒長直姫  
+##### 249#       发表于 2022-10-16 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57938027&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-16 16:07</a>
+另外谁打过南瓜魔女了，30级去被打成狗</blockquote>
+简单难度第六章的装备35级打过了 
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  A1LI  
+##### 250#       发表于 2022-10-16 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57939675&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-16 17:19</a>
+
+我木棍熟练完全不涨吖 是特别难吗
+
+论坛助手,iPhone</blockquote>
+木棍特别慢……但是满收益挺高的。
+
