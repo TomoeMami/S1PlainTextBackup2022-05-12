@@ -10484,3 +10484,234 @@ QQ图片20221016194047.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  IG.430  
+##### 7362#       发表于 2022-10-16 19:42
+
+咱ti版实在是太能打了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 7363#       发表于 2022-10-16 19:43
+
+感觉脑东京前两天发挥还不如窝克<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  为了mf注册  
+##### 7364#       发表于 2022-10-16 19:43
+
+ti版聊这么多不是因为有很多人复读吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两三流浪者  
+##### 7365#       发表于 2022-10-16 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942074&amp;ptid=2099454" target="_blank">掉头学姐 发表于 2022-10-16 19:19</a>
+
+真傻 币啊，一堆说说a黑，围着lgd的比赛看啊，sg傻狗真是丢人啊</blockquote>
+你又是哪来的杂种？不看比赛怎么知道被集美捧上天的a畜在比赛里下限级发挥被狂虐然后一秒暴毙，都要像其他论坛那些没客户端连比赛都云不明白的脑残饭圈粉一遍一遍重复着“假赛”“内讧”“被女友**”？
+
+*****
+
+####  万世创伤伊莫库  
+##### 7366#       发表于 2022-10-16 19:44
+
+不过干瘪除了RNG以外剩下赛程都基本是后面的队伍了，维持今天的状态应该胜者组问题不大。后面几天就锁定RNG看好了
+
+*****
+
+####  HydraCat  
+##### 7367#       发表于 2022-10-16 19:44
+
+相信脑东京
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  吃货红毛  
+##### 7368#       发表于 2022-10-16 19:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">不说不知道 TI版居然比水星楼还能聊 我惊了
+
+*****
+
+####  Asukalangley33  
+##### 7369#       发表于 2022-10-16 19:45
+
+挤掉红包复读的水，TI版也就管人区水平！
+
+*****
+
+####  nxmonitor  
+##### 7370#       发表于 2022-10-16 19:45
+
+RNG打LGD德鲁伊起不到奇效的，因为LGD可以直接抢德鲁伊啊，Ame德鲁伊早就已经练出来了，至少比monet的熟练度高多了，还有上个major的减甲流也没拿出来过，BP上要占八师傅的便宜很难，特别是两个队那么熟悉，只能试着靠前期拼内力推平……
+
+*****
+
+####  StrangerJ  
+##### 7371#       发表于 2022-10-16 19:45
+
+ti一天这么多比赛，当然能聊了
+
+*****
+
+####  天堂蜘蛛  
+##### 7372#       发表于 2022-10-16 19:45
+
+干瘪后面别再乱拿阵容的话胜者组希望应该挺大了，RNG鳖茶这状态基本是稳胜者组了
+
+*****
+
+####  TI三冠王AME  
+##### 7373#       发表于 2022-10-16 19:45
+
+明天LGD再2:0一下RNG这楼就不用复读刷kpi了，直接进行抗洪大战
+
+*****
+
+####  天堂蜘蛛  
+##### 7374#       发表于 2022-10-16 19:46
+
+A畜德鲁伊确实算是他还可以的英雄，我也很奇怪为啥到现在还没拿过一次
+
+*****
+
+####  北条早苗  
+##### 7375#       发表于 2022-10-16 19:46
+
+光剑哥通关了啊
+
+*****
+
+####  情商  
+##### 7376#         楼主| 发表于 2022-10-16 19:47
+
+明天LGD再2:0一下RNG这楼就不用复读刷kpi了，直接进行抗洪大战
+
+*****
+
+####  外挂全家脚气  
+##### 7377#       发表于 2022-10-16 19:47
+
+牙脱落神被大锤爆艹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才说完就打回来了
+
+*****
+
+####  恐怖利刃  
+##### 7378#       发表于 2022-10-16 19:47
+
+十把玩了十个英雄了
+
+*****
+
+####  非建政专用号  
+##### 7379#       发表于 2022-10-16 19:47
+
+漏油准备抗洪，哥们在为bc祈祷，大家都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 7380#       发表于 2022-10-16 19:47
+
+德鲁伊挺适合ame的，功能就是打塔，本体笨也很难做灵感大王添乱好吧……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  HydraCat  
+##### 7381#       发表于 2022-10-16 19:48
+
+一直在打架
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  TI三冠王AME  
+##### 7382#       发表于 2022-10-16 19:49
+
+哇，miposhaka有点去年他小组赛发挥的味道了
+
+*****
+
+####  火神龙  
+##### 7383#       发表于 2022-10-16 19:49
+
+你让哥哥不玩达达利亚玩个香菱控熊是不行的呀<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两三流浪者  
+##### 7384#       发表于 2022-10-16 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942316&amp;ptid=2099454" target="_blank">HydraCat 发表于 2022-10-16 19:37</a>
+
+这也不妨碍，那兄弟你的逻辑属实是让我看不懂了
+
+是不是不是黑到高潮就必须得是扣到高潮啊</blockquote>
+都用“调侃”把a畜一赵云带四阿斗这种低能言论一笔带过了，看来你是太监论坛嘴里的温和派集美喽
+
+*****
+
+####  IG.430  
+##### 7385#       发表于 2022-10-16 19:49
+
+盒中盒
+<[img src="https://s1.ax1x.com/2022/10/16/xBrgeA.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 7386#       发表于 2022-10-16 19:49
+
+哦牛批，谭大卫终于肯老老实实玩冰女了是吧
+
+*****
+
+####  反方向的波  
+##### 7387#       发表于 2022-10-16 19:50
+
+痘痘哥带着乌克兰烧0一起狂送，今天我就没见过雪碧前十分钟有能人头领先的
+
+*****
+
+####  TI三冠王AME  
+##### 7388#       发表于 2022-10-16 19:50
+
+<img src="https://img.saraba1st.com/forum/202210/16/195025hz6p8tu8wybymdtk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 19:50 上传
+
+*****
+
+####  -SLSL-  
+##### 7389#       发表于 2022-10-16 19:50
+
+sf经济怎么这么差
+
+*****
+
+####  HydraCat  
+##### 7390#       发表于 2022-10-16 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942517&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-16 19:49</a>
+都用“调侃”把a畜一赵云带四阿斗这种低能言论一笔带过了，看来你是太监论坛嘴里的温和派集美喽 ...</blockquote>
+别尬黑，说的是两赵云，后面还补充了一句。
+前面那把我还说了四赵云，要不要一起清算啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

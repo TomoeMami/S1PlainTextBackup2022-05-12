@@ -2786,3 +2786,15 @@ syl，进度在第四章准备进祠堂，问一下，乌鸦就是一直在找�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这洞窟的龙要多少级才能打，我简单难度打都不掉血
 
+
+
+*****
+
+####  jy000129  
+##### 264#       发表于 2022-10-16 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942361&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-16 19:40</a>
+
+这洞窟的龙要多少级才能打，我简单难度打都不掉血，太肉了把，7级打头磨半天就掉一点点，是有什么机 ...</blockquote>
+要简单点就在成长里面把雷凭依点出来，要挑战就用武器慢慢磨吧
+
