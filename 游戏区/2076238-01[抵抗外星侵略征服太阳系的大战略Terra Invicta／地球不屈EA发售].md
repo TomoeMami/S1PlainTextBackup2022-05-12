@@ -1930,3 +1930,15 @@ yy一下
 
 说到这我怀疑这游戏的经济体系是不是就是照着某些主流RTS来搭的啊，任务控制点数就是人口，水油之类资源就是黄金木头（又或者是食物木头），连空间站都是标准的一二三本分得清清楚楚，和主流RTS的相似之处高达十分甚至九分<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  johnkamsar  
+##### 175#       发表于 2022-10-16 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57931211&amp;ptid=2076238" target="_blank">萼绿华 发表于 2022-10-16 04:33</a>
+越玩越深刻地体会到版本的数值水平确实就是图一乐。游戏里五花八门的各种资源，但根本上来说全都是围绕着任 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事实上水星ai还很少涉足过去，大多月球和火星，水星很容易就能拿下，算是制作组给玩家一个比较有利的分矿。
+ps：这游戏当rpg玩会更带感
+
