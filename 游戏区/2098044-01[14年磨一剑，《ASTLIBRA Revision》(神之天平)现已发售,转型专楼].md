@@ -2192,3 +2192,22 @@ md，第四章这个蛇神，第二形态老是直接秒我
 第四关有天平吗？序章2个，第二章1个，第三章1个，第四章没找到</blockquote>
 第四关没有，第五关有一个
 
+
+
+*****
+
+####  LeiaR  
+##### 208#       发表于 2022-10-16 10:22
+
+幸运和素材掉率有关吗
+
+*****
+
+####  jy000129  
+##### 209#       发表于 2022-10-16 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57931148&amp;ptid=2098044" target="_blank">yla 发表于 2022-10-16 03:52</a>
+
+第四章最后boss房前的存档点右上跳到屋顶往右走</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">感谢，显示箱子的被动到这里不灵了，难怪找不到的
+

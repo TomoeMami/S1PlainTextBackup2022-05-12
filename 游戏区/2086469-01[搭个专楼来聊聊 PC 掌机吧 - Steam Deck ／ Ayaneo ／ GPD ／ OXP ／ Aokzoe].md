@@ -5782,3 +5782,15 @@ https://www.bilibili.com/video/BV14e4y1v7sy
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  bypass  
+##### 466#         楼主| 发表于 2022-10-16 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57932054&amp;ptid=2086469" target="_blank">Fuero 发表于 2022-10-16 08:14</a>
+
+草 评论里有吐槽修理后寄回来的机器从1T变512G的</blockquote>
+说的就是这个：[https://www.bilibili.com/video/BV1914y177Rm](https://www.bilibili.com/video/BV1914y177Rm) <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
