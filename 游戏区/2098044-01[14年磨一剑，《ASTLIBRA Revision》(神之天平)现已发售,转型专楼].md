@@ -2353,3 +2353,15 @@ md，第四章这个蛇神，第二形态老是直接秒我
 这游戏真好玩，连击手感也不错，到手武器不刷满熟练浑身难受
 因为技能树锁死了点不到高级水系技能，大眼球我用3000多块钱那根随机落雷的雷杖修脚修死了，带盾格挡回血，自动连击还能蹭点精力，感觉这boss战打法很自由的嘛，虽然感觉可能不是正解就是（
 
+
+
+*****
+
+####  蓝雉  
+##### 223#         楼主| 发表于 2022-10-16 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57935775&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-16 13:30</a>
+这游戏真好玩，连击手感也不错，到手武器不刷满熟练浑身难受
+因为技能树锁死了点不到高级水系技能，大眼球 ...</blockquote>
+其实这个boss可以二阶段用弩逃课，伤害贼高，特别是装了投掷强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
