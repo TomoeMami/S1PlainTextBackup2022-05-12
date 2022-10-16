@@ -3812,3 +3812,17 @@ Steps: 28, Sampler: Euler, CFG scale: 12, Seed: 1969404127, Size: 512x512, Model
 1girl, ahoge, animal ear fluff, animal ears, blonde hair, blue eyes, blush, breasts, cat ears, cat g ...</blockquote>
 出现了猫类才会有的第二对MiMi, 福瑞狂喜
 
+
+
+*****
+
+####  zerona  
+##### 296#       发表于 2022-10-16 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57920629&amp;ptid=2098197" target="_blank">mahoraga 发表于 2022-10-15 15:45</a>
+
+https://blog.novelai.net/novelai-improvements-on-stable-diffusion-e10d38db82ac
+
+既然被人强行开源了 ...</blockquote>
+谢谢。我也看了下文章。看到了我关心的关于训练时候采用分辨率的解释。看来要为了匹配注释，那么必须把所有的图都改到512*512 以内，不然就会被“掐头去尾”然后因为注释“错误” 造成训练bug。这个版本如果能赶紧出现的话还好，不然这一部操作就是必须了。
+
