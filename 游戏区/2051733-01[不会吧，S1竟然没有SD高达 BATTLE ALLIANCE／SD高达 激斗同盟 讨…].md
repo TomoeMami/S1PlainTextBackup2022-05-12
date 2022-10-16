@@ -8263,3 +8263,14 @@ SUB2的白板是24S一发，这个在游戏内用LB/RB可以切换查看的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">被SD三兄弟玩成屎了，这关混战是不是不多人没法打，三个初生血又多攻击力又变态
 
+
+
+*****
+
+####  920619lqy  
+##### 786#       发表于 2022-10-16 12:27
+
+<blockquote>Ky·Kiske 发表于 2022-10-15 21:52
+被SD三兄弟玩成屎了，这关混战是不是不多人没法打，三个初生血又多攻击力又变态 ...</blockquote>
+拉远了以后这几个家伙会回陨石坑，可以慢慢耗
+
