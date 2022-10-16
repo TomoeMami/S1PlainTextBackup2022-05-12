@@ -5678,3 +5678,250 @@ a畜以前长得还行
 
 你上微博搜搜ame能看到不少旅人发情你就知道了
 
+
+
+*****
+
+####  北欧王座  
+##### 5159#       发表于 2022-10-16 10:12
+
+还得是脸啊，fb那脸不配碰瓷哥哥。如果颜值有ti我们哥哥已经三观王了
+
+*****
+
+####  UnhappyTails  
+##### 5160#       发表于 2022-10-16 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933054&amp;ptid=2099454" target="_blank">やト 发表于 2022-10-16 10:09</a>
+饭圈运营不是脸第一？</blockquote>
+那量子鞭也可以打造学霸健身男神人设啊
+
+你还是不理解饭圈，饭圈只要基本身材没问题都能捧，日韩还是国内，只要想捧钱到位什么脸都能给你干成潮流
+
+
+
+*****
+
+####  Keynes  
+##### 5161#       发表于 2022-10-16 10:12
+
+茶茶居然拿了小黑，40龙和酱油斯文
+
+*****
+
+####  w2210059  
+##### 5162#       发表于 2022-10-16 10:13
+
+97和95年做选择题，你选岁数大的？
+
+*****
+
+####  やト  
+##### 5163#       发表于 2022-10-16 10:13
+
+ 不说了， 品茶吧
+
+*****
+
+####  Keynes  
+##### 5164#       发表于 2022-10-16 10:14
+
+感觉哈斯卡不错
+
+*****
+
+####  nowaki  
+##### 5165#       发表于 2022-10-16 10:14
+
+核中核 明鞭买了20号机票去德国
+
+*****
+
+####  强袭型抹布  
+##### 5166#       发表于 2022-10-16 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933075&amp;ptid=2099454" target="_blank">やト 发表于 2022-10-16 10:11</a>
+但实际效果不是挺好的</blockquote>
+我觉得砸这么多资源抬其它人(除了心情)也抬起来了，比如fy 啥的
+
+a畜的脸实在生理不适，尤其鼻子
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  c88711611  
+##### 5167#       发表于 2022-10-16 10:15
+
+杰畜ru水喝多了脑子不清醒了。
+
+*****
+
+####  zhrs456  
+##### 5168#       发表于 2022-10-16 10:15
+
+又拿PUCK 真的难受啊
+
+*****
+
+####  Keynes  
+##### 5169#       发表于 2022-10-16 10:16
+
+看到出神这张脸和西服就感觉生理不适<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">，有点像新时代的太监
+
+*****
+
+####  强袭型抹布  
+##### 5170#       发表于 2022-10-16 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933082&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-16 10:12</a>
+你上微博搜搜ame能看到不少旅人发情你就知道了</blockquote>
+微博<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+那上面到底有多少活人还真不好说
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 5171#       发表于 2022-10-16 10:16
+
+不装了，鸭处？开始tb了？
+
+*****
+
+####  北条早苗  
+##### 5172#       发表于 2022-10-16 10:16
+
+茶这bp玩蛇啊
+
+*****
+
+####  Keynes  
+##### 5173#       发表于 2022-10-16 10:17
+
+感觉茶茶这把bp走远了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DDT  
+##### 5174#       发表于 2022-10-16 10:17
+
+不懂，昨天lgd打成那个逼样居然是ame的锅，这看的都是哪个世界的比赛。
+
+*****
+
+####  nxmonitor  
+##### 5175#       发表于 2022-10-16 10:17
+
+茶的阵容比较一般啊，小黑看到马尔斯，还有线弱的死灵龙碰到影魔……
+
+*****
+
+####  外挂全家脚气  
+##### 5176#       发表于 2022-10-16 10:18
+
+茶昨天就拿小黑了，效果还不错
+
+*****
+
+####  莉拉厨  
+##### 5177#       发表于 2022-10-16 10:19
+
+纯良集美来了，撤！
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 5178#       发表于 2022-10-16 10:19
+
+不懂，昨天lgd打成那个逼样居然是东野奎吾的锅，这看的都是哪个世界的推理。
+
+*****
+
+####  逃离二次元  
+##### 5179#       发表于 2022-10-16 10:19
+
+纯良集美来了，撤！
+
+*****
+
+####  夏溪澪mio  
+##### 5180#       发表于 2022-10-16 10:19
+
+皮球：qudong
+可还行
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 5181#       发表于 2022-10-16 10:19
+
+感觉是复制的nga太监
+
+*****
+
+####  UnhappyTails  
+##### 5182#       发表于 2022-10-16 10:20
+
+破案了，是德国狗量子鞭脑控ame上去送掉翻盘的，鲜卑真是太难了，卜哭卜是cndota粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 5183#       发表于 2022-10-16 10:20
+
+补水集锦就在上面呢，看完再扣字也不至于让你显得像个弱智一样
+
+*****
+
+####  zhrs456  
+##### 5184#       发表于 2022-10-16 10:20
+
+集美看不懂比赛回太监论坛云好吗
+
+*****
+
+####  tasuku  
+##### 5185#       发表于 2022-10-16 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933125&amp;ptid=2099454" target="_blank">强袭型抹布 发表于 2022-10-16 10:16</a>
+
+微博
+
+那上面到底有多少活人还真不好说</blockquote>
+你多几个女性玩doto的朋友就知道这玩意儿在女性心中确实有颜值好吧
+
+黑归黑，扭曲事实来编故事和岁月史书有什么区别
+
+*****
+
+####  nxmonitor  
+##### 5186#       发表于 2022-10-16 10:21
+
+有马尔斯小黑效果就很难好的，只能看打得怎么样了……
+
+*****
+
+####  夏溪澪mio  
+##### 5187#       发表于 2022-10-16 10:21
+
+五号位斯文就一个锤和吼吧……怎么那么多队玩
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 5188#       发表于 2022-10-16 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57933192&amp;ptid=2099454" target="_blank">夏溪澪mio 发表于 2022-10-16 10:21</a>
+五号位斯文就一个锤和吼吧……怎么那么多队玩
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5. ...</blockquote>
+就那个吼，可以群体加30护甲不可驱散而且buff空窗期就6秒吧。。。
+
