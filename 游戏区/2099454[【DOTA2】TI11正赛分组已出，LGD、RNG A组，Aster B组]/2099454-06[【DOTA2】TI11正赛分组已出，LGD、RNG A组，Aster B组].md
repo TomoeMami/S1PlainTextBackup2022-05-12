@@ -3072,3 +3072,51 @@ ti10lgd输给ggng一把好吧<img src="https://static.saraba1st.com/image/smiley
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  阴影里的锅  
+##### 7887#       发表于 2022-10-16 22:23
+
+去掉了2/5复读是好事
+
+*****
+
+####  你可以试试  
+##### 7888#       发表于 2022-10-16 22:23
+
+今天OG液体送四把不如意拉满了
+
+*****
+
+####  Avantasi  
+##### 7889#       发表于 2022-10-16 22:24
+
+笑死我，是觉得自己不舒服才自己隔离的，这也叫没接触过？
+
+*****
+
+####  米德  
+##### 7890#       发表于 2022-10-16 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+{PKC[YT7UL~FQ9~[UN55UG9.jpg
+(138.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-16 22:24 上传
+
+<img src="https://img.saraba1st.com/forum/202210/16/222434uuddl7mrd2x2csxv.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  adretyu67  
+##### 7891#       发表于 2022-10-16 22:25
+
+潘飞我记得是一直都会去督战，既然是去督战怎么可能不见面？
+

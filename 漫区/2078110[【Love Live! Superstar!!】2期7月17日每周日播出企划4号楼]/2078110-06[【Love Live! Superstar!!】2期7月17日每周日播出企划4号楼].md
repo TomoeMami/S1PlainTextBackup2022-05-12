@@ -9778,3 +9778,12 @@ live，视频，杂志，直播，CD售卖、内嵌卡牌游戏，这app内容�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  逸yi  
+##### 8419#       发表于 2022-10-16 22:26
+
+也不可能是纯素人 至少会有镇场子的即战力吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
