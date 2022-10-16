@@ -2365,3 +2365,14 @@ md，第四章这个蛇神，第二形态老是直接秒我
 因为技能树锁死了点不到高级水系技能，大眼球 ...</blockquote>
 其实这个boss可以二阶段用弩逃课，伤害贼高，特别是装了投掷强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雪落白夜  
+##### 224#       发表于 2022-10-16 14:10
+
+蛇神这BOSS还有二阶段，独角兽这技能简直是蛇神特攻，直接吊打，这游戏剧本真的行
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
