@@ -3869,3 +3869,27 @@ https://blog.novelai.net/novelai-improvements-on-stable-diffusion-e10d38db82ac
 问楼主一句，逼真吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">：<blockquote>画b成功率为零，不是0.00001，而是0，〇，zero。</blockquote>
 
+
+
+*****
+
+####  nexus1  
+##### 301#       发表于 2022-10-16 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57921487&amp;ptid=2098197" target="_blank">白左 发表于 2022-10-15 16:27</a>
+
+花絮
+
+什么叫出图30秒， 修手一整年啊……</blockquote>
+直接整3d模型截个手算了
+
+*****
+
+####  nexus1  
+##### 302#       发表于 2022-10-16 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946330&amp;ptid=2098197" target="_blank">Issue 发表于 2022-10-16 23:28</a>
+
+画B者说：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">我怎么看到群U整的挺<strong>逼</strong>真的
+

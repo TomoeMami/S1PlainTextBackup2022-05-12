@@ -7828,3 +7828,15 @@ kino：希望大家不要因为我而讨厌赛马娘。
 之前看贴吧给nb出谋划策，提名进厂候选人，有挺多人提到一个叫说说crystal的，说她歌力很强，而且最近变成 ...</blockquote>
 其实现在的版本，歌力没有太多优势，乐元素挑人还不如挑一个杂谈力厉害的，能够融入团体的人。
 
+
+
+*****
+
+####  werecat  
+##### 2334#       发表于 2022-10-16 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57945972&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-10-16 23:03</a>
+
+其实现在的版本，歌力没有太多优势，乐元素挑人还不如挑一个杂谈力厉害的，能够融入团体的人。 ...</blockquote>
+唯有祝福，且看且珍惜。看样子白子也不会来了。
+

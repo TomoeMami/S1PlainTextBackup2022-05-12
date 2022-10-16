@@ -9839,3 +9839,12 @@ ag all star打铁好多返图，事务所赶紧多给点声优资源吧
 
 男友衬衫<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 8426#       发表于 2022-10-16 23:44
+
+这本质量好高啊，可第一本纸质的出的是YJ实在是太库亚西了
+

@@ -3589,3 +3589,12 @@ with the 阳，eg你知道你在10/14诅咒了自己吗？</blockquote>
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  百世诸侯  
+##### 7948#       发表于 2022-10-16 23:43
+
+谢谢大家的关心，阳性的时候就没接触了不要一直问了
+
