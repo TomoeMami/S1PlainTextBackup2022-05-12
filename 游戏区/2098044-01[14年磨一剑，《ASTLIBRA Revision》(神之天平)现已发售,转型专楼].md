@@ -3888,3 +3888,15 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 嘉隆，你个好色乌鸦
 
+
+
+*****
+
+####  A1LI  
+##### 360#       发表于 2022-10-17 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957276&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-17 16:31</a>
+
+二周目剧情完全不一样 还挺良心的 就是这个无限强化有点过分了</blockquote>
+那么，一周目获得的道具都保留嘛？
+
