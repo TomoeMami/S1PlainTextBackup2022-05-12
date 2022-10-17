@@ -77,3 +77,15 @@
 
 猎金选择风方。
 
+
+
+*****
+
+####  Niu  
+##### 17108#       发表于 2022-10-17 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948318&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2022-10-16 15:53</a>
+
+羽毛3要buff叠满才能用</blockquote>
+技能2不需要满buff
+
