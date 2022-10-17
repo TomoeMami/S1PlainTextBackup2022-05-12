@@ -3298,3 +3298,16 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 查看全部评分
 
+
+
+*****
+
+####  jy000129  
+##### 309#       发表于 2022-10-17 08:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57947761&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-17 02:13</a>
+记录点右边的雪是可以下去的</blockquote>
+怎么下去？我炸弹什么的都试过了
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

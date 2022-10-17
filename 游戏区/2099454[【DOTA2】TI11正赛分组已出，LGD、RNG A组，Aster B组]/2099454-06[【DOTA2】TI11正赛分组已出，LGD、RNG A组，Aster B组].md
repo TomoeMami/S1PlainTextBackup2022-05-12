@@ -4025,3 +4025,53 @@ Lgd今天有人阳了吗
 
 醒了，lgd今天阳了几个？
 
+
+
+*****
+
+####  syndrome2032  
+##### 7995#       发表于 2022-10-17 08:23
+
+醒了，lgd今天阳了几个？
+
+*****
+
+####  nightmare902015  
+##### 7996#       发表于 2022-10-17 08:23
+
+我怎么记得莫言在自己的country待着的时候阳过一次。我记错了吗
+
+*****
+
+####  公交老司机  
+##### 7997#       发表于 2022-10-17 08:24
+
+祝福干爹今天1-5
+
+*****
+
+####  jk9hot  
+##### 7998#       发表于 2022-10-17 08:28
+
+祝福干瘪今天全阳
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  syndrome2032  
+##### 7999#       发表于 2022-10-17 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948532&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-17 08:23</a>
+我怎么记得莫言在自己的country待着的时候阳过一次。我记错了吗</blockquote>
+半年前还是多久前的事了。
+
+*****
+
+####  walfeds  
+##### 8000#       发表于 2022-10-17 08:32
+
+昨天打了半天游戏，感觉人好了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">周末就特么不应该看比赛，上班摸鱼才配
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
