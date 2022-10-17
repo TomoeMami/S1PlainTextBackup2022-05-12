@@ -5610,3 +5610,44 @@ https://tieba.baidu.com/p/8091830242</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  clover293  
+##### 616#       发表于 2022-10-17 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950438&amp;ptid=2025548" target="_blank">byisme001 发表于 2022-10-17 10:29</a>
+
+之前预告片里那个飞天大水母是北欧神话里的什么玩意</blockquote>
+按分析是华纳海姆的某个神，华纳海姆主神是海洋神
+
+*****
+
+####  clover293  
+##### 617#       发表于 2022-10-17 10:56
+
+另外review码应该大规模发了，估计剧透也过几天就有了
+
+微信图片_20221017105642.jpg
+(239.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 10:56 上传
+
+<img src="https://img.saraba1st.com/forum/202210/17/105650l7b1o0nbs188bsrs.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  名字已被吃  
+##### 618#       发表于 2022-10-17 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950412&amp;ptid=2025548" target="_blank">popchong 发表于 2022-10-17 10:28</a>
+指的是这个首日补丁解包吧
+
+https://tieba.baidu.com/p/8091830242</blockquote>
+不是还没发售吗，又怎么搞到首日补丁解包的？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
