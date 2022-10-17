@@ -4051,3 +4051,21 @@ https://w.atwiki.jp/astlibra/</blockquote>
 主角家后院的宝箱怎么拿？</blockquote>
 得二周目才能拿，要打掉那两块100w血的石头，没解锁武器无限强化前可以刮几小时
 
+
+
+*****
+
+####  六至九  
+##### 376#       发表于 2022-10-18 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57963778&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-17 23:42</a>
+@A1LI   并没有，我换装读档读其他档重启重装全试过了，需要用下键的其他功能和技能都没问题，就是死活不格 ...</blockquote>
+确实是bug，刚刚更新修了
+
+*****
+
+####  lazycat233  
+##### 377#       发表于 2022-10-18 00:06
+
+火山打完龙拿到鞋子要去哪干嘛啊，，，<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -1951,3 +1951,30 @@ ps：这游戏当rpg玩会更带感
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">被球奸控了核国家然后送给外星太君了，现在只要打他最后那块地就扔核弹该怎么办，总不能用天灵盖耗光吧
 
+
+
+*****
+
+####  萼绿华  
+##### 177#         楼主| 发表于 2022-10-18 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57963324&amp;ptid=2076238" target="_blank">近距离作战 发表于 2022-10-17 23:09</a>
+
+被球奸控了核国家然后送给外星太君了，现在只要打他最后那块地就扔核弹该怎么办，总不能用天灵盖耗 ...</blockquote>
+当然是用天灵盖耗啊，但又不是非得用自己的天灵盖，可以用别人的嘛。可以拿朝鲜或者巴基斯坦之类跟他宣战然后拿核弹丢他，然后就等他反击把核弹耗光就行，这类国家存在的意义就是这个。当然如果太君占的是美俄之类的核大国那当我没说，不如重开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  萼绿华  
+##### 178#         楼主| 发表于 2022-10-18 00:09
+
+<img src="https://img.saraba1st.com/forum/202210/18/000919cxkcwhvnth61wt4s.png" referrerpolicy="no-referrer">
+
+<strong>2022-10-17 03_29_45-TerraInvicta.png</strong> (373.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 00:09 上传
+
+喷了
+
