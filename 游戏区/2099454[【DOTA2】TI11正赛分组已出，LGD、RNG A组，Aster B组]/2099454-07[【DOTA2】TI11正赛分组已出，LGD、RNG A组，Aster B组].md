@@ -1411,3 +1411,360 @@ md怎么这两年都是cn队出状况，点怎么这么背
 
 不行啊卡猴婚都没结，冠了xbb的话那这精子永久性损伤谁给找补啊。
 
+
+
+*****
+
+####  nxmonitor  
+##### 9153#       发表于 2022-10-17 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953775&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-17 13:00</a>
+
+卡神去年已经阳过一次了吧，真再要阳了别搞成long covid了</blockquote>
+这东西投骰子的，得第一次就可能是了……
+
+*****
+
+####  caupollen  
+##### 9154#       发表于 2022-10-17 13:01
+
+真尼玛恶心啊，打了一堆字还是删，只能说恶心
+
+*****
+
+####  isla  
+##### 9155#       发表于 2022-10-17 13:01
+
+rng有替补去新加坡吗？这种情况教练可以顶上吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  acacaclove  
+##### 9156#       发表于 2022-10-17 13:01
+
+**水厂什么时候死啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 9157#       发表于 2022-10-17 13:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那这36D该谁来接盘？
+
+*****
+
+####  Cantha  
+##### 9158#       发表于 2022-10-17 13:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">茶队被宰猪了
+
+*****
+
+####  walfeds  
+##### 9159#       发表于 2022-10-17 13:01
+
+茶队裂开了啊
+
+*****
+
+####  nowaki  
+##### 9160#       发表于 2022-10-17 13:02
+
+撸狗猪以后有的忙了
+
+*****
+
+####  Keynes  
+##### 9161#       发表于 2022-10-17 13:02
+
+犯贱去看了一下太监论坛，隔夜饭都被恶心出来了，畜生队伍和畜生粉丝早点暴毙**<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 9162#       发表于 2022-10-17 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953225&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-17 12:32</a>
+举报了也可以岁月史书
+
+—— 来自 Xiaomi 21121210C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+石锤了也可以不认 说是阴谋论
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  情商  
+##### 9163#         楼主| 发表于 2022-10-17 13:02
+
+预言家皮鞋查杀女巫下午面8银水
+
+<img src="https://img.saraba1st.com/forum/202210/17/130200e5kfhgz4onoyf1ih.jpg" referrerpolicy="no-referrer">
+
+<strong>2de71255b319ebc4c8958e59c726cffc1c171653.jpg</strong> (96.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 13:02 上传
+
+*****
+
+####  哈萨维·诺亚  
+##### 9164#       发表于 2022-10-17 13:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 9165#       发表于 2022-10-17 13:04
+
+茶怎么被FNC锤了？血脉压制了？FNC一点都不强的啊……
+
+*****
+
+####  UnhappyTails  
+##### 9166#       发表于 2022-10-17 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953813&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 13:02</a>
+预言家皮鞋查杀女巫下午面8银水</blockquote>
+呵呵，他们能包庇潘飞不上报，就是一条线的妈炸了，你指望越办越好能跟你们说老实话？
+
+你不会真以为张宁是什么好鸟吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  innovation_s  
+##### 9167#       发表于 2022-10-17 13:04
+
+加油RNG，加油超哥卡神
+
+*****
+
+####  sodah  
+##### 9168#       发表于 2022-10-17 13:04
+
+茶茶止不住的尿了。
+
+*****
+
+####  c88711611  
+##### 9169#       发表于 2022-10-17 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953599&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-17 12:51</a>
+潘飞最好真的在自主隔离哦，但凡出来点照片我看老干瘪怎么洗，CSDX</blockquote>
+隔离个几把，真隔离能被酒店逮住瞒报？
+
+*****
+
+####  哈曼的YY  
+##### 9170#       发表于 2022-10-17 13:05
+
+卡神上次是啥时候得的？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  syndrome2032  
+##### 9171#       发表于 2022-10-17 13:05
+
+只罚选边和bp时间现在来看是轻了。v社啥时候来重的。
+
+*****
+
+####  反方向的波  
+##### 9172#       发表于 2022-10-17 13:05
+
+盒中盒，鳖星想起来和潘飞一起出去打过野，尿了
+
+*****
+
+####  tasuku  
+##### 9173#       发表于 2022-10-17 13:06
+
+阿茶只是触发了被动而已，不要慌
+
+野王天天在房间艹女装C根本没出门好吧
+
+*****
+
+####  天堂蜘蛛  
+##### 9174#       发表于 2022-10-17 13:06
+
+潘飞以一己之力把几个中国队的心态全部搞崩了啊
+
+啊啊啊啊啊啊水厂
+
+*****
+
+####  UnhappyTails  
+##### 9175#       发表于 2022-10-17 13:06
+
+我周一在飞机上染上，周三出症状，周四五头疼的睡不好吃不好，周六开始恢复周天基本稳定，超哥要是今天才出症状，那三天内要好起来几乎是不可能的了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我现在真的，天知道我多恨lgd
+
+*****
+
+####  天堂蜘蛛  
+##### 9176#       发表于 2022-10-17 13:07
+
+现在希望胖爹可千万别有事啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 9177#       发表于 2022-10-17 13:07
+
+如果真再出两个阳能不能让水厂直接滚，扰乱比赛秩序危害参赛人员身体健康
+
+*****
+
+####  阿垃垃圾历  
+##### 9178#       发表于 2022-10-17 13:08
+
+希望茶队和rng队员没事 lgd瞒报这杂种队伍给我死 
+
+*****
+
+####  北欧王座  
+##### 9179#       发表于 2022-10-17 13:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">自我隔离大概率就是在卧室刷刷手机饿了下楼出去找饭吃，见到人打个招呼聊几句
+
+*****
+
+####  哈曼的YY  
+##### 9180#       发表于 2022-10-17 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953841&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-17 13:04:18</a>
+茶怎么被FNC锤了？血脉压制了？FNC一点都不强的啊……</blockquote>咬了雪碧一分
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  nowaki  
+##### 9181#       发表于 2022-10-17 13:08
+
+我可能不懂dota，但作为中国人自我隔离啥意思我还是懂的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 9182#       发表于 2022-10-17 13:09
+
+小松许一厘米tp<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TIZI  
+##### 9183#       发表于 2022-10-17 13:09
+
+V社就该把这帮逼关起来，跟冬奥那样全程外界无接触到场馆和酒店，觉得不自由不想打ti可以不打
+指望着帮人对自己负责对队伍负责还是图样
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  艹艹牛逼  
+##### 9184#       发表于 2022-10-17 13:09
+
+水厂真尼玛司马杂种队，放国内直接拘留了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  noobtizi  
+##### 9185#       发表于 2022-10-17 13:09
+
+真你妈贱畜
+
+*****
+
+####  Rorgen  
+##### 9186#       发表于 2022-10-17 13:09
+
+fnc明显比boom强的啊
+
+*****
+
+####  DDWarrior  
+##### 9187#       发表于 2022-10-17 13:09
+
+八王在群里面洗地的时候提到了超哥跟处长一起吃海底捞，结果太监论坛第一层回复又在嗑CP，还他妈500多个赞，午饭要吐出来了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  NaYo丶  
+##### 9188#       发表于 2022-10-17 13:10
+
+雪碧纯纯和平使者 除了暴打了画z字的ett2把 剩下都是1-1 看来战争伤的雪碧很深
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  roger_goodell  
+##### 9189#       发表于 2022-10-17 13:10
+
+洗地集美和水厂全部焦比
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  fopinecone  
+##### 9190#       发表于 2022-10-17 13:10
+
+↖(▔^▔)↗↖(▔^▔)↗↖(▔^▔)↗
+
+给超哥攒元气弹
+
+↖(▔^▔)↗↖(▔^▔)↗↖(▔^▔)↗
+
+给超哥攒元气弹
+
+↖(▔^▔)↗↖(▔^▔)↗↖(▔^▔)↗
+
+给超哥攒元气弹
+
+↖(▔^▔)↗↖(▔^▔)↗↖(▔^▔)↗
+
+给超哥攒元气弹
+
+↖(▔^▔)↗↖(▔^▔)↗↖(▔^▔)↗
+
+给超哥攒元气弹
+
+↖(▔^▔)↗↖(▔^▔)↗↖(▔^▔)↗
+
+给超哥攒元气弹
+
+*****
+
+####  UnhappyTails  
+##### 9191#       发表于 2022-10-17 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953910&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-17 13:08</a>
+自我隔离大概率就是在卧室刷刷手机饿了下楼出去找饭吃，见到人打个招呼聊几句 ...</blockquote>
+很遗憾大概率制裁不了lgd
+
+首先潘飞只是随员而非正式队员，lgd大可以找借口说随员只是选手的朋友，同意见潘飞的选手应该自己负起责任而不是怪罪lgd（相信我ru表绝对会这么说的）
+
+v社的规则只能管得了注册的队员很难管得了随员，更不用说外国对传染链条根本就不在乎，也不可能给阳性流窜者上罪名
+
+*****
+
+####  JoelBirch  
+##### 9192#       发表于 2022-10-17 13:11
+
+妈的自己群里弱智集美一套潘飞个人行为的话术已经起来了，有一个算一个全给飞了，都什么死妈玩意儿
+
