@@ -4143,3 +4143,16 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  helix  
+##### 385#       发表于 2022-10-18 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964561&amp;ptid=2098044" target="_blank">格林卡罗尔 发表于 2022-10-18 01:30</a>
+在岩浆上怎么开读条的铜银金宝箱啊，有的时候还会飞到天上
+
+—— 来自 Xiaomi M2012K11AC, Android  ...</blockquote>
+后来能拿到免疫地形伤的道具，没拿之前就没法了
+
