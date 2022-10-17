@@ -39,3 +39,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这么下去下封信搞不好直接サ终知らせ了
 
+
+
+*****
+
+####  LEOKO~  
+##### 7396#       发表于 2022-10-17 22:35
+
+第一年角色的盘子就差国庆毛妹和学生会了
+

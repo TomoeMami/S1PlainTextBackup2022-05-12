@@ -9586,3 +9586,355 @@ k1就他妈纯单机，不带看一眼队友的，A畜还知道跟在赵云后�
 
 明天雪碧咪咪茶都能进胜者组的话发个包冲冲喜好了
 
+
+
+*****
+
+####  憧憬鲨  
+##### 11714#       发表于 2022-10-17 22:31
+
+玉玉了
+
+*****
+
+####  北欧王座  
+##### 11715#       发表于 2022-10-17 22:31
+
+啥情况，gg真赢了一把？
+
+*****
+
+####  情商  
+##### 11716#         楼主| 发表于 2022-10-17 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962767&amp;ptid=2099454" target="_blank">朝奈 发表于 2022-10-17 22:31</a>
+明天雪碧咪咪茶都能进胜者组的话发个包冲冲喜好了</blockquote>
+妮要茶队死是吧？超级vkun专楼你这么说话，窝都保不住你
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Rorgen  
+##### 11717#       发表于 2022-10-17 22:32
+
+看弹簧直播研究神单，这版本水人完完全全的第一C，拉第二名两三档的那种
+
+*****
+
+####  aisakahammer  
+##### 11718#       发表于 2022-10-17 22:32
+
+暴打老干憋啊
+
+*****
+
+####  海月水母  
+##### 11719#       发表于 2022-10-17 22:32
+
+我想我应该去长跑，对，现在就出发
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 两三流浪者|-1|我真想一下把你扣到负鹅|
+
+查看全部评分
+
+*****
+
+####  情商  
+##### 11720#         楼主| 发表于 2022-10-17 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962792&amp;ptid=2099454" target="_blank">海月水母 发表于 2022-10-17 22:32</a>
+我想我应该去长跑，对，现在就出发</blockquote>
+你应该去河南跟谭姗姗奔现
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  walfeds  
+##### 11721#       发表于 2022-10-17 22:33
+
+那水人今年大概上不了盾了
+
+*****
+
+####  Litccc  
+##### 11722#       发表于 2022-10-17 22:33
+
+我想我应该去看管人，对，现在就出发
+
+*****
+
+####  非建政专用号  
+##### 11723#       发表于 2022-10-17 22:33
+
+窝澄清一下，k1是有打架形态的，阿灵顿major上打og两把的30拍拍是打架形态，就是真打不过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 11724#       发表于 2022-10-17 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962767&amp;ptid=2099454" target="_blank">朝奈 发表于 2022-10-17 22:31</a>
+明天雪碧咪咪茶都能进胜者组的话发个包冲冲喜好了</blockquote>
+这三个还要互相交手的，一起进可太难了
+
+*****
+
+####  憧憬鲨  
+##### 11725#       发表于 2022-10-17 22:33
+
+我想我应该去看管人，对，现在就出发
+
+*****
+
+####  nightmare902015  
+##### 11726#       发表于 2022-10-17 22:34
+
+你应该去河南跟谭姗姗奔现
+
+*****
+
+####  朝奈  
+##### 11727#       发表于 2022-10-17 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962809&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-17 22:33</a>
+
+这三个还要互相交手的，一起进可太难了</blockquote>
+我知道难的很啊.......所以只能梦里想想
+
+*****
+
+####  Keynes  
+##### 11728#       发表于 2022-10-17 22:35
+
+发个小红包帮茶队和rng基基德<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+XX和XX明天顺利晋级胜者组
+
+提示：XX和XX是两个选手并且所处队伍位置相同
+司马集美别领，领了老畜鳖飞机空难
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nerugigannte| + 1||
+| fopinecone| + 1|焦阳超哥加油！|
+| 莉拉厨| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  qty  
+##### 11729#       发表于 2022-10-17 22:35
+
+小组赛看了这么多场，只能说真别小看任何一个队，能进TI肯定是有点东西的，哪怕前面打的再鱼，你也不知道下一局它会不会掏出什么绝活来干你一分
+
+*****
+
+####  莉拉厨  
+##### 11730#       发表于 2022-10-17 22:35
+
+明天a组魔幻剧本：红龙20液体rng20oglgd02bb，然后四队加赛，妮们觉得可能吗
+同时居然打到最后一天小组赛淘汰的队伍还一支都没有出现，命运都掌握在自己手里，让人不经感叹这就是TI
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  超法拉  
+##### 11731#       发表于 2022-10-17 22:36
+
+b组理论上1-8全都是两种可能 太可怕了
+全tm赖雪碧1比1战神
+
+*****
+
+####  Rorgen  
+##### 11732#       发表于 2022-10-17 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962835&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-17 22:35</a>
+发个小红包帮茶队和rng基基德
+XX和XX明天顺利晋级胜者组</blockquote>
+批九和克神明天顺利晋级胜者组
+本楼俩带明星中单是吧
+
+*****
+
+####  海月水母  
+##### 11733#       发表于 2022-10-17 22:36
+
+<blockquote>情商 发表于 2022-10-17 22:33
+你应该去河南跟谭姗姗奔现
+
+论坛助手,iPad</blockquote>
+能换成另一个河南人吗，这个真不熟
+
+*****
+
+####  哈萨维·诺亚  
+##### 11734#       发表于 2022-10-17 22:36
+
+有点抑郁 哎 好难过😭来自: iPhone客户端
+
+*****
+
+####  Litccc  
+##### 11735#       发表于 2022-10-17 22:37
+
+居然不是冠超和焦阳
+
+*****
+
+####  StrangerJ  
+##### 11736#       发表于 2022-10-17 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962846&amp;ptid=2099454" target="_blank">海月水母 发表于 2022-10-17 22:36</a>
+能换成另一个河南人吗，这个真不熟</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">做梦去吧
+
+*****
+
+####  越动天下  
+##### 11737#       发表于 2022-10-17 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962840&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-17 22:35</a>
+明天a组魔幻剧本：红龙20液体rng20oglgd02bb，然后四队加赛，妮们觉得可能吗
+同时居然打到最后一天小组赛淘 ...</blockquote>
+太扯了吧
+
+*****
+
+####  哈萨维·诺亚  
+##### 11738#       发表于 2022-10-17 22:37
+
+好痛苦😣昨天还挺开心的 今天突然形式就烂了来自: iPhone客户端
+
+*****
+
+####  反方向的波  
+##### 11739#       发表于 2022-10-17 22:38
+
+我填的杜鹏和莫奈，怎么领不到
+
+*****
+
+####  Kazepollar  
+##### 11740#       发表于 2022-10-17 22:38
+
+感谢漏油，希望干瘪全族暴毙
+
+*****
+
+####  海月水母  
+##### 11741#       发表于 2022-10-17 22:38
+
+<blockquote>StrangerJ 发表于 2022-10-17 22:37
+做梦去吧</blockquote>
+不客气，一起做😘
+
+*****
+
+####  StrangerJ  
+##### 11742#       发表于 2022-10-17 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962840&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-17 22:35</a>
+明天a组魔幻剧本：红龙20液体rng20oglgd02bb，然后四队加赛，妮们觉得可能吗
+同时居然打到最后一天小组赛淘 ...</blockquote>
+前两个还有可能，干瘪0比2妮也忒小看猴爹了
+
+*****
+
+####  nowaki  
+##### 11743#       发表于 2022-10-17 22:38
+
+老子昨天就不开心 司马micke送lgd2-0
+
+*****
+
+####  阿垃垃圾历  
+##### 11744#       发表于 2022-10-17 22:38
+
+老子今天搬砖一天本来就累 
+rng还0-6 全员🐑 要玉玉了
+
+*****
+
+####  Rorgen  
+##### 11745#       发表于 2022-10-17 22:39
+
+瑞典张成俊杏奴瘾仅次术士zai
+
+*****
+
+####  nerugigannte  
+##### 11746#       发表于 2022-10-17 22:39
+
+我填的曾焦阳和路垚怎么领不到
+
+*****
+
+####  战狼PTSD  
+##### 11747#       发表于 2022-10-17 22:39
+
+举盾的那天直接注销S1，打开dota2，打开QQ频道，文爱集美JK
+
+*****
+
+####  tengshuo980  
+##### 11748#       发表于 2022-10-17 22:39
+
+不是超哥和焦阳吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  情商  
+##### 11749#         楼主| 发表于 2022-10-17 22:39
+
+前面的忘了，后面的也忘了，写在傻狗受难的前一天
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  walfeds  
+##### 11750#       发表于 2022-10-17 22:40
+
+漏油这红包用掉了我五次错误计数但只拿到两毛钱，玉玉了
+
+*****
+
+####  哈萨维·诺亚  
+##### 11751#       发表于 2022-10-17 22:40
+
+前面的忘了，后面的也忘了，写在傻狗受难的前一天来自: iPhone客户端
+
+*****
+
+####  nerugigannte  
+##### 11752#       发表于 2022-10-17 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962899&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-17 22:39</a>
+
+不是超哥和焦阳吗
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反一下试试
+
