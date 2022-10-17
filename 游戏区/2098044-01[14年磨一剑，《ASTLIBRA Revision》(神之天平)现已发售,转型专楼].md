@@ -3766,3 +3766,33 @@ https://w.atwiki.jp/astlibra/</blockquote>
 2周目剧情不一样是不是第四章能不签契约直接硬干boss了</blockquote>
 有没有可能干死小不点不用穿越
 
+
+
+*****
+
+####  ccow  
+##### 348#       发表于 2022-10-17 16:55
+
+<blockquote>黒長直姫 发表于 2022-10-17 16:40
+破防打头 或者肝出暗凭依技能？</blockquote>
+破防都不知道打哪里好了，BOSS还是在喷火，打身体还是0伤害，梆硬。翻翻以前的攻略看看去。
+
+*****
+
+####  quanlix  
+##### 349#       发表于 2022-10-17 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957574&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-17 16:52</a>
+
+有没有可能干死小不点不用穿越</blockquote>
+我1周目就干死了，还是给我送过去了
+
+*****
+
+####  AeonsTorn  
+##### 350#       发表于 2022-10-17 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957618&amp;ptid=2098044" target="_blank">ccow 发表于 2022-10-17 16:55</a>
+破防都不知道打哪里好了，BOSS还是在喷火，打身体还是0伤害，梆硬。翻翻以前的攻略看看去。 ...</blockquote>
+因为头是浮空的，我感觉用天山效果比火龙要好不少
+

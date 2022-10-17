@@ -1250,3 +1250,17 @@ BOSS自残可能是因为身体在火车外面？
 
 教学也是，干了堕天使后也找不到方法去前台在的那个控制室，也找不到有啥更深的秘密。
 
+
+
+*****
+
+####  wangyi041228  
+##### 63#       发表于 2022-10-17 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956963&amp;ptid=2095187" target="_blank">Tring 发表于 2022-10-17 16:13</a>
+
+开局登录的时候，让猴子弄死，然后直接回家，就能跳过教学。</blockquote>
+Esc菜单，关游戏重进，被杀都能跳过教程，但少了3个芯片。默认名字随机Me或You。
+
+猴子和天使的互动对结局或剧情有影响吗？
+
