@@ -12020,3 +12020,203 @@ lgd飞将军，安邦定国，妙计杀全家，牛的牛的。
 
 昨天lgd瞒报不被发现的话，现在就该被lxo说成是rng散播病毒了。
 
+
+
+*****
+
+####  zhrs456  
+##### 8977#       发表于 2022-10-17 12:31
+
+41绝活剧毒牛的
+
+*****
+
+####  非建政专用号  
+##### 8978#       发表于 2022-10-17 12:31
+
+司了马了的东西，玩nec是真牛
+
+*****
+
+####  百世诸侯  
+##### 8979#       发表于 2022-10-17 12:31
+
+六手剧毒无敌了
+
+*****
+
+####  北欧王座  
+##### 8980#       发表于 2022-10-17 12:32
+
+<img src="https://img.saraba1st.com/forum/202210/17/123152vnuihzhncyuiqjqb.png" referrerpolicy="no-referrer">
+
+<strong>PC]P2@EXKZN87YB]_1R8YB6.png</strong> (131.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 12:31 上传
+
+这不就潘飞传染的，都密接了。哇真的牛逼，真想捅死他，哪有那么出生的
+
+*****
+
+####  奇迹之巅  
+##### 8981#       发表于 2022-10-17 12:32
+
+那现在的问题就是maybe症状到底有多严重了...
+
+如果真的是重症的话...
+
+就算是胜者组也无济于事了啊
+
+*****
+
+####  7450  
+##### 8982#       发表于 2022-10-17 12:32
+
+唉超哥真是命运多舛，今年状态这么好
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  没钱买手办  
+##### 8983#       发表于 2022-10-17 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953167&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-17 12:29</a>
+如果不是举报，肯定成眉鳖跨洋打炮传染潘飞，大堂经理，我的超人</blockquote>
+举报了也可以岁月史书
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 8984#         楼主| 发表于 2022-10-17 12:32
+
+v社这不给lgd直接禁赛对不起参赛选手
+
+*****
+
+####  哈萨维·诺亚  
+##### 8985#       发表于 2022-10-17 12:33
+
+v社这不给lgd直接禁赛对不起参赛选手
+
+*****
+
+####  Horusddt  
+##### 8986#       发表于 2022-10-17 12:33
+
+超哥这是会出症状了，其他几兄弟没事还好，有事可能就赶上淘汰赛了
+
+*****
+
+####  nxmonitor  
+##### 8987#       发表于 2022-10-17 12:33
+
+LGD的队员肯定有问题啊，11号到的新加坡，潘飞13号出的问题，这两天都在一起的好吧，说不定就是没报呢……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 8988#       发表于 2022-10-17 12:33
+
+给rng禁赛倒像是pgl会做出来的事
+
+*****
+
+####  憧憬鲨  
+##### 8989#       发表于 2022-10-17 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953215&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-17 12:32</a>
+这不就潘飞传染的，都密接了。哇真的牛逼，真想捅死他，哪有那么出生的 ...</blockquote>
+这是谁的推特
+
+*****
+
+####  公交老司机  
+##### 8990#       发表于 2022-10-17 12:34
+
+茶队吓得全戴口罩了
+
+*****
+
+####  DDT  
+##### 8991#       发表于 2022-10-17 12:34
+
+超哥阳了，那全队都得阳了，唉，完球了。莫言得过之后肉眼可见菜了一段时间，希望超哥没啥问题吧
+
+*****
+
+####  UnhappyTails  
+##### 8992#       发表于 2022-10-17 12:34
+
+<img src="https://s3.bmp.ovh/imgs/2022/10/17/74be747bc9416762.jpeg" referrerpolicy="no-referrer">
+
+如果这事真的，我这辈子也不会原谅ru表和她的傻逼喽啰
+
+*****
+
+####  Imanmi  
+##### 8993#       发表于 2022-10-17 12:34
+
+这么厉害的绝活剧毒上一年不用？
+
+*****
+
+####  黄金鸡屁屁  
+##### 8994#       发表于 2022-10-17 12:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打比赛带个剧毒真无敌了呀
+
+*****
+
+####  nxmonitor  
+##### 8995#       发表于 2022-10-17 12:34
+
+不可能禁赛的，这又不是国内情况，别人都不把这事情当回事，或者必须装作不当回事……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OVTVO  
+##### 8996#       发表于 2022-10-17 12:35
+
+小尿布面如死灰<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 8997#       发表于 2022-10-17 12:35
+
+提前恭喜psg lgd获得ti11冠军！
+
+*****
+
+####  情商  
+##### 8998#         楼主| 发表于 2022-10-17 12:35
+
+还有这种角度
+
+<img src="https://img.saraba1st.com/forum/202210/17/123506vvk1khcd3yvzjvcs.jpg" referrerpolicy="no-referrer">
+
+<strong>5a2203d5ad6eddc40ba74c3b7cdbb6fd50663380.jpg</strong> (187.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 12:35 上传
+
+*****
+
+####  32196789  
+##### 8999#       发表于 2022-10-17 12:35
+
+别急 这玩意要潜伏几天的 干瘪更密接 我才不信他们安全 还在潜伏 等预选赛好吧
+
+*****
+
+####  Avantasi  
+##### 9000#       发表于 2022-10-17 12:35
+
+现在喷A畜的心情都没了，多看一眼都恶心，LGD**
+

@@ -3469,3 +3469,34 @@ https://w.atwiki.jp/astlibra/</blockquote>
 我不看攻略在第五章卡了六个小时，这算不算探索</blockquote>
 后面这么难吗……如果不是故意恶心人无提示的那种应该可以算<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 325#       发表于 2022-10-17 12:34
+
+第八章开场剧情进展到城门有大怪然后被boss封印拦着过不去的时候，我本意想着嫖点晶体，隔着封印把怪打死了，没想到还有隐藏剧情的太草了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  AeonsTorn  
+##### 326#       发表于 2022-10-17 12:35
+
+ 本帖最后由 AeonsTorn 于 2022-10-17 12:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57949506&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-17 09:41</a>
+
+自动格挡是哪个装备提供的？我好像没拿到这个</blockquote>
+战盾，火山里卖的
+
+*****
+
+####  fuochai  
+##### 327#       发表于 2022-10-17 12:39
+
+说起来红球我带到湖里没效果，结果只能在村庄里泡 真是无大语了
+
+不过村庄和山洞好像不在同一时空 这样倒也合理<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
