@@ -4283,3 +4283,60 @@ ru裱亲弟还在踩缝纫机嘞
 
 ds也是冠军英雄吧
 
+
+
+*****
+
+####  Kazepollar  
+##### 8023#       发表于 2022-10-17 09:02
+
+其实感觉先知也是超高上限英雄，能拿冠军很合理
+
+*****
+
+####  情商  
+##### 8024#         楼主| 发表于 2022-10-17 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948872&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-17 08:57</a></blockquote>
+刚才翻了一下数据，小黑居然一次ti决赛没上过，哪怕是最强版本ti6.
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">ti5的ts 好歹能出ban位一次，ti6的小黑选出来就是autowin比虚空还离谱
+
+*****
+
+####  情商  
+##### 8025#         楼主| 发表于 2022-10-17 09:03
+
+ 本帖最后由 情商 于 2022-10-17 09:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948923&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-17 09:01</a>
+
+ds也是冠军英雄吧</blockquote>
+帕克、小娜迦、DS、先知、精灵、拉比克、牛头、光法、猛犸、飞机都是双冠。
+
+火猫硬实力3冠王
+
+<img src="https://imgo.soyohui.com//update/ueditor/20180625/gpdbsdcfpro.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 8026#       发表于 2022-10-17 09:06
+
+敌法这种垃圾英雄能上盾真的是技师太强了
+
+*****
+
+####  银翼的维罗西  
+##### 8027#       发表于 2022-10-17 09:10
+
+如果坐在训练室的我，后面忘了，我已经提前原谅了RNG
+
+写在RNG受难前的一小时
+
+*****
+
+####  情商  
+##### 8028#         楼主| 发表于 2022-10-17 09:10
+
+有一说一，卜是a畜，血魔跟船长都能上盾，第一个三冠王就是牛头了
+
