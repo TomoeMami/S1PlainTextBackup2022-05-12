@@ -1553,3 +1553,19 @@ Ok，我扫了眼后期职业，感觉就缺个皮甲弓（罗宾我当板甲弓
 
 不够二次元，不太行
 
+
+
+*****
+
+####  museqsou  
+##### 141#       发表于 2022-10-17 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956720&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-17 15:59</a>
+
+养成卡的比较死。
+
+其实要说自由度也有，
+
+所有队员想练什么职业都可以，前后上下转职随意切换。</blockquote>
+高难度也磨不了，回复资源有限
+

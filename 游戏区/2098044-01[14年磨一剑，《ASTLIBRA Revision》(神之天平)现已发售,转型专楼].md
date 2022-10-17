@@ -3725,3 +3725,25 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 二周目剧情完全不一样 还挺良心的 就是这个无限强化有点过分了
 
+
+
+*****
+
+####  五块  
+##### 344#       发表于 2022-10-17 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957122&amp;ptid=2098044" target="_blank">ccow 发表于 2022-10-17 16:22</a>
+
+打完第一章了。关底龙是刮痧刮死的，有没有好点办法对付。我的打法是蓄力飞剑加槽，然后变龙喷火。 ...</blockquote>
+没办法，这游戏战斗系统和仁王2有那么一点像，前期手段比较缺乏的时候只能硬刮，后期站撸打精力条，妖怪（凭依）技、格挡后跳等无敌帧花式躲技能，打出硬直后一顿砍。
+
+*****
+
+####  黒長直姫  
+##### 345#       发表于 2022-10-17 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957122&amp;ptid=2098044" target="_blank">ccow 发表于 2022-10-17 16:22</a>
+
+打完第一章了。关底龙是刮痧刮死的，有没有好点办法对付。我的打法是蓄力飞剑加槽，然后变龙喷火。 ...</blockquote>
+破防打头 或者肝出暗凭依技能？
+
