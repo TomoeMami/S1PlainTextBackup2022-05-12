@@ -3909,3 +3909,24 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 卧槽这素材也太难刷了，我装了掉素材的被动，然后分了50点到幸运上，第四章刷了半小时才刷到一个螃蟹肉和乌龟壳，看来一开始说刷刷刷时间占一半还说短了日。
 
+
+
+*****
+
+####  孫光龍  
+##### 362#       发表于 2022-10-17 21:58
+
+ 本帖最后由 孫光龍 于 2022-10-17 21:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">这boss也太难了吧.....血超厚，打起来太刮痧了......
+
+*****
+
+####  vidomina  
+##### 363#       发表于 2022-10-17 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961990&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-17 21:36</a>
+
+卧槽这素材也太难刷了，我装了掉素材的被动，然后分了50点到幸运上，第四章刷了半小时才刷到一个螃蟹肉和乌 ...</blockquote>
+要到蛇洞地图刷，那里掉落体感比海滩容易多了，除了螃蟹壳没有，其他都好掉。
+
