@@ -2056,3 +2056,312 @@ kaka什么情况，我把茶的比赛开着一眼都没看进去</blockquote>
 
 茶要翻了
 
+
+
+*****
+
+####  IG.430  
+##### 9226#       发表于 2022-10-17 13:21
+
+野王笑的好开心
+
+*****
+
+####  蛭人  
+##### 9227#       发表于 2022-10-17 13:21
+
+野王笑嘻了。
+
+*****
+
+####  吃货红毛  
+##### 9228#       发表于 2022-10-17 13:21
+
+圣子华联给我说中文！！！
+
+*****
+
+####  迷途lite  
+##### 9229#       发表于 2022-10-17 13:21
+
+这娜迦怎么做到劣势经济跟他妈ga一样的啊，有点诡异了
+
+*****
+
+####  Hieda  
+##### 9230#       发表于 2022-10-17 13:22
+
+茶这也能打赢一波团控到三代盾<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 9231#       发表于 2022-10-17 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954074&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-17 13:20:06</a>
+茶队自己作孽自己受，也没有祸害别人。这种事都是看后果的。你祸害了别的队跟自己作死不是一个待遇的 ...</blockquote>当初小象全员得病不就是茶传的？自来也fy皮鞋在国外呆到年底才回来
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  DDT  
+##### 9232#       发表于 2022-10-17 13:22
+
+什么，刚都不忍心看了居然要翻了
+
+*****
+
+####  Keynes  
+##### 9233#       发表于 2022-10-17 13:22
+
+还是不好打，再打一波大团灭才翻了
+
+*****
+
+####  nightmare902015  
+##### 9234#       发表于 2022-10-17 13:22
+
+希望lgd再接再厉勇夺六个冠<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 9235#       发表于 2022-10-17 13:22
+
+相信菲律宾a/拉文
+
+*****
+
+####  Rorgen  
+##### 9236#       发表于 2022-10-17 13:23
+
+eg和潘飞接触过，现在全去检测了
+
+*****
+
+####  sodah  
+##### 9237#       发表于 2022-10-17 13:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这小鱼对着野王扣了半天。
+
+*****
+
+####  nowaki  
+##### 9238#       发表于 2022-10-17 13:24
+
+rng决定继续比赛 查理斯打2 flyby打3
+
+*****
+
+####  nightmare902015  
+##### 9239#       发表于 2022-10-17 13:24
+
+tmd兄弟现在火车上邻座一直重咳，尾巴哥说的我有点怕
+
+*****
+
+####  拿拿子  
+##### 9240#       发表于 2022-10-17 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我觉得我看过有个采访，萧瑟说出去玩还要去赌场，有没有楼友记得这个片段的
+
+总觉得lgd有些东西没说清楚
+
+
+
+*****
+
+####  二宮飛鳥酱  
+##### 9241#       发表于 2022-10-17 13:25
+
+还是不好打啊，FNC后期团厉害的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 9242#       发表于 2022-10-17 13:25
+
+盒中盒消息，set猪已经坐上去新加坡的飞机了。
+消息来源：我编的。
+
+*****
+
+####  迷途lite  
+##### 9243#       发表于 2022-10-17 13:26
+
+经验差太多了还是，酱油人均少个天赋
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 9244#       发表于 2022-10-17 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954127&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-17 13:24</a>
+tmd兄弟现在火车上邻座一直重咳，尾巴哥说的我有点怕</blockquote>
+真🐏你下车也是隔离，补阳也没事。淡定
+
+*****
+
+####  情商  
+##### 9245#         楼主| 发表于 2022-10-17 13:27
+
+隔离7天消费还是贵的，加上工资上万了吧
+
+*****
+
+####  天堂蜘蛛  
+##### 9246#       发表于 2022-10-17 13:27
+
+FNC怎么打的这么怂？自己谜团刷新大茶茶把技能都交完了都不敢接？
+
+*****
+
+####  StrangerJ  
+##### 9247#       发表于 2022-10-17 13:27
+
+这fnatic打得像要输了一样<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 9248#       发表于 2022-10-17 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954101&amp;ptid=2099454" target="_blank">坚定的团子党 发表于 2022-10-17 13:22</a>
+
+当初小象全员得病不就是茶传的？自来也fy皮鞋在国外呆到年底才回来
+
+  -- 来自 有消息提醒的 Stage1官方 An ...</blockquote>
+小象都ti打完了才感染的吧。茶都ti之前好几天。。后面其他队自测没问题
+
+*****
+
+####  魔人揪揪  
+##### 9249#       发表于 2022-10-17 13:27
+
+当年分尸wings好像也是lgd先下的手？真的是初生队啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asd235614  
+##### 9250#       发表于 2022-10-17 13:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">草我好难受啊，开了茶的台但是完全看不进去
+
+*****
+
+####  反方向的波  
+##### 9251#       发表于 2022-10-17 13:28
+
+卜是，冠超有人顶位置了，那胡良智呢
+这老头也顶着疑似症状打？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 9252#       发表于 2022-10-17 13:28
+
+如果有多个队伍被密接传染了，能把这贱畜队伍禁赛了吗<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  漂灵  
+##### 9253#       发表于 2022-10-17 13:28
+
+2233 https://m.bilibili.com/video/BV1f84y1B7Cd?ts=1665983254&amp;spmid=333.401.click.visitFirstAwakePopup&amp;h5_buvid=6334938E-A703-A3E4-E979-6EB0F076827C59292infoc&amp;unique_k=7kXSC1A&amp;bsource=share_source_copy_link&amp;page=0
+
+*****
+
+####  dclara1  
+##### 9254#       发表于 2022-10-17 13:28
+
+美国贴吧的day3水楼在哪？置顶的那个锁帖了不知道为什么
+
+*****
+
+####  古代人皮克  
+##### 9255#       发表于 2022-10-17 13:28
+
+崩溃真的太牛逼了
+
+*****
+
+####  sodah  
+##### 9256#       发表于 2022-10-17 13:28
+
+卡狗那个消息不是真的吧。
+
+*****
+
+####  迷途lite  
+##### 9257#       发表于 2022-10-17 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954127&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-17 13:24</a>
+tmd兄弟现在火车上邻座一直重咳，尾巴哥说的我有点怕</blockquote>
+现在进站不都48小时核酸了，有症状还能阴的是小概率事件吧，安心
+多说一句密接隔离不是自费的，喜提十天假期看比赛也还不错
+
+*****
+
+####  nowaki  
+##### 9258#       发表于 2022-10-17 13:28
+
+超级集美论坛洗地整理
+
+1眉飞瑟舞是真的，傻子傻人有傻福没羊
+
+2新加坡每天那么多人羊，你拿出证据说是潘飞传染的
+
+3潘飞csdx，但和lgd没关系
+
+*****
+
+####  UnhappyTails  
+##### 9259#       发表于 2022-10-17 13:28
+
+rng微博下面直接就是嗯洗的
+
+那个什么北欧王座也太乐观了
+
+这种小场面lgd随便整点网军就能把白的变成黑的，根本不是问题
+
+*****
+
+####  テロメア  
+##### 9260#       发表于 2022-10-17 13:28
+
+ 本帖最后由 テロメア 于 2022-10-17 13:30 编辑 
+
+小鱼一接团什么都打不出来
+
+只要这样就能赢
+
+*****
+
+####  勤练带来力量  
+##### 9261#       发表于 2022-10-17 13:29
+
+卡狗那个应该是造谣的，应该是flyby替补哥们几个硬上了
+
+*****
+
+####  zhrs456  
+##### 9262#       发表于 2022-10-17 13:30
+
+这沉默不把自己当人了啊
+
+*****
+
+####  walfeds  
+##### 9263#       发表于 2022-10-17 13:30
+
+脑东京灵车漂移了
+
+*****
+
+####  IG.430  
+##### 9264#       发表于 2022-10-17 13:30
+
+皮球真狠啊
+全部身价卖了出刷新
+
