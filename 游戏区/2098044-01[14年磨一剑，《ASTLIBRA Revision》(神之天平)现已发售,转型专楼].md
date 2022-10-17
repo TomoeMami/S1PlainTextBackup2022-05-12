@@ -4069,3 +4069,27 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 火山打完龙拿到鞋子要去哪干嘛啊，，，<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  火之魂  
+##### 378#       发表于 2022-10-18 00:32
+
+ 本帖最后由 火之魂 于 2022-10-18 00:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">正统国王盔甲和什么礼剑的食品素材怎么出啊？
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这第二个电梯开关太鬼畜了 鬼知道能跳啊 
+
+*****
+
+####  装甲兔  
+##### 379#       发表于 2022-10-18 00:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57927120&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-15 21:49</a>
+
+上面有人说了呀 分解金色的模板
+
+论坛助手,iPhone</blockquote>
+如何分解？？
+

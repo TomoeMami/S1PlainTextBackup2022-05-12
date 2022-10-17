@@ -11901,3 +11901,15 @@ sf现在是这个版本没有缺点的英雄，虽然上限第一是水人
 
 照片在哪儿，我怎么没看到
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 11996#       发表于 2022-10-18 00:31
+
+那年今日
+<img src="https://p.sda1.dev/7/6bbe4ded9cdcc303b04e151310b36ca7/-1b4f4dc7e41c14e9.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
