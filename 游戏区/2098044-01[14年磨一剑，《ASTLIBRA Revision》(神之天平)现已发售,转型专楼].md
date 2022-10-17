@@ -4156,3 +4156,12 @@ https://w.atwiki.jp/astlibra/</blockquote>
 —— 来自 Xiaomi M2012K11AC, Android  ...</blockquote>
 后来能拿到免疫地形伤的道具，没拿之前就没法了
 
+
+
+*****
+
+####  jy000129  
+##### 386#       发表于 2022-10-18 01:50
+
+战神的斩铁闪怎么躲？直接秒我
+
