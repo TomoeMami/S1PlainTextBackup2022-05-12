@@ -4075,3 +4075,64 @@ Lgd今天有人阳了吗
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  宫藤芳佳  
+##### 8001#       发表于 2022-10-17 08:33
+
+很难不怀疑喜欢包养女大学生的潘飞一下飞机就去大保健感染上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 8002#       发表于 2022-10-17 08:33
+
+三冠王起码得三个新冠吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yangkaim4  
+##### 8003#       发表于 2022-10-17 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948050&amp;ptid=2099454" target="_blank">帕林马哲理 发表于 2022-10-17 06:19</a>
+
+潘飞不是代ruru坐过牢么，这种刑满释放人员也能随便出国感染别人啊。 ...</blockquote>
+不是太后的弟弟？
+
+*****
+
+####  Rorgen  
+##### 8004#       发表于 2022-10-17 08:38
+
+<img src="https://img.saraba1st.com/forum/202210/17/083702jm2gg2i4wnan27yh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 08:37 上传
+
+刘家电这次基了大德了
+
+*****
+
+####  反方向的波  
+##### 8005#       发表于 2022-10-17 08:40
+
+一想到没有徐林森解说就感到索然无味
+
+*****
+
+####  情商  
+##### 8006#         楼主| 发表于 2022-10-17 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948613&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-17 08:32</a>
+昨天打了半天游戏，感觉人好了周末就特么不应该看比赛，上班摸鱼才配
+
+—— 来自 Xiaomi M2012K11AC ...</blockquote>
+玉玉有所好转是吧
+
