@@ -3809,3 +3809,21 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  eaclica  
+##### 352#       发表于 2022-10-17 17:14
+
+二周目能重新选难度吗？有点想选简单快速通关看剧情
+
+*****
+
+####  黒長直姫  
+##### 353#       发表于 2022-10-17 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957971&amp;ptid=2098044" target="_blank">eaclica 发表于 2022-10-17 17:14</a>
+二周目能重新选难度吗？有点想选简单快速通关看剧情</blockquote>
+难度本来就是可以下调的呀 不能上调
+

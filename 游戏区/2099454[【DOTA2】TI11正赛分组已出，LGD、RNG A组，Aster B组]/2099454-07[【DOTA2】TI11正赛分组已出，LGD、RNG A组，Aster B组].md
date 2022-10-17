@@ -10323,3 +10323,354 @@ og直接判liquid和og双负算了<img src="https://static.saraba1st.com/image/s
 
 不把时间节点捋清楚一律视为狗东西在糊弄
 
+
+
+*****
+
+####  proselyte  
+##### 10265#       发表于 2022-10-17 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957959&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-17 17:13</a>
+
+不把时间节点捋清楚一律视为狗东西在糊弄</blockquote>
+畜生东西去死吧
+
+最好得xbb死在新加坡
+
+*****
+
+####  usoda  
+##### 10266#       发表于 2022-10-17 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957937&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-17 17:12</a>
+
+没新冠我觉得maybe和kaka能把对面捅穿</blockquote>
+难说 这个队打的其实挺有章法的 干瘪被他们速刷不是没原因的
+
+*****
+
+####  nowaki  
+##### 10267#       发表于 2022-10-17 17:14
+
+潘飞已经原谅超哥了
+
+*****
+
+####  非建政专用号  
+##### 10268#       发表于 2022-10-17 17:14
+
+呃呃13号阳16号上报，没有瞒报我不好说
+
+*****
+
+####  憧憬鲨  
+##### 10269#       发表于 2022-10-17 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957959&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-17 17:13</a>
+不把时间节点捋清楚一律视为狗东西在糊弄</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没瞒报都出来了，那他跟越办越好打一架？
+
+*****
+
+####  尖刺外婆  
+##### 10270#       发表于 2022-10-17 17:15
+
+换个角度想，撸狗畜沈带着马来小天洗一轮游还能接受吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 10271#       发表于 2022-10-17 17:15
+
+潘飞这个死妈畜牲还在洗
+
+*****
+
+####  反方向的波  
+##### 10272#       发表于 2022-10-17 17:15
+
+没瞒报也出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来v社的处罚是假的#valve乳华
+
+*****
+
+####  lyjssj  
+##### 10273#       发表于 2022-10-17 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">你这么人畜无害v社罚lgd干嘛
+
+*****
+
+####  VanArkride  
+##### 10274#       发表于 2022-10-17 17:15
+
+他的意思是报了酒店没报v社，但他这个没出门我是不信的
+建议还是飞🐎
+
+*****
+
+####  nowaki  
+##### 10275#       发表于 2022-10-17 17:15
+
+哦牛批 13号就上报v社处罚你干嘛
+
+*****
+
+####  caupollen  
+##### 10276#       发表于 2022-10-17 17:15
+
+其他四个人不是怕夺冠影响心气了啊，如果五个人一起得说不定放下包袱直接一搏
+
+*****
+
+####  StrangerJ  
+##### 10277#       发表于 2022-10-17 17:15
+
+og马体这两个逼队不打让后面的先打行不行？
+
+*****
+
+####  两三流浪者  
+##### 10278#       发表于 2022-10-17 17:16
+
+水厂的畜生真是一个比一个恶心
+
+*****
+
+####  恐怖利刃  
+##### 10279#       发表于 2022-10-17 17:16
+
+#v社乳化#steam滚出中国
+
+*****
+
+####  莉拉厨  
+##### 10280#       发表于 2022-10-17 17:16
+
+现在的og可能真比hokori好打，不然超哥休息一下明天见？
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 10281#       发表于 2022-10-17 17:16
+
+报了就不算瞒报，晚三天也不算是吧，csdx
+
+*****
+
+####  ckming  
+##### 10282#       发表于 2022-10-17 17:16
+
+良智这个版本太不理想了，玩个小小打4肉眼可见的操作僵硬，话说良智还有什么英雄能掏出来的？小强还不错，lion萨满这版本都一般啊
+
+*****
+
+####  北欧王座  
+##### 10283#       发表于 2022-10-17 17:16
+
+那还是希望他们尽力去打，然后退场了也可以**方方的喷菜。跟rng也没啥仇怨。现在这样子被搞称不上竞技，只有挣扎和遗憾。尤其始作俑者越打越滋润，非常不公平
+
+*****
+
+####  Horusddt  
+##### 10284#       发表于 2022-10-17 17:17
+
+这状态超哥休息有毛用，还是另外四兄弟该洗脸洗脸该检查检查吧
+
+*****
+
+####  Rorgen  
+##### 10285#       发表于 2022-10-17 17:17
+
+卡狗别的不说，心态绝对已经炸中炸不想打了
+
+*****
+
+####  莉拉厨  
+##### 10286#       发表于 2022-10-17 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958012&amp;ptid=2099454" target="_blank">ckming 发表于 2022-10-17 17:16</a>
+良智这个版本太不理想了，玩个小小打4肉眼可见的操作僵硬，话说良智还有什么英雄能掏出来的？小强还不错，l ...</blockquote>
+良智不会马西太伤了，现在先选的那边不ban马西等着对面ban，rng这边就算是先选也要ban
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 10287#       发表于 2022-10-17 17:17
+
+尼玛新冠休息一天有毛用啊
+
+*****
+
+####  woyzeck  
+##### 10288#       发表于 2022-10-17 17:18
+
+万二敌法再菜也不可能不会带线，唯一的解释就是一直觉得正面能打。
+
+*****
+
+####  nightmare902015  
+##### 10289#       发表于 2022-10-17 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958012&amp;ptid=2099454" target="_blank">ckming 发表于 2022-10-17 17:16</a>
+良智这个版本太不理想了，玩个小小打4肉眼可见的操作僵硬，话说良智还有什么英雄能掏出来的？小强还不错，l ...</blockquote>
+辣比克
+
+*****
+
+####  勤练带来力量  
+##### 10290#       发表于 2022-10-17 17:18
+
+#v社乳化
+
+
+
+*****
+
+####  非建政专用号  
+##### 10291#       发表于 2022-10-17 17:18
+
+司了马了，给og和液体一时间整的没比赛看了
+
+*****
+
+####  越动天下  
+##### 10292#       发表于 2022-10-17 17:18
+
+我也觉得现在重点不是超哥 还是看看其他人什么回事 是病了还是心态炸了 去看看
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 10293#       发表于 2022-10-17 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958035&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-17 17:18</a>
+辣比克</blockquote>
+第一场那个？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bin哥厉害  
+##### 10294#       发表于 2022-10-17 17:18
+
+打的像是超哥转阴了其他几兄弟羊了
+
+*****
+
+####  nightmare902015  
+##### 10295#       发表于 2022-10-17 17:18
+
+不是，卡神真的会玛西。他练了很久而且顶分局能看见。不知道为何不多拿。
+
+*****
+
+####  やト  
+##### 10296#       发表于 2022-10-17 17:19
+
+ 超哥身体这么不舒服 也没在犯罪啊
+
+*****
+
+####  ckming  
+##### 10297#       发表于 2022-10-17 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958029&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-17 10:17</a>
+
+良智不会马西太伤了，现在先选的那边不ban马西等着对面ban，rng这边就算是先选也要ban
+
+—— 来自 Xiaomi ...</blockquote>
+马西这版本第一四号位，良智不敢点确实太硬伤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IPoke  
+##### 10298#       发表于 2022-10-17 17:19
+
+整这么一出哥们班都上不顺溜了，选手拉了也就拉了吧，水厂全责
+
+— from OnePlus CPH2415, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  银翼的维罗西  
+##### 10299#       发表于 2022-10-17 17:19
+
+RNG就这实力，老干鳖打不过的对手RNG打不过很奇怪吗，第一天打完就说了RNG挺软的
+
+*****
+
+####  朝游北海  
+##### 10300#       发表于 2022-10-17 17:20
+
+<blockquote>nightmare902015 发表于 2022-10-17 17:18
+不是，卡神真的会玛西。他练了很久而且顶分局能看见。不知道为何不多拿。 ...</blockquote>
+比赛拿了几把，肉眼可见的节奏不行
+
+*****
+
+####  蛭人  
+##### 10301#       发表于 2022-10-17 17:20
+
+吐了，misha不就是被上帝之神从游戏ban了吗，都两个小时了，重开一把不行？这主办方都协调不了的话，建议别办比赛了。
+
+*****
+
+####  ckming  
+##### 10302#       发表于 2022-10-17 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958035&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-17 10:18</a>
+
+辣比克</blockquote>
+拉比克第一场看过了，谜团拉大他去投个猛犸波<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 不如玩个牛头算了，给除沈选那种长手线强的3，先知之类的
+
+*****
+
+####  usoda  
+##### 10303#       发表于 2022-10-17 17:21
+
+其他4个肯定心态炸了啊 全是密接啊。。老外是无所谓 我们国内这环境出去的 得知自己是密接你慌不慌？
+
+*****
+
+####  nowaki  
+##### 10304#       发表于 2022-10-17 17:21
+
+实力nmb啊 液体2-0eg eg2-0lgd lgd2-0rng rng1-1液体怎么说 薛定谔的实力？司马投毒队搞盘外招还有人洗是吧
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 10305#       发表于 2022-10-17 17:21
+
+给kaka畜吧，试一试咯
+
+*****
+
+####  Asukalangley33  
+##### 10306#       发表于 2022-10-17 17:22
+
+4号位畜选出来AUTOLOSE啊
+
+*****
+
+####  ArowRocher  
+##### 10307#       发表于 2022-10-17 17:22
+
+潘飞可能是觉得自己告诉酒店没告诉v社不算瞒报，瞒报的定义两说。但卡卡说在电梯里见过潘飞，难道卡卡说谎咯
+
+*****
+
+####  莉拉厨  
+##### 10308#       发表于 2022-10-17 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958029&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-17 17:17</a>
+良智不会马西太伤了，现在先选的那边不ban马西等着对面ban，rng这边就算是先选也要ban
+
+—— 来自 Xiaomi ...</blockquote>
+看了一下banpick表有点刻板印象了，卡狗还是玩了两把马西的，虽然打的不怎么样。RNG喜欢ban马西是因为他们老是后选
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

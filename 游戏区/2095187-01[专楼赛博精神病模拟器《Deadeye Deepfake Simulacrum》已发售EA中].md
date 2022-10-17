@@ -1312,3 +1312,19 @@ Esc菜单，关游戏重进，被杀都能跳过教程，但少了3个芯片。�
 
 猴子就不知道了，意义不明。
 
+
+
+*****
+
+####  wangyi041228  
+##### 67#       发表于 2022-10-17 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957884&amp;ptid=2095187" target="_blank">Tring 发表于 2022-10-17 17:10</a>
+
+好像是打掉火车BOSS的奖励吧？</blockquote>
+前台说谎69奖励的技能也是永久的，之后的新档跳过教程也有已经解锁的初始技能，这是写到注册表的。
+
+计算机\HKEY_CURRENT_USER\SOFTWARE\nodayshalleraseyou\DeadeyeDeepfakeSimulacrum
+
+C:\Users\*\AppData\LocalLow\nodayshalleraseyou\DeadeyeDeepfakeSimulacrum\
+
