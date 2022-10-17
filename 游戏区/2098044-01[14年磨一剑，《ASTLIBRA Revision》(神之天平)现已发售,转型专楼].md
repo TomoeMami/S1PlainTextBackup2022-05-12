@@ -3628,3 +3628,19 @@ https://w.atwiki.jp/astlibra/</blockquote>
 昨天更新之后突然遇到隔几秒钟就卡一下画面的情况，有人遇到吗？在标题画面都会卡，音乐正常，非常奇怪[f:0 ...</blockquote>
 还没更新 希望能解决我机子上切屏直接卡死进程的问题
 
+
+
+*****
+
+####  Ashice  
+##### 334#       发表于 2022-10-17 15:54
+
+幸运会有些材料掉率吗，刷得我有点受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逸一死吾亦死  
+##### 335#       发表于 2022-10-17 15:58
+
+第六章其实还好吧，老板娘的话说得还是比较清晰了
+
