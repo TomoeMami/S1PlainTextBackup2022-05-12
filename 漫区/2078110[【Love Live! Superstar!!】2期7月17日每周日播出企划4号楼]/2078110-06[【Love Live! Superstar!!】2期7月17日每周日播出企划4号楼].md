@@ -10025,3 +10025,19 @@ yamero，super ptsd了
 
 鱼这大白腿<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DarthAka  
+##### 8442#       发表于 2022-10-17 14:58
+
+妮鱼好赖大学毕业了，10月11月学园祭季节，找声优出活动不稀奇，前几天隔壁楼还贴过图未梦有4摊
+
+*****
+
+####  cybernetics31  
+##### 8443#       发表于 2022-10-17 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟团里大学毕业的就2个啊
+

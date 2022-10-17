@@ -8003,3 +8003,12 @@ qa里面那句话说的挺好的，不能妥善的续写还不如开启新篇章
 什么年代了还在搞传统音乐  
 [https://tieba.baidu.com/p/8092727439#145844887986l](https://tieba.baidu.com/p/8092727439#145844887986l)
 
+
+
+*****
+
+####  佛皇  
+##### 2351#       发表于 2022-10-17 14:55
+
+要是搞原创音乐就能活下去，歌姬就不会中道崩殂了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
