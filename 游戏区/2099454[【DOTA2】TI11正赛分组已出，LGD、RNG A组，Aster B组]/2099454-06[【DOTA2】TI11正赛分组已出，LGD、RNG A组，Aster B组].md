@@ -4206,3 +4206,80 @@ Lgd今天有人阳了吗
 
 这个核中核还挺符合A畜人品的
 
+
+
+*****
+
+####  Rorgen  
+##### 8015#       发表于 2022-10-17 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948776&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-17 08:50</a>
+昨晚睡前手了把io，理解赵子星了，你玩io你也困</blockquote>
+赵子星混90016的，当年那位先生的指定io
+
+*****
+
+####  银翼的维罗西  
+##### 8016#       发表于 2022-10-17 08:52
+
+核中核消息，misha神今天将给老干鳖送饭喜提阳性
+
+*****
+
+####  jk9hot  
+##### 8017#       发表于 2022-10-17 08:53
+
+ 本帖最后由 jk9hot 于 2022-10-17 09:00 编辑 
+
+核中核消息潘飞身体不舒服才开始隔离，隔离前跟全部队员同吃同住了两天。
+看好5个全🐏
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  walfeds  
+##### 8018#       发表于 2022-10-17 08:57
+
+<img src="https://img.saraba1st.com/forum/202210/17/085715puim4sl6p2hausiu.jpg" referrerpolicy="no-referrer">
+
+<strong>5yz7ef70i6u91.jpg</strong> (499.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 08:57 上传
+
+*****
+
+####  情商  
+##### 8019#         楼主| 发表于 2022-10-17 08:58
+
+支持火猫今年第四冠
+
+*****
+
+####  battleship64  
+##### 8020#       发表于 2022-10-17 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948780&amp;ptid=2099454" target="_blank">12481632 发表于 2022-10-17 08:50</a>
+有没有新加坡前十来科普一下坡县现在的隔离政策的，之前不是说都放开了么 ...</blockquote>
+我v社给你们那么多奖金不能层层加码？李家坡什么ddx
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  牛肉丸  
+##### 8021#       发表于 2022-10-17 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948632&amp;ptid=2099454" target="_blank">yangkaim4 发表于 2022-10-17 08:35</a>
+
+不是太后的弟弟？</blockquote>
+ru裱亲弟还在踩缝纫机嘞
+
+*****
+
+####  Kazepollar  
+##### 8022#       发表于 2022-10-17 09:01
+
+ds也是冠军英雄吧
+
