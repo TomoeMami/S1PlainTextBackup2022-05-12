@@ -984,3 +984,430 @@ cnm的
 黄翔被水厂像狗一样踢了这么多次居然还能舔得下去</blockquote>
 畜生只要有肉吃是什么都不在意的
 
+
+
+*****
+
+####  azccc52  
+##### 9104#       发表于 2022-10-17 12:51
+
+你的素养很差，我现在在LGD担任经理，每天带着新冠跑五个战队，一个月差不多就能把v社都感染了，虽然我的双亲去世，但是我能保证LGD的冠军不容置疑，这就是ruru给我的自信
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 9105#       发表于 2022-10-17 12:51
+
+雪碧又鳖赢了？
+不会又要ti8剧情了吧
+
+*****
+
+####  坚定的团子党  
+##### 9106#       发表于 2022-10-17 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953495&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-17 12:47:01</a>
+说明结果肯定有问题啊，这东西潜伏期再短也要一两天吧，13号阳的大概率是11号得的，15号已经4天了说不定 ...</blockquote>这种结果怎么有问题，是v社组织上门检测又不是自检能改结果的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  二宮飛鳥酱  
+##### 9107#       发表于 2022-10-17 12:51
+
+潘飞最好真的在自主隔离哦，但凡出来点照片我看老干瘪怎么洗，CSDX<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 9108#       发表于 2022-10-17 12:52
+
+希望卡狗ghost小天洗哦还有撸狗猪别阳
+鳖星的几个也别再阳一遍了
+别的也卜想说啥了<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 9109#       发表于 2022-10-17 12:52
+
+<img src="https://img.saraba1st.com/forum/202210/17/125142cb0zm0ni14184iyt.jpg" referrerpolicy="no-referrer">
+
+<strong>T]{SEI6GO$((O4($US6T)T7.jpg</strong> (74.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 12:51 上传
+
+rng领队：我昨天在电梯里看到的潘飞是鬼魂？
+
+*****
+
+####  linchuanwangmou  
+##### 9110#       发表于 2022-10-17 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953535&amp;ptid=2099454" target="_blank">IPoke 发表于 2022-10-17 12:48</a>
+
+合着水厂啥事没有，这队不遭报应我不信刀塔之神了
+
+— from OnePlus CPH2415, Android 12 of S1 Next Goose ...</blockquote>
+报应就是永远拿不到ti
+
+*****
+
+####  强袭型抹布  
+##### 9111#       发表于 2022-10-17 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953430&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 12:43</a>
+毒狗潘飞确认阳了隐瞒不报，到处和选手接触尽显剧毒风范，冠超得了个小小新冠弃赛不打，9-1开局难掩颓势之 ...</blockquote>
+后面呢？总不能全弃赛吧。
+想想我还是因为s1 的帖子变成超哥粉的呢，难得今年超哥状态好队友还不拉垮。
+这要是后面弃赛了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Troywest  
+##### 9112#       发表于 2022-10-17 12:52
+
+雪碧来状态了？不搞1:1了？
+难得赢了第一场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有机会2:0秘密呃
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zhliiiii  
+##### 9113#       发表于 2022-10-17 12:52
+
+报应就这？潘婕全家暴毙！
+
+*****
+
+####  天堂蜘蛛  
+##### 9114#       发表于 2022-10-17 12:52
+
+反正干瘪自己发的vlog里潘飞跟队员可是在一起的
+
+我看水厂这次怎么洗
+
+*****
+
+####  憧憬鲨  
+##### 9115#       发表于 2022-10-17 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953602&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-17 12:52</a>
+rng领队：我昨天在电梯里看到的潘飞是鬼魂？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">截图保真吗
+
+*****
+
+####  nowaki  
+##### 9116#       发表于 2022-10-17 12:53
+
+听小尿布说，卡狗14号还在电梯里遇到过潘飞
+
+*****
+
+####  Rorgen  
+##### 9117#       发表于 2022-10-17 12:53
+
+Dead by Panfei是一款多人(4vs1) 的恐怖游戏。游戏由其中一人扮演LGD经理潘飞，另外四人扮演RNG的队员。RNG队员们将试图从潘飞手中奋力逃脱，修理超哥的呼吸机，激活病房大门，从而让自己免去被新冠感染的危险。
+
+*****
+
+####  syndrome2032  
+##### 9118#       发表于 2022-10-17 12:53
+
+ti8个头，干瘪这种乐色队伍别上去2:3丢人了，建议尽快滚蛋。
+
+*****
+
+####  nightmare902015  
+##### 9119#       发表于 2022-10-17 12:53
+
+说什么自我隔离本来就是csdx骗人的，信这种不上报的人自我隔离那就哈哈了。
+
+*****
+
+####  tengshuo980  
+##### 9120#       发表于 2022-10-17 12:53
+
+为超哥祈福，希望能缓过来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  UnhappyTails  
+##### 9121#       发表于 2022-10-17 12:54
+
+他都不上报了，你能信他自主隔离？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 9122#       发表于 2022-10-17 12:54
+
+哦牛逼，面八和RNG领队两个说法，赶紧打起来我要看证据
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 9123#       发表于 2022-10-17 12:54
+
+水厂这司马俱乐部说的话一个字都不要信好吧
+
+*****
+
+####  幻想风靡_  
+##### 9124#       发表于 2022-10-17 12:54
+
+以后就管lxo喊小蛇棒了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thistimeforlife  
+##### 9125#       发表于 2022-10-17 12:54
+
+事已至此 没啥好说的
+rng 加油 aster 加油
+今年不再黑路垚 一次都不黑
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  勤练带来力量  
+##### 9126#       发表于 2022-10-17 12:55
+
+虽然我瞒报新冠但是我从不说谎啊，祝下面畜生婚礼越办越好吧
+
+*****
+
+####  情商  
+##### 9127#         楼主| 发表于 2022-10-17 12:55
+
+刚来，这就是6号位剧毒吗？连lgd的教练都没见过？
+
+<img src="https://img.saraba1st.com/forum/202210/17/125504pd8vqz9mdf6qm2df.jpg" referrerpolicy="no-referrer">
+
+<strong>af24aa119313b07e2343a8c849d7912395dd8c4f.jpg</strong> (51.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 12:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/17/125504amzdqmeb9m5rvvdv.jpg" referrerpolicy="no-referrer">
+
+<strong>8d2fcf2a6059252d00e9e5c4719b033b59b5b94f.jpg</strong> (145.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 12:55 上传
+
+*****
+
+####  StrangerJ  
+##### 9128#       发表于 2022-10-17 12:55
+
+阿茶看到东南亚又开始犯病了是吧
+
+*****
+
+####  nowaki  
+##### 9129#       发表于 2022-10-17 12:55
+
+水厂这么多年干的事不就是孜孜不倦的给其他队伍队员泼脏水。
+
+*****
+
+####  战狼PTSD  
+##### 9130#       发表于 2022-10-17 12:55
+
+Dead by Panfei是一款多人(4vs1) 的恐怖游戏。游戏由其中一人扮演LGD经理潘飞，另外四人扮演RNG的队员。RNG队员们将试图从潘飞手中奋力逃脱，修理超哥的呼吸机，激活病房大门，从而让自己免去被新冠感染的危险。
+
+*****
+
+####  天堂蜘蛛  
+##### 9131#       发表于 2022-10-17 12:56
+
+鹏子这是被血脉压制了？上路直接穿了
+
+*****
+
+####  walfeds  
+##### 9132#       发表于 2022-10-17 12:56
+
+中国人还能不懂自我隔离什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 9133#       发表于 2022-10-17 12:56
+
+链子这解说听得我好难受啊我日
+
+*****
+
+####  nowaki  
+##### 9134#       发表于 2022-10-17 12:57
+
+还有心情看比赛啊，我就等v社一个禁塞lgd了
+
+*****
+
+####  Avantasi  
+##### 9135#       发表于 2022-10-17 12:57
+
+张宁这个司马杂种不会觉得打个病恹恹的队赢一把弃权一把觉得自己是受害者了吧，什么世道
+
+*****
+
+####  情商  
+##### 9136#         楼主| 发表于 2022-10-17 12:57
+
+笑死了，黄翔锁壳了
+
+*****
+
+####  勤练带来力量  
+##### 9137#       发表于 2022-10-17 12:57
+
+弹幕怎么都在刷卡卡也去医院啊，我tm真的要玉玉了卡猴千万别也出事啊
+
+*****
+
+####  Lamapocos  
+##### 9138#       发表于 2022-10-17 12:57
+
+为超哥祈福，顺带潘飞和洗地集美含家产
+
+*****
+
+####  MiteOra  
+##### 9139#       发表于 2022-10-17 12:57
+
+rng想办法再一分啊 10分胜者组应该就稳了 到淘汰赛还能歇几天
+
+*****
+
+####  lostneverland  
+##### 9140#       发表于 2022-10-17 12:58
+
+那rng接下来两场怎么办，直接认输吗？
+
+*****
+
+####  漂灵  
+##### 9141#       发表于 2022-10-17 12:58
+
+哇卡鳖一定要没事啊求求了
+
+*****
+
+####  Saorika  
+##### 9142#       发表于 2022-10-17 12:59
+
+既然是瞒报加自我隔离了，那么就吃饭就靠人送，LGD本身之情肯定不会去，那就是让酒店员工没有防疫准备的前提下上门送饭，那不还是酒店内在放毒吗。。。。。
+
+*****
+
+####  呆毛王嫁给我  
+##### 9143#       发表于 2022-10-17 12:59
+
+我是个唯物主义者，从来不TM信什么祝福祈祷毒奶
+
+但我还是发一个，给超哥集集气
+
+超哥能在接下来的四天好好康复元气满满
+
+不是超哥粉丝巴不得RNG早点淘汰的朋友就自觉点，别拿了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 周藤信彦| + 2|借你吉言|
+
+查看全部评分
+
+*****
+
+####  憧憬鲨  
+##### 9144#       发表于 2022-10-17 12:59
+
+？？我真是日了潘飞血妈别搞卡卡啊
+
+*****
+
+####  Rorgen  
+##### 9145#       发表于 2022-10-17 12:59
+
+最新消息是胡良智有breathing issue
+
+*****
+
+####  IPoke  
+##### 9146#       发表于 2022-10-17 12:59
+
+自我隔离：指与本队队员隔离
+
+— from OnePlus CPH2415, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  UnhappyTails  
+##### 9147#       发表于 2022-10-17 13:00
+
+我已经绝望了，我只希望lgd死
+
+*****
+
+####  EigenVesper  
+##### 9148#       发表于 2022-10-17 13:00
+
+md怎么这两年都是cn队出状况，点怎么这么背
+
+*****
+
+####  nxmonitor  
+##### 9149#       发表于 2022-10-17 13:00
+
+链子哥真的是不能当队友，这话说得都不像中文了……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 9150#       发表于 2022-10-17 13:00
+
+卡神去年已经阳过一次了吧，真再要阳了别搞成long covid了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Horusddt  
+##### 9151#       发表于 2022-10-17 13:00
+
+人祸不能叫点背哦
+
+*****
+
+####  nightmare902015  
+##### 9152#       发表于 2022-10-17 13:00
+
+不行啊卡猴婚都没结，冠了xbb的话那这精子永久性损伤谁给找补啊。
+
