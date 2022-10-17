@@ -3403,3 +3403,15 @@ https://w.atwiki.jp/astlibra/</blockquote>
 我目前打到第四章，一半时间在刷材料和练熟练度，剩下的一半时间在看剧情，真正在战斗探索的时间应该不超 ...</blockquote>
 嗨呀 刷素材不就是探索（
 
+
+
+*****
+
+####  jy000129  
+##### 319#       发表于 2022-10-17 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57949516&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-17 09:41</a>
+
+直接下去啊，那个地方就是被雪盖住了，实际是有路的</blockquote>
+找了半天终于找到了
+
