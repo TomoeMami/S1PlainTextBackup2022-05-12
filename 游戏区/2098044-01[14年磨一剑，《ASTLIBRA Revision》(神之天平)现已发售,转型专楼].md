@@ -3658,3 +3658,31 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 —— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  sahhhh6x  
+##### 337#       发表于 2022-10-17 16:20
+
+矿石镇有个没怪的场景 显示有个宝箱怎么拿 
+
+*****
+
+####  ccow  
+##### 338#       发表于 2022-10-17 16:22
+
+打完第一章了。关底龙是刮痧刮死的，有没有好点办法对付。我的打法是蓄力飞剑加槽，然后变龙喷火。
+
+*****
+
+####  黒長直姫  
+##### 339#       发表于 2022-10-17 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956958&amp;ptid=2098044" target="_blank">绕指流光 发表于 2022-10-17 16:12</a>
+我的问题折腾了一圈搞定了，win10不知道为毛不停扫描HID设备导致的，在设备里删除手柄重连就好了
+你这个 ...</blockquote>
+我试过dx9和11都不行
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
