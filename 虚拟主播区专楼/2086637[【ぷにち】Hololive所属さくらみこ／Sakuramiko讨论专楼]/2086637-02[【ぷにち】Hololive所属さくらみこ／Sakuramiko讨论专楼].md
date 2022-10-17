@@ -9210,3 +9210,12 @@ holo这群人的日程，在半夜收录是很正常的，至少一年前就这�
 
 什么神奇的理由不开歌回开GTA的你有那么不喜欢开单独歌回吗
 
+
+
+*****
+
+####  rs5621  
+##### 2378#       发表于 2022-10-17 19:59
+
+喜欢玩gta，顺便唱歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
