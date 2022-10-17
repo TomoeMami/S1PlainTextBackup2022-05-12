@@ -3529,3 +3529,309 @@ rnga组雪碧b组
 
 茶队就是觉得fn菜，抓着fn练怎么打谜团是吧
 
+
+
+*****
+
+####  Troywest  
+##### 9409#       发表于 2022-10-17 14:01
+
+秘密这是要暴毙？
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 9410#         楼主| 发表于 2022-10-17 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954657&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-17 13:58</a>
+
+有没有懂哥知道rng还需要多少才能进胜者组
+
+—— 来自 S1Fun</blockquote>
+赢一盘就够了
+
+*****
+
+####  cwlo  
+##### 9411#       发表于 2022-10-17 14:01
+
+牛啊 雪碧
+
+*****
+
+####  非建政专用号  
+##### 9412#       发表于 2022-10-17 14:02
+
+ 本帖最后由 非建政专用号 于 2022-10-17 14:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954657&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-17 13:58</a>
+
+有没有懂哥知道rng还需要多少才能进胜者组
+
+—— 来自 S1Fun</blockquote>
+南美红龙扣两分其他弃赛是11-7，假设og和液体打平之后各2-0两个鱼队都是12分
+
+总结一下，不扣红龙没机会，扣了不一定稳<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+-----------------------------------------------------------------------
+
+司了马了，怎么高速路上就我在逆行，我再看看
+
+*****
+
+####  StrangerJ  
+##### 9413#       发表于 2022-10-17 14:02
+
+有放谜团小小？茶队可还有好几个强队没打呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">别把自己玩进败者组，基德基德
+
+*****
+
+####  朝游北海  
+##### 9414#       发表于 2022-10-17 14:03
+
+很急，niwaki要不再喷喷雪碧，骂完就开始翻盘了。
+
+*****
+
+####  迷途lite  
+##### 9415#       发表于 2022-10-17 14:03
+
+意思是总结了一下主要是打不过小松鼠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fananaf  
+##### 9416#       发表于 2022-10-17 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954628&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-17 13:57</a>
+
+还不是被树木连掷砸成傻逼</blockquote>
+那这么说顶着2手小小选小娜迦不是傻中傻了
+
+*****
+
+####  甩不出去的黄牌  
+##### 9417#       发表于 2022-10-17 14:04
+
+不要看不起爆栗出击啊！
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NaYo丶  
+##### 9418#       发表于 2022-10-17 14:04
+
+这个发条开图是吧
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  甩不出去的黄牌  
+##### 9419#       发表于 2022-10-17 14:04
+
+不要看不起爆栗出击啊！
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  迷途lite  
+##### 9420#       发表于 2022-10-17 14:05
+
+x哥，再带弟兄们颠一次吧
+
+
+
+*****
+
+####  StrangerJ  
+##### 9421#       发表于 2022-10-17 14:05
+
+看好阿茶继续犯病<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  5678给  
+##### 9422#       发表于 2022-10-17 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954709&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 14:01</a>
+赢一盘就够了</blockquote>
+怎么赢一盘就够了？你们怎么算的？
+
+*****
+
+####  テロメア  
+##### 9423#       发表于 2022-10-17 14:06
+
+nisha又回来了
+
+*****
+
+####  天堂蜘蛛  
+##### 9424#       发表于 2022-10-17 14:06
+
+茶茶怎么还是不戴口罩啊，哎
+
+也不好对选手们的防疫意识多说什么了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+发个红包祝愿其他选手能健康平安打完比赛吧，也祝愿超哥早日康复
+
+不基德的下面王八和司马水厂除外，我心善就不扩大到选手了
+
+口令：XXXX万丈光芒
+
+*****
+
+####  5678给  
+##### 9425#       发表于 2022-10-17 14:06
+
+rng现在只有九分，赢了一盘，只有十分。另外两个队都还有三场没打，你们是怎么算的？十分就够了？11分才大概率稳，12分才铁够啊？
+
+*****
+
+####  非建政专用号  
+##### 9426#       发表于 2022-10-17 14:07
+
+司了马了，我就说我没算错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 9427#       发表于 2022-10-17 14:08
+
+别的队哪有可能全胜啊
+
+*****
+
+####  StrangerJ  
+##### 9428#       发表于 2022-10-17 14:08
+
+牙头肉秀啊
+
+*****
+
+####  tengshuo980  
+##### 9429#       发表于 2022-10-17 14:08
+
+超丞相，再带兄弟们北伐一次吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  IG.430  
+##### 9430#       发表于 2022-10-17 14:09
+
+yatoro化了劲了
+
+*****
+
+####  战狼PTSD  
+##### 9431#       发表于 2022-10-17 14:09
+
+2分钟就没，能不能照顾下没暖气手冷打字慢的
+
+RNG搞这一出看小组赛的心情都没了
+
+*****
+
+####  憧憬鲨  
+##### 9432#       发表于 2022-10-17 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954714&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-17 14:02</a>
+南美红龙扣两分其他弃赛是11-7，假设og和液体打平之后各2-0两个鱼队都是12分
+
+总结一下，不扣红龙没机会， ...</blockquote>
+别怕兄弟，你的12分铁没了
+
+*****
+
+####  反方向的波  
+##### 9433#       发表于 2022-10-17 14:09
+
+nowaki铁血雪糕啊
+
+*****
+
+####  NeloAngelo  
+##### 9434#       发表于 2022-10-17 14:09
+
+超哥,我的超哥啊啊啊啊啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  哈萨维·诺亚  
+##### 9435#       发表于 2022-10-17 14:09
+
+超哥开了 心疼啊
+
+*****
+
+####  非建政专用号  
+##### 9436#       发表于 2022-10-17 14:09
+
+og打bb和rng，大概率4分
+
+液体打红龙和boom，4分
+
+og液体1比1，两队都12分
+
+最大变局应该是液体淹死在红龙和og淹死在液体里
+
+*****
+
+####  5678给  
+##### 9437#       发表于 2022-10-17 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954809&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-17 14:08</a>
+别的队哪有可能全胜啊</blockquote>
+李逵7分，og6分，两个队各剩三场比赛，有一场是他俩的直接对话，不说全赢，og拿个四分很难吗？没算的是全赢啊，算的就是og三场拿四分啊，其中一场还是rng，你要是只拿一分的话，不是默认rng.，这两分是输的
+
+*****
+
+####  情商  
+##### 9438#         楼主| 发表于 2022-10-17 14:09
+
+小泰迪集合！
+
+*****
+
+####  IG.430  
+##### 9439#       发表于 2022-10-17 14:10
+
+亏贼，nisha跟yatoro论剑双双去世
+
+*****
+
+####  古代人皮克  
+##### 9440#       发表于 2022-10-17 14:10
+
+东京这个滚滚到底有啥用
+
+*****
+
+####  憧憬鲨  
+##### 9441#       发表于 2022-10-17 14:10
+
+小泰迪集合！
+
+*****
+
+####  TI三冠王AME  
+##### 9442#       发表于 2022-10-17 14:11
+
+画Z雌小鬼被TSM海马斯干成啊嘿颜了，Entity要败者组了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ronso  
+##### 9443#       发表于 2022-10-17 14:11
+
+假如今天拿不下这两分，明天不会超哥还要硬顶着上把<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

@@ -7967,3 +7967,14 @@ qa里面那句话说的挺好的，不能妥善的续写还不如开启新篇章
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上海的四禧也吃了一大波疫情的亏啊，还是来杭州吧
 
+
+
+*****
+
+####  ladiesman802  
+##### 2348#       发表于 2022-10-17 14:09
+
+【【syki原创曲】《星际漂流》✧群星点点 流光熠熠 ✧现在我终于找到了属于自己的...-哔哩哔哩】 [https://b23.tv/3cB2r3J](https://b23.tv/3cB2r3J)
+
+新ai的原创曲有些东西，不知道是想做成v还是初音未来那种？
+
