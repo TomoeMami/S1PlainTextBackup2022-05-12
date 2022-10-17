@@ -1554,3 +1554,18 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 再说了，人家有专利不代表不能购买使用权，你游躺着恰了这么多年都不肯想想办法方便玩家吗。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3133#       发表于 2022-10-17 07:55
+
+大家注意一下，之前纪念活动发的35个茶壶，还有两天就过期了（到周三10.19中午12点）。
+
+（过期道具是坏文明<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">）
+
+今天周一出金材料90本，明天周二估计会同时出90+本和90++本，有刷羁绊需求的可以到时爆肝一波；没需求但是不想浪费茶壶的现在就可以规划着开始使用；
+
+当然，没茶壶的就省事了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

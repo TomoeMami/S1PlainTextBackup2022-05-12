@@ -49,3 +49,15 @@
 
 羽毛要迭buff是盘子裏伊甸不够而已。不上buff就能打出上限的光老王的2回合8打拳是很可观的。一回合的话踢掉羽毛改成上假面弟就够了，还比无限少按一键。
 
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17106#       发表于 2022-10-17 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57947027&amp;ptid=1158205" target="_blank">Niu 发表于 2022-10-17 00:28</a>
+
+羽毛要迭buff是盘子裏伊甸不够而已。不上buff就能打出上限的光老王的2回合8打拳是很可观的。一回合的话踢掉 ...</blockquote>
+羽毛3要buff叠满才能用
+

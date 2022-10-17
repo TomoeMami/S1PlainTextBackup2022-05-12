@@ -9876,3 +9876,14 @@ LoveLive!Superchat!!
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 8429#       发表于 2022-10-17 07:58
+
+yamero，super ptsd了
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
