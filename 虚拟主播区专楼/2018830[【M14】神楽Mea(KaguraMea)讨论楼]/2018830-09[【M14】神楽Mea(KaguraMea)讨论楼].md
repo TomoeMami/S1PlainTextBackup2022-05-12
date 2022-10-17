@@ -6819,3 +6819,14 @@ lol瘾来了，又开始玩了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  十九号大侠  
+##### 12659#       发表于 2022-10-17 15:34
+
+突然lol模式明年代表dfm
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

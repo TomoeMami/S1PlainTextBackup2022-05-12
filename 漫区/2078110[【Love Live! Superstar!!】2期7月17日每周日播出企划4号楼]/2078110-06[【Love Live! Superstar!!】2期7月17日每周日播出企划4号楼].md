@@ -10059,3 +10059,22 @@ yamero，super ptsd了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">饼呢 cos饼呢
 
+
+
+*****
+
+####  Enakina  
+##### 8446#       发表于 2022-10-17 15:36
+
+ 本帖最后由 Enakina 于 2022-10-17 15:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57955682&amp;ptid=2078110" target="_blank">DarthAka 发表于 2022-10-17 14:58</a>
+妮鱼好赖大学毕业了，10月11月学园祭季节，找声优出活动不稀奇，前几天隔壁楼还贴过图未梦有4摊 ...</blockquote><blockquote>现在确认できるラブライブ声优大学文化祭参加
+大西亜玖璃
+名古屋工业大学
+相良茉优
+国学院大学
+久保田未梦
+目白大学、中央大学、成蹊大学
+ Liyuu 
+东京工业大学、早稲田大学</blockquote>大学学园祭请偶像啥的挺常见的，也不算新奇
+

@@ -146,3 +146,17 @@
 
 不需要你斩10，就算没3阶应该有7-8没问题。
 
+
+
+*****
+
+####  poor  
+##### 17114#       发表于 2022-10-17 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57955103&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2022-10-17 14:25</a>
+
+舔婊网直接进，都是残血车，5个打雷进去随便摸摸就打完了。
+
+这个倒是没想到，那现在萌新开荒斩10可以找个 ...</blockquote>
+就是没有群也不想跟人交流才准备混推车的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

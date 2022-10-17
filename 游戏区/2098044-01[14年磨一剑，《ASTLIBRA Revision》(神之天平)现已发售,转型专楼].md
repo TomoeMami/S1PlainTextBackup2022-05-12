@@ -3616,3 +3616,15 @@ https://w.atwiki.jp/astlibra/</blockquote>
 其他所有游戏无论2D 3D都正常
 —— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  黒長直姫  
+##### 333#       发表于 2022-10-17 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57955974&amp;ptid=2098044" target="_blank">绕指流光 发表于 2022-10-17 15:16</a>
+
+昨天更新之后突然遇到隔几秒钟就卡一下画面的情况，有人遇到吗？在标题画面都会卡，音乐正常，非常奇怪[f:0 ...</blockquote>
+还没更新 希望能解决我机子上切屏直接卡死进程的问题
+
