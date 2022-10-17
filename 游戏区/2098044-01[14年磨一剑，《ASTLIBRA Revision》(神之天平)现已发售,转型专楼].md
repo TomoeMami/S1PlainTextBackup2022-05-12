@@ -3344,3 +3344,24 @@ https://w.atwiki.jp/astlibra/</blockquote>
 第五章最后的boss连战打麻了，重打了好几次废了一堆资源，结果打完发现拿的是存档前装的拳刃，我说怎么这么 ...</blockquote>
 自动格挡是哪个装备提供的？我好像没拿到这个
 
+
+
+*****
+
+####  pf67  
+##### 313#       发表于 2022-10-17 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948531&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-17 08:23</a>
+
+怎么下去？我炸弹什么的都试过了
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+直接下去啊，那个地方就是被雪盖住了，实际是有路的
+
+*****
+
+####  helix  
+##### 314#       发表于 2022-10-17 09:42
+
+这游戏有new game+吗
+

@@ -4563,3 +4563,60 @@ rng机会还是比较大的，起码1:1
 
 今年有至宝投票吗？我怎么没在册子里面看见
 
+
+
+*****
+
+####  情商  
+##### 8055#         楼主| 发表于 2022-10-17 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57949455&amp;ptid=2099454" target="_blank">百越之余 发表于 2022-10-17 09:38</a>
+
+今年有至宝投票吗？我怎么没在册子里面看见</blockquote>
+没有
+
+*****
+
+####  宫藤芳佳  
+##### 8056#       发表于 2022-10-17 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57949310&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-17 09:28</a>
+
+细说包养女大学生</blockquote>
+某个不基德的选手以前提过潘飞干过的恶心事 包括不限于包养二奶，谈合同时拿信息差骗人等<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 8057#       发表于 2022-10-17 09:43
+
+小骷髅一直是路人火比赛不火，不过幽鬼真的强吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 8058#       发表于 2022-10-17 09:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幽鬼，尤其是传统辉耀幽鬼，是路人局的神
+
+*****
+
+####  izayoi39  
+##### 8059#       发表于 2022-10-17 09:46
+
+水人这么强在bp上都很容易被对面针对到前期直接被捅穿，更别说幽鬼这种了
+
+*****
+
+####  Acatv  
+##### 8060#       发表于 2022-10-17 09:49
+
+春晚要来嘞
+
+*****
+
+####  zhrtiancai  
+##### 8061#       发表于 2022-10-17 09:51
+
+还有十分钟 能不能正点开啊
+
