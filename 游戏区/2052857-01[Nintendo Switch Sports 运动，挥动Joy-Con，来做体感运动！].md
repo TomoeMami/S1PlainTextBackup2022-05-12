@@ -5268,3 +5268,12 @@ https://www.bilibili.com/video/BV1XU4y1e7RF/
 
 我这周外观还没全拿到，很急<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ichihatsu  
+##### 412#       发表于 2022-10-17 18:30
+
+之前唐突更了个补丁把在线搞炸了，原来还没修复吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

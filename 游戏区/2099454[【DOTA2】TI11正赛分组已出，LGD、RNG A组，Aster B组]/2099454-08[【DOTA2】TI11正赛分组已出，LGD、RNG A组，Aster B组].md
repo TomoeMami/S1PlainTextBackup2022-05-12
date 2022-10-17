@@ -858,3 +858,280 @@ sheever38岁，可以坐我<img src="https://static.saraba1st.com/image/smiley/f
 
 司了马了，克里斯这种发病好几天，一把正常之后好好打的是不是潜在的阳人
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 10604#       发表于 2022-10-17 18:23
+
+这把开局不错，好起来了
+
+*****
+
+####  北欧王座  
+##### 10605#       发表于 2022-10-17 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959095&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-17 18:22</a>
+
+司了马了，克里斯这种发病好几天，一把正常之后好好打的是不是潜在的阳人 ...</blockquote>
+负负得正是吧。烧糊涂了变正常人
+
+*****
+
+####  VanArkride  
+##### 10606#       发表于 2022-10-17 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959074&amp;ptid=2099454" target="_blank">dclara1 发表于 2022-10-17 18:21</a>
+算了吧，罗马尼亚那会还算战战兢兢做好措施
+
+翻翻今年土豪杯 阿灵顿的照片看看西恩队怎么防疫的</blockquote>
+多少比国外强点。。。吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  soulife7  
+##### 10607#       发表于 2022-10-17 18:23
+
+我草我忙了一天回来，看这结果要吐血<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+*****
+
+####  为了mf注册  
+##### 10608#       发表于 2022-10-17 18:23
+
+茶队这把开局还可以啊
+
+*****
+
+####  Rorgen  
+##### 10609#       发表于 2022-10-17 18:23
+
+好好好，sszai他妈b一分钟补一个刀呀
+
+*****
+
+####  百世诸侯  
+##### 10610#       发表于 2022-10-17 18:23
+
+[@永远喜欢谷爱凌](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=554911)
+
+*****
+
+####  莉拉厨  
+##### 10611#       发表于 2022-10-17 18:24
+
+刚说完克神戏就来了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 10612#       发表于 2022-10-17 18:24
+
+蜗壳看起来牛逼有没有可能是因为和他对位的是直邀最菜中单bryle
+
+*****
+
+####  百世诸侯  
+##### 10613#       发表于 2022-10-17 18:24
+
+<blockquote>北欧王座 发表于 2022-10-17 18:23
+负负得正是吧。烧糊涂了变正常人</blockquote>
+话音刚落突发恶疾
+
+*****
+
+####  柚上舍人  
+##### 10614#       发表于 2022-10-17 18:24
+
+还想着回去看rng大战eg，合着现在回去给rng吹唢呐是吧
+
+*****
+
+####  ArowRocher  
+##### 10615#       发表于 2022-10-17 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959004&amp;ptid=2099454" target="_blank">proselyte 发表于 2022-10-17 18:15</a>
+阳了有可能一两天就阴了吗
+或者lgd一到新加坡就阳了？</blockquote>
+除非开幕之前就自愈转阴，现在藏是藏不住的
+
+*****
+
+####  哈萨维·诺亚  
+##### 10616#       发表于 2022-10-17 18:26
+
+我反正不看了 缩了缩了
+
+*****
+
+####  非建政专用号  
+##### 10617#       发表于 2022-10-17 18:26
+
+司了马了，克里斯的戏瘾真的有点重了
+
+这b是哥们典型批评的想秀不是错，吧对面当傻逼就过分了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sodah  
+##### 10618#       发表于 2022-10-17 18:27
+
+鳖茶这把线上打的还行
+
+*****
+
+####  非建政专用号  
+##### 10619#       发表于 2022-10-17 18:28
+
+克里斯戏耍小弟人，哭了哭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 10620#       发表于 2022-10-17 18:28
+
+这，就是克里斯的魅力
+
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 10621#       发表于 2022-10-17 18:28
+
+相信克神<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  桐道悠  
+##### 10622#       发表于 2022-10-17 18:28
+
+本泽马这波把我看吐了
+
+*****
+
+####  VanArkride  
+##### 10623#       发表于 2022-10-17 18:28
+
+楼友别纠结了，喷潘飞喷lgd管理没问题，尝试分析传播链啊阳性时间啊真没意义了，max看见一句“传播面”很准确
+
+*****
+
+####  IG.430  
+##### 10624#       发表于 2022-10-17 18:28
+
+谷爱凌强度真的很高，玩过的都说好，究极强线，起小节奏也很舒服，毛点资源打后期也很舒服
+
+*****
+
+####  TIZI  
+##### 10625#       发表于 2022-10-17 18:29
+
+og马体2：0是不是对rng出线不利啊
+他俩打成1：1最好吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  VanArkride  
+##### 10626#       发表于 2022-10-17 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959173&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-17 18:28</a>
+谷爱凌强度真的很高，玩过的都说好，究极强线，起小节奏也很舒服，毛点资源打后期也很舒服 ...</blockquote>
+谷爱凌是指马西吗，怎么关联的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 10627#       发表于 2022-10-17 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959179&amp;ptid=2099454" target="_blank">VanArkride 发表于 2022-10-17 18:29</a>
+
+谷爱凌是指马西吗，怎么关联的</blockquote>
+冰女
+
+*****
+
+####  恐怖利刃  
+##### 10628#       发表于 2022-10-17 18:30
+
+这牛头好板，atf应该彻底麻了
+
+*****
+
+####  nightmare902015  
+##### 10629#       发表于 2022-10-17 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959179&amp;ptid=2099454" target="_blank">VanArkride 发表于 2022-10-17 18:29</a>
+谷爱凌是指马西吗，怎么关联的</blockquote>
+<img src="https://p.sda1.dev/7/f6d77b11db25a2e04bc847451224e7cc/CMP_20221017183026347.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 10630#       发表于 2022-10-17 18:30
+
+冰女在天辉是天辉人
+
+*****
+
+####  百世诸侯  
+##### 10631#       发表于 2022-10-17 18:30
+
+这b站bc打tsm主舞台全是毒狗弹幕，不知道的还以为看的是菠菜软件直播流
+
+*****
+
+####  天堂蜘蛛  
+##### 10632#       发表于 2022-10-17 18:31
+
+我前期那么肥
+
+*****
+
+####  isla  
+##### 10633#       发表于 2022-10-17 18:31
+
+新加坡人是白人？？
+
+*****
+
+####  Rorgen  
+##### 10634#       发表于 2022-10-17 18:31
+
+太傻批了og，强动开大dp，滚去败者组吧
+
+*****
+
+####  qty  
+##### 10635#       发表于 2022-10-17 18:31
+
+杜鹏在干毛？这样送
+
+*****
+
+####  北欧王座  
+##### 10636#       发表于 2022-10-17 18:31
+
+这雪碧又在搞耍
+
+*****
+
+####  反方向的波  
+##### 10637#       发表于 2022-10-17 18:32
+
+谷爱凌强度真的很高，玩过的都说好，究极强线，起小节奏也很舒服，毛点资源打后期也很舒服，就是不知道是天辉还是夜魇选的
+
+*****
+
+####  没钱买手办  
+##### 10638#       发表于 2022-10-17 18:32
+
+鹏子在干什么呀
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
