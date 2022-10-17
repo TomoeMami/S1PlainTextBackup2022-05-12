@@ -4112,3 +4112,16 @@ https://w.atwiki.jp/astlibra/</blockquote>
 大冤种是我打到第八章了才发现小猪酒馆后面有无限传送</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我第六章发现的。。
 
+
+
+*****
+
+####  dookiee  
+##### 382#       发表于 2022-10-18 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964334&amp;ptid=2098044" target="_blank">eaclica 发表于 2022-10-18 00:47</a>
+大冤种是我打到第八章了才发现小猪酒馆后面有无限传送</blockquote>
+很多时候传不了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">害我回去恶魔城走了三百六十五里路
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
