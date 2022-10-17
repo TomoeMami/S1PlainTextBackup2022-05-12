@@ -3747,3 +3747,22 @@ https://w.atwiki.jp/astlibra/</blockquote>
 打完第一章了。关底龙是刮痧刮死的，有没有好点办法对付。我的打法是蓄力飞剑加槽，然后变龙喷火。 ...</blockquote>
 破防打头 或者肝出暗凭依技能？
 
+
+
+*****
+
+####  quanlix  
+##### 346#       发表于 2022-10-17 16:46
+
+2周目剧情不一样是不是第四章能不签契约直接硬干boss了
+
+*****
+
+####  黒長直姫  
+##### 347#       发表于 2022-10-17 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957488&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-17 16:46</a>
+
+2周目剧情不一样是不是第四章能不签契约直接硬干boss了</blockquote>
+有没有可能干死小不点不用穿越
+
