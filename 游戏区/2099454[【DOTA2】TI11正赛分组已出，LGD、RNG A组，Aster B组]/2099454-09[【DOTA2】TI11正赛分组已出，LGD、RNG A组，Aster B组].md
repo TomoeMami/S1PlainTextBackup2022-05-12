@@ -162,3 +162,15 @@ RNG 最后一轮被og2：0带走。
 
 开赛到现在也已经4天了 希望rng队员早点康复吧 败者组打也是打 
 
+
+
+*****
+
+####  nerugigannte  
+##### 12015#       发表于 2022-10-18 07:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964483&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-18 01:12</a>
+
+突然感觉看卡猴的最后一届ti就跟我上一季追动画一样，别人要么是蒜这种阴沟翻船要么是吻这种平稳落地，结果 ...</blockquote>
+接下来会三集连播，暗示rng胜者组三连胜夺冠？
+
