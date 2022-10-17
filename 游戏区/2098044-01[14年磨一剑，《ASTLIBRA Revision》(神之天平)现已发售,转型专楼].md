@@ -3374,3 +3374,32 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 小黑真的有意思，明明她说了她有好几件一样的衣服，却还要在猪脚穿的时候特意换福利套233还有，最后喝醉那一晚，有特殊cg嘛，还就是黑屏？感觉过场有点突兀。
 
+
+
+*****
+
+####  sahhhh6x  
+##### 316#       发表于 2022-10-17 11:13
+
+小剧透下 2周目开始各种强化加9 绷不住了
+
+*****
+
+####  五块  
+##### 317#       发表于 2022-10-17 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57949192&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-17 09:20</a>
+
+40往上吧 解谜不看攻略的话够你卡5小时（</blockquote>
+我目前打到第四章，一半时间在刷材料和练熟练度，剩下的一半时间在看剧情，真正在战斗探索的时间应该不超过1/4<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 318#       发表于 2022-10-17 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57951657&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-17 11:18</a>
+
+我目前打到第四章，一半时间在刷材料和练熟练度，剩下的一半时间在看剧情，真正在战斗探索的时间应该不超 ...</blockquote>
+嗨呀 刷素材不就是探索（
+
