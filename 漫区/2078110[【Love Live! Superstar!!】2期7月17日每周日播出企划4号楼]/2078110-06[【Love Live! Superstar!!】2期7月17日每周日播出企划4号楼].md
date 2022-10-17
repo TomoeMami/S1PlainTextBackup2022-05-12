@@ -10320,3 +10320,23 @@ yamero，super ptsd了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cat1230  
+##### 8465#       发表于 2022-10-18 00:50
+
+鲤鱼写真分类：教材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这张图好像没看专楼有人发过。
+
+v2-5079b8a614ce2c659a81a3ed3a4718df_r.jpg
+(297.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 00:49 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/004935fkrhxe42pe4m0905.jpg" referrerpolicy="no-referrer">
+
