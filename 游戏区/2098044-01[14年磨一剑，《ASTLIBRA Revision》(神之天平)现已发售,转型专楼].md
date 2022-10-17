@@ -3796,3 +3796,16 @@ https://w.atwiki.jp/astlibra/</blockquote>
 破防都不知道打哪里好了，BOSS还是在喷火，打身体还是0伤害，梆硬。翻翻以前的攻略看看去。 ...</blockquote>
 因为头是浮空的，我感觉用天山效果比火龙要好不少
 
+
+
+*****
+
+####  黒長直姫  
+##### 351#       发表于 2022-10-17 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957639&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-17 16:56</a>
+我1周目就干死了，还是给我送过去了</blockquote>
+牛批 我看伤害完全没有反抗的欲望
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

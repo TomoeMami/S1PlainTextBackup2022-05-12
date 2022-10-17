@@ -1264,3 +1264,51 @@ Esc菜单，关游戏重进，被杀都能跳过教程，但少了3个芯片。�
 
 猴子和天使的互动对结局或剧情有影响吗？
 
+
+
+*****
+
+####  wangyi041228  
+##### 64#       发表于 2022-10-17 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57916844&amp;ptid=2095187" target="_blank">cherry__ 发表于 2022-10-15 11:11</a>
+
+喷了，又开了个新档，发现一开始的对话会给隐藏技能
+
+选了那个lie，然后说我的员工编号是69，就给了我这个 ...</blockquote>
+不知道什么情况，有第二个初始技能。
+
+<img src="https://img.saraba1st.com/forum/202210/17/170446eu6hu4dkbc3i4bzw.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221017170407.png</strong> (30.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 17:04 上传
+
+*****
+
+####  Tring  
+##### 65#         楼主| 发表于 2022-10-17 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957777&amp;ptid=2095187" target="_blank">wangyi041228 发表于 2022-10-17 17:05</a>
+
+不知道什么情况，有第二个初始技能。</blockquote>
+好像是打掉火车BOSS的奖励吧？
+
+*****
+
+####  Tring  
+##### 66#         楼主| 发表于 2022-10-17 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957746&amp;ptid=2095187" target="_blank">wangyi041228 发表于 2022-10-17 17:02</a>
+
+Esc菜单，关游戏重进，被杀都能跳过教程，但少了3个芯片。默认名字随机Me或You。
+
+猴子和天使的互动对结局 ...</blockquote>
+不知道，目前没看到啥特殊的。
+
+天使估计没有，因为已经拿了额外的芯片了。
+
+猴子就不知道了，意义不明。
+
