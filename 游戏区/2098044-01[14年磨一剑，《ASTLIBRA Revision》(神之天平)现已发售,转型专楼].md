@@ -3953,3 +3953,26 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  jy000129  
+##### 366#       发表于 2022-10-17 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘉隆的本体竟然是
+
+*****
+
+####  五块  
+##### 367#       发表于 2022-10-17 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962530&amp;ptid=2098044" target="_blank">索非亚 发表于 2022-10-17 22:16</a>
+
+幸运这属性对素材和稀有箱的掉落影响有多大？
+
+4章我30幸运加盗贼服打完了也只开到1章图纸，回去刷1章图纸全 ...</blockquote>
+我怀疑是有内设阈值，我也是刷了四十多分钟没见过金，升级把幸运点到50然后一个图连出两个金箱子。
+
+但是还缺两块螃蟹腿。日，急需风灵月影，这刷着刷着就能匕首秒怪了。
+

@@ -1942,3 +1942,12 @@ yy一下
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事实上水星ai还很少涉足过去，大多月球和火星，水星很容易就能拿下，算是制作组给玩家一个比较有利的分矿。
 ps：这游戏当rpg玩会更带感
 
+
+
+*****
+
+####  近距离作战  
+##### 176#       发表于 2022-10-17 23:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">被球奸控了核国家然后送给外星太君了，现在只要打他最后那块地就扔核弹该怎么办，总不能用天灵盖耗光吧
+

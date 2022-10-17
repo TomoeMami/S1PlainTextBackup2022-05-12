@@ -8241,3 +8241,19 @@ tmd怎么开始连推都不发了，还是你楼更懂绫总啊
 
 绫总生日生病是吧
 
+
+
+*****
+
+####  stedckk  
+##### 14419#       发表于 2022-10-17 23:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么说起来，记得有次说是病了然后打狂打lol，所以这次说病了说不定也是。。。
+
+*****
+
+####  Fami水  
+##### 14420#       发表于 2022-10-17 23:07
+
+狂打瓦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
