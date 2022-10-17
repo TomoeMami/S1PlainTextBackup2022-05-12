@@ -11977,3 +11977,12 @@ NJU这已经不是尊自己的企划 算官方拿过来了吧
 
 官方接手今年这歌谣祭还有影院公开，不亚于现场看live了啊
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17596#       发表于 2022-10-17 18:08
+
+办线下赚钱了所以活动都想整成线下的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
