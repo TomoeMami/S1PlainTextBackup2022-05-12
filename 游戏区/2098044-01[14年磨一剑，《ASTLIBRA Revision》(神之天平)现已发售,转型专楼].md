@@ -3590,3 +3590,17 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 以下简易図。
 
+
+
+*****
+
+####  StrayWolf  
+##### 331#       发表于 2022-10-17 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954139&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-17 13:25</a>
+
+这段建议全程看攻略 非常阴间 以下反白 机翻给出来的左右指的是老板娘站着的大门那的左右两侧楼梯
+
+赤のル ...</blockquote>
+谢，慢慢搞
+
