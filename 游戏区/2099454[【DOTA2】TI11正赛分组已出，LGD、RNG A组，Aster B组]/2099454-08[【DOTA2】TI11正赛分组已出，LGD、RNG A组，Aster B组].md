@@ -11871,3 +11871,33 @@ sf现在是这个版本没有缺点的英雄，虽然上限第一是水人
 
 南美ame这个外号是真行阿，伤害量和经济输出比仅仅的贴在一起，乐了
 
+
+
+*****
+
+####  Rorgen  
+##### 11993#       发表于 2022-10-18 00:22
+
+ 本帖最后由 Rorgen 于 2022-10-18 00:23 编辑 
+
+讲道理，我看了一圈
+感觉tm最强的中单还是ni公子啊，sf ts 火枪玩得都很好，船长更恐怖，打到40分钟往后声音都巨大
+秘密只要严格按照1.5 2.5 2.5 5 3.5的资源分配还是很有战斗力的
+
+*****
+
+####  非建政专用号  
+##### 11994#       发表于 2022-10-18 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964155&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-18 00:20</a>
+
+你看的是不是还有夜堕，他已经转三了，MAX没剔除他</blockquote>
+对，我说eg怎么两一号位<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 11995#       发表于 2022-10-18 00:30
+
+照片在哪儿，我怎么没看到
+
