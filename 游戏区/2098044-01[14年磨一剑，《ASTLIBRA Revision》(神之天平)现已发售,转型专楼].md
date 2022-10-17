@@ -3644,3 +3644,17 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 第六章其实还好吧，老板娘的话说得还是比较清晰了
 
+
+
+*****
+
+####  绕指流光  
+##### 336#       发表于 2022-10-17 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956329&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-17 15:37</a>
+还没更新 希望能解决我机子上切屏直接卡死进程的问题</blockquote>
+我的问题折腾了一圈搞定了，win10不知道为毛不停扫描HID设备导致的，在设备里删除手柄重连就好了
+你这个问题可以尝试一下设置里改成directX11模式，我看steam好像有类似问题
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
