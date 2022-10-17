@@ -3320,3 +3320,15 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 这游戏的通关时长大概在多少算上任务，收集等旁支要素等？黎轨2刚到货时间有限，两个都想玩想规划一下。
 
+
+
+*****
+
+####  黒長直姫  
+##### 311#       发表于 2022-10-17 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948792&amp;ptid=2098044" target="_blank">yongze 发表于 2022-10-17 08:51</a>
+
+这游戏的通关时长大概在多少算上任务，收集等旁支要素等？黎轨2刚到货时间有限，两个都想玩想规划一下。 ...</blockquote>
+40往上吧 解谜不看攻略的话够你卡5小时（
+

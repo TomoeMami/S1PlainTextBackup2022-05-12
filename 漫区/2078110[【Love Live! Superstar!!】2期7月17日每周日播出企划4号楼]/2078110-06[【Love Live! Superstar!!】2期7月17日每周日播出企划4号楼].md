@@ -9887,3 +9887,16 @@ yamero，super ptsd了
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  月珊瑚与紫鸢尾  
+##### 8430#       发表于 2022-10-17 09:17
+
+ 本帖最后由 月珊瑚与紫鸢尾 于 2022-10-17 09:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57943428&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-16 20:36</a>
+官网好像说是app里有卡牌和live</blockquote>
+浏览器套壳直播间，养成页游+舞台剧是吧
+看向隔壁几个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
