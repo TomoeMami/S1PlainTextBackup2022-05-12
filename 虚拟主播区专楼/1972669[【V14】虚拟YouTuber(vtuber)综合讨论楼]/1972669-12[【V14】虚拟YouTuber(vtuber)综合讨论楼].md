@@ -12025,3 +12025,13 @@ NJU这已经不是尊自己的企划 算官方拿过来了吧
 
 过往nju的大部分节目主要也是图个乐，跟收费舞台质量还是有点不一样的，平时整不出歌舞活的liver跑去day23后的效果在各种方面都值得期待。
 
+
+
+*****
+
+####  FCCHua  
+##### 17601#       发表于 2022-10-17 20:32
+
+惨 尊妈 惨
+sky终于有空参加歌谣祭了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
