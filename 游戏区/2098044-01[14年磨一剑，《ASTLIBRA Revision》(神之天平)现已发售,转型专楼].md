@@ -3999,3 +3999,32 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 艹，第六章的木桶怎么还会隔一段时间回复3000血，打不动怎么办
 
+
+
+*****
+
+####  后会莫急  
+##### 371#       发表于 2022-10-17 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57963648&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-17 23:32</a>
+
+艹，第六章的木桶怎么还会隔一段时间回复3000血，打不动怎么办</blockquote>
+边上有个加血怪
+
+*****
+
+####  A1LI  
+##### 372#       发表于 2022-10-17 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57963527&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-17 23:23</a>
+
+草，不能格挡了是什么鬼，读其他档也无效，还有这种恶性bug？</blockquote>
+看看是不是换了双手武器把盾牌下了？
+
+*****
+
+####  五块  
+##### 373#       发表于 2022-10-17 23:42
+
+行吧，游戏帮我反沉迷了，重启、重装全部无效，还能让我碰上这种事情。
+
