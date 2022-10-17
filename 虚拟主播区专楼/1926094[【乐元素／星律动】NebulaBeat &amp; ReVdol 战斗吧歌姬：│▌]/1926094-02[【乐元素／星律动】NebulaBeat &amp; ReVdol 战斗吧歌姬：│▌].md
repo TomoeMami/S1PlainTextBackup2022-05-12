@@ -7890,3 +7890,37 @@ kino：希望大家不要因为我而讨厌赛马娘。
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  天青月白  
+##### 2340#       发表于 2022-10-17 11:35
+
+qa内容，好的一面是还会坚持3d内容，不过可能通过降动捕精度和技术革新的方法节省成本？
+不好的一面是我自己的私心，就是觉得鱼应该用老皮改一个，但是qa来看应该是新皮了
+
+
+
+*****
+
+####  喜闻乐见  
+##### 2341#         楼主| 发表于 2022-10-17 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57952096&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-10-17 11:35</a>
+
+qa内容，好的一面是还会坚持3d内容，不过可能通过降动捕精度和技术革新的方法节省成本？
+
+不好的一面是我自 ...</blockquote>
+还是得往轻量化 家用这种上面推吧，降成本的同时保证liver的陪伴属性
+
+老粉有这种想法挺正常，不过向前看，探往未知也未尝不是一种乐趣
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h784tw5azdj20h606h76x.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  佛皇  
+##### 2342#       发表于 2022-10-17 11:41
+
+qa里面那句话说的挺好的，不能妥善的续写还不如开启新篇章，没有靠谱运营再消费旧皮就真的没心气了
+

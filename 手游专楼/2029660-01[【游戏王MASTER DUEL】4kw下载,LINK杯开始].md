@@ -1995,3 +1995,14 @@ KC杯开始的同时开了一个可有可无的新卡包<img src="https://static
 
 link杯拿海晶打着蛮舒服的。随便打打都能在黄金连胜
 
+
+
+*****
+
+####  格雷殿下  
+##### 202#       发表于 2022-10-17 11:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">连续两次抽6花卡包保底了，看下次出来的还是不是只有1个UR，
+
+铁中铁是可乐妹调概率了😡
+
