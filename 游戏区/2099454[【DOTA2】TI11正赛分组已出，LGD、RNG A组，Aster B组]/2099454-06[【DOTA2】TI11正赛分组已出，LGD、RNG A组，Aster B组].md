@@ -4136,3 +4136,73 @@ Lgd今天有人阳了吗
 —— 来自 Xiaomi M2012K11AC ...</blockquote>
 玉玉有所好转是吧
 
+
+
+*****
+
+####  情商  
+##### 8007#         楼主| 发表于 2022-10-17 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948690&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-17 08:40</a>
+一想到没有徐林森解说就感到索然无味</blockquote>
+妮可以展望下 托普森
+
+*****
+
+####  syndrome2032  
+##### 8008#       发表于 2022-10-17 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948632&amp;ptid=2099454" target="_blank">yangkaim4 发表于 2022-10-17 08:35</a>
+不是太后的弟弟？</blockquote>
+潘飞和潘婕只是刚好同姓，没有血缘关系
+
+*****
+
+####  nowaki  
+##### 8009#       发表于 2022-10-17 08:44
+
+森哥这种懒狗是冲不上百大了
+
+*****
+
+####  walfeds  
+##### 8010#       发表于 2022-10-17 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948692&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 08:41</a>
+玉玉有所好转是吧</blockquote>
+雀食，感觉今天又能支棱起来看OG被暴打了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  IG.430  
+##### 8011#       发表于 2022-10-17 08:50
+
+昨晚睡前手了把io，理解赵子星了，你玩io你也困
+
+*****
+
+####  12481632  
+##### 8012#       发表于 2022-10-17 08:50
+
+有没有新加坡前十来科普一下坡县现在的隔离政策的，之前不是说都放开了么
+
+*****
+
+####  Rorgen  
+##### 8013#       发表于 2022-10-17 08:50
+
+核中核消息
+
+鞭的女朋友在皮套坦克跟A畜分手后去安慰皮套坦克，闹得人尽皆知。A畜有点意见就跟鞭说了，但鞭打哈哈表示自己尊重女朋友也没办法，于是A畜怀恨在心。真视界后队内气氛一直不是很稳定，有次训练赛后A畜对鞭说了很不好听的话，还带上了他女朋友，鞭本来想发作但无奈教练拉偏架，从那之后鞭就摆烂了，其他几个队友也是心有戚戚焉
+
+*****
+
+####  Rorgen  
+##### 8014#       发表于 2022-10-17 08:51
+
+这个核中核还挺符合A畜人品的
+

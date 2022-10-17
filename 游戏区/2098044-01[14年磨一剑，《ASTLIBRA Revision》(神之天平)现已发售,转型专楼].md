@@ -3311,3 +3311,12 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yongze  
+##### 310#       发表于 2022-10-17 08:51
+
+这游戏的通关时长大概在多少算上任务，收集等旁支要素等？黎轨2刚到货时间有限，两个都想玩想规划一下。
+
