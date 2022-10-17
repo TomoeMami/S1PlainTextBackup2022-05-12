@@ -5667,3 +5667,28 @@ https://tieba.baidu.com/p/8091830242</blockquote>
 
   昨天还是前天的消息吧，后台上传了马上被抓包，首日补丁18.8G
 
+
+
+*****
+
+####  SergeGlenn  
+##### 621#       发表于 2022-10-17 21:42
+
+战神preview本周五晚9点解禁，11月4号零点评分解禁
+
+<img src="https://img.saraba1st.com/forum/202210/17/214224k4lf87gychtmc1p6.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-10-17-21-38-18-649-edit_mark.via.jpg</strong> (227.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-17 21:42 上传
+
+*****
+
+####  Kazepollar  
+##### 622#       发表于 2022-10-17 21:49
+
+期待一波
+

@@ -8019,3 +8019,377 @@ fnc这个b队毫无存在感，让我们看看他吸的谁得分
 
 RNG这身体状态进不进胜者组区别不大，还是指望他们早点好吧，升职我觉得打OG直接弃赛休息都没问题
 
+
+
+*****
+
+####  百世诸侯  
+##### 11524#       发表于 2022-10-17 21:41
+
+明天TA白捡四分是不是锁定B组第一了
+
+*****
+
+####  情商  
+##### 11525#         楼主| 发表于 2022-10-17 21:41
+
+几次了，肌肉哥？
+
+<img src="https://img.saraba1st.com/forum/202210/17/214137tbuf45jpggb5hejo.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221017214304.png</strong> (30.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 21:41 上传
+
+<img src="https://img.saraba1st.com/forum/202210/17/214138fwj61yw86i4fw4k3.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221017214335.png</strong> (37.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 21:41 上传
+
+*****
+
+####  nowaki  
+##### 11526#       发表于 2022-10-17 21:42
+
+就算妮真把他当感冒看 感冒第二天也是浑身无力啊
+
+*****
+
+####  ArowRocher  
+##### 11527#       发表于 2022-10-17 21:42
+
+呕吐还是太严重了，不看传统体育，现在世界级赛事经常有这种事吗
+
+*****
+
+####  反方向的波  
+##### 11528#       发表于 2022-10-17 21:42
+
+永远喜欢nowaki的鳖星独一档
+现在快和汉堡猫一档了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜光铃  
+##### 11529#       发表于 2022-10-17 21:43
+
+支持正义清算
+
+*****
+
+####  acejoe  
+##### 11530#       发表于 2022-10-17 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962075&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:41</a>
+几次了，肌肉哥？</blockquote>
+原来一个月一次就是天天哦
+
+*****
+
+####  两三流浪者  
+##### 11531#       发表于 2022-10-17 21:43
+
+雪碧只能相信k1了
+
+*****
+
+####  情商  
+##### 11532#         楼主| 发表于 2022-10-17 21:43
+
+哦原来不是4次比赛3次肌肉dota啊？
+
+*****
+
+####  Rorgen  
+##### 11533#       发表于 2022-10-17 21:43
+
+说实话我感觉鳖星给东南亚上贡俩分要把自己送进败者组了
+
+*****
+
+####  w2210059  
+##### 11534#       发表于 2022-10-17 21:43
+
+如果没冠你们觉得今天能赢几把？
+
+*****
+
+####  银翼的维罗西  
+##### 11535#       发表于 2022-10-17 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962098&amp;ptid=2099454" target="_blank">w2210059 发表于 2022-10-17 21:43</a>
+
+如果没冠你们觉得今天能赢几把？</blockquote>
+两把不能再多了
+
+*****
+
+####  情商  
+##### 11536#         楼主| 发表于 2022-10-17 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962098&amp;ptid=2099454" target="_blank">w2210059 发表于 2022-10-17 21:43</a>
+
+如果没冠你们觉得今天能赢几把？</blockquote>
+除了打红龙第一盘跟eg第二盘都挺难的
+
+*****
+
+####  非建政专用号  
+##### 11537#       发表于 2022-10-17 21:44
+
+红龙eg，4把里保1争2打底吧
+
+*****
+
+####  adretyu67  
+##### 11538#       发表于 2022-10-17 21:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962098&amp;ptid=2099454" target="_blank">w2210059 发表于 2022-10-17 21:43</a>
+
+如果没冠你们觉得今天能赢几把？</blockquote>
+打干瘪和eg被拿捏的死死的，就剩红龙那两把了
+
+*****
+
+####  qty  
+##### 11539#       发表于 2022-10-17 21:44
+
+至少刚才能从EG手里抢一分吧
+
+*****
+
+####  nowaki  
+##### 11540#       发表于 2022-10-17 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962086&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-17 21:42</a>
+
+永远喜欢nowaki的鳖星独一档
+
+现在快和汉堡猫一档了</blockquote>
+差三个胜场也能是一档吗，只剩四场比赛了。
+
+不过我说完那句话后，鳖茶4-4，我的
+
+*****
+
+####  枯风瘦雪02  
+##### 11541#       发表于 2022-10-17 21:45
+
+没冠能打成什么样也不知道啊
+
+*****
+
+####  acejoe  
+##### 11542#       发表于 2022-10-17 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962095&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:43</a>
+哦原来不是4次比赛3次肌肉dota啊？</blockquote>
+一个还是讲威少玩梗，你还真的记仇哦。
+粉圈式小心眼，对不起！我是小黑子！
+
+*****
+
+####  w2210059  
+##### 11543#       发表于 2022-10-17 21:45
+
+我是觉得选的都挺脑浆的，甚至超哥自己打的还可圈可点
+
+*****
+
+####  越动天下  
+##### 11544#       发表于 2022-10-17 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962033&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-17 21:39</a>
+现在B组雪碧很危险，想胜者组明天只能输1把。输2把应该是有加赛剧本，输3把就没了。
+
+没啥办法，talon和tsm ...</blockquote>
+感觉打两胜没加赛呀 起码要三个吧 TA明天这起码3分呀 剩下就是秘密和茶了 打茶起码要1比1平呀 
+
+*****
+
+####  两三流浪者  
+##### 11545#       发表于 2022-10-17 21:46
+
+ori毒唯目前给曾骄阳打几分
+
+*****
+
+####  奇迹之巅  
+##### 11546#       发表于 2022-10-17 21:46
+
+新冠又不是断手
+
+脑子烧了当然也是会影响到BP的
+
+不过里斯的BP也一直不行
+
+前几天就觉得RNG天天在打劣势阵容，也就是发挥好加对手弱才兜得住
+
+*****
+
+####  Rorgen  
+##### 11547#       发表于 2022-10-17 21:47
+
+曾焦阳状态说实话中等偏差
+
+*****
+
+####  情商  
+##### 11548#         楼主| 发表于 2022-10-17 21:47
+
+别急，别找角度
+
+*****
+
+####  IPoke  
+##### 11549#       发表于 2022-10-17 21:47
+
+没冠eg没啥不能打的吧，阵容被爆不也可能是夺冠脑子烧了
+
+— from OnePlus CPH2415, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  非建政专用号  
+##### 11550#       发表于 2022-10-17 21:47
+
+窝给ori打8分，虽然窝是克神毒唯
+
+
+
+*****
+
+####  越动天下  
+##### 11551#       发表于 2022-10-17 21:47
+
+仔细想了一下 明天这茶是真的难打呀<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 11552#       发表于 2022-10-17 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962147&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:47</a>
+别急，别找角度</blockquote>
+有没有可能我也是小超人呢？？
+
+*****
+
+####  反方向的波  
+##### 11553#       发表于 2022-10-17 21:47
+
+曾焦阳小组赛打的不如eslone决赛之前的场次 
+
+*****
+
+####  walfeds  
+##### 11554#       发表于 2022-10-17 21:48
+
+漏油夜讧到明，明讧到夜，能讧死水厂集美否？
+
+*****
+
+####  情商  
+##### 11555#         楼主| 发表于 2022-10-17 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962157&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 21:47</a>
+
+有没有可能我也是小超人呢？？</blockquote>
+为什么会觉得我是泰迪粉？
+
+你楼我不是天天点草泰迪？
+
+*****
+
+####  UnhappyTails  
+##### 11556#       发表于 2022-10-17 21:48
+
+不是就不说队友冠了的心态问题了
+
+剩下四个人肯定是都冠了还没显现出来罢了，但对操作和bp肯定有影响的，rng毕竟连个教练都没有
+
+所以用今天的局势来看是没什么意义的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 11557#       发表于 2022-10-17 21:48
+
+雪碧明天就是送分的，除非曾焦阳连脑东京都压不住。
+
+实在不行还可以放他滚滚
+
+*****
+
+####  thistimeforlife  
+##### 11558#       发表于 2022-10-17 21:49
+
+鳖星都是硬仗 加油吧
+
+*****
+
+####  银翼的维罗西  
+##### 11559#       发表于 2022-10-17 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962139&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-17 21:46</a>
+
+ori毒唯目前给曾骄阳打几分</blockquote>
+茶的比赛我今天就没看啊，这不给RNG这病整的生活不如意了嘛
+
+*****
+
+####  非建政专用号  
+##### 11560#       发表于 2022-10-17 21:49
+
+本届ti期间你楼主打一个内讧，别说小超人，以管人丁聪为首的小茶叶都被清算过，望周知
+
+*****
+
+####  nxmonitor  
+##### 11561#       发表于 2022-10-17 21:49
+
+不说发挥如何有几把阵容出来就很难打好吧……
+
+*****
+
+####  acejoe  
+##### 11562#       发表于 2022-10-17 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962160&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:48</a>
+为什么会觉得我是泰迪粉？
+
+你楼我不是天天点草泰迪？</blockquote>
+爱到深处自然黑啊。
+不然不可能我黑AME带了一句，玩威少梗这种和比赛无关的还记这么清楚。
+
+*****
+
+####  情商  
+##### 11563#         楼主| 发表于 2022-10-17 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962183&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 21:49</a>
+
+爱到深处自然黑啊。
+
+不然不可能我黑AME带了一句，玩威少梗这种和比赛无关的还记这么清楚。 ...</blockquote>
+不是，跟你高涛阔论的哪个外挂脚气前段时间被我抓出来点操了，你猜为什么？
+
+*****
+
+####  反方向的波  
+##### 11564#       发表于 2022-10-17 21:51
+
+然而本丁聪核心群成员在他回家第一时间就发了红包，说明三国杀真的是一款其乐融融的好游戏
+
+*****
+
+####  Litccc  
+##### 11565#       发表于 2022-10-17 21:51
+
+主要是不用装集美了，可以直接开搂
+

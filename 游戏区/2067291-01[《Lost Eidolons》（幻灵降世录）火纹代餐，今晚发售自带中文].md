@@ -1638,3 +1638,25 @@ steam现在多半好评，看了下差评感觉还是等制作组修一修吧...
 
 没差几章了，大概能猜出来是哪个，好感度还不知道能不能补上来……
 
+
+
+*****
+
+####  bwsusaga  
+##### 148#         楼主| 发表于 2022-10-17 21:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961878&amp;ptid=2067291" target="_blank">dudeism 发表于 2022-10-17 21:29</a>
+
+这么赞的吗？ 是前面有人放图的那个金发妞吗</blockquote>
+是另一个金发寡妇<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/17/214149fb63hknzh1vy6f6z.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20221017213811.png</strong> (21.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 21:41 上传
+
+还有个傲娇妹妹（可能没娇）
+

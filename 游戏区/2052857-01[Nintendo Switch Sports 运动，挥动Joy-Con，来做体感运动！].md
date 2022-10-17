@@ -5304,3 +5304,16 @@ https://www.bilibili.com/video/BV1XU4y1e7RF/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  哈利洛维奇  
+##### 416#       发表于 2022-10-17 21:42
+
+日服官网出声明了，服务器明天更新后结束维护，20号还会有第二次更新来确保所有人都能玩上。补偿方案是延长一个周的ns会员，11月4日前经验双倍，无法获取的道具以后会解决
+
+https://www.nintendo.co.jp/support/information/2022/1017.html
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
