@@ -10128,3 +10128,36 @@ yamero，super ptsd了
 超次元上突然提到美术馆原&amp;#x6 ...</blockquote>
 就是上个月FC发的秘密行动啊
 
+
+
+*****
+
+####  梶原ひかり  
+##### 8453#       发表于 2022-10-17 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956448&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-17 15:44</a>
+
+大学请CV请偶像开座谈会吗，顺带唱一两首歌？</blockquote>
+不会基本都是纯TALK...
+
+*****
+
+####  梶原ひかり  
+##### 8454#       发表于 2022-10-17 16:27
+
+ 本帖最后由 梶原ひかり 于 2022-10-17 16:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956319&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-10-17 15:36</a>
+
+大学学园祭请偶像啥的挺常见的，也不算新奇</blockquote>
+大学文化祭..正常来说都是声优社团或者动漫部门请声优吧...请偶像感觉不常见 印象中很少文化祭也很少请歌手或者坂道 AKB那种偶像..
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">以前看这种线下活动  感觉都是请二三线左右的声优 很少请一线声优 （可能也没有空
+
+*****
+
+####  lj205  
+##### 8455#       发表于 2022-10-17 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957196&amp;ptid=2078110" target="_blank">梶原ひかり 发表于 2022-10-17 16:27</a>
+大学文化祭..正常来说都是声优社团或者动漫部门请声优吧...请偶像感觉不常见 印象中很少文化祭也很少请歌 ...</blockquote>
+鱼这次早稻田是外国文化交流邀请的
+

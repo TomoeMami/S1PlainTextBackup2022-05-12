@@ -3686,3 +3686,42 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  quanlix  
+##### 340#       发表于 2022-10-17 16:24
+
+我steam显示运行时间快30小时，游戏内存档少10小时，全程地狱难度推图，目前打到第四章穿女装，还是太菜了
+
+*****
+
+####  黒長直姫  
+##### 341#       发表于 2022-10-17 16:28
+
+ 本帖最后由 黒長直姫 于 2022-10-17 16:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957104&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-17 16:20</a>
+矿石镇有个没怪的场景 显示有个宝箱怎么拿</blockquote>
+树洞进去的道中吗？左侧悬崖顶，乌鸦回来以后上缓落被动以后三段跳接连上升每段接空中冲刺刚好能到  
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  黒長直姫  
+##### 342#       发表于 2022-10-17 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957146&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-17 16:24</a>
+我steam显示运行时间快30小时，游戏内存档少10小时，全程地狱难度推图，目前打到第四章穿女装，还是太菜了 ...</blockquote>
+我觉得地狱难度不单是水平的问题 你要堆很高的数值才行
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  sahhhh6x  
+##### 343#       发表于 2022-10-17 16:31
+
+二周目剧情完全不一样 还挺良心的 就是这个无限强化有点过分了
+
