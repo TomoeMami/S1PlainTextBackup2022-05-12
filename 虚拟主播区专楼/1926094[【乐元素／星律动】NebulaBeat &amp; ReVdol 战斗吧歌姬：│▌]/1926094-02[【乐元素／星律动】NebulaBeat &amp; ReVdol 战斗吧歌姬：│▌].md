@@ -7978,3 +7978,18 @@ qa里面那句话说的挺好的，不能妥善的续写还不如开启新篇章
 
 新ai的原创曲有些东西，不知道是想做成v还是初音未来那种？
 
+
+
+*****
+
+####  ladiesman802  
+##### 2349#       发表于 2022-10-17 14:23
+
+<img src="https://img.saraba1st.com/forum/202210/17/142303rgxz5n5n4gr5gn6l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C80B139F-0C4E-4CFB-8E40-55D153EA3D0B.jpeg</strong> (529.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 14:23 上传
+

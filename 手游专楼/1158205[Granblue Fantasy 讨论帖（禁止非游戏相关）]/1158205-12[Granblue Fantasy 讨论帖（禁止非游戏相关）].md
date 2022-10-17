@@ -130,3 +130,19 @@
 
 风巫妖这武器是不是不咋地<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  phoenixxj  
+##### 17113#       发表于 2022-10-17 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954902&amp;ptid=1158205" target="_blank">poor 发表于 2022-10-17 14:13</a>
+
+慈善车啥意思？我开个房写放置就会冲进来5个大佬帮我打死吗？那一天也只能开一个啊？还是我推上随便进一 ...</blockquote>
+舔婊网直接进，都是残血车，5个打雷进去随便摸摸就打完了。
+
+这个倒是没想到，那现在萌新开荒斩10可以找个群 和熟练工一起打
+
+不需要你斩10，就算没3阶应该有7-8没问题。
+
