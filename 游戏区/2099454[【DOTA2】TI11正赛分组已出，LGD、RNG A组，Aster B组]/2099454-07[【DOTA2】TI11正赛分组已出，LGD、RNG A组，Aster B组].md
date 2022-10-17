@@ -6633,3 +6633,286 @@ FNC后期也是犯病的，三刷子占优势还能打成这样，早点和最�
 
 og四打五了，misha连不回来
 
+
+
+*****
+
+####  izayoi39  
+##### 9786#       发表于 2022-10-17 15:22
+
+茶队自己是玩儿谜团的，xxs就是经典的团战很强不会打节奏的3，ori只要不对线崩茶队24联动节奏很好的
+
+*****
+
+####  迷途lite  
+##### 9787#       发表于 2022-10-17 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956070&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-17 15:22</a>
+og四打五了，misha连不回来</blockquote>
+细说，pgl这么草台？
+
+*****
+
+####  非建政专用号  
+##### 9788#       发表于 2022-10-17 15:23
+
+你楼有点离谱了，曾新冠人数够一个互联网高风险地区了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 9789#       发表于 2022-10-17 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956073&amp;ptid=2099454" target="_blank">迷途lite 发表于 2022-10-17 15:22</a>
+细说，pgl这么草台？</blockquote>
+atf：四打六变四打五，这不是我们血赚？
+
+*****
+
+####  applebloom  
+##### 9790#       发表于 2022-10-17 15:23
+
+还指望四兄弟带躺的，这是要把我超哥燃尽啊
+
+*****
+
+####  Keynes  
+##### 9791#       发表于 2022-10-17 15:24
+
+海外萨特浓度过高是这样的，我们拆腻子狗头人只能抢抢红包了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 9792#       发表于 2022-10-17 15:24
+
+说实话斯温确实可以上个场了，力量英雄不怕水人A杖，加护甲还能对付一手影魔……
+
+*****
+
+####  反方向的波  
+##### 9793#       发表于 2022-10-17 15:24
+
+pgl：og你们让chuvash上号就能连回来，我只能帮到这里了
+
+*****
+
+####  吃货红毛  
+##### 9794#       发表于 2022-10-17 15:24
+
+哎哟透支了啊
+
+*****
+
+####  天堂蜘蛛  
+##### 9795#       发表于 2022-10-17 15:25
+
+越打越不对了
+
+*****
+
+####  adretyu67  
+##### 9796#       发表于 2022-10-17 15:25
+
+不妙，农药肌肉更发达的样子
+
+*****
+
+####  为了mf注册  
+##### 9797#       发表于 2022-10-17 15:25
+
+这波炸了啊，还好没刷盾
+
+*****
+
+####  Bernoulli  
+##### 9798#       发表于 2022-10-17 15:25
+
+小组赛茶队拖到后期的全输了，赢得比赛都是二三十分钟解决问题，已经是标准推进队的表现了，推不下来就开摆。
+
+*****
+
+####  nightmare902015  
+##### 9799#       发表于 2022-10-17 15:25
+
+难办啊，sf要有钱摸羊刀出来就更难办了。
+
+*****
+
+####  恐怖利刃  
+##### 9800#       发表于 2022-10-17 15:25
+
+血魔就得配能打第一轮输出的队友，对面全满血自己上去怎么扣
+
+*****
+
+####  walfeds  
+##### 9801#       发表于 2022-10-17 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956070&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-17 15:22</a>
+
+og四打五了，misha连不回来</blockquote>
+还有这种操作？
+
+*****
+
+####  米奥莉奈  
+##### 9802#       发表于 2022-10-17 15:25
+
+不对劲了，有没有人算算rng还要赢几场才能稳胜者组
+
+*****
+
+####  非建政专用号  
+##### 9803#       发表于 2022-10-17 15:25
+
+bc玩过赛文奥特曼，被抓成傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 9804#       发表于 2022-10-17 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956119&amp;ptid=2099454" target="_blank">米奥莉奈 发表于 2022-10-17 15:25</a>
+不对劲了，有没有人算算rng还要赢几场才能稳胜者组</blockquote>
+1，理论上好像
+
+*****
+
+####  nightmare902015  
+##### 9805#       发表于 2022-10-17 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956116&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-17 15:25</a>
+血魔就得配能打第一轮输出的队友，对面全满血自己上去怎么扣</blockquote>
+谜团萨尔火猫当然是能打第一波输出的。就是谜团病重挖了个大坑。
+
+*****
+
+####  izayoi39  
+##### 9806#       发表于 2022-10-17 15:26
+
+红龙这沉默不积德啊，不出刷新出玲珑心的
+
+*****
+
+####  zhrs456  
+##### 9807#       发表于 2022-10-17 15:26
+
+得打完美团了 不然没了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  UnhappyTails  
+##### 9808#       发表于 2022-10-17 15:26
+
+杰出真的是恶心的要死
+
+*****
+
+####  勤练带来力量  
+##### 9809#       发表于 2022-10-17 15:27
+
+到点了
+
+*****
+
+####  sodah  
+##### 9810#       发表于 2022-10-17 15:27
+
+这滚滚已经够小丑了。
+
+
+
+*****
+
+####  Keynes  
+##### 9811#       发表于 2022-10-17 15:27
+
+不是有酱油sven上了好几场了吗
+
+*****
+
+####  zhrs456  
+##### 9812#       发表于 2022-10-17 15:27
+
+太帝这把真的在玩蛇啊 状态太不对了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天堂蜘蛛  
+##### 9813#       发表于 2022-10-17 15:27
+
+怎么打成这样了。。。
+
+*****
+
+####  HydraCat  
+##### 9814#       发表于 2022-10-17 15:28
+
+rng有点危了啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  izayoi39  
+##### 9815#       发表于 2022-10-17 15:28
+
+现在大部分队已经发现了打影魔用辅助斯文特别好用了，影魔都开始bp上往外放了
+
+*****
+
+####  belldandy_ye  
+##### 9816#       发表于 2022-10-17 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57955996&amp;ptid=2099454" target="_blank">resorry 发表于 2022-10-17 15:17</a>
+
+骄阳的状态还是有点问题的，日本人还是不到中后期不会玩，不过猛犸有点当年的影子了，中期把火枪关了 ...</blockquote>
+老鹿早点搞个绿杖补A根本不会这么难打，兽这个英雄表面上简单粗暴，但上限高下限也低，很考验技师水平.
+
+*****
+
+####  VanArkride  
+##### 9817#       发表于 2022-10-17 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956170&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-17 15:28</a>
+现在大部分队已经发现了打影魔用辅助斯文特别好用了，影魔都开始bp上往外放了 ...</blockquote>
+sven现在出门移速325，打辅助是真不错
+
+*****
+
+####  c88711611  
+##### 9818#       发表于 2022-10-17 15:29
+
+撸狗猪今天一直在犯罪
+
+*****
+
+####  反方向的波  
+##### 9819#       发表于 2022-10-17 15:30
+
+夜饮潇湘假超人啊，听了杰出的畜言畜语居然没把他踢出房间
+
+*****
+
+####  UnhappyTails  
+##### 9820#       发表于 2022-10-17 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956188&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-17 15:30</a>
+夜饮潇湘假超人啊，听了杰出的话居然没把他踢出房间</blockquote>
+杰出就每分钟都在恶心人一秒钟没停过
+
+*****
+
+####  vlder1994  
+##### 9821#       发表于 2022-10-17 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956188&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-17 15:30</a>
+
+夜饮潇湘假超人啊，听了杰出的话居然没把他踢出房间</blockquote>
+杰CHU又说什么了？不看管人。
+
