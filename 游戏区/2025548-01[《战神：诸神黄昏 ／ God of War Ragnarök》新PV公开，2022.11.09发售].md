@@ -5553,3 +5553,14 @@ SOP是真不知道会不会有了，阿特柔斯操控部分和新武器看起�
 
 我看A9好像把场景都爆了，确实是全部九界
 
+
+
+*****
+
+####  Kazepollar  
+##### 611#       发表于 2022-10-17 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57949938&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-17 10:04</a>
+ 我看A9好像把场景都爆了，确实是全部九界</blockquote>
+没看到呀
+
