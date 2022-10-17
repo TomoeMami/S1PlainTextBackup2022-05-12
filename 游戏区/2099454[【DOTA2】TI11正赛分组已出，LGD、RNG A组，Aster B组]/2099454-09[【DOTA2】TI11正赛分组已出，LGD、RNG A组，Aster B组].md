@@ -41,3 +41,28 @@ RNG 最后一轮被og2：0带走。
 
 突然感觉看卡猴的最后一届ti就跟我上一季追动画一样，别人要么是蒜这种阴沟翻船要么是吻这种平稳落地，结果我看的是异世界舅舅播一半突然说因为疫情没啦
 
+
+
+*****
+
+####  恐怖利刃  
+##### 12005#       发表于 2022-10-18 01:24
+
+<img src="https://img.saraba1st.com/forum/202210/18/012359wtzuttudu91mu8v1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>26EBD8C1-D687-4F91-80EC-D667770A468B.jpeg</strong> (406.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 01:23 上传
+
+*****
+
+####  sadllk  
+##### 12006#       发表于 2022-10-18 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964387&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-18 00:56</a>
+
+搜了下luna cos全是农药的，玉玉了，虽然皮肤很白腿很长柰子也很大。</blockquote>
+看看
+

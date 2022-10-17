@@ -4125,3 +4125,21 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  帆影FX  
+##### 383#       发表于 2022-10-18 01:26
+
+通关了，还要刷肉哥迷宫的掉落来解锁不同结局<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 384#       发表于 2022-10-18 01:30
+
+在岩浆上怎么开读条的铜银金宝箱啊，有的时候还会飞到天上<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
