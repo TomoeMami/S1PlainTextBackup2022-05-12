@@ -10674,3 +10674,326 @@ RNG就这实力，老干鳖打不过的对手RNG打不过很奇怪吗，第一�
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  proselyte  
+##### 10309#       发表于 2022-10-17 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958096&amp;ptid=2099454" target="_blank">ArowRocher 发表于 2022-10-17 17:22</a>
+
+潘飞可能是觉得自己告诉酒店没告诉v社不算瞒报，瞒报的定义两说。但卡卡说在电梯里见过潘飞，难道卡卡说谎 ...</blockquote>
+卡卡应该没说谎
+
+*****
+
+####  nowaki  
+##### 10310#       发表于 2022-10-17 17:22
+
+司马潘飞又没说他通报酒店的时间，16号被酒店发现了通报也叫通报
+
+*****
+
+####  非建政专用号  
+##### 10311#       发表于 2022-10-17 17:23
+
+aster大战南美超人了
+
+*****
+
+####  proselyte  
+##### 10312#       发表于 2022-10-17 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958087&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-17 17:21</a>
+
+实力nmb啊 液体2-0eg eg2-0lgd lgd2-0rng rng1-1液体怎么说 薛定谔的实力？司马投毒队搞盘外招还有人洗是吧 ...</blockquote>
+a组就是这么混乱啊
+
+*****
+
+####  caupollen  
+##### 10313#       发表于 2022-10-17 17:23
+
+就是心态炸了，说不定得了心态还会更好
+
+*****
+
+####  TIZI  
+##### 10314#       发表于 2022-10-17 17:24
+
+og这边在搞毛啊，以前客户端那个接管录像功能的代码彻底删了？
+感觉这功能打职业比赛可以留一下防意外吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nightmare902015  
+##### 10315#       发表于 2022-10-17 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958133&amp;ptid=2099454" target="_blank">TIZI 发表于 2022-10-17 17:24</a>
+og这边在搞毛啊，以前客户端那个接管录像功能的代码彻底删了？
+感觉这功能打职业比赛可以留一下防意外吧</blockquote>
+还在，前不久才这样读档重开过一次，两个肉山那回
+
+*****
+
+####  北欧王座  
+##### 10316#       发表于 2022-10-17 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958096&amp;ptid=2099454" target="_blank">ArowRocher 发表于 2022-10-17 17:22</a>
+
+潘飞可能是觉得自己告诉酒店没告诉v社不算瞒报，瞒报的定义两说。但卡卡说在电梯里见过潘飞，难道卡卡说谎 ...</blockquote>
+不说时间点都是假的。越办越好说他14号躲屋里。13号肯定乱逛了。他几号报给酒店的还不知道呢。真隔离了后面有没有出门又是谁也不知道的事
+
+*****
+
+####  ArowRocher  
+##### 10317#       发表于 2022-10-17 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958103&amp;ptid=2099454" target="_blank">proselyte 发表于 2022-10-17 17:22</a>
+卡卡应该没说谎</blockquote>
+我也是反问的意思
+
+*****
+
+####  Quark  
+##### 10318#       发表于 2022-10-17 17:25
+
+起源1换起源2的时候彻底删的吧 主要接管功能没多少人用 换了引擎bug也多
+
+*****
+
+####  弈秋  
+##### 10319#       发表于 2022-10-17 17:25
+
+可能是李逵希望判负吧
+
+*****
+
+####  VanArkride  
+##### 10320#       发表于 2022-10-17 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958147&amp;ptid=2099454" target="_blank">Quark 发表于 2022-10-17 17:25</a>
+起源1换起源2的时候彻底删的吧 主要接管功能没多少人用 换了引擎bug也多</blockquote>
+接管是真不应该删，还是v太懒
+
+
+
+*****
+
+####  端木恋心  
+##### 10321#       发表于 2022-10-17 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958133&amp;ptid=2099454" target="_blank">TIZI 发表于 2022-10-17 17:24</a>
+
+og这边在搞毛啊，以前客户端那个接管录像功能的代码彻底删了？
+
+感觉这功能打职业比赛可以留一下防意外吧</blockquote>
+中国赛区DPC搞过，太容易出BUG了。经典双肉山，导致优势局TA打不过肉山。
+
+*****
+
+####  StrangerJ  
+##### 10322#       发表于 2022-10-17 17:26
+
+v社接锅
+
+*****
+
+####  johnwick  
+##### 10323#       发表于 2022-10-17 17:27
+
+好了，继续了
+
+*****
+
+####  北欧王座  
+##### 10324#       发表于 2022-10-17 17:27
+
+而且不是酒店发现他阳性了么，怎么说的跟他主动测试积极响应主动报的？
+
+*****
+
+####  TIZI  
+##### 10325#       发表于 2022-10-17 17:28
+
+诸葛misha连进来了，液体面如死灰了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Crazy_Knife  
+##### 10326#       发表于 2022-10-17 17:28
+
+ 本帖最后由 Crazy_Knife 于 2022-10-17 17:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958141&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-17 17:25</a>
+不说时间点都是假的。越办越好说他14号躲屋里。13号肯定乱逛了。他几号报给酒店的还不知道呢。真隔离了后 ...</blockquote>
+潘飞这比打算一直瞒着病情，是被酒店测出来的，这狗逼是真的该死
+
+*****
+
+####  恐怖利刃  
+##### 10327#       发表于 2022-10-17 17:29
+
+所谓卡卡碰到不是推特一个cjb说的吗
+
+*****
+
+####  情商  
+##### 10328#         楼主| 发表于 2022-10-17 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958222&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-17 17:29</a>
+所谓卡卡碰到不是推特一个cjb说的吗</blockquote>
+是查理斯粉丝群的群主说的
+
+*****
+
+####  proselyte  
+##### 10329#       发表于 2022-10-17 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958142&amp;ptid=2099454" target="_blank">ArowRocher 发表于 2022-10-17 17:25</a>
+
+我也是反问的意思</blockquote>
+到底是怎么回事不懂了
+
+只要一口咬死那都没办法
+
+把他说的和下面8说的排除看看已有的正确信息可以推出他多少行程
+
+*****
+
+####  bluebaby  
+##### 10330#       发表于 2022-10-17 17:30
+
+液体究极白忙活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回来就是一波团灭
+
+*****
+
+####  北欧王座  
+##### 10331#       发表于 2022-10-17 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958222&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-17 17:29</a>
+
+所谓卡卡碰到不是推特一个cjb说的吗</blockquote>
+推特吹jb说的是卡卡呼吸困难。是假的
+
+卡卡遇到是其他人说的
+
+*****
+
+####  反方向的波  
+##### 10332#       发表于 2022-10-17 17:30
+
+进去一看马体心态崩了打完团留下五具尸体，今日最轻松一刻
+
+*****
+
+####  woyzeck  
+##### 10333#       发表于 2022-10-17 17:30
+
+卡卡碰到潘飞不是撸狗猪最好的兄弟普通小能在群里说的么
+
+*****
+
+####  莉拉厨  
+##### 10334#       发表于 2022-10-17 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958222&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-17 17:29</a>
+所谓卡卡碰到不是推特一个cjb说的吗</blockquote>
+rng领队说的啊，推特那个记者说的是他看到超哥和潘飞碰面了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北欧王座  
+##### 10335#       发表于 2022-10-17 17:31
+
+反正闹大点酒店都有监控，真搞出事来v社调查一问便知。
+
+*****
+
+####  ArowRocher  
+##### 10336#       发表于 2022-10-17 17:31
+
+我草全阳了
+
+*****
+
+####  IPoke  
+##### 10337#       发表于 2022-10-17 17:31
+
+哇，听说除了冠晴全阳了
+
+— from OnePlus CPH2415, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  百世诸侯  
+##### 10338#       发表于 2022-10-17 17:31
+
+全🐏了，也别喷发挥了，没办法
+
+*****
+
+####  Litccc  
+##### 10339#       发表于 2022-10-17 17:31
+
+rng团灭喽
+
+*****
+
+####  沈经文  
+##### 10340#       发表于 2022-10-17 17:31
+
+【RNG电子竞技俱乐部公告】
+
+RNG DOTA2分部选手Ghost （陈国康）、Chalice（杨沈仪）、Kaka（胡良智）、flyby（苏磊）、总经理Stms（陆浩）、领队Junyu（刘珺宇）核酸检测后出现检测结果异常情况，经二次核酸检查确认为阳性，后续选手们在隔离房间内正常参加训练和比赛，希望大家能够尽快康复！
+
+俱乐部也将与官方一起严格遵守各项防疫措施，做好健康监测。感谢粉丝们的关心，我们前线的工作人员一定会尽我们所能照顾好我们的选手！
+
+*****
+
+####  反方向的波  
+##### 10341#       发表于 2022-10-17 17:31
+
+全阳了
+
+*****
+
+####  中已矣  
+##### 10342#       发表于 2022-10-17 17:31
+
+就说不可能一个是得
+
+*****
+
+####  两三流浪者  
+##### 10343#       发表于 2022-10-17 17:32
+
+lgd怎么没人🐏
+
+*****
+
+####  非建政专用号  
+##### 10344#       发表于 2022-10-17 17:32
+
+液体已经烂了，og三脑浆不会也补脑了吧
+
+*****
+
+####  北欧王座  
+##### 10345#       发表于 2022-10-17 17:32
+
+rng团灭了
+
+*****
+
+####  越动天下  
+##### 10346#       发表于 2022-10-17 17:32
+
+lgd呢 这能不阳 还是第一天阳完了
+

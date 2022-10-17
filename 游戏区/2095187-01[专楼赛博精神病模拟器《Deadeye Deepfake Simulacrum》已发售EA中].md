@@ -1328,3 +1328,17 @@ Esc菜单，关游戏重进，被杀都能跳过教程，但少了3个芯片。�
 
 C:\Users\*\AppData\LocalLow\nodayshalleraseyou\DeadeyeDeepfakeSimulacrum\
 
+
+
+*****
+
+####  Tring  
+##### 68#         楼主| 发表于 2022-10-17 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958082&amp;ptid=2095187" target="_blank">wangyi041228 发表于 2022-10-17 17:20</a>
+
+前台说谎69奖励的技能也是永久的，之后的新档跳过教程也有已经解锁的初始技能，这是写到注册表的。
+
+计算 ...</blockquote>
+哦，有在dicord上看人提过注册表解锁，作者说是故意这么弄的。
+
