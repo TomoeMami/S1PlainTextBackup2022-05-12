@@ -12055,3 +12055,15 @@ sky终于有空参加歌谣祭了<img src="https://static.saraba1st.com/image/sm
 
 但是她死了。
 
+
+
+*****
+
+####  星野航  
+##### 17604#       发表于 2022-10-18 04:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正都是收录好的
+怎么搞不也看发挥，这种也骂到龙胆头上才是离谱
+要说还不如直接骂田角来的自然
+不过毕竟上市公司，驱动力确实不太一样了
+

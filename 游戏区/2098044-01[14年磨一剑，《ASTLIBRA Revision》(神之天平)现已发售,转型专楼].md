@@ -4165,3 +4165,85 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 战神的斩铁闪怎么躲？直接秒我
 
+
+
+*****
+
+####  黒長直姫  
+##### 387#       发表于 2022-10-18 01:57
+
+这二周目突然变爆肝肉鸽了 我先睡为敬
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  jy000129  
+##### 388#       发表于 2022-10-18 02:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">色乌鸦！
+
+*****
+
+####  jy000129  
+##### 389#       发表于 2022-10-18 02:34
+
+贤者塔顶层怎么混上去？耳环剧情里被黑破坏了
+
+*****
+
+####  AeonsTorn  
+##### 390#       发表于 2022-10-18 02:42
+
+这打爆练习岩石真的要了亲命了……两个100w血，给的东西也一般般
+
+
+
+*****
+
+####  六至九  
+##### 391#       发表于 2022-10-18 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964734&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-18 02:34</a>
+贤者塔顶层怎么混上去？耳环剧情里被黑破坏了</blockquote>
+对守卫使用昏睡药吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jy000129| + 1|进去了，但是打不过|
+
+查看全部评分
+
+*****
+
+####  jy000129  
+##### 392#       发表于 2022-10-18 03:16
+
+ 本帖最后由 jy000129 于 2022-10-18 03:30 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/18/031527iktwfkfkfj8exoxm.jpg" referrerpolicy="no-referrer">
+
+<strong>20221018031450_1.jpg</strong> (359.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 03:15 上传
+
+第七章第二个小徽章来回几遍没找到，求大佬指点下
+
+*****
+
+####  后会莫急  
+##### 393#       发表于 2022-10-18 05:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964804&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-18 03:16</a>
+
+第七章第二个小徽章来回几遍没找到，求大佬指点下</blockquote>
+应该是贤者塔3层吧
+
