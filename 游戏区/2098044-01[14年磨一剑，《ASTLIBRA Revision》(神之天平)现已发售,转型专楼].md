@@ -3446,3 +3446,14 @@ https://w.atwiki.jp/astlibra/</blockquote>
 城里的武器店，二楼平台上放了个非常小的射箭靶完美融入环境（</blockquote>
 草我记得我进了几百次武器店宝箱数都是0来着 下班回去看看 感谢解答
 
+
+
+*****
+
+####  蓝雉  
+##### 323#         楼主| 发表于 2022-10-17 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950284&amp;ptid=2098044" target="_blank">vidomina 发表于 2022-10-17 10:21</a>
+小黑真的有意思，明明她说了她有好几件一样的衣服，却还要在猪脚穿的时候特意换福利套233还有，最后喝醉那 ...</blockquote>
+有cg就r18了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
