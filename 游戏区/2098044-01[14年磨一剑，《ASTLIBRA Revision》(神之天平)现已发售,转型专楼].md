@@ -3514,3 +3514,20 @@ https://w.atwiki.jp/astlibra/</blockquote>
 不过村庄和山洞好像不在同一时空 这样倒也 ...</blockquote>
 人家是剧情导致红球掉出超时空背包进水的 你自己跳水里的时候球还在包里呢 合情合理（
 
+
+
+*****
+
+####  StrayWolf  
+##### 329#       发表于 2022-10-17 13:15
+
+<img src="https://img.saraba1st.com/forum/202210/17/131459unfvgff7ieoovebe.png" referrerpolicy="no-referrer">
+
+<strong>DHNJ_@}4H8HZ742])~URC%G.png</strong> (239.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 13:14 上传
+
+ 兄弟们第六章火把这里怎么搞？？
+
