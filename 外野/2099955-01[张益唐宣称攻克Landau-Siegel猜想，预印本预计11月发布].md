@@ -683,3 +683,16 @@ Dirichlet L函数，不 ...</blockquote>
 On the Landau-Siegel Zeros Conjecture</blockquote>
 合着张说的是07年的论文，那这个所谓的解决更没讨论价值了
 
+
+
+*****
+
+####  枯风瘦雪02  
+##### 63#       发表于 2022-10-17 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57948275&amp;ptid=2099955" target="_blank">鹳狸猿我错了 发表于 2022-10-17 07:43</a>
+合着张说的是07年的论文，那这个所谓的解决更没讨论价值了</blockquote>
+07年这篇论文有个bug，这个bug还挺有名的一度影响了他的学术声誉。他现在其实就是宣称解决了之前的bug做出了完整证明。等真的把修改后的论文贴出来才可能不空对空的聊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
