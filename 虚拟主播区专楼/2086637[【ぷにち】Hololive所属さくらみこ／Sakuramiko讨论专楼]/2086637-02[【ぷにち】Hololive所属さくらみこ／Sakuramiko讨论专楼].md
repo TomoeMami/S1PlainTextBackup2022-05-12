@@ -9274,3 +9274,12 @@ ED还能升华的就很强
 
 久违的感动收尾，19年那会gta也是这种感觉，35p都好配合。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 2386#         楼主| 发表于 2022-10-17 22:02
+
+19年的GTA其实是最有意思的，还是PC端的时候参加的人就非常多了有意思的人也很多，当时观众还没现在那么多大家素质都相当高
+

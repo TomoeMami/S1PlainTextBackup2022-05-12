@@ -8686,3 +8686,180 @@ Hokori这个队到底什么来头，五个人我都没印象
 你当新加坡世界第一的疫苗接种率不存在不成，没啥用的，XBB该得就会得</blockquote>
 新加坡不是三针么，后面也没打了
 
+
+
+*****
+
+####  StrangerJ  
+##### 11602#       发表于 2022-10-17 22:01
+
+莫非马体打不过boom？
+
+*****
+
+####  莉拉厨  
+##### 11603#       发表于 2022-10-17 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962319&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-17 22:00</a>
+新加坡不是三针么，后面也没打了</blockquote>
+问题是xbb是个新的变种，老疫苗打一万针也没用，不然干嘛现在国内都不谈打疫苗了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 11604#       发表于 2022-10-17 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962308&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-17 21:59</a>
+雪碧无限看好bb，怀疑训练赛走偏了</blockquote>
+抓着BB练真的假的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 11605#       发表于 2022-10-17 22:02
+
+哎提前准备好rng败者组了，明天早上不忍心看了
+
+*****
+
+####  zhwpjy  
+##### 11606#       发表于 2022-10-17 22:02
+
+为啊外国队屁事都没啊 感染过就这么牛逼
+
+*****
+
+####  adretyu67  
+##### 11607#       发表于 2022-10-17 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962338&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-17 22:02</a>
+
+抓着BB练真的假的</blockquote>
+他们觉得BB能胜者组。。。。
+
+但是现在看来BB风格和他们完全不一样。
+
+*****
+
+####  两三流浪者  
+##### 11608#       发表于 2022-10-17 22:04
+
+eg已经锁定小组第一了，nightfall不会真能带天鸽夺冠吧
+
+*****
+
+####  银翼的维罗西  
+##### 11609#       发表于 2022-10-17 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962347&amp;ptid=2099454" target="_blank">zhwpjy 发表于 2022-10-17 22:02</a>
+
+为啊外国队屁事都没啊 感染过就这么牛逼</blockquote>
+我也觉得奇怪，外国人这么浪怎么没有感染的新闻，真就天亡RNG
+
+*****
+
+####  -SLSL-  
+##### 11610#       发表于 2022-10-17 22:04
+
+希望淘汰赛有哥们儿给鸽鸽上点强度
+
+
+
+*****
+
+####  nerugigannte  
+##### 11611#       发表于 2022-10-17 22:05
+
+谁夺冠都无所谓，lgd不夺冠就行，lgd不是中国队成绩最好的就是dota之神送给cndota最好的礼物
+
+*****
+
+####  情商  
+##### 11612#         楼主| 发表于 2022-10-17 22:05
+
+A帐沉默都来了
+
+*****
+
+####  resorry  
+##### 11613#       发表于 2022-10-17 22:06
+
+明天茶能进胜者组前2就发红包，加油啊骄阳，带小林靖三郎躺4把
+
+*****
+
+####  roxas.sora  
+##### 11614#       发表于 2022-10-17 22:06
+
+...............我觉得雪碧老迷信东京哥的滚滚不行，明明第一天卡尔打的很好的，滚滚这东西打中不稳啊
+
+*****
+
+####  两三流浪者  
+##### 11615#       发表于 2022-10-17 22:07
+
+处长还敢玩娜迦？
+
+*****
+
+####  nowaki  
+##### 11616#       发表于 2022-10-17 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962398&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-17 22:06</a>
+
+...............我觉得雪碧老迷信东京哥的滚滚不行，明明第一天卡尔打的很好的，滚滚这东西打中不稳啊 ...</blockquote>
+飞鞋点金跳刀的卡尔算了吧
+
+*****
+
+####  没钱买手办  
+##### 11617#       发表于 2022-10-17 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加油啊boom
+
+*****
+
+####  Dreki  
+##### 11618#       发表于 2022-10-17 22:08
+
+莫言咋验货了
+
+*****
+
+####  恐怖利刃  
+##### 11619#       发表于 2022-10-17 22:08
+
+假赛！假赛！假赛！
+
+*****
+
+####  越动天下  
+##### 11620#       发表于 2022-10-17 22:08
+
+lgd这真是畜生东西呀 这猴爹在高地上把bkb开了 本来准备开雾的
+
+*****
+
+####  反方向的波  
+##### 11621#       发表于 2022-10-17 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962398&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-17 22:06</a>
+...............我觉得雪碧老迷信东京哥的滚滚不行，明明第一天卡尔打的很好的，滚滚这东西打中不稳啊 ...</blockquote>
+你看他第二天玩的卡尔会觉得这是个万古猪
+
+*****
+
+####  两三流浪者  
+##### 11622#       发表于 2022-10-17 22:10
+
+毕竟樱花模式只能开一次
+
+*****
+
+####  qty  
+##### 11623#       发表于 2022-10-17 22:10
+
+哦？难道GG有戏赢干瘪一局？
+
