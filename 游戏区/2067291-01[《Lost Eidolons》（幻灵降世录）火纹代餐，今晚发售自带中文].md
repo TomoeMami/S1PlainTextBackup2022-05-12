@@ -1622,3 +1622,19 @@ steam现在多半好评，看了下差评感觉还是等制作组修一修吧...
 寡妇真的好 人美心善还能干</blockquote>
 这么赞的吗？ 是前面有人放图的那个金发妞吗<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bwsusaga  
+##### 147#         楼主| 发表于 2022-10-17 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961824&amp;ptid=2067291" target="_blank">h1r0 发表于 2022-10-17 21:26</a>
+
+主要人物好感度是不是会影响剧情的，16章有人会死，这个章节数直接想到要好感度A存活的凉风
+
+19章也有队友离 ...</blockquote>
+还没推到，竟然有剧情杀<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+没差几章了，大概能猜出来是哪个，好感度还不知道能不能补上来……
+

@@ -7589,3 +7589,433 @@ rng 两胜，三队加赛
 妹区别</blockquote>
 还有一个打boom，今天
 
+
+
+*****
+
+####  越动天下  
+##### 11475#       发表于 2022-10-17 21:31
+
+明天这茶也不好打呀 秘密和ts 这真不好打
+
+*****
+
+####  AualloniaMK2  
+##### 11476#       发表于 2022-10-17 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961899&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-17 21:30</a>
+
+小火龙明天的对手就是同为9胜的马体，肯定把对面往死里打火并掉一个</blockquote>
+今天马体打完boom应该就不是9胜了
+
+*****
+
+####  adretyu67  
+##### 11477#       发表于 2022-10-17 21:31
+
+放弃幻想，准备斗争。
+
+*****
+
+####  nightmare902015  
+##### 11478#       发表于 2022-10-17 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961872&amp;ptid=2099454" target="_blank">winkle 发表于 2022-10-17 21:29</a>
+小黑最不缺的输出装，缺的是生存装</blockquote>
+个人感觉小黑装备格子和出装顺序被挤占了比较痛苦，水人现在第二件就a的，小黑这时跟进一个林肯很尴尬。
+
+*****
+
+####  NaYo丶  
+##### 11479#       发表于 2022-10-17 21:32
+
+ts想进胜者要品茶的 看看茶队争不争气
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 11480#       发表于 2022-10-17 21:32
+
+<img src="https://p.sda1.dev/7/137e7743917cf77f1ca634bc704a88f1/Screenshot_2022-10-17-21-31-40-12_6e80cb6a5d3ffc593e03160aeb7095f8.jpg" referrerpolicy="no-referrer">
+晕了晕了，怎么还有一个bo2还没开
+
+*****
+
+####  StrangerJ  
+##### 11481#       发表于 2022-10-17 21:32
+
+秘密状态正好，雪碧要搏命的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">阿茶真的难了
+
+*****
+
+####  莉拉厨  
+##### 11482#       发表于 2022-10-17 21:32
+
+有没有BOOM十年老粉的，说说看有没有BOOM2:0液体的剧本
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  枯风瘦雪02  
+##### 11483#       发表于 2022-10-17 21:33
+
+TS这个队这两天脑浆到不配当强敌看了
+
+*****
+
+####  adretyu67  
+##### 11484#       发表于 2022-10-17 21:33
+
+雪碧这样子连bc都不一定稳。茶当然今天也有点脑浆撒地上。
+
+b组真的是。。
+
+*****
+
+####  StrangerJ  
+##### 11485#       发表于 2022-10-17 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961927&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-17 21:32</a>
+晕了晕了，怎么还有一个bo2还没开</blockquote>
+这就要问misha神了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  阿垃垃圾历  
+##### 11486#       发表于 2022-10-17 21:33
+
+液体这竟然给他混进胜者组了  
+
+*****
+
+####  AualloniaMK2  
+##### 11487#       发表于 2022-10-17 21:33
+
+目前即便不考虑状态，rng也是败者组可能性更大一些，主动权在别人手里
+
+*****
+
+####  越动天下  
+##### 11488#       发表于 2022-10-17 21:33
+
+现在B组一大批队争 现在六个都是在7到10之内 
+
+*****
+
+####  nowaki  
+##### 11489#       发表于 2022-10-17 21:33
+
+很难想象批九光靠着抱他两爹大腿就10-4b组第一，我真恶心的晚饭都吐出来了。
+
+但妮今天干了雪碧2-0，我决定喊你一晚上九神。
+
+*****
+
+####  proselyte  
+##### 11490#       发表于 2022-10-17 21:33
+
+无可奈何，这个合影就像当年清口说团队决策一样。另外从合影时间看，应该是lgd已经知道潘飞阳了，所以这个集美只蹲到了霉比还有外国选手
+
+<img src="https://img.saraba1st.com/forum/202210/17/213334gmwl6ai9m2lisdig.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221017_191958.jpg</strong> (131.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 21:33 上传
+
+
+
+*****
+
+####  非建政专用号  
+##### 11491#       发表于 2022-10-17 21:33
+
+哦草，看出脑浆了
+
+*****
+
+####  莉拉厨  
+##### 11492#       发表于 2022-10-17 21:33
+
+哦牛逼，切积分榜一看拳酱2-0吊打雌小鬼了，突然开窍了？
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  seki_m  
+##### 11493#       发表于 2022-10-17 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961719&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-17 21:18</a>
+
+这英雄各种意义上的短板太明显了一点儿，根本为零的推进能力和控制能力，极度不契合怨灵之契，也没多针对 ...</blockquote>
+才想起这是怨灵之契的版本
+
+*****
+
+####  憧憬鲨  
+##### 11494#       发表于 2022-10-17 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">昨天晚上哪能想到命已经不在自己手上了，真踏马司马
+
+*****
+
+####  acejoe  
+##### 11495#       发表于 2022-10-17 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961890&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:29</a>
+抱歉，我是车轱辘不看比赛高谈阔论屁话ptsd</blockquote>
+你倒是用只看此人发言啊，看我说了几次肌肉dota啊。
+张口就来？？？？？
+
+*****
+
+####  Sabbah  
+##### 11496#       发表于 2022-10-17 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">揍不过OG还是老实回败者组吧，misha神和atf感觉都已经生无可恋了。
+
+*****
+
+####  TIZI  
+##### 11497#       发表于 2022-10-17 21:34
+
+rng想出线最少要拿下1把，最好拿下2把不求人。
+但愿今晚睡个觉其他几个人都能恢复好，特别是卡狗明显有点下滑，2次阳太吓人了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  莉拉厨  
+##### 11498#       发表于 2022-10-17 21:34
+
+支持集美漏油清算楼主！
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 11499#       发表于 2022-10-17 21:35
+
+<img src="https://img.saraba1st.com/forum/202210/17/213446loyba0lqdjy4o0ed.jpg" referrerpolicy="no-referrer">
+
+<strong>8xQ184-iel4Z1eT3cSwi-hf.jpg.medium.jpg</strong> (39 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 21:34 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">哈人
+
+*****
+
+####  Keynes  
+##### 11500#       发表于 2022-10-17 21:35
+
+干瘪夺冠的可能性估计是没有的，但是现在看来成绩比其他两个中国队好的可能性还是挺大的，集美的大水真顶不住了，只能指望淘汰赛第一轮遇到的队爆种打进败者组，然后两轮游了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 11501#       发表于 2022-10-17 21:35
+
+雪碧还有明天0-4直接小组垫底出局的剧本
+
+*****
+
+####  nightmare902015  
+##### 11502#       发表于 2022-10-17 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961968&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-17 21:35</a>
+哈人</blockquote>
+这居然还能打比赛而且看着打的也勉强过得去。。。
+
+*****
+
+####  迷途lite  
+##### 11503#       发表于 2022-10-17 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">看了两个世界杯周期的足球的人太了解这种场面了，好在rng比国足还是强点
+去买点酒了，提前跟新冠和解
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 11504#       发表于 2022-10-17 21:36
+
+以后出国前打一针第四针吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 11505#       发表于 2022-10-17 21:36
+
+窝现在想的剧本是雪碧明天混个B组第四，EG肯定挑第三名，这样胜者组第一轮就是雪碧打LGD，等一波血脉克制好吧
+
+*****
+
+####  越动天下  
+##### 11506#       发表于 2022-10-17 21:36
+
+<img src="https://p.sda1.dev/7/91f62ce3fbebb963babd0ac50c36bdff/CMP_20221017213623232.jpg" referrerpolicy="no-referrer">明天这几个队脑浆都要打出来了
+
+*****
+
+####  Asukalangley33  
+##### 11507#       发表于 2022-10-17 21:37
+
+雪碧7分怎么回家啊
+
+2个4分的全胜，那我看好泰隆夺冠
+
+*****
+
+####  情商  
+##### 11508#         楼主| 发表于 2022-10-17 21:37
+
+无敌了呀 
+
+*****
+
+####  枯风瘦雪02  
+##### 11509#       发表于 2022-10-17 21:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961968&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-17 21:35</a>
+
+哈人</blockquote>
+看这信息，不比隔壁分部状况好，也是辛苦了，而且这个病程阶段大概不是睡一觉能好的（反而大概率是睡不着）
+
+*****
+
+####  情商  
+##### 11510#         楼主| 发表于 2022-10-17 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961957&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 21:34</a>
+
+你倒是用只看此人发言啊，看我说了几次肌肉dota啊。
+
+张口就来？？？？？</blockquote>
+首先，4次比赛，你说了3次 不然我不会直接说你天天高涛阔论肌肉dota
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 11511#       发表于 2022-10-17 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962002&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-17 21:37</a>
+看这信息，不比隔壁分部状况好，也是辛苦了，而且这个病程阶段大概不是睡一觉能好的（反而大概率是睡不着 ...</blockquote>
+安眠药，泰诺，肯定得吃
+
+*****
+
+####  越动天下  
+##### 11512#       发表于 2022-10-17 21:38
+
+反正感觉雪碧和茶肯定是要去一个败者组的好吧 明天这个两个队要正面打了
+
+*****
+
+####  枯风瘦雪02  
+##### 11513#       发表于 2022-10-17 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961989&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-17 21:36</a>
+
+以后出国前打一针第四针吧</blockquote>
+你当新加坡世界第一的疫苗接种率不存在不成，没啥用的，XBB该得就会得
+
+*****
+
+####  莉拉厨  
+##### 11514#       发表于 2022-10-17 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961989&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-17 21:36</a>
+以后出国前打一针第四针吧</blockquote>
+最新版本xbb，什么针都没用的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adretyu67  
+##### 11515#       发表于 2022-10-17 21:39
+
+现在B组雪碧很危险，想胜者组明天只能输1把。输2把应该是有加赛剧本，输3把就没了。
+
+没啥办法，talon和tsm的分没吃下来就是这么危险。
+
+只剩下korb3n和silent的终极拧绳术了。
+
+*****
+
+####  蛭人  
+##### 11516#       发表于 2022-10-17 21:39
+
+马桶太惨了，被misha神拖了这几个小时，直接导致明天睡觉起来就得打比赛，这不得把misha神约出来KO？
+
+*****
+
+####  qty  
+##### 11517#       发表于 2022-10-17 21:40
+
+RNG这身体状态也不指望啥了，先默认败者组吧。阿茶明天打秘密估计凶多吉少，要争取在雪碧身上啃一两分下来
+
+*****
+
+####  端木恋心  
+##### 11518#       发表于 2022-10-17 21:40
+
+还是希望dota之神眷顾一下。BOOM赢一局。但是看状态属于幻想时间了。
+
+*****
+
+####  acejoe  
+##### 11519#       发表于 2022-10-17 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962014&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:38</a>
+首先，4次比赛，你说了3次 不然我不会直接说你天天高涛阔论肌肉dota</blockquote>
+哪三次啊？又开始张口就来？
+那个帖为了喷ame说了一次你的may黄，这次说了两次，一次还说你ptsd是吧。
+
+*****
+
+####  walfeds  
+##### 11520#       发表于 2022-10-17 21:40
+
+新og三傻看来还得回家再打熬一年<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">ti能多一轮拉练一次都算胜利好吧
+
+反正今年一年下来的表现其实不能要求再多了，至于mi酱要不和chu神搞个王车易位算了
+
+
+
+*****
+
+####  非建政专用号  
+##### 11521#       发表于 2022-10-17 21:40
+
+bc2&gt;0tsm,tsm1=1ts,窝克明天双杀雪碧了
+
+*****
+
+####  反方向的波  
+##### 11522#       发表于 2022-10-17 21:41
+
+fnc这个b队毫无存在感，让我们看看他吸的谁得分
+哦今天鳖星贡献两分 没事了
+
+鳖星2天辉小兵1秘密1雪碧1
+
+哦还有个汉堡猫2<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 11523#       发表于 2022-10-17 21:41
+
+RNG这身体状态进不进胜者组区别不大，还是指望他们早点好吧，升职我觉得打OG直接弃赛休息都没问题
+
