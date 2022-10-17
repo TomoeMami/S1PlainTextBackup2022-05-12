@@ -9190,3 +9190,14 @@ holo这群人的日程，在半夜收录是很正常的，至少一年前就这�
 
 都快3w了什么怪物级别的tag
 
+
+
+*****
+
+####  rs5621  
+##### 2376#       发表于 2022-10-17 11:55
+
+35p们刷得好快
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

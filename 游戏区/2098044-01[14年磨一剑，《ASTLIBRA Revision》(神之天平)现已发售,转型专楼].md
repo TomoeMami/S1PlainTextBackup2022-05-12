@@ -3415,3 +3415,34 @@ https://w.atwiki.jp/astlibra/</blockquote>
 直接下去啊，那个地方就是被雪盖住了，实际是有路的</blockquote>
 找了半天终于找到了
 
+
+
+*****
+
+####  soranoguiji  
+##### 320#       发表于 2022-10-17 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57951657&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-17 11:18</a>
+
+我目前打到第四章，一半时间在刷材料和练熟练度，剩下的一半时间在看剧情，真正在战斗探索的时间应该不超 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我不看攻略在第五章卡了六个小时，这算不算探索
+
+*****
+
+####  llysander  
+##### 321#       发表于 2022-10-17 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57947101&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-17 00:35</a>
+
+醉了 沼泽的宝箱只提到一个小徽章 还有一个在哪啊~</blockquote>
+城里的武器店，二楼平台上放了个非常小的射箭靶完美融入环境（ 
+
+*****
+
+####  黒長直姫  
+##### 322#       发表于 2022-10-17 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57952613&amp;ptid=2098044" target="_blank">llysander 发表于 2022-10-17 11:56</a>
+城里的武器店，二楼平台上放了个非常小的射箭靶完美融入环境（</blockquote>
+草我记得我进了几百次武器店宝箱数都是0来着 下班回去看看 感谢解答
+
