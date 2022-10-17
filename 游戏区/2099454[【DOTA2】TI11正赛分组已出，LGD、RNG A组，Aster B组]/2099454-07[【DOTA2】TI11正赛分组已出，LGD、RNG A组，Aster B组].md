@@ -2700,3 +2700,431 @@ lgd**</blockquote>
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  南风尧  
+##### 9307#       发表于 2022-10-17 13:41
+
+小娜迦真是经济黑洞，想起了TI4的膀胱
+
+*****
+
+####  反方向的波  
+##### 9308#       发表于 2022-10-17 13:42
+
+怎么有盒中盒说泰迪要硬扛着上了
+
+*****
+
+####  tengshuo980  
+##### 9309#       发表于 2022-10-17 13:42
+
+草了啊，这个司马俱乐部
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  天堂蜘蛛  
+##### 9310#       发表于 2022-10-17 13:42
+
+寄了，输出已经完全跟不上了
+
+*****
+
+####  horacio  
+##### 9311#       发表于 2022-10-17 13:43
+
+实在是没输出
+
+*****
+
+####  迷途lite  
+##### 9312#       发表于 2022-10-17 13:43
+
+世界名画：五万娜迦在逛街<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+下一把吧
+
+*****
+
+####  北欧王座  
+##### 9313#       发表于 2022-10-17 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954378&amp;ptid=2099454" target="_blank">两仪式初号机 发表于 2022-10-17 13:41</a>
+
+热知识 查猪叫maybe黑皮
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
+【【dota2】查理斯：Maybe和小可两夫妻喜欢找XG 打麻将，但素质好低喜欢欺负XG； 没人陪我打麻烦只能刀塔酬勤了。】 [https://www.bilibili.com/video/B ... 8bad844b4d59b1216ab](https://www.bilibili.com/video/BV1kT4y1d7sP?share_source=copy_web&amp;vd_source=d5c7d7da37dd48bad844b4d59b1216ab)
+
+随便一搜就有，为啥你觉得称呼是固定的。。
+
+*****
+
+####  坚定的团子党  
+##### 9314#       发表于 2022-10-17 13:43
+
+打兽王不带宝石，秘密打尼玛呢
+
+*****
+
+####  12481632  
+##### 9315#       发表于 2022-10-17 13:43
+
+超哥不会要像去年白学家那样接着呼吸机打比赛吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 9316#       发表于 2022-10-17 13:43
+
+核中核消息潘飞确实13号以后没和LGD的人见面，但是他出去和其他队见面了……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 9317#       发表于 2022-10-17 13:43
+
+五万经济也只配see啊
+
+*****
+
+####  nightmare902015  
+##### 9318#       发表于 2022-10-17 13:44
+
+人均跳刀bkb刷新深海护罩这类的，一个靠腿走路的近战幻象系真的打不到人啊，好急
+
+*****
+
+####  Rorgen  
+##### 9319#       发表于 2022-10-17 13:44
+
+<img src="https://img.saraba1st.com/forum/202210/17/134414corhvoif7v82eohr.jpg" referrerpolicy="no-referrer">
+
+<strong>ILQ]OFCXT75W%NW][([}O3U.jpg</strong> (35.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 13:44 上传
+
+蕾姆了
+
+*****
+
+####  nxmonitor  
+##### 9320#       发表于 2022-10-17 13:44
+
+monet的小娜迦上次major就看过了啊，后期拼都不敢拼一把本体一点都不想上的……
+
+*****
+
+####  sodah  
+##### 9321#       发表于 2022-10-17 13:44
+
+没法打了。
+
+*****
+
+####  Keynes  
+##### 9322#       发表于 2022-10-17 13:44
+
+泪目了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，这届ti不黑超哥了
+
+*****
+
+####  天堂蜘蛛  
+##### 9323#       发表于 2022-10-17 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954421&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-17 13:43</a>
+
+核中核消息潘飞确实13号以后没和LGD的人见面，但是他出去和其他队见面了…… ...</blockquote>
+水厂自己的俱乐部vlog里都甚至还有潘飞在训练房和队员的合影
+
+这司马俱乐部相关人士的话一个字都别信好吧
+
+*****
+
+####  迷途lite  
+##### 9324#       发表于 2022-10-17 13:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">超哥牛逼，今年超哥打出什么下限操作我都不喷
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 9325#       发表于 2022-10-17 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954170&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 13:27</a>
+隔离7天消费还是贵的，加上工资上万了吧</blockquote>
+哪有啊，300一天，最多几千
+
+*****
+
+####  fananaf  
+##### 9326#       发表于 2022-10-17 13:45
+
+5w经济小娜迦有买活不敢吃伤害，那你还不如带球去算了
+
+*****
+
+####  tengshuo980  
+##### 9327#       发表于 2022-10-17 13:45
+
+超哥<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  迷途lite  
+##### 9328#       发表于 2022-10-17 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954448&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-17 13:45</a>
+哪有啊，300一天，最多几千</blockquote>
+分城市，我也见过700一天，带三餐800的
+
+*****
+
+####  哈萨维·诺亚  
+##### 9329#       发表于 2022-10-17 13:45
+
+呜呜呜呜呜啊啊啊啊啊啊啊啊啊啊啊啊啊我的超哥<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 9330#       发表于 2022-10-17 13:46
+
+泰迪真扛两把我ti结束前暂时不黑他了
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在是不是弃权一些强队的比赛休养生息比较好
+
+
+
+*****
+
+####  勤练带来力量  
+##### 9331#       发表于 2022-10-17 13:46
+
+希望超哥能跟前两天这张梗图一样强壮吧<img src="https://p.sda1.dev/7/e4584b11b4a32f55338a8d56f339a4ee/CMP_20221017134553771.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 9332#       发表于 2022-10-17 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954450&amp;ptid=2099454" target="_blank">fananaf 发表于 2022-10-17 13:45</a>
+5w经济小娜迦有买活不敢吃伤害，那你还不如带球去算了</blockquote>
+你不会以为娜迦吃的了伤害吧
+
+*****
+
+####  Rorgen  
+##### 9333#       发表于 2022-10-17 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954450&amp;ptid=2099454" target="_blank">fananaf 发表于 2022-10-17 13:45</a>
+5w经济小娜迦有买活不敢吃伤害，那你还不如带球去算了</blockquote>
+你不会以为娜迦吃的了伤害吧
+
+*****
+
+####  lyjssj  
+##### 9334#       发表于 2022-10-17 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">阿超如果下轮比赛出来打的话，我今年就是铁中铁小超人
+
+*****
+
+####  StrangerJ  
+##### 9335#       发表于 2022-10-17 13:46
+
+茶队这场30分钟前就该结束了。。。
+
+*****
+
+####  IG.430  
+##### 9336#       发表于 2022-10-17 13:46
+
+吴冠超刮骨疗伤<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 9337#       发表于 2022-10-17 13:46
+
+小娜迦这英雄真不太行吧 打到这份上
+
+*****
+
+####  zhrs456  
+##### 9338#       发表于 2022-10-17 13:46
+
+这小娜迦不出大晕制裁谜团 挺离谱的
+
+*****
+
+####  米德  
+##### 9339#       发表于 2022-10-17 13:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">超哥
+
+*****
+
+####  YujsD  
+##### 9340#       发表于 2022-10-17 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火鸡味锅巴  
+##### 9341#       发表于 2022-10-17 13:47
+
+超哥，带大伙再冲一次吧
+
+*****
+
+####  UnhappyTails  
+##### 9342#       发表于 2022-10-17 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954327&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-17 13:37</a>
+
+一是自然没有石锤是不是潘飞感染的。这个得之后再看
+
+二是lgd网军无论如何都会洗地。你不能去幻想l ...</blockquote>
+那有毛用，我现在就是巴不得这支潘婕和她的废物点心们赶紧从世界上消失
+
+*****
+
+####  哈萨维·诺亚  
+##### 9343#       发表于 2022-10-17 13:47
+
+What is dead may never die, but rises again, harder and stronger<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古代人皮克  
+##### 9344#       发表于 2022-10-17 13:47
+
+东京这穿山甲打的和个弱智一样
+
+*****
+
+####  テロメア  
+##### 9345#       发表于 2022-10-17 13:47
+
+只能说已经给很多机会了，FNC高配南美队，输了可惜的
+
+*****
+
+####  天堂蜘蛛  
+##### 9346#       发表于 2022-10-17 13:47
+
+对线就崩了这把没啥好说的
+
+本来就是偏前中期的阵容，后面能打回来已经不错了
+
+*****
+
+####  蛭人  
+##### 9347#       发表于 2022-10-17 13:48
+
+水人波高一代目这把娜迦是挺搞笑的，当然主要还是对面太肥，这阵容钱都给娜迦了，没法打后期。
+
+<img src="https://img.saraba1st.com/forum/202210/17/134729nymayqzkykvmj0ft.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (52.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 13:47 上传
+
+*****
+
+####  Keynes  
+##### 9348#       发表于 2022-10-17 13:48
+
+感觉还是酒仙选蛇了
+
+*****
+
+####  迷途lite  
+##### 9349#       发表于 2022-10-17 13:48
+
+兄弟研究了俩礼拜的小娜迦暖暖最后只打了不超过十把是有理由的呀，敏捷ga露娜大后还有一把圣剑的机会，这英雄出圣剑都没画面
+本子c如果跟我一样喜欢玩女c要不咱玩露娜吧，刷得也很快也能出a的
+
+*****
+
+####  Rorgen  
+##### 9350#       发表于 2022-10-17 13:48
+
+20分钟就噶了的比赛拖到60分钟不错了
+
+*****
+
+####  Ronso  
+##### 9351#       发表于 2022-10-17 13:49
+
+超哥，带大伙再冲一次吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  PigMourne  
+##### 9352#       发表于 2022-10-17 13:49
+
+悠悠苍天，曷此其极！悠悠苍天，曷此其极呀！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 9353#       发表于 2022-10-17 13:49
+
+感觉超哥应该是想看打红龙能不能扣下来一分保胜者组，然后休息到淘汰赛
+
+*****
+
+####  Horusddt  
+##### 9354#       发表于 2022-10-17 13:50
+
+现在最好的情况是下午找红龙抢两分然后剩下的弃权休息呗，然后祈祷其他人免疫力够强没事
+
+*****
+
+####  哈萨维·诺亚  
+##### 9355#       发表于 2022-10-17 13:50
+
+超哥，带大伙再冲一次吧 超哥，带大伙再冲一次吧 
+
+*****
+
+####  resorry  
+##### 9356#       发表于 2022-10-17 13:50
+
+樱花双熊这把P用没有啊，lanm抱着这傻逼panda就是不撒手啊
+
+*****
+
+####  UnhappyTails  
+##### 9357#       发表于 2022-10-17 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954525&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-17 13:49</a>
+
+感觉超哥应该是想看打红龙能不能扣下来一分保胜者组，然后休息到淘汰赛</blockquote>
+是，现在看来肯定是憋着一口气想扣一分
+
+没想到又遇到这个罪魁祸首队，把rng干了
+
+我真是草了他妈全家乐
+
+*****
+
+####  fananaf  
+##### 9358#       发表于 2022-10-17 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954462&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-17 13:46</a>
+
+你不会以为娜迦吃的了伤害吧</blockquote>
+装备拉满蝴蝶龙心的时候怎么就不能吃了
+
