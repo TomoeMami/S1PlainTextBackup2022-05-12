@@ -5119,3 +5119,353 @@ RNG 补双头龙应该是防推进的。拖住就行
 
 来了来了
 
+
+
+*****
+
+####  nerugigannte  
+##### 8124#       发表于 2022-10-17 10:21
+
+陈兽王打推进卧槽，前中期好强啊，有兽有大圣
+
+*****
+
+####  Suny08  
+##### 8125#       发表于 2022-10-17 10:22
+
+Rng 这是给鬼搭台子吧，双头龙加小强加滚滚的大量控制给sf输出，团战很强
+
+*****
+
+####  resorry  
+##### 8126#       发表于 2022-10-17 10:23
+
+撸狗猪选个短腿的给处长送钱是吧
+
+*****
+
+####  battleship64  
+##### 8127#       发表于 2022-10-17 10:23
+
+完了呀，线上感觉炸了哦
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  越动天下  
+##### 8128#       发表于 2022-10-17 10:23
+
+感觉这个双头龙选的是不是有点失败了
+
+*****
+
+####  walfeds  
+##### 8129#       发表于 2022-10-17 10:24
+
+对线直接摆烂，这一口火上去不是帮对面控线
+
+*****
+
+####  nerugigannte  
+##### 8130#       发表于 2022-10-17 10:24
+
+好送！
+
+
+
+*****
+
+####  莉拉厨  
+##### 8131#       发表于 2022-10-17 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950166&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-17 10:16</a>
+怎么感觉李斯被搞晕了随便点个双头龙摆烂了，双头龙+小强打不过大圣小花仙的
+
+—— 来自 Xiaomi 22041216C, ...</blockquote>
+果不其然啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  battleship64  
+##### 8132#       发表于 2022-10-17 10:25
+
+可g，不行了呀
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  儛進  
+##### 8133#       发表于 2022-10-17 10:25
+
+9个亚军打起来真的是精彩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白野苍衣  
+##### 8134#       发表于 2022-10-17 10:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太帝最后一手选个双头龙往地上一躺，太帝的锅。
+
+*****
+
+####  nxmonitor  
+##### 8135#       发表于 2022-10-17 10:25
+
+ 本帖最后由 nxmonitor 于 2022-10-17 10:27 编辑 
+
+漏油别想当然了，小组赛天辉才41%胜率，强势英雄比如玛西谜团，在天辉胜率30不到，甚至比天辉平均胜率还低，至少目前的数据来看选边差异很大……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 8136#       发表于 2022-10-17 10:26
+
+杏奴猪开始了啊
+
+*****
+
+####  反方向的波  
+##### 8137#       发表于 2022-10-17 10:26
+
+ 本帖最后由 反方向的波 于 2022-10-17 10:27 编辑 
+
+妮拿杰奇洛锻炼黑皇杖都比拿它打23号位好用，又卜是没看过今年批九名场面决赛bo5最后一把选个双头龙狂送，skiter33两个爹都兜不住
+
+*****
+
+####  12481632  
+##### 8138#       发表于 2022-10-17 10:26
+
+查猪你还是忘不了他
+
+*****
+
+####  nightmare902015  
+##### 8139#       发表于 2022-10-17 10:27
+
+虽然玛西谜团本来在小组赛中的胜率也不高。。。<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 8140#       发表于 2022-10-17 10:27
+
+下面王八真是CS啊
+
+打国内队选这么大力的阵容，昨天打外国队怎么不拿啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  坚定的团子党  
+##### 8141#       发表于 2022-10-17 10:28
+
+单杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 8142#         楼主| 发表于 2022-10-17 10:28
+
+泰迪这个滚滚玩的不行
+
+*****
+
+####  少年游不游  
+##### 8143#       发表于 2022-10-17 10:28
+
+哇，猴爹力中暴力
+
+*****
+
+####  nxmonitor  
+##### 8144#       发表于 2022-10-17 10:28
+
+查理斯选这个双头龙三是蠢了，除了对线大圣好打以外其他的一无是处，哪怕再肥中后期就是个酱油作用，至于对线能不能压ame他自己应该清楚啊……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sodah  
+##### 8145#       发表于 2022-10-17 10:28
+
+我觉得李斯这拿个双头龙也可以说，你打外国队怎么不拿
+
+*****
+
+####  nowaki  
+##### 8146#       发表于 2022-10-17 10:28
+
+玉玉了
+
+*****
+
+####  a1370303  
+##### 8147#       发表于 2022-10-17 10:29
+
+感觉宰了啊，小超人垂头丧气
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  坚定的团子党  
+##### 8148#       发表于 2022-10-17 10:29
+
+查猪又送温暖了
+
+*****
+
+####  莉拉厨  
+##### 8149#       发表于 2022-10-17 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950423&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-17 10:28</a>
+查理斯选这个双头龙三是蠢了，除了对线大圣好打以外其他的一无是处，哪怕再肥中后期就是个酱油作用，至于对 ...</blockquote>
+对线好打个锤，直接被打烂了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 8150#       发表于 2022-10-17 10:29
+
+处长平时让查猪多爬娇妻床是有用的啊
+
+*****
+
+####  越动天下  
+##### 8151#       发表于 2022-10-17 10:29
+
+打烂了呀 这头龙有屁用
+
+*****
+
+####  尖刺外婆  
+##### 8152#       发表于 2022-10-17 10:29
+
+畜沈和zai畜共享野爹
+
+*****
+
+####  ck4pa  
+##### 8153#       发表于 2022-10-17 10:30
+
+rng都被lgd碾了一年了，居然还有漏油对春晚有期望？
+
+*****
+
+####  恐怖利刃  
+##### 8154#       发表于 2022-10-17 10:30
+
+拿捏了
+
+*****
+
+####  nxmonitor  
+##### 8155#       发表于 2022-10-17 10:30
+
+滚滚绝对是以ban代选的，问题是maybe滚滚的熟练度和莫言真不是一个级别的，RNG为了破坏LGD的体系把自己搞得不顺手了，还不如就选绝活拼呢……
+
+*****
+
+####  adretyu67  
+##### 8156#       发表于 2022-10-17 10:30
+
+内战八王回来了
+
+小皮，游戏才刚刚开始。
+
+*****
+
+####  battleship64  
+##### 8157#       发表于 2022-10-17 10:30
+
+这尼玛，打lgd就没有智商是吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  格雷殿下  
+##### 8158#       发表于 2022-10-17 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">自己会不会玩双头龙，心里没点数的吗
+
+*****
+
+####  resorry  
+##### 8159#       发表于 2022-10-17 10:30
+
+要不权限开个40把，大家鳖起来
+
+*****
+
+####  坚定的团子党  
+##### 8160#       发表于 2022-10-17 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950441&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-17 10:29</a>
+
+对线好打个锤，直接被打烂了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+技师菜不能怪英雄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nightmare902015  
+##### 8161#       发表于 2022-10-17 10:30
+
+这个人马走到脸上踩两个真是笑了，马生巅峰
+
+*****
+
+####  DDT  
+##### 8162#       发表于 2022-10-17 10:30
+
+滚滚王面前玩滚滚，超哥小丑了啊
+
+*****
+
+####  -SLSL-  
+##### 8163#       发表于 2022-10-17 10:30
+
+如果我是茶蕏，在巨大的压力面前，后面的我忘了
+
+*****
+
+####  Horusddt  
+##### 8164#       发表于 2022-10-17 10:31
+
+双头龙这冰中过吗
+
+*****
+
+####  walfeds  
+##### 8165#       发表于 2022-10-17 10:31
+
+对线好打个der<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你打酱油抄侧面喷人不喷兵那还行，看看里斯占线这兵线天天在塔下的
+
+*****
+
+####  12481632  
+##### 8166#       发表于 2022-10-17 10:31
+
+垂头丧气关闭支付宝
+
+*****
+
+####  nxmonitor  
+##### 8167#       发表于 2022-10-17 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950441&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-17 10:29</a>
+
+对线好打个锤，直接被打烂了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+我说的是查理斯以为好对线，理论上远程消耗也是好对线大圣，但是ame对线水平显然他忘了，同时还有个陈保根本耗不动……
+
