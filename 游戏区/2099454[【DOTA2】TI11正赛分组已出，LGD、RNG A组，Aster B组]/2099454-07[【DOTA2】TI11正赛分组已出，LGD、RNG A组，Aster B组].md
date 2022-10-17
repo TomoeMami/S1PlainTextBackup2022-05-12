@@ -10997,3 +10997,535 @@ rng团灭了
 
 lgd呢 这能不阳 还是第一天阳完了
 
+
+
+*****
+
+####  ArowRocher  
+##### 10347#       发表于 2022-10-17 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958222&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-17 17:29</a>
+所谓卡卡碰到不是推特一个cjb说的吗</blockquote>
+查理斯粉丝群群主，他现实朋友
+
+*****
+
+####  llysander  
+##### 10348#       发表于 2022-10-17 17:33
+
+小组赛后中间休息一天赶紧找康复血清来得及吗
+
+*****
+
+####  thistimeforlife  
+##### 10349#       发表于 2022-10-17 17:33
+
+算了 来看鳖星 茶队加油<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 10350#       发表于 2022-10-17 17:33
+
+RNG全阳了，真是死了吗了这贱狗lgd
+
+
+
+*****
+
+####  roxas.sora  
+##### 10351#       发表于 2022-10-17 17:33
+
+水厂怎么没事？？？？？？草了
+
+*****
+
+####  w2210059  
+##### 10352#       发表于 2022-10-17 17:33
+
+那些老外队是瞒报是吧？
+
+*****
+
+####  ArowRocher  
+##### 10353#       发表于 2022-10-17 17:33
+
+这种情况下lgd没事可太邪门了，你潘飞哪的经理啊
+
+*****
+
+####  syndrome2032  
+##### 10354#       发表于 2022-10-17 17:33
+
+艹tm水厂怎么不阳。
+
+究竟谁tm在跑毒
+
+*****
+
+####  proselyte  
+##### 10355#       发表于 2022-10-17 17:33
+
+怎么一下子全阳了
+
+*****
+
+####  TIZI  
+##### 10356#       发表于 2022-10-17 17:33
+
+rng也太霉了，今天比赛大概率也没法打eg，要不直接鸽了好好休息调整下吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  哈萨维·诺亚  
+##### 10357#       发表于 2022-10-17 17:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  5678给  
+##### 10358#       发表于 2022-10-17 17:34
+
+问题来了，我靠这边全羊了，老干爹那边没事，不会真的是已经羊过去了吧？
+
+*****
+
+####  迷途lite  
+##### 10359#       发表于 2022-10-17 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">345原来真的病了，我给345道歉
+
+*****
+
+####  Litccc  
+##### 10360#       发表于 2022-10-17 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958302&amp;ptid=2099454" target="_blank">proselyte 发表于 2022-10-17 17:33</a>
+
+怎么一下子全阳了</blockquote>
+这就是新冠<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  proselyte  
+##### 10361#       发表于 2022-10-17 17:34
+
+为什么lgd没阳
+
+*****
+
+####  人別離苦  
+##### 10362#       发表于 2022-10-17 17:34
+
+水厂怎么没事？真就竭心光环？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cantha  
+##### 10363#       发表于 2022-10-17 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有可能老外根本不做核酸的
+
+*****
+
+####  枯风瘦雪02  
+##### 10364#       发表于 2022-10-17 17:34
+
+RNG这两边分部一起全灭确实流年不利
+
+*****
+
+####  Asukalangley33  
+##### 10365#       发表于 2022-10-17 17:34
+
+我怀疑淘汰赛打起来可能羊16个队<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+这管理炸了啊
+
+*****
+
+####  夜光铃  
+##### 10366#       发表于 2022-10-17 17:35
+
+真是艹了
+
+*****
+
+####  zhliiiii  
+##### 10367#       发表于 2022-10-17 17:35
+
+有没有可能水厂第一天2-4就是阳的结果
+
+*****
+
+####  IPoke  
+##### 10368#       发表于 2022-10-17 17:35
+
+水厂怎么会有事，潘飞阳了第一时间就知道了呀
+
+— from OnePlus CPH2415, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  proselyte  
+##### 10369#       发表于 2022-10-17 17:35
+
+先查潘飞行踪吧
+
+现在事情邪门了
+
+*****
+
+####  やト  
+##### 10370#       发表于 2022-10-17 17:35
+
+xnova没出事？
+
+*****
+
+####  憧憬鲨  
+##### 10371#       发表于 2022-10-17 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">道歉了，玩成这样也可以原谅
+
+*****
+
+####  两三流浪者  
+##### 10372#       发表于 2022-10-17 17:35
+
+剧毒新星是队友啊
+
+*****
+
+####  proselyte  
+##### 10373#       发表于 2022-10-17 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958339&amp;ptid=2099454" target="_blank">IPoke 发表于 2022-10-17 17:35</a>
+
+水厂怎么会有事，潘飞阳了第一时间就知道了呀
+
+— from OnePlus CPH2415, Android 12 of S1 Next Goose v2. ...</blockquote>
+lgd今天也戴口罩了
+
+*****
+
+####  dclara1  
+##### 10374#       发表于 2022-10-17 17:35
+
+出国打比赛就该有这个觉悟了，硬着头皮上就是了
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 10375#       发表于 2022-10-17 17:35
+
+赢og两把就稳胜者，平那就是加赛
+赢eg一把，后面全输，要看液体颜色，好像是这样
+
+*****
+
+####  越动天下  
+##### 10376#       发表于 2022-10-17 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958339&amp;ptid=2099454" target="_blank">IPoke 发表于 2022-10-17 17:35</a>
+水厂怎么会有事，潘飞阳了第一时间就知道了呀
+
+— from OnePlus CPH2415, Android 12 of S1 Next Goose v2. ...</blockquote>
+但是不可能吧 检测没那么快吧 我不信没症状的时候就隔离了
+
+*****
+
+####  北欧王座  
+##### 10377#       发表于 2022-10-17 17:35
+
+说不出话来。希望lgd全羊
+
+*****
+
+####  VanArkride  
+##### 10378#       发表于 2022-10-17 17:36
+
+看到有人发那个酒店不是封闭管理的粉丝可以找选手合影？有人在李家坡吗
+
+*****
+
+####  天堂蜘蛛  
+##### 10379#       发表于 2022-10-17 17:36
+
+新冠就这样啊，传染率再怎么高也是随机事件
+
+*****
+
+####  恐怖利刃  
+##### 10380#       发表于 2022-10-17 17:36
+
+这个晕锤肯定是进口的
+还是别让这帮b来解说了
+
+
+
+*****
+
+####  Horusddt  
+##### 10381#       发表于 2022-10-17 17:36
+
+先别急，这rng全阳其他队也很难逃过，赶紧组织检测吧
+
+*****
+
+####  5678给  
+##### 10382#       发表于 2022-10-17 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958335&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-17 17:35</a>
+有没有可能水厂第一天2-4就是阳的结果</blockquote>
+其实不太可能想了想，之前拍的那个vlog里面还是正常的情况，那个时候没有羊，昨天状态就好过来了，这么几天内如果真感染了，应该是好不了
+
+*****
+
+####  walfeds  
+##### 10383#       发表于 2022-10-17 17:36
+
+就冠晴躲过一劫？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">水厂司马
+
+*****
+
+####  IPoke  
+##### 10384#       发表于 2022-10-17 17:37
+
+潘飞阳了lgd马上知道了呀，就八王说的跟lgd隔离了呀，然后出去找别的队晃呗
+
+— from OnePlus CPH2415, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  syndrome2032  
+##### 10385#       发表于 2022-10-17 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958335&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-17 17:35</a>
+有没有可能水厂第一天2-4就是阳的结果</blockquote>
+2-4那天有摄像头的。一个个生龙活虎的不像得了
+
+*****
+
+####  proselyte  
+##### 10386#       发表于 2022-10-17 17:37
+
+现在lgd没阳就很奇怪了
+
+按道理他们和潘飞密接
+
+不大可能阳过了
+
+*****
+
+####  方舟失智博士  
+##### 10387#       发表于 2022-10-17 17:37
+
+全员中招不就是李家坡的问题么….
+
+*****
+
+####  樱冢名月  
+##### 10388#       发表于 2022-10-17 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">草了，这是TI啊，不知道的还以为在看什么野鸡赛呢，狗屎啊
+
+*****
+
+####  弈秋  
+##### 10389#       发表于 2022-10-17 17:38
+
+太狗屎了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 10390#       发表于 2022-10-17 17:38
+
+阿茶现在小组第一概率有多高
+
+*****
+
+####  Crazy_Knife  
+##### 10391#       发表于 2022-10-17 17:38
+
+还有可能没发病吧，潜伏期可长可短的
+
+*****
+
+####  勤练带来力量  
+##### 10392#       发表于 2022-10-17 17:38
+
+xnova阳估计也是迟早的事了
+
+*****
+
+####  反方向的波  
+##### 10393#       发表于 2022-10-17 17:38
+
+窝就说不止一个阳的，不然怎么可能打boom和角斗士的时候都很有脑子怎么今天134全变傻逼了
+
+*****
+
+####  proselyte  
+##### 10394#       发表于 2022-10-17 17:38
+
+我有两个推测
+
+一是lgd确实没阳，为什么和潘飞密接没阳就不懂了
+
+二是lgd有人阳了没报
+
+*****
+
+####  勤练带来力量  
+##### 10395#       发表于 2022-10-17 17:38
+
+真的存在刀塔之神吗楼友们
+
+*****
+
+####  usoda  
+##### 10396#       发表于 2022-10-17 17:38
+
+我看水厂自己也逃不过吧<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bin哥厉害  
+##### 10397#       发表于 2022-10-17 17:38
+
+超哥羊了其他人都跑不掉的，早检测晚检测的区别
+
+rng隔壁分部就是这样，全羊
+
+*****
+
+####  Asukalangley33  
+##### 10398#       发表于 2022-10-17 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958394&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-17 17:37</a>
+
+草了，这是TI啊，不知道的还以为在看什么野鸡赛呢，狗屎啊</blockquote>
+跟TI真关系不大
+
+开放的比赛在国外就这个B样
+
+一群CSDX完全不搞防疫的，装模作样做个检测
+
+*****
+
+####  Litccc  
+##### 10399#       发表于 2022-10-17 17:39
+
+<img src="https://img.saraba1st.com/forum/202210/17/173901juzhldcopucc4vo2.jpg" referrerpolicy="no-referrer">
+
+<strong>fyQ184-csgsZaT3cSmx-sg.jpg</strong> (104.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 17:39 上传
+
+确实有点草台了
+
+*****
+
+####  哈萨维·诺亚  
+##### 10400#       发表于 2022-10-17 17:39
+
+我以一个学生的角度向你提问 LGD的领队阳了 为什么传染的都是RNG队员？！
+
+*****
+
+####  ArowRocher  
+##### 10401#       发表于 2022-10-17 17:39
+
+LGD要是阳了不可能瞒得住的，目前可能就是没阳，可能是没开队友火力
+
+*****
+
+####  北欧王座  
+##### 10402#       发表于 2022-10-17 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958390&amp;ptid=2099454" target="_blank">方舟失智博士 发表于 2022-10-17 17:37</a>
+
+全员中招不就是李家坡的问题么….</blockquote>
+maybe早上都病发了，传染力最强，在一起过的得病太轻松了
+
+*****
+
+####  proselyte  
+##### 10403#       发表于 2022-10-17 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958432&amp;ptid=2099454" target="_blank">哈萨维·诺亚 发表于 2022-10-17 17:39</a>
+
+我以一个学生的角度向你提问 LGD的领队阳了 为什么传染的都是RNG队员？！</blockquote>
+所以这点就很奇怪啊
+
+潘飞行踪现在也是不明不白的
+
+*****
+
+####  越动天下  
+##### 10404#       发表于 2022-10-17 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958430&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-17 17:39</a>
+确实有点草台了</blockquote>
+这是不是有点草台了
+
+*****
+
+####  snarc1  
+##### 10405#       发表于 2022-10-17 17:40
+
+麻中麻
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  VanArkride  
+##### 10406#       发表于 2022-10-17 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958430&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-17 17:39</a>
+确实有点草台了</blockquote>
+这图我也看到了，确认是最近的图吗，别是哪个弱智搬老图
+
+*****
+
+####  天堂蜘蛛  
+##### 10407#       发表于 2022-10-17 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958432&amp;ptid=2099454" target="_blank">哈萨维·诺亚 发表于 2022-10-17 17:39</a>
+
+我以一个学生的角度向你提问 LGD的领队阳了 为什么传染的都是RNG队员？！</blockquote>
+因为你想认真分析虽然水厂司马但源头可能还真未必是潘飞
+
+国外这吊样毒源那可太多了，就算你关在房间里点个外卖外卖都可能带毒
+
+*****
+
+####  ArowRocher  
+##### 10408#       发表于 2022-10-17 17:41
+
+当地人和小留合影我觉得正常，潘飞要是去合影就纯傻逼，你中国人在新加坡跟中国人合个屁影
+
+*****
+
+####  proselyte  
+##### 10409#       发表于 2022-10-17 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958466&amp;ptid=2099454" target="_blank">天堂蜘蛛 发表于 2022-10-17 17:41</a>
+
+因为你想认真分析虽然水厂司马但源头可能还真未必是潘飞
+
+国外这吊样毒源那可太多了，就算你关在房间里点 ...</blockquote>
+你要说潘飞是源头也是可以的
+
+潘飞和超哥接触——超哥回酒店传染其他人
+

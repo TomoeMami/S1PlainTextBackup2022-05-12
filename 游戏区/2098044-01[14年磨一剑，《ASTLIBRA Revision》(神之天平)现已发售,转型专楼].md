@@ -3827,3 +3827,15 @@ https://w.atwiki.jp/astlibra/</blockquote>
 二周目能重新选难度吗？有点想选简单快速通关看剧情</blockquote>
 难度本来就是可以下调的呀 不能上调
 
+
+
+*****
+
+####  五块  
+##### 354#       发表于 2022-10-17 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958037&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-17 17:18</a>
+
+难度本来就是可以下调的呀 不能上调</blockquote>
+没有吧？我第一章打的倒数第三个，然后觉得暂停放技能太没意思改成倒数第二个了。
+
