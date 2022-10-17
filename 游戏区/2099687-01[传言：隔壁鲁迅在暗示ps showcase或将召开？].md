@@ -666,3 +666,12 @@ cma调查会持续到明年3月，总不能摸到那时候吧<img src="https://s
 
 生化的showcase也公布了。。。。之前一段时间的想法就是10月如果有PSS的话那一定是在RE之前，现在RE的日期也公布了，我感觉基本确定是没PSS了。所以鲁迅的意思可能是SIE选择了让寂静岭上而不是FF16？
 
+
+
+*****
+
+####  陈玉礼  
+##### 63#       发表于 2022-10-18 07:26
+
+有血源默认为假好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
