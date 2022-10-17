@@ -4039,3 +4039,15 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 出技能要方向键但是同时还要摇杆保持移动
 
+
+
+*****
+
+####  后会莫急  
+##### 375#       发表于 2022-10-17 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57946654&amp;ptid=2098044" target="_blank">fyzqwzh 发表于 2022-10-16 23:52</a>
+
+主角家后院的宝箱怎么拿？</blockquote>
+得二周目才能拿，要打掉那两块100w血的石头，没解锁武器无限强化前可以刮几小时
+

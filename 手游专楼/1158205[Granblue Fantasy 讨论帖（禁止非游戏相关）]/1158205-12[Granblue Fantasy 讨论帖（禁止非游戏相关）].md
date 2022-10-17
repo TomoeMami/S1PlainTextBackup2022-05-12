@@ -185,3 +185,18 @@
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  poor  
+##### 17117#       发表于 2022-10-17 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950421&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2022-10-17 10:28</a>
+贝不是打雷吗，都是慈善车，没有混。
+
+极巴别说暗low王，就算正常蛤还是混，既然都是混，建议直接土或水。 ...</blockquote>
+还有贝打雷试了下，土方1500w都解不了，芬挨两下就要死了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
