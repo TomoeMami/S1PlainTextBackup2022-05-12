@@ -11996,3 +11996,12 @@ NJU这已经不是尊自己的企划 算官方拿过来了吧
 虹的大运动会……
 要怎么搞？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 17598#       发表于 2022-10-17 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么看推特上太君对收费（官方接手）意见挺大的啊
+

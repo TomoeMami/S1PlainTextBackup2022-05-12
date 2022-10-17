@@ -10202,3 +10202,12 @@ yamero，super ptsd了
 
 旗袍僵尸噗
 
+
+
+*****
+
+####  lj205  
+##### 8457#       发表于 2022-10-17 18:55
+
+想上TGC和当模特估计没多大希望，毕竟年龄摆在那，而且业绩也没到那个程度<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

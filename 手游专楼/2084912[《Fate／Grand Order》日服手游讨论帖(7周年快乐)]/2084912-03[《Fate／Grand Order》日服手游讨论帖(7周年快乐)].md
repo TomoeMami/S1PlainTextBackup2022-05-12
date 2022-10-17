@@ -1604,3 +1604,12 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么90++还要等1天 好急啊 想看戏啊
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3138#       发表于 2022-10-17 19:01
+
+明天开了还得赶紧清掉剩下的茶壶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
