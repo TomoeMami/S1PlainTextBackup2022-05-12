@@ -3604,3 +3604,15 @@ https://w.atwiki.jp/astlibra/</blockquote>
 赤のル ...</blockquote>
 谢，慢慢搞
 
+
+
+*****
+
+####  绕指流光  
+##### 332#       发表于 2022-10-17 15:16
+
+昨天更新之后突然遇到隔几秒钟就卡一下画面的情况，有人遇到吗？在标题画面都会卡，音乐正常，非常奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+开了steam帧率显示后发现隔几秒钟会突然从60fps掉到48，卡顿一下又恢复正常，十分难受<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+其他所有游戏无论2D 3D都正常
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
