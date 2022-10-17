@@ -12005,3 +12005,14 @@ NJU这已经不是尊自己的企划 算官方拿过来了吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怎么看推特上太君对收费（官方接手）意见挺大的啊
 
+
+
+*****
+
+####  zhrs456  
+##### 17599#       发表于 2022-10-17 19:11
+
+ 本帖最后由 zhrs456 于 2022-10-17 19:14 编辑 
+
+反正尊被骂是少不了的了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 自己配信讲NJU想做成liver主导运营协助的模式自由度更高，现在被直接拿走办LIVE，线下+线上，各种限制可想而知
+

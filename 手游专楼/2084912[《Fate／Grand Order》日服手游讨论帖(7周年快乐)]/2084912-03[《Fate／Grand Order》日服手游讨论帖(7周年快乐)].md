@@ -1613,3 +1613,41 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 明天开了还得赶紧清掉剩下的茶壶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zooandtoo  
+##### 3139#       发表于 2022-10-17 19:12
+
+ 本帖最后由 zooandtoo 于 2022-10-17 19:16 编辑 
+
+今天的剧情也不错。。正儿八经的呼延灼成分
+
+如果不是这谜一样的缝合这次万圣蛮有意思的
+
+*****
+
+####  Jamaisvu  
+##### 3140#       发表于 2022-10-17 19:13
+
+有一位Assassin，
+
+混沌•恶阵营，
+
+男名女身，
+
+只看武器属于三骑士职介，
+
+宝具是前置绿卡up、后置控场debuff的绿宝具，
+
+二技能加攻击力、三技能加NP，
+
+活动剧情中在敌方阵营而且身边有内鬼，
+
+与师出同门的从者战斗中突然号啕大哭还配了CG，
+
+画师在业界因善于卖肉而广受好评，
+
+这位从者是——<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -2111,3 +2111,321 @@ og这个b队就是只会3打个毒瘤刷，输了一天bzm受不了了开始打�
 
 dota之神大概觉得lgd做背景板比较有喜剧效果
 
+
+
+*****
+
+####  DDWarrior  
+##### 10767#       发表于 2022-10-17 19:11
+
+入了就是入了，哥们也发一个，口令是下面一整句话
+
+____万丈光芒gtmdnec
+
+*****
+
+####  赤星ビスコ  
+##### 10768#       发表于 2022-10-17 19:11
+
+rng换频道了吗？跑频道2去了
+
+*****
+
+####  nowaki  
+##### 10769#       发表于 2022-10-17 19:11
+
+感觉今年背景板不是eg就是lgd
+
+*****
+
+####  越动天下  
+##### 10770#       发表于 2022-10-17 19:11
+
+RNG和eg好像马上就要打了
+
+
+
+*****
+
+####  星野航  
+##### 10771#       发表于 2022-10-17 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ts别调整了
+就yatoro跟脑东京这轮流一躺，mira跟miposhka迷路的把戏，该一轮游了
+
+*****
+
+####  朝游北海  
+##### 10772#       发表于 2022-10-17 19:11
+
+南美DOTA，行 克里斯电锤，不行
+
+*****
+
+####  -SLSL-  
+##### 10773#       发表于 2022-10-17 19:12
+
+dota之神明年是不是该+2了
+
+*****
+
+####  莉拉厨  
+##### 10774#       发表于 2022-10-17 19:12
+
+这边qc不知道能不能咬hokori一口，能的话红龙也退出胜者组行列了，这样的话rng只要一个小分就很大概率胜者组了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Midnight.Coup  
+##### 10775#       发表于 2022-10-17 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959760&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-17 19:10</a>
+
+dota之神大概觉得lgd做背景板比较有喜剧效果</blockquote>
+钦定反派是吧，晚上查出来要是🐏了还配吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 10776#       发表于 2022-10-17 19:12
+
+好像马上打了7点15打 RNGeg呀
+
+*****
+
+####  nowaki  
+##### 10777#       发表于 2022-10-17 19:12
+
+ts最多两轮，这队已经崩了
+
+*****
+
+####  赤星ビスコ  
+##### 10778#       发表于 2022-10-17 19:12
+
+好事吧早点打完还能多睡会，明天打og才是胜者组的生死战
+
+*****
+
+####  恐怖利刃  
+##### 10779#       发表于 2022-10-17 19:13
+
+雪碧败者组bo1回家发红包
+
+*****
+
+####  a1370303  
+##### 10780#       发表于 2022-10-17 19:13
+
+来了来了，小茶叶的做法红包<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+口令: 明天干翻秘密雪碧
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nopaina  
+##### 10781#       发表于 2022-10-17 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958430&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-17 17:39</a>
+
+确实有点草台了</blockquote>
+骂lgd就完事了 这种不爱看的
+
+*****
+
+####  morwhipppo  
+##### 10782#       发表于 2022-10-17 19:14
+
+明天打秘密茶茶砍下一分进胜者组应该是没问题的
+
+*****
+
+####  迷途lite  
+##### 10783#       发表于 2022-10-17 19:14
+
+该说不说如果a畜真的捧盾那可能对不了解历史的路人来说真的还挺励志的
+不过他没那个能耐
+
+*****
+
+####  nowaki  
+##### 10784#       发表于 2022-10-17 19:14
+
+投毒队夺冠励志是吧
+
+*****
+
+####  Rorgen  
+##### 10785#       发表于 2022-10-17 19:15
+
+其他人我不清楚，根据我对胡良智性格的了解，感觉铁没心气了，只想回家
+
+*****
+
+####  一夜秋风袭锦城  
+##### 10786#       发表于 2022-10-17 19:15
+
+漏油怎么对ts恶意这么大
+
+*****
+
+####  莉拉厨  
+##### 10787#       发表于 2022-10-17 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959827&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-17 19:14</a>
+投毒队夺冠励志是吧</blockquote>
+别尬黑，已经跟潘飞切割了，再带lgd节奏属于攻击选手<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kazepollar  
+##### 10788#       发表于 2022-10-17 19:15
+
+a➗夺冠再也不看比赛了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">dota之神抛弃了傻狗
+
+*****
+
+####  为了mf注册  
+##### 10789#       发表于 2022-10-17 19:16
+
+漏油别急啊，怎么直接快进到处长夺冠了，我真感觉今年干瘪没去年希望大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TIZI  
+##### 10790#       发表于 2022-10-17 19:16
+
+rng真的能打嘛… 4个阳啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  NaYo丶  
+##### 10791#       发表于 2022-10-17 19:16
+
+崩溃哥又又又又玩马尔斯了 好像只有玩马尔斯才能赢
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷途lite  
+##### 10792#       发表于 2022-10-17 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959827&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-17 19:14</a>
+投毒队夺冠励志是吧</blockquote>
+路人可能根本不知道投毒这事，路人只会看到ru婊宣传二队一队亚军季军后被队友抛弃下放二队然后换队友重回一队亚军冠军，你就说这个路线励志不励志
+
+*****
+
+####  非建政专用号  
+##### 10793#       发表于 2022-10-17 19:17
+
+哦，还在lgd，我克都杀人了
+
+*****
+
+####  迷途lite  
+##### 10794#       发表于 2022-10-17 19:17
+
+我靠怎么就成我急了，妈的我就顺着漏油的话说了一句也不行
+
+*****
+
+####  反方向的波  
+##### 10795#       发表于 2022-10-17 19:17
+
+ 本帖最后由 反方向的波 于 2022-10-17 19:19 编辑 
+
+n姓假赛狗都回来了？
+
+*****
+
+####  nowaki  
+##### 10796#       发表于 2022-10-17 19:17
+
+<blockquote>迷途lite 发表于 2022-10-17 19:16
+路人可能根本不知道投毒这事，路人只会看到ru婊宣传二队一队亚军季军后被队友抛弃下放二队然后换队友重回 ...</blockquote>
+2022年 ru婊还能堵住互联网的嘴？她姓*？
+
+*****
+
+####  Aeons  
+##### 10797#       发表于 2022-10-17 19:17
+
+雪碧尸王和大哥影魔玩的怎么那么菜
+
+*****
+
+####  Keynes  
+##### 10798#       发表于 2022-10-17 19:18
+
+鳖鳖耶夫的鳖族辈分比么么鳖高，看好eg淘汰赛暴打么么鳖
+
+*****
+
+####  非建政专用号  
+##### 10799#       发表于 2022-10-17 19:18
+
+你刀水军就ruru一家独大，打你妈<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Philister  
+##### 10800#       发表于 2022-10-17 19:18
+
+潘飞真是个栽种，微博上一副事不关己的样子，真想给他妈上上强度
+
+
+
+*****
+
+####  迷途lite  
+##### 10801#       发表于 2022-10-17 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959868&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-17 19:17</a>
+2022年 ru婊还能堵住互联网的嘴？她姓*？</blockquote>
+傻狗但凡对互联网的控制能力有嘴巴那么厉害我同事也不会天天跟我念叨ti10假赛，真谁也别看不起谁嗷
+
+*****
+
+####  一品堂官  
+##### 10802#       发表于 2022-10-17 19:19
+
+比赛不是随便看看嘛 这游戏还是自己玩好玩 
+不如现场 观赏性也就那样 连rts都没落了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  百世诸侯  
+##### 10803#       发表于 2022-10-17 19:20
+
+我摊牌了 我是云玩家 你要我选lgd打不过选马尔斯的雪碧还是选面八吃了 我只能选面八吃了啊 难道collapse真 ...
+
+不禁让人想问这楼里刷新的集美怎么一查就是假赛弱智
+
+*****
+
+####  星野航  
+##### 10804#       发表于 2022-10-17 19:20
+
+yatoro赛前天梯那是一盘沙发都没赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+比赛还能拿
+ts要是进败者组了，该问问自己怎么打talon，tsm还能丢分的
+搞不好明天打bs都丢分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 10805#       发表于 2022-10-17 19:21
+
+怎么又有傻批提前投降，老干鳖的比赛内容应该是tm20队里面中下档的，干了两个杏奴队翻了一个sszai罢了
+
