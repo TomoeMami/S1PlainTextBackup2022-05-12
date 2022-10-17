@@ -12035,3 +12035,12 @@ NJU这已经不是尊自己的企划 算官方拿过来了吧
 惨 尊妈 惨
 sky终于有空参加歌谣祭了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 17602#       发表于 2022-10-17 22:10
+
+尊这都要挨骂那为啥不骂舞元<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

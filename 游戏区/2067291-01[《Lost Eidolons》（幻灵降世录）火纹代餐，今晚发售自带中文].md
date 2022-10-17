@@ -1685,3 +1685,15 @@ steam现在多半好评，看了下差评感觉还是等制作组修一修吧...
 19章也有队友离 ...</blockquote>
 来个反白，我才9章，还来得及救救
 
+
+
+*****
+
+####  svmkty  
+##### 151#       发表于 2022-10-17 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962097&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-17 21:43</a>
+
+是另一个金发寡妇</blockquote>
+这游戏能收几个妹子？
+
