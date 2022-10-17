@@ -1569,3 +1569,19 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 当然，没茶壶的就省事了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3134#       发表于 2022-10-17 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">傻逼茶壶本根本懒得打 过期就过期 七年了还是这么扣扣索索的 给个永久的能要他们亲妈命
+
+*****
+
+####  里村紅葉  
+##### 3135#       发表于 2022-10-17 09:38
+
+茶壶给永久我也不会去用的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

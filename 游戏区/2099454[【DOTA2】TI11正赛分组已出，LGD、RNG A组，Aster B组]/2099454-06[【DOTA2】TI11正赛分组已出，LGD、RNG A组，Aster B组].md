@@ -4533,3 +4533,33 @@ rng机会还是比较大的，起码1:1
 
 风行有个T0至宝已经赢太多了，同理小黑，但是小黑这版本还行
 
+
+
+*****
+
+####  Yugao  
+##### 8051#       发表于 2022-10-17 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说补牙了，我预约做耳机私模都预约了一万年
+
+*****
+
+####  azccc52  
+##### 8052#       发表于 2022-10-17 09:33
+
+今年能不能有个影儿魔儿<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 8053#       发表于 2022-10-17 09:37
+
+依照我打路人的感觉来说，这版本小骷髅和幽鬼绝对强。但目前来讲还真就没在比赛里面见到过，甚至没出现在ban位里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百越之余  
+##### 8054#       发表于 2022-10-17 09:38
+
+今年有至宝投票吗？我怎么没在册子里面看见
+

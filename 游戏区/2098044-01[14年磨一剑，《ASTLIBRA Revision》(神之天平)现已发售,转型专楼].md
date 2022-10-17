@@ -3332,3 +3332,15 @@ https://w.atwiki.jp/astlibra/</blockquote>
 这游戏的通关时长大概在多少算上任务，收集等旁支要素等？黎轨2刚到货时间有限，两个都想玩想规划一下。 ...</blockquote>
 40往上吧 解谜不看攻略的话够你卡5小时（
 
+
+
+*****
+
+####  pf67  
+##### 312#       发表于 2022-10-17 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57947961&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-10-17 04:50</a>
+
+第五章最后的boss连战打麻了，重打了好几次废了一堆资源，结果打完发现拿的是存档前装的拳刃，我说怎么这么 ...</blockquote>
+自动格挡是哪个装备提供的？我好像没拿到这个
+
