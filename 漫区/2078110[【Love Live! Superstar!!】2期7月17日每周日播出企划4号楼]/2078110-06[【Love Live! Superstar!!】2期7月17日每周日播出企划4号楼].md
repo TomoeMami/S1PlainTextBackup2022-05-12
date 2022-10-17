@@ -9978,3 +9978,21 @@ yamero，super ptsd了
 
 这又是个什么活动？还冠名
 
+
+
+*****
+
+####  仟音一心  
+##### 8437#       发表于 2022-10-17 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953210&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-17 12:31</a>
+这又是个什么活动？还冠名</blockquote>
+有声优在早稻田做过演讲的，B站切片标签是“相声”
+
+*****
+
+####  kata魂  
+##### 8438#       发表于 2022-10-17 12:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">这次写真还是喜欢车上那几张，有大姐姐的感觉
+

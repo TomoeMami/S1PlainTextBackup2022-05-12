@@ -3500,3 +3500,17 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 不过村庄和山洞好像不在同一时空 这样倒也合理<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 328#       发表于 2022-10-17 12:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57953350&amp;ptid=2098044" target="_blank">fuochai 发表于 2022-10-17 12:39</a>
+
+说起来红球我带到湖里没效果，结果只能在村庄里泡 真是无大语了
+
+不过村庄和山洞好像不在同一时空 这样倒也 ...</blockquote>
+人家是剧情导致红球掉出超时空背包进水的 你自己跳水里的时候球还在包里呢 合情合理（
+
