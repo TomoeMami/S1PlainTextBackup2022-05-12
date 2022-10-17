@@ -30,3 +30,12 @@
 
 社长连小信信都好久没写了，连一点新卫星都放不出来的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  孫光龍  
+##### 7395#       发表于 2022-10-17 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">这么下去下封信搞不好直接サ终知らせ了
+
