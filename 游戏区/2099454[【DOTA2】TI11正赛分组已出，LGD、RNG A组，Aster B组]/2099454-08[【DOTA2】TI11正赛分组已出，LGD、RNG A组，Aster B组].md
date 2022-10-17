@@ -6887,3 +6887,705 @@ lgd说火枪爽局不如说沉默爽局
 
 要不，我们指望一下南美治水？
 
+
+
+*****
+
+####  TIZI  
+##### 11394#       发表于 2022-10-17 21:21
+
+唉 红龙胜者组八成拦不住了
+红龙这也算是个黑马吧
+南美dota牛啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nowaki  
+##### 11395#       发表于 2022-10-17 21:21
+
+ti7a组第一夺冠 ti8a组第四夺冠 ti9b组第一夺冠 ti10b组第四夺冠
+
+那么今年是？
+
+*****
+
+####  Fam  
+##### 11396#       发表于 2022-10-17 21:21
+
+完了，看了火枪爽局，还有那些队可以站出来贯彻dota之神的意志啊！我先跪了
+
+*****
+
+####  枯风瘦雪02  
+##### 11397#       发表于 2022-10-17 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961744&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-17 21:21</a>
+
+窝小熊没有敏捷</blockquote>
+小熊能在水人手下站几秒呢
+
+*****
+
+####  Fam  
+##### 11398#       发表于 2022-10-17 21:21
+
+完了，看了火枪爽局，还有那些队可以站出来贯彻dota之神的意志啊！我先跪了
+
+*****
+
+####  赤星ビスコ  
+##### 11399#       发表于 2022-10-17 21:21
+
+得新冠第一天没弃权就不错了
+
+*****
+
+####  winkle  
+##### 11400#       发表于 2022-10-17 21:21
+
+小黑很多时候都是来counter 水人
+
+
+
+*****
+
+####  Rorgen  
+##### 11401#       发表于 2022-10-17 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961737&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 21:20</a>
+天天？
+我都没发几条还天天？
+你在我旁边？？你在哪呢？？</blockquote>
+dpc和major没出现过的id还在这一边嚼云玩家指定名词一边装最有理解的，太牛啦
+
+*****
+
+####  Litccc  
+##### 11402#       发表于 2022-10-17 21:22
+
+站起来，不许跪！
+
+*****
+
+####  越动天下  
+##### 11403#       发表于 2022-10-17 21:22
+
+我大胆预测是美洲大陆的人来治水
+
+*****
+
+####  百世诸侯  
+##### 11404#       发表于 2022-10-17 21:22
+
+跪了以后LGD赢的局记得发红包
+
+*****
+
+####  天堂蜘蛛  
+##### 11405#       发表于 2022-10-17 21:22
+
+红龙这个一号位确实挺有冠军相的
+
+*****
+
+####  Troywest  
+##### 11406#       发表于 2022-10-17 21:22
+
+这水人，乱杀了
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 11407#       发表于 2022-10-17 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961760&amp;ptid=2099454" target="_blank">winkle 发表于 2022-10-17 21:21</a>
+小黑很多时候都是来counter 水人</blockquote>
+这版本水人摸个a小黑就得摸个林肯，小黑真的会感觉非常不适。
+
+*****
+
+####  archfriend12  
+##### 11408#       发表于 2022-10-17 21:23
+
+四阳还打个屁啊，硬想扣一分结果全败，赶紧休息吧
+
+*****
+
+####  acejoe  
+##### 11409#       发表于 2022-10-17 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961763&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-17 21:22</a>
+dpc和major没出现过的id还在这一边嚼云玩家指定名词一边装最有理解的，太牛啦 ...</blockquote>
+呵呵，原来你们讨论虚拟偶像就是最有理解哦
+
+*****
+
+####  反方向的波  
+##### 11410#       发表于 2022-10-17 21:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">卜是，你们对能1-1boom和bb的队也能有性幻想的？
+
+*****
+
+####  情商  
+##### 11411#         楼主| 发表于 2022-10-17 21:23
+
+ 本帖最后由 情商 于 2022-10-17 21:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961737&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 21:20</a>
+
+天天？
+
+我都没发几条还天天？
+
+你在我旁边？？你在哪呢？？</blockquote>
+笑了，每次看你出来说话就是肌肉dota 不然我会说你天天说这话？
+
+自己按你的ctrl f去数一下？
+[https://bbs.saraba1st.com/2b/for ... amp;authorid=397763](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2088652&amp;page=725&amp;authorid=397763)
+
+*****
+
+####  nerugigannte  
+##### 11412#       发表于 2022-10-17 21:23
+
+谁j8要集美红包，lgd死死死死死死死死死死
+
+*****
+
+####  roger_goodell  
+##### 11413#       发表于 2022-10-17 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961709&amp;ptid=2099454" target="_blank">winkle 发表于 2022-10-17 21:17</a>
+
+预选赛还有刷新tf + 4号位玛西 翻团队经济领先几万的TB。</blockquote>
+BV1MY4y1N7TT，刚好这场看了直播，TB领先2万经济上高，屠夫出个刷新直接咬死TB，后面几乎每波团都是这样咬死TB，最后马西出了bkb晕锤圣剑大炮+寂灭，还捡了个双倍
+
+*****
+
+####  笑颜最美谢蕾蕾  
+##### 11414#       发表于 2022-10-17 21:24
+
+伐木机大部分版本就是个全面劣化版的刚被
+
+对面优势路厉害到能压刚被的，基本也就能压伐木机
+
+对面优势路会被伐木机压着打的，大概率刚被也能压着打
+
+对线被打爆之后，刚被拉远古钻野出肉装，还有一波强势节奏；花木鸡打野效率低，而且等级会落下，这局基本肉不起来，没什么骑脸能力了
+
+对线把对面打爆之后，刚被假腿战意200攻击在那里推塔，20秒就敲掉了；伐木机秘法鞋50攻击在那里啄一年
+
+后期刚被能冲能打能抗，伐木机连个辅助都切不掉
+
+*****
+
+####  非建政专用号  
+##### 11415#       发表于 2022-10-17 21:24
+
+我建议漏油别太想南美dota夺冠，窝从17年开始看的比赛里，不管是什么比赛，我支持的队都他妈死在半路了，无一例外<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 11416#       发表于 2022-10-17 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961754&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-17 21:21</a>
+ti7a组第一夺冠 ti8a组第四夺冠 ti9b组第一夺冠 ti10b组第四夺冠
+
+那么今年是？</blockquote>
+所有奇数ti都是小组第一夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 11417#       发表于 2022-10-17 21:24
+
+来个队给我狠狠地虐杀LGD
+
+*****
+
+####  天堂蜘蛛  
+##### 11418#       发表于 2022-10-17 21:24
+
+呵呵，原来你们讨论虚拟偶像就是最有理解哦
+
+*****
+
+####  qty  
+##### 11419#       发表于 2022-10-17 21:24
+
+红龙这南美4保1有点东西的啊
+
+*****
+
+####  马儿在流泪  
+##### 11420#       发表于 2022-10-17 21:25
+
+之前是不是有人说过南美预选冠军有东西
+
+*****
+
+####  夏溪澪mio  
+##### 11421#       发表于 2022-10-17 21:25
+
+啊？去年楼友都是真情实感地扣吗？
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sabbah  
+##### 11422#       发表于 2022-10-17 21:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卡猴的团战发挥实在太畜了，第二把让他玩沉默术士走个对线打完蓝送的流程感觉中上都不会太难受
+
+*****
+
+####  百世诸侯  
+##### 11423#       发表于 2022-10-17 21:25
+
+懂了，我先看一下TA赔率
+
+*****
+
+####  acejoe  
+##### 11424#       发表于 2022-10-17 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961780&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:23</a>
+笑了，每次看你出来说话就是肌肉dota 不然我会说你天天说这话？</blockquote>
+**会用只看一人发言吗？？？？
+
+*****
+
+####  walfeds  
+##### 11425#       发表于 2022-10-17 21:25
+
+今天水位开始高起来了
+
+*****
+
+####  越动天下  
+##### 11426#       发表于 2022-10-17 21:25
+
+这水人可以
+
+*****
+
+####  usoda  
+##### 11427#       发表于 2022-10-17 21:25
+
+我曹 露米神！<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 11428#       发表于 2022-10-17 21:26
+
+呵呵，原来你们讨论虚拟偶像就是最有理解哦
+
+*****
+
+####  nowaki  
+##### 11429#       发表于 2022-10-17 21:26
+
+hokori要是夺冠，那就是第一个dpc a级队夺冠了
+
+不过降级的那只hokori1234都被踢了
+
+*****
+
+####  qty  
+##### 11430#       发表于 2022-10-17 21:26
+
+我草，水人这个波躲兽车赏心悦目啊
+
+
+
+*****
+
+####  VanArkride  
+##### 11431#       发表于 2022-10-17 21:26
+
+bb加油吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 11432#       发表于 2022-10-17 21:26
+
+ 本帖最后由 反方向的波 于 2022-10-17 21:27 编辑 
+
+哈人，今天南美日了
+小火龙5-1  TA2-2 连最垃圾的汉堡猫都有4-0
+
+*****
+
+####  情商  
+##### 11433#         楼主| 发表于 2022-10-17 21:26
+
+你这种不看比赛，赛后来高涛阔论肌肉dota的能闭嘴吗？
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 11434#       发表于 2022-10-17 21:26
+
+胜者组怕是红龙液体了呀<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+hijo de puta
+
+*****
+
+####  憧憬鲨  
+##### 11435#       发表于 2022-10-17 21:26
+
+明天看马体能不能把红龙干住吧
+马体现在多少分啊
+
+*****
+
+####  枯风瘦雪02  
+##### 11436#       发表于 2022-10-17 21:26
+
+红龙这个1打得还挺大核荣耀的
+
+*****
+
+####  天堂蜘蛛  
+##### 11437#       发表于 2022-10-17 21:27
+
+最垃圾的汉堡猫都有4-0
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 11438#       发表于 2022-10-17 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961834&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-17 21:26</a>
+明天看马体能不能把红龙干住吧
+马体现在多少分啊</blockquote>
+9-5，两轮还有
+
+*****
+
+####  非建政专用号  
+##### 11439#       发表于 2022-10-17 21:27
+
+去年你楼真有不少昨天跪下明天被楼主抓着清算的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  やト  
+##### 11440#       发表于 2022-10-17 21:27
+
+ 红龙打这么厉害干嘛啊
+
+*****
+
+####  StrangerJ  
+##### 11441#       发表于 2022-10-17 21:27
+
+汉堡猫都4-0？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AualloniaMK2  
+##### 11442#       发表于 2022-10-17 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961834&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-17 21:26</a>
+
+明天看马体能不能把红龙干住吧
+
+马体现在多少分啊</blockquote>
+马体今天还有个小组倒1没打，基本稳胜者组了
+
+*****
+
+####  tengshuo980  
+##### 11443#       发表于 2022-10-17 21:28
+
+那意思是明天rng必须要2:0og才能进胜者组了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  米德  
+##### 11444#       发表于 2022-10-17 21:28
+
+不许跪！
+
+*****
+
+####  非建政专用号  
+##### 11445#       发表于 2022-10-17 21:28
+
+汉堡喵打个talon和tsm不能4-0，那克里斯真是司马玩意了
+
+*****
+
+####  roger_goodell  
+##### 11446#       发表于 2022-10-17 21:28
+
+红龙2比0soniqs了，bb1比0 og了
+
+*****
+
+####  憧憬鲨  
+##### 11447#       发表于 2022-10-17 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961841&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-17 21:27</a>
+9-5，两轮还有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那现在是有三个九胜队？
+
+*****
+
+####  端木恋心  
+##### 11448#       发表于 2022-10-17 21:28
+
+明天红龙打液体，红龙不一定赢的。但是rng感觉至少要拿下一局啊。
+
+*****
+
+####  百世诸侯  
+##### 11449#       发表于 2022-10-17 21:28
+
+靠别人搭台进胜者组打b组第一无非就是二轮游，我认为Rng要绝地求生就得明天狠狠拿下OG两分，而OG这状态也不是没有可能性
+
+*****
+
+####  DearRye  
+##### 11450#       发表于 2022-10-17 21:28
+
+支持桶哥，支持桶哥就是支持rng，支持rng就是支持西恩DOTA！
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  越动天下  
+##### 11451#       发表于 2022-10-17 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961864&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-17 21:28</a>
+那现在是有三个九胜队？</blockquote>
+现在有呀
+
+*****
+
+####  情商  
+##### 11452#         楼主| 发表于 2022-10-17 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961864&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-17 21:28</a>
+
+那现在是有三个九胜队？</blockquote>
+2个，但是红龙有一个bo2
+
+*****
+
+####  winkle  
+##### 11453#       发表于 2022-10-17 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961771&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-17 21:23</a>
+
+这版本水人摸个a小黑就得摸个林肯，小黑真的会感觉非常不适。</blockquote>
+小黑最不缺的输出装，缺的是生存装
+
+*****
+
+####  acejoe  
+##### 11454#       发表于 2022-10-17 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961831&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:26</a>
+你这种不看比赛，赛后来高涛阔论肌肉dota的能闭嘴吗？</blockquote>
+肌肉dota PTSD是吧。
+
+*****
+
+####  nerugigannte  
+##### 11455#       发表于 2022-10-17 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961858&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-17 21:28</a>
+
+那意思是明天rng必须要2:0og才能进胜者组了吗
+
+—— 来自 S1Fun</blockquote>
+og今天赢了也就8分，rng9分，1比1就行了
+
+*****
+
+####  roxas.sora  
+##### 11456#       发表于 2022-10-17 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">虐杀水厂将他们蹂躏至死的队伍在哪里啊，草
+
+*****
+
+####  AualloniaMK2  
+##### 11457#       发表于 2022-10-17 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961858&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-17 21:28</a>
+
+那意思是明天rng必须要2:0og才能进胜者组了吗
+
+—— 来自 S1Fun</blockquote>
+2比0都可能有加赛
+
+*****
+
+####  天堂蜘蛛  
+##### 11458#       发表于 2022-10-17 21:29
+
+看了眼赛程，有种明天要是茶茶受难日的不妙预感
+
+我的焦阳<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 11459#       发表于 2022-10-17 21:29
+
+呵呵，原来你们讨论虚拟偶像就是最有理解哦
+
+*****
+
+####  lyjssj  
+##### 11460#       发表于 2022-10-17 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">我已经不想看这届ti了，可以预见到rng这个状态就是败者组一轮的命
+
+一想到几个月以后集美洗地完毕，指着超哥被剧毒术士毒到扭曲变形的尸体说“看，这就是离开我们gege的下场，每次ti都是一轮游”
+
+我就对这个**游戏和饭圈环境感到极度的反胃
+
+我应该去做一个管人吃，做一个底边小v的听众，每个礼拜听听露米唱歌，哪怕下个月她就变成了抽象主播，天天问弹幕讨要舰长
+
+我应该去做个真正的管人吃，现在就出发
+
+写在rng受难的前一天
+
+
+
+*****
+
+####  百世诸侯  
+##### 11461#       发表于 2022-10-17 21:29
+
+<blockquote>非建政专用号 发表于 2022-10-17 21:28
+汉堡喵打个talon和tsm不能4-0，那克里斯真是司马玩意了</blockquote>
+打tsm前两兄弟都是倒数第二，谁别看不起谁好吧
+
+*****
+
+####  Dreki  
+##### 11462#       发表于 2022-10-17 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961874&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-17 21:29</a>
+og今天赢了也就8分，rng9分，1比1就行了</blockquote>
+1:1得看液体给不给力了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 11463#       发表于 2022-10-17 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961841&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-17 21:27</a>
+9-5，两轮还有</blockquote>
+2-0 11胜，明天被红龙打死就11-7同等
+rng 两胜，三队加赛
+或者红龙被液体打死，rng全输也加赛，忘了看不看胜负关系
+
+*****
+
+####  情商  
+##### 11464#         楼主| 发表于 2022-10-17 21:29
+
+抱歉，我是车轱辘不看比赛高谈阔论屁话ptsd
+
+*****
+
+####  nowaki  
+##### 11465#       发表于 2022-10-17 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961870&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:28</a>
+
+2个，但是红龙有一个bo2</blockquote>
+是液体还有个bo2
+
+*****
+
+####  qty  
+##### 11466#       发表于 2022-10-17 21:30
+
+红龙这个1确实有点恐怖，前期不把他抓死让他刷起来就很难搞了
+
+*****
+
+####  帕林马哲理  
+##### 11467#       发表于 2022-10-17 21:30
+
+明天即使RNG全取两分，也得看红龙是不是能横扫一切了。A组eg，lgd已经确定胜者组，liquid也基本确定了，只有红龙不敌OG，OG不敌RNG这一种情况RNG才能挤到第四<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 11468#       发表于 2022-10-17 21:30
+
+小火龙明天的对手就是同为9胜的马体，肯定把对面往死里打火并掉一个
+
+*****
+
+####  Rorgen  
+##### 11469#       发表于 2022-10-17 21:30
+
+液体打红龙0-2都有可能，不过他们大概率要在boom身上拿够分
+
+*****
+
+####  Litccc  
+##### 11470#       发表于 2022-10-17 21:30
+
+我应该去做一个管人吃，做一个底边小v的听众，每个礼拜听听露米唱歌，哪怕下个月她就变成了抽象主播，天天问弹幕讨要舰长
+
+我应该去做个真正的管人吃，现在就出发
+
+写在rng受难的前一天
+
+*****
+
+####  情商  
+##### 11471#         楼主| 发表于 2022-10-17 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961892&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-17 21:30</a>
+
+是液体还有个bo2</blockquote>
+妹区别
+
+*****
+
+####  憧憬鲨  
+##### 11472#       发表于 2022-10-17 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">感觉RNG不太行了，今天这六个败局输得太憋屈了
+
+*****
+
+####  Rorgen  
+##### 11473#       发表于 2022-10-17 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961908&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:30</a>
+妹区别</blockquote>
+液体还要打boom今天
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 11474#       发表于 2022-10-17 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961908&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-17 21:30</a>
+妹区别</blockquote>
+还有一个打boom，今天
+

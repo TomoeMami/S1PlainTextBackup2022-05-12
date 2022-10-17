@@ -1599,3 +1599,26 @@ Ok，我扫了眼后期职业，感觉就缺个皮甲弓（罗宾我当板甲弓
 
 steam现在多半好评，看了下差评感觉还是等制作组修一修吧...
 
+
+
+*****
+
+####  h1r0  
+##### 145#       发表于 2022-10-17 21:26
+
+主要人物好感度是不是会影响剧情的，16章有人会死，这个章节数直接想到要好感度A存活的凉风
+
+19章也有队友离队，不知道和营地支线的选项和好感度有没有关系
+
+*****
+
+####  dudeism  
+##### 146#       发表于 2022-10-17 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57941092&amp;ptid=2067291" target="_blank">diectt 发表于 2022-10-16 18:28</a>
+
+体感是3-4个任务左右
+
+寡妇真的好 人美心善还能干</blockquote>
+这么赞的吗？ 是前面有人放图的那个金发妞吗<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
