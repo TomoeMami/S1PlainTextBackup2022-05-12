@@ -10161,3 +10161,44 @@ yamero，super ptsd了
 大学文化祭..正常来说都是声优社团或者动漫部门请声优吧...请偶像感觉不常见 印象中很少文化祭也很少请歌 ...</blockquote>
 鱼这次早稻田是外国文化交流邀请的
 
+
+
+*****
+
+####  优妮可  
+##### 8456#       发表于 2022-10-17 17:59
+
+<img src="https://img.saraba1st.com/forum/202210/17/175936iwwi6alaw1zaise8.jpg" referrerpolicy="no-referrer">
+
+<strong>20221017_175855.jpg</strong> (486.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 17:59 上传
+
+<img src="https://img.saraba1st.com/forum/202210/17/175936sjxcgz0qmx0gwfjz.jpg" referrerpolicy="no-referrer">
+
+<strong>20221017_175858.jpg</strong> (291.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 17:59 上传
+
+<img src="https://img.saraba1st.com/forum/202210/17/175937fatc5i9cbt09cq2c.jpg" referrerpolicy="no-referrer">
+
+<strong>20221017_175900.jpg</strong> (474.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 17:59 上传
+
+<img src="https://img.saraba1st.com/forum/202210/17/175937kgxy0q05qr6y0o3y.jpg" referrerpolicy="no-referrer">
+
+<strong>20221017_175901.jpg</strong> (96.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 17:59 上传
+
+旗袍僵尸噗
+
