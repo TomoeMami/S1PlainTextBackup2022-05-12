@@ -3457,3 +3457,15 @@ https://w.atwiki.jp/astlibra/</blockquote>
 小黑真的有意思，明明她说了她有好几件一样的衣服，却还要在猪脚穿的时候特意换福利套233还有，最后喝醉那 ...</blockquote>
 有cg就r18了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  五块  
+##### 324#       发表于 2022-10-17 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57952543&amp;ptid=2098044" target="_blank">soranoguiji 发表于 2022-10-17 11:53</a>
+
+我不看攻略在第五章卡了六个小时，这算不算探索</blockquote>
+后面这么难吗……如果不是故意恶心人无提示的那种应该可以算<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

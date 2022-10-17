@@ -7958,3 +7958,12 @@ qa里面那句话说的挺好的，不能妥善的续写还不如开启新篇章
 
 还挺有意思的外地往上海来，上海的往成都去。
 
+
+
+*****
+
+####  安姆闲人  
+##### 2347#       发表于 2022-10-17 12:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上海的四禧也吃了一大波疫情的亏啊，还是来杭州吧
+
