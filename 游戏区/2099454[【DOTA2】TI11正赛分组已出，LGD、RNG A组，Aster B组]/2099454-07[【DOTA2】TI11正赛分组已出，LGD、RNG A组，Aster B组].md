@@ -3128,3 +3128,404 @@ What is dead may never die, but rises again, harder and stronger<img src="https:
 你不会以为娜迦吃的了伤害吧</blockquote>
 装备拉满蝴蝶龙心的时候怎么就不能吃了
 
+
+
+*****
+
+####  izayoi39  
+##### 9359#       发表于 2022-10-17 13:51
+
+这把茶队后期思路没转变过来，他们沉默有刷新后打团就不用找谜团了，打团熊猫找到小小一直吹起来，然后其他三兄弟专心杀小鱼尸王和小松鼠这三
+
+*****
+
+####  IG.430  
+##### 9360#       发表于 2022-10-17 13:51
+
+我超，ni公子隔山打牛一刀剁死高地沉默
+
+
+
+*****
+
+####  fananaf  
+##### 9361#       发表于 2022-10-17 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954501&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-17 13:48</a>
+
+水人波高一代目这把娜迦是挺搞笑的，当然主要还是对面太肥，这阵容钱都给娜迦了，没法打后期。
+
+ ...</blockquote>
+果不其然，团战伤害就指望dp了
+
+*****
+
+####  nxmonitor  
+##### 9362#       发表于 2022-10-17 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954444&amp;ptid=2099454" target="_blank">天堂蜘蛛 发表于 2022-10-17 13:45</a>
+
+水厂自己的俱乐部vlog里都甚至还有潘飞在训练房和队员的合影
+
+这司马俱乐部相关人士的话一个字都别信好吧 ...</blockquote>
+那是14号发的东西，所以八师傅说的话还是可信的，但是别人说潘飞13号以后还在外面晃也是真的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TI三冠王AME  
+##### 9363#       发表于 2022-10-17 13:52
+
+沉默应该刷新球后留买直接参团，让对面冲阵型脱节开BKB杀他，然后买活在泉水放大打的，直接在泉水挂机让正面4打5太蠢了
+
+*****
+
+####  Rorgen  
+##### 9364#       发表于 2022-10-17 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954559&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-17 13:52</a>
+那是14号发的东西，所以八师傅说的话还是可信的，但是别人说潘飞13号以后还在外面晃也是真的…… ...</blockquote>
+八nmb的师傅，死妈东西
+
+*****
+
+####  苏西踩到我了  
+##### 9365#       发表于 2022-10-17 13:52
+
+多操英雄真的会降智吗，茶一用娜迦就不知道该怎么赢
+
+*****
+
+####  天堂蜘蛛  
+##### 9366#       发表于 2022-10-17 13:52
+
+沉默拿的还行，酱油熊猫真没啥用
+
+*****
+
+####  nowaki  
+##### 9367#       发表于 2022-10-17 13:52
+
+雪碧要1-1去败者组咯 好似好似
+
+*****
+
+####  Keynes  
+##### 9368#       发表于 2022-10-17 13:53
+
+八师傅？八畜！
+
+*****
+
+####  Horusddt  
+##### 9369#       发表于 2022-10-17 13:53
+
+真给ppy混到胜者组了？
+
+*****
+
+####  izayoi39  
+##### 9370#       发表于 2022-10-17 13:54
+
+感觉茶队不怎么会处理谜团，小组赛放了对面2把都输了，这把fn已经够搞了还是赢不了
+
+*****
+
+####  非建政专用号  
+##### 9371#       发表于 2022-10-17 13:54
+
+bc对战talon全队参与bp讨论，小电锤落泪<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 9372#       发表于 2022-10-17 13:54
+
+后面全部1比1是九分，估计要加赛了吧
+
+*****
+
+####  TI三冠王AME  
+##### 9373#       发表于 2022-10-17 13:55
+
+老东京这滚滚别把我笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 9374#       发表于 2022-10-17 13:55
+
+老东京把大伙逗乐了
+
+*****
+
+####  漂灵  
+##### 9375#       发表于 2022-10-17 13:55
+
+快去昆山请鼠大王
+
+*****
+
+####  Rorgen  
+##### 9376#       发表于 2022-10-17 13:56
+
+有克味儿了脑东京
+
+*****
+
+####  迷途lite  
+##### 9377#       发表于 2022-10-17 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954565&amp;ptid=2099454" target="_blank">苏西踩到我了 发表于 2022-10-17 13:52</a>
+多操英雄真的会降智吗，茶一用娜迦就不知道该怎么赢</blockquote>
+看机师阵容吧，之前鬼也打了一把作用还行的
+
+*****
+
+####  horacio  
+##### 9378#       发表于 2022-10-17 13:56
+
+关键rng没打雪碧吧，等于送雪碧两分搞不好就紧胜者组了
+
+*****
+
+####  勤练带来力量  
+##### 9379#       发表于 2022-10-17 13:56
+
+下面畜生怎么口供翻来覆去的改啊，是怕对不上吗<img src="https://p.sda1.dev/7/1834385ed59c0b6d552ed174d36a456d/58e59f44ebf81a4c9f621709922a6059272da6f1.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 9380#       发表于 2022-10-17 13:56
+
+脑东京这个脑残滚滚胜率能超过50%，b组每一个队都有责任
+
+*****
+
+####  walfeds  
+##### 9381#       发表于 2022-10-17 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954541&amp;ptid=2099454" target="_blank">fananaf 发表于 2022-10-17 13:51</a>
+
+装备拉满蝴蝶龙心的时候怎么就不能吃了</blockquote>
+还不是被树木连掷砸成傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 9382#       发表于 2022-10-17 13:57
+
+而且茶怕谜团还不是因为后期被拉闸，都是被谜团线上打穿
+
+*****
+
+####  nightmare902015  
+##### 9383#       发表于 2022-10-17 13:57
+
+我早上还说怎么没见过ug，这yatoro就上来表演了一把ug被关在高地上殴打呀
+
+*****
+
+####  憧憬鲨  
+##### 9384#       发表于 2022-10-17 13:57
+
+没关系的呀，下次新证词出来了记得再继续改呀
+
+*****
+
+####  zhrs456  
+##### 9385#       发表于 2022-10-17 13:58
+
+没关系的呀，下次新证词出来了记得再继续改呀
+
+*****
+
+####  拆骨羊肉2  
+##### 9386#       发表于 2022-10-17 13:58
+
+得是怎样的畜生才能说出这种逼话
+<img src="https://p.sda1.dev/7/667ae7330040476a00a057e9202b5c04/1665986167961.jpg" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 9387#       发表于 2022-10-17 13:58
+
+又确认了一下，12号上午是LGD的媒体日，所以那个vlog是12号拍到了14号上传了，13号上午开始潘飞和123458没接触，八师傅目前的话还没什么问题，但是潘飞疑似到其他队去了，好像和卡师傅见过面，还和EG领队见过面……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 9388#       发表于 2022-10-17 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954621&amp;ptid=2099454" target="_blank">horacio 发表于 2022-10-17 13:56</a>
+
+关键rng没打雪碧吧，等于送雪碧两分搞不好就紧胜者组了</blockquote>
+a组怎么给b组送分
+
+*****
+
+####  情商  
+##### 9389#         楼主| 发表于 2022-10-17 13:58
+
+哦牛皮，被查杀了就改发言是吧，王八这个发言也是智障级别了
+
+*****
+
+####  chilno  
+##### 9390#       发表于 2022-10-17 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954621&amp;ptid=2099454" target="_blank">horacio 发表于 2022-10-17 13:56</a>
+关键rng没打雪碧吧，等于送雪碧两分搞不好就紧胜者组了</blockquote>
+rng去哪里打雪碧
+
+
+
+*****
+
+####  tengshuo980  
+##### 9391#       发表于 2022-10-17 13:58
+
+有没有懂哥知道rng还需要多少才能进胜者组<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  恐怖利刃  
+##### 9392#       发表于 2022-10-17 13:58
+
+<img src="https://img.saraba1st.com/forum/202210/17/135853h00iig6isvgikg6r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>641BF668-F5D5-47FC-AF14-090C7E6219B2.jpeg</strong> (47.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 13:58 上传
+
+*****
+
+####  izayoi39  
+##### 9393#       发表于 2022-10-17 13:59
+
+娜迦扛不住对面这小小加小松鼠的输出的，主要还是输在后期团战没明白该先秒谁，波波先动谜团结果被小小和小松鼠在后面完美输出
+
+*****
+
+####  人別離苦  
+##### 9394#       发表于 2022-10-17 13:59
+
+最少还要赢1分吧<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恐怖利刃  
+##### 9395#       发表于 2022-10-17 13:59
+
+听说是一开始的标题，后来改了
+
+*****
+
+####  nightmare902015  
+##### 9396#       发表于 2022-10-17 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954657&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-17 13:58</a>
+有没有懂哥知道rng还需要多少才能进胜者组
+
+—— 来自 S1Fun</blockquote>
+就赢一把就行
+
+*****
+
+####  nxmonitor  
+##### 9397#       发表于 2022-10-17 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954657&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-17 13:58</a>
+
+有没有懂哥知道rng还需要多少才能进胜者组
+
+—— 来自 S1Fun</blockquote>
+只要再拿1分就是小概率败者组了，还好前两天9-1把该拿的都拿了……
+
+*****
+
+####  IG.430  
+##### 9398#       发表于 2022-10-17 13:59
+
+芜湖，雪碧不会这也能翻
+
+*****
+
+####  坚定的团子党  
+##### 9399#       发表于 2022-10-17 13:59
+
+nisha犯病了呀
+
+*****
+
+####  勤练带来力量  
+##### 9400#       发表于 2022-10-17 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954660&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-17 13:58</a></blockquote>
+这是那个福州magic吧，打个病猫队起这种标题真有你的啊
+
+*****
+
+####  Keynes  
+##### 9401#       发表于 2022-10-17 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954621&amp;ptid=2099454" target="_blank">horacio 发表于 2022-10-17 13:56</a>
+ 关键rng没打雪碧吧，等于送雪碧两分搞不好就紧胜者组了</blockquote>
+rnga组雪碧b组
+
+*****
+
+####  horacio  
+##### 9402#       发表于 2022-10-17 14:00
+
+记混了看错赛程
+
+*****
+
+####  horacio  
+##### 9403#       发表于 2022-10-17 14:00
+
+记混了看错赛程
+
+*****
+
+####  StrangerJ  
+##### 9404#       发表于 2022-10-17 14:00
+
+看了下fnatic这队战绩也是有意思啊，3场1比1，ett秘密和雪碧，把对手拉到自己同一个水平线？
+
+*****
+
+####  walfeds  
+##### 9405#       发表于 2022-10-17 14:00
+
+秘密突发恶疾是吧
+
+*****
+
+####  Keynes  
+##### 9406#       发表于 2022-10-17 14:01
+
+这个magic还是一如既往的司马
+
+*****
+
+####  帕林马哲理  
+##### 9407#       发表于 2022-10-17 14:01
+
+因为OG跟eg战绩的关系，我算了下rng只需要再赢两盘就能确保胜者组，希望超哥下午还能打<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 9408#       发表于 2022-10-17 14:01
+
+茶队就是觉得fn菜，抓着fn练怎么打谜团是吧
+
