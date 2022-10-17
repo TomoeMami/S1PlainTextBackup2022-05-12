@@ -1569,3 +1569,15 @@ Ok，我扫了眼后期职业，感觉就缺个皮甲弓（罗宾我当板甲弓
 所有队员想练什么职业都可以，前后上下转职随意切换。</blockquote>
 高难度也磨不了，回复资源有限
 
+
+
+*****
+
+####  tand177  
+##### 142#       发表于 2022-10-17 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57957043&amp;ptid=2067291" target="_blank">hallowilliam 发表于 2022-10-17 16:17</a>
+
+怎么看评价是每关都有turn limit？这可不是好文明</blockquote>
+回合数还是比较充裕的，难度主要在于每个人最多能抗两下打，后排就一下，还有就是项羽这个逼老送
+

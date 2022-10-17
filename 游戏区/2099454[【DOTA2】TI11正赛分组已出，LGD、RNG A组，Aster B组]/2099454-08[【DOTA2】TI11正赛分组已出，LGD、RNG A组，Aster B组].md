@@ -1135,3 +1135,243 @@ og马体2：0是不是对rng出线不利啊
 
 —— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  恐怖利刃  
+##### 10639#       发表于 2022-10-17 18:33
+
+桶哥一号位dp十三分钟超神
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 10640#       发表于 2022-10-17 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959178&amp;ptid=2099454" target="_blank">TIZI 发表于 2022-10-17 18:29</a>
+og马体2：0是不是对rng出线不利啊
+他俩打成1：1最好吧</blockquote>
+不是，一个2：0可以把另外一个踩下去
+1：1可能rng直接没了
+
+*****
+
+####  Rorgen  
+##### 10641#       发表于 2022-10-17 18:33
+
+马桶13分钟超神，把og当猪宰
+
+*****
+
+####  Rorgen  
+##### 10642#       发表于 2022-10-17 18:34
+
+刚刚谁夸的马修，这把戏来了
+
+*****
+
+####  nowaki  
+##### 10643#       发表于 2022-10-17 18:34
+
+哥们怎么觉得雪碧要去败者组一轮游了，今天唯一的好消息
+
+*****
+
+####  nightmare902015  
+##### 10644#       发表于 2022-10-17 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959224&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-17 18:32</a>
+谷爱凌强度真的很高，玩过的都说好，究极强线，起小节奏也很舒服，毛点资源打后期也很舒服，就是不知道是天 ...</blockquote>
+天辉也可以，夜魇也可以，但总的还是要夜魇，这版本夜魇胜率高的多。
+
+*****
+
+####  VanArkride  
+##### 10645#       发表于 2022-10-17 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959197&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-17 18:30</a></blockquote>
+……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 10646#       发表于 2022-10-17 18:35
+
+拍拍这么久都不来？
+
+*****
+
+####  Rorgen  
+##### 10647#       发表于 2022-10-17 18:35
+
+鳖星要被翻喽，pakazs给我狠狠血入张志成的狗屎阵容
+
+*****
+
+####  非建政专用号  
+##### 10648#       发表于 2022-10-17 18:35
+
+bc杀猪一把，望周知
+
+*****
+
+####  一品堂官  
+##### 10649#       发表于 2022-10-17 18:36
+
+又在黑话了 谁起的头
+
+*****
+
+####  反方向的波  
+##### 10650#       发表于 2022-10-17 18:36
+
+坏了坏了今天南美日
+
+
+
+*****
+
+####  DDT  
+##### 10651#       发表于 2022-10-17 18:36
+
+<blockquote>nightmare902015 发表于 2022-10-17 18:30
+</blockquote>
+艹，你们黑话真几把多。不过别说，看起来是有点像
+
+*****
+
+####  qty  
+##### 10652#       发表于 2022-10-17 18:37
+
+野王这个炮轰的也太抽象了
+
+*****
+
+####  百世诸侯  
+##### 10653#       发表于 2022-10-17 18:37
+
+不过别说，看起来是有点像
+
+*****
+
+####  莉拉厨  
+##### 10654#       发表于 2022-10-17 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959252&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-17 18:34</a>
+哥们怎么觉得雪碧要去败者组一轮游了，今天唯一的好消息</blockquote>
+雪碧要是掉到败者组莫名死在bo1里可太搞笑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  非建政专用号  
+##### 10655#       发表于 2022-10-17 18:38
+
+你妈，gojira那个被大牛搂死的小强能玩的这么恶心，bc铁假赛队<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 10656#       发表于 2022-10-17 18:39
+
+桶 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 10657#       发表于 2022-10-17 18:39
+
+这茶在打啥啊
+
+*****
+
+####  米奥莉奈  
+##### 10658#       发表于 2022-10-17 18:39
+
+🍵怎么眼看着又寄了
+
+*****
+
+####  吃货红毛  
+##### 10659#       发表于 2022-10-17 18:39
+
+感觉被这个强子搞晕了啊
+
+*****
+
+####  sodah  
+##### 10660#       发表于 2022-10-17 18:40
+
+这打的是个几把啊。
+
+*****
+
+####  方舟失智博士  
+##### 10661#       发表于 2022-10-17 18:40
+
+🍵也阳了么 
+
+*****
+
+####  qty  
+##### 10662#       发表于 2022-10-17 18:40
+
+这个版本是美洲版本吗？
+
+*****
+
+####  反方向的波  
+##### 10663#       发表于 2022-10-17 18:40
+
+马修黑说话<img src="https://p.sda1.dev/7/c04df9c54d8a2e958c5d00e1f59a75fd/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  proselyte  
+##### 10664#       发表于 2022-10-17 18:40
+
+max的那个发图的评价一句集美不过分吧
+
+*****
+
+####  迷途lite  
+##### 10665#       发表于 2022-10-17 18:41
+
+茶怎么连续送啊，不会打完也发个公告吧
+
+*****
+
+####  nowaki  
+##### 10666#       发表于 2022-10-17 18:41
+
+海民王脸上玩斧王是吧，雪碧好似 雪碧好似 雪碧好似！
+
+*****
+
+####  sodah  
+##### 10667#       发表于 2022-10-17 18:41
+
+把对线那点优势送完了。还是能打的。
+
+*****
+
+####  kasaki_nozomi  
+##### 10668#       发表于 2022-10-17 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959068&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-17 18:20</a>
+ 支持lgd就是支持西恩dota</blockquote>
+我要杀了nga太监全家，记住，是全家
+
+*****
+
+####  拆骨羊肉2  
+##### 10669#       发表于 2022-10-17 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959359&amp;ptid=2099454" target="_blank">kasaki_nozomi 发表于 2022-10-17 18:41</a>
+我要杀了nga太监全家，记住，是全家</blockquote>
+有没有可能户口本只有一页？
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

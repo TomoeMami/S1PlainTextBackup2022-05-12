@@ -9201,3 +9201,12 @@ holo这群人的日程，在半夜收录是很正常的，至少一年前就这�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 2377#         楼主| 发表于 2022-10-17 18:38
+
+什么神奇的理由不开歌回开GTA的你有那么不喜欢开单独歌回吗
+

@@ -5277,3 +5277,19 @@ https://www.bilibili.com/video/BV1XU4y1e7RF/
 
 之前唐突更了个补丁把在线搞炸了，原来还没修复吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  isaaczheng  
+##### 413#       发表于 2022-10-17 18:33
+
+刚更新那会一开始一进联机就闪退。结果这问题维护了几天都没维护好。
+
+*****
+
+####  AEmpire  
+##### 414#       发表于 2022-10-17 18:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真是太草台了。。。我要刷万圣节外观啊！！
+
