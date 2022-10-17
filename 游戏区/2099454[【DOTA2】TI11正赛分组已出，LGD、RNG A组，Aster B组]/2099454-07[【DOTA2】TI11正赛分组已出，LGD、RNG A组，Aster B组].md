@@ -3835,3 +3835,319 @@ og液体1比1，两队都12分
 
 假如今天拿不下这两分，明天不会超哥还要硬顶着上把<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吃货红毛  
+##### 9444#       发表于 2022-10-17 14:11
+
+RNG开了！！ 超哥加油！！！超哥冲啊！！！
+
+*****
+
+####  UnhappyTails  
+##### 9445#       发表于 2022-10-17 14:11
+
+这场ti，无论rng打成什么样我都不怪
+
+*****
+
+####  情商  
+##### 9446#         楼主| 发表于 2022-10-17 14:11
+
+[https://live.bilibili.com/13?spm_id_from=333.337.0.0](https://live.bilibili.com/13?spm_id_from=333.337.0.0)
+
+*****
+
+####  火鸡味锅巴  
+##### 9447#       发表于 2022-10-17 14:11
+
+maybe never give up！下午狠狠咬下两分！
+
+*****
+
+####  5678给  
+##### 9448#       发表于 2022-10-17 14:12
+
+超哥狠狠的把红龙这两分拿下！！
+
+*****
+
+####  哈萨维·诺亚  
+##### 9449#       发表于 2022-10-17 14:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 9450#       发表于 2022-10-17 14:12
+
+https://www.twitch.tv/pgl_dota2en5
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  Gosin  
+##### 9451#       发表于 2022-10-17 14:12
+
+沉默这个英雄啊....大后期就应该在泉水里挂机....
+
+*****
+
+####  吃货红毛  
+##### 9452#       发表于 2022-10-17 14:12
+
+超哥肌肉！！
+
+*****
+
+####  UnhappyTails  
+##### 9453#       发表于 2022-10-17 14:12
+
+<img src="https://s3.bmp.ovh/imgs/2022/10/17/05bcbb8fe6fc31f4.jpeg" referrerpolicy="no-referrer">
+
+前言不搭后语的畜生
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Ronso| + 1|下面8就nm该死|
+
+查看全部评分
+
+*****
+
+####  情商  
+##### 9454#         楼主| 发表于 2022-10-17 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954901&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-17 14:12</a>
+
+前言不搭后语的畜生</blockquote>
+被查杀了是这样的
+
+*****
+
+####  蛭人  
+##### 9455#       发表于 2022-10-17 14:14
+
+这秘密TS高地大战，满地鲜血啊。
+
+*****
+
+####  NaYo丶  
+##### 9456#       发表于 2022-10-17 14:14
+
+yatoro省买了。不过当时看他没技能不想买
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 9457#       发表于 2022-10-17 14:14
+
+<blockquote>反方向的波 发表于 2022-10-17 14:09
+nowaki铁血雪糕啊</blockquote>
+雪糕什么黑话
+
+*****
+
+####  坚定的团子党  
+##### 9458#       发表于 2022-10-17 14:14
+
+nisha是真的个人能力强
+
+*****
+
+####  TIZI  
+##### 9459#       发表于 2022-10-17 14:14
+
+ni公子真是拳畜亲爹
+船长打到后期能这样主导比赛太屌了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tengshuo980  
+##### 9460#       发表于 2022-10-17 14:14
+
+超哥<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  帕林马哲理  
+##### 9461#       发表于 2022-10-17 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954901&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-17 07:12</a>
+前言不搭后语的畜生</blockquote>
+你转的我早饭都吐了，能不能别转蛆虫不如的东西了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 9462#       发表于 2022-10-17 14:15
+
+只能祝脏宁越办越好咯
+
+*****
+
+####  nxmonitor  
+##### 9463#       发表于 2022-10-17 14:15
+
+为啥雪碧又打成1:1了？还能胜者组吗？
+
+*****
+
+####  吃货红毛  
+##### 9464#       发表于 2022-10-17 14:15
+
+坏了 比赛又歇了 感觉还是打不了吗
+
+*****
+
+####  UnhappyTails  
+##### 9465#       发表于 2022-10-17 14:15
+
+凭什么那个2:0还算啊，真的好不服气啊，凭什么啊凭什么啊！
+
+*****
+
+####  星野航  
+##### 9466#       发表于 2022-10-17 14:15
+
+这二手滚滚碰到四手绝活血魔确实一点办法没有
+
+而且这开车开得也晕了
+
+雪碧现在bp开局就走在线劣翻盘路上真的是很搞笑
+
+*****
+
+####  朝游北海  
+##### 9467#       发表于 2022-10-17 14:16
+
+如果TS再这么无限平局，B组是不是要来熬死人的轮回大加赛了？
+
+*****
+
+####  情商  
+##### 9468#         楼主| 发表于 2022-10-17 14:16
+
+等广告过去再看看
+
+*****
+
+####  ArowRocher  
+##### 9469#       发表于 2022-10-17 14:16
+
+超哥加油，不用上呼吸机吧
+
+*****
+
+####  NaYo丶  
+##### 9470#       发表于 2022-10-17 14:16
+
+ 本帖最后由 NaYo丶 于 2022-10-17 14:19 编辑 
+
+雪碧今天要打几个20把 不然真去败者组了好蠢 胜者组多一条命太重要了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  smlszh  
+##### 9471#       发表于 2022-10-17 14:17
+
+超哥加油
+
+鳖孙儿祖
+
+*****
+
+####  nightmare902015  
+##### 9472#       发表于 2022-10-17 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954951&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-17 14:15</a>
+这二手滚滚碰到四手绝活血魔确实一点办法没有
+
+而且这开车开得也晕了
+
+雪碧现在bp开局就走在线劣翻盘路上真的 ...</blockquote>
+我不好说，ts，lgd，og这三队基本都在打这个风格，感觉是内部集训把自己搞成三个蠢逼了。
+
+*****
+
+####  ArowRocher  
+##### 9473#       发表于 2022-10-17 14:18
+
+一比一才是真wings2.0
+
+*****
+
+####  情商  
+##### 9474#         楼主| 发表于 2022-10-17 14:19
+
+还卜开吗
+
+*****
+
+####  少年游不游  
+##### 9475#       发表于 2022-10-17 14:20
+
+超哥加油
+
+*****
+
+####  反方向的波  
+##### 9476#       发表于 2022-10-17 14:20
+
+窝怎么有预感鳖星要连尿两把
+
+*****
+
+####  勤练带来力量  
+##### 9477#       发表于 2022-10-17 14:20
+
+<img src="https://p.sda1.dev/7/5a77412297570e820844337c67537a93/7bf8a1389b504fc2d2cc4bc5a0dde71192ef6db1.jpg" referrerpolicy="no-referrer">下面畜生的截图怎么越传越多啊
+
+*****
+
+####  Gosin  
+##### 9478#       发表于 2022-10-17 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57954940&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-17 14:15</a>
+
+为啥雪碧又打成1:1了？还能胜者组吗？</blockquote>
+只要剩下三个对手都打成1:1
+
+总成绩就是10-8
+
+应该问题不大 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 9479#       发表于 2022-10-17 14:21
+
+为啥弹幕都在说又弃权了啊。外网发通知了？
+
+*****
+
+####  usoda  
+##### 9480#       发表于 2022-10-17 14:21
+
+超哥加油
+

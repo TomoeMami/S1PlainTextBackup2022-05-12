@@ -107,3 +107,26 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">年末这骗氪强度上来了。还在等风lm的感觉这个池子憋不住了
 
+
+
+*****
+
+####  poor  
+##### 17111#       发表于 2022-10-17 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950421&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2022-10-17 10:28</a>
+贝不是打雷吗，都是慈善车，没有混。
+
+极巴别说暗low王，就算正常蛤还是混，既然都是混，建议直接土或水。 ...</blockquote>
+慈善车啥意思？我开个房写放置就会冲进来5个大佬帮我打死吗？那一天也只能开一个啊？还是我推上随便进一个躺就行了？
+极巴看了下NGA都是斩的，而且都要3阶U<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  里村紅葉  
+##### 17112#       发表于 2022-10-17 14:20
+
+风巫妖这武器是不是不咋地<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
