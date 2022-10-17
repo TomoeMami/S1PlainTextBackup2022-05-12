@@ -6053,3 +6053,511 @@ G了，看看能不能从og身上拿一分吧
 
 还好
 
+
+
+*****
+
+####  ayeah  
+##### 11289#       发表于 2022-10-17 21:01
+
+女拳一敲二也太强了
+
+*****
+
+####  人別離苦  
+##### 11290#       发表于 2022-10-17 21:02
+
+Nightfall 搞这么厉害干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 11291#       发表于 2022-10-17 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">eg搞这么厉害跟什么
+
+*****
+
+####  セト  
+##### 11292#       发表于 2022-10-17 21:03
+
+g了
+
+*****
+
+####  天堂蜘蛛  
+##### 11293#       发表于 2022-10-17 21:03
+
+寄了
+
+*****
+
+####  TIZI  
+##### 11294#       发表于 2022-10-17 21:03
+
+今天打成什么样都没话说，明天rng加油
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  反方向的波  
+##### 11295#       发表于 2022-10-17 21:03
+
+这么一想，gpk亲自踢掉的人能卜厉害么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前有nightfall save- 后有丁真
+
+*****
+
+####  Litccc  
+##### 11296#       发表于 2022-10-17 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 11297#       发表于 2022-10-17 21:03
+
+这突然没了
+
+*****
+
+####  迷途lite  
+##### 11298#       发表于 2022-10-17 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">我难受
+
+*****
+
+####  夜光铃  
+##### 11299#       发表于 2022-10-17 21:03
+
+难受
+
+*****
+
+####  Keynes  
+##### 11300#       发表于 2022-10-17 21:03
+
+事与愿违<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 11301#       发表于 2022-10-17 21:03
+
+只能说这把本来希望真的挺大的
+
+*****
+
+####  百世诸侯  
+##### 11302#       发表于 2022-10-17 21:03
+
+BB暴打OG，第一把赢了，说实话OG这状态明天RNG应该能拿下
+
+*****
+
+####  格雷殿下  
+##### 11303#       发表于 2022-10-17 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">茶🐖对线次次炸
+
+*****
+
+####  吃货红毛  
+##### 11304#       发表于 2022-10-17 21:03
+
+RNG早点睡觉 明天加油
+
+*****
+
+####  枯风瘦雪02  
+##### 11305#       发表于 2022-10-17 21:04
+
+妈的，本来都看到阿床和RTZ熟悉的软脚了，怎么有个这么肥的狼人强行带起冲锋节奏啊
+
+*****
+
+####  sodah  
+##### 11306#       发表于 2022-10-17 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">后面几波真的用死力干你啊，没脾气。
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 11307#       发表于 2022-10-17 21:04
+
+好好睡觉，明天生死战
+
+*****
+
+####  innovation_s  
+##### 11308#       发表于 2022-10-17 21:04
+
+我好难受<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usoda  
+##### 11309#       发表于 2022-10-17 21:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">状态真的太差了。。。已经丧失瞬间判断能力了
+
+*****
+
+####  莉拉厨  
+##### 11310#       发表于 2022-10-17 21:04
+
+去OG门口给mi酱磕个头吧，明天求他抬一手<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  非建政专用号  
+##### 11311#       发表于 2022-10-17 21:04
+
+索尼克把红龙杀了吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acejoe  
+##### 11312#       发表于 2022-10-17 21:04
+
+第一天不是rng最吊么，怎么maybe一冠就萎了
+
+*****
+
+####  憧憬鲨  
+##### 11313#       发表于 2022-10-17 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961521&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 21:04</a>
+第一天不是rng最吊么，怎么maybe一冠就萎了</blockquote>
+全冠了
+
+*****
+
+####  奥帝努斯  
+##### 11314#       发表于 2022-10-17 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961521&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 23:04</a>
+第一天不是rng最吊么，怎么maybe一冠就萎了</blockquote>
+全冠了啊
+
+*****
+
+####  Kazepollar  
+##### 11315#       发表于 2022-10-17 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961521&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 21:04</a>
+ 第一天不是rng最吊么，怎么maybe一冠就萎了</blockquote>
+你这话说的，谁冠了都挺萎
+
+*****
+
+####  枯风瘦雪02  
+##### 11316#       发表于 2022-10-17 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961521&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 21:04</a>
+
+第一天不是rng最吊么，怎么maybe一冠就萎了</blockquote>
+看起来是其他四个一起炸了
+
+*****
+
+####  nowaki  
+##### 11317#       发表于 2022-10-17 21:05
+
+没有伞兵真的不行
+
+*****
+
+####  三杉酸宁碱  
+##### 11318#       发表于 2022-10-17 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961521&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 21:04</a>
+第一天不是rng最吊么，怎么maybe一冠就萎了</blockquote>
+都冠了啊
+
+*****
+
+####  天堂蜘蛛  
+##### 11319#       发表于 2022-10-17 21:05
+
+看了眼干瘪也开始玩火枪了
+
+RNG和鳖茶真的不试试火枪么？
+
+*****
+
+####  夏溪澪mio  
+##### 11320#       发表于 2022-10-17 21:05
+
+超哥，我的超哥
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  阿垃垃圾历  
+##### 11321#       发表于 2022-10-17 21:05
+
+og怎么要输BB 
+
+*****
+
+####  端木恋心  
+##### 11322#       发表于 2022-10-17 21:05
+
+og自己状态也奇差无比。加油明天赢一局感觉就进胜者组了。今晚好好休息。
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 11323#       发表于 2022-10-17 21:05
+
+红龙打不过sn<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 11324#       发表于 2022-10-17 21:06
+
+诸葛mi酱已经在想办法了
+
+*****
+
+####  seki_m  
+##### 11325#       发表于 2022-10-17 21:06
+
+debuff还是大，带病打赛已经是条汉子
+
+*****
+
+####  proselyte  
+##### 11326#       发表于 2022-10-17 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961536&amp;ptid=2099454" target="_blank">天堂蜘蛛 发表于 2022-10-17 21:05</a>
+
+看了眼干瘪也开始玩火枪了
+
+RNG和鳖茶真的不试试火枪么？</blockquote>
+lgd这把就纯整蛊
+
+a畜屠夫都玩起来了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 11327#       发表于 2022-10-17 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961521&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-17 21:04</a>
+第一天不是rng最吊么，怎么maybe一冠就萎了</blockquote>
+冠了
+强队都没打，今天一蹦到底
+
+*****
+
+####  maju3  
+##### 11328#       发表于 2022-10-17 21:07
+
+空难空难
+
+*****
+
+####  我爱撩菜  
+##### 11329#       发表于 2022-10-17 21:07
+
+这快乐沉默，48点智力了
+
+*****
+
+####  帕林马哲理  
+##### 11330#       发表于 2022-10-17 21:07
+
+唉，昌平野人状态真的很不错啊，查理斯kaka都在梦游，鬼对不少carry感觉都不够熟悉，rng明天再加油吧。
+
+*****
+
+####  Asukalangley33  
+##### 11331#       发表于 2022-10-17 21:07
+
+OG被BB干了？？？
+
+*****
+
+####  非建政专用号  
+##### 11332#       发表于 2022-10-17 21:07
+
+a组下6鱼有同室内伐的意思了，理论上有rng躺进胜者组几率好像
+
+*****
+
+####  Rorgen  
+##### 11333#       发表于 2022-10-17 21:07
+
+纯纯的被nightfall一人打爆了
+
+*****
+
+####  JoelBirch  
+##### 11334#       发表于 2022-10-17 21:07
+
+莫言和Y这俩都在搞天梯快乐玩法
+
+*****
+
+####  tasuku  
+##### 11335#       发表于 2022-10-17 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961553&amp;ptid=2099454" target="_blank">proselyte 发表于 2022-10-17 21:06</a>
+
+lgd这把就纯整蛊
+
+a畜屠夫都玩起来了</blockquote>
+大哥云多久了
+
+*****
+
+####  4591  
+##### 11336#       发表于 2022-10-17 21:08
+
+OG被BB干死一把,感觉全世界都在保送RNG,支持全华班<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  头发头发  
+##### 11337#       发表于 2022-10-17 21:08
+
+已经在想明年猪猪是不是可以换vg的po3，但是不知道rng235是不是要打兄弟dota
+
+*****
+
+####  ninini212  
+##### 11338#       发表于 2022-10-17 21:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来你楼也有一年只看TI的人……
+
+*****
+
+####  天堂蜘蛛  
+##### 11339#       发表于 2022-10-17 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961553&amp;ptid=2099454" target="_blank">proselyte 发表于 2022-10-17 21:06</a>
+
+lgd这把就纯整蛊
+
+a畜屠夫都玩起来了</blockquote>
+屠夫也是护火枪的，拿的没啥问题
+
+*****
+
+####  eplis  
+##### 11340#       发表于 2022-10-17 21:08
+
+og不想玩可以不玩的，喜欢送是吧
+
+
+
+*****
+
+####  吃货红毛  
+##### 11341#       发表于 2022-10-17 21:09
+
+OG被2-0的话 重大利好RNG
+
+*****
+
+####  万世创伤伊莫库  
+##### 11342#       发表于 2022-10-17 21:09
+
+火枪更不能给RNG这种协同性差的队玩，中期很容易被开雾一波翻，然后被打的下不了高地 最后慢性死亡
+
+*****
+
+####  端木恋心  
+##### 11343#       发表于 2022-10-17 21:09
+
+SQ加油啊干死红龙一局啊。
+
+*****
+
+####  nerugigannte  
+##### 11344#       发表于 2022-10-17 21:09
+
+求求bb再宰一把好吗
+
+*****
+
+####  没钱买手办  
+##### 11345#       发表于 2022-10-17 21:09
+
+**，集美已经在吹A畜12把12C了
+
+*****
+
+####  苏沃雷生  
+##### 11346#       发表于 2022-10-17 21:09
+
+paxlovid虽然是破产版奥司他韦，但RNG能整赶紧整点吧，唉
+
+*****
+
+####  ArowRocher  
+##### 11347#       发表于 2022-10-17 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961585&amp;ptid=2099454" target="_blank">4591 发表于 2022-10-17 21:08</a>
+OG被BB干死一把,感觉全世界都在保送RNG,支持全华班</blockquote>
+全华班跟OG的关系是<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 11348#       发表于 2022-10-17 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57961590&amp;ptid=2099454" target="_blank">ninini212 发表于 2022-10-17 21:08</a>
+原来你楼也有一年只看TI的人……</blockquote>
+多的是好吧，这两天有好几个丢下一句话就跑的纯良集美来过了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 11349#       发表于 2022-10-17 21:10
+
+bb宰不宰已经不关键了，反正rng明天必须赢og一把
+
+*****
+
+####  sodah  
+##### 11350#       发表于 2022-10-17 21:10
+
+所以说今天多了好多新漏油。
+
+*****
+
+####  Rorgen  
+##### 11351#       发表于 2022-10-17 21:10
+
+nightfall今年小组赛是413了
+
+*****
+
+####  adretyu67  
+##### 11352#       发表于 2022-10-17 21:10
+
+火枪是猴爹的爽局英雄。唉
+
+形式急转直下，漏油又开始感受去年的绝望了
+
+*****
+
+####  proselyte  
+##### 11353#       发表于 2022-10-17 21:11
+
+为什么会出这种事啊
+
