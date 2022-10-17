@@ -494,3 +494,367 @@ rng昨天形势大好不会连续4个0－2进败者组了吧
 
 剧毒跳大我指挥  &lt;--- new!
 
+
+
+*****
+
+####  StrangerJ  
+##### 10560#       发表于 2022-10-17 18:13
+
+麻痹，今天不会老干瘪6-0，其他两队0-10吧<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  北欧王座  
+##### 10561#       发表于 2022-10-17 18:13
+
+ 本帖最后由 北欧王座 于 2022-10-17 18:15 编辑 
+
+其实还是不知道比赛开了是个什么情况。本来超哥ame能出去吃饭就知道入住前的行程它是不管控的。他这个合照也没说啥时候的。这原贴楼主也说现在保安会赶人
+
+*****
+
+####  IG.430  
+##### 10562#       发表于 2022-10-17 18:13
+
+稻高一尺是吧
+
+*****
+
+####  非建政专用号  
+##### 10563#       发表于 2022-10-17 18:13
+
+克神应该是昨天玩大圣玩开心了，这b在阿灵顿major上就这样，浑浑噩噩打好几天，最后正常一把之后像个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  VanArkride  
+##### 10564#       发表于 2022-10-17 18:13
+
+说起来隔壁csgo大家也是一致喷pgl的，口碑比较好的事blast
+
+*****
+
+####  反方向的波  
+##### 10565#       发表于 2022-10-17 18:14
+
+ta 的darkmago和sacred两个指定菜逼这两天疯狂神经刀了，再算上本来就还可以的Matthew 把明天b组加赛的氛围要推向高潮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 10566#       发表于 2022-10-17 18:14
+
+真是想草了白皮猪的马
+
+*****
+
+####  Suny08  
+##### 10567#       发表于 2022-10-17 18:15
+
+队伍是不是可以拒绝检测的？lgd 这是早就全阳了没测吧，所以才第一天打成那样，下面八说的早阳早好说不定是真的，lgd铁定是全员瞒报了
+
+*****
+
+####  哈萨维·诺亚  
+##### 10568#       发表于 2022-10-17 18:15
+
+真是想草了白皮猪的马
+
+*****
+
+####  百世诸侯  
+##### 10569#       发表于 2022-10-17 18:15
+
+真是想草了白皮猪的马（38岁金发御姐谢谢）
+
+*****
+
+####  louge19891020  
+##### 10570#       发表于 2022-10-17 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958950&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-17 18:11</a>
+
+本来就强都出来了卧槽</blockquote>
+说今年又不是说之前，bc又不是全只靠子龙独c
+
+*****
+
+####  非建政专用号  
+##### 10571#       发表于 2022-10-17 18:15
+
+直接骂司马就行了，别折磨自己艹白色老母猪，谢谢
+
+*****
+
+####  Rorgen  
+##### 10572#       发表于 2022-10-17 18:15
+
+克里斯跟在wipser后面耀武扬威的样子，令人落泪
+
+*****
+
+####  米德  
+##### 10573#       发表于 2022-10-17 18:15
+
+直接骂司马就行了，别折磨自己艹白色老母猪，谢谢
+
+*****
+
+####  5678给  
+##### 10574#       发表于 2022-10-17 18:15
+
+不由得想起外野前两天借一个坛友还他妈在那嘴硬，真想把出去之后的样子扇他们脸上看
+
+*****
+
+####  方舟失智博士  
+##### 10575#       发表于 2022-10-17 18:15
+
+这不就是白皮躺平政策最好的嘲讽么 躺平的下场就这样 装模作样说赛事闭环防疫 其实一塌糊涂
+
+*****
+
+####  proselyte  
+##### 10576#       发表于 2022-10-17 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958990&amp;ptid=2099454" target="_blank">Suny08 发表于 2022-10-17 18:15</a>
+队伍是不是可以拒绝检测的？lgd 这是早就全阳了没测吧，所以才第一天打成那样，下面八说的早阳早好说不定是 ...</blockquote>
+阳了有可能一两天就阴了吗
+或者lgd一到新加坡就阳了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fopinecone  
+##### 10577#       发表于 2022-10-17 18:16
+
+楼友们这能下的去啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  JoelBirch  
+##### 10578#       发表于 2022-10-17 18:16
+
+开赛前NGA还有死妈玩意儿问选手在哪个酒店准备跑去合影的呢，是真的脑子有问题
+
+*****
+
+####  Litccc  
+##### 10579#       发表于 2022-10-17 18:16
+
+38岁的洋马都成啥样了，漏油对自己也太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FUZE  
+##### 10580#       发表于 2022-10-17 18:16
+
+办的什么垃圾比赛真的艹了！
+新加坡还不如罗马尼亚，废物
+
+*****
+
+####  5678给  
+##### 10581#       发表于 2022-10-17 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958990&amp;ptid=2099454" target="_blank">Suny08 发表于 2022-10-17 18:15</a>
+队伍是不是可以拒绝检测的？lgd 这是早就全阳了没测吧，所以才第一天打成那样，下面八说的早阳早好说不定是 ...</blockquote>
+有摄像头的，感没感染还是看的出来的
+
+*****
+
+####  反方向的波  
+##### 10582#       发表于 2022-10-17 18:16
+
+我还是喜欢亚洲老母马（指大和赤骥）
+
+*****
+
+####  哈萨维·诺亚  
+##### 10583#       发表于 2022-10-17 18:17
+
+李家坡确实一坨臭shit了
+
+*****
+
+####  belldandy_ye  
+##### 10584#       发表于 2022-10-17 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958892&amp;ptid=2099454" target="_blank">resorry 发表于 2022-10-17 18:07</a>
+
+这是咋回事啊，野王jb节奏没了，焦阳谁也打不过了
+
+  -- 来自 能手机投票的 S ...</blockquote>
+戴口罩战力自动减半，呼吸效率大幅下滑，茶队这种本来就脑子不够用的队上个缺氧DEBUFF直接不会玩了.
+
+*****
+
+####  VanArkride  
+##### 10585#       发表于 2022-10-17 18:18
+
+ 本帖最后由 VanArkride 于 2022-10-17 18:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57958990&amp;ptid=2099454" target="_blank">Suny08 发表于 2022-10-17 18:15</a>
+
+队伍是不是可以拒绝检测的？lgd 这是早就全阳了没测吧，所以才第一天打成那样，下面八说的早阳早好说不定是 ...</blockquote>
+
+可以不检测更没法溯源了，国内选手多少有点防疫意识，你猜国外选手有没有
+
+草，这么一说想起来之前ori还跑去跟雪碧交换T恤来着<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  Cantha  
+##### 10586#       发表于 2022-10-17 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">茶这把感觉又不行啊，不看了艹 吃饭去
+
+*****
+
+####  天堂蜘蛛  
+##### 10587#       发表于 2022-10-17 18:18
+
+还不如点个lina不留遗憾呢
+
+算了
+
+*****
+
+####  IG.430  
+##### 10588#       发表于 2022-10-17 18:19
+
+sheever38岁，可以坐我<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 10589#       发表于 2022-10-17 18:19
+
+喜欢白人milf是吧
+
+*****
+
+####  syndrome2032  
+##### 10590#       发表于 2022-10-17 18:19
+
+银k能不能别给小林靖三选你那死灵龙了
+
+
+
+*****
+
+####  syndrome2032  
+##### 10591#       发表于 2022-10-17 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959034&amp;ptid=2099454" target="_blank">VanArkride 发表于 2022-10-17 18:18</a>
+可以不检测更没法溯源了，国内选手多少有点防疫意识，你猜国外选手有没有
+
+草，这么一说想起来之前ori还跑 ...</blockquote>
+那是阿灵顿major的事
+
+*****
+
+####  百世诸侯  
+##### 10592#       发表于 2022-10-17 18:20
+
+不看克里斯帕克宰猪实属暴殄天物
+
+*****
+
+####  勤练带来力量  
+##### 10593#       发表于 2022-10-17 18:20
+
+支持lgd就是支持西恩dota<img src="https://p.sda1.dev/7/e44e96add37afab0faa5c23a12e989c3/CMP_20221017182048980.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 10594#       发表于 2022-10-17 18:21
+
+<img src="https://p.sda1.dev/7/51a7ee3a8ce5259ad8ac6f37b0d1bbde/CMP_20221017182022566.jpg" referrerpolicy="no-referrer">
+哇，小组赛最强辅助呀，不赢砍手，现在真的是ElieenGu的时代了
+
+*****
+
+####  dclara1  
+##### 10595#       发表于 2022-10-17 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959034&amp;ptid=2099454" target="_blank">VanArkride 发表于 2022-10-17 18:18</a>
+可以不检测更没法溯源了，国内选手多少有点防疫意识，你猜国外选手有没有
+
+草，这么一说想起来之前ori还跑 ...</blockquote>
+算了吧，罗马尼亚那会还算战战兢兢做好措施
+
+翻翻今年土豪杯 阿灵顿的照片看看西恩队怎么防疫的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  救死扶伤魔力瞎  
+##### 10596#       发表于 2022-10-17 18:21
+
+说起来，这三天中国队的vis是不是都挺惨的？
+
+—— 来自 OPPO PGCM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  恐怖利刃  
+##### 10597#       发表于 2022-10-17 18:21
+
+希瓦好像一米九
+
+*****
+
+####  nightmare902015  
+##### 10598#       发表于 2022-10-17 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959072&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-17 18:21</a>
+哇，小组赛最强辅助呀，不赢砍手，现在真的是ElieenGu的时代了</blockquote>
+<img src="https://p.sda1.dev/7/10edafca0038657ab62ec5a8a674cf9c/Screenshot_20221017_172722.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  DDT  
+##### 10599#       发表于 2022-10-17 18:21
+
+<blockquote>北欧王座 发表于 2022-10-17 18:13
+其实还是不知道比赛开了是个什么情况。本来超哥ame能出去吃饭就知道入住前的行程它是不管控的。他这个合照 ...</blockquote>
+敢出去吃饭就说明是共存比或者被**了，可惜撸赛没早点办，好让国内这些队搞搞清楚阳了到底是什么感受。
+
+*****
+
+####  恐怖利刃  
+##### 10600#       发表于 2022-10-17 18:22
+
+茶的vis我没记错是宰了
+
+*****
+
+####  IG.430  
+##### 10601#       发表于 2022-10-17 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959080&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-17 18:21</a>
+希瓦好像一米九</blockquote>
+咱小哥布林就好这个<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北欧王座  
+##### 10602#       发表于 2022-10-17 18:22
+
+笑尿了，听说og开雾atf走河道手贱变颜色然后液体立马开润缩高地？
+
+*****
+
+####  非建政专用号  
+##### 10603#       发表于 2022-10-17 18:22
+
+司了马了，克里斯这种发病好几天，一把正常之后好好打的是不是潜在的阳人
+
