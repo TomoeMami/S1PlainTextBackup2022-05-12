@@ -172,3 +172,16 @@
 就是没有群也不想跟人交流才准备混推车的</blockquote>
 那土？只要特动解的快 解的稳就行
 
+
+
+*****
+
+####  poor  
+##### 17116#       发表于 2022-10-17 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57956946&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2022-10-17 16:12</a>
+那土？只要特动解的快 解的稳就行</blockquote>
+土不是超8就是花奶，我还没有情毛，感觉都替换不了，有个兔子的都有，但是要两个麒麟<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">，我还看有人问土方能不能进的被人劝伪装暗进
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

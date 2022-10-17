@@ -1651,3 +1651,26 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 这位从者是——<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3141#       发表于 2022-10-17 19:26
+
+ 本帖最后由 Jamaisvu 于 2022-10-17 19:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959783&amp;ptid=2084912" target="_blank">zooandtoo 发表于 2022-10-17 19:12</a>
+
+今天的剧情也不错。。
+
+如果不是这谜一样的缝合这次万圣蛮有意思的</blockquote>
+感觉脚本还是看过水浒传的，呼延灼回忆那段写得情真意切，我都有点感动了。
+
+（就是泣颜CG看着巨出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+如果最开始呼延灼的资料写明了是女妖Cosplay，那这次活动从整活儿角度来说还是挺有趣的。可惜临时更改设定，跟个草台班子似的，边写剧本边唱戏。
+
+不过这么一搞，本来因为雌堕设定导致的低期望，反而由于更正后的设定能够自圆其说而提升了观感（毕竟一开始就说是妖精骑士呼延灼也会有人不满意）。所以单纯当成一出滑稽剧看得话还是别有一番风味<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+另外今天提到的六奸四贼，FGO首次出现是在151燕青的BOSS战，燕青每回合会随机给自己加状态，有天魁·天机·天间、天勇·天雄·天猛、天威·天英·天贵三个色卡buff，但有时候会roll到“六奸四贼”的debuff。考虑到都有水浒人物，这次活动的主笔很可能也是神奇东出......玩家对他的心情大概就像呼延灼对教授的心情一样吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

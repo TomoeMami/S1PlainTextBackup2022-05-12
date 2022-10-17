@@ -8079,3 +8079,12 @@ kino我是百连时关注的，但完全不了解的话，也不会点进直播�
 
 这歌听了后甚至没有让人听第二遍的感觉，只能说“是首歌”而已的程度<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">权当是厂里在做技术尝试吧
 
+
+
+*****
+
+####  dreamenory  
+##### 2357#       发表于 2022-10-17 19:24
+
+说起来..算法合适的话  AI进化很快的..(但是将来能不能赚回来电费就不知道了
+
