@@ -4714,3 +4714,174 @@ rng机会还是比较大的，起码1:1
 玛西这创意工坊饰品可以啊，赶紧出</blockquote>
 之前看过一个巨tm帅的模仿空条承太郎的玛西，不知道能不能通过票选出
 
+
+
+*****
+
+####  zhrs456  
+##### 8072#       发表于 2022-10-17 10:01
+
+优先选天辉夜魇应该是RNG给了面子的 外国逼直接要BP时间
+
+*****
+
+####  憧憬鲨  
+##### 8073#       发表于 2022-10-17 10:02
+
+创意工坊那个我一直没搞懂，我能在创意工坊里搞到饰品进游戏自己用吗
+
+*****
+
+####  walfeds  
+##### 8074#       发表于 2022-10-17 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57949849&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-17 09:59</a>
+
+之前看过一个巨tm帅的模仿空条承太郎的玛西，不知道能不能通过票选出</blockquote>
+帅是帅，那玩意感觉版权层面有点风险<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 8075#       发表于 2022-10-17 10:03
+
+<blockquote>やト 发表于 2022-10-17 09:26
+疫情+训练不好约吧，不是一次能做完的，等TI打完咯，以前补门牙，医生档期满，反复折腾了一个月才最后定型 ...</blockquote>
+这老兄去年ti和陈青zard连麦ti10的时候就缺着一颗牙了。。。
+
+应该也是个经典拖延症患者
+
+*****
+
+####  -SLSL-  
+##### 8076#       发表于 2022-10-17 10:03
+
+上班被撸狗包围了，来楼里喘口气<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 8077#       发表于 2022-10-17 10:04
+
+优先选边才是影响最大的，别忘了天辉夜宴本身就有胜负差异，同时这个版本怪物这么多，先选后选区别重大……
+
+*****
+
+####  tengshuo980  
+##### 8078#       发表于 2022-10-17 10:04
+
+小骷髅线上也太弱了，比赛选了怕不是要被直接捅穿
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iriyano  
+##### 8079#       发表于 2022-10-17 10:04
+
+啥意思lgd经理都富到有钱**了？
+
+*****
+
+####  白野苍衣  
+##### 8080#       发表于 2022-10-17 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起大哥影魔更想看老北京儿影魔啊
+
+*****
+
+####  iriyano  
+##### 8081#       发表于 2022-10-17 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57949930&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-17 11:04</a>
+优先选边才是影响最大的，别忘了天辉夜宴本身就有胜负差异，同时这个版本怪物这么多，先选后选区别重大…… ...</blockquote>
+nga都没有你这么弱智的吧
+
+*****
+
+####  walfeds  
+##### 8082#       发表于 2022-10-17 10:06
+
+哦草，随手看眼4330怎么还有冰女身心皮的
+
+出的比懒狗社还快
+
+*****
+
+####  Acatv  
+##### 8083#       发表于 2022-10-17 10:07
+
+森哥不来解说真的可惜了
+
+*****
+
+####  风尘的时光  
+##### 8084#       发表于 2022-10-17 10:08
+
+“卡卡是这些人里的第一个亚军”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 8085#       发表于 2022-10-17 10:08
+
+点个兽不会把老北京踩烂吧
+
+*****
+
+####  幻想风靡_  
+##### 8086#       发表于 2022-10-17 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57949964&amp;ptid=2099454" target="_blank">iriyano 发表于 2022-10-17 10:06</a>
+
+nga都没有你这么弱智的吧</blockquote>
+[https://nga.178.com/read.php?tid=33893421](https://nga.178.com/read.php?tid=33893421)
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 8087#       发表于 2022-10-17 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57949930&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-17 10:04</a>
+
+优先选边才是影响最大的，别忘了天辉夜宴本身就有胜负差异，同时这个版本怪物这么多，先选后选区别重大…… ...</blockquote>
+你在搞笑么？胜率影响到单局比赛建议硬币ROLL输的队伍直接打GG好吗？而且BP先选后选只跟选哪边有关系 看过比赛么？BP时间被大幅压了就是逼迫你先想一套阵容直接点 很难变招
+
+*****
+
+####  我爱撩菜  
+##### 8088#       发表于 2022-10-17 10:10
+
+开始了吗，开始我就去找地方摸鱼了
+
+*****
+
+####  没钱买手办  
+##### 8089#       发表于 2022-10-17 10:10
+
+那张maybe影魔 A畜水人单挑的图还有吗漏油们
+
+*****
+
+####  憧憬鲨  
+##### 8090#       发表于 2022-10-17 10:10
+
+查猪会玩穿山甲吗
+
+*****
+
+####  tengshuo980  
+##### 8091#       发表于 2022-10-17 10:10
+
+相信超哥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  情商  
+##### 8092#         楼主| 发表于 2022-10-17 10:11
+
+开始了吗，开始我就去找地方摸鱼了
+
