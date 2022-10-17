@@ -1697,3 +1697,19 @@ steam现在多半好评，看了下差评感觉还是等制作组修一修吧...
 是另一个金发寡妇</blockquote>
 这游戏能收几个妹子？
 
+
+
+*****
+
+####  bwsusaga  
+##### 152#         楼主| 发表于 2022-10-17 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57962528&amp;ptid=2067291" target="_blank">svmkty 发表于 2022-10-17 22:16</a>
+
+这游戏能收几个妹子？</blockquote>
+还没玩完，
+
+官方说的有二十多名同伴，
+
+我觉的至少能收八九个妹子吧
+
