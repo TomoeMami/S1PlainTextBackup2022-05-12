@@ -675,3 +675,19 @@ cma调查会持续到明年3月，总不能摸到那时候吧<img src="https://s
 
 有血源默认为假好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D-JoeII  
+##### 64#       发表于 2022-10-18 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964181&amp;ptid=2099687" target="_blank">医生狼多 发表于 2022-10-18 00:24</a>
+
+https://twitter.com/millieamand/status/1581967314152366080?t=D_lEbxQncplIs1SyzeeqhQ&amp;s=19
+
+millie A称 ...</blockquote>
+像前面说是挺假的
+
+不公布不代表厂商不能知道,别忘了之前苹果和Epic的官司就爆了不少东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
