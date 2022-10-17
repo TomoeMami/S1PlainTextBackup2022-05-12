@@ -5595,3 +5595,18 @@ SOP是真不知道会不会有了，阿特柔斯操控部分和新武器看起�
 
 之前预告片里那个飞天大水母是北欧神话里的什么玩意
 
+
+
+*****
+
+####  415452356  
+##### 615#       发表于 2022-10-17 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950412&amp;ptid=2025548" target="_blank">popchong 发表于 2022-10-17 10:28</a>
+指的是这个首日补丁解包吧
+
+https://tieba.baidu.com/p/8091830242</blockquote>
+  之前有人脑洞大开说奎爷会不会取代史尔特尔的位置，在火山刷素材就是对应在诸神黄昏倒来之前磨刀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

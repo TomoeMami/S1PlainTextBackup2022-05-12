@@ -5469,3 +5469,494 @@ rng都被lgd碾了一年了，居然还有漏油对春晚有期望？
 —— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 我说的是查理斯以为好对线，理论上远程消耗也是好对线大圣，但是ame对线水平显然他忘了，同时还有个陈保根本耗不动……
 
+
+
+*****
+
+####  nowaki  
+##### 8168#       发表于 2022-10-17 10:31
+
+查理斯司了马了 选的什么玩意打得什么玩意
+
+*****
+
+####  白野苍衣  
+##### 8169#       发表于 2022-10-17 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对线期一过李斯的双头龙就变成酱油了，这怎么玩。
+
+*****
+
+####  Avantasi  
+##### 8170#       发表于 2022-10-17 10:32
+
+查理斯又当A畜**了啊
+
+*****
+
+####  TI三冠王AME  
+##### 8171#       发表于 2022-10-17 10:32
+
+太仓星奴猪果然看到A畜就不当人了
+
+*****
+
+####  TIZI  
+##### 8172#       发表于 2022-10-17 10:32
+
+rngbp直接变形了啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  越动天下  
+##### 8173#       发表于 2022-10-17 10:33
+
+看第二把吧
+
+*****
+
+####  StrangerJ  
+##### 8174#       发表于 2022-10-17 10:33
+
+李斯真的不当人啊
+
+*****
+
+####  少年游不游  
+##### 8175#       发表于 2022-10-17 10:34
+
+李斯何意啊
+
+*****
+
+####  battleship64  
+##### 8176#       发表于 2022-10-17 10:34
+
+下一把下一把
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  w2210059  
+##### 8177#       发表于 2022-10-17 10:34
+
+血脉压制
+
+*****
+
+####  nerugigannte  
+##### 8178#       发表于 2022-10-17 10:34
+
+三兄弟打三兄弟玉玉了
+
+*****
+
+####  莉拉厨  
+##### 8179#       发表于 2022-10-17 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950495&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-17 10:31</a>
+我说的是查理斯以为好对线，理论上远程消耗也是好对线大圣，但是ame对线水平显然他忘了，同时还有个陈保 ...</blockquote>
+理论也不好打的啊，你这个线双头龙技能交完大圣就敢上来干你，而且辅助还是陈，小强屁用没有，换老奶奶来这个线还勉强可以玩。
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  asd235614  
+##### 8180#       发表于 2022-10-17 10:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">和对线水平有个蛋关系双头龙你要消耗就得喷，天天喷兵线那大圣不是兵线想控哪控哪
+
+*****
+
+####  Acatv  
+##### 8181#       发表于 2022-10-17 10:34
+
+唯一翻盘点影魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 8182#       发表于 2022-10-17 10:35
+
+和对线水平有个蛋关系双头龙你要消耗就得喷，天天喷兵线那大圣不是兵线想控哪控哪
+
+*****
+
+####  反方向的波  
+##### 8183#       发表于 2022-10-17 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这把就是dpc第三赛季除沈3号位光法再放送，光法波波波帮对面15控线
+
+*****
+
+####  北欧王座  
+##### 8184#       发表于 2022-10-17 10:35
+
+晦气，傻逼rng。虽然说了没啥指望，但是看到被痛宰也只能说一句恶心。你泰迪被集美喷的亲妈爆炸纯属自找，谁让**自己没打过，活jb该。
+
+*****
+
+####  zhrs456  
+##### 8185#       发表于 2022-10-17 10:35
+
+GG 
+
+*****
+
+####  恐怖利刃  
+##### 8186#       发表于 2022-10-17 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可寄
+
+*****
+
+####  adretyu67  
+##### 8187#       发表于 2022-10-17 10:35
+
+泰迪拿李斯当兄弟，却没想到这兄弟里面早就是仙贝的形状了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 8188#         楼主| 发表于 2022-10-17 10:35
+
+哇，这卜等老奶奶过来了开车 
+
+*****
+
+####  白野苍衣  
+##### 8189#       发表于 2022-10-17 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">寄了，下把
+
+*****
+
+####  Cantha  
+##### 8190#       发表于 2022-10-17 10:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+QQ图片20221017103538.jpg
+(57.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 10:35 上传
+
+<img src="https://img.saraba1st.com/forum/202210/17/103546g0rt1frbokku0rhc.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  43453  
+##### 8191#       发表于 2022-10-17 10:35
+
+集美们别光发水啊，过年红包发一下啊
+
+*****
+
+####  北欧王座  
+##### 8192#       发表于 2022-10-17 10:35
+
+死妈泰迪应该又要被打的一蹶不振开摆了，好似喵
+
+*****
+
+####  StrangerJ  
+##### 8193#       发表于 2022-10-17 10:35
+
+泰迪拿李斯当兄弟，却没想到这兄弟里面早就是仙贝的形状了。https://static.saraba1st.com/image/smiley/face2017/037.png
+
+*****
+
+####  阿垃垃圾历  
+##### 8194#       发表于 2022-10-17 10:36
+
+超哥动手早了 老奶奶大配合才有点机会
+
+*****
+
+####  nightmare902015  
+##### 8195#       发表于 2022-10-17 10:36
+
+李斯还是回去玩你那逼人马dp吧，马尔斯也行，哪个不比这双头龙强啊。
+
+*****
+
+####  fananaf  
+##### 8196#       发表于 2022-10-17 10:36
+
+总感觉sf是版本陷阱
+
+*****
+
+####  nxmonitor  
+##### 8197#       发表于 2022-10-17 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950554&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-17 10:34</a>
+
+理论也不好打的啊，你这个线双头龙技能交完大圣就敢上来干你，而且辅助还是陈，小强屁用没有，换老奶奶来 ...</blockquote>
+所以就是脑子卡壳了，好打大圣只有远程三，剧毒**倒是能耗过陈的但是没了，双头龙看到陈就不可能选出来，说实话不如选个电魂试试……
+
+*****
+
+####  恐怖利刃  
+##### 8198#       发表于 2022-10-17 10:36
+
+这大圣主被动裸bkb也能经济第一的
+
+*****
+
+####  battleship64  
+##### 8199#       发表于 2022-10-17 10:36
+
+手刃哈哈哈
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zhliiiii  
+##### 8200#       发表于 2022-10-17 10:37
+
+查猪这蠢货选的什么jb阵容
+
+*****
+
+####  迷途lite  
+##### 8201#       发表于 2022-10-17 10:37
+
+超哥，我的超哥<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">被a畜手刃了
+
+*****
+
+####  憧憬鲨  
+##### 8202#       发表于 2022-10-17 10:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这打的什么几把
+
+*****
+
+####  jk9hot  
+##### 8203#       发表于 2022-10-17 10:37
+
+三号位双头龙二号位滚滚，好🐍啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  阿垃垃圾历  
+##### 8204#       发表于 2022-10-17 10:37
+
+下一把吧 
+
+*****
+
+####  吃货红毛  
+##### 8205#       发表于 2022-10-17 10:37
+
+查猪在搞耍来自: iPhone客户端
+
+*****
+
+####  battleship64  
+##### 8206#       发表于 2022-10-17 10:37
+
+双头龙是想要清兽王召唤物呀
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  TIZI  
+##### 8207#       发表于 2022-10-17 10:37
+
+超哥玩不玩大畜啊，我之前以为莫言不玩这东西，讲道理克神玩起来都跟天神下凡一样，中单不会玩不合适吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Litccc  
+##### 8208#       发表于 2022-10-17 10:37
+
+李斯就是这样，给自己拿个功能性英雄，输了就是摆烂，反正不是实力问题<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Horusddt  
+##### 8209#       发表于 2022-10-17 10:38
+
+茶猪这双头龙什么熟练度啊就敢往外拿
+
+*****
+
+####  憧憬鲨  
+##### 8210#       发表于 2022-10-17 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也要守尸的吗？脑子瓦特了
+
+*****
+
+####  adretyu67  
+##### 8211#       发表于 2022-10-17 10:38
+
+og打农药搞了个一号位蜘蛛出来，atf又跑去玩他那破**了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+感觉OG是不是可以准备败者组了
+
+*****
+
+####  为了mf注册  
+##### 8212#       发表于 2022-10-17 10:38
+
+rng又给集美递到子是吧<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 8213#       发表于 2022-10-17 10:38
+
+真的有不会玩畜的中单吗
+
+*****
+
+####  万世创伤伊莫库  
+##### 8214#       发表于 2022-10-17 10:38
+
+虽然BP就很有问题，但泰迪这滚滚熟练度感觉有点低
+
+*****
+
+####  12481632  
+##### 8215#       发表于 2022-10-17 10:38
+
+集美们发个红包好吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 8216#       发表于 2022-10-17 10:38
+
+清算名单上加rng全队
+
+*****
+
+####  坚定的团子党  
+##### 8217#       发表于 2022-10-17 10:39
+
+只能说这滚滚、双头龙以后不要玩了
+
+*****
+
+####  憧憬鲨  
+##### 8218#       发表于 2022-10-17 10:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没怎么见过冠超的滚滚啊，感觉就是被b爆了
+
+*****
+
+####  nxmonitor  
+##### 8219#       发表于 2022-10-17 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950617&amp;ptid=2099454" target="_blank">TIZI 发表于 2022-10-17 10:37</a>
+
+超哥玩不玩大畜啊，我之前以为莫言不玩这东西，讲道理克神玩起来都跟天神下凡一样，中单不会玩不合适吧
+
+   ...</blockquote>
+莫言玩的，但是天梯看上去很辣，没有topson一半功力……
+
+*****
+
+####  nowaki  
+##### 8220#       发表于 2022-10-17 10:39
+
+查理斯nmsl 打得什么玩意
+
+
+
+*****
+
+####  jk9hot  
+##### 8221#       发表于 2022-10-17 10:39
+
+RNG玛西畜玩不了就很难走到决赛日，不一轮游就算胜利了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  sodah  
+##### 8222#       发表于 2022-10-17 10:39
+
+集美只会偷偷领生活不如意的红包
+
+*****
+
+####  Asukalangley33  
+##### 8223#       发表于 2022-10-17 10:39
+
+要是打个2:0或者1:1，LGD因此去了败者组
+
+RNG国籍不没了？
+
+该摆的要摆啊
+
+*****
+
+####  nightmare902015  
+##### 8224#       发表于 2022-10-17 10:39
+
+这把是莫言大畜首秀吧，太优了看不出水平。不知道有无顶级儿子在等级经济落后时也能团战中展现巨大破坏力的实力。
+
+*****
+
+####  白野苍衣  
+##### 8225#       发表于 2022-10-17 10:40
+
+李斯这一手基本把LGD抬进胜者组了  吐了
+
+*****
+
+####  银翼的维罗西  
+##### 8226#       发表于 2022-10-17 10:40
+
+RNG真是典型伪强队，强队认真起来一碰就碎
+
+*****
+
+####  幻想风靡_  
+##### 8227#       发表于 2022-10-17 10:40
+
+别光说查猪啊，超哥不也在犯罪
+
+*****
+
+####  zhrs456  
+##### 8228#       发表于 2022-10-17 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57950589&amp;ptid=2099454" target="_blank">fananaf 发表于 2022-10-17 10:36</a>
+
+总感觉sf是版本陷阱</blockquote>
+关SF屁事 下路双头龙乱送线 NA根本走不开 中路滚滚不是被畜（DOTA2英雄）碾着打？SF过了对线期就看着各种塔被带掉了 这双头龙选出来和酱油有任何区别？拿个NA打3都比这强
+
+*****
+
+####  feve9999  
+##### 8229#       发表于 2022-10-17 10:41
+
+打rng就选科研成果是吧
+
+*****
+
+####  ArowRocher  
+##### 8230#       发表于 2022-10-17 10:41
+
+理性分析杨沈仪在抬一手
+
