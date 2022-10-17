@@ -10220,3 +10220,201 @@ ccc哥全网同id啊，不应该，一搜连dota战绩都出来了<img src="http
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  Keynes  
+##### 11789#       发表于 2022-10-17 22:51
+
+我现在完全事烂掉散死死的状态瘫痪在出租屋的床上😭
+
+*****
+
+####  Rorgen  
+##### 11790#       发表于 2022-10-17 22:51
+
+猴子们至今还没意识到他们把23savage和karl搭档的唯一一年献祭给了kuku是多么离谱的一件事
+
+
+
+*****
+
+####  百世诸侯  
+##### 11791#       发表于 2022-10-17 22:51
+
+A黑果然都生活不如意
+
+*****
+
+####  Kazepollar  
+##### 11792#       发表于 2022-10-17 22:52
+
+我现在完全事烂掉散死死的状态瘫痪在出租屋的床上😭
+
+*****
+
+####  walfeds  
+##### 11793#       发表于 2022-10-17 22:52
+
+卡尔哥明年能找哪只队啊，总不见得再回t1被司马ku80吧
+
+*****
+
+####  反方向的波  
+##### 11794#       发表于 2022-10-17 22:53
+
+ 本帖最后由 反方向的波 于 2022-10-17 22:54 编辑 
+
+说到sea就想到亚运会改明年了，就想到断手鞭如果真退役了那西恩队明年123号位都要被🐒压制了
+
+*****
+
+####  情商  
+##### 11795#         楼主| 发表于 2022-10-17 22:53
+
+建议去fnc vote了东南亚a畜打1号位
+
+*****
+
+####  情商  
+##### 11796#         楼主| 发表于 2022-10-17 22:53
+
+建议去fnc vote了东南亚a畜打1号位
+
+*****
+
+####  xuzy0919  
+##### 11797#       发表于 2022-10-17 22:54
+
+建议去fnc vote了东南亚a畜打1号位
+
+*****
+
+####  银翼的维罗西  
+##### 11798#       发表于 2022-10-17 22:54
+
+猴子爹今年再被哥哥送冠看好来年去国外找大腿抱团吊打西恩好吧
+
+*****
+
+####  Rorgen  
+##### 11799#       发表于 2022-10-17 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57963110&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-17 22:53</a>
+说到sea就想到亚运会改明年了，就想到断手鞭如果真退役了那西恩队明年123号位都要被🐒压制了 ...</blockquote>
+fbz还是没有xxs强的
+
+*****
+
+####  莉拉厨  
+##### 11800#       发表于 2022-10-17 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57963059&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-17 22:49</a>
+ccc哥全网同id啊，不应该，一搜连dota战绩都出来了</blockquote>
+我居然在多年前蹭到了超凡哥ccc的好友位，一想到这里本狗头就落泪了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  憧憬鲨  
+##### 11801#       发表于 2022-10-17 22:55
+
+明年组亚运会班子不会真的ame1maybe2吧
+
+*****
+
+####  adretyu67  
+##### 11802#       发表于 2022-10-17 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57963132&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-17 22:54</a>
+
+猴子爹今年再被哥哥送冠看好来年去国外找大腿抱团吊打西恩好吧</blockquote>
+猴爹不会英文，so我看是要被ru水养饱
+
+*****
+
+####  百世诸侯  
+##### 11803#       发表于 2022-10-17 22:55
+
+哦牛批，萨特小团体不装了？拉我进去捡红包当生活费
+
+*****
+
+####  情商  
+##### 11804#         楼主| 发表于 2022-10-17 22:57
+
+哦牛批，萨特小团体不装了？拉我进去捡红包当生活费
+
+*****
+
+####  walfeds  
+##### 11805#       发表于 2022-10-17 22:57
+
+哦牛批，萨特小团体不装了？拉我进去捡红包当生活费
+
+*****
+
+####  StrangerJ  
+##### 11806#       发表于 2022-10-17 22:57
+
+哦牛批，萨特小团体不装了？拉我进去捡红包当生活费
+
+*****
+
+####  莉拉厨  
+##### 11807#       发表于 2022-10-17 22:58
+
+哦陈清一下，ccc哥卜是萨特，没见过本子等级这么低的萨特
+
+<img src="https://img.saraba1st.com/forum/202210/17/225831p8bvbjblvq28eeuo.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2022-10-17 225733.png</strong> (4.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-17 22:58 上传
+
+*****
+
+####  walfeds  
+##### 11808#       发表于 2022-10-17 22:58
+
+好好好，米扣丹砂油扒鸡啊
+
+*****
+
+####  walfeds  
+##### 11809#       发表于 2022-10-17 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57963187&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-17 22:58</a>
+
+哦陈清一下，ccc哥卜是萨特，没见过本子等级这么低的萨特</blockquote>
+懂了，妮才是真正的萨特
+
+*****
+
+####  UnhappyTails  
+##### 11810#       发表于 2022-10-17 22:59
+
+b litcc是狗萨特啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+昨天他跟我说领到我红包还挺高兴，没想到是根本无所谓说着玩的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 11811#         楼主| 发表于 2022-10-17 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57963187&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-17 22:58</a>
+哦陈清一下，ccc哥卜是萨特，没见过本子等级这么低的萨特</blockquote>
+哦牛批，意思是你比233高，你才是真的萨特
+
+*****
+
+####  沈经文  
+##### 11812#       发表于 2022-10-17 23:00
+
+哦牛批，萨特小团体不装了？拉我进去捡红包当生活费
+

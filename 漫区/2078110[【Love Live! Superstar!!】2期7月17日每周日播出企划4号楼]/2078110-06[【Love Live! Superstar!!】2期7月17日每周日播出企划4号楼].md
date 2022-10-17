@@ -10275,3 +10275,12 @@ yamero，super ptsd了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">上次那纸质版也有这质量该多好
 
+
+
+*****
+
+####  llllife  
+##### 8462#       发表于 2022-10-17 23:01
+
+因为鲤鱼tie的十月新番op又回去听了演唱会，真的每一首现场唱的歌都比cd好听，烂铁就不能稍微给点劲吗
+

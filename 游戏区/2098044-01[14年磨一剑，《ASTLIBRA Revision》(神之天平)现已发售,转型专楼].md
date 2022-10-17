@@ -3942,3 +3942,14 @@ https://w.atwiki.jp/astlibra/</blockquote>
 幸运这属性对素材和稀有箱的掉落影响有多大？
 4章我30幸运加盗贼服打完了也只开到1章图纸，回去刷1章图纸全转幸运也是刷了半个多小时没见过稀有箱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雪落白夜  
+##### 365#       发表于 2022-10-17 22:57
+
+第五章的天平托盘在上楼顶打魔王前的场景，清怪后在中间开箱子可得
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
