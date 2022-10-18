@@ -6974,3 +6974,15 @@ img2img有点牛逼的，有些图如果手指难看，可以画点辅助线丢�
 
 牛哇
 
+
+
+*****
+
+####  chelomei  
+##### 12668#       发表于 2022-10-18 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57972712&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-10-18 15:16</a>
+
+基本上怎么加细节怎么生成壁纸，站立绘。怎么把人物扔到床上，怎么进入里番模式各种动作手摆什么姿势也算是 ...</blockquote>
+img2img的瞳色很好办,手动用画图模式画俩琥珀色和蓝色圆点
+
