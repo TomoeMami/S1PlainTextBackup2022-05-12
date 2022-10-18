@@ -7631,3 +7631,187 @@ OG这帮比是真的搞笑，天天搞ceb是吧？
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Rorgen  
+##### 14454#       发表于 2022-10-18 19:11
+
+暗夜魔王盖伦 63736309 声望: JINGZHANG 威望: 学徒 注册: 21-11-19
+2022-10-18 18:57
+     
+
+​
+秘密应该心里很苦吧，拼死拼活小组第二，淘汰赛打lgd
+
+秘密印象里好多次被干爹打进败者组了，哪怕给他选，应该会选eg都不会选干爹哭笑
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 14455#       发表于 2022-10-18 19:12
+
+ceb眼睛做手术是吧
+
+*****
+
+####  蛭人  
+##### 14456#       发表于 2022-10-18 19:12
+
+克里斯尽显南美大drug枭风采
+
+<img src="https://img.saraba1st.com/forum/202210/18/191209ijxfkjyxkfpiofro.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 19:12 上传
+
+*****
+
+####  柚上舍人  
+##### 14457#       发表于 2022-10-18 19:13
+
+独眼卡卡西是吧
+
+*****
+
+####  反方向的波  
+##### 14458#       发表于 2022-10-18 19:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪碧打的烂只赖怨灵之契有点没道理了，打tsm talon都可以在对面出到大祭品前落后十几个人头的，应该是场上至少有三个米莎在打比赛
+
+*****
+
+####  TI三冠王AME  
+##### 14459#       发表于 2022-10-18 19:14
+
+感觉在drug题材美剧里活不过第一季
+
+*****
+
+####  反方向的波  
+##### 14460#       发表于 2022-10-18 19:15
+
+破案了，miposhka和mira也是mi酱
+
+
+
+*****
+
+####  lyjssj  
+##### 14461#       发表于 2022-10-18 19:16
+
+后天rng打克神吗
+
+*****
+
+####  Fam  
+##### 14462#       发表于 2022-10-18 19:16
+
+老图新看。所以要我说，别再集元气弹了
+
+IMG_3447.JPG
+(269.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 19:16 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/191606byj5xeafzas5k5as.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 14463#       发表于 2022-10-18 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976904&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-18 19:09</a>
+
+OG这帮比是真的搞笑，天天搞ceb是吧？</blockquote>
+所以最后yuragi是谁
+
+*****
+
+####  walfeds  
+##### 14464#       发表于 2022-10-18 19:18
+
+mikoto,miracle,midone都是mi酱是吧，可以凑个队了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zeyuhongzhi  
+##### 14465#       发表于 2022-10-18 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976937&amp;ptid=2099454" target="_blank"> Rorgen 发表于 2022-10-18 19:11</a> 暗夜魔王盖伦 63736309 声望: JINGZHANG 威望: 学徒 注册: 21-11-19 2022-10-18 18:57           ​ 秘密应该心里很苦吧，拼死拼活小组第二，淘汰赛打lgd  秘密印象里好多次被干爹打进败者组了，哪怕给他选，应该会选eg都不会选干爹哭笑 </blockquote>
+集美看来对lgd的实力很自信啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  枯风瘦雪02  
+##### 14466#       发表于 2022-10-18 19:19
+
+我就是单纯不喜欢一个游戏前期可以拿出来，直接压30%团队输出的道具设计罢了，为雪碧找补不是我本意
+
+*****
+
+####  蛭人  
+##### 14467#       发表于 2022-10-18 19:20
+
+ 本帖最后由 蛭人 于 2022-10-18 19:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57977014&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-18 19:17</a>
+
+所以最后yuragi是谁</blockquote>
+瑞典丁聪说是宁次。
+
+<img src="https://img.saraba1st.com/forum/202210/18/192021nxehevh33osfkmof.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 19:20 上传
+
+*****
+
+####  人別離苦  
+##### 14468#       发表于 2022-10-18 19:20
+
+今年都没去年看着强，集美这就起跳了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 14469#       发表于 2022-10-18 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57977014&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-18 19:17</a>
+所以最后yuragi是谁</blockquote>
+itachi 鼬
+
+*****
+
+####  白野苍衣  
+##### 14470#       发表于 2022-10-18 19:20
+
+ni公子加油！干死A畜
+
+*****
+
+####  Rorgen  
+##### 14471#       发表于 2022-10-18 19:21
+
+四年ni公子老粉表示，希望今年吴亚超也能混个冠超当当
+
+*****
+
+####  一品堂官  
+##### 14472#       发表于 2022-10-18 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57977059&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-18 19:20</a>
+
+itachi 鼬</blockquote>
+不是说atf 鼬100%么
+
