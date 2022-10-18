@@ -4712,3 +4712,27 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 爱神在哪？目前第八章除了爱神其他神都打过了
 
+
+
+*****
+
+####  A1LI  
+##### 435#       发表于 2022-10-19 01:14
+
+ 本帖最后由 A1LI 于 2022-10-19 01:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981858&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-19 01:11</a>
+
+爱神在哪？目前第八章除了爱神其他神都打过了</blockquote>传送到伊里西昂 门口，然后往左跳。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jy000129| + 2|感谢|
+
+查看全部评分
+
