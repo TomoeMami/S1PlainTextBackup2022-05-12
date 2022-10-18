@@ -4247,3 +4247,17 @@ https://w.atwiki.jp/astlibra/</blockquote>
 第七章第二个小徽章来回几遍没找到，求大佬指点下</blockquote>
 应该是贤者塔3层吧
 
+
+
+*****
+
+####  五块  
+##### 394#       发表于 2022-10-18 08:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964017&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-18 00:04</a>
+
+确实是bug，刚刚更新修了</blockquote>
+早上起来连更两个补丁，估计是我昨天退出游戏后给我更了个有bug的，然后一直没推新的给我。
+
+然后发现这刷素材刷得实在过头了，成长点无可点，地狱难度蛇女两分钟砍死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
