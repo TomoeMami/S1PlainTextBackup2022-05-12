@@ -5913,3 +5913,129 @@ talon上午才2-0entity呢 可不好说
 
 妮这话说的，撸狗猪，撸狗鞭也在场上比赛<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ArowRocher  
+##### 14247#       发表于 2022-10-18 17:33
+
+看外野疫情楼，双修玩家传染病学前十还真不少
+
+*****
+
+####  poipanchao  
+##### 14248#       发表于 2022-10-18 17:33
+
+拿点别的例子就是apex比赛也是一堆日韩人中招导致缺兵少将的，甚至有的队只能出两个人上场
+白皮中招相对少一点
+
+*****
+
+####  zhliiiii  
+##### 14249#       发表于 2022-10-18 17:33
+
+[赛事] 假设ruru当年被热水器扎死，cndota多几冠？   [复制链接]
+
+ 发表于 昨天 20:23 超级玩家官方论坛手机版 | 只看该作者 
+
+*****
+
+####  Suny08  
+##### 14250#       发表于 2022-10-18 17:34
+
+<img src="https://img.saraba1st.com/forum/202210/18/173425snm6uw4xu4p9q4sg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>D7EB88FF-0A59-4171-9822-44FD7D09C46E.jpeg</strong> (51.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 17:34 上传
+
+
+
+*****
+
+####  Rorgen  
+##### 14251#       发表于 2022-10-18 17:34
+
+原来丁真今天被talon血入了吗，那要回到世界最高城理塘了
+
+*****
+
+####  情商  
+##### 14252#         楼主| 发表于 2022-10-18 17:34
+
+别急，都一起司马
+
+*****
+
+####  ArowRocher  
+##### 14253#       发表于 2022-10-18 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975202&amp;ptid=2099454" target="_blank">VanArkride 发表于 2022-10-18 17:19</a>
+lgd这个sb潘飞跟自己队拍了半天vlog自己队员都没事是最神奇的，ame去跟maybe吃饭了也是实锤的，除非你说l ...</blockquote>
+吃饭是张宁说的，但皮鞋自己没进去，所以还是孤证
+
+*****
+
+####  百世诸侯  
+##### 14254#       发表于 2022-10-18 17:35
+
+画z雌被乌克兰人mind broken后现在连东南亚猴儿也可以在水泉进出了
+
+*****
+
+####  莉拉厨  
+##### 14255#       发表于 2022-10-18 17:36
+
+东南雅荣耀之战了，到底会有几个队进TI呢
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 14256#       发表于 2022-10-18 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975465&amp;ptid=2099454" target="_blank">Suny08 发表于 2022-10-18 17:34</a></blockquote>
+啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acg_s1  
+##### 14257#       发表于 2022-10-18 17:37
+
+崩溃哥不擅长多操英雄，什么维萨吉蜘蛛死灵龙都不玩的，吃不到大祭品的红利，这个版本雪碧凉凉了
+
+*****
+
+####  反方向的波  
+##### 14258#       发表于 2022-10-18 17:38
+
+而major蹭冠后回国特意直播某游的撸狗现在在家里：德张哥，快给我介绍新vr.
+
+*****
+
+####  nowaki  
+##### 14259#       发表于 2022-10-18 17:40
+
+今年雪碧一轮游肯定散伙 看好崩溃去na赚大钱
+
+*****
+
+####  哈曼的YY  
+##### 14260#       发表于 2022-10-18 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975503&amp;ptid=2099454" target="_blank">acg_s1 发表于 2022-10-18 17:37</a>
+
+崩溃哥不擅长多操英雄，什么维萨吉蜘蛛死灵龙都不玩的，吃不到大祭品的红利，这个版本雪碧凉凉了 ...</blockquote>
+只有兽王了
+
+*****
+
+####  woyzeck  
+##### 14261#       发表于 2022-10-18 17:41
+
+去na挺好的，混几年说不定还能排绿卡，俄罗斯人绿卡排期应该没那么长吧
+

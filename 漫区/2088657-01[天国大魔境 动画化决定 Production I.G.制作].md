@@ -40,3 +40,14 @@
 
 新星出版社说引进漫画也挺长时间了吧，动画出来前能搞出来吗？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 71#         楼主| 发表于 2022-10-18 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975113&amp;ptid=2088657" target="_blank">M乔梦 发表于 2022-10-18 17:14</a>
+新星出版社说引进漫画也挺长时间了吧，动画出来前能搞出来吗？</blockquote>
+不能，动画会比简中早<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
