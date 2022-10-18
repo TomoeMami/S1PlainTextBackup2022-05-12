@@ -2020,3 +2020,27 @@ NMD怎么呼延灼也是仪式剑72*3
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">次次BX池我都抽 然而至今没抽到 心痛
 
+
+
+*****
+
+####  exiaexa  
+##### 3171#       发表于 2022-10-18 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978638&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-18 21:00</a>
+
+不是第一天就吐槽过么 这破玩意一吃就TMD72X3 简直有病</blockquote>
+没注意啊，刚才我技能点到8才看见
+
+要是知道是72仪式剑我就不抽2宝等复刻了
+
+根本养不起来
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 3172#       发表于 2022-10-18 21:23
+
+好像6加成的队伍我都拿不出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咸鱼了
+
