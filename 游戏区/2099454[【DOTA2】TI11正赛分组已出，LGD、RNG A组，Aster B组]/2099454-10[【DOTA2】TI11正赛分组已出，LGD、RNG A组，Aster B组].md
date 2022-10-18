@@ -5596,3 +5596,320 @@ long covid案例可能不超过1%，哪有这么容易有影响。
 
 我建议你楼讨论什么防疫什么后遗症的移步外野，血别溅到我身上
 
+
+
+*****
+
+####  Crazy_Knife  
+##### 14209#       发表于 2022-10-18 17:23
+
+就很奇怪，茶这么强线上的队伍突然就断电不会打线了，去年下半赛季dpc也是，前面把线优，打到后面连线优都保不住了，把炸，迷得很
+
+*****
+
+####  夜光铃  
+##### 14210#       发表于 2022-10-18 17:23
+
+充分证明你楼物种多样性
+
+*****
+
+####  Rorgen  
+##### 14211#       发表于 2022-10-18 17:23
+
+才发现2000哥在tundra，这个逼抓版本强势还是厉害
+
+*****
+
+####  百世诸侯  
+##### 14212#       发表于 2022-10-18 17:24
+
+<img src="https://img.saraba1st.com/forum/202210/18/172338v9cq1p8q9pm07qk3.jpg" referrerpolicy="no-referrer">
+
+<strong>-3ab3358fe5869fbb.jpg</strong> (65.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-18 17:23 上传
+
+插播一条紧急占卜
+
+*****
+
+####  woyzeck  
+##### 14213#       发表于 2022-10-18 17:24
+
+克神 别搞了 把把出大祭品吧 不出团战手活再好都打不了
+
+*****
+
+####  莉拉厨  
+##### 14214#       发表于 2022-10-18 17:24
+
+怨灵之契就是冰蛙强推的版本bug道具，像雪碧这种死命不出的队最多败者组第二轮好吧
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  枯风瘦雪02  
+##### 14215#       发表于 2022-10-18 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975245&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-18 17:21</a>
+
+现在三号位就是怨灵之契的挂架，三号位不出就是四号位出，有没有什么套路可以破解 ...</blockquote>
+等V社赛后一刀把30%减伤砍到15%
+
+*****
+
+####  情商  
+##### 14216#         楼主| 发表于 2022-10-18 17:24
+
+我建议你楼讨论什么防疫什么后遗症的移步外野，血别溅到我身上
+
+*****
+
+####  zyw0  
+##### 14217#       发表于 2022-10-18 17:24
+
+我这几天一直纳闷lgd是怎么带了十个人去新加坡的。选手领队教练经理心理老师这也才九个人啊。还多一个干嘛的
+
+*****
+
+####  反方向的波  
+##### 14218#       发表于 2022-10-18 17:25
+
+这个不仅是撸狗还是假赛狗，哈人
+
+甚至还吹okE仔的水平，这条在窝心中最为恶劣
+
+*****
+
+####  百世诸侯  
+##### 14219#       发表于 2022-10-18 17:25
+
+这个不仅是撸狗还是假赛狗，哈人
+
+*****
+
+####  赤星ビスコ  
+##### 14220#       发表于 2022-10-18 17:25
+
+ts是打现在a组加赛的3个队的胜者？
+
+
+
+*****
+
+####  Rorgen  
+##### 14221#       发表于 2022-10-18 17:25
+
+丁真加赛应该稳了，打tpii不是把无解肥
+
+*****
+
+####  Rorgen  
+##### 14222#       发表于 2022-10-18 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975321&amp;ptid=2099454" target="_blank">赤星ビスコ 发表于 2022-10-18 17:25</a>
+ts是打现在a组加赛的3个队的胜者？</blockquote>
+也可以挑角斗士
+
+*****
+
+####  外挂全家脚气  
+##### 14223#       发表于 2022-10-18 17:26
+
+编辑
+
+*****
+
+####  依存香炉  
+##### 14224#       发表于 2022-10-18 17:26
+
+什么意思，我怎么感觉这楼里全是sg的高富帅？
+
+*****
+
+####  isla  
+##### 14225#       发表于 2022-10-18 17:26
+
+我只是觉得骂了三天v🐍草台班子结果只有一个队中招确实挺离谱的，我能想到的其实还是rng管理有大问题，不过不在国内也没法调查rng所有人的轨迹
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  莉拉厨  
+##### 14226#       发表于 2022-10-18 17:27
+
+不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">，别变成共存清零大战战场
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 14227#         楼主| 发表于 2022-10-18 17:27
+
+什么意思，我怎么感觉这楼里全是sg的高富帅？
+
+*****
+
+####  非建政专用号  
+##### 14228#       发表于 2022-10-18 17:27
+
+你楼有撸友，原友，管人痴，妮能在sg看到这些？<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fallenwisdom  
+##### 14229#       发表于 2022-10-18 17:27
+
+<blockquote>roxas.sora 发表于 2022-10-18 17:21
+现在三号位就是怨灵之契的挂架，三号位不出就是四号位出，有没有什么套路可以破解 ...</blockquote>
+1号位选先知这种  让先知来出  
+
+反正这版本先知正面能力怎么都抬不起来
+
+*****
+
+####  Asukalangley33  
+##### 14230#       发表于 2022-10-18 17:27
+
+石头人的那个Sneyking我记得从DOTA1时候就在打了吧
+
+大概算是除了puppey以外少有的老B了？
+
+而且李逵WIKI说他是CHINESE，是移民了还是传送中的OOO<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 14231#       发表于 2022-10-18 17:27
+
+你楼有撸友，原友，管人痴，妮能在sg看到这些？
+
+*****
+
+####  赤星ビスコ  
+##### 14232#       发表于 2022-10-18 17:28
+
+这感染真说不准，之前和朋友5个人一起去玩了一个礼拜，中招3个人，剩下两个人说自己从来没中过
+可能真的是体质或者运气吧
+
+*****
+
+####  情商  
+##### 14233#         楼主| 发表于 2022-10-18 17:28
+
+sg撸狗原批管人痴还少了？
+
+*****
+
+####  StrangerJ  
+##### 14234#       发表于 2022-10-18 17:28
+
+纯神比赛怎么还不开始
+
+*****
+
+####  坚定的团子党  
+##### 14235#       发表于 2022-10-18 17:29
+
+去年不也就中国队得病了，外国队逼事没有？人家生活在疫区，长期总结出整套的防疫措施，就国内队伍在国内被保护惯了，一出去还以为在安全区呢，天不怕地不怕瞎逼逛
+
+*****
+
+####  Quark  
+##### 14236#       发表于 2022-10-18 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975323&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-18 17:25</a>
+
+丁真加赛应该稳了，打tpii不是把无解肥</blockquote>
+talon上午才2-0entity呢 可不好说
+
+*****
+
+####  反方向的波  
+##### 14237#       发表于 2022-10-18 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975368&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-18 17:27</a>
+石头人的那个Sneyking我记得从DOTA1时候就在打了吧
+
+大概算是除了puppey以外少有的老B了？</blockquote>
+现在usa了，所以绝活Elieen
+
+*****
+
+####  isla  
+##### 14238#       发表于 2022-10-18 17:30
+
+还是指望下次啥时候赛区轮到亚洲吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Aeons  
+##### 14239#       发表于 2022-10-18 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mira是不是说过决赛前休息时间太长不好？看他打的这b样
+
+*****
+
+####  情商  
+##### 14240#         楼主| 发表于 2022-10-18 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975368&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-18 17:27</a>
+
+石头人的那个Sneyking我记得从DOTA1时候就在打了吧
+
+大概算是除了puppey以外少有的老B了？</blockquote>
+[https://www.bilibili.com/video/B ... 33.788.videocard.17](https://www.bilibili.com/video/BV1v4411Q71a/?spm_id_from=333.788.videocard.17)
+
+*****
+
+####  isla  
+##### 14241#       发表于 2022-10-18 17:30
+
+说错了，轮到中国
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Crazy_Knife  
+##### 14242#       发表于 2022-10-18 17:31
+
+新加坡不是亚洲吗，你要说东亚才算的话其实棒子本子也都差不多
+
+*****
+
+####  nowaki  
+##### 14243#       发表于 2022-10-18 17:31
+
+撸狗和管人痴谁更司马我不好说
+
+*****
+
+####  lyjssj  
+##### 14244#       发表于 2022-10-18 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">别看不起管人，我追的管人还在ti场上比赛呢
+
+*****
+
+####  woyzeck  
+##### 14245#       发表于 2022-10-18 17:32
+
+来个更不和谐的角度，有没有可能是抗体浓度问题。
+
+*****
+
+####  非建政专用号  
+##### 14246#       发表于 2022-10-18 17:32
+
+妮这话说的，撸狗猪，撸狗鞭也在场上比赛<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
