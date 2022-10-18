@@ -1985,3 +1985,38 @@ BX挂上了，感觉应该用不到20np
 
 问题是这个打法同时需要高宝奥伯龙和老教授，不然补刀补到死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 3168#       发表于 2022-10-18 20:53
+
+NMD怎么呼延灼也是仪式剑72*3
+
+现在仪式剑缺口高达72*5-36=324
+
+然后艹本仪式剑掉落率感人
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3169#       发表于 2022-10-18 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978543&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-10-18 20:53</a>
+
+NMD怎么呼延灼也是仪式剑72*3
+
+现在仪式剑缺口高达72*5-36=324
+
+然后艹本仪式剑掉落率感人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是第一天就吐槽过么 这破玩意一吃就TMD72X3 简直有病
+
+*****
+
+####  qixinno2  
+##### 3170#       发表于 2022-10-18 21:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">次次BX池我都抽 然而至今没抽到 心痛
+
