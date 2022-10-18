@@ -2113,3 +2113,15 @@ NMD怎么呼延灼也是仪式剑72*3
 
 问题是满配金时真的不好找啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3180#       发表于 2022-10-18 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57979936&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-18 22:40</a>
+
+又看到一个不换人打法，摩根奥伯龙+满配金时：【FGO超阴间本】红绿双杰 水浒传活动 131 关底71w血剑 BX在天 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶配太恐怖了 倒是bx证明了他绿王的实力  2宝就可以了（不过是6加成换人
+

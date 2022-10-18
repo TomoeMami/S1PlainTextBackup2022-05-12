@@ -10091,3 +10091,70 @@ nts自己都说nisha第一他第二了，看好明天被打爆坐上轮椅。nis
 
 打EG不一直是这个思路，放rtz肥拼命压床，然后等着两兄弟把三一起拖下水
 
+
+
+*****
+
+####  莉拉厨  
+##### 14747#       发表于 2022-10-18 22:46
+
+发现楼上这句主语一改也可以用，什么北美LGD<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DearRye  
+##### 14748#       发表于 2022-10-18 22:46
+
+我操，牛批<img src="https://p.sda1.dev/7/ee9445a73a18af84e9a5da914bba9a82/2a8b3958e9d3eb2f.jpg" referrerpolicy="no-referrer">
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DearRye  
+##### 14749#       发表于 2022-10-18 22:46
+
+ 本帖最后由 DearRye 于 2022-10-18 22:48 编辑 
+
+连击
+
+*****
+
+####  战栗的小六  
+##### 14750#       发表于 2022-10-18 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57979683&amp;ptid=2099454" target="_blank">漂灵 发表于 2022-10-18 22:21</a>
+
+nts自己都说nisha第一他第二了，看好明天被打爆坐上轮椅。nisha的影魔我没啥印象，但是nts好像不会玩好吧。 ...</blockquote>
+是后天
+
+*****
+
+####  夏溪澪mio  
+##### 14751#       发表于 2022-10-18 22:50
+
+痛得睡不着只能打单排<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+管人痴带一带啊，看看管人也好啊
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Bernoulli  
+##### 14752#       发表于 2022-10-18 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57980013&amp;ptid=2099454" target="_blank">DearRye 发表于 2022-10-18 22:46</a>
+
+连击</blockquote>
+南美那块出来的好像挺普遍的，苏亚雷斯当年辩解的时候也说这种说法在他们那里属于习惯用语。
+
+*****
+
+####  憧憬鲨  
+##### 14753#       发表于 2022-10-18 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57980007&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-18 22:46</a>
+发现楼上这句主语一改也可以用，什么北美LGD</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一个男人，他的绰号由三个字母组成，单机细节很好，打钱很快，但是打团水平很差
+那么他是——
+
