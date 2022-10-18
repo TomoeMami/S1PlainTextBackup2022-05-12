@@ -3457,3 +3457,354 @@ rng阳的源头是哪里？LGD经理阳了，队员没事，rng队员全阳<img 
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  迷途lite  
+##### 13932#       发表于 2022-10-18 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57974029&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-18 16:21</a>
+女装是去年dpc第一cos风行至宝，哥
+
+—— 来自 S1Fun</blockquote>
+那次之前就有女装c的梗了吧
+
+*****
+
+####  Rorgen  
+##### 13933#       发表于 2022-10-18 16:21
+
+pakazs还是强，小组赛唯一能拿飞机赢比赛的C
+小电锤，西内！
+
+*****
+
+####  外挂全家脚气  
+##### 13934#       发表于 2022-10-18 16:22
+
+行吧，茶这把感觉是没了
+
+*****
+
+####  Crazy_Knife  
+##### 13935#       发表于 2022-10-18 16:22
+
+粉碎啊，茶队不想打了是吧
+
+*****
+
+####  nxmonitor  
+##### 13936#       发表于 2022-10-18 16:22
+
+茶这把赢不了很危险啊，TS不要苟进胜者组了吧……<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 13937#       发表于 2022-10-18 16:22
+
+茶已经是在随便玩了吧
+
+*****
+
+####  TI三冠王AME  
+##### 13938#       发表于 2022-10-18 16:22
+
+TI7那年就有杜鹏白丝图好吧
+
+*****
+
+####  StrangerJ  
+##### 13939#       发表于 2022-10-18 16:23
+
+ta要赢了，雪碧怎么都是败者组了吧
+
+*****
+
+####  syndrome2032  
+##### 13940#       发表于 2022-10-18 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57973969&amp;ptid=2099454" target="_blank">MisakaMikoto 发表于 2022-10-18 16:18</a>
+茶第二把输雪碧，然后另一边bc再赢一把TA，fnc再赢一把tsm。
+然后雪碧，bc，TA，fnc四队同分，明天再打一天 ...</blockquote>
+bc被ta碾了。剧本没了。
+
+安心去打生死局bo1吧
+
+*****
+
+####  萧千绝  
+##### 13941#       发表于 2022-10-18 16:23
+
+茶怎么这么喜欢强冲下一塔抓人，我这俩天看到过好多次他们强冲塔被几张tp打崩了
+
+*****
+
+####  反方向的波  
+##### 13942#       发表于 2022-10-18 16:23
+
+南美doto要首次挺进ti胜者组了
+
+*****
+
+####  Litccc  
+##### 13943#       发表于 2022-10-18 16:23
+
+谷爱凌有点厉害
+
+*****
+
+####  迷途lite  
+##### 13944#       发表于 2022-10-18 16:24
+
+稀碎
+
+*****
+
+####  非建政专用号  
+##### 13945#       发表于 2022-10-18 16:24
+
+怪0大招拉满
+
+*****
+
+####  xz_04  
+##### 13946#       发表于 2022-10-18 16:24
+
+可寄<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NaYo丶  
+##### 13947#       发表于 2022-10-18 16:24
+
+bc玛西谜团sf阵容要输了绷不住了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 13948#       发表于 2022-10-18 16:24
+
+中单小小就是废物英雄，那把曾焦阳能赢纯纯的运气
+
+*****
+
+####  银翼的维罗西  
+##### 13949#       发表于 2022-10-18 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57974007&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-18 16:20</a>
+
+看来阵容确实没问题</blockquote>
+差多了，宙斯都输出大概比帕克高了两个量级吧，我想雪碧已经在思考怎么破解减伤体系了
+
+*****
+
+####  StrangerJ  
+##### 13950#       发表于 2022-10-18 16:24
+
+败者组56同分要加赛吗？
+
+
+
+*****
+
+####  Rorgen  
+##### 13951#       发表于 2022-10-18 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57974097&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-18 16:24</a>
+差多了，宙斯都输出大概比帕克高了两个量级吧，我想雪碧已经在思考怎么破解减伤体系了 ...</blockquote>
+宙斯火女
+
+*****
+
+####  izayoi39  
+##### 13952#       发表于 2022-10-18 16:25
+
+xxs这蜘蛛打得太差了，导致连锁反应了
+
+*****
+
+####  Rorgen  
+##### 13953#       发表于 2022-10-18 16:25
+
+这么看A组真的很弱，eg百分百要选爹的
+
+*****
+
+####  Crazy_Knife  
+##### 13954#       发表于 2022-10-18 16:26
+
+xxs的蜘蛛真的不行，不知道为啥抓着选
+
+*****
+
+####  NaYo丶  
+##### 13955#       发表于 2022-10-18 16:26
+
+雪碧落泪了。无效胜利
+真的搞他前几天那么多1-1 九分败者组
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  朝奈  
+##### 13956#       发表于 2022-10-18 16:27
+
+茶这两天每天就赢一把
+
+淘汰赛也难
+
+争取调整吧
+
+*****
+
+####  石狮鬼  
+##### 13957#       发表于 2022-10-18 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上把赢也是赢一手阵容克制 毒狗这英雄真是赖皮中的赖皮 我觉得正赛会很有机会
+
+*****
+
+####  枯风瘦雪02  
+##### 13958#       发表于 2022-10-18 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57974121&amp;ptid=2099454" target="_blank">Crazy_Knife 发表于 2022-10-18 16:26</a>
+
+xxs的蜘蛛真的不行，不知道为啥抓着选</blockquote>
+现在三号位选任何英雄都只看能不能速大怨灵
+
+*****
+
+####  憧憬鲨  
+##### 13959#       发表于 2022-10-18 16:27
+
+什么时候出败者组对阵表
+
+*****
+
+####  izayoi39  
+##### 13960#       发表于 2022-10-18 16:27
+
+茶队现在这状态主要就是xxs后面这两天状态很差，把把线上被打穿，之前都是他1打2的
+
+*****
+
+####  a1370303  
+##### 13961#       发表于 2022-10-18 16:28
+
+茶队直接摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  bluebaby  
+##### 13962#       发表于 2022-10-18 16:28
+
+尼玛茶这把明演了是吧，急着下班
+
+*****
+
+####  proselyte  
+##### 13963#       发表于 2022-10-18 16:28
+
+某种程度上也挺厉害的
+
+跟谁都能1-1
+
+*****
+
+####  哈曼的YY  
+##### 13964#       发表于 2022-10-18 16:28
+
+什么玩意 茶队还情谊一局？
+
+*****
+
+####  莉拉厨  
+##### 13965#       发表于 2022-10-18 16:28
+
+怒摆，谢谢阿茶让我专心看克神挨打
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Crazy_Knife  
+##### 13966#       发表于 2022-10-18 16:28
+
+明摆着混完下班啊，后面根本就是乱打
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 13967#       发表于 2022-10-18 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57974121&amp;ptid=2099454" target="_blank">Crazy_Knife 发表于 2022-10-18 16:26</a>
+xxs的蜘蛛真的不行，不知道为啥抓着选</blockquote>
+能出怨灵的就那么几个
+
+*****
+
+####  非建政专用号  
+##### 13968#       发表于 2022-10-18 16:29
+
+窝克什么时候把sf藏起来
+
+*****
+
+####  夜光铃  
+##### 13969#       发表于 2022-10-18 16:29
+
+茶早点休息调整吧，这状态胜者组也走不远
+
+*****
+
+####  Keynes  
+##### 13970#       发表于 2022-10-18 16:29
+
+茶茶好好看看这几天的录像调整一下吧，今年能混个六强就是胜利！
+
+*****
+
+####  憧憬鲨  
+##### 13971#       发表于 2022-10-18 16:30
+
+克神现在有机会玩风行吗
+
+*****
+
+####  越动天下  
+##### 13972#       发表于 2022-10-18 16:30
+
+TA这不赢了
+
+*****
+
+####  Rorgen  
+##### 13973#       发表于 2022-10-18 16:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57974207&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-18 16:30</a>
+克神现在有机会玩风行吗</blockquote>
+可以败者组bo1风行回家
+
+*****
+
+####  syndrome2032  
+##### 13974#       发表于 2022-10-18 16:30
+
+tsm和talon2分丢的太伤。1-1太多。
+
+现在就指望放毒队选个爹一轮败者组再见了。
+
+*****
+
+####  Litccc  
+##### 13975#       发表于 2022-10-18 16:31
+
+茶队打完major不是还和雪碧团建了么，估计是稳定胜者组了情谊一把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

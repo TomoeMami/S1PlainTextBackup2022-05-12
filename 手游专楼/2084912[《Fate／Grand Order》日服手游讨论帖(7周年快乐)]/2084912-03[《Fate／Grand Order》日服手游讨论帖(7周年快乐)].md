@@ -1739,3 +1739,24 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 你整一堆带头衔的给他，他就要开始随机选中几位幸运儿发病了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3147#       发表于 2022-10-18 16:31
+
+<img src="https://img.saraba1st.com/forum/202210/18/162134cepx7dvxyj8ve7vx.jpg" referrerpolicy="no-referrer">
+
+<strong>ab8b409a52366dcab9a74d0659a91cdcec883224_raw.jpg</strong> (62.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 16:21 上传
+
+又又又有舅舅爆料了，是这次圣诞活动的内容，圆桌组相关的剧情，阿格规文历经5年终于实装（常驻这一点还蛮真实的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">），然后夏活去北极游泳，圣诞up泳装小莫这个有点搞...赠送四星是AE阶的王姐Lily，第三位武内脸圣诞老人。
+
+这次剧透连活动素材都说了，感觉可能性也不小...
+
+我记得蘑菇当时因为奥伯龙伏提庚被剧透还挺生气，如今四个爆了很多料的大舅哥贴脸剧透，不知道木野子现在感觉如何？感觉如何了？！
+

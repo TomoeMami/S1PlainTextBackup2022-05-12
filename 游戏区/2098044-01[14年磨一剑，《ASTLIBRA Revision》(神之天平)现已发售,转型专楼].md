@@ -4445,3 +4445,21 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 剩下还有东京的宝石  东京和家乡一个小徽章找不到
 
+
+
+*****
+
+####  帆影FX  
+##### 412#       发表于 2022-10-18 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57973506&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-18 15:53</a>
+
+剩下还有东京的宝石  东京和家乡一个小徽章找不到</blockquote>
+东京的宝石应该是在有岩浆的那个控制台旁边，电梯向上然后向右，再跳下来往左走
+
+我记得小徽章应该是都是在宝箱里面，开着嘉隆的鼻子应该能看到提示
+
+东京的小徽章应该是在研究所前台那，右上角有个开关
+
+家乡的应该是往右边在一开始来的地图那边
+
