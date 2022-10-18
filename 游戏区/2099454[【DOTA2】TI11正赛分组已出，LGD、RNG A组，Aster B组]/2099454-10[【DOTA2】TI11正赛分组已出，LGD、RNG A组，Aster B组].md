@@ -10379,3 +10379,82 @@ rtz八天打了100把天梯，说不定这次dota之神选择他了
 
 我真的想不出rtz进化的场面，感觉他打团a地板都a不明白
 
+
+
+*****
+
+####  lmslardar  
+##### 14782#       发表于 2022-10-18 23:44
+
+rtz打得我觉得还是有问题，淘汰赛一定会爆发的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67  
+##### 14783#       发表于 2022-10-18 23:44
+
+雪碧ti11vlog2出了，时间只有第一天和第二天
+
+总结：输了就是bp没做好，对线没对好，打团犯错了。自己也对6-4的成绩不满意。
+
+感觉。。。和boom的生死bo1要完了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 14784#       发表于 2022-10-18 23:45
+
+【ALL TEAMS intros on The International 2022-哔哩哔哩】 https://b23.tv/chxpUgo
+感觉是拍过入场照片才讨论火影的 bzm和insania都是中二病石锤了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  TIZI  
+##### 14785#       发表于 2022-10-18 23:47
+
+rtz能进决赛日那队友要把4赵云，rtz送起来也能拿下才行
+不过nightfall没有赵云的画面啊，abed也是个欺软怕硬的软脚虾
+看好eg被打烂
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  北欧王座  
+##### 14786#       发表于 2022-10-18 23:47
+
+我摊牌了，我是eg黑。eg哪怕小组赛18比0我也觉得他拿不了冠军。实在是rtz这个逼软脚了这么多年，没办法不觉得他菜
+
+*****
+
+####  希望之花  
+##### 14787#       发表于 2022-10-18 23:47
+
+我超雪碧怎么掉败者组了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+还有这个赛程要是茶队第一轮输了就很难受啊
+
+*****
+
+####  ArowRocher  
+##### 14788#       发表于 2022-10-18 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57980840&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-18 23:45</a>
+【ALL TEAMS intros on The International 2022-哔哩哔哩】 https://b23.tv/chxpUgo
+感觉是拍过入场照片才 ...</blockquote>
+官方的？太难听了
+
+*****
+
+####  利剑Crazy-88  
+##### 14789#       发表于 2022-10-18 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57980416&amp;ptid=2099454" target="_blank">苏沃雷生 发表于 2022-10-18 23:18</a>
+
+北美A畜为什么是中国女婿，大爹为什么是瘾君子，顶儿子为什么是杀人犯？这不都一个道理嘛，还不是北美A畜当 ...</blockquote>
+我提醒一下，顶儿子=变态虾仁饭真的是lxo团队决策，而且作为冠军小偷5人组每个人对位都是对标的。厨子上帝对标的才是A畜，至于虾仁饭，要不问问那个中了剧毒大的人吧？
+
