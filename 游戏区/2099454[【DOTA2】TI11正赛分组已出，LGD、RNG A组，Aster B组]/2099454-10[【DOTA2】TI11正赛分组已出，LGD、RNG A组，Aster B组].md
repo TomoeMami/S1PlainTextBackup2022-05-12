@@ -8541,3 +8541,322 @@ ti3吧，也是棋技哥
 
 Rng要打ett啊，看超哥他们恢复得怎么样了，感觉能有7成以上就还有得打
 
+
+
+*****
+
+####  ArowRocher  
+##### 14561#       发表于 2022-10-18 20:22
+
+<img src="https://p.sda1.dev/7/27348292d7bc711caa3e5353fc3dfa87/CMP_20221018202215294.jpg" referrerpolicy="no-referrer">
+
+感觉LGD未必打得过秘密 RNG看状态，茶还好
+
+*****
+
+####  柚上舍人  
+##### 14562#       发表于 2022-10-18 20:23
+
+不对，忘了还有个橘子战队，貌似还有A盾哥的zenith
+
+*****
+
+####  nowaki  
+##### 14563#       发表于 2022-10-18 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">我心爱的露米神和克神第一轮就要回家一个了
+
+*****
+
+####  Crazy_Knife  
+##### 14564#       发表于 2022-10-18 20:24
+
+茶队打液体应该是不错的对阵了，打现在的eg搞不好20分钟就被杀崩盘了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 14565#       发表于 2022-10-18 20:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是吧，就今年的秘密你们也能吹的起来？秘密要是能掀翻干瘪我在你楼抽红包
+
+*****
+
+####  adretyu67  
+##### 14566#       发表于 2022-10-18 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978066&amp;ptid=2099454" target="_blank">柚上舍人 发表于 2022-10-18 20:23</a>
+
+不对，忘了还有个橘子战队，貌似还有A盾哥的zenith</blockquote>
+kyxy在orange，zenith是伞兵
+
+*****
+
+####  非建政专用号  
+##### 14567#       发表于 2022-10-18 20:24
+
+南美人可以开骂了，理论上南美三雄第二轮就可以两内战死的剩一个了
+
+*****
+
+####  北欧王座  
+##### 14568#       发表于 2022-10-18 20:24
+
+完美剧本是rng好起来然后ta和eg狂宰lgd，掉入败者组真春晚大战rng完成救赎。a畜永不翻身
+
+*****
+
+####  莉拉厨  
+##### 14569#       发表于 2022-10-18 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978056&amp;ptid=2099454" target="_blank">ArowRocher 发表于 2022-10-18 20:22</a>
+感觉LGD未必打得过秘密 RNG看状态，茶还好</blockquote>
+雪碧过完boom要打干爹/秘密败者，节目效果来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  端木恋心  
+##### 14570#       发表于 2022-10-18 20:25
+
+秘密那状态真感觉赢不了lgd。
+
+*****
+
+####  ArowRocher  
+##### 14571#       发表于 2022-10-18 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978078&amp;ptid=2099454" target="_blank">ninini212 发表于 2022-10-18 20:24</a>
+不是吧，就今年的秘密你们也能吹的起来？秘密要是能掀翻干瘪我在你楼抽红包 ...</blockquote>
+利雅得速通过，比前天eg还快
+
+*****
+
+####  Rorgen  
+##### 14572#       发表于 2022-10-18 20:25
+
+小组赛不是老干鳖状态比秘密差很多吗
+
+*****
+
+####  Asukalangley33  
+##### 14573#       发表于 2022-10-18 20:26
+
+EG爆杀TA
+
+秘密 LGD感觉4,6开
+
+石头人可能被OG血脉克制
+
+茶和李逵不好说，但是国土脑瘫BP可能被马桶哥一手中路英雄打烂
+
+*****
+
+####  Rorgen  
+##### 14574#       发表于 2022-10-18 20:26
+
+液体你就当西欧xg看，瑞典张成俊瑞典丁聪，阳痿和是sszai，aster打xg还是颇有心得的
+
+*****
+
+####  赤星ビスコ  
+##### 14575#       发表于 2022-10-18 20:26
+
+这对阵感觉超哥又会是熟悉的败者组一轮游的节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 14576#       发表于 2022-10-18 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978085&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-18 20:24</a>
+雪碧过完boom要打干爹/秘密败者，节目效果来了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1N ...</blockquote>
+ti10冠军盾还在转寄中<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roger_goodell  
+##### 14577#       发表于 2022-10-18 20:27
+
+雪碧过了boom的话，接下来会打lgd和秘密的败者<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cwlo  
+##### 14578#       发表于 2022-10-18 20:27
+
+秘密好赢的，NTS碰到NISHA稳定尿裤
+
+*****
+
+####  百世诸侯  
+##### 14579#       发表于 2022-10-18 20:27
+
+<blockquote>ninini212 发表于 2022-10-18 20:24
+不是吧，就今年的秘密你们也能吹的起来？秘密要是能掀翻干瘪我在你楼抽红包 ...</blockquote>
+秘密没去年猛，干瘪同理，谁也别瞧不起谁，利雅得交锋秘密还大比分3:2干瘪呢
+
+*****
+
+####  nowaki  
+##### 14580#       发表于 2022-10-18 20:27
+
+雪碧打不过boom的
+
+
+
+*****
+
+####  蛭人  
+##### 14581#       发表于 2022-10-18 20:28
+
+凭什么完虐LGD夺冠的版本的秘密不被看好，这就是LGD的待遇吗，永远硬实力第一？看好鲁迅版本的秘密。
+
+*****
+
+####  lyjssj  
+##### 14582#       发表于 2022-10-18 20:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">秘密早上打茶两把我看了感觉是这样
+
+阿茶是纯梦游，我还以为茶也新冠了
+
+秘密是感觉比茶好点但有限，到20分钟以后突然畏畏缩缩了，领先1w不知道在干嘛，要不是对开5摸奖碰到了队伍最后的monet应该会被翻盘
+
+*****
+
+####  恐怖利刃  
+##### 14583#       发表于 2022-10-18 20:28
+
+这rng不是铁没了
+
+*****
+
+####  seki_m  
+##### 14584#       发表于 2022-10-18 20:28
+
+秘密状态差吗？lgd状态好？就算没进化也能46开吧
+
+*****
+
+####  非建政专用号  
+##### 14585#       发表于 2022-10-18 20:28
+
+今年内战难度最高的应该是cis区，再下来就是sea区了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 14586#       发表于 2022-10-18 20:29
+
+核中核消息，纯皇是拳击信徒，已经提前打好招呼ti打完就去踢了水晶，所以entity军心涣散才打这么差
+
+*****
+
+####  a1370303  
+##### 14587#       发表于 2022-10-18 20:29
+
+希望大后天银K 的bp不要整蛊，还有机会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+FfWglbkUoAAQyyi.jpg
+(322.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 20:27 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/202744ak45stf0k0z44hp4.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 14588#       发表于 2022-10-18 20:29
+
+这下纯真大战邪恶了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 14589#       发表于 2022-10-18 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪碧boom bo1，我感觉除非雪碧这两天好好调整，不然应该回家了
+
+*****
+
+####  百世诸侯  
+##### 14590#       发表于 2022-10-18 20:29
+
+本子预测可以填了吗
+
+*****
+
+####  情商  
+##### 14591#         楼主| 发表于 2022-10-18 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978066&amp;ptid=2099454" target="_blank">柚上舍人 发表于 2022-10-18 20:23</a>
+
+不对，忘了还有个橘子战队，貌似还有A盾哥的zenith</blockquote>
+》？
+
+*****
+
+####  lyjssj  
+##### 14592#       发表于 2022-10-18 20:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">rng打纯真神，那大概后天真的是rng受难日了
+
+*****
+
+####  越动天下  
+##### 14593#       发表于 2022-10-18 20:30
+
+都什么时候打呀 有无时间
+
+*****
+
+####  Suny08  
+##### 14594#       发表于 2022-10-18 20:30
+
+A组四个队估计要被b组全部打下去
+
+*****
+
+####  银翼的维罗西  
+##### 14595#       发表于 2022-10-18 20:30
+
+相信micke，相信骄阳
+
+*****
+
+####  你可以试试  
+##### 14596#       发表于 2022-10-18 20:30
+
+秘密比预期好，本来都觉得是会在外卡淹死的
+
+*****
+
+####  yourSwaTer  
+##### 14597#       发表于 2022-10-18 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">哪怕超哥回家了我也不黑他了
+
+*****
+
+####  belldandy_ye  
+##### 14598#       发表于 2022-10-18 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57977763&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-18 20:04</a>
+
+马甲疯了吧，拉希克 tb越来越弱？</blockquote>
+这两个打屠夫马西当然是越来越弱，前面都没装备的时候还能扛过咬或者怒拳破，打到后面无论出什么都没用，只能靠队友抬，被对面稍微拉扯一下就是死人.
+
+*****
+
+####  ysasz  
+##### 14599#       发表于 2022-10-18 20:31
+
+完犊子，这下RNG真拿了去年小象的剧本
+

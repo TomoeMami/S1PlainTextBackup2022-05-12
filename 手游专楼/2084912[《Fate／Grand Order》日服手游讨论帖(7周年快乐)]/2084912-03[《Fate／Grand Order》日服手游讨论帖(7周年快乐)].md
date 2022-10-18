@@ -1956,3 +1956,32 @@ BX挂上了，感觉应该用不到20np
 
 只有我用教授吗，这次6加成倒是挺简单
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3165#       发表于 2022-10-18 20:27
+
+有个满破黑杯要三回合还是比较容易的
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DARKGRAY  
+##### 3166#       发表于 2022-10-18 20:28
+
+现在是茶壶阵容比较急需<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 3167#       发表于 2022-10-18 20:32
+
+找了一圈几乎没有不换人的<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+唯一看到的一个是老教授+双奥伯龙，一面教授技能全开+两个夜之帷幕打狗，二面一个高宝蛾子对自己用三技能清场，三面奥伯龙给教授三技能+衣服buff。
+
+问题是这个打法同时需要高宝奥伯龙和老教授，不然补刀补到死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
