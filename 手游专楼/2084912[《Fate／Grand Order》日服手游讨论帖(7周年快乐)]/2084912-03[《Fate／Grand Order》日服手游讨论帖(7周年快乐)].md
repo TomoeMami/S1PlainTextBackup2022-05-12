@@ -1846,3 +1846,41 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 不过如果2.7剧透也是假的那就更搞笑了...
 
+
+
+*****
+
+####  exiaexa  
+##### 3155#       发表于 2022-10-18 18:13
+
+三个艹本之后的感想
+
+教练我想抽金时
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3156#       发表于 2022-10-18 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976082&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-10-18 18:13</a>
+
+三个艹本之后的感想
+
+教练我想抽金时</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗什么蛋 不是bx吗  绿王降临啊（ 1宝bx第3面差个2-3万伤害稳定3t
+
+听说狗蛋这次伤害不够 当然我也没狗蛋不好说
+
+*****
+
+####  alucardcz  
+##### 3157#       发表于 2022-10-18 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976082&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-10-18 18:13</a>
+
+三个艹本之后的感想
+
+教练我想抽金时</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大佬有没有2宝+的bx 挂个50np的礼装
+
