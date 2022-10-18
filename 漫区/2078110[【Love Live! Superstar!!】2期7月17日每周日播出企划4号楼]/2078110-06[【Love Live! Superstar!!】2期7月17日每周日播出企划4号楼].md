@@ -10406,3 +10406,26 @@ v2-5079b8a614ce2c659a81a3ed3a4718df_r.jpg
 
 2022-10-18 11:07 上传
 
+
+
+*****
+
+####  plazum  
+##### 8470#       发表于 2022-10-18 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964354&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-18 00:50</a>
+
+鲤鱼写真分类：教材
+
+这张图好像没看专楼有人发过。</blockquote>
+日本LSP：我这是在学外语呢！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 8471#       发表于 2022-10-18 11:31
+
+梦里真是啥都有，昨天晚上做了一晚上梦，在梦里编排星二的剧情，虽然一醒过来就忘完了只记得“我做了一个关于星团的梦”这点印象了，但昨晚确实做了个相当充实相当爽的梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
