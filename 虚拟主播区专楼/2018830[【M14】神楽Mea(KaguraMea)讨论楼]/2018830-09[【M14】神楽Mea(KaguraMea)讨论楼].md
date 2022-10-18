@@ -6830,3 +6830,12 @@ lol瘾来了，又开始玩了
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  路人庚  
+##### 12660#       发表于 2022-10-18 12:06
+
+这下塔姆亲了
+
