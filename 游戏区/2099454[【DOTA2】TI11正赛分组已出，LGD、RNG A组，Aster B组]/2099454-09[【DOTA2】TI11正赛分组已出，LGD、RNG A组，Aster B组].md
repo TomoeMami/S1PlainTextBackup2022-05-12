@@ -1805,3 +1805,313 @@ ti11的ts sf和ti5一样风头无两，但几个猫是彻底遭重了
 
 TS今天又是仰仗崩溃的一天，太好了。
 
+
+
+*****
+
+####  Keynes  
+##### 12219#       发表于 2022-10-18 10:51
+
+哇，这ppy快刷新球了，真能扣啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 12220#       发表于 2022-10-18 10:51
+
+这ts是不是真要滚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉茶和ts这两个要死磕了呀
+
+*****
+
+####  asd235614  
+##### 12221#       发表于 2022-10-18 10:52
+
+K1这拜年剑法斩小鹿看着太喜感了
+
+*****
+
+####  tengshuo980  
+##### 12222#       发表于 2022-10-18 10:52
+
+缓慢一刀看笑了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nxmonitor  
+##### 12223#       发表于 2022-10-18 10:52
+
+还好秘密也是会犯病的，只是拖到后期茶会变得越来越脑浆……
+
+*****
+
+####  哈曼的YY  
+##### 12224#       发表于 2022-10-18 10:52
+
+ts抓着有两条命的sf和骷髅王打啊 被灭了吧
+
+*****
+
+####  IG.430  
+##### 12225#       发表于 2022-10-18 10:52
+
+secret的四号位真的很难玩，珍惜每一个secret的四号位吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 12226#       发表于 2022-10-18 10:53
+
+为啥大圣一个源自中国文化的英雄玩的好都是外国人？
+
+*****
+
+####  nxmonitor  
+##### 12227#       发表于 2022-10-18 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57967629&amp;ptid=2099454" target="_blank">qty 发表于 2022-10-18 10:53</a>
+
+为啥大圣一个源自中国文化的英雄玩的好都是外国人？</blockquote>
+多少年不看比赛了？<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 12228#       发表于 2022-10-18 10:54
+
+感觉雪碧已经晕了 喜欢和骷髅王大招换命
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 12229#       发表于 2022-10-18 10:55
+
+谜团打沉默，昨天rng不就证明没得打
+
+*****
+
+####  憧憬鲨  
+##### 12230#       发表于 2022-10-18 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57967573&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-18 10:50</a>
+我还是不理解为什么都喜欢前两手点谜团，然后回来第二轮不ban沉默</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为现在谜团不是只有一个大啊，你只想着关他大招十几分钟谜团就带着怨灵之契和一大堆儿子来搞拆迁了
+
+*****
+
+####  Keynes  
+##### 12231#       发表于 2022-10-18 10:55
+
+鳖尬黑，宇宙第一大圣是a醋
+
+*****
+
+####  IG.430  
+##### 12232#       发表于 2022-10-18 10:55
+
+你说这话我都想笑
+
+*****
+
+####  StrangerJ  
+##### 12233#       发表于 2022-10-18 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57967655&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-18 10:55</a>
+谜团打沉默，昨天rng不就证明没得打</blockquote>
+茶自己证明了可以打<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">笑死
+
+*****
+
+####  Asukalangley33  
+##### 12234#       发表于 2022-10-18 10:56
+
+茶想象的画面应该是火猫 先知切沉默逼他放大
+
+事实是TS往前排一站，无敌了
+
+*****
+
+####  walfeds  
+##### 12235#       发表于 2022-10-18 10:56
+
+萧 门 弄 圣！
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 12236#       发表于 2022-10-18 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57967662&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-18 10:55</a>
+鳖尬黑，宇宙第一大圣是a醋</blockquote>
+ts是尊重了的。。。昨天rng<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  吃货红毛  
+##### 12237#       发表于 2022-10-18 10:56
+
+谜团大真就核威慑呗
+
+*****
+
+####  nxmonitor  
+##### 12238#       发表于 2022-10-18 10:57
+
+谜团可以试着用船长打，顺便能把兽王蜘蛛之类的都关了，只是需要配合一个中单C，估计淘汰赛能看到……
+
+*****
+
+####  IG.430  
+##### 12239#       发表于 2022-10-18 10:57
+
+reso给我宰！
+
+*****
+
+####  苏沃雷生  
+##### 12240#       发表于 2022-10-18 10:57
+
+LGD最强的时候
+
+
+
+*****
+
+####  Keynes  
+##### 12241#       发表于 2022-10-18 10:57
+
+gg<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhliiiii  
+##### 12242#       发表于 2022-10-18 10:57
+
+笑死，沉默都刷新了，谜团还没大过
+
+*****
+
+####  憧憬鲨  
+##### 12243#       发表于 2022-10-18 10:57
+
+打成这样谜团肯定就是被沉默关的，就好像选个蓝猫打成劣势了就会被小歪莱恩关一样
+
+*****
+
+####  izayoi39  
+##### 12244#       发表于 2022-10-18 10:58
+
+都发现谜团会被沉默管，还放沉默是蛇皮啊
+
+*****
+
+####  银翼的维罗西  
+##### 12245#       发表于 2022-10-18 10:58
+
+沉默就是个顺风英雄，一旦逆风就是三无提款机，茶这个阵容就是要打优势局的，打出优势就是捉着沉默提了
+
+*****
+
+####  Rorgen  
+##### 12246#       发表于 2022-10-18 10:58
+
+这版本蜘蛛还是要跟33 nightfall这么玩
+
+*****
+
+####  nxmonitor  
+##### 12247#       发表于 2022-10-18 10:59
+
+因为现在的谜团是出怨灵之契的，换个传统的思路BKB大鞋或许可以？不过现在大鞋很弱啊……
+
+*****
+
+####  TI三冠王AME  
+##### 12248#       发表于 2022-10-18 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">根据我的观察，茶队目前的问题是野王状态不行了，前期很吃野王打技能衔接打优势，结果野王现在线上也摆了
+
+*****
+
+####  seki_m  
+##### 12249#       发表于 2022-10-18 10:59
+
+这阵容除了谜团压根没爆发，宝都押在谜团上还放了个沉默，怎么选的
+
+*****
+
+####  吃货红毛  
+##### 12250#       发表于 2022-10-18 10:59
+
+这小组赛真是把谜团啊
+
+*****
+
+####  a1370303  
+##### 12251#       发表于 2022-10-18 11:00
+
+焦阳焦阳，哭爹喊娘<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Crazy_Knife  
+##### 12252#       发表于 2022-10-18 11:00
+
+火猫现在是真不行，24状态也不太对，鹏子的先知玩得也不怎么样，飞过去送挺离谱的，感觉全队都跟没睡醒一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhliiiii  
+##### 12253#       发表于 2022-10-18 11:00
+
+野王这小小 反应比昨天胡良智还慢
+
+*****
+
+####  端木恋心  
+##### 12254#       发表于 2022-10-18 11:00
+
+雪碧是不是要败者组了啊
+
+*****
+
+####  seki_m  
+##### 12255#       发表于 2022-10-18 11:00
+
+沉默大招可以作用魔免单位吧，出bkb也没用
+
+*****
+
+####  Aeons  
+##### 12256#       发表于 2022-10-18 11:00
+
+雪碧是不是脑子坏了
+
+*****
+
+####  fananaf  
+##### 12257#       发表于 2022-10-18 11:00
+
+这阵容线上打不出劣势纯粹就是茶队实力不行了
+
+我是想不出这整容怎么才能8分钟人头持平经济被拉开2k的
+
+10分钟打不出优势火猫又打这么莽，一看就没了
+
+*****
+
+####  Avantasi  
+##### 12258#       发表于 2022-10-18 11:00
+
+选谜团千万别ban沉默，ban了丝全家
+
+*****
+
+####  AkaiSuisei  
+##### 12259#       发表于 2022-10-18 11:01
+
+还是下路那波的问题，没包成不说，结果放猛犸补了一波，推进体系和节奏完全打不出来了
+
