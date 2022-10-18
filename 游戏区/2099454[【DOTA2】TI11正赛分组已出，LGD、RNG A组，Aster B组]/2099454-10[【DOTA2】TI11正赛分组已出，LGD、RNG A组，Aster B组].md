@@ -7310,3 +7310,167 @@ liquids are doing it！
 
 纯真Z怂了啊，刚才还笑嘻嘻的呢。
 
+
+
+*****
+
+####  Rorgen  
+##### 14417#       发表于 2022-10-18 18:52
+
+丁真的手是真的贱
+
+*****
+
+####  TI三冠王AME  
+##### 14418#       发表于 2022-10-18 18:56
+
+这就是tpii
+
+*****
+
+####  nowaki  
+##### 14419#       发表于 2022-10-18 18:57
+
+丁真是真的欠收拾
+
+*****
+
+####  端木恋心  
+##### 14420#       发表于 2022-10-18 18:57
+
+ent活了啊。楼友的预测还是有可能的。
+
+*****
+
+####  syndrome2032  
+##### 14421#       发表于 2022-10-18 18:57
+
+z小鬼还是想着玩，不急着拆家跑去杀人。
+
+*****
+
+####  walfeds  
+##### 14422#       发表于 2022-10-18 18:57
+
+泰隆看起来是教育不了了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 14423#       发表于 2022-10-18 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976714&amp;ptid=2099454" target="_blank">端木恋心 发表于 2022-10-18 18:57</a>
+
+ent活了啊。楼友的预测还是有可能的。</blockquote>
+bo3才打第一把
+
+*****
+
+####  DDWarrior  
+##### 14424#       发表于 2022-10-18 18:58
+
+ 本帖最后由 DDWarrior 于 2022-10-18 18:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哥们还挺喜欢听阿版单人解说的，但是如果再加个出神的话，今年还是看官方解说吧…
+
+*****
+
+####  迷途lite  
+##### 14425#       发表于 2022-10-18 18:58
+
+加赛打bo几？
+
+*****
+
+####  端木恋心  
+##### 14426#       发表于 2022-10-18 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976723&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-18 18:58</a>
+bo3才打第一把</blockquote>
+打bo3啊。那还是带走ent吧。
+
+*****
+
+####  蛭人  
+##### 14427#       发表于 2022-10-18 18:59
+
+ZDGY解说和官方水平不向上下吧，游戏怎么赢的不明白的，以前还是装小泰迪的，现在想喝ru水了才找的杰出。
+
+*****
+
+####  越动天下  
+##### 14428#       发表于 2022-10-18 18:59
+
+如果只有两个队就是bo3 a组三个队就是bo1好像是这样的
+
+*****
+
+####  Rorgen  
+##### 14429#       发表于 2022-10-18 19:00
+
+qc和bb还要打尊严之战，笑死
+
+*****
+
+####  zyw0  
+##### 14430#       发表于 2022-10-18 19:00
+
+eg和秘密能胜者组已经比去年雪碧夺冠更冷门了吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  zyw0  
+##### 14431#       发表于 2022-10-18 19:01
+
+eg和秘密能胜者组已经比去年雪碧夺冠更冷门了吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  蛭人  
+##### 14432#       发表于 2022-10-18 19:01
+
+纯真Z的表演欲，波来波去当时就笑嘻了，而一想到自己死了就G了立马变脸不波了。
+
+*****
+
+####  端木恋心  
+##### 14433#       发表于 2022-10-18 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976753&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-18 19:00</a>
+qc和bb还要打尊严之战，笑死</blockquote>
+肯定的啊。小组排名不同奖金不一样啊。
+多赚点钱。
+
+*****
+
+####  Horusddt  
+##### 14434#       发表于 2022-10-18 19:01
+
+秘密还算好，确实想不到eg能站起来
+
+*****
+
+####  Rorgen  
+##### 14435#       发表于 2022-10-18 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976766&amp;ptid=2099454" target="_blank">zyw0 发表于 2022-10-18 19:00</a>
+eg和秘密能胜者组已经比去年雪碧夺冠更冷门了吧
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+不可能的，至少eu和na的粉丝是坚信秘密eg有实力争冠的，去年连cis自己人都觉得ts就是败者组水平
+
+*****
+
+####  百世诸侯  
+##### 14436#       发表于 2022-10-18 19:02
+
+所以说雌小鬼完美形容，非常贴切
+

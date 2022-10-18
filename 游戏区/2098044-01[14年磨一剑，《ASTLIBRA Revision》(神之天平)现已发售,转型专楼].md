@@ -4504,3 +4504,31 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 没原版那么生草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lazycat233  
+##### 416#       发表于 2022-10-18 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">时之箱子怎么往里面放东西，放啥好啊
+
+*****
+
+####  逸一死吾亦死  
+##### 417#       发表于 2022-10-18 18:54
+
+<blockquote>lazycat233 发表于 2022-10-18 18:53
+时之箱子怎么往里面放东西，放啥好啊</blockquote>
+只有一个东西可以放，你仔细看看
+
+*****
+
+####  lazycat233  
+##### 418#       发表于 2022-10-18 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976668&amp;ptid=2098044" target="_blank">逸一死吾亦死 发表于 2022-10-18 18:54</a>
+
+只有一个东西可以放，你仔细看看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，我没仔细看误解了还以为只能带一个东西回去
+
