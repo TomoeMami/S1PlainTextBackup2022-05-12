@@ -4374,3 +4374,22 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 有二周目大佬在吗 第五章的小徽章在哪呀~
 
+
+
+*****
+
+####  sahhhh6x  
+##### 405#       发表于 2022-10-18 14:43
+
+有几个小徽章我地图都跑烂了都没发现有没拿的宝箱  看成就里还有个妖精王没打 根本不知道在哪里
+
+*****
+
+####  后会莫急  
+##### 406#       发表于 2022-10-18 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57970674&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-18 13:27</a>
+
+有二周目大佬在吗 第五章的小徽章在哪呀~</blockquote>
+二周目魔王城？就在恶魔城副武器彩蛋那
+
