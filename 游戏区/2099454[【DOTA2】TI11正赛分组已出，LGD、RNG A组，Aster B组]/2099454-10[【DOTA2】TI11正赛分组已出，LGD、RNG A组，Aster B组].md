@@ -11418,3 +11418,55 @@ ti5赛季强的是vg 拿了几项冠军还在dac上破了secret的全胜金身 �
 秋天的童话！</blockquote>
 这童话也太离谱了，真按这个剧本走可以拍个真世界promax版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莉拉厨  
+##### 14891#       发表于 2022-10-19 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57982701&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-19 07:35</a>
+秋天的童话！</blockquote>
+你是爱CN的，我决赛日一个中国队都没填，罕见了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 14892#         楼主| 发表于 2022-10-19 07:43
+
+看出成分了，是核中核lxo，真童话是lgd两轮滚蛋，谢谢
+
+*****
+
+####  阿垃垃圾历  
+##### 14893#       发表于 2022-10-19 07:45
+
+lgd就应该直接跌进败者组滚蛋
+
+*****
+
+####  恐怖利刃  
+##### 14894#       发表于 2022-10-19 07:50
+
+懂又不懂，必须由235亲自在决赛中击败a楚
+
+*****
+
+####  lyjssj  
+##### 14895#       发表于 2022-10-19 07:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">rng真能夺冠大概可以拍个阿超纪录片了
+
+从TI8被哥哥波掉冠军开始，到分道扬镳，到小象银河战舰被耻笑，到去rng重新出发，到TI11小组赛9-1然后不幸患病0-8，到绝境悟道一路杀穿夺冠
+
+然而现实是距离超哥受难还有36小时<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 14896#         楼主| 发表于 2022-10-19 07:52
+
+然而现实是距离超哥受难还有36小时
+
