@@ -4393,3 +4393,15 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 有二周目大佬在吗 第五章的小徽章在哪呀~</blockquote>
 二周目魔王城？就在恶魔城副武器彩蛋那
 
+
+
+*****
+
+####  sahhhh6x  
+##### 407#       发表于 2022-10-18 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57972072&amp;ptid=2098044" target="_blank">后会莫急 发表于 2022-10-18 14:46</a>
+
+二周目魔王城？就在恶魔城副武器彩蛋那</blockquote>
+具体是哪里啊~
+
