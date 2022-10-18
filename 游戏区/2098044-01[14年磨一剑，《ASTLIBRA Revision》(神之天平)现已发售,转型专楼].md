@@ -4797,3 +4797,15 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 自制道具书的最后一个道具是啥啊
 
+
+
+*****
+
+####  黒長直姫  
+##### 442#       发表于 2022-10-19 07:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981970&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-19 01:28</a>
+
+要刷多少爱心才能改结局啊 吐了</blockquote>
+所有队友的刷完加上1周目的2个 如果1周目3个都拿了会多一段剧情一把武器
+

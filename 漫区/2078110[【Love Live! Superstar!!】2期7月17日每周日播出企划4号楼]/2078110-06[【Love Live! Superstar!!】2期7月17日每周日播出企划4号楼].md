@@ -10663,3 +10663,14 @@ Nako这是正式从老婆变成妈妈了吗</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 8492#       发表于 2022-10-19 07:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981954&amp;ptid=2078110" target="_blank">L-JoeW 发表于 2022-10-19 01:26</a>
+大佬们，请教一下为什么第二季的插入曲都找不到对应的offvocal，我看10月19卖的singshinesmile的12话cd列表 ...</blockquote>
+流媒体都是不包含的
+
