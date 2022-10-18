@@ -1771,3 +1771,24 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 可以提一下的是，今年的几次真消息都是附有一个Servant名称缩写的
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3149#       发表于 2022-10-18 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57974625&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-10-18 16:49</a>
+
+这玩意是因为测试服黑客一直用DC的频道透露消息，所以很多人开始用DC来制作假消息了（方舟那边也出现了类似 ...</blockquote>
+这个圣诞剧透我是从B站看到的，连英文版也没有，假的可能性不小...
+
+不过现在就这么一个剧透，达不到鱼目混珠的效果...但这次真是假的我就得怀疑2.7孙悟空的真实性了...<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3150#       发表于 2022-10-18 17:13
+
+太菜了。。这90++太菜了！ 狂娜乱杀
+

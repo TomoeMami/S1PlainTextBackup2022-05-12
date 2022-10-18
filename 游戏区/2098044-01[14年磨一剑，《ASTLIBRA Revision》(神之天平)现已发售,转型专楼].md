@@ -4474,3 +4474,16 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  黒長直姫  
+##### 414#       发表于 2022-10-18 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57974407&amp;ptid=2098044" target="_blank">luffy800 发表于 2022-10-18 16:39</a>
+主城区街道上的宝箱在哪
+
+—— 来自 S1Fun</blockquote>
+酒馆后面 跳上去往后走
+
