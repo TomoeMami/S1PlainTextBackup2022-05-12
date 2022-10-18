@@ -42,3 +42,20 @@
 https://youtu.be/2XZ5mWZJCD8</blockquote>
 这个考察确实看的很细阿
 
+
+
+*****
+
+####  rusuna  
+##### 623#       发表于 2022-10-18 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57501279&amp;ptid=1997982" target="_blank">lanyu_u 发表于 2022-9-15 07:27</a>
+比起剧情背景猜测，我更关心这次佐纳乌族的设计风格。
+
+目前看起来还是延续前作的原始+野性的风格，
+
+比起前 ...</blockquote>
+勇者称谓问题不大，并不是每作都有的……而且同一人基本延续之前的称谓，比如假面还是时之勇者，沙漏还是风之勇者，众神1到织梦岛也是一个人就没什么称谓。扎心的称谓什么的不要啊……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
