@@ -8374,3 +8374,170 @@ TB就算有一万多的经济优势被玛西顶脸还是毫无脾气，新英雄
 
 这钩子是真准
 
+
+
+*****
+
+####  ninini212  
+##### 14540#       发表于 2022-10-18 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">事实证明蛛丝马迹比漏油懂DOTA，毕竟也是八九千分的大神
+
+*****
+
+####  roxas.sora  
+##### 14541#       发表于 2022-10-18 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">阿纯这个屠夫好强啊，打成集锦了
+
+*****
+
+####  Troywest  
+##### 14542#       发表于 2022-10-18 20:14
+
+纯皇！
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yourSwaTer  
+##### 14543#       发表于 2022-10-18 20:14
+
+话说楼友说的丁真是谁啊，然后还有什么瑞典丁聪又是谁（国籍不一定是瑞典，哪个我忘了）
+
+*****
+
+####  赤星ビスコ  
+##### 14544#       发表于 2022-10-18 20:14
+
+败者组第一轮是rng打丁真还是克里斯？
+
+*****
+
+####  Crazy_Knife  
+##### 14545#       发表于 2022-10-18 20:14
+
+这屠夫有点狠啊，咬你就是两口还带刷新的
+
+*****
+
+####  米德  
+##### 14546#       发表于 2022-10-18 20:14
+
+桀桀桀 云玩家和撸狗太多了
+
+*****
+
+####  柚上舍人  
+##### 14547#       发表于 2022-10-18 20:14
+
+丁真：我有一个一穿七的梦想
+
+RNG：往后稍稍，我先来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 14548#       发表于 2022-10-18 20:14
+
+妮tb装备格子就六个，窝屠夫吃牛头力量没上线，确实是越打越弱
+
+*****
+
+####  TIZI  
+##### 14549#       发表于 2022-10-18 20:15
+
+牛真的纯畜牲，这牛有跳就没打成过一次先手，团战跟大哥站一起一起被人aoe打死跟个蛆一样
+拉席克装最吊的冲别人脸，kpii选个大锤顶不上去屁用没啊，大锤砍完纯废物不明白为什么要拿
+黑马但是看着打的还可以，败者组估计能多走几步了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  憧憬鲨  
+##### 14550#       发表于 2022-10-18 20:15
+
+妈的玩了把冰女，这东西强是强玩起来是真的吃屎
+
+
+
+*****
+
+####  Rorgen  
+##### 14551#       发表于 2022-10-18 20:15
+
+tb这英雄大后期弱很长时间了
+
+*****
+
+####  非建政专用号  
+##### 14552#       发表于 2022-10-18 20:16
+
+秘法跳刀游崩三路，哭了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 14553#       发表于 2022-10-18 20:17
+
+talon早上揍了ett一个2:0，晚上被0:2送回家。堪称打了白打
+
+*****
+
+####  roxas.sora  
+##### 14554#       发表于 2022-10-18 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这种阵容ent都能赢只能说阿纯太强和泰隆送的太狠了，尿裤尿了一地
+
+*****
+
+####  柚上舍人  
+##### 14555#       发表于 2022-10-18 20:19
+
+东南亚最好成绩是不是那年棋技哥的前六？
+
+*****
+
+####  蛭人  
+##### 14556#       发表于 2022-10-18 20:19
+
+东南亚天梯第一中单mikoto的老鹿有那味儿了，30%的胜率，这哥们还是三猫女王卡尔这种游走中单能带，玩个纯刷的有点懵。
+
+*****
+
+####  adretyu67  
+##### 14557#       发表于 2022-10-18 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978011&amp;ptid=2099454" target="_blank">柚上舍人 发表于 2022-10-18 20:19</a>
+
+东南亚最好成绩是不是那年棋技哥的前六？</blockquote>
+ti3国师
+
+*****
+
+####  Asukalangley33  
+##### 14558#       发表于 2022-10-18 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978011&amp;ptid=2099454" target="_blank">柚上舍人 发表于 2022-10-18 20:19</a>
+
+东南亚最好成绩是不是那年棋技哥的前六？</blockquote>
+HAOB被泉水钩那次啊，橘子第三名
+
+*****
+
+####  Hieda  
+##### 14559#       发表于 2022-10-18 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978011&amp;ptid=2099454" target="_blank">柚上舍人 发表于 2022-10-18 20:19</a>
+东南亚最好成绩是不是那年棋技哥的前六？</blockquote>
+ti3吧，也是棋技哥
+
+*****
+
+####  Crazy_Knife  
+##### 14560#       发表于 2022-10-18 20:22
+
+Rng要打ett啊，看超哥他们恢复得怎么样了，感觉能有7成以上就还有得打
+
