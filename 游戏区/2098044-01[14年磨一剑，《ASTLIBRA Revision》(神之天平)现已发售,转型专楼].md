@@ -4405,3 +4405,25 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 二周目魔王城？就在恶魔城副武器彩蛋那</blockquote>
 具体是哪里啊~
 
+
+
+*****
+
+####  后会莫急  
+##### 408#       发表于 2022-10-18 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57972499&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-18 15:06</a>
+
+具体是哪里啊~</blockquote>
+魔王城城门，小猪商店那块石头正下方可以去
+
+*****
+
+####  后会莫急  
+##### 409#       发表于 2022-10-18 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971990&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-18 14:43</a>
+
+有几个小徽章我地图都跑烂了都没发现有没拿的宝箱  看成就里还有个妖精王没打 根本不知道在哪里 ...</blockquote>
+妖精王在伊利西昂入口，往左跳有个门
+
