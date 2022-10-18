@@ -10736,3 +10736,96 @@ ame和fy以及maybe关系都正常是fy/maybe亲口承认的，“觉得是队�
 
 ame的龟，只会欺软怕硬，这是他黑粉来源之一，去年队友都出来对线了，他来一句已分手勿再问，属实和沪皇差了一本情商。
 
+
+
+*****
+
+####  nowaki  
+##### 14820#       发表于 2022-10-19 00:23
+
+说话弱智的也可能是管人痴
+
+
+
+*****
+
+####  VanArkride  
+##### 14821#       发表于 2022-10-19 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981279&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-19 00:19</a>
+别尬黑，ee可是有上海major冠军，rtz运气实力确实都没到位。</blockquote>
+ee上海major决赛打得是真好，后面唐突艺术就另说了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 14822#       发表于 2022-10-19 00:25
+
+我记得当年ame还说过自己偶像是ee 现在快四冠王大概率是不认了
+
+*****
+
+####  利剑Crazy-88  
+##### 14823#       发表于 2022-10-19 00:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981284&amp;ptid=2099454" target="_blank">VanArkride 发表于 2022-10-19 00:20</a>
+
+ame和fy以及maybe关系都正常是fy/maybe亲口承认的，“觉得是队友搞了他”这说法我都不知道来源是啥，喷他 ...</blockquote>
+fy自己说19年之后是ame嫌其他四个队友太菜自己把自己下放“血抬cdec”的，结果去了之后还要偷偷改个id“线劣自己扛”。今年给畜圣的视频点赞，还有那句这么经典的“我前期那么肥”，这清算队友的气质还不明显啊？
+
+*****
+
+####  憧憬鲨  
+##### 14824#       发表于 2022-10-19 00:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">经典两年前两年后那个评论的图找不到了，也不想想两年前的ame真的配让fy给他出莲花吗
+
+*****
+
+####  银翼的维罗西  
+##### 14825#       发表于 2022-10-19 00:27
+
+A畜这种人品下限的畜生还有人洗，不过也正常，否定了A畜等于否定集美们自己，毕竟都是一类人
+
+*****
+
+####  Aeons  
+##### 14826#       发表于 2022-10-19 00:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">希望雪碧别在bo1被送走，太难看了
+
+*****
+
+####  VanArkride  
+##### 14827#       发表于 2022-10-19 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981361&amp;ptid=2099454" target="_blank">利剑Crazy-88 发表于 2022-10-19 00:25</a>
+fy自己说19年之后是ame嫌其他四个队友太菜自己把自己下放“血抬cdec”的，结果去了之后还要偷偷改个id“ ...</blockquote>
+好，这部分我认同你，但我觉得你论道德怎么都比假赛强的，当然这算比烂了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 14828#       发表于 2022-10-19 00:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个基本逻辑，有仇的话超哥就不回去吃饭然后中毒了是吧
+
+*****
+
+####  利剑Crazy-88  
+##### 14829#       发表于 2022-10-19 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981413&amp;ptid=2099454" target="_blank">VanArkride 发表于 2022-10-19 00:29</a>
+
+好，这部分我认同你，但我觉得你论道德怎么都比假赛强的，当然这算比烂了 ...</blockquote>
+a畜打的是不是假赛还不好说呢，毕竟集美们都觉得ti10假了。
+
+而且所谓的假赛上户口本的人多数都是悄咪咪藏在下水道里做他那些见不得人勾当的，A畜可是毫无自知自觉地在这么大舞台给大家表演他的那套畜生东西，这还不是海沟我真不知道什么是海沟了。
+
+*****
+
+####  nowaki  
+##### 14830#       发表于 2022-10-19 00:32
+
+当年核核高潮好歹还是他爹打出精彩表现，现在集美高潮都是镜头对准ame
+

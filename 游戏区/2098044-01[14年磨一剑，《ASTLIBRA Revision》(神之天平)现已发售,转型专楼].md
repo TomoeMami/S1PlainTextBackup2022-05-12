@@ -4628,3 +4628,15 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 研究基地里面的盆栽树掉的概率比较高，歼灭兵器门口刷新点右边房有2颗树，可以反复刷 ...</blockquote>
 草，万万没想到是特么几个树刷。多谢了。
 
+
+
+*****
+
+####  元气海牛  
+##### 427#       发表于 2022-10-19 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976446&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-18 18:39</a>
+
+没原版那么生草了</blockquote>
+1周目没见过这个boss啊，求问是哪里的<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
