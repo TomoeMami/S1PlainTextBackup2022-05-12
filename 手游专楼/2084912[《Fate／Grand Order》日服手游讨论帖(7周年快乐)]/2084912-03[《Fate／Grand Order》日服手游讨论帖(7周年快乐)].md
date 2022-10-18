@@ -2044,3 +2044,14 @@ NMD怎么呼延灼也是仪式剑72*3
 
 好像6加成的队伍我都拿不出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咸鱼了
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3173#       发表于 2022-10-18 21:32
+
+六加成自出狐奥小龙娘抱个高配金时就好了
+
+三期90++都是金时打的，在外星人关底出来前都是唯一真神
+
