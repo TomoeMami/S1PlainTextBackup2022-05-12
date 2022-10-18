@@ -4640,3 +4640,19 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 没原版那么生草了</blockquote>
 1周目没见过这个boss啊，求问是哪里的<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  A1LI  
+##### 428#       发表于 2022-10-19 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981382&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-19 00:27</a>
+
+1周目没见过这个boss啊，求问是哪里的</blockquote>
+第5章小女孩的问题……
+
+就是第5章进魔王城堡时不带小女孩，后面跟红毛回合一起行动时，不去打解封后的魔王，先带红毛一起回城门和小女孩对话就行了。
+
+如果一开始带了小女孩，或者一开始没带，但是后来没和红毛去找小女孩，这俩选择都会导致小女孩完蛋。
+

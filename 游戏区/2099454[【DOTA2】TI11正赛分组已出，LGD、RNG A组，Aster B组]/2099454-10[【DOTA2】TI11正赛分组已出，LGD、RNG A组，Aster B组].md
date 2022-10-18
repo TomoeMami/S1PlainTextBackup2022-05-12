@@ -10829,3 +10829,114 @@ a畜打的是不是假赛还不好说呢，毕竟集美们都觉得ti10假了。
 
 当年核核高潮好歹还是他爹打出精彩表现，现在集美高潮都是镜头对准ame
 
+
+
+*****
+
+####  百世诸侯  
+##### 14831#       发表于 2022-10-19 00:34
+
+不禁让人想问A畜拿水厂开菠菜公司挣来的工资就真比打假赛的货冰清玉洁吗，有没有可能可以一起司马
+
+*****
+
+####  nowaki  
+##### 14832#       发表于 2022-10-19 00:36
+
+不知道提假赛的这位，知不知道ame经典比赛分身强袭黑鸟，找不到一点出装的理由，就是为了打假赛演走队友
+
+*****
+
+####  VanArkride  
+##### 14833#       发表于 2022-10-19 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981491&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-19 00:36</a>
+
+不知道提假赛的这位，知不知道ame经典比赛分身强袭黑鸟，找不到一点出装的理由，就是为了打假赛演走队友 ...</blockquote>
+
+同场还有maybe呢，你这么说也行，lgd这面菠菜下面8和选手大家一起boom吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 14834#       发表于 2022-10-19 00:38
+
+理性讨论，散失分身水人和分身强袭黑鸟哪个更像假赛
+
+*****
+
+####  利剑Crazy-88  
+##### 14835#       发表于 2022-10-19 00:38
+
+不说我都快忘了这一茬了，为了把青菜和ssyao演走当年giegie还和老北京合力演戏。
+
+这么一想giegie能在水厂帮助下从老北京的冷面打手兄弟转变成水厂2.0偶像，水厂的造星水平确实一流
+
+*****
+
+####  蛭人  
+##### 14836#       发表于 2022-10-19 00:40
+
+想当年电竞什么野路子产业，ruru给战队拉来赞助，这就是水厂老板下面硬实力，不服不行。
+
+*****
+
+####  nowaki  
+##### 14837#       发表于 2022-10-19 00:40
+
+<blockquote>VanArkride 发表于 2022-10-19 00:37
+同场还有maybe呢，你这么说也行，lgd这面菠菜下面8和选手大家一起boom吧 ...</blockquote>
+你不知道我提一嘴，要不是maybe染病我本来就是天天a畜 m畜的
+
+*****
+
+####  adretyu67  
+##### 14838#       发表于 2022-10-19 00:40
+
+你说起强袭分身黑鸟以后我记得这事后还真有一个比赛还是小局紧急下放过ame，谁打得替补我记不起来了。
+
+最后结果就是“天哥不打我也不打了”
+
+*****
+
+####  roxas.sora  
+##### 14839#       发表于 2022-10-19 00:40
+
+强袭分身黑鸟，冰甲羊刀影魔也是典中典的演技拙劣案例了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 14840#       发表于 2022-10-19 00:41
+
+* Highest winrate (10+ games): Storm (8-2, 80%), Lifestealer (11-5, 68.8%), Tusk (17-8, 68%).
+
+* Lowest winrate (10+ games): Batrider (3-15, 16.7%), Rubick (5-13, 27.8%), Drow (7-15, 31.8%)
+
+蝙蝠，狗都不选<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  VanArkride  
+##### 14841#       发表于 2022-10-19 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981539&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-19 00:41</a>
+* Highest winrate (10+ games): Storm (8-2, 80%), Lifestealer (11-5, 68.8%), Tusk (17-8, 68%).
+
+* Lowe ...</blockquote>
+这蓝猫胜率<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 14842#       发表于 2022-10-19 00:42
+
+老北京比处长强在能直面现实吧，后者只会缩的，要不无冠超超哥呢，处长能让别人叫他处长，好像不太可能。
+
+*****
+
+####  walfeds  
+##### 14843#       发表于 2022-10-19 00:42
+
+看了眼还有个0-9的女王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是真的牛逼
+
