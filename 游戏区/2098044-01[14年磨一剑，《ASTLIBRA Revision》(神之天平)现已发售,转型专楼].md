@@ -4736,3 +4736,22 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 查看全部评分
 
+
+
+*****
+
+####  sahhhh6x  
+##### 436#       发表于 2022-10-19 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981851&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-19 01:10</a>
+
+第几章？似乎没见到过你说的这个场景啊。</blockquote>
+就是封印之城的卫兵 有条河 跳过去之后有个宝箱 还
+
+*****
+
+####  sahhhh6x  
+##### 437#       发表于 2022-10-19 01:28
+
+要刷多少爱心才能改结局啊 吐了
+
