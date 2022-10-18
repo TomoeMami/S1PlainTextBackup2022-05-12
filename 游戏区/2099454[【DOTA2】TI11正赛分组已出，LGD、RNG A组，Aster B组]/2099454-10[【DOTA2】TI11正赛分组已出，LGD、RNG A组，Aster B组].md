@@ -6039,3 +6039,155 @@ lgd这个sb潘飞跟自己队拍了半天vlog自己队员都没事是最神奇�
 
 去na挺好的，混几年说不定还能排绿卡，俄罗斯人绿卡排期应该没那么长吧
 
+
+
+*****
+
+####  Rorgen  
+##### 14262#       发表于 2022-10-18 17:42
+
+西欧队进了六个队四个胜者组全靠吸血
+请支持唯一指定全欧班team liquid
+
+*****
+
+####  憧憬鲨  
+##### 14263#       发表于 2022-10-18 17:42
+
+脑东京会玩卡尔的话能不能玩死灵龙啊，玩火人也是玩玩鸟也是玩
+
+*****
+
+####  IG.430  
+##### 14264#       发表于 2022-10-18 17:44
+
+液体四号位确定很帅，有那种优质百欧白蝻的那种感觉<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 14265#       发表于 2022-10-18 17:44
+
+不如ts米拉神
+
+*****
+
+####  Troywest  
+##### 14266#       发表于 2022-10-18 17:45
+
+话说有什么s1doto群么，上班不方便看直播，加个群看看老哥的讨论，也能脑补一下比赛画面<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 14267#       发表于 2022-10-18 17:46
+
+脑东京只要悟到自己就是个废物，选点混的肉的给崩溃打开局面雪碧还有救
+
+*****
+
+####  Sabbah  
+##### 14268#       发表于 2022-10-18 17:46
+
+本楼不是傻狗殖民地吗，那当然是小团体司马
+
+*****
+
+####  情商  
+##### 14269#         楼主| 发表于 2022-10-18 17:46
+
+s1现存的dota2已经转型王者荣耀 股票 瓢虫群了，望周知
+
+*****
+
+####  roxas.sora  
+##### 14270#       发表于 2022-10-18 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">中单nec出怨灵之契当推进核心咯，nec总会吧
+
+*****
+
+####  Aeons  
+##### 14271#       发表于 2022-10-18 17:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像没见他玩过
+
+*****
+
+####  TI三冠王AME  
+##### 14272#       发表于 2022-10-18 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975631&amp;ptid=2099454" target="_blank">Troywest 发表于 2022-10-18 17:45</a>
+
+话说有什么s1doto群么，上班不方便看直播，加个群看看老哥的讨论，也能脑补一下比赛画面
+
+—— 来自 ...</blockquote>
+S1的dota群没几个人说话，倒是网文群天天聊比赛
+
+*****
+
+####  walfeds  
+##### 14273#       发表于 2022-10-18 17:48
+
+优质百欧白蝻都出来了，哈人
+
+*****
+
+####  两三流浪者  
+##### 14274#       发表于 2022-10-18 17:49
+
+lgd是打秘密吗，不会被二比零吧
+
+*****
+
+####  反方向的波  
+##### 14275#       发表于 2022-10-18 17:51
+
+优质白蝻卜是那个id叫我下面很大的芬兰人么，但世风日下，窝现在看他感觉游戏里要坐上轮椅生活里要被戴绿帽
+
+*****
+
+####  woyzeck  
+##### 14276#       发表于 2022-10-18 17:51
+
+boxi异世界转生优质洋男咯，不用再受傻逼国男气咯
+
+*****
+
+####  外挂全家脚气  
+##### 14277#       发表于 2022-10-18 17:51
+
+液体怎么还没把对阵表更新下...
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 两三流浪者|-1|撸狗那边不是早更新了吗|
+
+查看全部评分
+
+*****
+
+####  -SLSL-  
+##### 14278#       发表于 2022-10-18 17:52
+
+才一下午楼里的黑话就看不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 14279#       发表于 2022-10-18 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975711&amp;ptid=2099454" target="_blank">woyzeck 发表于 2022-10-18 17:51</a>
+boxi异世界转生优质洋男咯，不用再受傻逼国男气咯</blockquote>
+傻逼gn是吧，开门！
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

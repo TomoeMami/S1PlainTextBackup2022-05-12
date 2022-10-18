@@ -1803,3 +1803,20 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 （误，一个比一个不像...）
 
+
+
+*****
+
+####  exiaexa  
+##### 3152#       发表于 2022-10-18 17:51
+
+这吊剧情咋说呢
+就跟呼延灼一样，你个恩普萨为什么事呼延灼
+这万圣剧情就你为什么是水浒
+
+有病吧这最后一节，很万圣但是前脚还在跟你说梁山悲歌后脚就开始一转喜剧了味道好他妈怪
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+你面对四奸六贼空降个天朝皇帝给我方上buff说不准味道都还正一点
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
