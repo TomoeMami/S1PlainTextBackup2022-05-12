@@ -2095,3 +2095,21 @@ NMD怎么呼延灼也是仪式剑72*3
 
 这回有没有那种....平铺6个羁绊礼装的阵容<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3178#       发表于 2022-10-18 22:33
+
+90++本二面那三个拟态从者都是人之力阵营的，如果红卡队二面用小龙娘伤害不足，可以把杀狐二技能给她，反正打手也用不上（双子是天阵营）。
+
+*****
+
+####  Jamaisvu  
+##### 3179#       发表于 2022-10-18 22:40
+
+又看到一个不换人打法，摩根奥伯龙+满配金时：【FGO超阴间本】红绿双杰 水浒传活动 131 关底71w血剑 BX在天，狗蛋在地-哔哩哔哩 [https://b23.tv/uuRF5Bx](https://b23.tv/uuRF5Bx)
+
+问题是满配金时真的不好找啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
