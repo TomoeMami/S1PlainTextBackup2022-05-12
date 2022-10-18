@@ -10377,3 +10377,17 @@ v2-5079b8a614ce2c659a81a3ed3a4718df_r.jpg
 
 2022-10-18 09:17 上传
 
+
+
+*****
+
+####  lj205  
+##### 8468#       发表于 2022-10-18 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57964125&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-10-18 00:17</a>
+
+那件红色露肩除了花絮发的那张就没了吗那件好看
+
+—— 来自 S1Fun ...</blockquote>
+红色那个貌似是明年日历里的造型，之前日历宣传视频里出现过
+
