@@ -4575,3 +4575,22 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 斗技场最后一个黄色小徽章在哪啊？明明40个任务都做完了。
 
+
+
+*****
+
+####  lazycat233  
+##### 423#       发表于 2022-10-18 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏弓箭怎么瞄准的，我怎么只能平射
+
+*****
+
+####  A1LI  
+##### 424#       发表于 2022-10-18 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57979543&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-18 22:08</a>
+
+这游戏弓箭怎么瞄准的，我怎么只能平射</blockquote>
+弩只能平射，弓是抛物线。
+
