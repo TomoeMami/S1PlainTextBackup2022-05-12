@@ -8147,3 +8147,15 @@ kino我是百连时关注的，但完全不了解的话，也不会点进直播�
 
 周年节目单 新衣新曲剑舞
 
+
+
+*****
+
+####  一叶丈育  
+##### 2364#       发表于 2022-10-18 14:02
+
+无法接受卡姐有小男友<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+我相信卡姐
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
