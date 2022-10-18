@@ -19,3 +19,12 @@
 
 目前的感觉就是，2代的林克比1代帅。短发的塞尔达也比1代好看一些
 
+
+
+*****
+
+####  supergilaboy  
+##### 621#       发表于 2022-10-18 16:52
+
+林克这手，该不会是鬼泣尼禄那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
