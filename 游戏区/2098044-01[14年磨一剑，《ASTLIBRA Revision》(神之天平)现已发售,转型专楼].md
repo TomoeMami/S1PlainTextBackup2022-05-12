@@ -4463,3 +4463,14 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 家乡的应该是往右边在一开始来的地图那边
 
+
+
+*****
+
+####  luffy800  
+##### 413#       发表于 2022-10-18 16:39
+
+主城区街道上的宝箱在哪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
