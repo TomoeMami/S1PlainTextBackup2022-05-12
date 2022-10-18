@@ -998,3 +998,226 @@ ____万丈光芒gtmdnec</blockquote>
 
 量子鞭也是德张，所以德张也是ti全勤
 
+
+
+*****
+
+####  憧憬鲨  
+##### 12113#       发表于 2022-10-18 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57966914&amp;ptid=2099454" target="_blank">端木恋心 发表于 2022-10-18 10:10</a>
+想反了，已经改了啊。</blockquote>
+晚了，你指马为鹿的罪证会被永远记录下来，直到你两条腿都被卸下来
+
+*****
+
+####  坚定的团子党  
+##### 12114#       发表于 2022-10-18 10:12
+
+东京的滚滚真的值一ban吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 12115#       发表于 2022-10-18 10:12
+
+ 本帖最后由 越动天下 于 2022-10-18 10:13 编辑 
+
+这个老鹿摆的茶好难受
+
+*****
+
+####  nowaki  
+##### 12116#       发表于 2022-10-18 10:13
+
+我已经提前原谅了克神
+
+*****
+
+####  情商  
+##### 12117#         楼主| 发表于 2022-10-18 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57966922&amp;ptid=2099454" target="_blank">DDWarrior 发表于 2022-10-18 10:10</a>
+
+漏油啥情况啊，发了半天多了，20个包就领了5个</blockquote>
+我朝，我tmd的错了7次都没整出来
+
+*****
+
+####  没钱买手办  
+##### 12118#       发表于 2022-10-18 10:14
+
+哦牛批，我一个都抢不到，你抢了十一个，这么厉害不见你去职业？
+
+*****
+
+####  反方向的波  
+##### 12119#       发表于 2022-10-18 10:15
+
+脑东京这个0.25帧微表情看来已经尿了，今天看克里斯展现大师中单风范
+
+*****
+
+####  12481632  
+##### 12120#       发表于 2022-10-18 10:15
+
+别问，问就是输错10次已经锁了
+
+
+
+*****
+
+####  DDWarrior  
+##### 12121#       发表于 2022-10-18 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57966980&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-18 10:14</a>
+我朝，我tmd的错了7次都没整出来</blockquote>
+焦阳焦阳都打不出来，只能说不应该啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  中已矣  
+##### 12122#       发表于 2022-10-18 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57966778&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-18 10:02</a>
+
+你们还在纠结rng不会畜和玛西这些新英雄，卡狗已经用实际行动告诉你他小小 拉比克这些老英雄也不会！ ...</blockquote>
+拉比克不是他绝活么，难道现在只能打土猫莱恩了？也没见用吧，那只能小强了。
+
+*****
+
+####  端木恋心  
+##### 12123#       发表于 2022-10-18 10:15
+
+竟然抢到了。在本楼的第一个红包。隔了这么久竟然还能领到，
+
+*****
+
+####  啊哈  
+##### 12124#       发表于 2022-10-18 10:15
+
+感谢漏油众筹到可乐
+
+*****
+
+####  情商  
+##### 12125#         楼主| 发表于 2022-10-18 10:16
+
+哦牛皮，我用曾焦阳 曾骄阳 骄阳骄阳 焦阳焦阳各种排列组合试了10次直接把我关了
+
+*****
+
+####  没钱买手办  
+##### 12126#       发表于 2022-10-18 10:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪国土算不算德张
+
+*****
+
+####  a1370303  
+##### 12127#       发表于 2022-10-18 10:16
+
+我超，鹏子的先知<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 12128#       发表于 2022-10-18 10:16
+
+<blockquote> 入了就是入了，哥们也发一个，口令是下面一整句话
+
+____万丈光芒gtmdnec   </blockquote>
+谢斌勇士说要打一整句话，输完了口令又在后面加了gtmdnec坑人是这样的
+
+*****
+
+####  情商  
+##### 12129#         楼主| 发表于 2022-10-18 10:18
+
+哦我懂了，是小米手机输入法打英文段在最后面会自己加一个空格，所以妹领到
+
+*****
+
+####  米奥莉奈  
+##### 12130#       发表于 2022-10-18 10:18
+
+就喜欢猜谜，老年人手速也能抢到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  啊哈  
+##### 12131#       发表于 2022-10-18 10:18
+
+下次发个假红包把漏油都关了，以后红包是不是就随便领了
+
+*****
+
+####  nowaki  
+##### 12132#       发表于 2022-10-18 10:18
+
+苹果就没这问题捏
+
+*****
+
+####  莉拉厨  
+##### 12133#       发表于 2022-10-18 10:18
+
+哦牛批，阿茶又开始玩上上上个版本的东西了，基本凉了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 12134#       发表于 2022-10-18 10:18
+
+下次发个假红包把漏油都关了，以后红包是不是就随便领了
+
+*****
+
+####  没钱买手办  
+##### 12135#       发表于 2022-10-18 10:19
+
+这茶选的什么东西啊
+
+*****
+
+####  syndrome2032  
+##### 12136#       发表于 2022-10-18 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57967012&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-18 10:16</a>
+哪国土算不算德张</blockquote>
+国土不算德张，算银k
+
+*****
+
+####  TI三冠王AME  
+##### 12137#       发表于 2022-10-18 10:20
+
+一整句话，然后加了个gtmdnec，十次错误锁了，哦牛批
+
+*****
+
+####  nerugigannte  
+##### 12138#       发表于 2022-10-18 10:20
+
+看到茶选的阵容我就玉玉了，25分钟不破1路感觉就走远了
+
+*****
+
+####  nowaki  
+##### 12139#       发表于 2022-10-18 10:20
+
+鬼鬼，雪碧还能放对面谜团玛西的，他是真不想进胜者组
+
+*****
+
+####  s1249399459  
+##### 12140#       发表于 2022-10-18 10:21
+
+口令：每一把都当最后一把也不要怕输
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
