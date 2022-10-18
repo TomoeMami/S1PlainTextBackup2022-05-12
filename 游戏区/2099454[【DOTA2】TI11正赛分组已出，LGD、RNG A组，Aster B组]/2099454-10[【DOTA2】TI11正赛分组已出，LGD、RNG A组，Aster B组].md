@@ -11355,3 +11355,24 @@ ti5赛季强的是vg 拿了几项冠军还在dac上破了secret的全胜金身 �
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  情商  
+##### 14886#         楼主| 发表于 2022-10-19 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57980069&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-18 22:52</a>
+有一个男人，他的绰号由三个字母组成，单机细节很好，打钱很快，但是打团水平很差
+那么他是—— ...</blockquote>
+a畜细节绝对是最差的一档就别跟rtz比了
+
+*****
+
+####  利剑Crazy-88  
+##### 14887#       发表于 2022-10-19 07:16
+
+<blockquote>windhawind2 发表于 2022-10-19 06:59
+ti5赛季强的是vg 拿了几项冠军还在dac上破了secret的全胜金身 直到被eg在决赛3:0干了… lgd那时候还在我们 ...</blockquote>
+被eg干完之后买买提就换西恩hao了，这会儿正是三兄弟战术打出效果的时候（yao往中路一住等躺，2008打着打着转半个核补输出）。至于想和霸气打gg那都是15年底打完上海major新一轮洗牌的时候发生的事了
+
