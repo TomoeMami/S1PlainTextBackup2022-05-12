@@ -10477,3 +10477,12 @@ Nako这是正式从老婆变成妈妈了吗
 Nako这是正式从老婆变成妈妈了吗</blockquote>
 很早就是liella的妈妈来着，老婆才是鱼后面追加的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 8477#       发表于 2022-10-18 12:52
+
+但是喊なこ好き火火火比妈妈早多了吧？可以算鲤鱼第一个cp？
+
