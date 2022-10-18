@@ -1820,3 +1820,29 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 你面对四奸六贼空降个天朝皇帝给我方上buff说不准味道都还正一点
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 3153#       发表于 2022-10-18 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975092&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-18 17:12</a>
+这个圣诞剧透我是从B站看到的，连英文版也没有，假的可能性不小...
+
+不过现在就这么一个剧透，达不到鱼目 ...</blockquote>
+这玩意儿的"英文原版"把角神写成"Horn God"这种爆笑玩意儿，可以一眼丁真、鉴定为国人编的+机翻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Jamaisvu  
+##### 3154#       发表于 2022-10-18 18:00
+
+<blockquote>miro112233 发表于 2022-10-18 17:53
+这玩意儿的"英文原版"把角神写成"Horn God"这种爆笑玩意儿，可以一眼丁真、鉴定为国人编的+机翻了 ...</blockquote>
+假的那就再好不过，可以省钱等2.7了...
+
+不过如果2.7剧透也是假的那就更搞笑了...
+

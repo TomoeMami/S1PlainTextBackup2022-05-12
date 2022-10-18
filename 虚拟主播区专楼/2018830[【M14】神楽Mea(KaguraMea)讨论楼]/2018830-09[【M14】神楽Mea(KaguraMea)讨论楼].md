@@ -6878,3 +6878,81 @@ img2img有点牛逼的，有些图如果手指难看，可以画点辅助线丢�
 
 我一直不知道怎么处理，觉得很麻烦，然后昨天试着添加了,lying,on_bed，这个不自然的动作就合理起来了。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12664#       发表于 2022-10-18 17:58
+
+<img src="https://img.saraba1st.com/forum/202210/18/175720wwrtx9xpqo29szqp.jpg" referrerpolicy="no-referrer">
+
+<strong>86_avatar_middle.jpg</strong> (6.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 17:57 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/175809hnvaxbozizv1vfno.png" referrerpolicy="no-referrer">
+
+<strong>00712-20221018175431.png</strong> (50.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/175810epepkx2x8pexunp8.png" referrerpolicy="no-referrer">
+
+<strong>00715-20221018175451.png</strong> (57.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/175810dkkcb12thdwemwym.png" referrerpolicy="no-referrer">
+
+<strong>00717-20221018175504.png</strong> (57.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/175810pe5jeqd9eg96dqeq.png" referrerpolicy="no-referrer">
+
+<strong>00719-20221018175514.png</strong> (55.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/175811jgp255aapg5lvp3a.png" referrerpolicy="no-referrer">
+
+<strong>00720-20221018175519.png</strong> (56.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/175811ak9sfs1ct6f0shq1.png" referrerpolicy="no-referrer">
+
+<strong>00722-20221018175531.png</strong> (54.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 17:58 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/175811t2b2p787n77cbdh8.png" referrerpolicy="no-referrer">
+
+<strong>00724-20221018175542.png</strong> (55.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 17:58 上传
+
+*****
+
+####  古战场亡魂  
+##### 12665#       发表于 2022-10-18 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

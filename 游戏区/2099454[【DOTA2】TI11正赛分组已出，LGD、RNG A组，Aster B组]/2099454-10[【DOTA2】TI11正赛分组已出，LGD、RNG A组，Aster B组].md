@@ -6191,3 +6191,232 @@ boxi异世界转生优质洋男咯，不用再受傻逼国男气咯</blockquote>
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Rorgen  
+##### 14280#       发表于 2022-10-18 17:53
+
+ 本帖最后由 Rorgen 于 2022-10-18 17:55 编辑 
+
+k1 chrisluck wisper从2019年3月就一打比赛了，应该是dota2历史同队最长时间的三人组了，算上ti9之前换的俩辅助，是dota2历史同队最长时间的五人组
+
+
+
+*****
+
+####  TI三冠王AME  
+##### 14281#       发表于 2022-10-18 17:54
+
+是香喷喷的外国小哥哥吖
+
+*****
+
+####  越动天下  
+##### 14282#       发表于 2022-10-18 17:54
+
+entity和这个talon打的赢的人是不是去打RNG了 不对 好像是红龙先选
+
+*****
+
+####  情商  
+##### 14283#         楼主| 发表于 2022-10-18 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975741&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-18 17:53</a>
+
+k1 chrisluck wisper从2019年3月就一打比赛了，应该是dota2历史同队最长时间的三人组了 ...</blockquote>
+来个爹的345是几月组的？好像是ti9之后？
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 14284#       发表于 2022-10-18 17:55
+
+顶不住了，漏油里的南通gunna
+跟查猪精精神共鸣是吧
+
+*****
+
+####  Horusddt  
+##### 14285#       发表于 2022-10-18 17:55
+
+rng要等红龙挑人，大概率打bc吧
+
+*****
+
+####  憧憬鲨  
+##### 14286#       发表于 2022-10-18 17:55
+
+RNG现在除了xnova还有没得病的吗
+
+*****
+
+####  sepcorvus  
+##### 14287#       发表于 2022-10-18 17:55
+
+<img src="https://p.sda1.dev/7/1132e9cfb4591c3eaf199de380b153ca/IMG_CMP_245838438.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  12481632  
+##### 14288#       发表于 2022-10-18 17:56
+
+扣1助力ni公子爆杀么么鳖
+
+*****
+
+####  syndrome2032  
+##### 14289#       发表于 2022-10-18 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975777&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-18 17:55</a>
+来个爹的345是几月组的？好像是ti9之后？</blockquote>
+手断后踢了天命换的文丑。应该是ti9前。，5月还是几月来着?
+
+*****
+
+####  人別離苦  
+##### 14290#       发表于 2022-10-18 17:57
+
+扣1助力ni公子爆杀猴爹
+
+*****
+
+####  情商  
+##### 14291#         楼主| 发表于 2022-10-18 17:57
+
+扣2助力掀背认爹
+
+*****
+
+####  syndrome2032  
+##### 14292#       发表于 2022-10-18 17:57
+
+扣1助力ni公子爆杀猴爹
+
+*****
+
+####  masterffzhou  
+##### 14293#       发表于 2022-10-18 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975642&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-18 17:46</a>
+s1现存的dota2已经转型王者荣耀 股票 瓢虫群了，望周知</blockquote>
+瓢虫群拉一下，很急很关键
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈萨维·诺亚  
+##### 14294#       发表于 2022-10-18 17:57
+
+RNG还能休息两天 有没有夜魇的萨特说一下能恢复多少
+
+*****
+
+####  sepcorvus  
+##### 14295#       发表于 2022-10-18 17:57
+
+<img src="https://p.sda1.dev/7/2b99c59e76a67733a43e000f61f0e6ab/IMG_CMP_193669970.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  TI三冠王AME  
+##### 14296#       发表于 2022-10-18 17:58
+
+扣3看量子鞭影逝二度，再次被清算退役神
+
+*****
+
+####  银翼的维罗西  
+##### 14297#       发表于 2022-10-18 17:58
+
+秘密难打老干鳖，秘密的最强点泥沙大神也不是猴王的对手，只要量子鞭正常发挥应该是会被干住的
+
+*****
+
+####  Rorgen  
+##### 14298#       发表于 2022-10-18 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975777&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-18 17:55</a>
+来个爹的345是几月组的？好像是ti9之后？</blockquote>
+张睿达归队赵子星转4是在19年5月
+有趣的是量子鞭脑浆歪文爱胖子这个组合第一次出国的基辅minor，就是被汉堡猫淘汰的
+
+*****
+
+####  拿拿子  
+##### 14299#       发表于 2022-10-18 17:58
+
+<blockquote>Troywest 发表于 2022-10-18 17:45
+话说有什么s1doto群么，上班不方便看直播，加个群看看老哥的讨论，也能脑补一下比赛画面
+
+—— 来自 ...</blockquote>
+直接下个dpc那个软件就行了，有个小地图，虽然延迟15分钟
+
+*****
+
+####  TI三冠王AME  
+##### 14300#       发表于 2022-10-18 17:58
+
+卜懂就问，dog和MK是特邀复活赛战队吗
+
+*****
+
+####  Horusddt  
+##### 14301#       发表于 2022-10-18 17:59
+
+扣4看文爱胖子玉玉无限送
+
+*****
+
+####  walfeds  
+##### 14302#       发表于 2022-10-18 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">那时间最长的四人组一定是尼格玛吧
+
+*****
+
+####  哈曼的YY  
+##### 14303#       发表于 2022-10-18 18:00
+
+22222222222222222
+
+有misha神的og都混到胜者组了 雪碧着实不行
+
+*****
+
+####  sepcorvus  
+##### 14304#       发表于 2022-10-18 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57975843&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-18 17:58</a>
+卜懂就问，dog和MK是特邀复活赛战队吗</blockquote>
+截图截多了，那是别的比赛的。
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  woyzeck  
+##### 14305#       发表于 2022-10-18 18:01
+
+秘密能干lgd的话我绝不黑ppy了
+
+*****
+
+####  Keynes  
+##### 14306#       发表于 2022-10-18 18:01
+
+哇，漏油这电脑屏幕擦一下啊，看着难受
+
+*****
+
+####  Keynes  
+##### 14307#       发表于 2022-10-18 18:02
+
+秘密能干lgd的话我支持ni公子进决赛日好吧
+
