@@ -760,3 +760,25 @@ CMA第二阶段要换官员，截至到明年3月。所以说索尼为了再英�
 
 洋舅舅没意思，我现在只信鲁迅
 
+
+
+*****
+
+####  clover293  
+##### 72#       发表于 2022-10-18 11:37
+
+鲁迅基本都中了吧，jim手中的哪个据别人说是生化危机的box，然后寂静岭公布了，就差个ff16了。
+
+鲁迅也确实没说是showcase吧
+
+*****
+
+####  医生狼多  
+##### 73#         楼主| 发表于 2022-10-18 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57968594&amp;ptid=2099687" target="_blank">clover293 发表于 2022-10-18 11:37</a>
+鲁迅基本都中了吧，jim手中的哪个据别人说是生化危机的box，然后寂静岭公布了，就差个ff16了。
+
+鲁迅也确实 ...</blockquote>
+不开pss也不是很所谓，我很担心ff16说的这个月播片没了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

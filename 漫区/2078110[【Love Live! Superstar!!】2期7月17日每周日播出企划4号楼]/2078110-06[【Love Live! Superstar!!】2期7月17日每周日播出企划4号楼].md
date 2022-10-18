@@ -10429,3 +10429,21 @@ v2-5079b8a614ce2c659a81a3ed3a4718df_r.jpg
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ruffian  
+##### 8472#       发表于 2022-10-18 11:33
+
+如果花田实在没活了我的建议是把自己灌醉，说不定做的梦都比这逼剧本有逻辑呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 8473#       发表于 2022-10-18 11:38
+
+艹，双n广播的预告，鲤鱼说来liella的妈妈和爸爸的番组很开心，全程幼女声线，不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
