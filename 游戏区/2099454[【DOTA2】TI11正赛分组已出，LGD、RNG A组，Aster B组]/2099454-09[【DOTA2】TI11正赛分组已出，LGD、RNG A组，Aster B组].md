@@ -381,3 +381,74 @@ sumail：你来之前我们就是冠军了
 
 大风向已经变成rng上来虐两天菜一被上强度就原形毕露了，只字不提昨天全队顶着五个羊了四个在打，真有他们的
 
+
+
+*****
+
+####  lyjssj  
+##### 12040#       发表于 2022-10-18 08:47
+
+早就说了，再过一个月集美就会说你超哥离开我们哥哥怎么每次都一轮游啊
+
+所以我对rng也没啥别的想法了，争口气游出败者组第一轮就行
+
+*****
+
+####  Nyaaarlathotep  
+##### 12041#       发表于 2022-10-18 08:47
+
+查猪昨天打的真的是犯罪，超哥也羊了怎么还是这么猛，今天加把劲啊查理斯
+
+*****
+
+####  百世诸侯  
+##### 12042#       发表于 2022-10-18 08:48
+
+现在的大风向不是吹AME15场14C？不懂就问，A畜全胜了吗
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 12043#       发表于 2022-10-18 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57965645&amp;ptid=2099454" target="_blank">Nyaaarlathotep 发表于 2022-10-18 08:47</a>
+查猪昨天打的真的是犯罪，超哥也羊了怎么还是这么猛，今天加把劲啊查理斯 ...</blockquote>
+人和人不一样，有人加强针要死要活，有人屁事没有
+谁知道昨天谁在呕吐腹泻
+
+*****
+
+####  resorry  
+##### 12044#       发表于 2022-10-18 08:50
+
+Y1s1，上一个吹n战nC的不是憋憋么，水厂想沾沾鳖气？
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  夏溪澪mio  
+##### 12045#       发表于 2022-10-18 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57965245&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-18 08:02</a>
+有小团体是吧，拉我一下谢谢</blockquote>
+我也没抢到<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 12046#       发表于 2022-10-18 08:50
+
+查理斯那🐷身体🐏了之后症状明显很正常啊
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 12047#       发表于 2022-10-18 08:51
+
+不过rng是有问题阵容选的没有赢的画面
+超哥bp被针对加上中路状态差点打不赢起不了节奏
+边路就迷茫
+
