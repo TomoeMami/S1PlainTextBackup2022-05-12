@@ -28,3 +28,17 @@
 
 林克这手，该不会是鬼泣尼禄那种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liekong  
+##### 622#       发表于 2022-10-18 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57942705&amp;ptid=1997982" target="_blank">lanyu_u 发表于 2022-10-16 19:58</a>
+
+分享一个干货比较多的PV3考察视频
+
+https://youtu.be/2XZ5mWZJCD8</blockquote>
+这个考察确实看的很细阿
+

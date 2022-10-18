@@ -1884,3 +1884,34 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 教练我想抽金时</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大佬有没有2宝+的bx 挂个50np的礼装
 
+
+
+*****
+
+####  exiaexa  
+##### 3158#       发表于 2022-10-18 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976167&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-18 18:18</a>
+
+狗什么蛋 不是bx吗  绿王降临啊（ 1宝bx第3面差个2-3万伤害稳定3t
+
+听说狗蛋这次伤害不够 当然我 ...</blockquote>
+因为缺个部件难受啊
+
+少了狗蛋让我不能用红卡多核
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+BX挂上了，感觉应该用不到20np
+
+*****
+
+####  alucardcz  
+##### 3159#       发表于 2022-10-18 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976227&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-10-18 18:22</a>
+
+因为缺个部件难受啊
+
+少了狗蛋让我不能用红卡多核</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用不到 2宝很稳 但是好友太难刷了。。。
+

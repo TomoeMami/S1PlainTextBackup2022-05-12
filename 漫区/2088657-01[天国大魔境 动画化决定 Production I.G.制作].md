@@ -51,3 +51,12 @@
 新星出版社说引进漫画也挺长时间了吧，动画出来前能搞出来吗？</blockquote>
 不能，动画会比简中早<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ｓ．  
+##### 72#       发表于 2022-10-18 18:22
+
+官宣啦好期待啊啊啊啊
+
