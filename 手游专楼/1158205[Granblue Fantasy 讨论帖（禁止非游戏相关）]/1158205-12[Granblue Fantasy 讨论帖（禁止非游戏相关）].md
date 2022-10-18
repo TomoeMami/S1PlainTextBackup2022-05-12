@@ -200,3 +200,19 @@
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  刹海之绊  
+##### 17118#       发表于 2022-10-18 09:25
+
+编辑了）不小心重复发了
+
+*****
+
+####  刹海之绊  
+##### 17119#       发表于 2022-10-18 09:25
+
+土方建议尽量双打，别单解，不然最开始的几层会特别折磨<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
