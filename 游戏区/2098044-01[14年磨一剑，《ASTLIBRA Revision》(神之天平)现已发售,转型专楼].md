@@ -4349,3 +4349,19 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 打过南瓜魔女了，剧情吹魔女的魔杖是BUG武器，真的么？
 
+
+
+*****
+
+####  pf67  
+##### 403#       发表于 2022-10-18 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57963541&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-17 23:24</a>
+
+我在火山迷路了两个小时顺便刷刷刷了，到底要去哪</blockquote>
+主要路线就几条
+
+出生点顺时针往上走可以绕到盖乌之前站的那个地方，往下走可以走到一个大坑，跳下去又可以绕一大圈回来
+
+拿到羽毛鞋可以躺岩浆多去几个地方，跳大坑那左边有个小路
+
