@@ -4674,3 +4674,41 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 伊利西昂 最后的记录点最右面可以跳下去 对着2个圣杯乱砍可以出个宝箱 有双跑鞋
 
+
+
+*****
+
+####  蓝雉  
+##### 431#         楼主| 发表于 2022-10-19 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57979560&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-18 22:09</a>
+弩只能平射，弓是抛物线。</blockquote>
+弩可以调角度的
+
+*****
+
+####  A1LI  
+##### 432#       发表于 2022-10-19 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981800&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-19 01:05</a>
+
+弩可以调角度的</blockquote>
+我知道，我的意思是弹道是直的。
+
+*****
+
+####  A1LI  
+##### 433#       发表于 2022-10-19 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981673&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-19 00:52</a>
+
+封印之城 士兵守着的地方后面有个护罩的门怎么进去</blockquote>
+第几章？似乎没见到过你说的这个场景啊。
+
+*****
+
+####  jy000129  
+##### 434#       发表于 2022-10-19 01:11
+
+爱神在哪？目前第八章除了爱神其他神都打过了
+
