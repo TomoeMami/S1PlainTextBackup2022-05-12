@@ -2086,3 +2086,12 @@ NMD怎么呼延灼也是仪式剑72*3
 
 为了清茶壶直接去打free本了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">6个羁绊礼装平铺，后排还能塞3个四星，感觉不比90++差多少
 
+
+
+*****
+
+####  千叶铁矢  
+##### 3177#       发表于 2022-10-18 22:29
+
+这回有没有那种....平铺6个羁绊礼装的阵容<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

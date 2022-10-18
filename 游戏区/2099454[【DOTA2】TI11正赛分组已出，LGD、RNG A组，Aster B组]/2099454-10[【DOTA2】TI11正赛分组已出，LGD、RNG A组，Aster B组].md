@@ -9980,3 +9980,78 @@ Ori玩影魔就会出现一个问题就是没人带节奏啊，这版本三号�
 
 nts自己都说nisha第一他第二了，看好明天被打爆坐上轮椅。nisha的影魔我没啥印象，但是nts好像不会玩好吧。
 
+
+
+*****
+
+####  nxmonitor  
+##### 14736#       发表于 2022-10-18 22:24
+
+去年nts就是虾之国血脉怂了啊，胜决的时候就看出来了心态有问题，对线很急急于压对面，团战走位也特别激进，决赛TK不敢选还是被八师傅按着选的，实际上以去年TK的强度和nts的熟练度，第一把就能选出来让TS再也不敢放了，之前顶着幽鬼都能赢的TK啊……
+
+*****
+
+####  憧憬鲨  
+##### 14737#       发表于 2022-10-18 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57979646&amp;ptid=2099454" target="_blank">空月の梦 发表于 2022-10-18 22:18</a>
+恢复啥，鬼现在在单排，因为痛的睡不着</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有人碰到了？
+
+*****
+
+####  walfeds  
+##### 14738#       发表于 2022-10-18 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57979597&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-18 22:13</a>
+
+我记得谁说的焦阳的影魔其实胜率挺高的（生涯统计），有漏油有具体数据吗 ...</blockquote>
+64.42%，还行吧
+
+*****
+
+####  枯风瘦雪02  
+##### 14739#       发表于 2022-10-18 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57979735&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-18 22:24</a>
+
+有人碰到了？</blockquote>
+前半句是天梯有记录，后半句是微博有人转述据说是官方群的粉丝发言
+
+*****
+
+####  莉拉厨  
+##### 14740#       发表于 2022-10-18 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57979683&amp;ptid=2099454" target="_blank">漂灵 发表于 2022-10-18 22:21</a>
+
+nts自己都说nisha第一他第二了，看好明天被打爆坐上轮椅。nisha的影魔我没啥印象，但是nts好像不会玩好吧。 ...</blockquote>
+今天不就玩了？感觉熟练度还行啊，输bb锅分不到他头上
+
+*****
+
+####  zyw0  
+##### 14741#       发表于 2022-10-18 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57979735&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-18 22:24:57</a>
+有人碰到了？</blockquote>据说痛的睡不着只能打dota<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Bernoulli  
+##### 14742#       发表于 2022-10-18 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57979597&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-18 22:13</a>
+
+我记得谁说的焦阳的影魔其实胜率挺高的（生涯统计），有漏油有具体数据吗 ...</blockquote>
+当年徐志雷巅峰时期水人胜率第一，7成都不止，你看他生涯末期敢拿出一把水人吗？
+
+*****
+
+####  lmslardar  
+##### 14743#       发表于 2022-10-18 22:31
+
+没截图，信不信都行，但是哪怕看客户端也感觉鬼打的一般，感觉状态还没回复，也可能是在复建。咋说呢，只能期望24今年不退再混一年？
+
