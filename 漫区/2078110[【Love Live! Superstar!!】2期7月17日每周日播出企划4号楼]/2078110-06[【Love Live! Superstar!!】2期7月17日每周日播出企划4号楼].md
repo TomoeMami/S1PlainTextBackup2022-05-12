@@ -10587,3 +10587,29 @@ Nako这是正式从老婆变成妈妈了吗</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  player3960  
+##### 8485#       发表于 2022-10-18 20:37
+
+鲤鱼推荐的三首歌
+
+彭薇薇“原宿いやほい”
+
+泼妇团 “チョコレイト・ディスコ”
+
+坂本真绫“CLEAR”
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  player3960  
+##### 8486#       发表于 2022-10-18 20:39
+
+ 本帖最后由 player3960 于 2022-10-18 20:41 编辑 
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
