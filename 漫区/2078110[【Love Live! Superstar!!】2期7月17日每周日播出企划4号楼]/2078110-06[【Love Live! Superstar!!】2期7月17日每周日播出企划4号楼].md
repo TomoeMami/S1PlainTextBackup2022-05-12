@@ -10650,3 +10650,16 @@ Nako这是正式从老婆变成妈妈了吗</blockquote>
 大佬们，请教一下为什么第二季的插入曲都找不到对应的offvocal，我看10月19卖的singshinesmile的12话cd列表有这三首的伴奏，是只有实体盘有还是单纯放流的时候没放啊
 <img src="https://p.sda1.dev/7/7da35a2a699d2556ca98d0d7bf715ac5/Screenshot_20221019-012140__01__01.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 8491#       发表于 2022-10-19 01:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981954&amp;ptid=2078110" target="_blank">L-JoeW 发表于 2022-10-19 01:26</a>
+大佬们，请教一下为什么第二季的插入曲都找不到对应的offvocal，我看10月19卖的singshinesmile的12话cd列表 ...</blockquote>
+目前我看几个流媒体平台都没有包含伴奏
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

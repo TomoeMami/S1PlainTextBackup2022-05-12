@@ -4755,3 +4755,14 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 要刷多少爱心才能改结局啊 吐了
 
+
+
+*****
+
+####  帆影FX  
+##### 438#       发表于 2022-10-19 01:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981970&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-19 01:28</a>
+ 要刷多少爱心才能改结局啊 吐了</blockquote>
+我感觉把所有队友的好感都刷满就差不多了，中途要是能开箱子出几个都不用刷满
+
