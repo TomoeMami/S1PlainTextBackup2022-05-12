@@ -2125,3 +2125,12 @@ NMD怎么呼延灼也是仪式剑72*3
 又看到一个不换人打法，摩根奥伯龙+满配金时：【FGO超阴间本】红绿双杰 水浒传活动 131 关底71w血剑 BX在天 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顶配太恐怖了 倒是bx证明了他绿王的实力  2宝就可以了（不过是6加成换人
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3181#       发表于 2022-10-19 00:59
+
+刷了一波茶壶本才想起可以找找绊礼装的高宝老头，虽然还是没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

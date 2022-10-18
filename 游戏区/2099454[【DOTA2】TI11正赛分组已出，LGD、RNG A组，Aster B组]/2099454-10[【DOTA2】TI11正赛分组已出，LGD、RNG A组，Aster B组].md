@@ -11054,3 +11054,78 @@ yao老弟当时是想踢了ame的，结果反手被梅憋联合ame演进去了�
 
 又或者说饭圈doto本来就是这个样子，老北京好就好在起码他自己比a畜要坦荡。
 
+
+
+*****
+
+####  憧憬鲨  
+##### 14855#       发表于 2022-10-19 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981650&amp;ptid=2099454" target="_blank">利剑Crazy-88 发表于 2022-10-19 00:50</a>
+大概就是这个水平了，但是如果你这几天去翻翻完美世界app和lxo+，就能看到那个狂味儿一下子又回来了。这 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老北京赢在一手勇于自黑，小王有在采访的时候自称处长过吗
+
+*****
+
+####  利剑Crazy-88  
+##### 14856#       发表于 2022-10-19 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981633&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-19 00:49</a>
+
+最后两天对手，lgd，eg，hokori，og。打不过lgd可以理解，
+
+毕竟撸狗猪bp被王八算计得死死的，场上被仙贝吃 ...</blockquote>
+撸狗猪看到掀背就真的跟看到他什么亲人一样，很难想象他当时站队的时候站的是老北京的边。
+
+这也是为什么我不看好他在其他队拿分，撸狗猪这实力退化得突出一个欺软怕硬，老北京一晕这个队就要噶的
+
+*****
+
+####  银翼的维罗西  
+##### 14857#       发表于 2022-10-19 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981650&amp;ptid=2099454" target="_blank">利剑Crazy-88 发表于 2022-10-19 00:50</a>
+
+大概就是这个水平了，但是如果你这几天去翻翻完美世界app和lxo+，就能看到那个狂味儿一下子又回来了。这 ...</blockquote>
+需要去别的论坛吗，跟你对线的集美前面就说霉憋一线中单，曾焦阳世界顶级，床个人能力不行，我当场就认定是集美，凡是说话一股弱智味的大概率是集美
+
+我都是本楼实名曾焦阳粉丝这么多年也只敢说曾焦阳状态好时能摸到一线的边，但打不过一线，饭圈粉丝是分不清客观事实和情感价值的
+
+*****
+
+####  利剑Crazy-88  
+##### 14858#       发表于 2022-10-19 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981671&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-19 00:52</a>
+
+老北京赢在一手勇于自黑，小王有在采访的时候自称处长过吗</blockquote>
+真要说的话去年老北京也有经典抽肿你的脸，只有嘴巴没有眼睛，拒绝者s b了，土豆你打游戏不要说话之类比较搞笑的言论。当然老北京从来都是干了之后认的。
+
+但这不影响小超人选择性无视然后天天替老北京不值。最经典的大概就是去年那个“为什么a畜身边总能遇到顶尖中单”，给集美递子弹的味道一下子就泛上来了。
+
+*****
+
+####  蛭人  
+##### 14859#       发表于 2022-10-19 01:00
+
+vkun当场就认定集美，这就是vkun的自我牺牲能力吗，泪目。
+
+*****
+
+####  VanArkride  
+##### 14860#       发表于 2022-10-19 01:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981711&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-19 00:55</a>
+需要去别的论坛吗，跟你对线的集美前面就说霉憋一线中单，曾焦阳世界顶级，床个人能力不行，我当场就认定 ...</blockquote>
+我说的是abed波动谢谢，你扣帽子可以，不能歪曲我说的话
+当然你要是能在6挂件蓝猫上看出来个人能力拔群那我确实很佩服你
+
+*****
+
+####  憧憬鲨  
+##### 14861#       发表于 2022-10-19 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981741&amp;ptid=2099454" target="_blank">利剑Crazy-88 发表于 2022-10-19 00:59</a>
+真要说的话去年老北京也有经典抽肿你的脸，只有嘴巴没有眼睛，拒绝者s b了，土豆你打游戏不要说话之类比 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狂和自黑算是一体两面的，所以一般骂泰迪不会选择太监之类的词汇，霉鳖也更多是取的谐音和“王八”的意味，而ame是经常会被骂太监
+
