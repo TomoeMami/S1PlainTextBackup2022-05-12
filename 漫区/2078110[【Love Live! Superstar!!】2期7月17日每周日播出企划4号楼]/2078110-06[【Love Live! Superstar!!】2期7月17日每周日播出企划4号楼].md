@@ -10486,3 +10486,14 @@ Nako这是正式从老婆变成妈妈了吗</blockquote>
 
 但是喊なこ好き火火火比妈妈早多了吧？可以算鲤鱼第一个cp？
 
+
+
+*****
+
+####  Kfly  
+##### 8478#       发表于 2022-10-18 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57970038&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-18 12:52</a>
+但是喊なこ好き火火火比妈妈早多了吧？可以算鲤鱼第一个cp？</blockquote>
+大家的妈妈，鱼的老婆兼妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
