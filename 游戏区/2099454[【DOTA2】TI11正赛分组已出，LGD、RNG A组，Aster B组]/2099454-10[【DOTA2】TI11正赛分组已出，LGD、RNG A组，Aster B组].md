@@ -10940,3 +10940,117 @@ a畜打的是不是假赛还不好说呢，毕竟集美们都觉得ti10假了。
 
 看了眼还有个0-9的女王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是真的牛逼
 
+
+
+*****
+
+####  VanArkride  
+##### 14844#       发表于 2022-10-19 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981557&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-19 00:42</a>
+
+老北京比处长强在能直面现实吧，后者只会缩的，要不无冠超超哥呢，处长能让别人叫他处长，好像不太可能。 ...</blockquote>
+
+还是maybe打得好啊，他要打不好这都没用，这两天maybe带病这表现绝对称得上一句超人
+
+*****
+
+####  百世诸侯  
+##### 14845#       发表于 2022-10-19 00:44
+
+义军眼里满清上下都司马，但大清第一巴图鲁也配留个全尸，大清第一太监碎尸喂狗🐶都懒得吃
+
+*****
+
+####  利剑Crazy-88  
+##### 14846#       发表于 2022-10-19 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981528&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-19 00:40</a>
+
+你不知道我提一嘴，要不是maybe染病我本来就是天天a畜 m畜的</blockquote>
+本来水厂余孽就是可以一起打包带走的，这几天几个社区里面小超人已经看得让人有点生理性不适了。论清算水平只能说不愧是一个单位出来的老同事，只不过霉鳖确实有他高光的镜头，而giegie永远都是他那套暴毙送。
+
+中毒了之后一年一度的孤胆悲情英雄要素都已经拉满了，中毒之前我就在琢磨不会真0-8吧，结果现在0-8了倒是没人讨论霉鳖挑兄弟的水平了，反正已经中毒了，横竖不败之地，今年全他妈赖水厂就算是保护住最后的面子不至于太难看。
+
+*****
+
+####  Hirosue  
+##### 14847#       发表于 2022-10-19 00:45
+
+并不太看好eg发挥，就拿打RNG的这把影魔来说走位失误送了三四次，虽然nightfall力中大力但是带着会犯病的c是不可能打赢bo5的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  StrangerJ  
+##### 14848#       发表于 2022-10-19 00:46
+
+原来黑弓胜率这么低<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 14849#       发表于 2022-10-19 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981584&amp;ptid=2099454" target="_blank">利剑Crazy-88 发表于 2022-10-19 00:45</a>
+本来水厂余孽就是可以一起打包带走的，这几天几个社区里面小超人已经看得让人有点生理性不适了。论清算水 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天打的时候已经有人在想为什么唯一没阳性的xnova看起来是病情最严重的那个
+
+*****
+
+####  银翼的维罗西  
+##### 14850#       发表于 2022-10-19 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981584&amp;ptid=2099454" target="_blank">利剑Crazy-88 发表于 2022-10-19 00:45</a>
+
+本来水厂余孽就是可以一起打包带走的，这几天几个社区里面小超人已经看得让人有点生理性不适了。论清算水 ...</blockquote>
+不生病应该能赢个两三场，有机会苟进八强，但就这个上限了
+
+
+
+*****
+
+####  VanArkride  
+##### 14851#       发表于 2022-10-19 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981612&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-19 00:47</a>
+
+今天打的时候已经有人在想为什么唯一没阳性的xnova看起来是病情最严重的那个 ...</blockquote>
+
+队友全🐑了一个人在一间房，发挥受影响也可以理解吧，现在的rng就希望尽快恢复吧，没辙
+
+*****
+
+####  adretyu67  
+##### 14852#       发表于 2022-10-19 00:49
+
+ 本帖最后由 adretyu67 于 2022-10-19 00:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981584&amp;ptid=2099454" target="_blank">利剑Crazy-88 发表于 2022-10-19 00:45</a>
+
+本来水厂余孽就是可以一起打包带走的，这几天几个社区里面小超人已经看得让人有点生理性不适了。论清算水 ...</blockquote>
+最后两天对手，lgd，eg，hokori，og。打不过lgd可以理解，
+
+毕竟撸狗猪bp被王八算计得死死的，场上被仙贝吃的死死的。打不过比lgd更强的eg也可以理解。
+
+不出这些幺蛾子，农药和og身上各啃下来一分还是有希望的。
+
+*****
+
+####  woyzeck  
+##### 14853#       发表于 2022-10-19 00:50
+
+yao老弟当时是想踢了ame的，结果反手被梅憋联合ame演进去了。
+
+*****
+
+####  利剑Crazy-88  
+##### 14854#       发表于 2022-10-19 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981613&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-19 00:47</a>
+
+不生病应该能赢个两三场，有机会苟进八强，但就这个上限了</blockquote>
+大概就是这个水平了，但是如果你这几天去翻翻完美世界app和lxo+，就能看到那个狂味儿一下子又回来了。这个野鸡那个菜，xxx你看看你挑的什么队友。真的不愧是世界上的另一批集美。
+
+又或者说饭圈doto本来就是这个样子，老北京好就好在起码他自己比a畜要坦荡。
+
