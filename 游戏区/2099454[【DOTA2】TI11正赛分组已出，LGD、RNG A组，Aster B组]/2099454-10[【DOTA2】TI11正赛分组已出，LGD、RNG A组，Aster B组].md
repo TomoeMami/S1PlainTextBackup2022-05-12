@@ -10158,3 +10158,45 @@ nts自己都说nisha第一他第二了，看好明天被打爆坐上轮椅。nis
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一个男人，他的绰号由三个字母组成，单机细节很好，打钱很快，但是打团水平很差
 那么他是——
 
+
+
+*****
+
+####  白野苍衣  
+##### 14754#       发表于 2022-10-18 22:54
+
+A畜和北美分畜
+
+*****
+
+####  方舟失智博士  
+##### 14755#       发表于 2022-10-18 22:54
+
+黄翔跳伞来了句 哥们卖套子挣了点钱 一下把我憋不住了
+
+*****
+
+####  fopinecone  
+##### 14756#       发表于 2022-10-18 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57980069&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-18 22:52</a>
+有一个男人，他的绰号由三个字母组成，单机细节很好，打钱很快，但是打团水平很差
+那么他是—— ...</blockquote>
+说的肯定不是my boi 天鸽吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thistimeforlife  
+##### 14757#       发表于 2022-10-18 22:56
+
+《全村的希望》《虽然XXXX，但是XX赛区没有比geigei更好的C了》
+
+*****
+
+####  反方向的波  
+##### 14758#       发表于 2022-10-18 22:57
+
+理智通透，今天葑茖不能露脸是不是因为要一边卖套一边解说
+
