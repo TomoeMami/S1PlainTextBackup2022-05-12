@@ -10631,3 +10631,12 @@ Nako这是正式从老婆变成妈妈了吗</blockquote>
 
 录完个人广播顺路就去了可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8489#       发表于 2022-10-19 00:22
+
+<blockquote>https://fate.5ch.net/test/read.cgi/lovelive/1666095802/</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这小甜饼前面有点意思
+

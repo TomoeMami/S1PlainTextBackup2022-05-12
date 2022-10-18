@@ -12078,3 +12078,12 @@ sky终于有空参加歌谣祭了<img src="https://static.saraba1st.com/image/sm
 
 Selen: it's okay I'm in Nijisanji<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17606#       发表于 2022-10-19 00:15
+
+kmnz三专有比二专好听的，但感觉还是不如一专
+
