@@ -7474,3 +7474,160 @@ eg和秘密能胜者组已经比去年雪碧夺冠更冷门了吧
 
 所以说雌小鬼完美形容，非常贴切
 
+
+
+*****
+
+####  syndrome2032  
+##### 14437#       发表于 2022-10-18 19:03
+
+今年是cis血崩年，eu六队除了液体和石头人其他都抓了cis人打核心。结果本家就两队，一堆脑溢血和平鸽，一队现在淘汰边缘。
+
+看样子是去年透支了
+
+*****
+
+####  柚上舍人  
+##### 14438#       发表于 2022-10-18 19:03
+
+eg回归了他们的传统：虐菜无情
+
+*****
+
+####  Rorgen  
+##### 14439#       发表于 2022-10-18 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976799&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-18 19:03</a>
+今年是cis血崩年，eu六队除了液体和石头人其他都抓了cis人打核心。结果本家就两队，一堆脑溢血和平鸽，一队 ...</blockquote>
+批九以前混cis区的，而且他双国籍
+
+*****
+
+####  nowaki  
+##### 14440#       发表于 2022-10-18 19:05
+
+cis血崩不全怪冰龙？
+
+*****
+
+####  TI三冠王AME  
+##### 14441#       发表于 2022-10-18 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976799&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-18 19:03</a>
+
+今年是cis血崩年，eu六队除了液体和石头人其他都抓了cis人打核心。结果本家就两队，一堆脑溢血和平鸽，一队 ...</blockquote>
+BB已经淘汰了啊
+
+*****
+
+####  柚上舍人  
+##### 14442#       发表于 2022-10-18 19:05
+
+雪崩什么的还看不太出来，得打两天淘汰赛基本就明朗了
+
+*****
+
+####  方舟失智博士  
+##### 14443#       发表于 2022-10-18 19:06
+
+？
+
+1.jpg
+(106.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 19:06 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/190640j020u809jadmfcum.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 14444#       发表于 2022-10-18 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976835&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-18 19:05</a>
+BB已经淘汰了啊</blockquote>
+诶，不是还有场加赛吗
+
+*****
+
+####  端木恋心  
+##### 14445#       发表于 2022-10-18 19:07
+
+完美花钱开始宣传了？
+
+*****
+
+####  坚定的团子党  
+##### 14446#       发表于 2022-10-18 19:08
+
+毛区大环境欣欣向荣，就算今年被西欧区吸了血，明年也会冒出来一批新人
+
+*****
+
+####  米德  
+##### 14447#       发表于 2022-10-18 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976865&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-18 19:07</a>
+诶，不是还有场加赛吗</blockquote>
+boom连赢两场进败者组了啊
+bb qc淘汰了
+
+*****
+
+####  TI三冠王AME  
+##### 14448#       发表于 2022-10-18 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976865&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-18 19:07</a>
+
+诶，不是还有场加赛吗</blockquote>
+Boom把两个队都赢了，直接进败者组，这两兄弟在打荣誉之战
+
+*****
+
+####  枯风瘦雪02  
+##### 14449#       发表于 2022-10-18 19:08
+
+雪碧崩不崩还是看崩溃哥能不能认怂/老东京能不能灵光一闪开始顺应冰蛙出怨灵……现在这数值设计前期不出怨灵打出的优势等于白打真是让人无语啊……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  米德  
+##### 14450#       发表于 2022-10-18 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新鲜血液都被抓去打基辅major啦
+
+*****
+
+####  蛭人  
+##### 14451#       发表于 2022-10-18 19:09
+
+OG这帮比是真的搞笑，天天搞ceb是吧？
+
+<img src="https://img.saraba1st.com/forum/202210/18/190935edn0e8v81n84g4ni.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (80.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 19:09 上传
+
+*****
+
+####  Rorgen  
+##### 14452#       发表于 2022-10-18 19:11
+
+瑞典丁聪装tm最会交际的
+
+*****
+
+####  walfeds  
+##### 14453#       发表于 2022-10-18 19:11
+
+皮是真的痒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1931,3 +1931,19 @@ BX挂上了，感觉应该用不到20np
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 我这1宝bx用奥宝伤害够了 但是会卡8np 用cba np够了但伤害不够
 
+
+
+*****
+
+####  alucardcz  
+##### 3162#       发表于 2022-10-18 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试的差不多了  还是bx+摩根+rba+奥师傅这套最稳  但问题是我就一个np礼装得借打手  好麻烦
+
+*****
+
+####  khxooo  
+##### 3163#       发表于 2022-10-18 19:06
+
+用的是小黑+伊丽莎白的阵容，当然是5加成。
+
