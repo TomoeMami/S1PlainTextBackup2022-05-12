@@ -4555,3 +4555,14 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那个是外传主角，新章最后的肉鸽就是幻雾洞窟换皮。剧情是在56章之间。主角在一周目就被梦神搞到彻底昏迷了，就是试玩版那段剧情。
 狗和她救了主角，那时候的狗是梦神创造的（梦神靠主角的记忆搞出了一堆魔物，没想到狗本体就是魔物），改变时间线以后主角没有去幻雾洞窟，而狗在一周目已经被主角物理超度了。所以狗不是隐瞒而是没有一周目的记忆
 
+
+
+*****
+
+####  六至九  
+##### 421#       发表于 2022-10-18 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976446&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-18 18:39</a>
+没原版那么生草了</blockquote>
+还是挺色的，不愧是本作福利担当，就是不太好打
+

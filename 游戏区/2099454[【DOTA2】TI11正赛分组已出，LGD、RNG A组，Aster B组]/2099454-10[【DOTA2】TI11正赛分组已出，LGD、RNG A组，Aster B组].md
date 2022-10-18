@@ -9317,3 +9317,142 @@ T2：马体超预期，EG超预期，石头人超预期,TSM脑浆到家
 
 基本没几个是能准的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 14653#       发表于 2022-10-18 21:03
+
+赛前真有人觉得EG T2？
+
+*****
+
+####  Rorgen  
+##### 14654#       发表于 2022-10-18 21:04
+
+ 本帖最后由 Rorgen 于 2022-10-18 21:06 编辑 
+
+感觉1245肯定还是完全信任collapse的，collapse需要独自思考怎么带队走出逆版本困境，想想难度就逆天
+
+因为你是团队打法的核心，去年在小组赛的绝境找到了潮汐，败者组的绝境找到了猛犸，今年就不知道还有没有这样的运气在collapse的心目中，33是全世界最强的三号位，因为他会的都是自己不会的，现在的collapse应该正在反复看33哥的录像，找寻渺茫的生机
+
+*****
+
+####  柚上舍人  
+##### 14655#       发表于 2022-10-18 21:04
+
+“新小象故事”  领衔主演：路垚
+
+*****
+
+####  迷途lite  
+##### 14656#       发表于 2022-10-18 21:04
+
+崩溃哥现在去写轮眼nightfall那一套能不能拯救雪碧
+
+*****
+
+####  tasuku  
+##### 14657#       发表于 2022-10-18 21:05
+
+赛前看了mi酱拿到签证还有人觉得og有救？
+
+*****
+
+####  ArowRocher  
+##### 14658#       发表于 2022-10-18 21:05
+
+RNG回国之后讲故事应该有不少内容
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 14659#       发表于 2022-10-18 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978646&amp;ptid=2099454" target="_blank">ArowRocher 发表于 2022-10-18 21:00</a>
+杰出说淘汰赛也会在夜饮潇湘直播间，那斗鱼应该只能延迟播了。</blockquote>
+斗鱼直接不能播啊，复盘都不能<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 14660#       发表于 2022-10-18 21:06
+
+崩溃其实手活里还有个潮汐和兽王能出大祭品，不过。。。难。
+
+基本上按照他们风格大概都会打成拖后局，等yatoro来C，但是yatoro现在也一桶浆糊
+
+*****
+
+####  Crazy_Knife  
+##### 14661#       发表于 2022-10-18 21:07
+
+Misha确实不如ceb更加不如chu<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 14662#       发表于 2022-10-18 21:08
+
+<img src="https://img.saraba1st.com/forum/202210/18/210855m8223h3at4g89ao2.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-10-18-21-08-43-706-edit_gov.pianzong.androidnga.jpg</strong> (102.5 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-18 21:08 上传
+
+啊？
+
+*****
+
+####  ArowRocher  
+##### 14663#       发表于 2022-10-18 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978730&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-18 21:05</a>
+斗鱼直接不能播啊，复盘都不能</blockquote>
+我想念徐林森的冷笑话<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 14664#       发表于 2022-10-18 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978781&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-18 21:08</a>
+啊？</blockquote>
+这段我在（我真不是管人吃）
+
+就是说国外有个队分析师说跟他看法一样，哪个队没说，图里经典添油加醋。事情本身也没有旁证
+
+*****
+
+####  战场原和纱  
+##### 14665#       发表于 2022-10-18 21:10
+
+感觉楼友或多或少都有点被生活压得喘不过气的意思——要打就自己打，要赢就自己赢，比赛只不过是游戏的延伸，怎么能反过来比游戏好不好玩更重要呢。
+
+*****
+
+####  Rorgen  
+##### 14666#       发表于 2022-10-18 21:10
+
+讲道理，ts在bp的时候1245四个大脑袋凑在一个屏幕面前，话还很少
+
+collapse一个人坐在自己的座位上面发呆
+
+*****
+
+####  非建政专用号  
+##### 14667#       发表于 2022-10-18 21:10
+
+我建议崩溃哥直接玩拉比克，copyninja——collapse
+
+*****
+
+####  迷途lite  
+##### 14668#       发表于 2022-10-18 21:11
+
+卤蛋能不能也学杰畜秽土转生一下啊
+

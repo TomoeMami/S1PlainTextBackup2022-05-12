@@ -225,3 +225,12 @@
 
 光现在这出伤模式算是到顶了，又快又无脑。风现在还想打得玩心跳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17121#       发表于 2022-10-18 21:10
+
+笑死，路枪又上岗了
+
