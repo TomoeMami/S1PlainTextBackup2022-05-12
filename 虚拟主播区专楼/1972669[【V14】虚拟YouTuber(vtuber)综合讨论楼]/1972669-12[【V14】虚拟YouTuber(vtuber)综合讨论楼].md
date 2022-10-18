@@ -12067,3 +12067,14 @@ sky终于有空参加歌谣祭了<img src="https://static.saraba1st.com/image/sm
 要说还不如直接骂田角来的自然
 不过毕竟上市公司，驱动力确实不太一样了
 
+
+
+*****
+
+####  Ketestrait  
+##### 17605#       发表于 2022-10-18 23:55
+
+[https://youtu.be/hsuHih6pf3Q](https://youtu.be/hsuHih6pf3Q)
+
+Selen: it's okay I'm in Nijisanji<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
