@@ -1915,3 +1915,19 @@ BX挂上了，感觉应该用不到20np
 少了狗蛋让我不能用红卡多核</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用不到 2宝很稳 但是好友太难刷了。。。
 
+
+
+*****
+
+####  芭德薇  
+##### 3160#       发表于 2022-10-18 18:34
+
+我这百级2宝2000芙芙的bx居然可以连续两次上班，真不容易……
+
+*****
+
+####  alucardcz  
+##### 3161#       发表于 2022-10-18 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 我这1宝bx用奥宝伤害够了 但是会卡8np 用cba np够了但伤害不够
+

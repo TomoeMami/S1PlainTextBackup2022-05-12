@@ -6963,3 +6963,180 @@ talon和ett居然是bo3
 
 雌小鬼已经恶堕了，早点去打基辅major吧
 
+
+
+*****
+
+####  反方向的波  
+##### 14374#       发表于 2022-10-18 18:33
+
+1！5！哥们儿就在这里暴毙
+
+*****
+
+####  zeyuhongzhi  
+##### 14375#       发表于 2022-10-18 18:34
+
+如果，我是说如果，掀背真的要赢了，漏油会跪吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  两三流浪者  
+##### 14376#       发表于 2022-10-18 18:35
+
+才发现本届ti秘鲁选手多达13人，位列榜首
+
+*****
+
+####  两三流浪者  
+##### 14377#       发表于 2022-10-18 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976367&amp;ptid=2099454" target="_blank">zeyuhongzhi 发表于 2022-10-18 18:34</a>
+
+如果，我是说如果，掀背真的要赢了，漏油会跪吗</blockquote>
+你想跪可以跪啊
+
+*****
+
+####  walfeds  
+##### 14378#       发表于 2022-10-18 18:35
+
+又来投降派？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  isla  
+##### 14379#       发表于 2022-10-18 18:36
+
+贷款不可取
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  迷途lite  
+##### 14380#       发表于 2022-10-18 18:36
+
+pure神这回头一勾都是戏啊
+
+*****
+
+####  为了mf注册  
+##### 14381#       发表于 2022-10-18 18:36
+
+算了吧，去年那种情况都不会跪，今年更不可能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Crazy_Knife  
+##### 14382#       发表于 2022-10-18 18:37
+
+凭啥要跪，大不了戒刀以后不看ti了
+
+*****
+
+####  horacio  
+##### 14383#       发表于 2022-10-18 18:37
+
+这entity和talon的比赛瞬息万变<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 14384#       发表于 2022-10-18 18:37
+
+nowaki 发表于 2022-10-18 12:15 来自手机 | 只看该作者
+今年就算集美大水漫过头顶，我也要用最后的力气举起中指去鄙视a畜
+
+*****
+
+####  zhwpjy  
+##### 14385#       发表于 2022-10-18 18:37
+
+ 不是还没赢吗  赢了再说呗
+
+*****
+
+####  两三流浪者  
+##### 14386#       发表于 2022-10-18 18:38
+
+赛程怎么不见了
+
+image.png
+(93.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 18:37 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/183755r8q8fkrslclzyrlm.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 14387#       发表于 2022-10-18 18:38
+
+温馨提示，mikoto和pure现在分列世界天梯第一第二
+
+*****
+
+####  百世诸侯  
+##### 14388#       发表于 2022-10-18 18:39
+
+一贴小号都来了，侦探到在途的集美大军
+
+*****
+
+####  两三流浪者  
+##### 14389#       发表于 2022-10-18 18:39
+
+败者组是bo1？
+
+image.png
+(21.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 18:39 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/183923oq2t688k6f7y8pct.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 14390#       发表于 2022-10-18 18:40
+
+败者组第一轮不从来都是bo1
+
+*****
+
+####  Horusddt  
+##### 14391#       发表于 2022-10-18 18:40
+
+败者组一向是bo1
+
+*****
+
+####  zhliiiii  
+##### 14392#       发表于 2022-10-18 18:40
+
+第一次看？
+
+*****
+
+####  zeyuhongzhi  
+##### 14393#       发表于 2022-10-18 18:40
+
+ti败者组第一轮一直是bo1啊来自: iPhone客户端
+
+*****
+
+####  没钱买手办  
+##### 14394#       发表于 2022-10-18 18:41
+
+不打游戏就算了，比赛也要云啊
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

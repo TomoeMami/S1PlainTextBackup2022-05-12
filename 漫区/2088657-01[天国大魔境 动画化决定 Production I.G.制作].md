@@ -60,3 +60,15 @@
 
 官宣啦好期待啊啊啊啊
 
+
+
+*****
+
+####  Nathan-_-  
+##### 73#       发表于 2022-10-18 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57192741&amp;ptid=2088657" target="_blank">有钱多买小人 发表于 2022-8-24 08:23</a>
+
+按漫画现在的进度，是想同步完结吗？</blockquote>
+石黑前段时间的推说已经想好结局了，但是还要画很久，所以大概不会同步完结
+

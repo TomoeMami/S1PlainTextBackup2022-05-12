@@ -4487,3 +4487,20 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 —— 来自 S1Fun</blockquote>
 酒馆后面 跳上去往后走
 
+
+
+*****
+
+####  蓝雉  
+##### 415#         楼主| 发表于 2022-10-18 18:39
+
+<img src="https://img.saraba1st.com/forum/202210/18/183904wbtqdpeqg68tqo7b.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221018183846.png</strong> (301.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 18:39 上传
+
+没原版那么生草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
