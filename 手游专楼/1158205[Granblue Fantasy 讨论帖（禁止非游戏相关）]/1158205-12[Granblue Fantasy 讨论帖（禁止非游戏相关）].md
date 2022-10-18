@@ -216,3 +216,12 @@
 
 土方建议尽量双打，别单解，不然最开始的几层会特别折磨<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sylpheed  
+##### 17120#       发表于 2022-10-18 14:01
+
+光现在这出伤模式算是到顶了，又快又无脑。风现在还想打得玩心跳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
