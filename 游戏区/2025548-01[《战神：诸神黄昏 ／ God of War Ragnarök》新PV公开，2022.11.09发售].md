@@ -5710,3 +5710,21 @@ https://tieba.baidu.com/p/8091830242</blockquote>
 
 国内媒体也拿到测评码了
 
+
+
+*****
+
+####  clover293  
+##### 625#       发表于 2022-10-18 11:10
+
+果然还是要走preview的，我就说索尼也没那么自信<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 626#       发表于 2022-10-18 11:12
+
+只有没钱宣传，没有不想宣传的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
