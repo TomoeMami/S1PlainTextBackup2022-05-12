@@ -3199,3 +3199,261 @@ gtmd吸我g胖人气
 
 为什么每个能进去的红包都能看到烟火烟火这个b
 
+
+
+*****
+
+####  Rorgen  
+##### 13901#       发表于 2022-10-18 16:13
+
+哦豁，秘密可以学eg，在自己排名已经固定的情况下施舍talon分数，直接送同区对手entity回家
+
+*****
+
+####  越动天下  
+##### 13902#       发表于 2022-10-18 16:13
+
+脑东京这有点搞笑
+
+*****
+
+####  nowaki  
+##### 13903#       发表于 2022-10-18 16:13
+
+里番
+
+*****
+
+####  迷途lite  
+##### 13904#       发表于 2022-10-18 16:13
+
+不是本子？
+
+*****
+
+####  万世创伤伊莫库  
+##### 13905#       发表于 2022-10-18 16:13
+
+雪碧这么喜欢选他那蠢比巨魔吗？
+
+*****
+
+####  沈经文  
+##### 13906#       发表于 2022-10-18 16:13
+
+不是女装c我不是很认可
+
+*****
+
+####  情商  
+##### 13907#         楼主| 发表于 2022-10-18 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57973880&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-18 16:12</a>
+为什么每个能进去的红包都能看到烟火烟火这个b</blockquote>
+这个b不就是你？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一品堂官  
+##### 13908#       发表于 2022-10-18 16:14
+
+看本子是前几年杜鹏被拍到的？好吧想起来了
+
+*****
+
+####  超级柯南迷  
+##### 13909#       发表于 2022-10-18 16:15
+
+rng阳的源头是哪里？LGD经理阳了，队员没事，rng队员全阳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火鸡味锅巴  
+##### 13910#       发表于 2022-10-18 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57973893&amp;ptid=2099454" target="_blank">万世创伤伊莫库 发表于 2022-10-18 16:13</a>
+
+雪碧这么喜欢选他那蠢比巨魔吗？</blockquote>
+你黑雪碧就像往天空丢斧头<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Crazy_Knife  
+##### 13911#       发表于 2022-10-18 16:15
+
+杜鹏又名里番c
+
+*****
+
+####  tasuku  
+##### 13912#       发表于 2022-10-18 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57973531&amp;ptid=2099454" target="_blank">fananaf 发表于 2022-10-18 15:54</a>
+
+大哥 淘汰赛后天</blockquote>
+啊？那中间断的是哪一截，淘汰赛第一轮打完？
+
+*****
+
+####  morwhipppo  
+##### 13913#       发表于 2022-10-18 16:16
+
+纯真神不会真的小组淘汰了吧，看ppy给不给他脸了
+
+*****
+
+####  情商  
+##### 13914#         楼主| 发表于 2022-10-18 16:16
+
+不是被拍到，是16年在lfy的时候，他们去波士顿打完major回来的路上在日本便利店杜鹏买了几本本子，然后下面八朋友圈，后面转到微博了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Rorgen  
+##### 13915#       发表于 2022-10-18 16:16
+
+给wisper点谜团，克里斯sf还想赢？
+
+*****
+
+####  哈曼的YY  
+##### 13916#       发表于 2022-10-18 16:16
+
+感觉茶队大祭品一出就赢了
+
+雪碧就巨魔是吧 我很好奇他们回家局会选什么
+
+*****
+
+####  fananaf  
+##### 13917#       发表于 2022-10-18 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57973926&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-18 16:15</a>
+
+啊？那中间断的是哪一截，淘汰赛第一轮打完？</blockquote>
+29和30号是最后几场了
+
+*****
+
+####  IG.430  
+##### 13918#       发表于 2022-10-18 16:17
+
+超级杜鹏私生饭专楼
+
+*****
+
+####  没钱买手办  
+##### 13919#       发表于 2022-10-18 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我听漏油的预测了ett怎么陪我
+
+*****
+
+####  迷途lite  
+##### 13920#       发表于 2022-10-18 16:17
+
+建议查询一下认为女装c跟色色二次元相关的漏油的成分
+
+
+
+*****
+
+####  Crazy_Knife  
+##### 13921#       发表于 2022-10-18 16:17
+
+被打烂了
+
+*****
+
+####  tasuku  
+##### 13922#       发表于 2022-10-18 16:18
+
+哦尼玛，原来是淘汰赛打三天然后断一周
+
+我一直以为断的是小组赛/淘汰赛
+
+*****
+
+####  MisakaMikoto  
+##### 13923#       发表于 2022-10-18 16:18
+
+ 本帖最后由 MisakaMikoto 于 2022-10-18 16:19 编辑 
+
+茶第二把输雪碧，然后另一边bc再赢一把TA，fnc再赢一把tsm。
+然后雪碧，bc，TA，fnc四队同分，明天再打一天！
+
+快进到雪碧艰难加赛进胜者组，首轮遭遇李逵大魔王掉到败者组，鸭头肉剃光头一穿七决赛对阵lgd
+
+—— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  NaYo丶  
+##### 13924#       发表于 2022-10-18 16:18
+
+雪碧现在开宰没用了 隔壁ta要赢了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 13925#       发表于 2022-10-18 16:18
+
+不是，怎么感觉拳击手这么想赢啊，ni公子火女水晶血魔都出来了
+
+*****
+
+####  一品堂官  
+##### 13926#       发表于 2022-10-18 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57973960&amp;ptid=2099454" target="_blank">迷途lite 发表于 2022-10-18 16:17</a>
+
+建议查询一下认为女装c跟色色二次元相关的漏油的成分</blockquote>
+女装是有个杜鹏的qq截图 那个就是去年传的年代比较近了
+
+*****
+
+####  战狼PTSD  
+##### 13927#       发表于 2022-10-18 16:20
+
+玉玉了，平板看了一天比赛，漏了几百块本楼大红包
+
+*****
+
+####  StrangerJ  
+##### 13928#       发表于 2022-10-18 16:20
+
+看来阵容确实没问题
+
+*****
+
+####  迷途lite  
+##### 13929#       发表于 2022-10-18 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57973990&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-18 16:19</a>
+女装是有个杜鹏的qq截图 那个就是去年传的年代比较近了</blockquote>
+我知道，但是漏油不应该对女装色色
+
+*****
+
+####  反方向的波  
+##### 13930#       发表于 2022-10-18 16:21
+
+给谷圣刷胜率是吧
+
+*****
+
+####  情商  
+##### 13931#         楼主| 发表于 2022-10-18 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57973990&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-18 16:19</a>
+女装是有个杜鹏的qq截图 那个就是去年传的年代比较近了</blockquote>
+女装是去年dpc第一cos风行至宝，哥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
