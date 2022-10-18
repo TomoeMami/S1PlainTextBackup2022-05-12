@@ -7815,3 +7815,66 @@ ni公子加油！干死A畜
 itachi 鼬</blockquote>
 不是说atf 鼬100%么
 
+
+
+*****
+
+####  蛭人  
+##### 14473#       发表于 2022-10-18 19:23
+
+妈的，图糊了，后续的对话我贴下吧，这哥几个跟贴吧聊天塞的。
+
+<img src="https://img.saraba1st.com/forum/202210/18/192228myyeyorr6u15212m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (77.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/192235a8d2dkqq182mwqkc.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (93.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/192246b8uq1ya8d11cyj8a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 19:22 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/192324xy2ma2f8zee3l2am.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (82.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 19:23 上传
+
+<img src="https://img.saraba1st.com/forum/202210/18/192332x0wwtrcvcggghtc1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 19:23 上传
+
+*****
+
+####  一品堂官  
+##### 14474#       发表于 2022-10-18 19:23
+
+还是独眼的ceb sensei比较有梗
+
+*****
+
+####  Sabbah  
+##### 14475#       发表于 2022-10-18 19:27
+
+Taiga和Insania不得入内
+
