@@ -667,3 +667,165 @@ RNG李偲一直都挺垮的难得爆发一把，当然现在情况也没什么�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">第一把就茶和秘密 来点烫嘴早茶
 
+
+
+*****
+
+####  情商  
+##### 12074#         楼主| 发表于 2022-10-18 09:51
+
+不说都忘了，丫头肉还有一手淘汰赛献祭头发给dota之神
+
+*****
+
+####  syndrome2032  
+##### 12075#       发表于 2022-10-18 09:51
+
+秘密和茶同分。这也是要往死里打的。
+
+*****
+
+####  nxmonitor  
+##### 12076#       发表于 2022-10-18 09:51
+
+TS前三天拿的英雄和天梯练的英雄完全不是一个池子，不知道是真藏还是和老VP学习藏到TI12……
+
+*****
+
+####  やト  
+##### 12077#       发表于 2022-10-18 09:52
+
+ 希望早茶烫嘴了
+
+*****
+
+####  NaYo丶  
+##### 12078#       发表于 2022-10-18 09:53
+
+雪碧今天该发发力了。干净利落4比0给大伙一个希望吧 指望南美dota不现实
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 12079#       发表于 2022-10-18 09:53
+
+相信露米，相信hokori，相信南美dota
+
+*****
+
+####  tengshuo980  
+##### 12080#       发表于 2022-10-18 09:55
+
+rng加油，拿下一局就好
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nxmonitor  
+##### 12081#       发表于 2022-10-18 09:55
+
+今天最大的问题是很可能第一轮就内战，张志成已经进入头铁模式，估计茶抢到前二机会不高，EG显然不会选茶做对手的，所以今天最好情况是LGD看茶情况决定发力程度……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 12082#       发表于 2022-10-18 09:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">畜和马西都是基本上不需要带脑子玩两把就很强的，这都不敢拿是对自己有多不自信啊
+
+*****
+
+####  jk9hot  
+##### 12083#       发表于 2022-10-18 09:56
+
+对rng的期望已经从能进8强到只要赢一盘就可以了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  银翼的维罗西  
+##### 12084#       发表于 2022-10-18 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57966680&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-18 09:56</a>
+
+对rng的期望已经从能进8强到只要赢一盘就可以了
+
+论坛助手,iPhone</blockquote>
+俺也一样，不一轮游就算成功
+
+*****
+
+####  莉拉厨  
+##### 12085#       发表于 2022-10-18 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57966661&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-18 09:55</a>
+今天最大的问题是很可能第一轮就内战，张志成已经进入头铁模式，估计茶抢到前二机会不高，EG显然不会选茶做 ...</blockquote>
+lgd也没资格去放水，毕竟还有理论加赛进败者组的可能，第一轮内战打就打吧，谁厉害谁上去呗
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  syndrome2032  
+##### 12086#       发表于 2022-10-18 09:58
+
+虽然bb今天九成九会被lgd玩弄到死。
+
+但我还是衷心希望他们能拿1分
+
+*****
+
+####  没钱买手办  
+##### 12087#       发表于 2022-10-18 09:59
+
+加油BB，像狮子一样战斗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 12088#       发表于 2022-10-18 09:59
+
+RNG最大的问题是BP非常劣势，听AXX说第一天就开始发烧了，问题是那天BP还可以的啊，昨天的BP是一看就大概率输，还有个问题是玛西兽会用的人很少，英雄池有很大问题……
+
+*****
+
+####  反方向的波  
+##### 12089#       发表于 2022-10-18 09:59
+
+答案是痘痘哥8个月回不去莫斯科和女友卓艾欲/火烧身不想打了  丫头肉见不到他的前女友排球队也玉玉了
+
+反观本畜男用锻炼多年的手速，昨天抢到了11个红包，生活如意了
+
+*****
+
+####  TI三冠王AME  
+##### 12090#       发表于 2022-10-18 09:59
+
+来了来了
+
+
+
+*****
+
+####  lyjssj  
+##### 12091#       发表于 2022-10-18 10:01
+
+雪碧阳尾，eg杏奴，rng生病，阿茶状态不佳
+
+马体秘密都是陈年败将
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">今年屠灭老干瘪的天命只能是圣露米和他的红领军团
+
+*****
+
+####  TI三冠王AME  
+##### 12092#       发表于 2022-10-18 10:01
+
+哦牛批，我一个都抢不到，你抢了十一个，这么厉害不见你去职业？
+

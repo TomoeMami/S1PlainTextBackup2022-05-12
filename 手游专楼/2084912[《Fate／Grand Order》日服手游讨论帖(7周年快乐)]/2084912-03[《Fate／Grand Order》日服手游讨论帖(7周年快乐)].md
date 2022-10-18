@@ -1712,3 +1712,17 @@ fgo*封神演义，你出个杨戬、妲己、赵公明，我tmd抽爆...
 
 看nga讨论bx才发现宝具本的善特攻是c类那种啊，有点落下层了.....
 
+
+
+*****
+
+####  UNISONIA  
+##### 3145#       发表于 2022-10-18 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57960539&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-10-17 19:59</a>
+
+至少是好好看过水浒的+1
+
+没有像大部分作品只讲到聚义为止的酣畅淋漓，而是强调了归顺后征讨方腊死得何其 ...</blockquote>
+那是因为东出明确提过自己看过荡寇志
+
