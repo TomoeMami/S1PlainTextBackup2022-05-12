@@ -20,3 +20,17 @@
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Aureth  
+##### 744#       发表于 2022-10-18 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57977097&amp;ptid=2009419" target="_blank">伊布桑 发表于 2022-10-18 19:23</a>
+
+原五星的满星卡，再重复给100碎，也就是相当于给你一张任意一张已有五星
+
+  -- 来自 能搜索的 Stage1官方 A ...</blockquote>
+那感情好，我现在拿我手上的开花PT能直接把sakura怼满，现在就直接拉满似乎最赚，后面辅助券抽到了可以拿去喂限定。
+
