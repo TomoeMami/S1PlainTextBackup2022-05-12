@@ -4766,3 +4766,25 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
  要刷多少爱心才能改结局啊 吐了</blockquote>
 我感觉把所有队友的好感都刷满就差不多了，中途要是能开箱子出几个都不用刷满
 
+
+
+*****
+
+####  dookiee  
+##### 439#       发表于 2022-10-19 03:45
+
+后跳忽然变得过于灵敏怎么办，一按c就触发，技能都搓不出来，玩不了了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+试着调了一下负重，好像没有效果
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  AeonsTorn  
+##### 440#       发表于 2022-10-19 03:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57982356&amp;ptid=2098044" target="_blank">dookiee 发表于 2022-10-19 03:45</a>
+后跳忽然变得过于灵敏怎么办，一按c就触发，技能都搓不出来，玩不了了
+试着调了一下负重，好像没有 ...</blockquote>
+实在不行就封印了吧
+
