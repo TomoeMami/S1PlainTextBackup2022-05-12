@@ -4297,3 +4297,25 @@ https://w.atwiki.jp/astlibra/</blockquote>
 大冤种是我打到第八章了才发现小猪酒馆后面有无限传送</blockquote>
 啥无限传送？
 
+
+
+*****
+
+####  casle  
+##### 398#       发表于 2022-10-18 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57965932&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-18 09:09</a>
+
+啥无限传送？</blockquote>
+世界树之花，可以在每章中间休息时间随意传送的道具，跳上酒馆往右走能拿到
+
+*****
+
+####  九门惠  
+##### 399#       发表于 2022-10-18 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57965932&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-18 09:09</a>
+
+啥无限传送？</blockquote>
+一个可以无限传送到任意水晶位置的道具，但是章节没打完的话不能传到当前章节的水晶处，还得用水滴
+

@@ -718,3 +718,14 @@ millie A称 ...</blockquote>
 
 血源一眼假<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  415452356  
+##### 68#       发表于 2022-10-18 09:13
+
+  按鲁迅哥之前tgs的暗示卡婊和索尼还有东西，是不是微软没买到龙信2限时独占给索尼买到了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
