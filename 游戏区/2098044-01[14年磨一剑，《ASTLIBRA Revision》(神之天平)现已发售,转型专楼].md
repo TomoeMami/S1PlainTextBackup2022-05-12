@@ -4319,3 +4319,33 @@ https://w.atwiki.jp/astlibra/</blockquote>
 啥无限传送？</blockquote>
 一个可以无限传送到任意水晶位置的道具，但是章节没打完的话不能传到当前章节的水晶处，还得用水滴
 
+
+
+*****
+
+####  llysander  
+##### 400#       发表于 2022-10-18 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57959851&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-10-17 19:16</a>
+
+https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revision%EF%BC%89
+
+攻略现 ...</blockquote>
+这个攻略wiki里旧版新版混在一起的
+
+*****
+
+####  黒長直姫  
+##### 401#       发表于 2022-10-18 09:46
+
+二周目轻剧透讨论
+
+第8章轻掉城门的3个BOSS怪后已经知道了面包店女儿的强"大"，甚至还拿到了爱情 然后二周目狗狗还在隐藏她的身份 笑死了
+
+*****
+
+####  jy000129  
+##### 402#       发表于 2022-10-18 09:51
+
+打过南瓜魔女了，剧情吹魔女的魔杖是BUG武器，真的么？
+
