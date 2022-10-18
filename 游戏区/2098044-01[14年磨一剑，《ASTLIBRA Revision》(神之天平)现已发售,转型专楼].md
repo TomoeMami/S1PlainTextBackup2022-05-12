@@ -4261,3 +4261,27 @@ https://w.atwiki.jp/astlibra/</blockquote>
 
 然后发现这刷素材刷得实在过头了，成长点无可点，地狱难度蛇女两分钟砍死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓝雉  
+##### 395#         楼主| 发表于 2022-10-18 08:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57965467&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-18 08:32</a>
+
+早上起来连更两个补丁，估计是我昨天退出游戏后给我更了个有bug的，然后一直没推新的给我。
+
+然后发现这 ...</blockquote>
+我刷素材都是装八音盒刷的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  五块  
+##### 396#       发表于 2022-10-18 08:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57965508&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-18 08:36</a>
+
+我刷素材都是装八音盒刷的</blockquote>
+能加幸运的都带上了，升级点点了50点，面板快300，还是苦苦刷了三十只鮟鱇鱼才完成第四章图鉴<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
