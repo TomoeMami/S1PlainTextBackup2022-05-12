@@ -31,3 +31,12 @@
 <img src="https://p.sda1.dev/7/4c49c5ca795abf88f5830a2ec500472a/kv_nrw.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/3cb89a0cbb3f4f4dca4c535e53668d71/20221018_170251.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  M乔梦  
+##### 70#       发表于 2022-10-18 17:14
+
+新星出版社说引进漫画也挺长时间了吧，动画出来前能搞出来吗？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

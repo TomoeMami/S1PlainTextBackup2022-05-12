@@ -2231,3 +2231,30 @@ Do It Your Radio!! 第 1 回开始配信，嘉宾&amp;#x662 ...</blockquote>
 
 — from Xiaomi 2206123SC, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  Piano-Forest  
+##### 184#         楼主| 发表于 2022-10-18 17:16
+
+【すてっぷ③】ＤＩＹって、どうして・いきなり・やってきた？
+
+アメリカの新進気鋭のＩＴ企業の創設者の娘で、飛び級で高校に進学した１２歳の天才少女が、せるふとたくみの隣のクラスに編入してきた。
+
+そんな天才が、どうして普通の高校に？ ぷりんらが通う、隣接する最先端の設備を誇る高校になら話はわかるが……。
+
+せるふたちが、ＤＩＹ部部員を増やすための「部室をかわいくする計画」を引き続き行っていると、その留学生の天才少女がなぜかＤＩＹ部の部室の裏手でめそめそと泣いている所に遭遇する。
+
+そこが廃屋でなく、ＤＩＹ部の部室だと知った留学生は「ＤＩＹなんて時代遅れ」だと毒づくが……。
+
+脚本：筆安一幸 
+
+絵コンテ・演出：奥田佳子 
+
+作画監督：今岡律之
+<img src="https://p.sda1.dev/7/1b76c34a09aba4bf7b31249bc462b06b/20221018_171536.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/e3dcc1e39bc48d51d41474ddcad42a0b/20221018_171519.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/c0256511befa2e2e1e8e14b23c307578/20221018_171538.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/fd9180e507e049eec9184b8be480994a/20221018_171539.jpg" referrerpolicy="no-referrer">
+
