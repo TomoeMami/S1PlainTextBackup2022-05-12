@@ -10230,3 +10230,422 @@ RNG这一手打个盾有用吗，团战根本打不起来
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">到淘汰赛能休息多久啊
 
+
+
+*****
+
+####  walfeds  
+##### 13310#       发表于 2022-10-18 14:23
+
+a畜好似
+
+*****
+
+####  非建政专用号  
+##### 13311#       发表于 2022-10-18 14:23
+
+怎么还有司马东西在狗叫，妮天天在刀楼聊管人我都当妮参与dota讨论了，好歹装一下好伐
+
+*****
+
+####  nowaki  
+##### 13312#       发表于 2022-10-18 14:23
+
+只有雪碧被茶20的剧本能拯救我了
+
+*****
+
+####  卡卡  
+##### 13313#       发表于 2022-10-18 14:23
+
+ 本帖最后由 卡卡 于 2022-10-18 14:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971632&amp;ptid=2099454" target="_blank">DDWarrior 发表于 2022-10-18 14:22</a>
+
+**为什么，为什么啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lmslardar  
+##### 13314#       发表于 2022-10-18 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971583&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-18 14:20</a>
+这是基本操作啊，其他队随便挑一个都会啊，查理斯手上全都是直线冲…… ...</blockquote>
+主要还是打出了一点作用，不是那种淘汰赛别人能无脑放的。当然就现在几个人的脑子让他们打游戏就已经很不容易了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  强袭型抹布  
+##### 13315#       发表于 2022-10-18 14:23
+
+看着难受啊，太可惜了，说不出话
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zpbzpb123123  
+##### 13316#       发表于 2022-10-18 14:24
+
+也就能休息两天多一点，希望能多恢复一点吧
+
+*****
+
+####  蜜汁鸡  
+##### 13317#       发表于 2022-10-18 14:24
+
+平时集美还找点理由来喷，现在是破罐子破摔，直接恶心人。
+
+*****
+
+####  Kazepollar  
+##### 13318#       发表于 2022-10-18 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971658&amp;ptid=2099454" target="_blank">卡卡 发表于 2022-10-18 14:23</a>
+ 赢得队就是7-10名，这个第六非常称职</blockquote>
+趁nm的职
+
+*****
+
+####  scg2017  
+##### 13319#       发表于 2022-10-18 14:24
+
+a畜独肥的局也能赢吗？活在梦里了
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  牛肉丸  
+##### 13320#       发表于 2022-10-18 14:24
+
+刷了送的炼金仙贝
+
+
+
+*****
+
+####  tasuku  
+##### 13321#       发表于 2022-10-18 14:24
+
+有一说一除非是第一天的rng打第一天的lgd
+
+不然2:0的概率还是挺大的
+
+状态这玄学玩意儿真不好说，没25手瘟疫法师说不定rng也是一鼓作气全部干下了
+
+只能说不基德的俱乐部居然真的能吃皮啊
+
+*****
+
+####  ArowRocher  
+##### 13322#       发表于 2022-10-18 14:24
+
+“这炼金看得有点掉粉”
+
+*****
+
+####  情商  
+##### 13323#         楼主| 发表于 2022-10-18 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971658&amp;ptid=2099454" target="_blank">卡卡 发表于 2022-10-18 14:23</a>
+
+赢得队就是7-10名，这个第六非常称职</blockquote>
+你真是个死了妈了
+
+*****
+
+####  windhawind2  
+##### 13324#       发表于 2022-10-18 14:25
+
+楼里还tm借势喷rng菜的 跟nga那种“就算新冠影响确实有但还是自己菜”的论点一样垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  walfeds  
+##### 13325#       发表于 2022-10-18 14:25
+
+只有剧毒队0-20-2光速去世的剧本能拯救我了
+
+*****
+
+####  scg2017  
+##### 13326#       发表于 2022-10-18 14:25
+
+zsmj:一点用都没有
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 13327#       发表于 2022-10-18 14:25
+
+那个N开头的死妈卵畜集美是不是又要来分析阵容不行A畜不好发挥
+
+*****
+
+####  morwhipppo  
+##### 13328#       发表于 2022-10-18 14:25
+
+现在是只能相信ni公子压猴爹等着爱沙尼亚丁聪揭壳了嘛？
+
+*****
+
+####  c88711611  
+##### 13329#       发表于 2022-10-18 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971658&amp;ptid=2099454" target="_blank">卡卡 发表于 2022-10-18 14:23</a>
+赢得队就是7-10名，这个第六非常称职</blockquote>
+**的东西
+
+*****
+
+####  薪火带新茶  
+##### 13330#       发表于 2022-10-18 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">好好休养吧
+
+*****
+
+####  Kazepollar  
+##### 13331#       发表于 2022-10-18 14:25
+
+我现在确实是希望lgd的所有人暴毙了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 13332#         楼主| 发表于 2022-10-18 14:25
+
+＠真实之影　　能不能把上面哪个卡卡封一下
+
+*****
+
+####  朝游北海  
+##### 13333#       发表于 2022-10-18 14:25
+
+建议低血压漏油看看LGD的弹幕，疗效极好，我看的想把屏幕咋了，毒厂真的恶心。
+
+*****
+
+####  为了mf注册  
+##### 13334#       发表于 2022-10-18 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971658&amp;ptid=2099454" target="_blank">卡卡 发表于 2022-10-18 14:23</a>
+
+赢得队就是7-10名，这个第六非常称职</blockquote>
+称职你m呢？a畜输给倒数的队伍一局，干瘪实力难道是小组倒数了？
+
+*****
+
+####  猫狗猫  
+##### 13335#       发表于 2022-10-18 14:25
+
+口令 集美真的司马 
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| scg2017| + 1|集美真的司马|
+
+查看全部评分
+
+*****
+
+####  yourSwaTer  
+##### 13336#       发表于 2022-10-18 14:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sadllk  
+##### 13337#       发表于 2022-10-18 14:26
+
+rng好好休息吧，能把比赛打完已经很不容易了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 13338#       发表于 2022-10-18 14:26
+
+说出来你可能不信 bc要是2-0ta 克神还能加赛胜者组
+
+*****
+
+####  resorry  
+##### 13339#       发表于 2022-10-18 14:26
+
+接下来的比赛我都不敢看了，茶的状态和他妈第三天开始吃了屎一样
+
+*****
+
+####  Avantasi  
+##### 13340#       发表于 2022-10-18 14:26
+
+孙润发也是个杂种，水厂节奏不让带，rng节奏就看不见，死了全家了
+
+*****
+
+####  坚定的团子党  
+##### 13341#       发表于 2022-10-18 14:26
+
+就茶现在这状态，真的能赢雪碧一把吗？
+
+*****
+
+####  Rorgen  
+##### 13342#       发表于 2022-10-18 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971716&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-18 14:26</a>
+说出来你可能不信 bc要是2-0ta 克神还能加赛胜者组</blockquote>
+不是，秘鲁超人pakazs三个赛季dpc第一，南美内战王假的喏
+
+*****
+
+####  Avantasi  
+##### 13343#       发表于 2022-10-18 14:27
+
+MDY确实也只配吃A畜的屎了
+
+*****
+
+####  ArowRocher  
+##### 13344#       发表于 2022-10-18 14:27
+
+这bb在干啥
+
+*****
+
+####  非建政专用号  
+##### 13345#       发表于 2022-10-18 14:27
+
+有无南美前十讲一下bc是不是ta星怒队
+
+*****
+
+####  walfeds  
+##### 13346#       发表于 2022-10-18 14:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">BB
+
+*****
+
+####  fananaf  
+##### 13347#       发表于 2022-10-18 14:27
+
+rtz这小娜迦就敢上去吃伤害贴脸打输出昨天茶队的真实看吐了
+
+*****
+
+####  nxmonitor  
+##### 13348#       发表于 2022-10-18 14:27
+
+不是啊，BB这也能送的吗？TS练了什么啊能说他们强……<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  resorry  
+##### 13349#       发表于 2022-10-18 14:28
+
+mdy哪个不是喝RU水的
+
+*****
+
+####  朝游北海  
+##### 13350#       发表于 2022-10-18 14:28
+
+<blockquote>卡卡 发表于 2022-10-18 14:23
+</blockquote>
+你全家没了，司马东西
+
+
+
+*****
+
+####  PunkEgg  
+##### 13351#       发表于 2022-10-18 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  Sabbah  
+##### 13352#       发表于 2022-10-18 14:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">得了病虽然身体不好但是终归是自己菜这种话除了本人以外怎么有一点逼脸说得出口的。
+
+哦原来是网络冲浪啊，那没事了。
+
+*****
+
+####  Crazy_Knife  
+##### 13353#       发表于 2022-10-18 14:29
+
+鹏子只适合冲上去莽的英雄，你给他选娜迦熊德这种他玩不转的，突出一个二极管，怂的怂死，莽的莽死，完全没有中间态
+
+*****
+
+####  端木恋心  
+##### 13354#       发表于 2022-10-18 14:29
+
+一会没看怎么AME和rtz都要翻盘了
+
+*****
+
+####  反方向的波  
+##### 13355#       发表于 2022-10-18 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971726&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-18 14:27</a>
+不是，秘鲁超人pakazs三个赛季dpc第一，南美内战王假的喏</blockquote>
+两个
+
+*****
+
+####  sadllk  
+##### 13356#       发表于 2022-10-18 14:30
+
+老干瘪早日新冠
+楼友自取，集美领取4000+
+
+*****
+
+####  Rorgen  
+##### 13357#       发表于 2022-10-18 14:30
+
+都当集美了，就算全家死它们也要领的
+当人不排除已经死完了
+
+*****
+
+####  憧憬鲨  
+##### 13358#       发表于 2022-10-18 14:31
+
+宰了
+
+*****
+
+####  nowaki  
+##### 13359#       发表于 2022-10-18 14:31
+
+集美的户口本只有么么鳖捏
+
+*****
+
+####  dclara1  
+##### 13360#       发表于 2022-10-18 14:32
+
+所以胜者组有: 外战1270分的直邀队，外战0分的直邀队，外卡队，要是rng没生病还有个预选队，还挺齐全
+
