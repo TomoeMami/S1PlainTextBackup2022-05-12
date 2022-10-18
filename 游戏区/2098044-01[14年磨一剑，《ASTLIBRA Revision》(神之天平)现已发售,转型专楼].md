@@ -4594,3 +4594,37 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 这游戏弓箭怎么瞄准的，我怎么只能平射</blockquote>
 弩只能平射，弓是抛物线。
 
+
+
+*****
+
+####  jy000129  
+##### 425#       发表于 2022-10-18 23:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57977799&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-18 20:06</a>
+
+话说砂糖是什么敌人掉？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">研究基地里面的盆栽树掉的概率比较高，歼灭兵器门口刷新点右边房有2颗树，可以反复刷
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A1LI| + 2|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  A1LI  
+##### 426#       发表于 2022-10-18 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57980316&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-18 23:11</a>
+
+研究基地里面的盆栽树掉的概率比较高，歼灭兵器门口刷新点右边房有2颗树，可以反复刷 ...</blockquote>
+草，万万没想到是特么几个树刷。多谢了。
+
