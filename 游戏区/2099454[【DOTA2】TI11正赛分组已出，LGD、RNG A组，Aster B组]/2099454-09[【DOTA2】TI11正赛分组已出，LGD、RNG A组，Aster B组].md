@@ -9638,3 +9638,595 @@ LS喷这2天的rng的简直和SB一样
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  蛭人  
+##### 13236#       发表于 2022-10-18 14:13
+
+典型老北京回家局SF，不能进胜者组队员这身体还得硬抗，术士八：小黑皮游戏才刚刚开始！
+
+*****
+
+####  walfeds  
+##### 13237#       发表于 2022-10-18 14:13
+
+卡师傅已经意识模糊了，都多休息吧
+
+*****
+
+####  尖刺外婆  
+##### 13238#       发表于 2022-10-18 14:13
+
+不是喷rng，哪怕查理斯和xnova身体状况正常rng还是9-9，替超哥卜值
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lmslardar|-1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  StrangerJ  
+##### 13239#       发表于 2022-10-18 14:13
+
+kaka这反应明显已经不是正常状态了。。早点结束好好休息吧
+
+*****
+
+####  朝游北海  
+##### 13240#       发表于 2022-10-18 14:13
+
+切到LGD，落后BB这种鱼队一万，有没有可能今年水厂也是个脑浆玩意儿，漏油投降早了？
+
+*****
+
+####  lmslardar  
+##### 13241#       发表于 2022-10-18 14:14
+
+rng三号位兽至少是能玩 bp没那么大劣势 但现在队员状态真是完蛋了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  憧憬鲨  
+##### 13242#       发表于 2022-10-18 14:14
+
+查理斯这冲出来干嘛
+
+*****
+
+####  Kazepollar  
+##### 13243#       发表于 2022-10-18 14:14
+
+现在这种看到人了都要愣一下的状态看着太难受了
+
+*****
+
+####  StrangerJ  
+##### 13244#       发表于 2022-10-18 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971447&amp;ptid=2099454" target="_blank">朝游北海 发表于 2022-10-18 14:13</a>
+切到LGD，落后BB这种鱼队一万，有没有可能今年水厂也是个脑浆玩意儿，漏油投降早了？ ...</blockquote>
+那干瘪是不是到第三去了？
+
+*****
+
+####  情商  
+##### 13245#         楼主| 发表于 2022-10-18 14:14
+
+哇这都蹲不住蚂蚁吗
+
+*****
+
+####  nowaki  
+##### 13246#       发表于 2022-10-18 14:14
+
+我永远不会原谅投毒队
+
+*****
+
+####  方舟失智博士  
+##### 13247#       发表于 2022-10-18 14:14
+
+lgd 掉不出胜者组 也抢不到第一
+
+*****
+
+####  万里小路さん  
+##### 13248#       发表于 2022-10-18 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971447&amp;ptid=2099454" target="_blank">朝游北海 发表于 2022-10-18 14:13:54</a>
+切到LGD，落后BB这种鱼队一万，有没有可能今年水厂也是个脑浆玩意儿，漏油投降早了？ ...</blockquote>送液体小组第二，这样必不会内战，b组4个打谁也不太有所谓吧
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ArowRocher  
+##### 13249#       发表于 2022-10-18 14:15
+
+EG被boom了
+
+*****
+
+####  情商  
+##### 13250#         楼主| 发表于 2022-10-18 14:15
+
+查理斯这不ｔｐ　收兵？
+
+*****
+
+####  Cantha  
+##### 13251#       发表于 2022-10-18 14:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> dota之神的目光从CN刀塔身上挪开了
+
+*****
+
+####  Asukalangley33  
+##### 13252#       发表于 2022-10-18 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971447&amp;ptid=2099454" target="_blank">朝游北海 发表于 2022-10-18 14:13</a>
+
+切到LGD，落后BB这种鱼队一万，有没有可能今年水厂也是个脑浆玩意儿，漏油投降早了？ ...</blockquote>
+GA都选出来了
+
+处长随便送，没人T 没人救，一眼开摆了
+
+你如果非要说处长这是正常打法那没话说<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 13253#       发表于 2022-10-18 14:16
+
+查理斯的兽真的能玩吗？你看见这把他冲的时候有几次拐弯过？
+
+*****
+
+####  Keynes  
+##### 13254#       发表于 2022-10-18 14:16
+
+我从来都不觉得干瘪能夺冠，但是一想到集美又要开始“全村最后的希望”，“西恩最好的c”我整个人就止不住的想吐<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 13255#       发表于 2022-10-18 14:16
+
+怎么能让og这种鱼游进胜者组
+
+*****
+
+####  windhawind2  
+##### 13256#       发表于 2022-10-18 14:16
+
+kaka这状态1.破雾看见对面1秒多没跳出来2.反手羊住小小后大概2s内没放大 我觉得身体肯定承受不住了 漏油们tm能不能别跟nt弹幕一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  卡卡  
+##### 13257#       发表于 2022-10-18 14:16
+
+RNG可能小组第6了，拿了9分，其中对小组前5只拿1分，算是发挥最稳定的一个队伍了
+
+*****
+
+####  情商  
+##### 13258#         楼主| 发表于 2022-10-18 14:16
+
+我抄了，　刚走２秒就刷新盾，吐了吐了
+
+*****
+
+####  漂灵  
+##### 13259#       发表于 2022-10-18 14:17
+
+难受，看着kaka什么事都做不了，好难受
+
+*****
+
+####  morwhipppo  
+##### 13260#       发表于 2022-10-18 14:17
+
+rng掉入败者组第一轮这个状态很有可能碰到ett，集美口诛笔伐感觉又要开始了
+
+
+
+*****
+
+####  非建政专用号  
+##### 13261#       发表于 2022-10-18 14:17
+
+肉山差1秒真是司了马了
+
+*****
+
+####  walfeds  
+##### 13262#       发表于 2022-10-18 14:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">错过天命肉山
+
+*****
+
+####  憧憬鲨  
+##### 13263#       发表于 2022-10-18 14:17
+
+结束了
+
+*****
+
+####  Keynes  
+##### 13264#       发表于 2022-10-18 14:18
+
+结束了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 13265#       发表于 2022-10-18 14:18
+
+恭喜og
+
+*****
+
+####  qwas  
+##### 13266#       发表于 2022-10-18 14:18
+
+集妹们，剧毒新星是真的有用啊
+
+*****
+
+####  没钱买手办  
+##### 13267#       发表于 2022-10-18 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">A畜无解肥中肥GA白给了要
+
+*****
+
+####  やト  
+##### 13268#       发表于 2022-10-18 14:18
+
+OG居然游进去了
+
+*****
+
+####  sodah  
+##### 13269#       发表于 2022-10-18 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">喂喂，dota之神在吗？
+
+*****
+
+####  lmslardar  
+##### 13270#       发表于 2022-10-18 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971484&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-18 14:16</a>
+查理斯的兽真的能玩吗？你看见这把他冲的时候有几次拐弯过？</blockquote>
+你不能用topson和崩溃哥要求他啊，这算是个中等水平
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  情商  
+##### 13271#         楼主| 发表于 2022-10-18 14:18
+
+这真是时运不济，这个阵容偷盾无限快的，哎好好工作了
+
+*****
+
+####  nowaki  
+##### 13272#       发表于 2022-10-18 14:18
+
+哭了
+
+*****
+
+####  弈秋  
+##### 13273#       发表于 2022-10-18 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">失败了
+
+*****
+
+####  为了mf注册  
+##### 13274#       发表于 2022-10-18 14:18
+
+哭了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，干瘪今年这么做最好空难
+
+*****
+
+####  nowaki  
+##### 13275#       发表于 2022-10-18 14:18
+
+夏天结束了
+
+*****
+
+####  无意义小号  
+##### 13276#       发表于 2022-10-18 14:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">第一天：从未有过的美妙开局
+
+第四天：为什么会这样呢
+
+*****
+
+####  尖刺外婆  
+##### 13277#       发表于 2022-10-18 14:19
+
+胜者组欧洲区内战了
+
+*****
+
+####  asd235614  
+##### 13278#       发表于 2022-10-18 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">RNG好好休息吧，感觉整个队状态都不太对劲，希望能快点好起来
+
+*****
+
+####  Kazepollar  
+##### 13279#       发表于 2022-10-18 14:19
+
+kaka这种状态我甚至怀疑他看着屏幕能得到多少信息
+
+*****
+
+####  nowaki  
+##### 13280#       发表于 2022-10-18 14:19
+
+司马投毒队全队空难吧
+
+*****
+
+####  空虚澄璃色  
+##### 13281#       发表于 2022-10-18 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">lgd这边这胜者组看着全是lgd克星啊，不会今年又是dota成绩最黑暗的一年吧？
+
+*****
+
+####  南风尧  
+##### 13282#       发表于 2022-10-18 14:19
+
+千防万防病毒难防，万万没想到啊那么好的头两天
+
+*****
+
+####  ArowRocher  
+##### 13283#       发表于 2022-10-18 14:19
+
+欣赏一下暴毙现代GA
+
+*****
+
+####  morwhipppo  
+##### 13284#       发表于 2022-10-18 14:19
+
+A畜献祭全家给pf皮眼吸毒
+
+*****
+
+####  zack2012  
+##### 13285#       发表于 2022-10-18 14:19
+
+RNG太菜了
+
+*****
+
+####  UnhappyTails  
+##### 13286#       发表于 2022-10-18 14:19
+
+我是真的很难过，尤其是我连续四天熬到三四点得到这样的结局
+
+好消息是没有淘汰，等他们回来再看看吧
+
+*****
+
+####  朗集  
+##### 13287#       发表于 2022-10-18 14:19
+
+唉，悠悠苍天，何薄于我<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 13288#       发表于 2022-10-18 14:19
+
+但是boom要是2比0eg。a组还有淘汰赛的加赛啊。
+
+*****
+
+####  Kazepollar  
+##### 13289#       发表于 2022-10-18 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971560&amp;ptid=2099454" target="_blank">空虚澄璃色 发表于 2022-10-18 14:19</a>
+ lgd这边这胜者组看着全是lgd克星啊，不会今年又是dota成绩最黑暗的一年吧？ ...</blockquote>
+那太好了，我现在希望lgd所有人一辈子一场dota都赢不了
+
+*****
+
+####  subject07  
+##### 13290#       发表于 2022-10-18 14:19
+
+外卡赛游出来的秘密和液体排名小组第二，外卡赛真不比正赛菜吧
+
+
+
+*****
+
+####  百世诸侯  
+##### 13291#       发表于 2022-10-18 14:19
+
+干瘪胜者组大概率打秘密，希望拳➗加油
+
+*****
+
+####  walfeds  
+##### 13292#       发表于 2022-10-18 14:19
+
+剧毒新星tm真的有用
+
+*****
+
+####  Keynes  
+##### 13293#       发表于 2022-10-18 14:19
+
+还有死吗集美在刷恭喜lgd，我恭喜你全家空难<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 13294#       发表于 2022-10-18 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971531&amp;ptid=2099454" target="_blank">lmslardar 发表于 2022-10-18 14:18</a>
+
+你不能用topson和崩溃哥要求他啊，这算是个中等水平
+
+—— 来自 S1Fun</blockquote>
+这是基本操作啊，其他队随便挑一个都会啊，查理斯手上全都是直线冲……
+
+*****
+
+####  fananaf  
+##### 13295#       发表于 2022-10-18 14:20
+
+哎  rng这状态太差了，希望休息一天能恢复吧，另外这35手全能蚂蚁真的看醉了，被电魂1打2<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 13296#       发表于 2022-10-18 14:20
+
+司马投毒队 司马投毒队 司马投毒队
+
+*****
+
+####  StrangerJ  
+##### 13297#       发表于 2022-10-18 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971573&amp;ptid=2099454" target="_blank">端木恋心 发表于 2022-10-18 14:19</a>
+但是boom要是2比0eg。a组还有淘汰赛的加赛啊。</blockquote>
+额，eg昨天就锁定第一了
+
+*****
+
+####  奇迹之巅  
+##### 13298#       发表于 2022-10-18 14:20
+
+眼瞅着ghost从前两天的无敌状态变成现在的迷茫逛街不知所措
+真的难受
+
+*****
+
+####  UnhappyTails  
+##### 13299#       发表于 2022-10-18 14:21
+
+你说得病了也没用，一旦成绩有效，集美们会立刻抓起他们不屑一顾的成绩大棒，毫不在意2分是病中的rng送给他们的
+
+我在直播间看嘲讽弹幕已经看麻了，也许我这个云玩家确实不适合看dota比赛吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwas  
+##### 13300#       发表于 2022-10-18 14:21
+
+死吗集美今天早上已经复读了一万次rng就是实力不行，我真的呕了
+
+*****
+
+####  端木恋心  
+##### 13301#       发表于 2022-10-18 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971597&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-18 14:20</a>
+额，eg昨天就锁定第一了</blockquote>
+我知道。我的意思是boom拿下来5分有机会加赛不被直接淘汰。
+
+*****
+
+####  卡卡  
+##### 13302#       发表于 2022-10-18 14:21
+
+RNG这一手打个盾有用吗，团战根本打不起来
+
+*****
+
+####  VT1996  
+##### 13303#       发表于 2022-10-18 14:22
+
+别急，maybe亲手送ame上飞机的剧本要来了
+
+*****
+
+####  StrangerJ  
+##### 13304#       发表于 2022-10-18 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971616&amp;ptid=2099454" target="_blank">端木恋心 发表于 2022-10-18 14:21</a>
+我知道。我的意思是boom拿下来5分有机会加赛不被直接淘汰。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的，没想到说的boom
+
+*****
+
+####  UnhappyTails  
+##### 13305#       发表于 2022-10-18 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971586&amp;ptid=2099454" target="_blank">fananaf 发表于 2022-10-18 14:20</a>
+哎  rng这状态太差了，希望休息一天能恢复吧，另外这35手全能蚂蚁真的看醉了，被电魂1打2 ...</blockquote>
+蚂蚁不谈，全能没啥大问题，救了不知道多少次局势
+
+其实就是带病打游戏的常见症状，打久了状态下滑非常快且集中不了
+
+中后期四个人估计脑子都是一团雾了
+
+*****
+
+####  DDWarrior  
+##### 13306#       发表于 2022-10-18 14:22
+
+<img src="https://img.saraba1st.com/forum/202210/18/142212ciyjk42tj234ju73.png" referrerpolicy="no-referrer">
+
+<strong>rng.PNG</strong> (125.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-18 14:22 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">**为什么，为什么啊
+
+*****
+
+####  5678给  
+##### 13307#       发表于 2022-10-18 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57971605&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-18 14:21</a>
+你说得病了也没用，一旦成绩有效，集美们会立刻抓起他们不屑一顾的成绩大棒，毫不在意2分是病中的rng送给他 ...</blockquote>
+是的呀，你终于醒悟了，尾巴老师
+
+*****
+
+####  AkaiSuisei  
+##### 13308#       发表于 2022-10-18 14:22
+
+意难平啊
+
+*****
+
+####  憧憬鲨  
+##### 13309#       发表于 2022-10-18 14:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">到淘汰赛能休息多久啊
+
