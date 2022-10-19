@@ -2400,3 +2400,15 @@ S1fgo群怎么又炸了？
 别人在借BX，我在借王姐</blockquote>
 我也是，不过这个很好借啊，昨晚刷了下感觉基本上随便拉一个路人都是2宝以上的，等级100+的都不少，礼装也都是对的，这个组合应该还是很主流。
 
+
+
+*****
+
+####  alucardcz  
+##### 3208#       发表于 2022-10-19 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993143&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-10-19 19:53</a>
+
+别人在借BX，我在借王姐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bx难借多了  刷好友太麻烦了所以我回去借奥师傅
+
