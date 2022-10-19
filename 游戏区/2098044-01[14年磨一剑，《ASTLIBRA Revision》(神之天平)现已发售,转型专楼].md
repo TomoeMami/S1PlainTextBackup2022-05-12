@@ -4822,3 +4822,16 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 试着调了一下负重，好像没有 ...</blockquote>
 自定义按键，把后跳和技能分开。
 
+
+
+*****
+
+####  六至九  
+##### 444#       发表于 2022-10-19 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57982575&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-19 07:03</a>
+所有队友的刷完加上1周目的2个 如果1周目3个都拿了会多一段剧情一把武器
+
+贴吧说队友可以无限刷但是我印 ...</blockquote>
+一周目除了黑白两个外，哪里还有一个呢？
+

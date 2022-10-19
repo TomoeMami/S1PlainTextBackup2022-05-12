@@ -11493,3 +11493,55 @@ lgd就应该直接跌进败者组滚蛋
 
 路垚换了我到年底的免喷权，加油吧rng<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kazepollar  
+##### 14900#       发表于 2022-10-19 08:03
+
+足以改变本届ti格局的杜鹏核心粉丝群最新消息，鹏哥在观看完水星魔女第三话和电锯人第二话后决定放弃二次元，让生活回归刀塔
+
+*****
+
+####  Damocles990609  
+##### 14901#       发表于 2022-10-19 08:03
+
+然而现实是距离超哥受难还有36小时
+
+*****
+
+####  阿垃垃圾历  
+##### 14902#       发表于 2022-10-19 08:04
+
+写在二线中单路垚受难前36小时 
+我已经原谅了maybe甚至理解了maybe
+
+*****
+
+####  nerugigannte  
+##### 14903#       发表于 2022-10-19 08:04
+
+这边推荐看孤独摇滚喝死神捏
+
+*****
+
+####  夏溪澪mio  
+##### 14904#       发表于 2022-10-19 08:11
+
+今年小组赛看不出谁独一档啊
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  resorry  
+##### 14905#       发表于 2022-10-19 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57982905&amp;ptid=2099454" target="_blank">夏溪澪mio 发表于 2022-10-19 08:11</a>
+
+今年小组赛看不出谁独一档啊
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+鳖星是不靠谱独一档<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
