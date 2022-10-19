@@ -643,3 +643,17 @@ PV2：[https://youtu.be/Y1WkVaIpVDQ](https://youtu.be/Y1WkVaIpVDQ)
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Piano-Forest  
+##### 63#       发表于 2022-10-19 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57983953&amp;ptid=2051671" target="_blank">Piano-Forest 发表于 2022-10-19 09:41</a>
+
+PV2：https://youtu.be/Y1WkVaIpVDQ
+
+青春RPG《LOOP8 降神》&amp;# ...</blockquote>
+Steam版 2023年3月21日发售
+
