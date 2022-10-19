@@ -6543,3 +6543,44 @@ myboy当年的打法还是挺革新的，同时兼具顶级操作，顶级细节
 
 [https://www.bilibili.com/video/BV1X84y1z7QD](https://www.bilibili.com/video/BV1X84y1z7QD)一首如愿送给超哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adretyu67  
+##### 15733#       发表于 2022-10-19 22:43
+
+小糯米可不想把王八送进去，把王八送进去她找谁讹钱
+
+*****
+
+####  Rorgen  
+##### 15734#       发表于 2022-10-19 22:45
+
+ 本帖最后由 Rorgen 于 2022-10-19 22:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995562&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-19 22:37</a>
+【打TI呢，鳖住不要笑 TI11小组赛搞笑高能合集 Let's play some DOTA #13-哔哩哔哩】 https://b23.tv/vtJMu ...</blockquote>
+笑死，其他人的集锦都在秀，只有A畜是一个中军局人均能做出来的神装tb恐惧心潮开bkb跳刀单杀
+
+*****
+
+####  恐怖利刃  
+##### 15735#       发表于 2022-10-19 22:49
+
+小糯米没跟他谈的时候在斗鱼直播我还看过，当时印象很深她的id是fy不会f歪
+
+*****
+
+####  Rorgen  
+##### 15736#       发表于 2022-10-19 22:50
+
+森哥喜欢不戴套，被boa栓住了呀
+不然以森哥的外型条件肯定要多玩好多年
+
+*****
+
+####  Jiron.Amos  
+##### 15737#       发表于 2022-10-19 22:51
+
+小莉雅谁？
+
