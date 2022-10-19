@@ -5954,3 +5954,23 @@ miss chef
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  黒長直姫  
+##### 552#       发表于 2022-10-20 07:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997606&amp;ptid=2098044" target="_blank">startea15 发表于 2022-10-20 05:16</a>
+新章又到魔王城的时候的选择会导致badend嘛</blockquote>
+不会 本质来说第五章也不会badend
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yongze  
+##### 553#       发表于 2022-10-20 07:22
+
+弓什么时候拿到，手里现在只有箭矢，选中使用只能丢，还是很短的一个距离，根本打不中箭靶开宝箱
+
