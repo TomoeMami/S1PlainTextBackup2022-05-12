@@ -3727,3 +3727,85 @@ EE这后现代造型</blockquote>
  我们动漫痴都喜欢老女人</blockquote>
 日漫痴来了来了
 
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 15421#       发表于 2022-10-19 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57990654&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-19 17:07</a>
+开幕式肯定要看的，而且eg打ta能看出ab组成色
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 ...</blockquote>
+酒店也有开幕式？
+
+*****
+
+####  反方向的波  
+##### 15422#       发表于 2022-10-19 17:13
+
+一想到让你滚的对战房里只有一个孤零零的burden小天洗就不想看了
+
+*****
+
+####  12481632  
+##### 15423#       发表于 2022-10-19 17:13
+
+管人痴就好这口姨味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人別離苦  
+##### 15424#       发表于 2022-10-19 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">就喜欢樱花姨装嫩
+
+*****
+
+####  StrangerJ  
+##### 15425#       发表于 2022-10-19 17:16
+
+明天还有开幕式？
+
+*****
+
+####  白野苍衣  
+##### 15426#       发表于 2022-10-19 17:17
+
+没有比赛的时候泥楼简直没法看
+
+*****
+
+####  Sabbah  
+##### 15427#       发表于 2022-10-19 17:17
+
+想了下叶建伟一个人进对战房的画面真有点凄凉感
+
+*****
+
+####  非建政专用号  
+##### 15428#       发表于 2022-10-19 17:18
+
+你楼那几个大便搬运车呢，有集美的时候你楼还能一起玩清算小游戏，没集美了一转锅男/二次元魅力现场
+
+*****
+
+####  莉拉厨  
+##### 15429#       发表于 2022-10-19 17:20
+
+楼里就有活的为什么要去nga找
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  没钱买手办  
+##### 15430#       发表于 2022-10-19 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57990555&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-19 17:02</a>
+哥们花了上万了一分钟没连麦过</blockquote>
+不如给漏油发上万块红包
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

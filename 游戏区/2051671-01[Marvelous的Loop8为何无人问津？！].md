@@ -657,3 +657,20 @@ PV2：https://youtu.be/Y1WkVaIpVDQ
 青春RPG《LOOP8 降神》&amp;# ...</blockquote>
 Steam版 2023年3月21日发售
 
+
+
+*****
+
+####  宛若青空  
+##### 64#       发表于 2022-10-19 17:14
+
+角色关系能进展到kiss的地步哦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/19/171413c3utezcoehuoajej.jpg" referrerpolicy="no-referrer">
+
+<strong>2.jpg</strong> (136.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 17:14 上传
+
