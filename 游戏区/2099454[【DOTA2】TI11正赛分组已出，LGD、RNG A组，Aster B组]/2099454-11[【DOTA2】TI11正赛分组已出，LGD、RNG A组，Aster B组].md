@@ -1594,3 +1594,117 @@ a/表演的能力确实挺强的
 
 ti8的gege是bp垃圾桶是吧，真是不能指望集美看过一点比赛啊
 
+
+
+*****
+
+####  nowaki  
+##### 15191#       发表于 2022-10-19 12:53
+
+以前lgd的bp垃圾桶明明是35
+
+*****
+
+####  tengshuo980  
+##### 15192#       发表于 2022-10-19 12:53
+
+千言万语一句话，相信萧瑟
+去年lgd都那么无敌了还是勇夺亚军
+相信萧瑟的发挥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  人別離苦  
+##### 15193#       发表于 2022-10-19 12:54
+
+还在能力强<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 15194#       发表于 2022-10-19 12:55
+
+AME能力强都出来了，你们还在说什么呢
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  恐怖利刃  
+##### 15195#       发表于 2022-10-19 12:57
+
+<img src="https://img.saraba1st.com/forum/202210/19/125656yvv39herpmillfyx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A691EE44-FD7E-457D-A73D-322DB0235FBC.jpeg</strong> (321.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 12:56 上传
+
+*****
+
+####  spring_VOV  
+##### 15196#       发表于 2022-10-19 12:58
+
+能力那么强，能剪个top10看看精彩操作吧
+
+*****
+
+####  Imanmi  
+##### 15197#       发表于 2022-10-19 12:58
+
+相信秘密，相信萧瑟
+
+*****
+
+####  蛭人  
+##### 15198#       发表于 2022-10-19 12:58
+
+nxmonitor一直是geigei粉啊，毕竟说出ame带躺2345的人，这种水军就没有必要跟他较真了。
+
+*****
+
+####  Avantasi  
+##### 15199#       发表于 2022-10-19 13:00
+
+能力强是指2020年血Ccdec吗？
+
+*****
+
+####  Avantasi  
+##### 15200#       发表于 2022-10-19 13:00
+
+能力强是指2020年血Ccdec吗？
+
+*****
+
+####  nxmonitor  
+##### 15201#       发表于 2022-10-19 13:01
+
+ 本帖最后由 nxmonitor 于 2022-10-19 13:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986899&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-19 12:50</a>
+
+打lgd跟打eg rng套路大概率差不多
+
+嗯死中路，放1肥，盯着3提
+
+盲猜的</blockquote>
+基本上就是这个思路啊，压制23可以赌ame和rtz犯大病，当然也有一定几率真被翻盘，比如小组赛液体第二把一样的剧情就被翻了，但是成功率比其他策略要高一点，只是EG比LGD还多了一个病人就是abed，中路不按死都可能自己出事，这也是不太看好EG的原因……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 15202#       发表于 2022-10-19 13:01
+
+哥哥能力强还是没问题啊，手点魔棒的人都能当排名哥，这肯定能力强啊
+我热键一大堆还是个4000分的弱鸡
+
+*****
+
+####  nowaki  
+##### 15203#       发表于 2022-10-19 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哥哥个人能力确实强，被小刘axx堵在泉水挂机了70分钟敲了gg。
+
