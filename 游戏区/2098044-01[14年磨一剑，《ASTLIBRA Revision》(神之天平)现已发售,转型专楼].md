@@ -5166,3 +5166,25 @@ steam隐藏成就是啥啊
 从酒馆屋顶往右边走可以拿个无限传送,但只能在每章间隙使用</blockquote>
 草，我打到雪山都不知道有这玩意
 
+
+
+*****
+
+####  黒長直姫  
+##### 474#       发表于 2022-10-19 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986245&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-19 12:05</a>
+
+知道了，谢谢，我这档 只有等下周目了</blockquote>
+没有下周目的 只有重开
+
+*****
+
+####  黒長直姫  
+##### 475#       发表于 2022-10-19 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986409&amp;ptid=2098044" target="_blank">SyIXVII 发表于 2022-10-19 12:18</a>
+
+二周目 伊利西昂的第三个小徽章位置有人知道怎么拿么</blockquote>
+屋顶上可以跳出去 然后下落到合适位置失重再举弩就行 注意失重不能按下 所以浮空的位置要在靶子的下面一些
+
