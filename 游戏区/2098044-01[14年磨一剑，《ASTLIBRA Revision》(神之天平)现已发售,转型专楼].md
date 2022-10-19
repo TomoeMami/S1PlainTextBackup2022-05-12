@@ -5611,3 +5611,23 @@ steam隐藏成就是啥啊
 
 魔王城的红球在哪，不会是桌子上的苹果把
 
+
+
+*****
+
+####  helix  
+##### 520#       发表于 2022-10-19 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995674&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-19 22:47</a>
+魔王城的红球在哪，不会是桌子上的苹果把</blockquote>
+确实是，跟修女多对话几次触发吃苹果事件<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六至九  
+##### 521#       发表于 2022-10-19 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995674&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-19 22:47</a>
+魔王城的红球在哪，不会是桌子上的苹果把</blockquote>
+里面的苹果挨个送就能见到了，最后一个可以不用送
+
