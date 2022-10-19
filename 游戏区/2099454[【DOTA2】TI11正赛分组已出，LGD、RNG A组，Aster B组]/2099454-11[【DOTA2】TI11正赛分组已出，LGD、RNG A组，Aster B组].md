@@ -4553,3 +4553,155 @@ https://gbc-time.com/news/po rn-actress--1xbet-everything-on-the-new-promo-campa
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  非建政专用号  
+##### 15513#       发表于 2022-10-19 18:31
+
+颜值和实力都很强的选手
+
+#ame颜值#ame实力
+
+*****
+
+####  为了mf注册  
+##### 15514#       发表于 2022-10-19 18:32
+
+那么问题来了，谁是ame呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zkc1991  
+##### 15515#       发表于 2022-10-19 18:32
+
+误入此楼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2057A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tasuku  
+##### 15516#       发表于 2022-10-19 18:32
+
+说来现在喜欢看dota1时代的一些rep，找老录像有没有什么好的地方呢？毕竟现在replay.cn也没了
+
+*****
+
+####  walfeds  
+##### 15517#       发表于 2022-10-19 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57992020&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-19 18:31</a>
+颜值和实力都很强的选手
+
+#ame颜值#ame实力</blockquote>
+漏油这个切入，吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tasuku  
+##### 15518#       发表于 2022-10-19 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57992020&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-19 18:31</a>
+
+颜值和实力都很强的选手
+
+#ame颜值#ame实力</blockquote>
+#ame野区采灵芝
+
+*****
+
+####  Avantasi  
+##### 15519#       发表于 2022-10-19 18:34
+
+肉九说老干瘪就不能夺冠
+
+*****
+
+####  nowaki  
+##### 15520#       发表于 2022-10-19 18:36
+
+哥们只知道Melody Marks的pom很不错
+
+*****
+
+####  syndrome2032  
+##### 15521#       发表于 2022-10-19 18:36
+
+肉九肯定对水厂恨之入骨啊。
+
+*****
+
+####  非建政专用号  
+##### 15522#       发表于 2022-10-19 18:36
+
+刀1贴吧的老头们应该有不少录像存货
+
+*****
+
+####  Kazepollar  
+##### 15523#       发表于 2022-10-19 18:38
+
+nmb，说了这么多，就没人发个rep给我们低分狗见识见识嘛
+
+*****
+
+####  柚上舍人  
+##### 15524#       发表于 2022-10-19 18:38
+
+肉九现在不懂dota，但他应该懂LGD
+
+*****
+
+####  12481632  
+##### 15525#       发表于 2022-10-19 18:38
+
+学习强队demo.jpg
+
+*****
+
+####  maju3  
+##### 15526#       发表于 2022-10-19 18:38
+
+韩国顶级拉席克id：princess，demo一搜就有
+
+*****
+
+####  柚上舍人  
+##### 15527#       发表于 2022-10-19 18:38
+
+来点明星选手锐评
+
+*****
+
+####  非建政专用号  
+##### 15528#       发表于 2022-10-19 18:38
+
+漏油能不能聊点东亚选手
+
+*****
+
+####  Rorgen  
+##### 15529#       发表于 2022-10-19 18:39
+
+核中核消息，去年斗鱼虎牙冲官方，今年被罚决赛日之前都不能播
+
+*****
+
+####  柚上舍人  
+##### 15530#       发表于 2022-10-19 18:40
+
+东亚选手我知道：nana_taipei，hkdoll，还有一个叫啥苹果的
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 15531#       发表于 2022-10-19 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57992148&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 18:39</a>
+核中核消息，去年斗鱼虎牙冲官方，今年被罚决赛日之前都不能播</blockquote>
+昨天不是有人接转了
+

@@ -590,3 +590,14 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
  这作质量不差泽塔多少啊，但热度不怎么高的样子，感觉是bgm拉跨了该燃的地方没有燃起来，对比泽塔特别明显 ...</blockquote>
 我是久弥滚蛋了才敢追的德凯……还有些朋友不完结不敢补，如果能平稳完结，口碑会再起来一波吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  游蜓  
+##### 667#       发表于 2022-10-19 18:41
+
+目前来看德凯还没有z那集穿越一样的神回，另外我个人感觉音乐也不如z，甚至不如扳机
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
