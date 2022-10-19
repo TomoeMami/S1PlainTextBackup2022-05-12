@@ -2243,3 +2243,17 @@ bx和摩根都是一宝。狂娜四宝还是需要1/3面红卡补伤害。这次
 
 90++第二面奥贝龙伤害总是差一点，被迫喂杯子了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3192#       发表于 2022-10-19 15:10
+
+ 本帖最后由 alucardcz 于 2022-10-19 15:11 编辑 
+
+[https://www.bilibili.com/video/BV1cP411N7gM/](https://www.bilibili.com/video/BV1cP411N7gM/)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新录的6加成换人 不重名 就前面说的王姐bx
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bx最低要求2宝  1宝的话必须100级+2000   +1000都不行
+

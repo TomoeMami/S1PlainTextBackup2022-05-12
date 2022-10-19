@@ -5240,3 +5240,22 @@ steam隐藏成就是啥啊
 
 最后合成的情人节巧克力有啥用么
 
+
+
+*****
+
+####  Sannapolis  
+##### 482#       发表于 2022-10-19 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988232&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-19 14:28</a>
+
+第二章第一个小徽章在哪，图都扫遍了。</blockquote>
+封印城武器店的隐藏宝箱拿了吗？或许是这个
+
+*****
+
+####  无意义小号  
+##### 483#       发表于 2022-10-19 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">抽空玩了一小会儿，感觉这就是我这些年苦苦找寻的游戏。
+

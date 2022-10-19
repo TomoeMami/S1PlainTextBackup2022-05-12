@@ -2674,3 +2674,159 @@ entity有点太勺了</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有类比F1的，高速绕圈圈总没多少人黑了吧
 
+
+
+*****
+
+####  TI三冠王AME  
+##### 15311#       发表于 2022-10-19 15:04
+
+根据目前奖池1679万美刀来分配的话，冠军755w，亚军218w，季军151w，殿军100w，5-6名58w，7-8名42w，已经小组淘汰的四支队每队4w
+
+作为参考，去年TI10总奖金4000w，冠军1820w，亚军520w，季军360w，殿军240w，5-6名140w，7-8名100w，小组淘汰的两支队每队10w
+
+TI10亚军=0.68个TI11冠军，批准LGD四舍五入夺冠
+
+*****
+
+####  Yugao  
+##### 15312#       发表于 2022-10-19 15:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼哥拍皮球，尼哥说快板，尼哥跑步哪个更令楼友们厌恶
+
+*****
+
+####  walfeds  
+##### 15313#       发表于 2022-10-19 15:04
+
+<img src="https://img.saraba1st.com/forum/202210/19/150357l9uuu7dku97u97ur.png" referrerpolicy="no-referrer">
+
+<strong>za0teqr90gu91.png</strong> (240.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 15:03 上传
+
+哇，日子人什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzy200912345  
+##### 15314#       发表于 2022-10-19 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988783&amp;ptid=2099454" target="_blank">Yugao 发表于 2022-10-19 15:04</a>
+
+尼哥拍皮球，尼哥说快板，尼哥跑步哪个更令楼友们厌恶</blockquote>
+那中间这个恐怕真么几个漏油不说去听了，稍微了解的应该都没有
+
+*****
+
+####  StrangerJ  
+##### 15315#       发表于 2022-10-19 15:05
+
+理性讨论，最近十年法拉利拖拉机的成绩比不比得上giegie
+
+*****
+
+####  TI三冠王AME  
+##### 15316#       发表于 2022-10-19 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988791&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-19 15:04</a>
+
+哇，日子人什么情况</blockquote>
+按steam个人资料界面算的，估计90%都还是中国人
+
+*****
+
+####  nowaki  
+##### 15317#       发表于 2022-10-19 15:06
+
+哥们只看管人说快板
+
+*****
+
+####  wzy200912345  
+##### 15318#       发表于 2022-10-19 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988798&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-19 15:05</a>
+
+理性讨论，最近十年法拉利拖拉机的成绩比不比得上giegie</blockquote>
+10年那比得上，有WCC的，比major不知道高到哪里去了，然后亚军能压lgd好几倍
+
+*****
+
+####  情商  
+##### 15319#         楼主| 发表于 2022-10-19 15:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988762&amp;ptid=2099454" target="_blank">wzy200912345 发表于 2022-10-19 15:03</a>
+
+有没有类比F1的，高速绕圈圈总没多少人黑了吧</blockquote>
+那还是有的，去年f1哪个比赛结束，一堆假赛nt 给我看乐了
+
+*****
+
+####  walfeds  
+##### 15320#       发表于 2022-10-19 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988803&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-19 15:05</a>
+
+按steam个人资料界面算的，估计90%都还是中国人</blockquote>
+都罕见是吧
+
+*****
+
+####  wzy200912345  
+##### 15321#       发表于 2022-10-19 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988821&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-19 15:06</a>
+
+那还是有的，去年f1哪个比赛结束，一堆假赛nt 给我看乐了</blockquote>
+那V社要是有个马西（不是英雄指FIA干事），那节奏得不间断聊到现在<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 15322#       发表于 2022-10-19 15:10
+
+听了不少黑人音乐（除rap）
+
+*****
+
+####  StrangerJ  
+##### 15323#       发表于 2022-10-19 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988818&amp;ptid=2099454" target="_blank">wzy200912345 发表于 2022-10-19 15:06</a>
+10年那比得上，有WCC的，比major不知道高到哪里去了，然后亚军能压lgd好几倍 ...</blockquote>
+最近10年没wcc吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">被红牛梅奔包圆了呀
+
+*****
+
+####  没钱买手办  
+##### 15324#       发表于 2022-10-19 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988762&amp;ptid=2099454" target="_blank">wzy200912345 发表于 2022-10-19 15:03</a>
+
+有没有类比F1的，高速绕圈圈总没多少人黑了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理性讨论一下，间谍门和畜长演走队友谁更畜
+
+*****
+
+####  莉拉厨  
+##### 15325#       发表于 2022-10-19 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988791&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-19 15:04</a>
+哇，日子人什么情况</blockquote>
+哦牛逼，明年直接办东京TI吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">脑东京主场作战解放樱花模式
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wzy200912345  
+##### 15326#       发表于 2022-10-19 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988894&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-19 15:11</a>
+
+最近10年没wcc吧被红牛梅奔包圆了呀</blockquote>
+我的，还以为10年前是08年<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
