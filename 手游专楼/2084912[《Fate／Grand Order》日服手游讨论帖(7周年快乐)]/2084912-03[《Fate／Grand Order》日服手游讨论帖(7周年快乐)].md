@@ -2454,3 +2454,15 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 求王姐大佬…我没rba只能用cba凑合了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3213#       发表于 2022-10-19 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994171&amp;ptid=2084912" target="_blank">[SA]KOS-MOS 发表于 2022-10-19 21:01</a>
+
+求王姐大佬…我没rba只能用cba凑合了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新加你了 但提示你好友满了
+

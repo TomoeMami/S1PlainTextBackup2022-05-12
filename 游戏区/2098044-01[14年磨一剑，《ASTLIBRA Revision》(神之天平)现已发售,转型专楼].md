@@ -5468,3 +5468,27 @@ steam隐藏成就是啥啊
 
 装备盘我没看明白，之前捡到一个，我没打算用，结果居然就消失了，背包里也没有。
 
+
+
+*****
+
+####  黒長直姫  
+##### 505#       发表于 2022-10-19 21:07
+
+ 本帖最后由 黒長直姫 于 2022-10-19 21:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994213&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-19 21:03</a>
+
+装备盘我没看明白，之前捡到一个，我没打算用，结果居然就消失了，背包里也没有。 ...</blockquote>
+没打算用还行 3个空位 有空就直接上 后面重复出一个装备的再看小格属性选是否替换
+
+鸟书里有详细说明的 这个不是道具 类似于卡牌游戏的卡 你要么要 要么不要
+
+*****
+
+####  六至九  
+##### 506#       发表于 2022-10-19 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994213&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-19 21:03</a>
+装备盘我没看明白，之前捡到一个，我没打算用，结果居然就消失了，背包里也没有。 ...</blockquote>
+装上装配盘后，树枝攻击力有1200，而且还能改一个嘉隆技能，强的多。
+

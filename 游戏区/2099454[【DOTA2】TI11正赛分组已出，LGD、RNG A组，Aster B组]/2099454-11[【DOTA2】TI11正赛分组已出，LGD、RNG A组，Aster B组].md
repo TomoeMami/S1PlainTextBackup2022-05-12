@@ -5954,3 +5954,46 @@ boom给tims选出4号位谜团全场只要拉1个好大就能团灭雪碧的情�
 
 妮们为啥都觉得雪碧能走很远，哥们理性判断应该和第一次major一样一轮游
 
+
+
+*****
+
+####  中已矣  
+##### 15673#       发表于 2022-10-19 21:03
+
+ 本帖最后由 中已矣 于 2022-10-19 21:05 编辑 
+
+Entity有冠军相，看好一路杀到决赛打液体，就是全部中国队止步16强有点遗憾。
+
+*****
+
+####  银翼的维罗西  
+##### 15674#       发表于 2022-10-19 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994138&amp;ptid=2099454" target="_blank">12481632 发表于 2022-10-19 20:59</a>
+
+让我做个梦吧</blockquote>
+鉴定为不聪明不善良
+
+*****
+
+####  Rorgen  
+##### 15675#       发表于 2022-10-19 21:06
+
+z小鬼加赛都不A塔搁对面高地上装tm最秀的那个逼样，entity走不远的
+
+*****
+
+####  TI三冠王AME  
+##### 15676#       发表于 2022-10-19 21:07
+
+<img src="https://img.saraba1st.com/forum/202210/19/210737duj5wu1yddp2ypol.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (49.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 21:07 上传
+
+你这里欠我的积分用什么还
+
