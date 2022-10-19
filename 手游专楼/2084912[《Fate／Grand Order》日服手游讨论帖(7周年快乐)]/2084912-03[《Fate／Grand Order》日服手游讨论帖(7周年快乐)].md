@@ -2484,3 +2484,28 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202210/19/212216gil8rfi0p8a9pyp8.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3215#       发表于 2022-10-19 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993978&amp;ptid=2084912" target="_blank">[SA]KOS-MOS 发表于 2022-10-19 20:50</a>
+
+903,057,963</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬 你好友满了
+
+*****
+
+####  exiaexa  
+##### 3216#       发表于 2022-10-19 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993360&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-10-19 20:08</a>
+你这个cost爆炸了吧</blockquote>
+为啥会爆炸，这次掉落这么抠门，我带着掉落加成都没清空商店，你们这就开始刷羁绊了？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+而且这个阵容本来就是解决好友不配合的或者我这种懒得刷好友的，你有好友配合你用这阵容干啥
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

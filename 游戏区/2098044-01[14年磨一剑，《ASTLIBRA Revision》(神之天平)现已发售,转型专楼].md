@@ -5529,3 +5529,21 @@ steam隐藏成就是啥啊
 求问下宝物清单里铁娘子这第二个小徽章是啥，这游戏强迫症噩梦</blockquote>
 在最后一个保存点的左上角，靠近门的位置
 
+
+
+*****
+
+####  lazycat233  
+##### 511#       发表于 2022-10-19 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">水井除草要的火箭怎么合，我看合成表没有，火把+箭也合不了
+
+*****
+
+####  六至九  
+##### 512#       发表于 2022-10-19 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994629&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-19 21:29</a>
+水井除草要的火箭怎么合，我看合成表没有，火把+箭也合不了</blockquote>
+要用第五章剧情送的精灵弓
+
