@@ -170,3 +170,101 @@ rng打og两把其实都有机会的,kaka脑子绝对被烧的不轻,破雾1秒�
 
 真别拿输出经济比说事，阿灵顿major里yatoro这个值是0.86倒数第一，但是TS照样是major冠军……
 
+
+
+*****
+
+####  iriyano  
+##### 15021#       发表于 2022-10-19 10:53
+
+雪碧major打得还不够烂吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 15022#         楼主| 发表于 2022-10-19 10:55
+
+666离队了
+
+*****
+
+####  walfeds  
+##### 15023#       发表于 2022-10-19 10:56
+
+赞助呢，救一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 15024#       发表于 2022-10-19 10:57
+
+突然感觉毛子的可能都准备跑跑跑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 15025#       发表于 2022-10-19 10:58
+
+又去看了眼数据还是在造谣啊，倒一是k1的77
+呀脱落是92
+神了，漏油也要骗
+
+*****
+
+####  Rorgen  
+##### 15026#       发表于 2022-10-19 10:58
+
+nightfall：哦牛批，只会踢一号位是吧，你gpk冰清玉洁
+
+*****
+
+####  Rorgen  
+##### 15027#       发表于 2022-10-19 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57985195&amp;ptid=2099454" target="_blank">iriyano 发表于 2022-10-19 10:58</a>
+又去看了眼数据还是在造谣啊，倒一是k1的77
+呀脱落是92
+神了，漏油也要骗</blockquote>
+死妈集美不就跟水厂一个样子，说话像放屁，奴才随主子
+
+*****
+
+####  nxmonitor  
+##### 15028#       发表于 2022-10-19 11:00
+
+还有漏油都开始下意识美化RNG了，还说卡师傅TI7最高夺冠概率呢，兽玛西谜团一个都玩不明白也行？这情况和去年的IG是一个毛病的啊，没有新冠的情况最多小组赛无敌，淘汰赛开始就不行了……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 15029#         楼主| 发表于 2022-10-19 11:00
+
+我刚才去看了一眼，a畜这几天经济输出比刷起来了，头几天才离谱，才47还是43
+
+*****
+
+####  莉拉厨  
+##### 15030#       发表于 2022-10-19 11:01
+
+没有造垚哦，人说的是阿灵顿major的数据，yatoro确实是0.86
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  Rorgen  
+##### 15031#       发表于 2022-10-19 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57985236&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-19 11:00</a>
+我刚才去看了一眼，a畜这几天经济输出比刷起来了，头几天才离谱，才47还是43 ...</blockquote>
+都是屠夫烧跟炼金辉耀刷的输出
+
+*****
+
+####  tasuku  
+##### 15032#       发表于 2022-10-19 11:02
+
+90权限都没当什么老逼
+

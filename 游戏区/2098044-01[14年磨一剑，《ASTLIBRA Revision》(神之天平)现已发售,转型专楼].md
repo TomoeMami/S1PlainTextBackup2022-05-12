@@ -5050,3 +5050,46 @@ steam隐藏成就是啥啊
 说起来一周目是不是不能全武器啊？</blockquote>
 真正意义的全武器不行 有一个在二周目 
 
+
+
+*****
+
+####  jy000129  
+##### 464#       发表于 2022-10-19 10:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57985040&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-19 10:49</a>
+
+真正意义的全武器不行 有一个在二周目</blockquote>
+好吧，我说怎么神魔都刷完了也想不到最后一件装备的线索
+
+*****
+
+####  jy000129  
+##### 465#       发表于 2022-10-19 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57985040&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-19 10:49</a>
+
+真正意义的全武器不行 有一个在二周目</blockquote>
+请问下一周目天秤有几个盘子，我只找到9个
+
+*****
+
+####  Sannapolis  
+##### 466#       发表于 2022-10-19 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57984735&amp;ptid=2098044" target="_blank">失身招领处 发表于 2022-10-19 10:31</a>
+
+第一张刷出个银臂的图纸，一看材料，这么简单？
+
+后面攻击动作模组有改嘛，所有武器都一个动作模组？ ...</blockquote>
+不同类型的武器攻击模组有一些区别，但衡量武器好不好用的标准主要还是攻击力、攻击范围、攻速这些数值因素。
+
+传说武器其实就是当前章节的高级武器，到下个章节攻击力数值就跟不上了，需要再更新装备
+
+*****
+
+####  quanlix  
+##### 467#       发表于 2022-10-19 11:00
+
+怎么你们都打的这么快
+
