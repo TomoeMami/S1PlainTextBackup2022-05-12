@@ -5568,3 +5568,12 @@ steam隐藏成就是啥啊
 
 说起来岁月真是把杀猪刀，盖乌是怎么从当年的美少年长成这种大叔样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  M27MD  
+##### 515#       发表于 2022-10-19 22:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">第6章开始是不是数值崩坏了，锤锤都要命
+

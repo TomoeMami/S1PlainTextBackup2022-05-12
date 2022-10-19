@@ -6287,3 +6287,98 @@ upper bracket is for bitches！！
 
 潘寅星迟早横尸咸阳街头
 
+
+
+*****
+
+####  格雷殿下  
+##### 15705#       发表于 2022-10-19 22:12
+
+<img src="https://img.saraba1st.com/forum/202210/19/221123d4v49zjkab9k1d4b.png" referrerpolicy="no-referrer">
+
+<strong>1009.png</strong> (10.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 22:11 上传
+
+这下不得不暴露云玩家身份了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 15706#       发表于 2022-10-19 22:15
+
+我承认，突围赛开始之后我一把没打<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 15707#       发表于 2022-10-19 22:17
+
+刚刚打了一把大畜疯狂后入对面的猴子，对线就杀了三次
+D过之后冲进去一顿瞎几把乱按就死了，好爽
+
+*****
+
+####  Litccc  
+##### 15708#       发表于 2022-10-19 22:18
+
+<img src="https://img.saraba1st.com/forum/202210/19/221742c7mzo9i3it1vvafp.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-10-19_22-15-41.png</strong> (223.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 22:17 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鹏子和曾焦阳能不能支棱起来
+
+*****
+
+####  战狼PTSD  
+##### 15709#       发表于 2022-10-19 22:19
+
+<img src="https://img.saraba1st.com/forum/202210/19/221846l79yrgrr4kw8rcz7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (143.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 22:18 上传
+
+不装了，2EZ4RTZ
+
+*****
+
+####  没钱买手办  
+##### 15710#       发表于 2022-10-19 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994792&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-19 21:40</a>
+
+小茶叶私信我红包谢谢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">茶夺冠了我单V你50好吧
+
+*****
+
+####  Kazepollar  
+##### 15711#       发表于 2022-10-19 22:20
+
+有没有单v我的说法
+
+*****
+
+####  迷途lite  
+##### 15712#       发表于 2022-10-19 22:21
+
+1111真v吗，我这就改
+
+*****
+
+####  Rorgen  
+##### 15713#       发表于 2022-10-19 22:21
+
+讲道理，14年看过dota比赛的应该都是myboy粉丝，我认识的除了鳖孙基本都是
+
