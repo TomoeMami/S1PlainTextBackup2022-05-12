@@ -5974,3 +5974,15 @@ miss chef
 
 弓什么时候拿到，手里现在只有箭矢，选中使用只能丢，还是很短的一个距离，根本打不中箭靶开宝箱
 
+
+
+*****
+
+####  soranoguiji  
+##### 554#       发表于 2022-10-20 07:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997794&amp;ptid=2098044" target="_blank">yongze 发表于 2022-10-20 07:22</a>
+
+弓什么时候拿到，手里现在只有箭矢，选中使用只能丢，还是很短的一个距离，根本打不中箭靶开宝箱 ...</blockquote>
+弓我记得一开始就能拿了啊，好像有个山需要二段跳过去然后地面有个箭头按上有个宝箱
+
