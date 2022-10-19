@@ -4918,3 +4918,12 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 说起来,白女士摘掉耳环就能从傲娇大小姐变成雌小鬼,双重体验,极致享受,我个黑党有点动摇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sahhhh6x  
+##### 453#       发表于 2022-10-19 10:00
+
+比较可怕的是装备盘也是随机的  嘉隆的被动和技能都可以改成第二种效果 
+

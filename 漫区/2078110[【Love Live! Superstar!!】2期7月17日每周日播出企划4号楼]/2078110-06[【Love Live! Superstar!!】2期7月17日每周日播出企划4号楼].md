@@ -10685,3 +10685,53 @@ Nako这是正式从老婆变成妈妈了吗</blockquote>
 
 一耳朵还是SSS最好听，传统偶像大锅饭歌曲
 
+
+
+*****
+
+####  Kfly  
+##### 8494#       发表于 2022-10-19 09:56
+
+想看第九话之后这样的可香
+
+被香音抱住，突然听到她说
+
+“我喜欢你”
+
+虽然没反应过来，但可可也回答
+
+“可可也喜欢香音”
+
+“不要说喜欢，说最喜欢吧”
+
+结果可可一边说着“最喜欢”，一边往香音怀里蹭
+
+<img src="https://img.saraba1st.com/forum/202210/19/095608tpsjqxpfmqfllp94.jpg" referrerpolicy="no-referrer">
+
+<strong>lofter_1666135776351.jpg</strong> (127.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 09:56 上传
+
+twi:@unyanai
+
+<img src="https://img.saraba1st.com/forum/202210/19/095632alyi3dy3ycxczds3.jpg" referrerpolicy="no-referrer">
+
+<strong>lofter_1666135809822.jpg</strong> (338.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 09:56 上传
+
+twi:@sugurifurui
+
+翻嵌：洲崎惠梨
+
+*****
+
+####  ViyViy  
+##### 8495#       发表于 2022-10-19 10:01
+
+unya越来越叛逆期了，开始逆着官推产出<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">最近可香可堇五五开，放前半年会想到有这可能吗。
+
