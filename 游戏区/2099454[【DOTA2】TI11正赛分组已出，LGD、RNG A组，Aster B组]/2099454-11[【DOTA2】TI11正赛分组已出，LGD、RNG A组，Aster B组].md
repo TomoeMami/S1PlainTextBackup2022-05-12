@@ -3656,3 +3656,74 @@ EG打北美南美队胜率应该都很高的，毕竟比较熟悉，这种比赛
 
 快进到明天早上10点吧，妮楼越来越恶臭了
 
+
+
+*****
+
+####  wzy200912345  
+##### 15414#       发表于 2022-10-19 17:01
+
+<img src="https://img.saraba1st.com/forum/202210/19/170143n212bsdsuk1bya4j.png" referrerpolicy="no-referrer">
+
+<strong>pp46suz5vou91.png</strong> (31.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 17:01 上传
+
+   EE这后现代造型<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 15415#       发表于 2022-10-19 17:02
+
+明天早上第二场才是秘密打干瘪吧
+
+*****
+
+####  nowaki  
+##### 15416#       发表于 2022-10-19 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57990501&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-19 17:00</a>
+
+和管人痴花几百块连麦5分钟比已经是超值了</blockquote>
+哥们花了上万了一分钟没连麦过
+
+*****
+
+####  Bernoulli  
+##### 15417#       发表于 2022-10-19 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57990534&amp;ptid=2099454" target="_blank">wzy200912345 发表于 2022-10-19 17:01</a>
+
+EE这后现代造型</blockquote>
+这都赶得上stable diffusion 画歪的邪神图了吧。
+
+*****
+
+####  莉拉厨  
+##### 15418#       发表于 2022-10-19 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57990546&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-19 17:02</a>
+明天早上第二场才是秘密打干瘪吧</blockquote>
+开幕式肯定要看的，而且eg打ta能看出ab组成色
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  超人苏坦纳  
+##### 15419#       发表于 2022-10-19 17:09
+
+马上和动漫痴切割
+
+*****
+
+####  nerugigannte  
+##### 15420#       发表于 2022-10-19 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57990033&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-19 16:33</a>
+ 我们动漫痴都喜欢老女人</blockquote>
+日漫痴来了来了
+
