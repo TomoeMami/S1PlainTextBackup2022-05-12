@@ -2187,3 +2187,12 @@ NMD怎么呼延灼也是仪式剑72*3
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">抽不到BX的我心痛 打这破本各种刷BX助战
 
+
+
+*****
+
+####  sosgame67  
+##### 3186#       发表于 2022-10-19 10:48
+
+还是小黑+伪阶龙娘+奥博隆换人c呆稳定..就是龙娘最好喂杯子，不然2面容易翻车<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -4992,3 +4992,61 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 后面攻击动作模组有改嘛，所有武器都一个动作模组？
 
+
+
+*****
+
+####  jy000129  
+##### 459#       发表于 2022-10-19 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57982575&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-19 07:03</a>
+
+没看到楼上说箱子可以出，箱子可以出就没事了只不过我打完全程剧情和全队友爱情都没见过箱子出，可能是我太 ...</blockquote>
+一周目能拿3个爱心？我只拿了黑魔女的
+
+*****
+
+####  jy000129  
+##### 460#       发表于 2022-10-19 10:47
+
+说起来一周目是不是不能全武器啊？
+
+*****
+
+####  黒長直姫  
+##### 461#       发表于 2022-10-19 10:48
+
+steam隐藏成就是啥啊 
+
+*****
+
+####  黒長直姫  
+##### 462#       发表于 2022-10-19 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57984975&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-19 10:46</a>
+
+一周目能拿3个爱心？我只拿了黑魔女的</blockquote>
+黑一个 白一个  7章面包娘一个
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| jy000129| + 1|看来漏掉了|
+
+查看全部评分
+
+*****
+
+####  黒長直姫  
+##### 463#       发表于 2022-10-19 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57984996&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-19 10:47</a>
+
+说起来一周目是不是不能全武器啊？</blockquote>
+真正意义的全武器不行 有一个在二周目 
+

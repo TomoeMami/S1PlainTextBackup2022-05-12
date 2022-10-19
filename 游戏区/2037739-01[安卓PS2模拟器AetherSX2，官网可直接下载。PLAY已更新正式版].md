@@ -42,3 +42,14 @@
 
 2022-10-19 08:54 上传
 
+
+
+*****
+
+####  慕容断月  
+##### 719#       发表于 2022-10-19 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57976435&amp;ptid=2037739" target="_blank">Xenor 发表于 2022-10-18 18:38</a>
+请问PS2重制游戏《机甲战线均衡》(Baldr Bullet Equilibrium)增加的三个派生结局要如何出现呢？冷门到网上 ...</blockquote>
+拉伸不难受吗？都会看日文了搜下日站攻略嘛，搜BBR的看看
+
