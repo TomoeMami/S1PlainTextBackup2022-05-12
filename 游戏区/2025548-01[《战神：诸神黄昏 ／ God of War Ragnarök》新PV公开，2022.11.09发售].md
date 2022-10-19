@@ -5851,3 +5851,20 @@ cory和工作室老大也没关系，现在老大是那个亚裔女的。以前�
 我看cory这些年在诸神黄昏宣发上扮演的角色都是站在工作室老大的立场上来发言，作为开发者的发言好像确实没 ...</blockquote>
 纪录片里讲了很多，战神4的变化都是因为他，而且非常顽固，差点带翻车了
 
+
+
+*****
+
+####  popchong  
+##### 640#       发表于 2022-10-19 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/19/143200ws0so1x1dwb8ddxk.jpg" referrerpolicy="no-referrer">
+
+<strong>1666160980974123.jpg</strong> (175.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 14:32 上传
+

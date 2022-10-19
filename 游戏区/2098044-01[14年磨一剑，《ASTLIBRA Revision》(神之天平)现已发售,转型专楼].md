@@ -5206,3 +5206,28 @@ steam隐藏成就是啥啊
 原来爱情有用的吗，我都用了做巧克力了，后面会不够吗</blockquote>
 可以肝出来 以及巧克力和情人节礼物可以分解
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 478#       发表于 2022-10-19 14:21
+
+竞技场这破壊の美学怎么打，属性怎么分配，我上了三倍攻都不够。人刚过火山。<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AeonsTorn  
+##### 479#       发表于 2022-10-19 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988159&amp;ptid=2098044" target="_blank">格林卡罗尔 发表于 2022-10-19 14:21</a>
+竞技场这破壊の美学怎么打，属性怎么分配，我上了三倍攻都不够。人刚过火山。 ...</blockquote>
+给的东西第四章暂时用不上吧，先过了第四章就好打了
+
+*****
+
+####  五块  
+##### 480#       发表于 2022-10-19 14:28
+
+第二章第一个小徽章在哪，图都扫遍了。
+
