@@ -5809,3 +5809,14 @@ steam隐藏成就是啥啊
 不会啊，一共十个天平，第一章两个，二到八章每章一个共七个，加上扭蛋出的一个 ...</blockquote>
 第二章是两个啊,第三第四章没有,第五章我就拿到一个
 
+
+
+*****
+
+####  AeonsTorn  
+##### 540#       发表于 2022-10-20 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57996890&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-20 00:42</a>
+第二章是两个啊,第三第四章没有,第五章我就拿到一个</blockquote>
+会是这样？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我反正看的wiki，除了第五章那个旧版是没有的新版增加了以外，其他每章的一个我都对上了
+
