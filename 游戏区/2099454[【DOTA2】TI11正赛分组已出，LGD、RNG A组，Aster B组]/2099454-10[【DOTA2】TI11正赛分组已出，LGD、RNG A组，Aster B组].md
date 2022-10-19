@@ -11470,3 +11470,26 @@ lgd就应该直接跌进败者组滚蛋
 
 然而现实是距离超哥受难还有36小时
 
+
+
+*****
+
+####  反方向的波  
+##### 14897#       发表于 2022-10-19 07:53
+
+足以改变本届ti格局的杜鹏核心粉丝群最新消息，鹏哥在观看完水星魔女第三话和电锯人第二话后决定放弃二次元，让生活回归刀塔
+
+*****
+
+####  acg_s1  
+##### 14898#       发表于 2022-10-19 07:58
+
+小骷髅和nec这个版本都有点超模的感觉，怎么都没人选的
+
+*****
+
+####  thistimeforlife  
+##### 14899#       发表于 2022-10-19 08:00
+
+路垚换了我到年底的免喷权，加油吧rng<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
