@@ -1359,3 +1359,16 @@ C:\Users\*\AppData\LocalLow\nodayshalleraseyou\DeadeyeDeepfakeSimulacrum\
 
 更多隐藏要素和剧情请自行探索。
 
+
+
+*****
+
+####  Errey  
+##### 70#       发表于 2022-10-20 07:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏主要玩hacker,战斗型Build在9级装备前都几乎不能玩不是一件好事,主线故事分歧点不能回溯,打其他结局必须开新档
+
+总体来说，很不错的东西，等我开了全技能总结一下哪些好用
+
+隔墙骇入不止提供隔墙能力还能提高视野,价值最高的被动了
+
