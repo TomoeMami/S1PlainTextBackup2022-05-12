@@ -2225,3 +2225,12 @@ bx和摩根都是一宝。狂娜四宝还是需要1/3面红卡补伤害。这次
 
 90++精准触碰我BOX盲点，没RBA没BX没摩根<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3190#       发表于 2022-10-19 12:48
+
+茶壶花完想找加成礼装的老头结果也没有，看来好友根本不用的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

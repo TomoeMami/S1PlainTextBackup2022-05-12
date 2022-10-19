@@ -507,3 +507,12 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 黄毛的健康笑容+当面变身NTR实在是太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  草海灭巨  
+##### 660#       发表于 2022-10-19 12:45
+
+这作质量不差泽塔多少啊，但热度不怎么高的样子，感觉是bgm拉跨了该燃的地方没有燃起来，对比泽塔特别明显
+
