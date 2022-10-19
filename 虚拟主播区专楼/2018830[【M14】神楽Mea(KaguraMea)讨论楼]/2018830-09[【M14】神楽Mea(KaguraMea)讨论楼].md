@@ -7042,3 +7042,35 @@ img2img的瞳色很好办,手动用画图模式画俩琥珀色和蓝色圆点
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一波十一连胜被sb队友终结 自己还是最c的
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12675#       发表于 2022-10-19 19:59
+
+问题是确实行了……
+
+<img src="https://img.saraba1st.com/forum/202210/19/195503b0mc22rywzmrmngb.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20221019195351325.jpg</strong> (2.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 19:55 上传
+
+<img src="https://img.saraba1st.com/forum/202210/19/195854j667sxmbv9jzl3z1.png" referrerpolicy="no-referrer">
+
+<strong>かぐらめあっ - Summoner Stats - League of Legends.png</strong> (335.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 19:58 上传
+
+*****
+
+####  古战场亡魂  
+##### 12676#       发表于 2022-10-19 20:00
+
+什么时候了，还在玩传统波比……
+

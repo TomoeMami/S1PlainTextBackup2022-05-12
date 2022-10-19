@@ -5415,3 +5415,12 @@ steam隐藏成就是啥啊
 你神杀剑拿了吗，这个一周目可以拿到</blockquote>
 是剩个扭蛋装忘记兑换了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  A1LI  
+##### 499#       发表于 2022-10-19 19:58
+
+我草，这装备强化，别告诉我最高强化99级。
+
