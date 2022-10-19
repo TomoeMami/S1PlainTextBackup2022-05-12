@@ -2424,3 +2424,14 @@ S1fgo群怎么又炸了？
 bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 那要牺牲一个活动NP礼装了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  [SA]KOS-MOS  
+##### 3210#       发表于 2022-10-19 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989666&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-19 16:05</a>
+有啊 大佬求好友位</blockquote>
+903,057,963
+

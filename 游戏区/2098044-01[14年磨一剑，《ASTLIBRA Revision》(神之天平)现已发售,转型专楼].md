@@ -5433,3 +5433,15 @@ steam隐藏成就是啥啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">竞技场会长战小兵伤害都这么哈人
 
+
+
+*****
+
+####  A1LI  
+##### 501#       发表于 2022-10-19 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993815&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-19 20:40</a>
+
+竞技场会长战小兵伤害都这么哈人</blockquote>
+我连那几个木桶的关卡都过不去。
+
