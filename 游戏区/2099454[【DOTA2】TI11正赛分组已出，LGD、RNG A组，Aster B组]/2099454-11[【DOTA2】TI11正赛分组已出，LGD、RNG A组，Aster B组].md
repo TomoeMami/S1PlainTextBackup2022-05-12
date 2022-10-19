@@ -2455,3 +2455,84 @@ skem这个彩笔献祭啥都没用，应该建议揭壳boy去剃个
 
 玉玉了，平板看了一天比赛，漏了几百块本楼大红包                                                              ——战狼ptsd 
 
+
+
+*****
+
+####  火鸡味锅巴  
+##### 15286#       发表于 2022-10-19 14:42
+
+SONIQS的三号位因为给高地雕像起名 尼哥快跑，被导播切到，现在已经被踢了
+
+*****
+
+####  Nyaaarlathotep  
+##### 15287#       发表于 2022-10-19 14:44
+
+爬了爬楼，真还有集美啊
+
+*****
+
+####  7450  
+##### 15288#       发表于 2022-10-19 14:45
+
+ame是不是DOTA詹姆斯<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 15289#       发表于 2022-10-19 14:46
+
+自信点，没比赛的时候就是镜像NGA
+
+*****
+
+####  walfeds  
+##### 15290#       发表于 2022-10-19 14:46
+
+<img src="https://img.saraba1st.com/forum/202210/19/144617qp0zuv054rpmxumi.jpg" referrerpolicy="no-referrer">
+
+<strong>c1iqundplou91.jpg</strong> (154.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 14:46 上传
+
+EG，危<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 15291#       发表于 2022-10-19 14:47
+
+秦先生和苏哥尔还能继续打就无所谓，勒里斯本来就菜，踢了就踢了把。
+
+*****
+
+####  wzy200912345  
+##### 15292#       发表于 2022-10-19 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988501&amp;ptid=2099454" target="_blank">7450 发表于 2022-10-19 14:45</a>
+
+ame是不是DOTA詹姆斯</blockquote>
+我的评价是不如灵活决定侠一根毛，人家起码能抱出冠军
+
+*****
+
+####  chero  
+##### 15293#       发表于 2022-10-19 14:49
+
+<blockquote>wzy200912345 发表于 2022-10-19 14:48
+我的评价是不如灵活决定侠一根毛，人家起码能抱出冠军</blockquote>
+哈登吧，不是黑登哥，没冠军，爱碰瓷
+
+*****
+
+####  wzy200912345  
+##### 15294#       发表于 2022-10-19 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988565&amp;ptid=2099454" target="_blank">chero 发表于 2022-10-19 14:49</a>
+
+哈登吧，不是黑登哥，没冠军，爱碰瓷</blockquote>
+瓷胡子起码去76现在勤勤恳恳了，我不好说
+
