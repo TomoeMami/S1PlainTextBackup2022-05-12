@@ -794,3 +794,16 @@ https://m.weibo.cn/1622008051/4826249807266814
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zris  
+##### 75#       发表于 2022-10-19 12:38
+
+挺好 silent hill part 1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别的不说，如果都做完了，又说没诚意，RE3的事情还历历在目
+
+现在原封不动重制太难，生化2剧情都砍了
+

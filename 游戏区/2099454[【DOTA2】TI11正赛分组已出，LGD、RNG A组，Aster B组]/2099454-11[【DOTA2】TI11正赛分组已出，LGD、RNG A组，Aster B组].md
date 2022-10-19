@@ -1305,3 +1305,112 @@ TI8的时候，我许愿宁愿cn无冠，祝愿我保研成功。 Ti9的时候�
 
 几十号人？为什么几十个的红包我都抢不到
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 15157#       发表于 2022-10-19 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986557&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-19 12:29</a>
+
+只有漏油会指着小组赛的bian说他是1W打出2W作用的，好几把和XinQ一起硬是把优势对线打劣然后其他人都在填这 ...</blockquote>
+不想跟你个颠倒黑白的弱智东西讨论任何关于游戏内的问题
+
+我就想采访下你们，我一直搞不懂你们这些个集美拼了命舔A畜到底有什么心理快感，给自己认个野爹有这么快乐吗
+
+*****
+
+####  tasuku  
+##### 15158#       发表于 2022-10-19 12:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986557&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-19 12:29</a>
+只有漏油会指着小组赛的bian说他是1W打出2W作用的，好几把和XinQ一起硬是把优势对线打劣然后其他人都在填这 ...</blockquote>
+能不能学会线劣自己扛
+
+*****
+
+####  柚上舍人  
+##### 15159#       发表于 2022-10-19 12:34
+
+自己扛没问题，问题是扛不住
+
+*****
+
+####  Quark  
+##### 15160#       发表于 2022-10-19 12:35
+
+<img src="https://img.saraba1st.com/forum/202210/19/123300gkotojyj2hk6zt9p.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (242.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 12:33 上传
+
+好呀好呀 退役神都给你嚼烂了 哥哥一个灵感大王就带过去了
+
+*****
+
+####  Litccc  
+##### 15161#       发表于 2022-10-19 12:35
+
+几十号人？为什么几十个的红包我都抢不到
+
+*****
+
+####  Horusddt  
+##### 15162#       发表于 2022-10-19 12:36
+
+集美跟他爹真是一个毛病，躺都躺不明白，不知道谁带自己赢的
+
+*****
+
+####  sodah  
+##### 15163#       发表于 2022-10-19 12:37
+
+ 几十号人？为什么几十个的红包我都抢不到
+
+*****
+
+####  nxmonitor  
+##### 15164#       发表于 2022-10-19 12:38
+
+这个版本三废了根本扛不住的，因为大祭品能直接扩大优势方的优势，后面甚至让y去和bian走一路了，就是为了强保状态不好的bian啊……
+
+*****
+
+####  米奥莉奈  
+##### 15165#       发表于 2022-10-19 12:38
+
+几十号人？为什么几十个的红包我都抢不到
+
+*****
+
+####  iriyano  
+##### 15166#       发表于 2022-10-19 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986705&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-19 13:38</a>
+这个版本三废了根本扛不住的，因为大祭品能直接扩大优势方的优势，后面甚至让y去和bian走一路了，就是为了 ...</blockquote>
+为什么宇宙第一C不能把对面的3打烂？
+难道lgd的比赛只有退役神把对面C打爆这一个赢法？
+
+*****
+
+####  赤星ビスコ  
+##### 15167#       发表于 2022-10-19 12:41
+
+憋住了拼后期的局也没看你哥哥接管比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 15168#       发表于 2022-10-19 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986598&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-19 12:32</a>
+
+不想跟你个颠倒黑白的弱智东西讨论任何关于游戏内的问题
+
+我就想采访下你们，我一直搞不懂你们这些个集美 ...</blockquote>
+因为只有这个楼里面会认为我是在颠倒黑白啊，XinQ去年可是明白着说没有ame进不了决赛的，要么你把XinQ打成集美头子？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
