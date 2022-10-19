@@ -6699,3 +6699,30 @@ zhao jie shi wo de</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">两头下注了，rng赢了爽，entity赢了拿分
 
+
+
+*****
+
+####  非建政专用号  
+##### 15751#       发表于 2022-10-19 23:46
+
+预测个屁，窝克真勇夺冠军盾了怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 15752#       发表于 2022-10-19 23:47
+
+希望拳酱还藏了手绝活宰畜，不然有点难打
+
+*****
+
+####  tasuku  
+##### 15753#       发表于 2022-10-19 23:49
+
+mxo和鳖孙好歹是看比赛打游戏的
+
+哥哥粉我就不说了好吧
+
+自己身边有女玩家可以问问...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
