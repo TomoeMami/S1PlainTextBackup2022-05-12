@@ -1829,3 +1829,106 @@ ti7早干过了
 
 鹅球看不到屎黄色背景色吗？那还是个截图好了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lyjssj  
+##### 15217#       发表于 2022-10-19 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987202&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-19 13:11</a>
+
+ti7早干过了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">也是
+
+妈的
+
+*****
+
+####  Rorgen  
+##### 15218#       发表于 2022-10-19 13:13
+
+水友们，我点草的死妈集美总能绷不住显形，是不是该给我发个s1专楼显影之尘称号
+
+*****
+
+####  Rorgen  
+##### 15219#       发表于 2022-10-19 13:14
+
+马桶和普森，两个芬兰冰原杀人魔，专杀西恩废物，可惜芬兰这一代没有好的35，不然加上杰瑞组成全芬班杀遍全世界了
+
+*****
+
+####  TIZI  
+##### 15220#       发表于 2022-10-19 13:15
+
+ti7不是干碎了一堆西恩队，不过那时候马桶哥是绿叶，奇迹鳖是鲜花
+这个液体马桶哥 boxi是鲜花了，zai畜鬼一把神一把，不过zai畜都这样了还是比xxs发挥的好
+樱花兄弟这版本被高估太多了，他俩找不回状态茶茶基本没了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lyjssj  
+##### 15221#       发表于 2022-10-19 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987247&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 13:14</a>
+
+马桶和普森，两个芬兰冰原杀人魔，专杀西恩废物</blockquote>
+普森今年已经被西恩dota唯一指定废物正法了
+
+*****
+
+####  吃货红毛  
+##### 15222#       发表于 2022-10-19 13:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">一边想看莫言TK那样神仙级别的表演 一边又不想看他如果发挥爆炸被拖输
+
+*****
+
+####  nowaki  
+##### 15223#       发表于 2022-10-19 13:16
+
+我觉得普森是被司马ku带走的，讲道理他就是挂机说不定vg都翻不了
+
+*****
+
+####  walfeds  
+##### 15224#       发表于 2022-10-19 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987235&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 13:13</a>
+
+水友们，我点草的死妈集美总能绷不住显形，是不是该给我发个s1专楼显影之尘称号 ...</blockquote>
+懂了，你值80块
+
+*****
+
+####  nowaki  
+##### 15225#       发表于 2022-10-19 13:20
+
+哦牛批 意思不是把把最后一首选就是bp垃圾桶
+
+*****
+
+####  nxmonitor  
+##### 15226#       发表于 2022-10-19 13:20
+
+今年也没指望LGD能到什么位置，去年那样子都没打赢今年更不靠谱了，整体上除了nts实力状态都有点下滑了，茶的话只能说有张志成在的队伍剧情都是一样的，赢了几把就飘了乱选把状态搞没了然后一崩到底，现在这走势已经到一半了……唉，明年开始选手真正断档，可能以后连进决赛的队伍都没了……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 15227#       发表于 2022-10-19 13:21
+
+你ame被放养不是bp垃圾桶，你是哥哥只能这样打懂吗？给你选个火猫带队打架，有那个操作？
+
+*****
+
+####  tasuku  
+##### 15228#       发表于 2022-10-19 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987102&amp;ptid=2099454" target="_blank">CNFH1984 发表于 2022-10-19 13:05</a>
+漏油们漏油们，今年淘汰赛客户端是多少延迟啊？5分钟？</blockquote>
+小组赛应该是4分钟
+

@@ -5822,3 +5822,32 @@ https://tieba.baidu.com/p/8091830242</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  clover293  
+##### 637#       发表于 2022-10-19 13:18
+
+cory和工作室老大也没关系，现在老大是那个亚裔女的。以前那个女头头去谷歌了 现在好像搞个科技公司。
+
+*****
+
+####  415452356  
+##### 638#       发表于 2022-10-19 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987300&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-19 13:18</a>
+cory和工作室老大也没关系，现在老大是那个亚裔女的。以前那个女头头去谷歌了 现在好像搞个科技公司。 ...</blockquote>
+  那个叫mei还是啥的？cory在前作纪录片说要是没她们俩支持自己真的不一定顶得住
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  哈罗  
+##### 639#       发表于 2022-10-19 13:19
+
+<blockquote>415452356 发表于 2022-10-19 13:11
+我看cory这些年在诸神黄昏宣发上扮演的角色都是站在工作室老大的立场上来发言，作为开发者的发言好像确实没 ...</blockquote>
+纪录片里讲了很多，战神4的变化都是因为他，而且非常顽固，差点带翻车了
+
