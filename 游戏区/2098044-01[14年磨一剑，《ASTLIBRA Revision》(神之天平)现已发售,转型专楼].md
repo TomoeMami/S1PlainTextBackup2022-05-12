@@ -5731,3 +5731,22 @@ steam隐藏成就是啥啊
 
 谁能告诉我为什么我用盗版玩就稳定60帧，我steam版静止才30，跑起来动起来甚至不到30，这完全就是两个体验<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥情况这是
 
+
+
+*****
+
+####  五块  
+##### 532#       发表于 2022-10-20 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995259&amp;ptid=2098044" target="_blank">M27MD 发表于 2022-10-19 22:12</a>
+
+第6章开始是不是数值崩坏了，锤锤都要命</blockquote>
+点血，防不给力。
+
+*****
+
+####  蓝雉  
+##### 533#         楼主| 发表于 2022-10-20 00:07
+
+第五章城外的天平怎么死活找不到,全跑了一遍嘉隆的鼻子都显示拿齐了
+
