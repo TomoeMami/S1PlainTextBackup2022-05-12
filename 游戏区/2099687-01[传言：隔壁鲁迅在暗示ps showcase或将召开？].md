@@ -872,3 +872,14 @@ https://m.weibo.cn/1622008051/4826249807266814
 乐</blockquote>
 草，那我很想对他有意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  415452356  
+##### 83#       发表于 2022-10-19 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道他啥时候能透露下龙信2有没有被卡婊卖给索尼微软其中一方站台
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
