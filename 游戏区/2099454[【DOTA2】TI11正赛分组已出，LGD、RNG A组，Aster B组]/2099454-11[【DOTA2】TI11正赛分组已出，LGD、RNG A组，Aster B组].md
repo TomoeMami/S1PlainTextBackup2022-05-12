@@ -6864,3 +6864,77 @@ make cndota great again！！！！
 
 经典反奶，集美不装了
 
+
+
+*****
+
+####  非建政专用号  
+##### 15769#       发表于 2022-10-20 00:12
+
+今天是南美传奇中单克里斯生日
+
+有的人青春是看人补刀，有的人青春是看人躲冠，有的人青春是看克里斯拆电锤
+
+对于红龙想在克神生日的时候送他上飞机，我不禁想问：妮们南美人不按北京时间过生日吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AualloniaMK2  
+##### 15770#       发表于 2022-10-20 00:13
+
+看好tundra冠军
+
+*****
+
+####  树洞专用  
+##### 15771#       发表于 2022-10-20 00:14
+
+<img src="https://img.saraba1st.com/forum/202210/20/001434orp2pdfstwsuf3dz.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20221020001425.png</strong> (195.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 00:14 上传
+
+*****
+
+####  哈曼的YY  
+##### 15772#       发表于 2022-10-20 00:16
+
+三个月没玩了捏 预测是什么好吃吗
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  两三流浪者  
+##### 15773#       发表于 2022-10-20 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57996636&amp;ptid=2099454" target="_blank">树洞专用 发表于 2022-10-20 00:14</a></blockquote>
+你是懂雪碧的
+
+*****
+
+####  TIZI  
+##### 15774#       发表于 2022-10-20 00:19
+
+卧槽这么多小茶叶不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+小茶叶是真的不看比赛吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Keynes  
+##### 15775#       发表于 2022-10-20 00:21
+
+经典反奶，集美不装了
+
+*****
+
+####  百世诸侯  
+##### 15776#       发表于 2022-10-20 00:22
+
+不是不看比赛，是实在找不到别的cn队了
+
