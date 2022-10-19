@@ -6726,3 +6726,90 @@ mxo和鳖孙好歹是看比赛打游戏的
 
 自己身边有女玩家可以问问...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  非建政专用号  
+##### 15754#       发表于 2022-10-19 23:53
+
+打dota还要是女的还得聊的上话，妮这要求高的有点过分了
+
+*****
+
+####  只蕉  
+##### 15755#       发表于 2022-10-19 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+为什么我看晒出来预测的漏油好多都填阿茶能在胜者组活两轮的，茶队这个状态能打死液体烧高香，再赢一轮完全不敢想象了
+
+*****
+
+####  Rorgen  
+##### 15756#       发表于 2022-10-19 23:56
+
+你懂鳖星，但你懂批九吗
+
+*****
+
+####  Keynes  
+##### 15757#       发表于 2022-10-19 23:56
+
+<img src="https://img.saraba1st.com/forum/202210/19/235610gw4lenblgw2bl2w1.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20221019235545.png</strong> (95.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 23:56 上传
+
+make cndota great again！！！！
+
+猴子尖啸.gif
+(2.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 23:56 上传
+
+<img src="https://img.saraba1st.com/forum/202210/19/235641ccop0webpz1cwngk.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  阿垃垃圾历  
+##### 15758#       发表于 2022-10-19 23:59
+
+等待一个秋日的童话 冠军不是lgd
+
+*****
+
+####  阿垃垃圾历  
+##### 15759#       发表于 2022-10-20 00:00
+
+现在我要喊出那句，我宁愿——————！
+
+*****
+
+####  莉拉厨  
+##### 15760#       发表于 2022-10-20 00:00
+
+哦牛批，人均小茶叶<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">比我想象的多多了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a1370303  
+##### 15761#       发表于 2022-10-20 00:01
+
+为了让茶茶亲手送老干鳖上飞机，只能复刻新加坡major了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/20/000044rfrg7gzmviaq4d5d.jpg" referrerpolicy="no-referrer">
+
+<strong>20221019235602_1.jpg</strong> (196.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 00:00 上传
+
