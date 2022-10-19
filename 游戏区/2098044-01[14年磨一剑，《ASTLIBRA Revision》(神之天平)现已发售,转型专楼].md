@@ -5343,3 +5343,12 @@ steam隐藏成就是啥啊
 好吧，我说怎么神魔都刷完了也想不到最后一件装备的线索</blockquote>
 你神杀剑拿了吗，这个一周目可以拿到
 
+
+
+*****
+
+####  Eric_方歌阙  
+##### 491#       发表于 2022-10-19 17:40
+
+好扎实的jrpg，确实是做了14年的水平<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
