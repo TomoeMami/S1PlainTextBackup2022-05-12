@@ -2216,3 +2216,12 @@ bx和摩根都是一宝。狂娜四宝还是需要1/3面红卡补伤害。这次
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  風卷豹  
+##### 3189#       发表于 2022-10-19 11:34
+
+90++精准触碰我BOX盲点，没RBA没BX没摩根<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
