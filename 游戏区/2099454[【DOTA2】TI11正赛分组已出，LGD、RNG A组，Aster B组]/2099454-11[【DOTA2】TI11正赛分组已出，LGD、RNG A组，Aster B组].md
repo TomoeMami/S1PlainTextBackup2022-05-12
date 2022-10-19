@@ -6382,3 +6382,51 @@ D过之后冲进去一顿瞎几把乱按就死了，好爽
 
 讲道理，14年看过dota比赛的应该都是myboy粉丝，我认识的除了鳖孙基本都是
 
+
+
+*****
+
+####  Kazepollar  
+##### 15714#       发表于 2022-10-19 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995386&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 22:21</a>
+ 讲道理，14年看过dota比赛的应该都是myboy粉丝，我认识的除了鳖孙基本都是</blockquote>
+我当时是艹艹和430粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 15715#       发表于 2022-10-19 22:27
+
+我当年电脑应该是跑不起刀2的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 15716#       发表于 2022-10-19 22:27
+
+14年窝是支持眼屎r畜和西恩传奇中单的那支vg的
+
+*****
+
+####  zhrtiancai  
+##### 15717#       发表于 2022-10-19 22:29
+
+当年rtz还有个外号叫鳖鳖野父，不知道谁还记得
+
+*****
+
+####  银翼的维罗西  
+##### 15718#       发表于 2022-10-19 22:29
+
+明天RNG回家局赢了是不是能休息好几天，虽然希望渺茫
+
+*****
+
+####  端木恋心  
+##### 15719#       发表于 2022-10-19 22:30
+
+14年都不支持DK是吧。可惜最后还是我鳖鳖拿了冠军。
+
+仔细想了想DK算是最早的虚空冠军啊。
+

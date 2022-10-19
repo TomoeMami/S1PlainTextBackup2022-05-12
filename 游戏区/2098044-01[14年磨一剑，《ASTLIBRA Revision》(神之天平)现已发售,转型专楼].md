@@ -5577,3 +5577,12 @@ steam隐藏成就是啥啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">第6章开始是不是数值崩坏了，锤锤都要命
 
+
+
+*****
+
+####  A1LI  
+##### 516#       发表于 2022-10-19 22:26
+
+这特么2周目刷起来比1周更猛了啊……连一大堆技能居然都带变化的……
+
