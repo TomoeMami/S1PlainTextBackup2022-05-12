@@ -5145,3 +5145,12 @@ steam隐藏成就是啥啊
 
 满地图的龙狗毒爆，麻痹石化剧毒一起上，简直了
 
+
+
+*****
+
+####  SyIXVII  
+##### 472#       发表于 2022-10-19 12:18
+
+二周目 伊利西昂的第三个小徽章位置有人知道怎么拿么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
