@@ -7208,3 +7208,361 @@ ti5以后击杀数极速上升的有四个人，sumail maybe resolution miracle
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997269&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-20 01:42</a></blockquote>
 一年一度的汛期开始了
 
+
+
+*****
+
+####  adretyu67  
+##### 15807#       发表于 2022-10-20 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997278&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-20 01:43</a>
+
+一年一度的汛期开始了</blockquote>
+干瘪中意度是红的。真的是开抠了吗。反而是没信心了
+
+*****
+
+####  恐怖利刃  
+##### 15808#       发表于 2022-10-20 01:58
+
+是小组赛打完支持度掉了一半
+
+*****
+
+####  Rorgen  
+##### 15809#       发表于 2022-10-20 02:01
+
+除开水军和脑残集美，老畜鳖在国外的支持率应该是掉光了
+
+*****
+
+####  Keynes  
+##### 15810#       发表于 2022-10-20 02:03
+
+喔，牛皮，加完班进你楼一看全是管人吃在团建
+
+
+
+*****
+
+####  两三流浪者  
+##### 15811#       发表于 2022-10-20 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997324&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-20 01:56</a>
+
+干瘪中意度是红的。真的是开抠了吗。反而是没信心了</blockquote>
+[https://twitter.com/wykrhm/status/1582556988344455170](https://twitter.com/wykrhm/status/1582556988344455170)
+
+这个投票是在wykrhm推特发起的，虽然微博也有，但参与的主要都是外国人，国内集美可以忽略不计
+
+*****
+
+####  两三流浪者  
+##### 15812#       发表于 2022-10-20 02:10
+
+看看国内的其它社区，虽然不像去年那样洪水滔天，但不少集美已经准备开扣了
+
+*****
+
+####  Rorgen  
+##### 15813#       发表于 2022-10-20 02:27
+
+<img src="https://img.saraba1st.com/forum/202210/20/022655i3nj3wrz13pwdi53.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (31.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 02:26 上传
+
+天辉小兵啊噗啊噗
+
+*****
+
+####  发光的球  
+##### 15814#       发表于 2022-10-20 02:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997371&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-20 02:06</a>
+https://twitter.com/wykrhm/status/1582556988344455170
+
+这个投票是在wykrhm推特发起的，虽然微博也有， ...</blockquote>
+但是他在微博也发了呀，当然不知道那个网站上不上得去
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 15815#       发表于 2022-10-20 02:33
+
+<img src="https://img.saraba1st.com/forum/202210/20/023335knzxdhxsgy1shaht.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 02:33 上传
+
+*****
+
+####  Rorgen  
+##### 15816#       发表于 2022-10-20 02:41
+
+ 本帖最后由 Rorgen 于 2022-10-20 02:48 编辑 
+
+今年胜决或者总决有机会重现ti1
+
+puppey vs lanm
+
+被国内遗忘的决赛，其实是国外大多数老逼ti记忆的起源，那时候还是dota2玩家主力的西欧人和北美人，看着统治dota1时代的cis和cn，畅想着自己支持的本土战队打ti决赛的样子
+
+*****
+
+####  两三流浪者  
+##### 15817#       发表于 2022-10-20 02:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997410&amp;ptid=2099454" target="_blank">发光的球 发表于 2022-10-20 02:29</a>
+
+但是他在微博也发了呀，当然不知道那个网站上不上得去
+
+— from OnePlus GM1917, Android 11 of S1 Next  ...</blockquote>
+他微博没几个人看，比推特少多了
+
+*****
+
+####  Rorgen  
+##### 15818#       发表于 2022-10-20 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997435&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-20 02:41</a>
+
+他微博没几个人看，比推特少多了</blockquote>
+集美都是大规模上推特的，不信你点开ephey评论区
+
+*****
+
+####  两三流浪者  
+##### 15819#       发表于 2022-10-20 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997436&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 02:42</a>
+
+集美都是大规模上推特的，不信你点开ephey评论区</blockquote>
+[https://twitter.com/wykrhm/status/1582556988344455170](https://twitter.com/wykrhm/status/1582556988344455170)
+
+我看回复wykrhm推特下应该没几个集美，集美恐怕都不知道wykrhm是谁
+
+*****
+
+####  两三流浪者  
+##### 15820#       发表于 2022-10-20 02:55
+
+ 本帖最后由 两三流浪者 于 2022-10-20 03:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997436&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 02:42</a>
+
+集美都是大规模上推特的，不信你点开ephey评论区</blockquote>
+才知道ephey也是集美
+
+<img src="https://img.saraba1st.com/forum/202210/20/025458r490jj29uuruvoy5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 02:54 上传
+
+*****
+
+####  Rorgen  
+##### 15821#       发表于 2022-10-20 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997457&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-20 02:55</a>
+才知道ephey也是集美
+
+s</blockquote>
+她之前采访中说过从ehome时代开始喜欢23458的，意思跟割割不熟捏
+
+*****
+
+####  两三流浪者  
+##### 15822#       发表于 2022-10-20 03:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997462&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 02:58</a>
+
+她之前采访中说过从ehome时代开始喜欢23458的，意思跟割割不熟捏</blockquote>
+不如支持一下约旦老乡ATF
+
+*****
+
+####  卢云  
+##### 15823#       发表于 2022-10-20 03:14
+
+我相信LGD一定会再次整活的
+
+*****
+
+####  恐怖利刃  
+##### 15824#       发表于 2022-10-20 03:21
+
+<img src="https://img.saraba1st.com/forum/202210/20/032106jlmk4ml7jmwk45l4.png" referrerpolicy="no-referrer">
+
+<strong>FA4CE16F-FF6F-45FF-BD57-449E171EB152.png</strong> (850.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 03:21 上传
+
+*****
+
+####  苏西踩到我了  
+##### 15825#       发表于 2022-10-20 03:32
+
+我没预测，这次小组赛都太藏活了，还不如突围赛的几把来的有意思
+
+不考虑藏活，单纯说纸面胜率，肯定还是lgd最高，以及健康的rng，本来真的很可能中国队会师决赛的。
+
+ame的确老犯病不靠谱，但也要承认lgd真的强，而且也不要单看一两场比赛的表现，有几场lgd是在科研，科研不止是阵容，也是科研战略战术。
+
+外国队里，我最喜欢的战队是entity，这队可能不强，但新活是真有意思，不知道和rng打谁会赢
+
+*****
+
+####  Damocles990609  
+##### 15826#       发表于 2022-10-20 03:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997507&amp;ptid=2099454" target="_blank">苏西踩到我了 发表于 2022-10-20 03:32</a>
+我没预测，这次小组赛都太藏活了，还不如突围赛的几把来的有意思
+
+不考虑藏活，单纯说纸面胜率，肯定还是lg ...</blockquote>
+我每次在这个楼里看到如此没有攻击性的发言，都会以为漏油从nga ctrl+c+v的言论
+
+*****
+
+####  seki_m  
+##### 15827#       发表于 2022-10-20 03:54
+
+我怀疑谷圣这winrate都是石头人撑起来的
+
+*****
+
+####  蛭人  
+##### 15828#       发表于 2022-10-20 03:56
+
+2022年还有人信正式比赛科研的是吧，藏战术都被现rngbp手李斯喷过一遍了，还科研，成天把科研挂在嘴上的，和肌肉dota亲兄弟是吧。
+
+*****
+
+####  iriyano  
+##### 15829#       发表于 2022-10-20 04:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997507&amp;ptid=2099454" target="_blank">苏西踩到我了 发表于 2022-10-20 04:32</a>
+我没预测，这次小组赛都太藏活了，还不如突围赛的几把来的有意思
+
+不考虑藏活，单纯说纸面胜率，肯定还是lg ...</blockquote>
+太牛了，太牛了，第一次看到有人打出1234可以两两自相矛盾的，佩服佩服
+
+*****
+
+####  苏西踩到我了  
+##### 15830#       发表于 2022-10-20 04:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997528&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-20 03:56</a>
+2022年还有人信正式比赛科研的是吧，藏战术都被现rngbp手李斯喷过一遍了，还科研，成天把科研挂在嘴上的， ...</blockquote>
+主要是我相信lgd是真的强，不用科研不用菠菜很难解释他们在某些情况的奇怪选择，比如lgd打gg，我就坚信lgd在科研
+
+当然，说他们在整活也行
+
+是否藏战术就比较容易验证，看淘汰赛有多少战队能拿出新活来就行。查理斯说不藏，是因为rng不是藏活的打法，他们就是尖刀冲冲冲硬实力。
+entity肯定藏活，英雄池够广就意味着战术多变，我甚至怀疑他们会拿出23345打压制。
+
+*****
+
+####  蛭人  
+##### 15831#       发表于 2022-10-20 04:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997550&amp;ptid=2099454" target="_blank">苏西踩到我了 发表于 2022-10-20 04:11</a>
+
+主要是我相信lgd是真的强，不用科研不用菠菜很难解释他们在某些情况的奇怪选择，比如lgd打gg，我就坚信lg ...</blockquote>
+建议加入术士八的群，问一哈八王科研今年能夺冠吗，毕竟大爹已经多次回复过，没有藏战术科研的说法，一切都是了这把能赢。
+
+另外，肌肉dota去年ti10冠军，望知悉，然而硬实力至今无冠，可没有硬实力的历史最强队伍已经双冠了。
+
+*****
+
+####  dclara1  
+##### 15832#       发表于 2022-10-20 04:35
+
+每次在这个楼里看到如此没有攻击性的发言，都会以为漏油从nga ctrl+c+v的言论
+
+*****
+
+####  dclara1  
+##### 15833#       发表于 2022-10-20 04:37
+
+<img src="https://img.saraba1st.com/forum/202210/20/043748itmbtvfgtgtdxabb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (12.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 04:37 上传
+
+*****
+
+####  两三流浪者  
+##### 15834#       发表于 2022-10-20 04:42
+
+怎么还有活在ti10的集美，感觉你要恶补一下出神的视频了
+
+*****
+
+####  战狼PTSD  
+##### 15835#       发表于 2022-10-20 04:52
+
+超级鳖孙论坛UPUP
+
+*****
+
+####  slaysleepslow  
+##### 15836#       发表于 2022-10-20 05:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997507&amp;ptid=2099454" target="_blank">苏西踩到我了 发表于 2022-10-20 03:32</a>
+我没预测，这次小组赛都太藏活了，还不如突围赛的几把来的有意思
+
+不考虑藏活，单纯说纸面胜率，肯定还是lg ...</blockquote>
+我还以为是从nga复制的搞笑贴，没想到是真的脑瘫。
+“有几场lgd是在科研”，你是下面八大脑里的寄生虫？“科研战略战术”又是哪来的新词儿，不会是你造出来的吧。说话能不能有点根据，难不成你觉得能赢然后输了就是科研就是藏活？就不能是选手状态不好？说一堆废话一点依据都没，是不是傻逼啊
+
+*****
+
+####  isla  
+##### 15837#       发表于 2022-10-20 05:07
+
+是我按着8王选的双头龙，我摊牌了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  walfeds  
+##### 15838#       发表于 2022-10-20 05:22
+
+ 本帖最后由 walfeds 于 2022-10-20 05:27 编辑 
+
+哦草，昨天刚发entity是小组赛英雄选的最少的队，怎么能张口就来英雄池广战术多变的
+
+你干瘪科研水平有没有诸葛mi酱整活水平高我都不好说
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  thistimeforlife  
+##### 15839#       发表于 2022-10-20 05:28
+
+我知道 阿灵顿major最后那三把都是科研 
+
+g2从50min起整整20min 除了最后的gg团 一次偷家的尝试都没有执行 是有脑子的dota 是藏战术
+
+g4 ame不等23复活冲上去三打五送一路 是整活  
+
+xinq土猫买活脑浆一个人滚上去送第二路 是整活
+

@@ -5927,3 +5927,30 @@ mischief
 
 miss chef
 
+
+
+*****
+
+####  startea15  
+##### 549#       发表于 2022-10-20 03:02
+
+惊了，打完最后还有完全新章二周目，这游戏也真耐玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  startea15  
+##### 550#       发表于 2022-10-20 05:16
+
+新章又到魔王城的时候的选择会导致badend嘛<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 551#       发表于 2022-10-20 05:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997190&amp;ptid=2098044" target="_blank">SyIXVII 发表于 2022-10-20 01:24</a>
+提问：恶作剧这个成就怎么完成</blockquote>
+新章拿到第一次蛋糕以后贴着老婆吃
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
