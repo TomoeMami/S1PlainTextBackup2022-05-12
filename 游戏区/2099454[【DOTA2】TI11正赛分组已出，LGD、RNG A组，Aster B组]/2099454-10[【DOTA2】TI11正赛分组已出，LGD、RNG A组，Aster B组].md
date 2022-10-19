@@ -11545,3 +11545,32 @@ lgd就应该直接跌进败者组滚蛋
 —— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 鳖星是不靠谱独一档<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 14906#       发表于 2022-10-19 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57982916&amp;ptid=2099454" target="_blank">resorry 发表于 2022-10-19 08:12</a>
+鳖星是不靠谱独一档</blockquote>
+有mi酱独不了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 14907#       发表于 2022-10-19 08:14
+
+淘汰赛该验货a组b组了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  利剑Crazy-88  
+##### 14908#       发表于 2022-10-19 08:19
+
+秋天的童话（❌） 顶级集美的梦（✓）
+
