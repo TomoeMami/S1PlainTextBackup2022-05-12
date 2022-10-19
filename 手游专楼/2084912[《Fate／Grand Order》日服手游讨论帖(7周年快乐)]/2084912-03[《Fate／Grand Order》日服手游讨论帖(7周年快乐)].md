@@ -2435,3 +2435,22 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 有啊 大佬求好友位</blockquote>
 903,057,963
 
+
+
+*****
+
+####  alucardcz  
+##### 3211#       发表于 2022-10-19 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993593&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-10-19 20:26</a>
+
+那要牺牲一个活动NP礼装了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掉一张不就行了（
+
+*****
+
+####  [SA]KOS-MOS  
+##### 3212#       发表于 2022-10-19 21:01
+
+求王姐大佬…我没rba只能用cba凑合了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

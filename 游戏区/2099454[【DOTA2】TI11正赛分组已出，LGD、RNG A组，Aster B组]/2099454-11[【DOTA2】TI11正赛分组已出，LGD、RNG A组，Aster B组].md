@@ -5931,3 +5931,26 @@ boom给tims选出4号位谜团全场只要拉1个好大就能团灭雪碧的情�
 
 点金吧刀塔子
 
+
+
+*****
+
+####  c88711611  
+##### 15670#       发表于 2022-10-19 20:55
+
+抢红包的集美四个吗
+
+*****
+
+####  12481632  
+##### 15671#       发表于 2022-10-19 20:59
+
+让我做个梦吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/7/e9997af2518950cbda86339495b41e6e/CMP_20221019205843910.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 15672#       发表于 2022-10-19 21:00
+
+妮们为啥都觉得雪碧能走很远，哥们理性判断应该和第一次major一样一轮游
+

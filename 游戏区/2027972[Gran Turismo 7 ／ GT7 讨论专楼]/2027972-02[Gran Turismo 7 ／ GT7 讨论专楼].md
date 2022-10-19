@@ -21,3 +21,15 @@
 新的刷圈计时第一个弯就很明显啦
 手柄需要提前很多刹车转向
 
+
+
+*****
+
+####  wfhtony  
+##### 1683#       发表于 2022-10-19 20:57
+
+<img src="https://tc2.wfhtony.space/images/2022/10/19/bfc4578a328eacdaf02463795194c0cf.png" referrerpolicy="no-referrer">
+<img src="https://tc2.wfhtony.space/images/2022/10/19/b59346bfd049c71b7708e6a4409d1041.png" referrerpolicy="no-referrer">
+
+???
+
