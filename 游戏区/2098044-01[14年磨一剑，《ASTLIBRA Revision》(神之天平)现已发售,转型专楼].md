@@ -4957,3 +4957,27 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  蓝雉  
+##### 456#         楼主| 发表于 2022-10-19 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57984373&amp;ptid=2098044" target="_blank">luffy800 发表于 2022-10-19 10:09</a>
+
+1.4都是免费的吗</blockquote>
+免费的
+
+*****
+
+####  蓝雉  
+##### 457#         楼主| 发表于 2022-10-19 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57984520&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-19 10:18</a>
+
+问下开局给的那个能回每章主城的道具有类似的么，用完后次次都要跑回去有点累
+
+  -- 来自 能看大图的 Stage ...</blockquote>
+从酒馆屋顶往右边走可以拿个无限传送,但只能在每章间隙使用
+
