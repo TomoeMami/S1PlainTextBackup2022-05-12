@@ -5559,3 +5559,12 @@ steam隐藏成就是啥啊
 求问下宝物清单里铁娘子这第二个小徽章是啥，这游戏强迫症噩梦</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">铁娘子这个翻译确实让人摸不着头脑，其实应该是翻译成铁处女。说的是被关在盒子里的女主
 
+
+
+*****
+
+####  六至九  
+##### 514#       发表于 2022-10-19 21:45
+
+说起来岁月真是把杀猪刀，盖乌是怎么从当年的美少年长成这种大叔样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

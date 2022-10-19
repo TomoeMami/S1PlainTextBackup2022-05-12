@@ -6192,3 +6192,36 @@ upper bracket is for bitches！！
 
 今晚发酵熬夜 明天下午睡醒送送路垚和胡良智了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  masterffzhou  
+##### 15695#       发表于 2022-10-19 21:49
+
+全华班upup
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Saorika  
+##### 15696#       发表于 2022-10-19 21:49
+
+在赛垃圾直播间看见kaka，超哥还在训练啊
+
+<img src="https://img.saraba1st.com/forum/202210/19/214906vkymopfmpfzm0ofq.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20221019214856.png</strong> (9.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 21:49 上传
+
+*****
+
+####  一品堂官  
+##### 15697#       发表于 2022-10-19 21:51
+
+那咋办嘛 还能打几年啊 只能尽力了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
