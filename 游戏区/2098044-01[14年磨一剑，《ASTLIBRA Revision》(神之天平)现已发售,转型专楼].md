@@ -4848,3 +4848,22 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  六至九  
+##### 446#       发表于 2022-10-19 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57983022&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-19 08:26</a>
+
+7章还是8章怪物攻城的时候，走到主街道会有三个大怪，剧情提示说有人在封印里和它们战斗，你隔着封印把怪 ...</blockquote>
+那没办法了，已经打到最后一章了
+
+*****
+
+####  五块  
+##### 447#       发表于 2022-10-19 08:38
+
+20个小时41级还在第五章魔王城门口，刷素材让我虚度人生<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
