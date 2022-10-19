@@ -4407,3 +4407,149 @@ eva是不是都是和她男朋友搞的，印象中没用过三人路战术</blo
 
 不会是那种营销型选手吧
 
+
+
+*****
+
+####  Rorgen  
+##### 15499#       发表于 2022-10-19 18:23
+
+核中核消息，王志勇在和孙正之前的那个姘头开黑
+
+<img src="https://img.saraba1st.com/forum/202210/19/182259o71mf7nnk7ps1fxp.jpg" referrerpolicy="no-referrer">
+
+<strong>CWG]QT6{PF{]{VPY4L}36J9.jpg</strong> (2.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 18:22 上传
+
+*****
+
+####  Rorgen  
+##### 15500#       发表于 2022-10-19 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991887&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-19 18:22</a>
+
+这个人啊，下过她的VR资源，感觉很一般啊
+
+原来这么大牌么？</blockquote>
+就是营销型选手
+
+*****
+
+####  一品堂官  
+##### 15501#       发表于 2022-10-19 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991364&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-19 17:47</a>
+
+https://gbc-time.com/news/po rn-actress--1xbet-everything-on-the-new-promo-campaign
+
+憋尬黑， ...</blockquote>
+404 啊
+
+*****
+
+####  wzy200912345  
+##### 15502#       发表于 2022-10-19 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991887&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-19 18:22</a>
+
+这个人啊，下过她的VR资源，感觉很一般啊
+
+原来这么大牌么？</blockquote>
+那可太能营销了，去年拍片大奖+常年黑橙站前五
+
+*****
+
+####  walfeds  
+##### 15503#       发表于 2022-10-19 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991903&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-19 18:23</a>
+404 啊</blockquote>
+这链接是新闻没看头的，你不如直接上p站
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jk9hot  
+##### 15504#       发表于 2022-10-19 18:25
+
+后现代钢三
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  你可以试试  
+##### 15505#       发表于 2022-10-19 18:25
+
+这种黑话我喜欢，再来点
+
+*****
+
+####  nowaki  
+##### 15506#       发表于 2022-10-19 18:28
+
+那有没有游中的比赛录像呢
+
+*****
+
+####  Asukalangley33  
+##### 15507#       发表于 2022-10-19 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991902&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 18:23</a>
+
+就是营销型选手</blockquote>
+那就没毛病了啊
+
+我看的那个VR对线教程
+
+裸勇士法衣，不出鞋，一眼成长不行，一点都不肉，也不强壮
+
+技能加点是主点的踏，结果输出完全不行，搞半天都不掉血皮
+
+属实硬实力不行
+
+*****
+
+####  fopinecone  
+##### 15508#       发表于 2022-10-19 18:28
+
+误入此楼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一品堂官  
+##### 15509#       发表于 2022-10-19 18:29
+
+说实话 漏油的黑话有点深了 凭借处男的想象力难以理解
+
+*****
+
+####  柚上舍人  
+##### 15510#       发表于 2022-10-19 18:29
+
+那漏油有没有颜值和实力都很强的选手呢？
+
+
+
+*****
+
+####  柚上舍人  
+##### 15511#       发表于 2022-10-19 18:30
+
+细嗦，我想开开眼
+
+*****
+
+####  walfeds  
+##### 15512#       发表于 2022-10-19 18:30
+
+踏，捶，咤，突是吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

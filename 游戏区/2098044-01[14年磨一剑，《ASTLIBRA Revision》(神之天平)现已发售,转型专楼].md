@@ -5364,3 +5364,19 @@ steam隐藏成就是啥啊
 没有下周目的 只有重开</blockquote>
 惨<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 都40小时存档了
 
+
+
+*****
+
+####  逸一死吾亦死  
+##### 493#       发表于 2022-10-19 18:26
+
+恶魔城类型里的石头门，年一游，真正的goty
+
+*****
+
+####  逸一死吾亦死  
+##### 494#       发表于 2022-10-19 18:26
+
+今年选啥都没说服力了
+
