@@ -3403,3 +3403,61 @@ LGD可能没有投毒，但他们那些猥琐龌龊的心思却已经暴露无�
 当然，我知道集美会觉得这种不择手段很正常。
 因为他们是畜生，不是人嘛。
 
+
+
+*****
+
+####  nxmonitor  
+##### 15385#       发表于 2022-10-19 16:15
+
+EG打北美南美队胜率应该都很高的，毕竟比较熟悉，这种比赛就怕掉入未知领域……
+
+*****
+
+####  没钱买手办  
+##### 15386#       发表于 2022-10-19 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989742&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 16:11</a>
+发表于 1 小时前 
+
+过去的事我就不提了，免得集美又顾左右而言他搞岁 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发的太是时候了，我dota群有个司马畜牲还在那拿合影洗lgd呢
+
+*****
+
+####  情商  
+##### 15387#         楼主| 发表于 2022-10-19 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989783&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-19 16:15</a>
+
+发的太是时候了，我dota群有个司马畜牲还在那拿合影洗lgd呢</blockquote>
+这不直接提了吗
+
+*****
+
+####  lyjssj  
+##### 15388#       发表于 2022-10-19 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989742&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 16:11</a>
+
+发表于 1 小时前 
+
+过去的事我就不提了，免得集美又顾左右而言他搞岁 ...</blockquote>
+这是哪里发的。骂的这么狠是来源sg吗
+
+----
+
+打开SG果然第一条就是。
+
+*****
+
+####  ArowRocher  
+##### 15389#       发表于 2022-10-19 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989741&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-19 16:11</a>
+
+最主要他们的爱情海电竞网吧不知道关了没
+
+台妹人都不在大陆吧</blockquote>
+网吧的事情不了解，这我台妹前十就要说一下了，她前一阵发了粉丝可见微博说回来帮忙的。
+
