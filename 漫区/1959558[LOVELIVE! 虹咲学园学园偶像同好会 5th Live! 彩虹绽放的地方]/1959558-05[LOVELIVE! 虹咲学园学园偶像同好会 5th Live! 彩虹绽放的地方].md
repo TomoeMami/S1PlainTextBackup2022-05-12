@@ -45,3 +45,14 @@ POP UP SHOP in有楽町マルイ」开催＆イラストを公开🎉
 
 [ヒライ @solllolll](https://twitter.com/solllolll/status/1582704701149093889)
 
+
+
+*****
+
+####  川陀  
+##### 6569#       发表于 2022-10-19 23:13
+
+azn的新歌还可以，感觉除了游乐园外一直在试不同的风格
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
