@@ -127,3 +127,19 @@
 
 实在不行可以选项处存档，然后对着选
 
+
+
+*****
+
+####  Xenor  
+##### 722#       发表于 2022-10-19 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986971&amp;ptid=2037739" target="_blank">慕容断月 发表于 2022-10-19 12:54</a>
+
+「復讐の女神」／レナルート　※『EQUILIBRIUM』限定
+
+「虚构の少女」
+
+「様子见・・・今は、それしかない ...</blockquote>
+这对话我熟，都选了无数遍了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

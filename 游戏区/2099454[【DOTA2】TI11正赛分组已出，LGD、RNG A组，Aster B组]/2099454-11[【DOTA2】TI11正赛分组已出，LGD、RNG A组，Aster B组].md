@@ -1708,3 +1708,124 @@ nxmonitor一直是geigei粉啊，毕竟说出ame带躺2345的人，这种水军�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哥哥个人能力确实强，被小刘axx堵在泉水挂机了70分钟敲了gg。
 
+
+
+*****
+
+####  nowaki  
+##### 15204#       发表于 2022-10-19 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">集美永远不敢正视的就是哥哥的cdec时期，按理说都打了这么多年的老将了，又是第一c，去cdec怎么也是扶贫吧，结果cdec成绩更差了。
+
+*****
+
+####  CNFH1984  
+##### 15205#       发表于 2022-10-19 13:05
+
+漏油们漏油们，今年淘汰赛客户端是多少延迟啊？5分钟？
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 15206#       发表于 2022-10-19 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987091&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-19 13:04</a>
+集美永远不敢正视的就是哥哥的cdec时期，按理说都打了这么多年的老将了，又是第一c，去cdec怎么也是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全文背诵杜兰特在篮网
+
+*****
+
+####  朝游北海  
+##### 15207#       发表于 2022-10-19 13:06
+
+我没太看懂，一个队里三大哥他是最容易突破的，最容易犯病的，拿钱是最没用的，这个人是怎么看出来能力强的，是教我一下。
+
+*****
+
+####  Litccc  
+##### 15208#       发表于 2022-10-19 13:06
+
+ 本帖最后由 Litccc 于 2022-10-19 13:11 编辑 
+
+<img src="https://p.sda1.dev/7/f778342869865a9a7ec052f48ff7f21e/CMP_20221019131115597.jpg" referrerpolicy="no-referrer">
+
+希望四赵云不要不识抬举，坑了giegie最后一年
+
+*****
+
+####  哈萨维·诺亚  
+##### 15209#       发表于 2022-10-19 13:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 15210#       发表于 2022-10-19 13:07
+
+哦牛批，现在搬屎也不改下字体格式了，你们夜宴回来的人都这样恶心人的？
+
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 15211#       发表于 2022-10-19 13:08
+
+你们夜宴回来的人都这样恶心人的？
+
+*****
+
+####  nxmonitor  
+##### 15212#       发表于 2022-10-19 13:10
+
+说TI8ame不是垃圾桶的漏油确实是没看比赛啊……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的不说那年小黑强势，选个小黑优势路放养当个光环怪就不是一把两把了，那时候的LGD只有maybe全部围绕他选的一点亏都不吃的，其他人全都做过BP垃圾桶，打法上也是要么放养3要么放养1，4和5准时搓中保证maybe发育……
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 食粪者|-1||
+
+查看全部评分
+
+*****
+
+####  情商  
+##### 15213#         楼主| 发表于 2022-10-19 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987102&amp;ptid=2099454" target="_blank">CNFH1984 发表于 2022-10-19 13:05</a>
+
+漏油们漏油们，今年淘汰赛客户端是多少延迟啊？5分钟？</blockquote>
+好像是5  前两天听谁说过，忘了
+
+*****
+
+####  lyjssj  
+##### 15214#       发表于 2022-10-19 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer"> 马桶哥今年手上沾满了西恩战队的血啊，突围赛淘汰了xg和vg，淘汰赛可能还能赢茶，即使输了还有概率去败者组鲨rng
+
+什么西恩刽子手
+
+*****
+
+####  情商  
+##### 15215#         楼主| 发表于 2022-10-19 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987194&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-19 13:10</a>
+
+马桶哥今年手上沾满了西恩战队的血啊，突围赛淘汰了xg和vg，淘汰赛可能还能赢茶，即使输了还有概率 ...</blockquote>
+ti7早干过了
+
+*****
+
+####  Litccc  
+##### 15216#       发表于 2022-10-19 13:12
+
+鹅球看不到屎黄色背景色吗？那还是个截图好了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
