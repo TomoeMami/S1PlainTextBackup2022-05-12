@@ -6012,3 +6012,14 @@ PS5版应该会小一些吧
 
 既然量大管饱，可以期待下那种无聊的开放世界任务能精简点
 
+
+
+*****
+
+####  Kazepollar  
+##### 657#       发表于 2022-10-19 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989928&amp;ptid=2025548" target="_blank">LMBS 发表于 2022-10-19 16:26</a>
+ 既然量大管饱，可以期待下那种无聊的开放世界任务能精简点</blockquote>
+gow2018的那些支线还可以吧，都做了点剧情
+
