@@ -4946,3 +4946,14 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lazycat233  
+##### 455#       发表于 2022-10-19 10:18
+
+问下开局给的那个能回每章主城的道具有类似的么，用完后次次都要跑回去有点累
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

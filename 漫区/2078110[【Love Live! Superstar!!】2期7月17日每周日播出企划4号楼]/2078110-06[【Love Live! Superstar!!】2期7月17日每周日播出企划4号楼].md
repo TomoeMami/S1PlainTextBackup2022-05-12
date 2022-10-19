@@ -10754,3 +10754,40 @@ unya越来越叛逆期了，开始逆着官推产出<img src="https://static.sar
 这期广播没有nagi和鱼都不在啊<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
 也就是说今年只有水渚鱼一起去了，下一次就是明年，九个人应该至少会有一两对……吧？九人一起可以安排吗
 
+
+
+*****
+
+####  starring  
+##### 8498#       发表于 2022-10-19 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57984414&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-19 10:11</a>
+
+这期广播nagi和鱼都不在啊
+
+也就是说今年只有水渚鱼一起去了，下一次就是明年，九个人应该至少会有 ...</blockquote>
+最有可能还是鲤鱼再去nagi家过新年，合鲤渚也有可能，不然就是菜鱼<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+奈佩的老家距离东京都不远，再加上没有live就有可能回去，虽然都是胡猜<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 8499#       发表于 2022-10-19 10:20
+
+大部分还是会回家的吧 看鱼这波去哪儿了
+
+*****
+
+####  cybernetics31  
+##### 8500#       发表于 2022-10-19 10:20
+
+今年感觉没跨年拼盘了………………
+
+*****
+
+####  优妮可  
+##### 8501#       发表于 2022-10-19 10:22
+
+今年加了二期生，还有舞台剧，管人之后，还有跨年就感觉怪怪的了
+
