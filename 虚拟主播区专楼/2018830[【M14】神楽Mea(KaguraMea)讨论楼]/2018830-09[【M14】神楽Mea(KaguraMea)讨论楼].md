@@ -6997,3 +6997,14 @@ img2img的瞳色很好办,手动用画图模式画俩琥珀色和蓝色圆点
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  若风之景  
+##### 12670#       发表于 2022-10-19 11:44
+
+666
+
+—— 来自 HUAWEI POT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
