@@ -2266,3 +2266,15 @@ bx和摩根都是一宝。狂娜四宝还是需要1/3面红卡补伤害。这次
 
 5宝90bx有人要吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3194#       发表于 2022-10-19 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989491&amp;ptid=2084912" target="_blank">[SA]KOS-MOS 发表于 2022-10-19 15:54</a>
+
+5宝90bx有人要吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有啊 大佬求好友位
+

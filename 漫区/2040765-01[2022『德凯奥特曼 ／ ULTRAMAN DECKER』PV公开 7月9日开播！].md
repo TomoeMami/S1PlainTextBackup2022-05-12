@@ -579,3 +579,14 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 打斗动作看起来是真挺爽的
 
+
+
+*****
+
+####  memo2  
+##### 666#       发表于 2022-10-19 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986814&amp;ptid=2040765" target="_blank">草海灭巨 发表于 2022-10-19 12:45</a>
+ 这作质量不差泽塔多少啊，但热度不怎么高的样子，感觉是bgm拉跨了该燃的地方没有燃起来，对比泽塔特别明显 ...</blockquote>
+我是久弥滚蛋了才敢追的德凯……还有些朋友不完结不敢补，如果能平稳完结，口碑会再起来一波吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

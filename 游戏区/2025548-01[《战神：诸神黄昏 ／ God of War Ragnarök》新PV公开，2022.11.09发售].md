@@ -5950,3 +5950,47 @@ PS5版应该会小一些吧
 
 这下不止是量大管饱，撑都要撑死了，11月赶紧来吧
 
+
+
+*****
+
+####  DelayNoMore  
+##### 651#       发表于 2022-10-19 16:01
+
+这么良心？赶紧预订了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22061218C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  clover293  
+##### 652#       发表于 2022-10-19 16:02
+
+到不一定时间很长，美术资源堆了很多是真的。
+
+话说我一直心心念想打冥界哪个大鸟，不知道能不能这次完成一下心愿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 653#       发表于 2022-10-19 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989617&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-19 16:02</a>
+
+到不一定时间很长，美术资源堆了很多是真的。
+
+话说我一直心心念想打冥界哪个大鸟，不知道能不能这次完成一 ...</blockquote>
+  九界都能去，这北欧地府怕不是寸草不生，死了再死
+
+*****
+
+####  clover293  
+##### 654#       发表于 2022-10-19 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989639&amp;ptid=2025548" target="_blank">415452356 发表于 2022-10-19 16:04</a>
+
+九界都能去，这北欧地府怕不是寸草不生，死了再死</blockquote>
+没，能去是能去。我感觉初代就是要打的，结果没时间了用山怪糊弄了。
+
+不知道二代有没有机会打
+
