@@ -5658,3 +5658,88 @@ giegie打路人好像被喷了
 sg粪坑  电锯人动画屎  nowaki你的露米茖回也是排泄物？</blockquote>
 还有xb3呢，小心外面十万Jrpg痴子冲进来大屠杀
 
+
+
+*****
+
+####  zhliiiii  
+##### 15643#       发表于 2022-10-19 20:23
+
+md明天晚上有人请客吃饭还不太好推 不会到家超哥已经没了吧
+
+*****
+
+####  你可以试试  
+##### 15644#       发表于 2022-10-19 20:26
+
+群羊难道不是魔晶戴泽？
+
+*****
+
+####  Rorgen  
+##### 15645#       发表于 2022-10-19 20:27
+
+有比我这个还离谱的预测吗
+
+<img src="https://img.saraba1st.com/forum/202210/19/202739jkh726b6ztj737n9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (97.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 20:27 上传
+
+*****
+
+####  adretyu67  
+##### 15646#       发表于 2022-10-19 20:28
+
+前面忘了，中间忘了，后面也忘了。
+
+*****
+
+####  憧憬鲨  
+##### 15647#       发表于 2022-10-19 20:29
+
+南美梦都不敢做的预测也能算离谱吗
+
+*****
+
+####  tasuku  
+##### 15648#       发表于 2022-10-19 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993621&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 20:27</a>
+
+有比我这个还离谱的预测吗</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/19/202918unjeknmtumkmu1ze.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (142.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 20:29 上传
+
+*****
+
+####  Avantasi  
+##### 15649#       发表于 2022-10-19 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993621&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 20:27</a>
+有比我这个还离谱的预测吗</blockquote>
+那肯定就是水厂夺冠了啊
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  adretyu67  
+##### 15650#       发表于 2022-10-19 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993621&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 20:27</a>
+
+有比我这个还离谱的预测吗</blockquote>
+妇科ti9是吧，最后劣化版og大战各种脑浆但就是能赢的变种liquid。
+
+boom给tims选出4号位谜团全场只要拉1个好大就能团灭雪碧的情况下各种空大
+
