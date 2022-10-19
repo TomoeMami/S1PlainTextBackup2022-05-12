@@ -5750,3 +5750,33 @@ steam隐藏成就是啥啊
 
 第五章城外的天平怎么死活找不到,全跑了一遍嘉隆的鼻子都显示拿齐了
 
+
+
+*****
+
+####  AeonsTorn  
+##### 534#       发表于 2022-10-20 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57996564&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-20 00:07</a>
+第五章城外的天平怎么死活找不到,全跑了一遍嘉隆的鼻子都显示拿齐了</blockquote>
+第五章的天平我记得是坐右边的升降机上去，然后往左一个区域
+
+*****
+
+####  蓝雉  
+##### 535#         楼主| 发表于 2022-10-20 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57996704&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-10-20 00:21</a>
+
+第五章的天平我记得是坐右边的升降机上去，然后往左一个区域</blockquote>
+那个我拿到了,这关应该还有一个吧
+
+*****
+
+####  AeonsTorn  
+##### 536#       发表于 2022-10-20 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57996725&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-20 00:23</a>
+那个我拿到了,这关应该还有一个吧</blockquote>
+不会啊，一共十个天平，第一章两个，二到八章每章一个共七个，加上扭蛋出的一个
+

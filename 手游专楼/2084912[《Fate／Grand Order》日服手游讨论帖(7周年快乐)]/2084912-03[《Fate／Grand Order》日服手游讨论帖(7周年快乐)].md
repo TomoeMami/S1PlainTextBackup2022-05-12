@@ -2549,3 +2549,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 清了点好友了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加了 谢大佬给位置
 
+
+
+*****
+
+####  铁柱子  
+##### 3221#       发表于 2022-10-20 00:24
+
+请问一下那个送好几十个石头的签到是啥？不小心点点了
+

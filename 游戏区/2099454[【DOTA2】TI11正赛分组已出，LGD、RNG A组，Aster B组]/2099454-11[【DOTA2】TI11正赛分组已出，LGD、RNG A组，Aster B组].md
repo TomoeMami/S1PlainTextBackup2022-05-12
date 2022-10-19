@@ -6938,3 +6938,34 @@ make cndota great again！！！！
 
 不是不看比赛，是实在找不到别的cn队了
 
+
+
+*****
+
+####  smlszh  
+##### 15777#       发表于 2022-10-20 00:23
+
+鳖孙儿没睡醒？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  陈苦瓜  
+##### 15778#       发表于 2022-10-20 00:25
+
+支持全华班<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  thistimeforlife  
+##### 15779#       发表于 2022-10-20 00:30
+
+<img src="https://img.saraba1st.com/forum/202210/20/002840kw8k4a4aga5454ka.jpg" referrerpolicy="no-referrer">
+
+<strong>image2.jpg</strong> (109.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 00:28 上传
+
+无队可选 只有当一回鳖孙了 顺便希望看看真正的南美荣耀<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
