@@ -5352,3 +5352,15 @@ steam隐藏成就是啥啊
 
 好扎实的jrpg，确实是做了14年的水平<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  元气海牛  
+##### 492#       发表于 2022-10-19 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987678&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-19 13:44</a>
+
+没有下周目的 只有重开</blockquote>
+惨<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer"> 都40小时存档了
+
