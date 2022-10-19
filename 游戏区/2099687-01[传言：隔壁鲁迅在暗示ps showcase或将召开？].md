@@ -843,3 +843,21 @@ https://m.weibo.cn/1622008051/4826249807266814
 
 乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/7/5fa7ba15f193386d791ed77daec1369a/CMP_20221019174318594.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  415452356  
+##### 80#       发表于 2022-10-19 17:52
+
+我反正还是觉得他肯定是索尼日本搞宣传对接的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  芷雅居  
+##### 81#       发表于 2022-10-19 18:01
+
+寂静岭2这速通两小时的流程还要分章节？有没有搞错<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
