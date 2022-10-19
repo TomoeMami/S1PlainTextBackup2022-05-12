@@ -5780,3 +5780,32 @@ steam隐藏成就是啥啊
 那个我拿到了,这关应该还有一个吧</blockquote>
 不会啊，一共十个天平，第一章两个，二到八章每章一个共七个，加上扭蛋出的一个
 
+
+
+*****
+
+####  A1LI  
+##### 537#       发表于 2022-10-20 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57996725&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-20 00:23</a>
+
+那个我拿到了,这关应该还有一个吧</blockquote>
+天平除了箱子出就是扭蛋出，如果箱子都拿了就不用去找了，反正最终boss之前随时有机会回来。
+
+*****
+
+####  StrayWolf  
+##### 538#       发表于 2022-10-20 00:34
+
+二周目了，面包店换盔甲的心天平怎么搞来着，隐藏BOSS给的装备都练出宝石了
+
+*****
+
+####  蓝雉  
+##### 539#         楼主| 发表于 2022-10-20 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57996764&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-10-20 00:27</a>
+
+不会啊，一共十个天平，第一章两个，二到八章每章一个共七个，加上扭蛋出的一个 ...</blockquote>
+第二章是两个啊,第三第四章没有,第五章我就拿到一个
+

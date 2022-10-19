@@ -6969,3 +6969,35 @@ make cndota great again！！！！
 
 无队可选 只有当一回鳖孙了 顺便希望看看真正的南美荣耀<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Aeons  
+##### 15780#       发表于 2022-10-20 00:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了看collapse天梯，虽然还是玩那点东西，但这两天好像出了几次大祭品，两天前应该是没出过。
+
+
+
+*****
+
+####  dclara1  
+##### 15781#       发表于 2022-10-20 00:38
+
+经典反奶，集美不装了
+
+*****
+
+####  nowaki  
+##### 15782#       发表于 2022-10-20 00:40
+
+集美要是v我5k 我也可以是集美
+
+*****
+
+####  你可以试试  
+##### 15783#       发表于 2022-10-20 00:42
+
+傻逼管人吃你都V管人一万了麦都没连一个
+
