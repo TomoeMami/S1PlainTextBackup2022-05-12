@@ -3131,3 +3131,96 @@ v社需要去针对半死不活的斗鱼吗？你说b跟pgl签了排他协议还
 
 结、今年过后又会有不少老面孔离开，今年是matu的最后一舞，对于ori和maybe这俩个大龄中单来说，或许也是最后一年。然而肯定又会有新的面孔和传奇出现，如今老干瘪看起来很猛，外面也已经洪水滔天，但我相信，就像18年的ana和21年的yatoro一样，今年也会有蒙受dota之神恩赐的少年出现的。相信dota。</blockquote>
 
+
+
+*****
+
+####  wzy200912345  
+##### 15360#       发表于 2022-10-19 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989242&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-19 15:36</a>
+
+问就是ti4 lgd，隔一天打</blockquote>
+去年的混乱和复杂程度更类似今年小组赛OG马体掉线那把，好比V社同意马体重开了，重开打到一半又突然告诉OG马体我们能重连上一把，继续打上把
+
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 15361#       发表于 2022-10-19 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989105&amp;ptid=2099454" target="_blank">ArowRocher 发表于 2022-10-19 15:25</a>
+台妹回来了</blockquote>
+bbc活了？
+
+*****
+
+####  TI三冠王AME  
+##### 15362#       发表于 2022-10-19 15:44
+
+那个少年就是红龙一号位露米！
+
+*****
+
+####  没钱买手办  
+##### 15363#       发表于 2022-10-19 15:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">major时候不是说颜良文丑于禁庞德了吗。
+
+那这届的关羽到底是谁
+
+*****
+
+####  非建政专用号  
+##### 15364#       发表于 2022-10-19 15:45
+
+不是窝传奇中单克里斯我卜能接受
+
+*****
+
+####  哈曼的YY  
+##### 15365#       发表于 2022-10-19 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989105&amp;ptid=2099454" target="_blank">ArowRocher 发表于 2022-10-19 15:25:58</a>
+台妹回来了</blockquote>我吐了 假赛集美品质是吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  没钱买手办  
+##### 15366#       发表于 2022-10-19 15:49
+
+太监论坛都成合作社区了，你楼只有管人吃在车轱辘
+
+*****
+
+####  tasuku  
+##### 15367#       发表于 2022-10-19 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说真的，真的有关注比赛本身的玩家跑去看这些节目吗
+
+*****
+
+####  莉拉厨  
+##### 15368#       发表于 2022-10-19 15:50
+
+错误的，邪恶红龙必被sa区大哥bc狠狠后入
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  端木恋心  
+##### 15369#       发表于 2022-10-19 15:50
+
+上海那一届还可以啊，毕竟在播完比赛之后马上就有夜谈。而且还请了不少选手啊主播啥的。
+
+*****
+
+####  非建政专用号  
+##### 15370#       发表于 2022-10-19 15:51
+
+明天是传奇中单克里斯的生日，克里斯和露米打赌如果本条转发超过1000次，克神将轻取红龙并在豪夺ti11冠军盾之后把妮的名字刻在盾上，转发本条不要让克神丢脸<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
