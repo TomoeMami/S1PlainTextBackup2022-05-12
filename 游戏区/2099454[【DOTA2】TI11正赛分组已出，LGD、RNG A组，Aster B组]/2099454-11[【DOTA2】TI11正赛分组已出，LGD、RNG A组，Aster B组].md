@@ -2259,3 +2259,117 @@ pcmr从来不考虑多版本挑ns版好吧</blockquote>
 你们都没有remote的工作吗</blockquote>
 没有，敲里马<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  没钱买手办  
+##### 15263#       发表于 2022-10-19 14:11
+
+远程办公其实不爽，之前搞过一周，在家办公反而一堆事情麻烦得要死，工作效率也低，不如去公司，光速赶完进度爽划
+
+*****
+
+####  Rorgen  
+##### 15264#       发表于 2022-10-19 14:12
+
+大树这英雄居然bp率为0，如果丁聪打进正赛肯定不会这样，瑞典丁聪还是不够丁聪
+
+*****
+
+####  恐怖利刃  
+##### 15265#       发表于 2022-10-19 14:15
+
+<img src="https://img.saraba1st.com/forum/202210/19/141528f6iayan4n4n43c06.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6B00D19F-2970-4E3B-B4AB-509C09C37238.jpeg</strong> (175.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 14:15 上传
+
+boom的5已经把头发献祭了
+
+88雪碧
+
+*****
+
+####  walfeds  
+##### 15266#       发表于 2022-10-19 14:16
+
+更好奇小骷髅为什么没人选
+
+*****
+
+####  运丢的新娘  
+##### 15267#       发表于 2022-10-19 14:16
+
+我今年直接化身铁血小超人
+
+就这个RNG，一轮游也没法儿黑
+
+毕竟叒如猪猪，这次确实是聪明的病毒占领了高地
+
+我只能希望病人今后留不下后遗症，能健康快乐的迎接冠后的生活
+
+*****
+
+####  反方向的波  
+##### 15268#       发表于 2022-10-19 14:16
+
+乳化而论，skem想赢应该献祭的还是亲妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 15269#       发表于 2022-10-19 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988094&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-19 14:16</a>
+更好奇小骷髅为什么没人选</blockquote>
+路人局的优点在比赛里不是优点
+路人局的缺点在比赛里会变成究极缺点
+
+*****
+
+####  guojiaoqi  
+##### 15270#       发表于 2022-10-19 14:17
+
+虽然不是不理解你们想让a畜2轮滚蛋的心情，但是就不能让人幻想一下超哥亲自处刑么
+
+
+
+*****
+
+####  赤星ビスコ  
+##### 15271#       发表于 2022-10-19 14:20
+
+ 本帖最后由 赤星ビスコ 于 2022-10-19 14:22 编辑 
+
+超哥处刑至少要败者组第五轮，还是当做梦吧
+
+*****
+
+####  adretyu67  
+##### 15272#       发表于 2022-10-19 14:20
+
+skem这个彩笔献祭啥都没用，应该建议揭壳boy去剃个
+
+*****
+
+####  莉拉厨  
+##### 15273#       发表于 2022-10-19 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988094&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-19 14:16</a>
+更好奇小骷髅为什么没人选</blockquote>
+线直接炸穿，电锤出的慢，辅助帮你屯好远古结果被对面强大的执行力冲进来全部抢走，就算有装备至少要大炮才有输出，成型算偏慢了。
+那么，为什么不玩对线更强，中期战斗力强，也能打远古，同时也是炮台的sf呢？
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 15274#       发表于 2022-10-19 14:22
+
+你也编辑了，算了
+
