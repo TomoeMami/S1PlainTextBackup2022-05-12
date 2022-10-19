@@ -3959,3 +3959,183 @@ tundra只要掉进败者组绝对光速去世，回家局批九啪一个卡尔�
 哦牛逼，左边那个是雪碧的内容制作人也就算了，右边这个是真拍片的啊</blockquote>
 嗯？意思是真的开淫趴
 
+
+
+*****
+
+####  dclara1  
+##### 15449#       发表于 2022-10-19 17:42
+
+小组第一，犒劳犒劳
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  qwas  
+##### 15450#       发表于 2022-10-19 17:42
+
+怎么天天有露油想让ame碰瓷慕斯，慕斯再下限毒瘤保kda也有冠军戒指，ame有啥，建议从哈登龟少中二选一嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  TI三冠王AME  
+##### 15451#       发表于 2022-10-19 17:42
+
+Eva Elfie啊，照片拍得有点丑，这女的咖位应该比skiter大吧，我记得是P站前几的艳星，如果说小鸽子吸魂巫术只有一级，那这位肯定是满级加魔晶加慧光加永恒遗物好吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| masterffzhou| + 1|好好好|
+
+查看全部评分
+
+*****
+
+####  masterffzhou  
+##### 15452#       发表于 2022-10-19 17:43
+
+真好啊，既能快乐刀塔，又能快乐瓢虫
+
+*****
+
+####  walfeds  
+##### 15453#       发表于 2022-10-19 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991249&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-19 17:40</a>
+
+嗯？意思是真的开淫趴</blockquote>
+p站有号的含淫量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 15454#       发表于 2022-10-19 17:43
+
+skiter：哥们不搂两个都对不起这张白皮宋淳的脸
+
+*****
+
+####  蛭人  
+##### 15455#       发表于 2022-10-19 17:43
+
+众所周知，每一个赛区都有喜欢打野的选手。
+
+*****
+
+####  TI三冠王AME  
+##### 15456#       发表于 2022-10-19 17:43
+
+<img src="https://img.saraba1st.com/forum/202210/19/174323zwvwpqmqf7cvtqfb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (14.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 17:43 上传
+
+翻了下P站简介，哦牛批，意思是电竞女孩，空降新加坡奖励TI冠军来了？
+
+*****
+
+####  walfeds  
+##### 15457#       发表于 2022-10-19 17:46
+
+只能说菠菜公司什么活都整
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 15458#       发表于 2022-10-19 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991231&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-19 17:39</a>
+哦牛逼，左边那个是雪碧的内容制作人也就算了，右边这个是真拍片的啊</blockquote>
+不是，拍片的你穿衣服也认得出？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzy200912345  
+##### 15459#       发表于 2022-10-19 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">奖励X 验货√
+
+*****
+
+####  walfeds  
+##### 15460#       发表于 2022-10-19 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991349&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-19 17:46</a>
+
+不是，拍片的你穿衣服也认得出？</blockquote>
+[https://gbc-time.com/news/po rn-actress--1xbet-everything-on-the-new-promo-campaign](https://gbc-time.com/news/**-actress--1xbet-everything-on-the-new-promo-campaign)
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">憋尬黑，我按图中信息搜到的
+
+*****
+
+####  越动天下  
+##### 15461#       发表于 2022-10-19 17:47
+
+哇 这不给吸干了
+
+*****
+
+####  人別離苦  
+##### 15462#       发表于 2022-10-19 17:48
+
+哦牛皮，真开淫趴啊
+
+*****
+
+####  情商  
+##### 15463#         楼主| 发表于 2022-10-19 17:49
+
+都是懂**hub的
+
+*****
+
+####  wzy200912345  
+##### 15464#       发表于 2022-10-19 17:50
+
+Eva Elfie在游戏圈都名声大到能在某策划飞马游戏里出专属贴花的地步，蹭蹭电竞热度当个VIP中P看个TI也正常<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 15465#       发表于 2022-10-19 17:50
+
+割割赛前断情尽显职业素养
+寡头赛中打炮玷污竞技精神
+
+*****
+
+####  nowaki  
+##### 15466#       发表于 2022-10-19 17:52
+
+不懂，有阿梓出名吗
+
+*****
+
+####  qwas  
+##### 15467#       发表于 2022-10-19 17:52
+
+这样的事情不要啊，要戳就戳我吧，不要戳我女神<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 15468#       发表于 2022-10-19 17:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991364&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-19 17:47</a>
+https://gbc-time.com/news/po rn-actress--1xbet-everything-on-the-new-promo-campaign
+
+憋尬黑， ...</blockquote>
+大姐姐ins真在sin<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

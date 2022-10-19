@@ -7008,3 +7008,19 @@ img2img的瞳色很好办,手动用画图模式画俩琥珀色和蓝色圆点
 
 —— 来自 HUAWEI POT-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
+
+
+*****
+
+####  clvan_  
+##### 12671#       发表于 2022-10-19 17:43
+
+老鼠台又播打撸了。这几天播了多少次打lol了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  十九号大侠  
+##### 12672#       发表于 2022-10-19 17:48
+
+估计没什么事情做吧，23号不是有什么演唱会吗
+

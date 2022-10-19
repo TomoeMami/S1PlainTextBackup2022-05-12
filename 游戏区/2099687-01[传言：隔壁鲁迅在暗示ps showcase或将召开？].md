@@ -834,3 +834,12 @@ https://m.weibo.cn/1622008051/4826249807266814
 
 这回生化的showcase还是playstation的频道直播，FF16看来是寄了，不知道这个月还有戏没
 
+
+
+*****
+
+####  ff2077  
+##### 79#       发表于 2022-10-19 17:43
+
+乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/7/5fa7ba15f193386d791ed77daec1369a/CMP_20221019174318594.jpg" referrerpolicy="no-referrer">
+
