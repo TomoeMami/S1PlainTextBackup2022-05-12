@@ -2297,3 +2297,26 @@ Do It Your Radio!! 第 1 回开始配信，嘉宾&amp;#x662 ...</blockquote>
 <img src="https://p.sda1.dev/7/563f3c96b8d5850b8f8f40e32ec57962/PINEJAM_info-1582654313176133633-img1.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/5e3218bbda6b6ded42a2878311f2f98a/PINEJAM_info-1582654313176133633-img2.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 188#       发表于 2022-10-19 23:35
+
+ 本帖最后由 千恋万花 于 2022-10-19 23:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986737&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-10-19 12:40</a>
+
+说不定是 Jobs 的 Job（</blockquote><blockquote>日本の Pudding はしゃべるの？</blockquote><blockquote>GOOD JOB のジョブ子ちゃん</blockquote>
+せるふ 难得脸上没创可贴，说完就添了新伤
+
+做手机的 ジョブ子，你果然是 ジョブズ（乔布斯）
+<img src="https://p.sda1.dev/7/e2eaac0dab26b6a1cd14df88f0f19543/Draron2019-1582754836931522562-img1.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  CharlieZ-  
+##### 189#       发表于 2022-10-19 23:42
+
+我超，这季三个萌豚质量也太高了吧，真的好看
+

@@ -5688,3 +5688,12 @@ steam隐藏成就是啥啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏现在有全收集攻略吗？有点心动但是感觉容易漏掉的支线有点多了，想对着攻略打了
 
+
+
+*****
+
+####  fyzqwzh  
+##### 528#       发表于 2022-10-19 23:36
+
+看到二周目这无上限强化，和随机掉落装备盘，就不太想玩了
+
