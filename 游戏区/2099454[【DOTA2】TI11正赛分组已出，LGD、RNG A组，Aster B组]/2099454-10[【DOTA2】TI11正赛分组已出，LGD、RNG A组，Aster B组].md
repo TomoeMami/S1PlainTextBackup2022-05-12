@@ -11670,3 +11670,85 @@ lgd两轮滚蛋，谢谢
 
 百分百打不过秘密，除非ppy这两天什么功课都不做，什么录像都不看。lgd二轮游最大的问题是雪碧那个bo1能不能赢。
 
+
+
+*****
+
+####  windhawind2  
+##### 14919#       发表于 2022-10-19 08:55
+
+我觉得今年形势cn说不定前三一个都没有 会造成比ti3成绩还差的情况<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  萧千绝  
+##### 14920#       发表于 2022-10-19 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57983284&amp;ptid=2099454" target="_blank">windhawind2 发表于 2022-10-19 08:55</a>
+
+我觉得今年形势cn说不定前三一个都没有 会造成比ti3成绩还差的情况
+
+  -- 来自 能搜索的 Stage1官方 ...</blockquote>
+还前三，能进6强就是胜利，4强都是奢望
+
+*****
+
+####  Litccc  
+##### 14921#       发表于 2022-10-19 08:58
+
+孤独摇滚确实不错，漏油是懂二次元的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 14922#       发表于 2022-10-19 09:00
+
+漏油是懂发功的
+
+*****
+
+####  越动天下  
+##### 14923#       发表于 2022-10-19 09:00
+
+我只能说漏油是懂奶的
+
+*****
+
+####  Damocles990609  
+##### 14924#       发表于 2022-10-19 09:00
+
+我来，我觉得两个胜者组已经是胜利了，有请下一位
+
+*****
+
+####  TI三冠王AME  
+##### 14925#       发表于 2022-10-19 09:01
+
+非lxo版本的秋天童话来了，支持的扣1
+
+<img src="https://img.saraba1st.com/forum/202210/19/090148vb0q1qxvq1howbxr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 09:01 上传
+
+*****
+
+####  jk9hot  
+##### 14926#       发表于 2022-10-19 09:02
+
+看好南美北美两兄弟
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  超级柯南迷  
+##### 14927#       发表于 2022-10-19 09:02
+
+RNG的败者组比赛是最后一场，好险不是第一场
+
