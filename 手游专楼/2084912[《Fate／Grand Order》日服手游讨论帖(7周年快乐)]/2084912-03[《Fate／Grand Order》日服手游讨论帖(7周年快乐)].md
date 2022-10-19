@@ -2307,3 +2307,16 @@ S1fgo群怎么又炸了？
 
 看最后好像是r魔在发ai画的圆香吃面图，估计露点了吧，蹲一个新群号
 
+
+
+*****
+
+####  newfaceryo  
+##### 3198#       发表于 2022-10-19 18:55
+
+ 本帖最后由 newfaceryo 于 2022-10-19 18:56 编辑 
+
+那图我从公司群里转发来的，怎么会露点，不要污我<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+我觉得是你们群名起梁山泊的锅
+

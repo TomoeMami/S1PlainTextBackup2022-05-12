@@ -9310,3 +9310,25 @@ Q(3(]L0JK1NA{YEB%5UC1L6.jpg
 
 <img src="https://img.saraba1st.com/forum/202210/18/130130cr7l57fk56vwfs1w.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 2389#       发表于 2022-10-19 18:54
+
+<blockquote>みこちから连络です。
+
+本日は収録と作业に追われており
+
+明日配信したいとのことです
+
+３人でテストプレイした时の悲惨な姿ぅぃ～ </blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ZQXY2002  
+##### 2390#       发表于 2022-10-19 18:59
+
+跟你测试的两位今晚都能播，你收录可真多啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
