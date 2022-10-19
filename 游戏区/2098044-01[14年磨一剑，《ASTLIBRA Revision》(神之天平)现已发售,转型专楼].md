@@ -5631,3 +5631,41 @@ steam隐藏成就是啥啊
 魔王城的红球在哪，不会是桌子上的苹果把</blockquote>
 里面的苹果挨个送就能见到了，最后一个可以不用送
 
+
+
+*****
+
+####  A1LI  
+##### 522#       发表于 2022-10-19 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995671&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-19 22:47</a>
+
+新章火山里那个垂直的靶子要怎么碰到？</blockquote>
+你不是有浮空技能嘛？
+
+*****
+
+####  六至九  
+##### 523#       发表于 2022-10-19 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995841&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-19 23:01</a>
+你不是有浮空技能嘛？</blockquote>
+果然要这样吗，掌握不好时机
+
+*****
+
+####  元气海牛  
+##### 524#       发表于 2022-10-19 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994496&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-19 21:20</a>
+
+在最后一个保存点的左上角，靠近门的位置</blockquote>
+终于拿到了，十分感谢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  元气海牛  
+##### 525#       发表于 2022-10-19 23:08
+
+贤者要全武器全盾和全护甲，他还说没要求全饰品，是关照了主角，这没全收集对照表是要人命啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
