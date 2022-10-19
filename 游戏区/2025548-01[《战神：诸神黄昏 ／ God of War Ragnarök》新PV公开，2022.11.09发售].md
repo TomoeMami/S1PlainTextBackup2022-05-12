@@ -6023,3 +6023,12 @@ PS5版应该会小一些吧
  既然量大管饱，可以期待下那种无聊的开放世界任务能精简点</blockquote>
 gow2018的那些支线还可以吧，都做了点剧情
 
+
+
+*****
+
+####  clover293  
+##### 658#       发表于 2022-10-19 16:52
+
+哦，这个era有人说好像是假的。就说咋可能118g这么大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

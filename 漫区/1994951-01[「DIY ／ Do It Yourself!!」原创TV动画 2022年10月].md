@@ -2280,3 +2280,20 @@ Do It Your Radio!! 第 1 回开始配信，嘉宾&amp;#x662 ...</blockquote>
 说不定是 Jobs 的 Job（
 <img src="https://p.sda1.dev/7/1901eba9e2e68c0e9a19c00b031282ff/ilast2014512-20140427_001.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 187#       发表于 2022-10-19 16:48
+
+[https://twitter.com/PINEJAM_info/status/1582654313176133633](https://twitter.com/PINEJAM_info/status/1582654313176133633)
+
+『Do It Yourself!! -どぅー・いっと・ゆあせるふ-』
+
+せるふのデフォルメ表情の設定と、ぷりんのお家にいるロボットのくらげさんの設定をご紹介&amp;#x1F528;
+
+すてっぷ３は本日２４時１０分～放送です！
+<img src="https://p.sda1.dev/7/563f3c96b8d5850b8f8f40e32ec57962/PINEJAM_info-1582654313176133633-img1.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/5e3218bbda6b6ded42a2878311f2f98a/PINEJAM_info-1582654313176133633-img2.png" referrerpolicy="no-referrer">
+

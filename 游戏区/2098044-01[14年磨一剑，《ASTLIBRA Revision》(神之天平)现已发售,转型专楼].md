@@ -5270,3 +5270,29 @@ steam隐藏成就是啥啊
 
 昨晚我把流程打到第9章，打完精英驾驶员，在最终boss之前存的档，目前拿到了3个爱情（这玩意有什么用？），然后6个隐藏boss也打完了，然后怎么办？
 
+
+
+*****
+
+####  SyIXVII  
+##### 485#       发表于 2022-10-19 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57990110&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-19 16:39</a>
+
+我草，你们给我搞糊涂了，真结局到底如何触发，触发点在哪，我都不敢继续打下去了。
+
+昨晚我把流程打到第9 ...</blockquote>
+继续打就行，爱情可以在最后的迷宫刷
+
+*****
+
+####  后会莫急  
+##### 486#       发表于 2022-10-19 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57990110&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-19 16:39</a>
+
+我草，你们给我搞糊涂了，真结局到底如何触发，触发点在哪，我都不敢继续打下去了。
+
+昨晚我把流程打到第9 ...</blockquote>
+新版打完还有第十章（二周目）<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真大团圆结局，原作第九章的结局其实都是梦
+
