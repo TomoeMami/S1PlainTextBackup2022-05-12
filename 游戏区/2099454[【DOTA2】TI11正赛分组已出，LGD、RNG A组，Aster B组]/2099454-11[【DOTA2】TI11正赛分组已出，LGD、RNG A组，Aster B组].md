@@ -5743,3 +5743,127 @@ md明天晚上有人请客吃饭还不太好推 不会到家超哥已经没了�
 
 boom给tims选出4号位谜团全场只要拉1个好大就能团灭雪碧的情况下各种空大
 
+
+
+*****
+
+####  一品堂官  
+##### 15651#       发表于 2022-10-19 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993242&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 20:00</a>
+
+第一话：先声夺人！RNG天胡开局，暂列小组第一
+
+第二话：疫情侵袭，潘飞化身25级莱恩群羊RNG</blockquote>
+群友是懂超能力运动番的
+
+*****
+
+####  tengshuo980  
+##### 15652#       发表于 2022-10-19 20:33
+
+可惜，现实没有童话
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  你可以试试  
+##### 15653#       发表于 2022-10-19 20:33
+
+你也是小雪人啊
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 15654#       发表于 2022-10-19 20:35
+
+不是拉肚子了就去吃了，感觉刀斯林真不多
+
+*****
+
+####  一品堂官  
+##### 15655#       发表于 2022-10-19 20:35
+
+20话就讲了淘汰赛败者组第一轮是吧。
+
+后面呢？
+
+后面还在画。
+
+*****
+
+####  Rorgen  
+##### 15656#       发表于 2022-10-19 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993739&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-19 20:35</a>
+
+20话就讲了淘汰赛败者组第一轮是吧。
+
+后面呢？
+
+后面还在画。</blockquote>
+你是懂懒狗漫画家的
+
+*****
+
+####  lyjssj  
+##### 15657#       发表于 2022-10-19 20:37
+
+<img src="https://img.saraba1st.com/forum/202210/19/203651sfry5j63r7r7zi61.png" referrerpolicy="no-referrer">
+
+<strong>lumi.PNG</strong> (428.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 20:36 上传
+
+关注露米谢谢喵
+
+*****
+
+####  恐怖利刃  
+##### 15658#       发表于 2022-10-19 20:37
+
+<img src="https://img.saraba1st.com/forum/202210/19/203720aer5j8kq298q9ulb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>671261EA-B59E-4BFA-A470-BE590479C897.jpeg</strong> (145.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 20:37 上传
+
+*****
+
+####  usoda  
+##### 15659#       发表于 2022-10-19 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993644&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-19 20:29</a></blockquote>
+什么超时空要塞剧情
+
+*****
+
+####  Asukalangley33  
+##### 15660#       发表于 2022-10-19 20:40
+
+我觉得大多数队伍接不下马桶哥走中这一拳
+
+至于为什么会让李逵第一轮被茶打下去，大概是觉得ZAI后天可能化身ZAI畜
+
+<img src="https://img.saraba1st.com/forum/202210/19/203639igbx6jbvp6dfmgvz.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221019203535.png</strong> (141.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 20:36 上传
+
+
+
+*****
+
+####  超人苏坦纳  
+##### 15661#       发表于 2022-10-19 20:41
+
+例行检查 请漏油们发出自己的预测 以此来检验成分 
+

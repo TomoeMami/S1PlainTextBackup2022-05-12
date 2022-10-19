@@ -5424,3 +5424,12 @@ steam隐藏成就是啥啊
 
 我草，这装备强化，别告诉我最高强化99级。
 
+
+
+*****
+
+####  jy000129  
+##### 500#       发表于 2022-10-19 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">竞技场会长战小兵伤害都这么哈人
+
