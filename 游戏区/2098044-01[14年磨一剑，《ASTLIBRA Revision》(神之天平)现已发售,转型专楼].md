@@ -5669,3 +5669,22 @@ steam隐藏成就是啥啊
 
 贤者要全武器全盾和全护甲，他还说没要求全饰品，是关照了主角，这没全收集对照表是要人命啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  A1LI  
+##### 526#       发表于 2022-10-19 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995871&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-19 23:04</a>
+
+果然要这样吗，掌握不好时机</blockquote>
+你就直接跳下去，半路浮空，然后用弩往下射不就好了。
+
+*****
+
+####  迷途lite  
+##### 527#       发表于 2022-10-19 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏现在有全收集攻略吗？有点心动但是感觉容易漏掉的支线有点多了，想对着攻略打了
+
