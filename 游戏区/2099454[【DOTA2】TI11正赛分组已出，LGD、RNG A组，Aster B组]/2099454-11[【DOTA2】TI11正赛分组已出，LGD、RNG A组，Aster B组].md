@@ -2964,3 +2964,90 @@ TI10亚军=0.68个TI11冠军，批准LGD四舍五入夺冠
 13秒的换胎工也有双进站都两秒多的出色表现呀，哥哥gege只能去策略组了是吧 ...</blockquote>
 形象大使好吧，工程男神<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  牛肉丸  
+##### 15342#       发表于 2022-10-19 15:23
+
+小鸽子来新加坡了，巴巴耶夫的末日要到了(吸魂巫术，启动)
+
+*****
+
+####  火鸡味锅巴  
+##### 15343#       发表于 2022-10-19 15:24
+
+谁来p个吸螺的gif
+
+小鸽子怒吸ezboy
+
+*****
+
+####  ArowRocher  
+##### 15344#       发表于 2022-10-19 15:25
+
+<img src="https://p.sda1.dev/7/e73b2ca2a4e539d9caaaa502e760cd5e/CMP_20221019152530126.jpg" referrerpolicy="no-referrer">台妹回来了
+
+*****
+
+####  ArowRocher  
+##### 15345#       发表于 2022-10-19 15:26
+
+<img src="https://p.sda1.dev/7/e73b2ca2a4e539d9caaaa502e760cd5e/CMP_20221019152530126.jpg" referrerpolicy="no-referrer">台妹回来了
+
+*****
+
+####  walfeds  
+##### 15346#       发表于 2022-10-19 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">imbatv还没倒闭呢？
+
+*****
+
+####  usoda  
+##### 15347#       发表于 2022-10-19 15:28
+
+有刀综特色的车轱辘 suki
+
+*****
+
+####  TI三冠王AME  
+##### 15348#       发表于 2022-10-19 15:29
+
+有人可能会说，泥潭连5个上去打比赛的都凑不出来还能当官方节目的合作社区？
+
+那我只能说，一位刀友的品质，是由你自己决定，而非论坛决定~
+
+*****
+
+####  adretyu67  
+##### 15349#       发表于 2022-10-19 15:30
+
+<blockquote>《每一把都当最后一把打，然后也不要怕输》
+
+《3,2,1，加油！》</blockquote>
+
+*****
+
+####  情商  
+##### 15350#         楼主| 发表于 2022-10-19 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989151&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-19 15:29</a>
+有人可能会说，泥潭连5个上去打比赛的都凑不出来还能当官方节目的合作社区？
+
+那我只能说，一位刀友的品质， ...</blockquote>
+“如果你觉得论坛不好就去建设论坛”
+
+*****
+
+####  火鸡味锅巴  
+##### 15351#       发表于 2022-10-19 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989151&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-19 15:29</a>
+
+有人可能会说，泥潭连5个上去打比赛的都凑不出来还能当官方节目的合作社区？
+
+那我只能说，一位刀友的品质， ...</blockquote>
+懂又不懂,打比赛时都是顶着sg的皮
+
