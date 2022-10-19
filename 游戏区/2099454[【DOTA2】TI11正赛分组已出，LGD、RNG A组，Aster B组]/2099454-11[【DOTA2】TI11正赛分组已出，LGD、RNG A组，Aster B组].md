@@ -7157,3 +7157,14 @@ ti5以后击杀数极速上升的有四个人，sumail maybe resolution miracle
 
 不直播打dota的管人一律默认为撸狗
 
+
+
+*****
+
+####  Damocles990609  
+##### 15802#       发表于 2022-10-20 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997211&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-20 01:30</a>
+不直播打dota的管人一律默认为撸狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">上过完美盛典的也算吗（
+
