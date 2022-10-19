@@ -2363,3 +2363,40 @@ S1fgo群怎么又炸了？
 
 别人在借BX，我在借王姐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 3204#       发表于 2022-10-19 20:06
+
+试了一个5宝闪闪和2宝摩根双奥伯龙的6加成，终于可以刷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 3205#       发表于 2022-10-19 20:07
+
+我用双奥博龙bx rba这套也行
+
+*****
+
+####  千叶铁矢  
+##### 3206#       发表于 2022-10-19 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57984154&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-10-19 09:53</a>
+提供一个思路解决没好友的问题
+
+摩根（20np被动）+bx（50np酒吞）+rba+奥伯龙+鹤+杂鱼</blockquote>
+你这个cost爆炸了吧
+
+*****
+
+####  芭德薇  
+##### 3207#       发表于 2022-10-19 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57993143&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-10-19 19:53</a>
+
+别人在借BX，我在借王姐</blockquote>
+我也是，不过这个很好借啊，昨晚刷了下感觉基本上随便拉一个路人都是2宝以上的，等级100+的都不少，礼装也都是对的，这个组合应该还是很主流。
+
