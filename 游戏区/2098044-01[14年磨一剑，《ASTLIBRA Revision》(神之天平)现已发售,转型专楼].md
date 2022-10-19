@@ -5902,3 +5902,28 @@ steam隐藏成就是啥啊
 右:砂糖，情人节礼物，草莓酱，苹果，哥布林石板
 叠了各种异常抗性，但是没什么加属性的
 
+
+
+*****
+
+####  shimotsuki14  
+##### 547#       发表于 2022-10-20 01:43
+
+今天打了两章，打出好几次金银箱子不知道怎么得到钥匙，直到第二章快打boss前不久才知道钥匙模具怎么用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  后会莫急  
+##### 548#       发表于 2022-10-20 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997190&amp;ptid=2098044" target="_blank">SyIXVII 发表于 2022-10-20 01:24</a>
+
+提问：恶作剧这个成就怎么完成</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">新章喂阿努莉斯爱情，到一定程度她会给你一个面包（剧毒）
+
+我猜是玩梗
+
+mischief
+
+miss chef
+

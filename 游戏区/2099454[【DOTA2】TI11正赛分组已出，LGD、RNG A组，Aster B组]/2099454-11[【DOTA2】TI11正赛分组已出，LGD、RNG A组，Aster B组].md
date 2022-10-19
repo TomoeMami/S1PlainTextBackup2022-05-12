@@ -7168,3 +7168,43 @@ ti5以后击杀数极速上升的有四个人，sumail maybe resolution miracle
 不直播打dota的管人一律默认为撸狗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">上过完美盛典的也算吗（
 
+
+
+*****
+
+####  两三流浪者  
+##### 15803#       发表于 2022-10-20 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997246&amp;ptid=2099454" target="_blank">Damocles990609 发表于 2022-10-20 01:38</a>
+
+上过完美盛典的也算吗（</blockquote>
+上过的撸狗不只一个
+
+*****
+
+####  恐怖利刃  
+##### 15804#       发表于 2022-10-20 01:42
+
+<img src="https://img.saraba1st.com/forum/202210/20/014213zdg1x0dfx9w109e9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>106A3435-9AA9-47B8-B438-DAAEF3DC6A87.jpeg</strong> (314.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 01:42 上传
+
+*****
+
+####  恐怖利刃  
+##### 15805#       发表于 2022-10-20 01:43
+
+贝拉七海都是打刀的，怎么套皮之后就投敌了
+
+*****
+
+####  两三流浪者  
+##### 15806#       发表于 2022-10-20 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997269&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-20 01:42</a></blockquote>
+一年一度的汛期开始了
+
