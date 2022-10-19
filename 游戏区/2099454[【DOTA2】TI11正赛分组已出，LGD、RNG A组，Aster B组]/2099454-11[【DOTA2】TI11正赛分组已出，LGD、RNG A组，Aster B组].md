@@ -4705,3 +4705,250 @@ nmb，说了这么多，就没人发个rep给我们低分狗见识见识嘛
 核中核消息，去年斗鱼虎牙冲官方，今年被罚决赛日之前都不能播</blockquote>
 昨天不是有人接转了
 
+
+
+*****
+
+####  dclara1  
+##### 15532#       发表于 2022-10-19 18:41
+
+漏油真是啥都懂
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  柚上舍人  
+##### 15533#       发表于 2022-10-19 18:42
+
+对，还有一个巧克力牛奶
+
+*****
+
+####  Kazepollar  
+##### 15534#       发表于 2022-10-19 18:42
+
+尼玛还有看拉席克的是吧
+
+*****
+
+####  非建政专用号  
+##### 15535#       发表于 2022-10-19 18:43
+
+香港选手把出纷争面纱，不出这把看不了
+
+*****
+
+####  跑调跑掉  
+##### 15536#       发表于 2022-10-19 18:44
+
+淘汰赛别的平台可以播吗，播的话要延时多久
+
+*****
+
+####  lyjssj  
+##### 15537#       发表于 2022-10-19 18:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那今年不是龙神吃到饱，看着舰长往2000去了
+
+刀狗老比现在都爬到社会中层了，一个比一个有米，前几天就因为lgd4-0给AXX上了300舰2个总督
+
+*****
+
+####  battleship64  
+##### 15538#       发表于 2022-10-19 18:45
+
+ 本帖最后由 battleship64 于 2022-10-19 18:47 编辑 
+
+[attachimg]
+
+<img src="https://img.saraba1st.com/forum/202210/19/184706enz9judcluecccln.png" referrerpolicy="no-referrer">
+
+<strong>img_4956.png</strong> (588.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 18:47 上传
+
+[/attachimg]
+爆笑了家人们，23上面还回复嫉妒，下面就被扒皮沙克也干了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  TIZI  
+##### 15539#       发表于 2022-10-19 18:45
+
+误入此楼
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kazepollar  
+##### 15540#       发表于 2022-10-19 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57992209&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-19 18:43</a>
+ 香港选手把出纷争面纱，不出这把看不了</blockquote>
+那个选手我也研究过，我的评价也是名气远大于实力，没什么亮眼的操作，也就看看每次都出啥装备
+
+
+
+*****
+
+####  憧憬鲨  
+##### 15541#       发表于 2022-10-19 18:46
+
+误入此楼，百世诸侯就是保的你们的线是吧
+
+*****
+
+####  尖刺外婆  
+##### 15542#       发表于 2022-10-19 18:46
+
+来点小娜迦replay 
+
+*****
+
+####  syndrome2032  
+##### 15543#       发表于 2022-10-19 18:47
+
+漏油能不能真的聊点doto
+
+*****
+
+####  nerugigannte  
+##### 15544#       发表于 2022-10-19 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991270&amp;ptid=2099454" target="_blank">qwas 发表于 2022-10-19 17:42</a>
+ 怎么天天有露油想让ame碰瓷慕斯，慕斯再下限毒瘤保kda也有冠军戒指，ame有啥，建议从哈登龟少中二选一嗷[f: ...</blockquote>
+畜和人比？
+
+*****
+
+####  你可以试试  
+##### 15545#       发表于 2022-10-19 18:48
+
+到时候刀楼永久移出游戏都是你们的锅
+
+*****
+
+####  非建政专用号  
+##### 15546#       发表于 2022-10-19 18:48
+
+现在好像是除了斗鱼虎牙都能播？
+
+*****
+
+####  Rorgen  
+##### 15547#       发表于 2022-10-19 18:49
+
+没事，葑茖绝活黑屏收火箭
+
+*****
+
+####  Asukalangley33  
+##### 15548#       发表于 2022-10-19 18:49
+
+对岸同胞有个硬实力可以的
+本身属性足够，出装灵活，英雄池也可以，除了常规英雄，还会一些qop 小娜迦之类的，而且不是总开默认地图，不朽庭院  沙漠图  海底图都有
+
+切入角度相比欧美选手无脑突脸多了不少变化，但是偶尔也会艹艹型切入，就在旁边see
+还有就是中文原生配音，虽然台词就是海公公的卡尔那种级别，但胜一手听的懂
+
+*****
+
+####  Litccc  
+##### 15549#       发表于 2022-10-19 18:49
+
+还有喜欢拉席克的漏油，哈人
+
+*****
+
+####  坚定的团子党  
+##### 15550#       发表于 2022-10-19 18:50
+
+聊点东亚刀塔，boom战队开始作法了，选手剃了个光头，希望能吸点去年yatoro的灵气，以在第一轮战胜ts<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  TI三冠王AME  
+##### 15551#       发表于 2022-10-19 18:50
+
+一想到杰畜的斗鱼合同签到2025年了窝就喜笑颜开
+
+*****
+
+####  Kazepollar  
+##### 15552#       发表于 2022-10-19 18:50
+
+对岸的选手坚决不学习，口音真接受不了
+
+*****
+
+####  莉拉厨  
+##### 15553#       发表于 2022-10-19 18:51
+
+<img src="https://p.sda1.dev/7/2ac092ce0737eaa39bb796944106d79b/64380cd7912397dd11330079cdb2c8bfd0a2873a@f_auto.webp" referrerpolicy="no-referrer">
+重温经典
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Asukalangley33  
+##### 15554#       发表于 2022-10-19 18:51
+
+Dota之神家里头发太多了啊，估计已经到buff递减程度了
+
+*****
+
+####  12481632  
+##### 15555#       发表于 2022-10-19 18:52
+
+能不能介绍点国服天梯路人王，之前关注的不是被完美ban了就是退役了
+
+*****
+
+####  柚上舍人  
+##### 15556#       发表于 2022-10-19 18:52
+
+光头剃早了，得到决赛日剃才有效
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 15557#       发表于 2022-10-19 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57992338&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-19 18:51</a>
+重温经典
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+卧槽，还是sg狠
+
+*****
+
+####  -SLSL-  
+##### 15558#       发表于 2022-10-19 18:52
+
+误入此楼
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 15559#       发表于 2022-10-19 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57992358&amp;ptid=2099454" target="_blank">柚上舍人 发表于 2022-10-19 18:52</a>
+光头剃早了，得到决赛日剃才有效</blockquote>
+boom大概多打一场是一场钱
+
+*****
+
+####  syndrome2032  
+##### 15560#       发表于 2022-10-19 18:52
+
+油垃圾是天生的光头还是剃的?
+
