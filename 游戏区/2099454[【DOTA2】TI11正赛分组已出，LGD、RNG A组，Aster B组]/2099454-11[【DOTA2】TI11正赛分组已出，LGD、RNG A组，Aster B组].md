@@ -6430,3 +6430,116 @@ D过之后冲进去一顿瞎几把乱按就死了，好爽
 
 仔细想了想DK算是最早的虚空冠军啊。
 
+
+
+*****
+
+####  TI三冠王AME  
+##### 15720#       发表于 2022-10-19 22:31
+
+典中典之捉鳖林
+
+
+
+*****
+
+####  adretyu67  
+##### 15721#       发表于 2022-10-19 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995474&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-19 22:29</a>
+
+明天RNG回家局赢了是不是能休息好几天，虽然希望渺茫</blockquote>
+20/22，中间差了一天
+
+*****
+
+####  外挂全家脚气  
+##### 15722#       发表于 2022-10-19 22:34
+
+出神之前倒是确实说，会出一期视频分析RNG的对手，希望能帮到RNG
+
+*****
+
+####  反方向的波  
+##### 15723#       发表于 2022-10-19 22:34
+
+ 本帖最后由 反方向的波 于 2022-10-19 22:36 编辑 
+
+http://dota2.uuu9.com/zt/x9c/
+来帮泥们清蒜一下鳖鳖，事先声明真的卜是我为了黑鳖鳖复活了uuu9.com
+
+*****
+
+####  TI三冠王AME  
+##### 15724#       发表于 2022-10-19 22:35
+
+<img src="https://img.saraba1st.com/forum/202210/19/223444hvc9pv6lvd3d4d3f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (55.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 22:34 上传
+
+哦牛批
+
+*****
+
+####  StrangerJ  
+##### 15725#       发表于 2022-10-19 22:36
+
+没看懂
+
+*****
+
+####  adretyu67  
+##### 15726#       发表于 2022-10-19 22:36
+
+越办越好时间？
+
+*****
+
+####  端木恋心  
+##### 15727#       发表于 2022-10-19 22:37
+
+小糯米是面八前妻是吧？
+
+*****
+
+####  nerugigannte  
+##### 15728#       发表于 2022-10-19 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995386&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-19 22:21</a>
+
+讲道理，14年看过dota比赛的应该都是myboy粉丝，我认识的除了鳖孙基本都是</blockquote>
+我狼人就是下的myboy录像一帧一帧学的
+
+*****
+
+####  Rorgen  
+##### 15729#       发表于 2022-10-19 22:37
+
+myboy当年的打法还是挺革新的，同时兼具顶级操作，顶级细节，顶级刷钱的中单
+
+*****
+
+####  Kazepollar  
+##### 15730#       发表于 2022-10-19 22:37
+
+【打TI呢，鳖住不要笑 TI11小组赛搞笑高能合集 Let's play some DOTA #13-哔哩哔哩】 https://b23.tv/vtJMuFD
+这个视频不错，很有意思<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 15731#       发表于 2022-10-19 22:37
+
+赵洁和陈彤没把王八送进去是真的可惜
+
+*****
+
+####  桐道悠  
+##### 15732#       发表于 2022-10-19 22:38
+
+[https://www.bilibili.com/video/BV1X84y1z7QD](https://www.bilibili.com/video/BV1X84y1z7QD)一首如愿送给超哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

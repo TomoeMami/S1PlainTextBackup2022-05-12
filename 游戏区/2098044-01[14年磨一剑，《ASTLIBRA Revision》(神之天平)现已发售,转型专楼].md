@@ -5586,3 +5586,12 @@ steam隐藏成就是啥啊
 
 这特么2周目刷起来比1周更猛了啊……连一大堆技能居然都带变化的……
 
+
+
+*****
+
+####  蓝雉  
+##### 517#         楼主| 发表于 2022-10-19 22:35
+
+不知道为什么,我看盖乌台词脑海里一直浮现的是三木真一郎的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

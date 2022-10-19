@@ -2537,3 +2537,15 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 清了点好友了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加了加了 n开头的
 
+
+
+*****
+
+####  qixinno2  
+##### 3220#       发表于 2022-10-19 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994788&amp;ptid=2084912" target="_blank">[SA]KOS-MOS 发表于 2022-10-19 21:40</a>
+
+清了点好友了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加了 谢大佬给位置
+
