@@ -3224,3 +3224,66 @@ bbc活了？
 
 明天是传奇中单克里斯的生日，克里斯和露米打赌如果本条转发超过1000次，克神将轻取红龙并在豪夺ti11冠军盾之后把妮的名字刻在盾上，转发本条不要让克神丢脸<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rorgen  
+##### 15371#       发表于 2022-10-19 15:53
+
+哦牛批，还真是明天生日，可以去飞机上过了
+
+*****
+
+####  walfeds  
+##### 15372#       发表于 2022-10-19 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989438&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-19 15:51</a>
+
+明天是传奇中单克里斯的生日，克里斯和露米打赌如果本条转发超过1000次，克神将轻取红龙并在豪夺ti11冠军盾 ...</blockquote>
+还是你开一千个小号吧
+
+*****
+
+####  ArowRocher  
+##### 15373#       发表于 2022-10-19 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989337&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-19 15:44</a>
+bbc活了？</blockquote>
+好像没注销，就僵尸状态
+
+*****
+
+####  非建政专用号  
+##### 15374#       发表于 2022-10-19 15:55
+
+我主要是怕冠军盾上刻不下我一千个小号
+
+*****
+
+####  lyjssj  
+##### 15375#       发表于 2022-10-19 15:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">克神打了也好几年了，也没打出什么门道，还是老老实实给露米当经验包让位吧
+
+*****
+
+####  ArowRocher  
+##### 15376#       发表于 2022-10-19 15:56
+
+不会真的有关注比赛本身的玩家吧
+
+*****
+
+####  Rorgen  
+##### 15377#       发表于 2022-10-19 15:57
+
+pakazs：两只败者组的鸡，哥们给你们送个惊喜下去
+
+*****
+
+####  非建政专用号  
+##### 15378#       发表于 2022-10-19 15:58
+
+darkmago能压住abed吗，看好大哥妮怎么把自己送下来了
+

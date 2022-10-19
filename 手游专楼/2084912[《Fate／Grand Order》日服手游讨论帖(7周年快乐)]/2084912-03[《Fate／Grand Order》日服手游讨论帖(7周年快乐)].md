@@ -2257,3 +2257,12 @@ bx和摩根都是一宝。狂娜四宝还是需要1/3面红卡补伤害。这次
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新录的6加成换人 不重名 就前面说的王姐bx
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bx最低要求2宝  1宝的话必须100级+2000   +1000都不行
 
+
+
+*****
+
+####  [SA]KOS-MOS  
+##### 3193#       发表于 2022-10-19 15:54
+
+5宝90bx有人要吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
