@@ -53,3 +53,15 @@
 请问PS2重制游戏《机甲战线均衡》(Baldr Bullet Equilibrium)增加的三个派生结局要如何出现呢？冷门到网上 ...</blockquote>
 拉伸不难受吗？都会看日文了搜下日站攻略嘛，搜BBR的看看
 
+
+
+*****
+
+####  Xenor  
+##### 720#       发表于 2022-10-19 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57984878&amp;ptid=2037739" target="_blank">慕容断月 发表于 2022-10-19 10:40</a>
+
+拉伸不难受吗？都会看日文了搜下日站攻略嘛，搜BBR的看看</blockquote>
+假会看日文的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看章节旁边有个女二的名字，猜想应该是要同时发展女二跟女一的关系
+
