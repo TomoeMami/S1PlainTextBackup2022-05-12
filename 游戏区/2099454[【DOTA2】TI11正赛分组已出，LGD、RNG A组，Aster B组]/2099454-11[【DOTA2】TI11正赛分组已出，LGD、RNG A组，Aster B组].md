@@ -6249,3 +6249,41 @@ upper bracket is for bitches！！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">出神这转型可以啊，发个新视频就是5000+正在观看
 
+
+
+*****
+
+####  无聊的神  
+##### 15701#       发表于 2022-10-19 22:02
+
+<img src="https://img.saraba1st.com/forum/202210/19/220210g79946w471kgq49j.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221019220124.png</strong> (97.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 22:02 上传
+
+*****
+
+####  Kazepollar  
+##### 15702#       发表于 2022-10-19 22:05
+
+upper bracket is for bitches！！
+
+*****
+
+####  adretyu67  
+##### 15703#       发表于 2022-10-19 22:05
+
+海鲜台业绩不好，是自己傻逼了签了长期合同跑不掉，再干不下去就只能送外卖，自己又背了房贷。
+
+出神不就只剩喝水了<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 15704#       发表于 2022-10-19 22:07
+
+潘寅星迟早横尸咸阳街头
+

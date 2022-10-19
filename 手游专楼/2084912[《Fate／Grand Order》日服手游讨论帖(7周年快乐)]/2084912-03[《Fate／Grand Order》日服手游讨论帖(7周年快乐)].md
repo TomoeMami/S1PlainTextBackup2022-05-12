@@ -2525,3 +2525,15 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看着活动结束还有13天 又要长草半个月
 
+
+
+*****
+
+####  alucardcz  
+##### 3219#       发表于 2022-10-19 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994788&amp;ptid=2084912" target="_blank">[SA]KOS-MOS 发表于 2022-10-19 21:40</a>
+
+清了点好友了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">加了加了 n开头的
+
