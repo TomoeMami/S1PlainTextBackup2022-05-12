@@ -6104,3 +6104,91 @@ z小鬼加赛都不A塔搁对面高地上装tm最秀的那个逼样，entity走�
 
  哇 皮套痴 这又是什么皮套人呀
 
+
+
+*****
+
+####  超人苏坦纳  
+##### 15688#       发表于 2022-10-19 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994640&amp;ptid=2099454" target="_blank">超人苏坦纳 发表于 2022-10-19 21:29</a>
+
+有会剪辑软件的漏油可以给超哥剪个《万世有你名号》的mv吗</blockquote>
+感觉真的挺适合超哥的
+
+-用双手掩息风暴
+
+ 人怎不霸道
+
+ 傲气比天高
+
+ 万世有你名号
+
+*****
+
+####  IG.430  
+##### 15689#       发表于 2022-10-19 21:33
+
+妮们把让你滚填冠军，就等于要撸狗猪在新冠状态下身兼领外卖 教练 BP手 还得打出本届赛事第一3号位的表现，比艹艹还莥芘这简直离大谱了
+
+*****
+
+####  iriyano  
+##### 15690#       发表于 2022-10-19 21:35
+
+<img src="https://img.saraba1st.com/forum/202210/19/223531t30fi039zf7e7hlr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (217.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 21:35 上传
+
+预测完之后突然觉得eg很可能进决赛一阵恶寒
+
+
+
+*****
+
+####  二宮飛鳥酱  
+##### 15691#       发表于 2022-10-19 21:36
+
+究极战狼
+
+<img src="https://img.saraba1st.com/forum/202210/19/213643iroyae1afyqmetev.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221019213547.png</strong> (178.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 21:36 上传
+
+*****
+
+####  maju3  
+##### 15692#       发表于 2022-10-19 21:38
+
+upper bracket is for bitches！！
+
+*****
+
+####  百世诸侯  
+##### 15693#       发表于 2022-10-19 21:40
+
+<img src="https://img.saraba1st.com/forum/202210/19/214025ds46dk8xiys27v8y.png" referrerpolicy="no-referrer">
+
+<strong>~XZ{N)~NXF$L1NE]ZS`T2{L.png</strong> (78.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 21:40 上传
+
+小茶叶私信我红包谢谢
+
+*****
+
+####  thistimeforlife  
+##### 15694#       发表于 2022-10-19 21:41
+
+今晚发酵熬夜 明天下午睡醒送送路垚和胡良智了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -5547,3 +5547,15 @@ steam隐藏成就是啥啊
 水井除草要的火箭怎么合，我看合成表没有，火把+箭也合不了</blockquote>
 要用第五章剧情送的精灵弓
 
+
+
+*****
+
+####  后会莫急  
+##### 513#       发表于 2022-10-19 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994476&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-19 21:19</a>
+
+求问下宝物清单里铁娘子这第二个小徽章是啥，这游戏强迫症噩梦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">铁娘子这个翻译确实让人摸不着头脑，其实应该是翻译成铁处女。说的是被关在盒子里的女主
+

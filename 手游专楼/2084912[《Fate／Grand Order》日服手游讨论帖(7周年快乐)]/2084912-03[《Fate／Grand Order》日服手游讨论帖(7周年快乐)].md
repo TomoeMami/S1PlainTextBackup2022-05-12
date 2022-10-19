@@ -2509,3 +2509,19 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 而且这个阵容本来就是解决好友不配合的或者我这种懒得刷好友的，你有好友配合你用这阵容干啥
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  [SA]KOS-MOS  
+##### 3217#       发表于 2022-10-19 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">清了点好友了
+
+*****
+
+####  qixinno2  
+##### 3218#       发表于 2022-10-19 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看着活动结束还有13天 又要长草半个月
+
