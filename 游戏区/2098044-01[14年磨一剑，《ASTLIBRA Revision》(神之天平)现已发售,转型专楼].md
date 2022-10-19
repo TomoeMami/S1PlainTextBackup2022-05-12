@@ -5492,3 +5492,40 @@ steam隐藏成就是啥啊
 装备盘我没看明白，之前捡到一个，我没打算用，结果居然就消失了，背包里也没有。 ...</blockquote>
 装上装配盘后，树枝攻击力有1200，而且还能改一个嘉隆技能，强的多。
 
+
+
+*****
+
+####  六至九  
+##### 507#       发表于 2022-10-19 21:11
+
+如果说旧章动力是刷装备和熟练度，那么这新章动力就是刷装配盘了
+
+*****
+
+####  A1LI  
+##### 508#       发表于 2022-10-19 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994301&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-19 21:08</a>
+
+装上装配盘后，树枝攻击力有1200，而且还能改一个嘉隆技能，强的多。</blockquote>
+行吧，我再试试。
+
+主要是我觉得那个属性不太好，就没装，没想到不会保存在背包里，是直接消失掉。
+
+*****
+
+####  元气海牛  
+##### 509#       发表于 2022-10-19 21:19
+
+求问下宝物清单里铁娘子这第二个小徽章是啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，这游戏强迫症噩梦
+
+*****
+
+####  六至九  
+##### 510#       发表于 2022-10-19 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994476&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-19 21:19</a>
+求问下宝物清单里铁娘子这第二个小徽章是啥，这游戏强迫症噩梦</blockquote>
+在最后一个保存点的左上角，靠近门的位置
+

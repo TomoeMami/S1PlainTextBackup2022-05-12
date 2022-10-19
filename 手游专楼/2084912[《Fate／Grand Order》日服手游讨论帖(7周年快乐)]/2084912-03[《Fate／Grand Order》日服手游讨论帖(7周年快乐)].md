@@ -2466,3 +2466,21 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 求王姐大佬…我没rba只能用cba凑合了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新加你了 但提示你好友满了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3214#       发表于 2022-10-19 21:22
+
+5积就稳定3T了
+
+微信图片_20221019212120.jpg
+(585.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 21:22 上传
+
+<img src="https://img.saraba1st.com/forum/202210/19/212216gil8rfi0p8a9pyp8.jpg" referrerpolicy="no-referrer">
+
