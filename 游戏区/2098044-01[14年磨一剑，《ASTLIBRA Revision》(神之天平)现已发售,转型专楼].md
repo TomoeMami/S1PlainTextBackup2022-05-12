@@ -5119,3 +5119,29 @@ steam隐藏成就是啥啊
 
 发现一个鬼故事，最后2关不掉风元素
 
+
+
+*****
+
+####  元气海牛  
+##### 470#       发表于 2022-10-19 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57981512&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-19 00:38</a>
+
+第5章小女孩的问题……
+
+就是第5章进魔王城堡时不带小女孩，后面跟红毛回合一起行动时，不去打解封后的魔 ...</blockquote>
+知道了，谢谢，我这档 只有等下周目了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yla  
+##### 471#       发表于 2022-10-19 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57978791&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-18 21:09</a>
+
+还是挺色的，不愧是本作福利担当，就是不太好打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">但是M字开腿这里2连战加起来比前面的巫妖都还弱上1个档次
+
+满地图的龙狗毒爆，麻痹石化剧毒一起上，简直了
+

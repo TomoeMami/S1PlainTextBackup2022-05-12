@@ -978,3 +978,117 @@ a畜这两天小组赛的表现有什么洗的必要么？碾压局一个输出�
 
 东雪莲是什么
 
+
+
+*****
+
+####  情商  
+##### 15119#         楼主| 发表于 2022-10-19 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986178&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-19 12:00</a>
+
+哥们儿预测主打一个爱国</blockquote>
+强国有你
+
+*****
+
+####  百世诸侯  
+##### 15120#       发表于 2022-10-19 12:03
+
+为了CN举盾这个理由支持LGD，和为了妮后代能高考加分支持尼哥代打有什么区别？
+
+
+
+*****
+
+####  Rorgen  
+##### 15121#       发表于 2022-10-19 12:06
+
+问题是太监不能自己播种只能请代打啊
+每一个集美应该都怀揣着张宁给自己亲妈授种的梦想吧，割割肯定是没这个能力了
+
+*****
+
+####  tasuku  
+##### 15122#       发表于 2022-10-19 12:07
+
+都2022年了怎么还有人扯经济输出比的
+英雄池都不一样怎么比啊
+要我说就该把那个英雄单拉出来对比才符合<img src="https://static.saraba1st.com/image/smiley/carton2017/089.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 15123#       发表于 2022-10-19 12:07
+
+害，你们还真信了集美为了西恩刀塔的话术，这么多年了，除了哥哥神圣不可侵犯集美们什么不批倒攻讦
+
+如果真的希望西恩刀塔好，第一件事就是应该希望23458踢了哥哥冲击下冠军
+
+集美们如果敢承认自己半点真心，说出半句真话，就不是缩卵太监了
+
+*****
+
+####  格雷殿下  
+##### 15124#       发表于 2022-10-19 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">上年决赛🐒王一手TK还不算站出来了是吧
+
+giegie的绝活小小呢？
+
+*****
+
+####  43453  
+##### 15125#       发表于 2022-10-19 12:08
+
+为了CN举盾这个理由支持LGD，和为了妮后代能高考加分支持尼哥代打有什么区别？
+
+*****
+
+####  walfeds  
+##### 15126#       发表于 2022-10-19 12:09
+
+你楼还能有活的全村希望人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Avantasi  
+##### 15127#       发表于 2022-10-19 12:09
+
+nga如此相信lgd，就像sg如此相信A畜
+
+*****
+
+####  银翼的维罗西  
+##### 15128#       发表于 2022-10-19 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986274&amp;ptid=2099454" target="_blank">格雷殿下 发表于 2022-10-19 12:08</a>
+
+上年决赛🐒王一手TK还不算站出来了是吧
+
+giegie的绝活小小呢？</blockquote>
+和19年霉憋不能全程带躺哥哥一个逻辑
+
+集美的价值观就是2345不能全程四打五就是坑人，哥哥是不需要发力的
+
+*****
+
+####  Avantasi  
+##### 15129#       发表于 2022-10-19 12:12
+
+毕竟集美们是个看见A畜虚空在大里转圈都能扣水的弱智
+
+*****
+
+####  tasuku  
+##### 15130#       发表于 2022-10-19 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986274&amp;ptid=2099454" target="_blank">格雷殿下 发表于 2022-10-19 12:08</a>
+上年决赛🐒王一手TK还不算站出来了是吧
+
+giegie的绝活小小呢？</blockquote>
+哥哥绝活大圣把被1ban
+望周知
+
