@@ -2178,3 +2178,12 @@ NMD怎么呼延灼也是仪式剑72*3
 ①如果是双rba，bx必须在1t和2t打一张卡补np；
 ②摩根可以换成泳装伊吹，但是拐就锁了rba+奥伯龙，bx需要在1t或2t补一刀，并且伊吹需要带屁股礼装，不然二面得开衣服技能补伤害；
 
+
+
+*****
+
+####  qixinno2  
+##### 3185#       发表于 2022-10-19 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">抽不到BX的我心痛 打这破本各种刷BX助战
+
