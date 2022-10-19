@@ -10674,3 +10674,14 @@ Nako这是正式从老婆变成妈妈了吗</blockquote>
 大佬们，请教一下为什么第二季的插入曲都找不到对应的offvocal，我看10月19卖的singshinesmile的12话cd列表 ...</blockquote>
 流媒体都是不包含的
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 8493#       发表于 2022-10-19 09:10
+
+早上打开AM才知道新歌上流媒了，姐几个在社交媒体上都不怎么宣传，真是毫无排面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+一耳朵还是SSS最好听，传统偶像大锅饭歌曲
+
