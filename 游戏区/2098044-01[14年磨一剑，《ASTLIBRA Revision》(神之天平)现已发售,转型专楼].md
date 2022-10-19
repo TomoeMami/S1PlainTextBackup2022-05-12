@@ -5986,3 +5986,15 @@ miss chef
 弓什么时候拿到，手里现在只有箭矢，选中使用只能丢，还是很短的一个距离，根本打不中箭靶开宝箱 ...</blockquote>
 弓我记得一开始就能拿了啊，好像有个山需要二段跳过去然后地面有个箭头按上有个宝箱
 
+
+
+*****
+
+####  元气海牛  
+##### 555#       发表于 2022-10-20 07:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57996828&amp;ptid=2098044" target="_blank">StrayWolf 发表于 2022-10-20 00:34</a>
+
+二周目了，面包店换盔甲的心天平怎么搞来着，隐藏BOSS给的装备都练出宝石了 ...</blockquote>
+应该是竞技场或者小徽章会出一本炼金指南，配方里宝石全部合成最后有变石
+
