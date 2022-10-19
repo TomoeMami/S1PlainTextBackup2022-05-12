@@ -2234,3 +2234,12 @@ bx和摩根都是一宝。狂娜四宝还是需要1/3面红卡补伤害。这次
 
 茶壶花完想找加成礼装的老头结果也没有，看来好友根本不用的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 3191#       发表于 2022-10-19 14:54
+
+90++第二面奥贝龙伤害总是差一点，被迫喂杯子了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+

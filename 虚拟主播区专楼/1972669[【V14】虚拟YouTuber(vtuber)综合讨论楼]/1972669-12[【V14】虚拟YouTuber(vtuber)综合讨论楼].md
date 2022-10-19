@@ -12087,3 +12087,14 @@ Selen: it's okay I'm in Nijisanji<img src="https://static.saraba1st.com/image/sm
 
 kmnz三专有比二专好听的，但感觉还是不如一专
 
+
+
+*****
+
+####  Ketestrait  
+##### 17607#       发表于 2022-10-19 14:51
+
+[https://youtu.be/ESPqNV_PpWw?t=7771](https://youtu.be/ESPqNV_PpWw?t=7771)
+
+铲弟昨晚这个氪金大暴死三井途中现实逃避去看角色故事结果正好应景对上太艹了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

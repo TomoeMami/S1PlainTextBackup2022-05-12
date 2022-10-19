@@ -2536,3 +2536,141 @@ ame是不是DOTA詹姆斯</blockquote>
 哈登吧，不是黑登哥，没冠军，爱碰瓷</blockquote>
 瓷胡子起码去76现在勤勤恳恳了，我不好说
 
+
+
+*****
+
+####  12481632  
+##### 15295#       发表于 2022-10-19 14:52
+
+想说giegie类似cp3的，但是感觉又有点乳螺了
+
+*****
+
+####  战狼PTSD  
+##### 15296#       发表于 2022-10-19 14:53
+
+玉玉了，平板看了一天比赛，漏了几百块本楼大红包                                                   
+
+*****
+
+####  walfeds  
+##### 15297#       发表于 2022-10-19 14:54
+
+<img src="https://img.saraba1st.com/forum/202210/19/145038cl3yx92i2zmjxya5.png" referrerpolicy="no-referrer">
+
+<strong>4hgsuitbxmu91.png</strong> (106.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 14:50 上传
+
+entity有点太勺了
+
+*****
+
+####  wzy200912345  
+##### 15298#       发表于 2022-10-19 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988601&amp;ptid=2099454" target="_blank">12481632 发表于 2022-10-19 14:52</a>
+
+想说giegie类似cp3的，但是感觉又有点乳螺了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">炮哥会打架ta不会
+
+*****
+
+####  情商  
+##### 15299#         楼主| 发表于 2022-10-19 14:58
+
+乌克兰光头什么意思，选这么多c，不让giegie第一是吧
+
+*****
+
+####  adretyu67  
+##### 15300#       发表于 2022-10-19 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988627&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-19 14:54</a>
+
+entity有点太勺了</blockquote>
+风风和tobi不都是勺吗
+
+
+
+*****
+
+####  没钱买手办  
+##### 15301#       发表于 2022-10-19 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别尬黑好吧，詹姆斯有戒指，哥哥有什么
+
+不如来讨论一下间谍门和无视野T锅不开bkb哪个更畜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 15302#       发表于 2022-10-19 14:59
+
+哇 拍皮球滚
+
+*****
+
+####  StrangerJ  
+##### 15303#       发表于 2022-10-19 15:01
+
+哇 拍皮球滚
+
+*****
+
+####  wzy200912345  
+##### 15304#       发表于 2022-10-19 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988715&amp;ptid=2099454" target="_blank">越动天下 发表于 2022-10-19 14:59</a>
+
+哇 拍皮球滚</blockquote>
+漏油没比赛就搁这无聊转进没办法，上一两百页还搁那白皮踢气球呢
+
+*****
+
+####  RaibowDash  
+##### 15305#       发表于 2022-10-19 15:02
+
+没比赛看的漏油已经开始聊起尼哥拍皮球了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 15306#       发表于 2022-10-19 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988704&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-19 14:58</a>
+
+风风和tobi不都是勺吗</blockquote>
+那还是20场只选了5个英雄的kataomi勺一点
+
+*****
+
+####  walfeds  
+##### 15307#       发表于 2022-10-19 15:02
+
+哇 拍皮球滚
+
+*****
+
+####  dclara1  
+##### 15308#       发表于 2022-10-19 15:02
+
+哇 倪哥拍球
+
+*****
+
+####  Litccc  
+##### 15309#       发表于 2022-10-19 15:02
+
+漏油没比赛就搁这无聊转进没办法，上一两百页还搁那白皮踢气球呢
+
+*****
+
+####  wzy200912345  
+##### 15310#       发表于 2022-10-19 15:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有类比F1的，高速绕圈圈总没多少人黑了吧
+
