@@ -2830,3 +2830,137 @@ TI10亚军=0.68个TI11冠军，批准LGD四舍五入夺冠
 最近10年没wcc吧被红牛梅奔包圆了呀</blockquote>
 我的，还以为10年前是08年<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  StrangerJ  
+##### 15327#       发表于 2022-10-19 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988924&amp;ptid=2099454" target="_blank">wzy200912345 发表于 2022-10-19 15:12</a>
+我的，还以为10年前是08年</blockquote>
+铁佛寺泪目<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnwick  
+##### 15328#       发表于 2022-10-19 15:14
+
+罕见也太多了吧
+
+*****
+
+####  没钱买手办  
+##### 15329#       发表于 2022-10-19 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988894&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-19 15:11</a>
+
+最近10年没wcc吧被红牛梅奔包圆了呀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzy200912345  
+##### 15330#       发表于 2022-10-19 15:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988905&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-19 15:12</a>
+
+理性讨论一下，间谍门和畜长演走队友谁更畜</blockquote>
+间谍门起码罚得够狠头哥车队ZZ达人的帽子扣到现在，演队友有笋丝么？
+
+
+
+*****
+
+####  12481632  
+##### 15331#       发表于 2022-10-19 15:15
+
+有没有可能真的有yhm给你游充钱呢
+
+*****
+
+####  反方向的波  
+##### 15332#       发表于 2022-10-19 15:17
+
+雨宫爱结猫充了多少？
+
+*****
+
+####  没钱买手办  
+##### 15333#       发表于 2022-10-19 15:18
+
+樱花妹冲不冲钱不知道，哥们倒是有个同学班子里有个人因为在日留学没绑完美不能玩国服跑去玩猴服，前年匹配到ana被暴宰
+
+*****
+
+####  StrangerJ  
+##### 15334#       发表于 2022-10-19 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988952&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-19 15:15</a>
+勒克莱尔17场9杆位，哥哥17场能站出来1次吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">乐扣那是四赵云，giegie还是比较配和法拉利的工作人员对比
+
+*****
+
+####  战狼PTSD  
+##### 15335#       发表于 2022-10-19 15:18
+
+<img src="https://img.saraba1st.com/forum/202210/19/151819bh42802fzl2c3402.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 15:18 上传
+
+*****
+
+####  超人苏坦纳  
+##### 15336#       发表于 2022-10-19 15:19
+
+没比赛的刀楼堪比粪坑NGA
+
+*****
+
+####  非建政专用号  
+##### 15337#       发表于 2022-10-19 15:20
+
+妮这突然放张沈志豪(魔兽世界)窝都不知道说什么了
+
+*****
+
+####  没钱买手办  
+##### 15338#       发表于 2022-10-19 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988993&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-19 15:18</a>
+
+乐扣那是四赵云，giegie还是比较配和法拉利的工作人员对比</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">13秒的换胎工也有双进站都两秒多的出色表现呀，哥哥gege只能去策略组了是吧
+
+*****
+
+####  Litccc  
+##### 15339#       发表于 2022-10-19 15:22
+
+沈志豪(魔兽世界NPC)
+
+*****
+
+####  wzy200912345  
+##### 15340#       发表于 2022-10-19 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988993&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-19 15:18</a>
+
+乐扣那是四赵云，giegie还是比较配和法拉利的工作人员对比</blockquote>
+比嗨吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  火鸡味锅巴  
+##### 15341#       发表于 2022-10-19 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57989024&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-19 15:21</a>
+
+13秒的换胎工也有双进站都两秒多的出色表现呀，哥哥gege只能去策略组了是吧 ...</blockquote>
+形象大使好吧，工程男神<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
