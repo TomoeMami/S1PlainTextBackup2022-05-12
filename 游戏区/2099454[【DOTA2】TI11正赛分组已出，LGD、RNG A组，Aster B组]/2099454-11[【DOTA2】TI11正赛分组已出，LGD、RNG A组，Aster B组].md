@@ -2180,3 +2180,82 @@ fishman对RNG战队的祝福:
 
 pcmr从来不考虑多版本挑ns版好吧
 
+
+
+*****
+
+####  Swss  
+##### 15255#       发表于 2022-10-19 14:04
+
+那肯定是躺着用ns玩爽
+
+—— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 15256#       发表于 2022-10-19 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987913&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-19 14:01</a>
+pcmr从来不考虑多版本挑ns版好吧</blockquote>
+送兄弟一台豪华pc
+还有一架私人直升机这样上下班不用坐地铁公交了
+
+*****
+
+####  没钱买手办  
+##### 15257#       发表于 2022-10-19 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987893&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-19 13:59</a>
+
+超级阿特拉斯专楼有没有人说一下p5rns的掌机帧数怎么样</blockquote>
+帧数还行的其实，不过很糊就是了
+
+好处是可以躺床上或者在公司撤硕刷
+
+*****
+
+####  walfeds  
+##### 15258#       发表于 2022-10-19 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987954&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-19 14:05</a>
+
+送兄弟一台豪华pc
+
+还有一架私人直升机这样上下班不用坐地铁公交了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">找楼里萨特去吧，我已经七年没换显卡了
+
+就算这样模拟器都薄纱实机了
+
+*****
+
+####  Quark  
+##### 15259#       发表于 2022-10-19 14:07
+
+漏油的地铁还有空间玩ns 哥们每天不前胸贴后背能刷论坛就谢天谢地了
+
+*****
+
+####  Rorgen  
+##### 15260#       发表于 2022-10-19 14:08
+
+发现了究极版本陷阱，蝙蝠ban&amp;pick率65%，18战3胜
+我宣布蝙蝠为唯一指定下头英雄，6秒叠油死个吗
+
+*****
+
+####  赤星ビスコ  
+##### 15261#       发表于 2022-10-19 14:09
+
+你们都没有remote的工作吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 15262#       发表于 2022-10-19 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57988021&amp;ptid=2099454" target="_blank">赤星ビスコ 发表于 2022-10-19 14:09</a>
+
+你们都没有remote的工作吗</blockquote>
+没有，敲里马<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
