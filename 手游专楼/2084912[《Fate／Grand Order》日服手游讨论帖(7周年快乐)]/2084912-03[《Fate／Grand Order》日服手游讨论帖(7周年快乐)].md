@@ -2320,3 +2320,12 @@ S1fgo群怎么又炸了？
 
 我觉得是你们群名起梁山泊的锅
 
+
+
+*****
+
+####  bulechaos  
+##### 3199#       发表于 2022-10-19 19:10
+
+602677219 新群<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
