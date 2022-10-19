@@ -5820,3 +5820,64 @@ steam隐藏成就是啥啊
 第二章是两个啊,第三第四章没有,第五章我就拿到一个</blockquote>
 会是这样？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我反正看的wiki，除了第五章那个旧版是没有的新版增加了以外，其他每章的一个我都对上了
 
+
+
+*****
+
+####  蓝雉  
+##### 541#         楼主| 发表于 2022-10-20 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57996923&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-10-20 00:45</a>
+会是这样？我反正看的wiki，除了第五章那个旧版是没有的新版增加了以外，其他每章的一个我都对上 ...</blockquote>
+总之我现在第五章打完是五个天平，有可能是我记错了
+
+*****
+
+####  eie  
+##### 542#       发表于 2022-10-20 01:03
+
+今晚更新之后遇到一个有点神秘的问题 游戏内的速度整体变慢了 不论是读取进度还是新开存档还是进demo都是这样
+
+有坛友遇到相似的问题吗
+
+*****
+
+####  后会莫急  
+##### 543#       发表于 2022-10-20 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57996890&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-20 00:42</a>
+
+第二章是两个啊,第三第四章没有,第五章我就拿到一个</blockquote>
+一章拿到天平 2个
+
+二章哥布林巢穴人口左下 1个
+
+三章石头里的隐藏宝箱 1个
+
+四章最终boss存档点右上 1个
+
+五章最终boss前房间怪物全清 1个
+
+六章伊利西昂最后的存档点隐藏宝箱 1个
+
+七章阿捏斯塔村往回第二张图的隐藏宝箱 1个
+
+八章研究所入口存档点往回走第二张地图隐藏宝箱 1个
+
+扭蛋 1个
+
+一共10个齐了
+
+*****
+
+####  蓝雉  
+##### 544#         楼主| 发表于 2022-10-20 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997055&amp;ptid=2098044" target="_blank">后会莫急 发表于 2022-10-20 01:04</a>
+一章拿到天平 2个
+
+二章哥布林巢穴人口左下 1个
+
+三章石头里的隐藏宝箱 1个</blockquote>
+好详细，太感谢了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
