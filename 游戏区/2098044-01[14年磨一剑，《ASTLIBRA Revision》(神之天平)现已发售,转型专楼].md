@@ -4891,3 +4891,12 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 代价是和楼上那位41级的2000多血比，我只有200多精力700多血，碰一下血皮两下再见，当仁王2打深处在玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sahhhh6x  
+##### 450#       发表于 2022-10-19 09:19
+
+妈的 还真的是需要肝 刷了15还是16个爱情 把阿奴李斯的记忆全部恢复了就是全道具了  
+
