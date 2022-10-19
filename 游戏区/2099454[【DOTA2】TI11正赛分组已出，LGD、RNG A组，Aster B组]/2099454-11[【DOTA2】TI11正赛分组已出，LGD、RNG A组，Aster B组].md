@@ -1932,3 +1932,51 @@ ti7不是干碎了一堆西恩队，不过那时候马桶哥是绿叶，奇迹�
 漏油们漏油们，今年淘汰赛客户端是多少延迟啊？5分钟？</blockquote>
 小组赛应该是4分钟
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 15229#       发表于 2022-10-19 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987127&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-19 13:06</a>
+
+希望四赵云不要不识抬举，坑了giegie最后一年</blockquote>
+连集美论坛都知道A畜是指望不了的了
+
+*****
+
+####  哈萨维·诺亚  
+##### 15230#       发表于 2022-10-19 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987343&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-19 13:21</a>
+
+小组赛应该是4分钟</blockquote>
+熊第头像笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 15231#       发表于 2022-10-19 13:24
+
+也就外卡的芬兰杀手有脸说一句四个坑货
+其他还有谁有这脸的？
+
+*****
+
+####  Sabbah  
+##### 15232#       发表于 2022-10-19 13:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">樱花双雄TI离大谱不是茶友司空见惯的事情
+
+*****
+
+####  iriyano  
+##### 15233#       发表于 2022-10-19 13:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57987102&amp;ptid=2099454" target="_blank">CNFH1984 发表于 2022-10-19 14:05</a>
+漏油们漏油们，今年淘汰赛客户端是多少延迟啊？5分钟？</blockquote>
+今年淘汰赛也有两个阶段
+没记错4强之前有延迟
+4强之后和往年一样
+

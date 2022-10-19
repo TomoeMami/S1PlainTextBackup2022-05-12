@@ -71,3 +71,15 @@ https://youtu.be/2XZ5mWZJCD8</blockquote>
 林克这手，该不会是鬼泣尼禄那种</blockquote>
 尼禄是可以换不同的手臂，获得不同的能力。林克的手臂应该都是这个，然后用腰间的能量瓶注入手臂，获得不同能力（猜测）。本质上其实差不多，形式上不同（猜测）
 
+
+
+*****
+
+####  supergilaboy  
+##### 625#       发表于 2022-10-19 13:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57983256&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2022-10-19 08:51</a>
+
+尼禄是可以换不同的手臂，获得不同的能力。林克的手臂应该都是这个，然后用腰间的能量瓶注入手臂，获得不 ...</blockquote>
+更像是四代尼禄吧
+

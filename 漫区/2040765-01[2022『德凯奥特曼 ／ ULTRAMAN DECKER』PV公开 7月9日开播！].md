@@ -532,3 +532,26 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 后面要么是风森直接变，要么是变回团的样子比如伪装成知心大叔叔套小女孩话兼膈应何志的时候再变
 
+
+
+*****
+
+####  acejoe  
+##### 662#       发表于 2022-10-19 13:26
+
+ 本帖最后由 acejoe 于 2022-10-19 13:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986814&amp;ptid=2040765" target="_blank">草海灭巨 发表于 2022-10-19 12:45</a>
+这作质量不差泽塔多少啊，但热度不怎么高的样子，感觉是bgm拉跨了该燃的地方没有燃起来，对比泽塔特别明显 ...</blockquote>
+感觉国内戴拿受众太少，没法像特利迦那样用迪迦造势。
+
+*****
+
+####  真妃保护协会  
+##### 663#       发表于 2022-10-19 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986814&amp;ptid=2040765" target="_blank">草海灭巨 发表于 2022-10-19 12:45</a>
+这作质量不差泽塔多少啊，但热度不怎么高的样子，感觉是bgm拉跨了该燃的地方没有燃起来，对比泽塔特别明显 ...</blockquote>
+斯麦路那两集拉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-S9080, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
