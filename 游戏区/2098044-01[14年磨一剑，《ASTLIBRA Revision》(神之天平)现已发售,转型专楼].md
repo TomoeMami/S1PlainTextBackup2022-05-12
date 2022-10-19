@@ -4867,3 +4867,27 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 20个小时41级还在第五章魔王城门口，刷素材让我虚度人生<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓝雉  
+##### 448#         楼主| 发表于 2022-10-19 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57983121&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-19 08:38</a>
+
+20个小时41级还在第五章魔王城门口，刷素材让我虚度人生</blockquote>
+我也是20小时到魔王城,不过你怎么等级这么高,我才32<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  五块  
+##### 449#       发表于 2022-10-19 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57983208&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-19 08:47</a>
+
+我也是20小时到魔王城,不过你怎么等级这么高,我才32</blockquote>
+堆了300幸运，天平放加钱加经验的，地狱难度。
+
+代价是和楼上那位41级的2000多血比，我只有200多精力700多血，碰一下血皮两下再见，当仁王2打深处在玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
