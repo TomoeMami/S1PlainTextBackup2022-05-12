@@ -2329,3 +2329,19 @@ S1fgo群怎么又炸了？
 
 602677219 新群<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ramiel  
+##### 3200#       发表于 2022-10-19 19:13
+
+你群怎么又炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 3201#       发表于 2022-10-19 19:18
+
+拿出压舱底的1宝BX竟然也能稳定3T 90++本.....这克制的也太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
