@@ -5296,3 +5296,15 @@ steam隐藏成就是啥啊
 昨晚我把流程打到第9 ...</blockquote>
 新版打完还有第十章（二周目）<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真大团圆结局，原作第九章的结局其实都是梦
 
+
+
+*****
+
+####  A1LI  
+##### 487#       发表于 2022-10-19 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57990216&amp;ptid=2098044" target="_blank">后会莫急 发表于 2022-10-19 16:45</a>
+
+新版打完还有第十章（二周目）真大团圆结局，原作第九章的结局其实都是梦 ...</blockquote>
+乐，什么鬼这是，幸亏新版改了，不然玩到最后都是梦这得多憋屈，玩了个寂寞。
+
