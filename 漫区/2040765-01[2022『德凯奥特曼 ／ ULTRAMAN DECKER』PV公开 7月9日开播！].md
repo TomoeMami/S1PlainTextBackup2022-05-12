@@ -555,3 +555,18 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 —— 来自 samsung SM-S9080, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  唧唧歪歪八卦阵  
+##### 664#       发表于 2022-10-19 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986814&amp;ptid=2040765" target="_blank">草海灭巨 发表于 2022-10-19 12:45</a>
+这作质量不差泽塔多少啊，但热度不怎么高的样子，感觉是bgm拉跨了该燃的地方没有燃起来，对比泽塔特别明显 ...</blockquote>
+我觉得队友刻画算不错的，但是还是比不过泽塔，人家一个发明小天才，一个机甲驾驶员，一个厕所战神，还有一整个整备班，和叶虎班长。这样的配置德凯的队员比不了的。
+打戏方面也是泽塔更加有花里胡哨点。
+剧情有拉的集数，但是拉的集数只是觉得不精彩，没有让人反感。
+
+—— 来自 Xiaomi M2102J2SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

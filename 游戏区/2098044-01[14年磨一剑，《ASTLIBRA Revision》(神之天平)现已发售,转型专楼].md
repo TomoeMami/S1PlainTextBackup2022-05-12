@@ -5154,3 +5154,15 @@ steam隐藏成就是啥啊
 
 二周目 伊利西昂的第三个小徽章位置有人知道怎么拿么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雪落白夜  
+##### 473#       发表于 2022-10-19 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57984634&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-19 10:25</a>
+
+从酒馆屋顶往右边走可以拿个无限传送,但只能在每章间隙使用</blockquote>
+草，我打到雪山都不知道有这玩意
+
