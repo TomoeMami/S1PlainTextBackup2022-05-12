@@ -4835,3 +4835,16 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 贴吧说队友可以无限刷但是我印 ...</blockquote>
 一周目除了黑白两个外，哪里还有一个呢？
 
+
+
+*****
+
+####  黒長直姫  
+##### 445#       发表于 2022-10-19 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57982898&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-19 08:10</a>
+一周目除了黑白两个外，哪里还有一个呢？</blockquote>
+7章还是8章怪物攻城的时候，走到主街道会有三个大怪，剧情提示说有人在封印里和它们战斗，你隔着封印把怪弄死封印会解掉，有一段剧情
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

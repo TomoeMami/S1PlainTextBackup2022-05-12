@@ -1,1 +1,3 @@
 
+[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/外野/2099888-01[据说上个月MD2做多日元想抄底].md'
+!!error:id=2099888
