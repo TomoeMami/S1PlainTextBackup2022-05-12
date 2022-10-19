@@ -738,3 +738,16 @@ Steam版 2023年3月21日发售
 这帧数不会是故意做成这样的吧</blockquote>
 原版NS <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不给你们看xbox
 
+
+
+*****
+
+####  宛若青空  
+##### 72#       发表于 2022-10-20 06:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995801&amp;ptid=2051671" target="_blank">光与暗的转生 发表于 2022-10-19 22:59</a>
+这帧数不会是故意做成这样的吧</blockquote>
+因为PV和官网都是
+
+「※画面は全てNintendo Switch开発中のものです。」
+
