@@ -2345,3 +2345,12 @@ S1fgo群怎么又炸了？
 
 拿出压舱底的1宝BX竟然也能稳定3T 90++本.....这克制的也太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3202#       发表于 2022-10-19 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是除了我都有BX啊 好羡慕
+
