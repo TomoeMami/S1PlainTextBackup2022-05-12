@@ -861,3 +861,14 @@ https://m.weibo.cn/1622008051/4826249807266814
 
 寂静岭2这速通两小时的流程还要分章节？有没有搞错<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 82#         楼主| 发表于 2022-10-19 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57991298&amp;ptid=2099687" target="_blank">ff2077 发表于 2022-10-19 17:43</a>
+乐</blockquote>
+草，那我很想对他有意见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
