@@ -4927,3 +4927,22 @@ https://w.atwiki.jp/astlibra/?page=%E6%94%BB%E7%95%A5%2F5%E7%AB%A0%EF%BC%88Revis
 
 比较可怕的是装备盘也是随机的  嘉隆的被动和技能都可以改成第二种效果 
 
+
+
+*****
+
+####  luffy800  
+##### 454#       发表于 2022-10-19 10:09
+
+1.4都是免费的吗
+
+<img src="https://img.saraba1st.com/forum/202210/19/100921vpbnpp2eynyrviji.jpg" referrerpolicy="no-referrer">
+
+<strong>48n33qq0q5xp5k4vc8q5nhlhv.jpg</strong> (373.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-19 10:09 上传
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

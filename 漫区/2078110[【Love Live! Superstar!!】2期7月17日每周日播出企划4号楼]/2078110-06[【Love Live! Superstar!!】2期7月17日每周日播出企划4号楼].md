@@ -10735,3 +10735,22 @@ twi:@sugurifurui
 
 unya越来越叛逆期了，开始逆着官推产出<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">最近可香可堇五五开，放前半年会想到有这可能吗。
 
+
+
+*****
+
+####  starring  
+##### 8496#       发表于 2022-10-19 10:06
+
+双N广播那边说完渚鱼新年参拜，裂垃圾这边四人就说没试过和朋友一起新年参拜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 8497#       发表于 2022-10-19 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57984336&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-19 10:06</a>
+双N广播那边说完渚鱼新年参拜，裂垃圾这边四人就说没试过和朋友一起新年参拜 ...</blockquote>
+这期广播没有nagi和鱼都不在啊<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+也就是说今年只有水渚鱼一起去了，下一次就是明年，九个人应该至少会有一两对……吧？九人一起可以安排吗
+
