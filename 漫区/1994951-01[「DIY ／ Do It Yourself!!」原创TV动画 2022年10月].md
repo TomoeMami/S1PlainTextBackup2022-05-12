@@ -2365,3 +2365,20 @@ Do It Your Radio!! 第 1 回开始配信，嘉宾&amp;#x662 ...</blockquote>
 第二天布丁醒来，发现 Job 子在自己房间，原来是她擅自解除家里的安保系统闯了进来。然后 Job 子说要住在布丁家，开始擅自改造阁楼，布丁最后也不得已帮她改造。
 <img src="https://p.sda1.dev/7/0e5dcbb904320f52082f9a2b2876318a/2022-10-20-1009_18.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NZ-333  
+##### 193#       发表于 2022-10-20 13:05
+
+用的这个源，结果字幕成这样了，是我播放器的问题吗…
+
+<img src="https://img.saraba1st.com/forum/202210/20/130435g7tv1f8fjfjouuih.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (157.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 13:04 上传
+
