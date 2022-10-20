@@ -10209,3 +10209,368 @@ rng这阵容正常打到30分钟应该是tb甩所有人1到2个大件的，但�
 
 rtz是北美饭皇，妮冠超可不敢说自己是饭皇
 
+
+
+*****
+
+####  zhliiiii  
+##### 20830#       发表于 2022-10-20 21:11
+
+A畜司马
+
+*****
+
+####  Rorgen  
+##### 20831#       发表于 2022-10-20 21:11
+
+从A畜浪费上一次机会之后，西恩想要冲击冠军就必须集全赛区之力组强队
+当然只要潘婕在一天就永远不可能发生
+
+*****
+
+####  nowaki  
+##### 20832#       发表于 2022-10-20 21:12
+
+maybe开直播有一点好，可以隔几天就找比赛录像清算一次a畜，素材太多了。
+
+*****
+
+####  やト  
+##### 20833#       发表于 2022-10-20 21:12
+
+<img src="https://img.saraba1st.com/forum/202210/20/211216euu6oj8bpg6jjgbd.jpg" referrerpolicy="no-referrer">
+
+<strong>3)2I)O(_)@Y~K`5~(HPA478.jpg</strong> (130.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 21:12 上传
+
+*****
+
+####  Kazepollar  
+##### 20834#       发表于 2022-10-20 21:12
+
+感觉这帮人退役之后应该也不咋看比赛了
+
+*****
+
+####  反方向的波  
+##### 20835#       发表于 2022-10-20 21:12
+
+妮氪不被mybed10分钟打出对位2k经济优势我就算他赢
+
+*****
+
+####  非建政专用号  
+##### 20836#       发表于 2022-10-20 21:13
+
+感觉不如主打一个三观和过年就分了
+
+*****
+
+####  woyzeck  
+##### 20837#       发表于 2022-10-20 21:13
+
+就只有19年没发微博么，也是19年最后一把打的和内讧了一样
+
+*****
+
+####  为了mf注册  
+##### 20838#       发表于 2022-10-20 21:13
+
+玉玉了，看茶队的了，发个红包支持下吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+口令：茶队ti加油
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 莉拉厨| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  innovation_s  
+##### 20839#       发表于 2022-10-20 21:13
+
+超哥贴纸全都卖光了，想自己开，这个胶囊和csgo一样有说最后会打折吗
+
+*****
+
+####  adretyu67  
+##### 20840#       发表于 2022-10-20 21:13
+
+野人退了以后，今年的rng大概率也会散了。
+
+野人退了，30岁的卡师傅应该也会回mdy，跑来和野人打兄弟dota的李斯不知道合同还有多久，rng也有可能不续。
+
+ghost本身就是24岁的大龄carry，sag没了可能也会退，至于伟哥，他留不留也没有什么意义了。
+
+可能rng对dota2的投入也就到这了。
+
+*****
+
+####  勤练带来力量  
+##### 20841#       发表于 2022-10-20 21:13
+
+冠超要清算18年早清算了，不可能清算的，旧lgd4个人该直播的都直播过了谁都没说过啥
+
+*****
+
+####  nowaki  
+##### 20842#       发表于 2022-10-20 21:13
+
+许多年之后，站上解说台，森哥和超哥将会回想起，ame水人波高的那个遥远的下午。
+
+*****
+
+####  nightmare902015  
+##### 20843#       发表于 2022-10-20 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012934&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-20 21:13</a>
+感觉不如主打一个三观和过年就分了</blockquote>
+感觉不如再加一个“他说想和前女友复合，要跟我分手”
+
+*****
+
+####  无意义小号  
+##### 20844#       发表于 2022-10-20 21:13
+
+哎，今年奇迹好像也要退了，感觉这届之后熟悉的人又要少一堆了
+
+*****
+
+####  星野航  
+##### 20845#       发表于 2022-10-20 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012869&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-20 22:10</a>
+
+我的天哪，我伞要有超哥的卓越天赋和宽裕环境早就冠了好吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我草，别在这里迫伞
+
+伞是时运不济，非战之过
+
+*****
+
+####  wyns  
+##### 20846#       发表于 2022-10-20 21:14
+
+感觉国内dota2也到终点了
+
+*****
+
+####  利剑Crazy-88  
+##### 20847#       发表于 2022-10-20 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012567&amp;ptid=2099454" target="_blank">lagunablade 发表于 2022-10-20 20:58</a>
+
+回家局拿中单敌法和sf的时候，天天打枪不训练的时候，有没有想过自己有今天呢？超哥 ...</blockquote>
+澄清一下，小组赛拿的中单敌法，回家局玩的是跳 蛋龙骑
+
+*****
+
+####  OVTVO  
+##### 20848#       发表于 2022-10-20 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012824&amp;ptid=2099454" target="_blank">刹那芳華 发表于 2022-10-20 21:08</a>
+
+还有关键的不太会应对维萨吉扫图。
+
+能被这玩意拖住节奏估计也是打之前想都没想过的。 ...</blockquote>
+是的，二代盾被拖了太久了，但是我觉得根本原因还是自己节奏不理想导致的。VIS A也不算特别快
+
+*****
+
+####  反方向的波  
+##### 20849#       发表于 2022-10-20 21:15
+
+<img src="https://p.sda1.dev/7/8b33a3f3fec750622e11b948c3f06928/CMP_20221020211357611.jpg" referrerpolicy="no-referrer">
+现在的你克是真滴油腻，还是ti9腼腆的微笑温暖淳真
+<img src="https://p.sda1.dev/7/17b2fb8416cb38815d43d259969b7edf/CMP_20221020211436047.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 20850#       发表于 2022-10-20 21:15
+
+卡师傅应该也要回到41yy找乌鸡鲅鱼养老了，文kaka武maybe赛场上应该都不会再见到了
+
+
+
+*****
+
+####  ArowRocher  
+##### 20851#       发表于 2022-10-20 21:15
+
+<img src="https://p.sda1.dev/7/4be4359a65eab52750b0d07ddd77e499/CMP_20221020211535258.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  snarc1  
+##### 20852#       发表于 2022-10-20 21:15
+
+玩家基数不够只能靠东南亚华人了
+
+*****
+
+####  Rorgen  
+##### 20853#       发表于 2022-10-20 21:16
+
+虽然我对maybe的竞技水平不完全认可，但说一句maybe是cndota2的旗帜是不过分的
+dota2国服2014年往后才大规模普及，正好和maybe的职业生涯同步
+而且maybe这么多年来是国内唯一一个和dota1老逼玩家群体维系上的职业选手了
+
+*****
+
+####  zhliiiii  
+##### 20854#       发表于 2022-10-20 21:16
+
+@王旧林：其实可以在和ame组合来最后一年，永远喜欢LGD双子星[泪]
+
+*****
+
+####  acejoe  
+##### 20855#       发表于 2022-10-20 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012919&amp;ptid=2099454" target="_blank">やト 发表于 2022-10-20 21:12</a></blockquote>
+ti9呢
+
+*****
+
+####  zhliiiii  
+##### 20856#       发表于 2022-10-20 21:16
+
+真tm吐了，退役微博下面还有这种玩意
+
+*****
+
+####  端木恋心  
+##### 20857#       发表于 2022-10-20 21:16
+
+今年很多选手退了之后感觉中国队要疯狂吸东南亚的血了。就是中国老B辅助加东南亚1 2号位的天下了。
+
+*****
+
+####  nowaki  
+##### 20858#       发表于 2022-10-20 21:17
+
+maybe一直都没看清过，最适合他的c就是sylar
+
+*****
+
+####  非建政专用号  
+##### 20859#       发表于 2022-10-20 21:17
+
+怀念窝克还叫克里斯那时候意气风发的样子<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沈经文  
+##### 20860#       发表于 2022-10-20 21:17
+
+想起高中的时候和朋友聊起11天梯第一，是一个比我们小一届的高中生。
+
+*****
+
+####  百世诸侯  
+##### 20861#       发表于 2022-10-20 21:17
+
+<img src="https://img.saraba1st.com/forum/202210/20/211743ldat1anaz0y01at5.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-10-20-21-13-11-116-edit_com.sina.weibo.jpg</strong> (87.69 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-20 21:17 上传
+
+*****
+
+####  OVTVO  
+##### 20862#       发表于 2022-10-20 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58013033&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 21:16</a>
+
+虽然我对maybe的竞技水平不完全认可，但说一句maybe是cndota2的旗帜是不过分的
+
+dota2国服2014年往后才大规 ...</blockquote>
+我一直觉得他是廖化、姜维这类的人物XD
+
+*****
+
+####  roger_goodell  
+##### 20863#       发表于 2022-10-20 21:18
+
+前期就在奇怪这个tb怎么这么穷的。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+不过也没什么说的，rng阵容再缺陷，也比ent让pure打狼人的阵容好很多。开局各个微信群和讨论帖都是说拖后期ent自动到点。
+
+*****
+
+####  tengshuo980  
+##### 20864#       发表于 2022-10-20 21:18
+
+个人中军理解大哥应该选个pa，尖刀连之尖刀连一波捅穿对面
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  利剑Crazy-88  
+##### 20865#       发表于 2022-10-20 21:18
+
+其实很简单一个道理啊，如果19年真的想要清算A畜，那就不会先是查理斯开播复盘说这波是团队决策，又是红包神事后评价“是a畜觉得我们太菜了”。
+
+当时的情况就是兄弟们也知道自己上限就在那里了，混着打也是打，反正成绩也不会再差到哪里去，只是没争冠的那个决心了，这个时候有个人突然冒出来觉得其他4个队友摆烂是在演他，偏偏这个人还就是这5个人里最菜的。
+
+要不为什么说A畜是纯纯白眼狼呢，说不定今年打完他还真觉得是德张演戏害他进不了决赛日，却忘了自己“死不了”的小小是怎么先被抓再输血的了
+
+*****
+
+####  innovation_s  
+##### 20866#       发表于 2022-10-20 21:19
+
+有没有v社楼友知道贴纸胶囊会不会打折的啊
+
+*****
+
+####  憧憬鲨  
+##### 20867#       发表于 2022-10-20 21:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">泰迪连老十一都能理解，大概率是不会清算ame的
+
+*****
+
+####  Ronso  
+##### 20868#       发表于 2022-10-20 21:20
+
+这么多年唯一看的比赛项目唯一喜欢的电竞选手，真的没绷住，出去散心去了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 20869#       发表于 2022-10-20 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58013050&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-20 21:17</a>
+
+maybe一直都没看清过，最适合他的c就是sylar</blockquote>
+两个人的巅峰期没配上啊。塞拉ti5以后下滑了好多啊。那时候的超哥肯定看不上塞拉啊。
+
+塞拉的第二春在2020年的ehone又因为疫情GG了啊。那时候记得2020年塞拉暴力站桩先知。疯脸撒旦强袭飞脸先知好爽的。
+
+*****
+
+####  Rorgen  
+##### 20870#       发表于 2022-10-20 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58013071&amp;ptid=2099454" target="_blank">OVTVO 发表于 2022-10-20 21:18</a>
+我一直觉得他是廖化、姜维这类的人物XD</blockquote>
+是这样的，老逼们其实没几个很看得起maybe，“训练单杀，比赛被单杀”，在黄金年代的观众眼里，有430这种完美人物珠玉在前，maybe始终是不行的，虽然在18年达到了冠军中单的竞技水平吧
+
