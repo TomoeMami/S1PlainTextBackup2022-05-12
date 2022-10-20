@@ -532,3 +532,12 @@ PC大屏听歌对味，AA快下池
 每天上去收次菜 能打就打不能打就关 ...</blockquote>
 碰不到的话氪佬的游戏体验是怎么来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  elven119  
+##### 65#       发表于 2022-10-21 07:44
+
+上线两天，流水过5亿，只能说，最开始目标用户就是矿老板的游戏真是厉害。这游戏首要目标群就不是二次元用户<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

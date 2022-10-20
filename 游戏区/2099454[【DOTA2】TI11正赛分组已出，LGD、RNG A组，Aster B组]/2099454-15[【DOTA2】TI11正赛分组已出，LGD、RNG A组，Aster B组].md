@@ -4023,3 +4023,34 @@ csgo都习惯了，welcome to offline，老问题了没办法。
 
 有无加速模式前十锐评一下机体强度
 
+
+
+*****
+
+####  憧憬鲨  
+##### 21463#       发表于 2022-10-21 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016832&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-21 01:13</a>
+火猫的话前期会被动物园突破的吧............</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单说这把火猫肯定是不如ts的
+
+*****
+
+####  HydraCat  
+##### 21464#       发表于 2022-10-21 07:48
+
+cn队都加油吧，反正我估摸着也走不了多远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">努力创造未来十年最好战绩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tasuku  
+##### 21465#       发表于 2022-10-21 07:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58017634&amp;ptid=2099454" target="_blank">HydraCat 发表于 2022-10-21 07:48</a>
+cn队都加油吧，反正我估摸着也走不了多远了努力创造未来十年最好战绩
+
+—— 来自 S1Fun ...</blockquote>
+cn队有阿茶一个独苗了啊，加油喝油茶是吧
+
