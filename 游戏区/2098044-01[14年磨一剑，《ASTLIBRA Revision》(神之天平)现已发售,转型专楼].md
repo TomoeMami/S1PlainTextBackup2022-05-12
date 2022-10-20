@@ -6170,3 +6170,12 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 弓我记得一开始就能拿了啊，好像有个山需要二段跳过去然后地面有个箭头按上有个宝箱 ...</blockquote>
 淦！一直没注意到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">还在想一章二章的光靠扔箭怎么搞的到空中的靶子
 
+
+
+*****
+
+####  quanlix  
+##### 571#       发表于 2022-10-20 11:27
+
+我好像第三章才拿的弓，还是没事瞎溜达撞上的，之前一直用的弩
+

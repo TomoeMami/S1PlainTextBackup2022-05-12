@@ -11733,3 +11733,334 @@ EG笛子大怨灵都出了，但宙斯真正发育起来的输出还是溢出的
 
 特摄也是皮套吃
 
+
+
+*****
+
+####  哈曼的YY  
+##### 16389#       发表于 2022-10-20 11:21
+
+我的 看图表都能看岔 ta在石头人旁边<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 16390#         楼主| 发表于 2022-10-20 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58000740&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-20 11:20</a>
+
+newbee要是会玩水军搞饭圈，还会沦落到打假赛吗</blockquote>
+newbee还不搞饭圈？ 也就是狗徒富二代牛皮吹不下去了，不然newbee现在还活着
+
+*****
+
+####  一品堂官  
+##### 16391#       发表于 2022-10-20 11:22
+
+锋哥你好man噢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  nerugigannte  
+##### 16392#       发表于 2022-10-20 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58000747&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-20 11:20</a>
+ 今年怎么都不穿选手服啊，每年ti v社正赛不都是发选手服吗</blockquote>
+懂了，想看皮球穿24
+
+*****
+
+####  牛肉丸  
+##### 16393#       发表于 2022-10-20 11:22
+
+北美鳖这切入还不如巅峰始祖鳖
+
+*****
+
+####  syndrome2032  
+##### 16394#       发表于 2022-10-20 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58000740&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-20 11:20</a>
+newbee要是会玩水军搞饭圈，还会沦落到打假赛吗</blockquote>
+胡扯。南通击剑不就是给sccc定做的。
+
+但是奈何不过干瘪营销最强季军lfy和最菜亚军nb啊。
+
+*****
+
+####  超法拉  
+##### 16395#       发表于 2022-10-20 11:22
+
+那sccc和a÷这种饭圈营销是没法比的
+硬要说是老鳖年轻时那种男粉丝比较喜欢的国字脸
+
+*****
+
+####  百世诸侯  
+##### 16396#       发表于 2022-10-20 11:22
+
+懂了，想看皮球穿24
+
+*****
+
+####  iceplatinum  
+##### 16397#       发表于 2022-10-20 11:23
+
+sf出吧跳或者推推早赢了
+
+*****
+
+####  反方向的波  
+##### 16398#       发表于 2022-10-20 11:23
+
+但是荷兰sccc昨天和女人杏爱，而宋淳只能吸引到男同
+
+*****
+
+####  izayoi39  
+##### 16399#       发表于 2022-10-20 11:24
+
+eg这阵容确实能打，问题是eg的几个人是打不来这种防守反击式的打法的，rtz和abed在后期都是你要让我在前面卖我就敢死的那种主
+
+*****
+
+####  食粪者  
+##### 16400#       发表于 2022-10-20 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58000744&amp;ptid=2099454" target="_blank">一夜秋风袭锦城 发表于 2022-10-20 11:20</a>
+有没有可能刀圈饭圈吹颜值吹的最狠的除了处长就是sccc？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">问题是sccc确实帅啊
+
+*****
+
+####  Litccc  
+##### 16401#       发表于 2022-10-20 11:24
+
+<img src="https://img.saraba1st.com/forum/202210/20/112420dlwlhwcvv4a4laf8.jpg" referrerpolicy="no-referrer">
+
+<strong>006ZneWLly1h56or8q3dnj30hu0r3wgo.jpg</strong> (67.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 11:24 上传
+
+来了来了
+
+*****
+
+####  一夜秋风袭锦城  
+##### 16402#       发表于 2022-10-20 11:24
+
+看来漏油新玩家挺多的，没被牛瘪当年司马男酮营销恶心到过。下一次这么恶心到我的还是恶魔小学妹，妈的饭点就不该讨论这些。
+
+*****
+
+####  nxmonitor  
+##### 16403#       发表于 2022-10-20 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58000722&amp;ptid=2099454" target="_blank">超法拉 发表于 2022-10-20 11:19</a>
+
+但是sv酱油是打减甲阵容的啊 这把对面有30%物理输出吗</blockquote>
+EG这是怕对面选SV打酱油，毕竟他们就是用SV去对付影魔的……
+
+*****
+
+####  asd235614  
+##### 16404#       发表于 2022-10-20 11:24
+
+感觉RTZ那个血棘出蛇了，没跳根本跟不上团，被滚滚血魔宙斯拉扯碎了
+
+*****
+
+####  syndrome2032  
+##### 16405#       发表于 2022-10-20 11:24
+
+戏哥哥这个外号是谁给sccc安的来着?不过反正这时候哦i他也mdy，无所谓了。
+
+*****
+
+####  morwhipppo  
+##### 16406#       发表于 2022-10-20 11:25
+
+想看皮球主舞台穿24号战衣对战lgd
+
+*****
+
+####  情商  
+##### 16407#         楼主| 发表于 2022-10-20 11:25
+
+瘪瘪漂泊无家，所以赫赫都是移动粉，老干鳖跟牛瘪哪个不是饭圈队？如果不是饭圈队。hao跟mu退役了 氢。氢就该润了，s戏戏戏 能出道就人气爆炸靠的不就是hao跟mu留下来的newbee队粉氢。氢？
+
+*****
+
+####  恐怖利刃  
+##### 16408#       发表于 2022-10-20 11:25
+
+每一把都当做最后一把，然后就也不要怕输
+
+*****
+
+####  情商  
+##### 16409#         楼主| 发表于 2022-10-20 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58000835&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-20 11:24</a>
+
+戏哥哥这个外号是谁给sccc安的来着?不过反正这时候哦i他也mdy，无所谓了。</blockquote>
+sg啊，my name is mu
+
+*****
+
+####  テロメア  
+##### 16410#       发表于 2022-10-20 11:26
+
+冰女居然上ban位了
+
+
+
+*****
+
+####  izayoi39  
+##### 16411#       发表于 2022-10-20 11:26
+
+sccc最早被称作戏精原因以前的那句mynameismu，然后被鳄鱼粉给安了个戏精的称号，后来大家都发现这人特别喜欢立人设，这个戏哥哥的外号就沿用下来了
+
+*****
+
+####  外挂全家脚气  
+##### 16412#       发表于 2022-10-20 11:26
+
+主舞台声音好小
+
+*****
+
+####  百世诸侯  
+##### 16413#       发表于 2022-10-20 11:27
+
+谷爱凌最强
+
+*****
+
+####  莉拉厨  
+##### 16414#       发表于 2022-10-20 11:27
+
+哦牛逼冰女都能上一ban
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  火鸡味锅巴  
+##### 16415#       发表于 2022-10-20 11:27
+
+sccc还有经典脑内狼人杀，天梯全在演我
+
+*****
+
+####  hyde_caesar  
+##### 16416#       发表于 2022-10-20 11:27
+
+只能说newbee营销水平不如水厂的一根ru毛, 不能说newbee没玩饭圈营销<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然从建队理念来看的话, 水厂建队溯源到2009就已经是饭圈营销了, 真的是建队根本了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别的队学不到那股恶臭的精髓
+
+*****
+
+####  nightmare902015  
+##### 16417#       发表于 2022-10-20 11:27
+
+谷爱凌最强！
+
+*****
+
+####  fananaf  
+##### 16418#       发表于 2022-10-20 11:28
+
+这二手拿大锤什么意思
+
+*****
+
+####  qty  
+##### 16419#       发表于 2022-10-20 11:28
+
+巴巴耶夫这颜值还是可以的
+
+*****
+
+####  nxmonitor  
+##### 16420#       发表于 2022-10-20 11:28
+
+早点出个跳刀哪怕把冰女切了都好打很多，刚出笛子的时候TA输出是不太够的，所以这血棘到底能对付谁呢？站前排的小小和血魔怕血棘吗？
+
+*****
+
+####  反方向的波  
+##### 16421#       发表于 2022-10-20 11:28
+
+[@永远喜欢谷爱凌](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=554911)
+
+*****
+
+####  莉拉厨  
+##### 16422#       发表于 2022-10-20 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58000895&amp;ptid=2099454" target="_blank">fananaf 发表于 2022-10-20 11:28</a>
+这二手拿大锤什么意思</blockquote>
+绝活大锤体系，没被打爆就选呗
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  izayoi39  
+##### 16423#       发表于 2022-10-20 11:28
+
+大锤很简单，就是抓着abed打，到六就是一个大找abed
+
+*****
+
+####  Avantasi  
+##### 16424#       发表于 2022-10-20 11:28
+
+TI7看完败决知道结果就没看决赛，sccc决赛发挥怎么样
+
+*****
+
+####  重名的mufasa  
+##### 16425#       发表于 2022-10-20 11:28
+
+放玛西影魔吗
+
+*****
+
+####  fananaf  
+##### 16426#       发表于 2022-10-20 11:30
+
+哦没看ta之前的比赛，蛇了
+
+*****
+
+####  nightmare902015  
+##### 16427#       发表于 2022-10-20 11:30
+
+先ban冰女宙斯感觉在bp上面劣势很大啊，这样咋出3呢
+
+*****
+
+####  越动天下  
+##### 16428#       发表于 2022-10-20 11:30
+
+eg要选一个克大锤的
+
+*****
+
+####  莉拉厨  
+##### 16429#       发表于 2022-10-20 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58000911&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-20 11:28</a>
+TI7看完败决知道结果就没看决赛，sccc决赛发挥怎么样</blockquote>
+全队脑浆，sccc算是不那么脑浆的一个
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
