@@ -7401,3 +7401,23 @@ nb官号订阅里面也没她了，别吧，炸号炸个没完。
 
 最速复活赛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yywzjsw  
+##### 12705#       发表于 2022-10-20 22:30
+
+总感觉这剧情眼熟
+
+*****
+
+####  往世雷书  
+##### 12706#       发表于 2022-10-20 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014541&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-10-20 22:30</a>
+总感觉这剧情眼熟</blockquote>
+还好不是直播途中发现的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

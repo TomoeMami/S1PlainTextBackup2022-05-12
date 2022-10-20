@@ -6647,3 +6647,18 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  Leona_Akari  
+##### 615#       发表于 2022-10-20 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014454&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-20 22:26</a>
+打完区域boss区域清空，那没拿到的素材就没法再刷了？
+
+论坛助手,iPhone</blockquote>
+没事了，天平可以传送回去
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
