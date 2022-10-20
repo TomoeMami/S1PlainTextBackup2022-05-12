@@ -138,3 +138,12 @@
 
 现在:没有真是太好了，能不能把那首暁を撃て和动画的关系去掉
 
+
+
+*****
+
+####  jerryoq1  
+##### 1943#       发表于 2022-10-20 20:54
+
+这么赶怕是要腾出时间给管人加戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -8894,3 +8894,724 @@ dota信息量这么大的游戏，还想着听观众声音报点我算他牛逼�
 DAC2版本是樱花兄弟最爽的版本，甚至在硬实力最强的一届major还能和VP把手腕，可惜没有超越，反观厨子基辅 ...</blockquote>
 那年看到XXS的猛犸是真的很感动，感觉未来是他的。结果TI7打完以后这所有的时间，只想让他把感动还给我。
 
+
+
+*****
+
+####  跑调跑掉  
+##### 20676#       发表于 2022-10-20 20:51
+
+明天茶要是输了，这ti真要变西欧区季后赛了
+
+*****
+
+####  praetorian  
+##### 20677#       发表于 2022-10-20 20:51
+
+前期节奏就断在下路开雾那一波了吧，没明白牛头为什么没板出来。
+
+*****
+
+####  银翼的维罗西  
+##### 20678#       发表于 2022-10-20 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012358&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-20 20:50</a>
+
+这就是虚空jugg这种核心牛逼的地方了。</blockquote>
+我也觉得该选剑圣，TB这核真不行，没有强势期的
+
+*****
+
+####  恐怖利刃  
+##### 20679#       发表于 2022-10-20 20:51
+
+超哥最惨的是今年场馆都没进吧，比去年还惨
+
+*****
+
+####  zsu222  
+##### 20680#       发表于 2022-10-20 20:52
+
+卡猴那波我记得是放了一个位置很烂的板
+
+*****
+
+####  你可以试试  
+##### 20681#       发表于 2022-10-20 20:52
+
+没隔音棚的草台场馆，算了不去就不去吧
+
+*****
+
+####  Rorgen  
+##### 20682#       发表于 2022-10-20 20:52
+
+冠超还是退了吧，现在的水平在国内打个23名差不多，在ti上打国外中单完全不够用，再赖就不体面了
+
+*****
+
+####  枯风瘦雪02  
+##### 20683#       发表于 2022-10-20 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012366&amp;ptid=2099454" target="_blank">跑调跑掉 发表于 2022-10-20 20:51</a>
+
+明天茶要是输了，这ti真要变西欧区季后赛了</blockquote>
+还有个大概率杀回来的LGD，虽然很讨厌这只队伍，但这事还是得承认
+
+*****
+
+####  樱冢名月  
+##### 20684#       发表于 2022-10-20 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012372&amp;ptid=2099454" target="_blank">praetorian 发表于 2022-10-20 20:51</a>
+
+前期节奏就断在下路开雾那一波了吧，没明白牛头为什么没板出来。</blockquote>
+板歪了，然后肯定是身体影响，超哥BKB没开出来。
+
+*****
+
+####  刹那芳華  
+##### 20685#       发表于 2022-10-20 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012360&amp;ptid=2099454" target="_blank">NaYo丶 发表于 2022-10-20 20:50</a>
+
+这个队的中单死灵龙感觉是绝中绝
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+确实是绝中绝。
+
+中期和小后期时间段几乎是靠他硬是拖过去的。当然RNG自己这边也是明显集中力下降，好几次决策都慢了。
+
+*****
+
+####  憧憬鲨  
+##### 20686#       发表于 2022-10-20 20:52
+
+主野区那波放了个很烂的板和很烂的大
+
+*****
+
+####  Rorgen  
+##### 20687#       发表于 2022-10-20 20:52
+
+刚说完就官宣退役了
+
+*****
+
+####  snarc1  
+##### 20688#       发表于 2022-10-20 20:52
+
+相信秘鲁DOTA
+
+*****
+
+####  枯风瘦雪02  
+##### 20689#       发表于 2022-10-20 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012374&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-20 20:51</a>
+
+我也觉得该选剑圣，TB这核真不行，没有强势期的</blockquote>
+怎么可能顶着动物园选剑圣，让个大招吗？
+
+*****
+
+####  c88711611  
+##### 20690#       发表于 2022-10-20 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012296&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-20 20:48</a>
+
+第一波TB被秒，没推下来，马后炮来说，就很悬了。那时候就打定主意拖死你了。看的时候心里真的想着不要被秒 ...</blockquote>
+那波是媲美畜长的操作了，开bkb拆塔，然后bkb没了被仍回去，盾复活起来刷新bkb都没按出来，
+
+真要分锅，鬼这锅跑不掉，那波打好点就是破2路，然后压制对面出不了门的结果了
+
+*****
+
+####  adretyu67  
+##### 20691#       发表于 2022-10-20 20:53
+
+打野爪没了以后xxs就萎了很长一段时间，接着就是ti8转中。从ig跑路去aster贡献了《XXS在刷钱》，等到蟹腿王来了终于好了一点。
+
+今年应该也是茶队纸面实力最强的一年了，不留遗憾吧。
+
+*****
+
+####  proselyte  
+##### 20692#       发表于 2022-10-20 20:53
+
+超——哥——
+
+*****
+
+####  阿卵真是牛逼  
+##### 20693#       发表于 2022-10-20 20:53
+
+超哥是退了吗<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TIZI  
+##### 20694#       发表于 2022-10-20 20:53
+
+小尿布感觉很难受，跑步去了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nowaki  
+##### 20695#       发表于 2022-10-20 20:53
+
+maybe退役了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 20696#       发表于 2022-10-20 20:53
+
+超哥会开什么平台
+
+*****
+
+####  越动天下  
+##### 20697#       发表于 2022-10-20 20:54
+
+属于我的青春注定会有遗憾与意难平吧 谢谢所有人的关心与鼓励 我的青春结束了 Somnus out ​​​
+
+*****
+
+####  银翼的维罗西  
+##### 20698#       发表于 2022-10-20 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012424&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 20:52</a>
+
+怎么可能顶着动物园选剑圣，让个大招吗？</blockquote>
+剑圣再怎么样输出空间也比TB强两个档次吧，打对面有没有大作战能力都比TB强
+
+*****
+
+####  snarc1  
+##### 20699#       发表于 2022-10-20 20:54
+
+再见了，超哥
+
+*****
+
+####  Litccc  
+##### 20700#       发表于 2022-10-20 20:54
+
+也没说退役吧，明年说不定还会打
+
+
+
+*****
+
+####  情商  
+##### 20701#         楼主| 发表于 2022-10-20 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012418&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 20:52</a>
+
+刚说完就官宣退役了</blockquote>
+谁推移了
+
+*****
+
+####  北欧王座  
+##### 20702#       发表于 2022-10-20 20:54
+
+maybe居然不打了
+
+*****
+
+####  ArowRocher  
+##### 20703#       发表于 2022-10-20 20:54
+
+<img src="https://p.sda1.dev/7/a8c179a1a7937ff947c7576203bd26f3/CMP_20221020205449693.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  usoda  
+##### 20704#       发表于 2022-10-20 20:55
+
+蕾姆了 替超哥感到不值
+
+*****
+
+####  acacaclove  
+##### 20705#       发表于 2022-10-20 20:55
+
+超哥，我的超哥<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+明天猪干瘪死了给漏油发红包
+
+*****
+
+####  猫狗猫  
+##### 20706#       发表于 2022-10-20 20:55
+
+Somnus out<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 20707#       发表于 2022-10-20 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">我说实话希望超哥切假腿
+
+*****
+
+####  米德  
+##### 20708#       发表于 2022-10-20 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">超哥
+
+*****
+
+####  Crazy_Knife  
+##### 20709#       发表于 2022-10-20 20:55
+
+超哥退了也不错，明年又大一岁加新冠影响确实可能没什么机会了，好好直播多赚点养老金吧
+
+*****
+
+####  nightmare902015  
+##### 20710#       发表于 2022-10-20 20:55
+
+泪目，我的超哥，90016大弟子。
+
+*****
+
+####  哈曼的YY  
+##### 20711#       发表于 2022-10-20 20:55
+
+tb在下路被扔回去杀了两条命真没看懂 id一遮以为是a畜 然后会进森哥的剪辑里的操作<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 20712#       发表于 2022-10-20 20:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">呜呜呜 ，超哥
+
+*****
+
+####  lmslardar  
+##### 20713#       发表于 2022-10-20 20:56
+
+哎 白银时代基本结束了 dota2这游戏也不知道还能活多久 但至少cndota是没了
+
+*****
+
+####  sodah  
+##### 20714#       发表于 2022-10-20 20:56
+
+假腿是可以切的，这不也没明说退役啊。
+
+*****
+
+####  小拖  
+##### 20715#       发表于 2022-10-20 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Narrative  
+##### 20716#       发表于 2022-10-20 20:56
+
+明年29了，应该打不了了
+
+*****
+
+####  Asukalangley33  
+##### 20717#       发表于 2022-10-20 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012254&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-20 20:46</a>
+
+最搞笑的是现在两万贵宾聚集在YYF直播间，YYF在跳伞吃鸡，弹幕在哭青春结束，两边各玩各的
+
+ ...</blockquote>
+我一直这个观点
+
+TI还在办，DPC还在搞，TI还是能有个1000多W美刀的池子
+
+我DEAD了 DOTA都不一定DEAD
+
+说真的，V社给5%不到的玩家数的西恩单独一个赛区，基本可以保持TI只要继续办，就能一直运营下去，面子拉满了啊
+
+天天在那里输个破B TI就念叨DEAD了，巴西被7:1了肯定再也没人踢球了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+至于什么没新人，真的没新人么？只是S级队伍选手作为一个超高收入的职业被小圈子把持了而已
+
+后面收入回归理性，自然就有人能顶上去
+
+毕竟谁愿意把一年百八十万，住大别墅，一天就上2个小时班，每年还有机会去拼一次财富自由的岗位让出去啊
+
+*****
+
+####  枯风瘦雪02  
+##### 20718#       发表于 2022-10-20 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012452&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-20 20:54</a>
+
+剑圣再怎么样输出空间也比TB强两个档次吧，打对面有没有大作战能力都比TB强 ...</blockquote>
+小组赛已经看过剑圣交完斩直接被打死在转里的场面了，现在这个版本，剑圣没资格脚尖点地输出的
+
+*****
+
+####  aisakahammer  
+##### 20719#       发表于 2022-10-20 20:56
+
+超哥再见。
+
+*****
+
+####  蛭人  
+##### 20720#       发表于 2022-10-20 20:56
+
+再见了所有90016的小树人
+
+哦，卡卡还在。
+
+*****
+
+####  陈苦瓜  
+##### 20721#       发表于 2022-10-20 20:56
+
+超哥明年27 还能打啊 退啥
+
+*****
+
+####  南宫月汐  
+##### 20722#       发表于 2022-10-20 20:56
+
+现在的问题是boom这队肉眼可见的弱，明天怕不是要发洪水
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  哈曼的YY  
+##### 20723#       发表于 2022-10-20 20:56
+
+卡神还有机会找个队冲击一下吗
+
+*****
+
+####  Rorgen  
+##### 20724#       发表于 2022-10-20 20:57
+
+cndota白银时代我只认四个人
+徐林森 路垚 胡良智 曾焦阳
+看看今年打完退几个
+
+*****
+
+####  白昼梦  
+##### 20725#       发表于 2022-10-20 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这ti打完退役太憋屈了
+
+*****
+
+####  IG.430  
+##### 20726#       发表于 2022-10-20 20:57
+
+早该退了，赶紧赶yyf去早起吃鸡
+
+*****
+
+####  北条早苗  
+##### 20727#       发表于 2022-10-20 20:57
+
+超哥退役了
+
+*****
+
+####  阿垃垃圾历  
+##### 20728#       发表于 2022-10-20 20:57
+
+再见了 超哥 我的dota2青春
+
+*****
+
+####  reidel  
+##### 20729#       发表于 2022-10-20 20:57
+
+难受啊超哥 充满了遗憾的TI
+
+*****
+
+####  nowaki  
+##### 20730#       发表于 2022-10-20 20:57
+
+没事，ana年年退役年年切假腿
+
+
+
+*****
+
+####  银翼的维罗西  
+##### 20731#       发表于 2022-10-20 20:57
+
+再见眉笔，今年确实时运不济，如果不是新冠，确实不会倒在这一轮，巅峰期也持续了四五年，对于中单来说也对得起这个位置
+
+*****
+
+####  acejoe  
+##### 20732#       发表于 2022-10-20 20:57
+
+超哥职业生涯故事性蛮强的，虽然没登顶。
+
+*****
+
+####  isla  
+##### 20733#       发表于 2022-10-20 20:57
+
+看队伍吧，要是有队缺2还是有可能出山的
+
+*****
+
+####  端木恋心  
+##### 20734#       发表于 2022-10-20 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012503&amp;ptid=2099454" target="_blank">lmslardar 发表于 2022-10-20 20:56</a>
+
+哎 白银时代基本结束了 dota2这游戏也不知道还能活多久 但至少cndota是没了</blockquote>
+今年会有很多人退役吧。超哥 ame 鞭哥都要退役了。感觉还会有其他人。
+
+*****
+
+####  lagunablade  
+##### 20735#       发表于 2022-10-20 20:58
+
+回家局拿中单敌法和sf的时候，天天打枪不训练的时候，有没有想过自己有今天呢？超哥
+
+*****
+
+####  FBIwarning  
+##### 20736#       发表于 2022-10-20 20:58
+
+讲真这局是不是该选飞机<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+管你多少召唤物全都打死
+
+*****
+
+####  xuzy0919  
+##### 20737#       发表于 2022-10-20 20:58
+
+唉，超哥这是真的伤到了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  VanArkride  
+##### 20738#       发表于 2022-10-20 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012336&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-20 20:50</a>
+dota信息量这么大的游戏，还想着听观众声音报点我算他牛逼，这脑子得十核驱动吧 ...</blockquote>
+听个欢呼和嘘声就行
+隔壁csgo已经上演过了，影响很大的
+
+*****
+
+####  没钱买手办  
+##### 20739#       发表于 2022-10-20 20:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AME要退役了，还有这种好事？
+
+*****
+
+####  c88711611  
+##### 20740#       发表于 2022-10-20 20:58
+
+退锤子退，还能打，明年切假腿。
+
+这波真是被新冠gank了，心灰意冷了，哎，意难平
+
+*****
+
+####  Rorgen  
+##### 20741#       发表于 2022-10-20 20:58
+
+冷知识，徐林森还做着明年按照生涯规律拿亚军的美梦
+不过cn的12不行了，辅助肯定出不了成绩的
+
+*****
+
+####  Asukalangley33  
+##### 20742#       发表于 2022-10-20 20:58
+
+艹艹危！
+
+*****
+
+####  端木恋心  
+##### 20743#       发表于 2022-10-20 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012532&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 20:57</a>
+
+cndota白银时代我只认四个人
+
+徐林森 路垚 胡良智 曾焦阳
+
+看看今年打完退几个 ...</blockquote>
+怕不是全退了
+
+*****
+
+####  银翼的维罗西  
+##### 20744#       发表于 2022-10-20 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012516&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 20:56</a>
+
+小组赛已经看过剑圣交完斩直接被打死在转里的场面了，现在这个版本，剑圣没资格脚尖点地输出的 ...</blockquote>
+这TB最后能有多少血，也就3000血不到，50分钟后剑圣怎么都比TB厉害
+
+*****
+
+####  魂断=血包win  
+##### 20745#       发表于 2022-10-20 20:59
+
+再见了所有的Somnus
+
+—— 来自 HONOR KOZ-AL40, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a1370303  
+##### 20746#       发表于 2022-10-20 20:59
+
+超哥最后的一届ti居然是这样的大起大落的结局，意难平啊
+
+*****
+
+####  JoelBirch  
+##### 20747#       发表于 2022-10-20 20:59
+
+别吧，真退役啊？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TI三冠王AME  
+##### 20748#       发表于 2022-10-20 20:59
+
+在最后一个东南亚华人天才少年消失前，CN DOTA永远不会消逝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ayeah  
+##### 20749#       发表于 2022-10-20 20:59
+
+再见了，所有的昌平野人
+
+*****
+
+####  roger_goodell  
+##### 20750#       发表于 2022-10-20 20:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 20751#       发表于 2022-10-20 20:59
+
+maybe这个人的职业经历还是挺有故事性的，今年命运又是残酷的玩笑。
+
+*****
+
+####  莉拉厨  
+##### 20752#       发表于 2022-10-20 20:59
+
+ana几岁超哥几岁？该退的还是要退啊
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dc5281  
+##### 20753#       发表于 2022-10-20 20:59
+
+maybe退了kaka大概也退了
+
+唉
+
+难受的不知道说什么，倒不是因为具体谁退了，虽然我挺支持kaka的
+
+这种想cnm但是没目标的感觉，简直究极意难平了
+
+*****
+
+####  哈曼的YY  
+##### 20754#       发表于 2022-10-20 21:00
+
+看了下boom的战绩 其他几乎全输 但是打eg2-0？
+
+eg打干瘪2-0 不会又是循环克制吧
+
+*****
+
+####  Imanmi  
+##### 20755#       发表于 2022-10-20 21:00
+
+艹艹：gtmd maybe吸我人气
+
+*****
+
+####  OVTVO  
+##### 20756#       发表于 2022-10-20 21:00
+
+这阵容1、2代盾打成这样是不配赢的。
+
+虽然一直对水厂1代目没啥好感，但是今年和TI8真的配得上一句尽力了，只能说时也命也。最后希望卡神早点回到MDY吧，除了TI都拿过了，要服老的<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 20757#       发表于 2022-10-20 21:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">旧的不去新的不来，西恩dota虽然现在每年也就几滴新血，但是至少还是有在造的，看开点吧
+
+*****
+
+####  Rorgen  
+##### 20758#       发表于 2022-10-20 21:00
+
+路垚受到的厄运肯定是超过他的卜基德程度的，曾焦阳徐林森胡良智同理
+只有一个人运气爆棚却是cn实力人品的下限，或许这就是平衡吧
+
+*****
+
+####  7450  
+##### 20759#       发表于 2022-10-20 21:00
+
+事与愿违
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acejoe  
+##### 20760#       发表于 2022-10-20 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012567&amp;ptid=2099454" target="_blank">lagunablade 发表于 2022-10-20 20:58</a>
+回家局拿中单敌法和sf的时候，天天打枪不训练的时候，有没有想过自己有今天呢？超哥 ...</blockquote>
+狂！然后偿还
+
+
+
+*****
+
+####  刹那芳華  
+##### 20761#       发表于 2022-10-20 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012516&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 20:56</a>
+
+小组赛已经看过剑圣交完斩直接被打死在转里的场面了，现在这个版本，剑圣没资格脚尖点地输出的 ...</blockquote>
+讲真我在看到40分钟的时候有那么一瞬间脑子里闪过了一姐，然后是飞机……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+TB我确实一开始就认为压根不该选。其它都挺稳的，就TB我觉得有问题。
+
