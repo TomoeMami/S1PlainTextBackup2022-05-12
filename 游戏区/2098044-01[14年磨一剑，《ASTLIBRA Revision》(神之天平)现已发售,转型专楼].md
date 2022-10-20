@@ -6261,3 +6261,33 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 第五章地底那条龙是要通关前来打吗，目前的装备直接被秒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Leona_Akari  
+##### 580#       发表于 2022-10-20 14:47
+
+天平怎么配没看懂，我刚拿到天平，左边34，右边38，然后顶上刻度显示60？这个刻度有啥影响？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lighttt  
+##### 581#       发表于 2022-10-20 14:48
+
+间接攻击是啥意思
+
+*****
+
+####  lighttt  
+##### 582#       发表于 2022-10-20 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005007&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-20 14:47</a>
+
+天平怎么配没看懂，我刚拿到天平，左边34，右边38，然后顶上刻度显示60？这个刻度有啥影响？
+
+论坛助手,iPh ...</blockquote>
+减少收益
+
