@@ -42,3 +42,25 @@
 
 请问现在有什么方便赚钱的办法吗？我才发现我一辆VGT的车都没有，打不了更新菜单里那个vision gran turismo杯……只能至少凑100万买车了，有几辆四十几万的担心跑不过……
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1685#       发表于 2022-10-20 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995785&amp;ptid=2027972" target="_blank">舌怪 发表于 2022-10-19 22:57</a>
+请问现在有什么方便赚钱的办法吗？我才发现我一辆VGT的车都没有，打不了更新菜单里那个vision gran turismo ...</blockquote>
+主线通关了吗，通了可以刷勒芒
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一个陆仁贾  
+##### 1686#       发表于 2022-10-20 08:53
+
+  
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

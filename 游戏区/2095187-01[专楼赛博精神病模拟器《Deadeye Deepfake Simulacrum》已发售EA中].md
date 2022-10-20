@@ -1414,3 +1414,17 @@ C:\Users\*\AppData\LocalLow\nodayshalleraseyou\DeadeyeDeepfakeSimulacrum\
 
 开魅魔(Empath)，就不停拉友军也是一顿乱杀
 
+
+
+*****
+
+####  Tring  
+##### 73#         楼主| 发表于 2022-10-20 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998207&amp;ptid=2095187" target="_blank">Errey 发表于 2022-10-20 08:39</a>
+
+抛开走不同结局这种因素，整个游戏倾向就是玩骇客，全都是为骇客设计好的，开局拿到3芯片开骇客和潜行职 ...</blockquote>
+便携后门在DEMO版里是黑客系的技能，不知道为啥正式版放到了潜行里。
+
+可能是DEMO版的黑客系太强了吧（获取DATA那个技能甚至没有EGO递增）。
+
