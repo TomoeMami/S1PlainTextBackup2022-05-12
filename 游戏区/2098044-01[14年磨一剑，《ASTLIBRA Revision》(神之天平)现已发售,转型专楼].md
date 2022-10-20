@@ -6702,3 +6702,54 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 这个是要调整高度 跑另一边房间对准缝隙扔飞刀打下来
 
+
+
+*****
+
+####  DarkDancer  
+##### 620#       发表于 2022-10-20 23:31
+
+ 本帖最后由 DarkDancer 于 2022-10-20 23:33 编辑 
+
+刚到东京 发个8天平的搭配参考
+
+<img src="https://img.saraba1st.com/forum/202210/20/233102w8wlwsfbgte18tww.png" referrerpolicy="no-referrer">
+
+<strong>NTOU68D1`_Z_{R(GKM5PYBU.png</strong> (109.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 23:31 上传
+
+<img src="https://img.saraba1st.com/forum/202210/20/233102adcc8tt1cntckthu.png" referrerpolicy="no-referrer">
+
+<strong>8DE]@CMN)VM9S]N2~(6{LM8.png</strong> (132.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 23:31 上传
+
+<img src="https://img.saraba1st.com/forum/202210/20/233102aidguhfywywhxycd.png" referrerpolicy="no-referrer">
+
+<strong>DS_N{4G20(NR8G`5~WN0RE8.png</strong> (66.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 23:31 上传
+
+边境有个地方进去 下面显示宝箱0 1  但是左边是悬崖 我空中三段冲都没看到头 这个位置的宝箱怎么触发？
+
+*****
+
+####  jy000129  
+##### 621#       发表于 2022-10-20 23:37
+
+天平挂盘怎么强化？
+
+*****
+
+####  A1LI  
+##### 622#       发表于 2022-10-20 23:41
+
+装备盘这个还是没看懂，我发现装备盘可以装备3个，但是装备盘似乎也分质量高低的，那这东西属性都是随机的嘛？另外如果装备了3个盘，那以后的宝箱还会掉这个装备的盘嘛，如果掉了之后怎么办，是替换掉原本装备上的3个盘之一？
+

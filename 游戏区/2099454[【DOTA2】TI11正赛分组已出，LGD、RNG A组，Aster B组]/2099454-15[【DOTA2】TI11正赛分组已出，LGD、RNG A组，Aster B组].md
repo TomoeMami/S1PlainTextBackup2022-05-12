@@ -2955,3 +2955,66 @@ RTZ原名——Artour Babaev
 
 我建议也别搭房子了，直接现场添加汉语解说，西语解说，为丁真再加个俄语解说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星野航  
+##### 21345#       发表于 2022-10-20 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58015545&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-21 00:23</a>
+所以漏油们就承认吧，前面天天嘴上说支持茶队，最后也只不过是工具人，这个是不是茶根本不重要……L ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以呢
+打好打坏有啥问题，年度ti观众又来装什么西恩dota善人，趁早跟水厂一起滚蛋好一点
+
+*****
+
+####  莉拉厨  
+##### 21346#       发表于 2022-10-20 23:34
+
+建议你还是别替阿茶想办法了，我明说，明天阿茶赢了更好，输了我也发红包只不过发少点，技不如人甘拜下风就完了哪来这么多事
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 21347#       发表于 2022-10-20 23:37
+
+只想狠狠地问候脑残显示器的马替徐林森补上当年的遗憾
+
+*****
+
+####  憧憬鲨  
+##### 21348#       发表于 2022-10-20 23:37
+
+某些朋友还是没明白，为什么Ti7打完了卡卡和SCCC也就被调侃几年，没什么人追着骂
+
+*****
+
+####  resorry  
+##### 21349#       发表于 2022-10-20 23:39
+
+建议你还是别替阿茶想办法了，我明说，明天阿茶赢了更好，输了我也发红包只不过发少点，技不如人甘拜下风就完了哪来这么多事，这么多年一轮游都过来了，轮不到集**逼赖赖的
+
+*****
+
+####  超人苏坦纳  
+##### 21350#       发表于 2022-10-20 23:39
+
+<img src="https://img.saraba1st.com/forum/202210/20/233859tm33dvez9gmyg93l.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20221020233839.png</strong> (38.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 23:38 上传
+
+*****
+
+####  超人苏坦纳  
+##### 21351#       发表于 2022-10-20 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58015777&amp;ptid=2099454" target="_blank">超人苏坦纳 发表于 2022-10-20 23:39</a></blockquote>
+不值得啊超哥
+
