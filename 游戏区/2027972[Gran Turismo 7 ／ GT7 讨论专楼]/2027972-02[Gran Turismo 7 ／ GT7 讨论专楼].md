@@ -91,3 +91,12 @@
 请问现在有什么方便赚钱的办法吗？我才发现我一辆VGT的车都没有，打不了更新菜单里那个vision gran turismo ...</blockquote>
 每天一把勒芒<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  byisme001  
+##### 1689#       发表于 2022-10-20 11:20
+
+gt7的每日竞赛还是全是公路赛吗，有拉力吗
+
