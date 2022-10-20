@@ -1428,3 +1428,19 @@ C:\Users\*\AppData\LocalLow\nodayshalleraseyou\DeadeyeDeepfakeSimulacrum\
 
 可能是DEMO版的黑客系太强了吧（获取DATA那个技能甚至没有EGO递增）。
 
+
+
+*****
+
+####  Errey  
+##### 74#       发表于 2022-10-20 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998245&amp;ptid=2095187" target="_blank">Tring 发表于 2022-10-20 08:43</a>
+
+便携后门在DEMO版里是黑客系的技能，不知道为啥正式版放到了潜行里。
+
+可能是DEMO版的黑客系太强了吧（获 ...</blockquote>
+潜行的延迟1秒敌方发现被动，对于采取高EGO体弱无战斗系主动技能的骇客是比较重要的战斗技能
+
+有这个考量才逼你点潜行吧
+

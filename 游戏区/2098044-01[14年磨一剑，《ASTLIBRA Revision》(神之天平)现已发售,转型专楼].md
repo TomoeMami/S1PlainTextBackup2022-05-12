@@ -6062,3 +6062,24 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 弓我记得一开始就能拿了啊，好像有个山需要二段跳过去然后地面有个箭头按上有个宝箱 ...</blockquote>
 好的谢谢，我记起来好像经过有个可以采矿的山头一开始没二段跳上不去，后知后觉装了二段跳后忘了那里可以上去了
 
+
+
+*****
+
+####  五块  
+##### 561#       发表于 2022-10-20 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998078&amp;ptid=2098044" target="_blank">casle 发表于 2022-10-20 08:19</a>
+
+我的天平是没点异常状态，全点了基础属性</blockquote>
+这看出来是下了一番功夫的，我目前六个盘都纠结得很。
+
+*****
+
+####  lazycat233  
+##### 562#       发表于 2022-10-20 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第五章感觉终章两个boss没中间那个量产机难打，量产机刷一堆超肉的翼龙是真的难受
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
