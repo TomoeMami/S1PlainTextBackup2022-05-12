@@ -6340,3 +6340,12 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 第五章地底那条龙是要通关前来打吗，目前的装备直接被秒</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最少第七章通了再说，第八章装备有了更好打一点，这BOSS还有即死，不是很好躲，输出不够容错率相当低
 
+
+
+*****
+
+####  元气海牛  
+##### 588#       发表于 2022-10-20 16:08
+
+面包房姑娘到底啥来头？ 错过了一周目的剧情，一脸懵逼。 还有贤者之塔的两个画风不一样的NPC，续作搞起来呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

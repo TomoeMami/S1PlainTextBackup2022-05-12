@@ -243,3 +243,12 @@
 
 井个牛宝回来发现和巫女基本没差，应该拿路枪的，亏了
 
+
+
+*****
+
+####  社保卡  
+##### 17123#       发表于 2022-10-20 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到明年gbf relink出来，gbf是不是就要进入养老期了，总感觉现在gbf还是这么能打，有cy想趁着热度把relink这个主机不第一把火烧起来的原因在。估计明年cy就有新游戏ip要发布了。
+
