@@ -12296,3 +12296,14 @@ hnn竟然组织活动了
 
 不得不说尊这晚上黑屁玩运营，第二天早上滑跪太败人缘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上都有不少人喷她出尔反尔的
 
+
+
+*****
+
+####  真飞鸟i  
+##### 17628#       发表于 2022-10-21 07:39
+
+没事，粉丝骂骂没关系，晚上回家狠狠的榨干king出出气<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

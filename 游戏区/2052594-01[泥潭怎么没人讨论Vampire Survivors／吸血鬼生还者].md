@@ -3174,3 +3174,12 @@ Vampire Survivors\resources\app\.webpack\renderer\assets\img
 
 现在随便玩了，都很牛逼
 
+
+
+*****
+
+####  otakun  
+##### 310#       发表于 2022-10-21 07:40
+
+1.0，看到邪魔图鉴里各种机翻中文，欢乐
+
