@@ -6471,3 +6471,15 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 后面第四章竞技场的狙击这一关会给宝物图鉴，可以看漏了没有 ...</blockquote>
 好，那我先继续打了
 
+
+
+*****
+
+####  黒長直姫  
+##### 598#       发表于 2022-10-20 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006221&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-20 15:46</a>
+
+最少第七章通了再说，第八章装备有了更好打一点，这BOSS还有即死，不是很好躲，输出不够容错率相 ...</blockquote>
+并没有即死 可以格挡的
+
