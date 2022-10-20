@@ -111,3 +111,19 @@
 
 冥夜还忘了生日
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1941#       发表于 2022-10-20 17:11
+
+ 本帖最后由 再买自检星剁手 于 2022-10-20 17:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007417&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2022-10-20 16:45</a>
+话说一开始推轮椅出来的是不是君望里把孝之关在地下室调教的那位啊？</blockquote>
+是，老玩家内心一颤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+最后白银上场前再打一针，实际上打的是生理盐水，也是她
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

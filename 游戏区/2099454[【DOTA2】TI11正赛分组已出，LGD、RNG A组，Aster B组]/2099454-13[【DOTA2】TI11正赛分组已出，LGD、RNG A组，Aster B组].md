@@ -8799,3 +8799,544 @@ vp去年14是大腿被踢了，纯净哥画z走了，最后只有独联体处长
 
 —— 来自 motorola XT2175-2, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  枯风瘦雪02  
+##### 19056#       发表于 2022-10-20 17:11
+
+秘密今年这阵容韧性可能还真挺强的，赢的思路除了Nisha乱杀以外还多了一条resolution转一刷出一片天。。。
+
+*****
+
+####  bluebaby  
+##### 19057#       发表于 2022-10-20 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008029&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-20 17:10</a>
+明年阿拳的队ni公子奇迹哥崩溃神，东欧不大，创造神话！</blockquote>
+少打个gh<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  belldandy_ye  
+##### 19058#       发表于 2022-10-20 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007905&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 17:04</a>
+
+ppy抽的是w33和ni公子，真没法和另外两个冠军队长比</blockquote>
+乌克兰老屠夫是算成P的卡还是算成K的卡？
+
+*****
+
+####  fopinecone  
+##### 19059#       发表于 2022-10-20 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007947&amp;ptid=2099454" target="_blank">w2210059 发表于 2022-10-20 17:06</a>
+其实雪碧我一直觉得丫头肉和他偶像差不多，会刷但是脑子秀逗的比赛特别多 ...</blockquote>
+这下23458坑我giegie了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nowaki  
+##### 19060#       发表于 2022-10-20 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008042&amp;ptid=2099454" target="_blank">米奥莉奈 发表于 2022-10-20 17:11</a>
+
+vp去年14是大腿被踢了，纯净哥画z走了，最后只有独联体处长愿意陪gpk打，没什么可说的
+
+—— 来自 motorola ...</blockquote>
+666已经被踢了
+
+*****
+
+####  Rorgen  
+##### 19061#       发表于 2022-10-20 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008049&amp;ptid=2099454" target="_blank">belldandy_ye 发表于 2022-10-20 17:11</a>
+乌克兰老屠夫是算成P的卡还是算成K的卡？</blockquote>
+老dendi是拳击手在ks.int的同期生啊，怎么能算卡
+
+*****
+
+####  非建政专用号  
+##### 19062#       发表于 2022-10-20 17:12
+
+妮们让崩溃哥去找ppy，那我新德张去哪
+
+*****
+
+####  两三流浪者  
+##### 19063#       发表于 2022-10-20 17:12
+
+绷不住了
+
+image.png
+(70.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 17:12 上传
+
+<img src="https://img.saraba1st.com/forum/202210/20/171217uinuznejwjviezjd.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 19064#       发表于 2022-10-20 17:12
+
+进了下阿版直播间，感觉开了两个直播似的各说各，真有你的啊出神
+
+*****
+
+####  恐怖利刃  
+##### 19065#       发表于 2022-10-20 17:12
+
+可以回去接着拍纪录片了，赛前整那么多有的没的不会真以为自己要两连冠了吧
+
+*****
+
+####  Troywest  
+##### 19066#       发表于 2022-10-20 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008023&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-20 17:10</a>
+我个人私心还是希望雪碧一直五人兄弟dota下去的，反正冠军也拿过了，像邪恶双雄那样献祭兄弟情拿个亚军开心 ...</blockquote>
+确实，这几个人还挺有意思的。老液体，踢了马桶，最后拿了个亚军。现在预选赛都走不出去。何必呢。。
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cuiluzhu  
+##### 19067#       发表于 2022-10-20 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一手nigma 奇迹崩溃跳跳gh，然后kky整波大活这波人又要去打A级了
+
+*****
+
+####  你可以试试  
+##### 19068#       发表于 2022-10-20 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">没想到唯一想赢的是萧瑟
+
+*****
+
+####  w2210059  
+##### 19069#       发表于 2022-10-20 17:12
+
+水晶哥也挺搞的，上个月还是被喷1号位刷了送，现在突出一个1转3灵活多变
+
+*****
+
+####  枯风瘦雪02  
+##### 19070#       发表于 2022-10-20 17:12
+
+阿米这人，怕是真心认同兄弟dota的，秃头没有对他不仁他应该也不会不义的，老了菜了慢慢淡出也是个不错的结局
+
+*****
+
+####  nowaki  
+##### 19071#       发表于 2022-10-20 17:13
+
+我只想再看一次老迹在ti上玩卡尔
+
+*****
+
+####  迷途lite  
+##### 19072#       发表于 2022-10-20 17:13
+
+我只想再看一次老迹在ti上玩卡尔
+
+*****
+
+####  枯风瘦雪02  
+##### 19073#       发表于 2022-10-20 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008081&amp;ptid=2099454" target="_blank">w2210059 发表于 2022-10-20 17:12</a>
+
+水晶哥也挺搞的，上个月还是被喷1号位刷了送，现在突出一个1转3灵活多变</blockquote>
+小水晶只要不当那个兜底拯救世界的C，还是足够胜任的
+
+*****
+
+####  Aeons  
+##### 19074#       发表于 2022-10-20 17:14
+
+有漏油讲讲雪碧的兄弟dota成分重吗
+
+*****
+
+####  nightmare902015  
+##### 19075#       发表于 2022-10-20 17:14
+
+“我们与所有ti热门队伍打了训练赛，感觉非常好，他们是lgd，og，ett和rng”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 19076#       发表于 2022-10-20 17:14
+
+窝老早说了京东哥b组倒二中单甚至不如蜗壳，毕竟他打倒一的tsm中单bryle都尿了一地
+
+至于为什么ya父今年ti也这么垃圾其实并不奇怪，因为今年“dy教你打doto”“大萹茖教你打doto”也好不到哪去
+
+*****
+
+####  Gosin  
+##### 19077#       发表于 2022-10-20 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008020&amp;ptid=2099454" target="_blank">Aeons 发表于 2022-10-20 17:09</a>
+
+雪碧这队会散吗，说实话有几位现在打的已经泯然众人了。</blockquote>
+不太会
+
+yatoro03 崩溃02 mira 99 miposhka 97
+
+年龄结构非常合理..
+
+就...其实就老东京很可能被T....
+
+当然，这几兄弟要是主动想走也是很可能的
+
+比如navi召唤乌克兰荣耀把两个乌克兰人搞走之类的
+
+*****
+
+####  星野航  
+##### 19078#       发表于 2022-10-20 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008049&amp;ptid=2099454" target="_blank">belldandy_ye 发表于 2022-10-20 18:11</a>
+
+乌克兰老屠夫是算成P的卡还是算成K的卡？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都不算啊
+
+kky在navi都是后期成员了，哪有他事儿
+
+dendi跟ppy一届的，都谈不上谁handle整个队伍，当年navi的队长是artstyle     
+
+*****
+
+####  walfeds  
+##### 19079#       发表于 2022-10-20 17:14
+
+所以对于dota来说四个人的兄弟比起五个人的兄弟看起来就僵硬一些，但好在有个背锅位
+
+*****
+
+####  nerugigannte  
+##### 19080#       发表于 2022-10-20 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">要是明天茶茶win了干瘪输了希望集妹记得自己说过的话
+
+全村的希望
+认猴爹
+
+
+
+*****
+
+####  枯风瘦雪02  
+##### 19081#       发表于 2022-10-20 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008107&amp;ptid=2099454" target="_blank">Aeons 发表于 2022-10-20 17:14</a>
+
+有漏油讲讲雪碧的兄弟dota成分重吗</blockquote>
+印象中挺重的，之前CIS区打不过VP的时候就是这四兄弟躺在地上抱着崩溃哥大腿等带飞的局面了
+
+*****
+
+####  你可以试试  
+##### 19082#       发表于 2022-10-20 17:15
+
+学老逼帕皮一直摁打，学OB搞娱乐都行嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+今天第二把一ban陈三ban小鹿真看笑了，八王别装了直接跑到另一边给帕皮磕三个头叫爹算了
+
+*****
+
+####  米德  
+##### 19083#       发表于 2022-10-20 17:15
+
+哇谁发癫发到外野去了 楼里还关不住你们吗
+
+*****
+
+####  利剑Crazy-88  
+##### 19084#       发表于 2022-10-20 17:15
+
+感觉8这个bp真的犯罪，给哥哥选个大牲给莫言一个宙斯，那只要是正常情况都是大牲站着死莫言偷伤害被抓的。集美肯定会说哥哥岳飞尽力了队友隐身啊。
+
+*****
+
+####  Asukalangley33  
+##### 19085#       发表于 2022-10-20 17:15
+
+崩溃去给RTZ打3吧
+
+*****
+
+####  molilanmao  
+##### 19086#       发表于 2022-10-20 17:15
+
+咪咪这个双三不就是ent上个major和光剑哥一起打时的战术吗
+
+*****
+
+####  Crazy_Knife  
+##### 19087#       发表于 2022-10-20 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008023&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-20 17:10</a>
+我个人私心还是希望雪碧一直五人兄弟dota下去的，反正冠军也拿过了，像邪恶双雄那样献祭兄弟情拿个亚军开心 ...</blockquote>
+亚军还有两百万美刀呢，真的不开心吗
+
+*****
+
+####  你可以试试  
+##### 19088#       发表于 2022-10-20 17:17
+
+Team Spirit队内疑似23不和？老东京赛后蓄意报复崩溃哥！[https://www.bilibili.com/video/BV1aa41197kX](https://www.bilibili.com/video/BV1aa41197kX)
+
+*****
+
+####  Asukalangley33  
+##### 19089#       发表于 2022-10-20 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008125&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-20 17:15</a>
+
+学老逼帕皮一直摁打，学OB搞娱乐都行嘛
+
+今天第二把一ban陈三ban小鹿真看笑了，八王别装了直接跑到另 ...</blockquote>
+赖皮趴自己都想不到下面8这么尊重自己的陈 小鹿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+NISHA大概觉得自己被小看了啊
+
+*****
+
+####  belldandy_ye  
+##### 19090#       发表于 2022-10-20 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008040&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-20 17:11</a>
+
+要调整那也不会调整成gpk
+
+关键时gpk那秀逗程度可比老东京厉害多了
+
+起码老东京场面越大越稳，gpk那 ...</blockquote>
+GPK需要找到自己的大爹和CEB，这人天赋有，但是心态控制太差了，找个胜负师类型的人点播看看能不能开窍
+
+*****
+
+####  Rorgen  
+##### 19091#       发表于 2022-10-20 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008114&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-20 17:14</a>
+都不算啊
+
+kky在navi都是后期成员了，哪有他事儿
+
+dendi跟ppy一届的，都谈不上谁handle整个队伍，当 ...</blockquote>
+其实kky当年也是ppy和dendi的ks.int同期生，他后面出去转了一圈13年才回来的
+
+*****
+
+####  南风尧  
+##### 19092#       发表于 2022-10-20 17:17
+
+LGD OG SPIRIT ENTITY RNG互相对练
+
+结果没摸到版本节奏，LOSER五熊！
+
+*****
+
+####  星野航  
+##### 19093#       发表于 2022-10-20 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008107&amp;ptid=2099454" target="_blank">Aeons 发表于 2022-10-20 18:14</a>
+
+有漏油讲讲雪碧的兄弟dota成分重吗</blockquote>
+重，这几个人从yellow submarine一起打就在了，mira后面来的
+
+但打了一年哥几个基本都知道啥样了，问题是cis区极少兄弟doto，流动性很强，现在东欧这复杂局面，还能不能接着兄弟doto难说
+
+而且今年这发挥，谁也别说谁，也就崩溃可以一个点草四个
+
+*****
+
+####  Kazepollar  
+##### 19094#       发表于 2022-10-20 17:18
+
+感觉xiao8其实有的时候也挺脑浆的，选出来的阵容都有赢的画面，但是很难限制对面
+
+*****
+
+####  Keynes  
+##### 19095#       发表于 2022-10-20 17:18
+
+明天能看到lgd滚蛋吗，很急<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 19096#       发表于 2022-10-20 17:19
+
+很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急很急
+
+*****
+
+####  枯风瘦雪02  
+##### 19097#       发表于 2022-10-20 17:19
+
+BOOM不好打LGD吧
+
+*****
+
+####  syndrome2032  
+##### 19098#       发表于 2022-10-20 17:19
+
+估计看不到了，面八带队宰sea区突出一个暴中暴
+
+*****
+
+####  nowaki  
+##### 19099#       发表于 2022-10-20 17:19
+
+东欧哪来的兄弟dota，各种换队组队的
+
+*****
+
+####  桐道悠  
+##### 19100#       发表于 2022-10-20 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008185&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-20 17:18</a>
+
+明天能看到lgd滚蛋吗，很急</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话，有点难的，虽然我也希望干瘪滚蛋，但是按照我十几年doto经历来看，lgd赢面大
+
+*****
+
+####  Litccc  
+##### 19101#       发表于 2022-10-20 17:19
+
+为啥外野这种一眼帆船的帖子底下还能车轱辘那么久<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 19102#       发表于 2022-10-20 17:19
+
+崩溃在黄色潜水艇之前好像就和乌克兰烧0一起网吧doto了
+
+*****
+
+####  Crazy_Knife  
+##### 19103#       发表于 2022-10-20 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008170&amp;ptid=2099454" target="_blank">南风尧 发表于 2022-10-20 17:17</a>
+LGD OG SPIRIT ENTITY RNG互相对练
+
+结果没摸到版本节奏，LOSER五熊！</blockquote>
+茶不也练了吗，怕不是要变成b组之耻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 19104#       发表于 2022-10-20 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008162&amp;ptid=2099454" target="_blank">Crazy_Knife 发表于 2022-10-20 17:17</a>
+
+亚军还有两百万美刀呢，真的不开心吗</blockquote>
+我是个穷逼所以也不知道钱怎么换算合适。如果是零到两百万，那我会卖兄弟。但要是自己已经有一百万了的话，我还是选四个戏里戏外都经历过风浪的好兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 19105#       发表于 2022-10-20 17:20
+
+面八职业生涯都几乎没输过sea
+
+*****
+
+####  Rorgen  
+##### 19106#       发表于 2022-10-20 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008219&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-20 17:19</a>
+崩溃在黄色潜水艇之前好像就和乌克兰烧0一起网吧doto了</blockquote>
+正确的，黄潜踢了so bad找mira就是崩溃的人脉dota
+
+*****
+
+####  nxmonitor  
+##### 19107#       发表于 2022-10-20 17:21
+
+虾之国的虾影虽然打不过nisha，但是在虾之国内部还是虾影好吧，所以明天很难走的，苟到和EG碰面的几率还是比较大的……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 19108#       发表于 2022-10-20 17:21
+
+玛德干瘪能不能赶紧滚蛋 滚了给我解解气<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+就你了eg 狠狠宰畜
+
+*****
+
+####  食粪者  
+##### 19109#       发表于 2022-10-20 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008126&amp;ptid=2099454" target="_blank">米德 发表于 2022-10-20 17:15</a>
+哇谁发癫发到外野去了 楼里还关不住你们吗</blockquote>
+撸蛆反串钓撸蛆攻击dota罢了
+
+*****
+
+####  w2210059  
+##### 19110#       发表于 2022-10-20 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008226&amp;ptid=2099454" target="_blank">woyzeck 发表于 2022-10-20 17:20</a>
+
+面八职业生涯都几乎没输过sea</blockquote>
+像我这样的人还从来不怕三幻神呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  你可以试试  
+##### 19111#       发表于 2022-10-20 17:22
+
+希望DP别吸了，让EG回到第一天状态再吸吧
+
+*****
+
+####  Gosin  
+##### 19112#       发表于 2022-10-20 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008176&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-20 17:17</a>
+
+重，这几个人从yellow submarine一起打就在了，mira后面来的
+
+但打了一年哥几个基本都知道啥样了，问题是c ...</blockquote>
+对的
+
+今年这个情况
+
+傻子都看得出来是整个团队的问题
+
+要换也是换silent<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+除非真的有sumail 奇迹这种级别的天才少年把老东京换了
+
+其他调整也没啥必要
+
+*****
+
+####  syndrome2032  
+##### 19113#       发表于 2022-10-20 17:22
+
+老东京25了，要是走了估计mira也会走。
+
+至于135想不想单飞另外再说。
+

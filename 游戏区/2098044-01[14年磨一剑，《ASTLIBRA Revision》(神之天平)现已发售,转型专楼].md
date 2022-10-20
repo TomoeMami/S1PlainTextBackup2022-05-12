@@ -6421,3 +6421,16 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 作者的一个三消手游MAGICUS</blockquote>
 是说这一对咋画风都不一样<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 594#       发表于 2022-10-20 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005250&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-20 14:59</a>
+昨天卡30一下今天更了个补丁就正常了，果然是补丁打补丁结果出bug了</blockquote>
+今天的是回滚补丁妈的，昨天的更新修好了我切屏卡死的问题今天回滚我又麻了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
