@@ -1951,3 +1951,17 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 转头就在过场里被项羽砍了……你说你图啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tand177  
+##### 169#       发表于 2022-10-21 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58015755&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-20 23:37</a>
+
+剧情里最弱智的一个应该是楚怀王，
+
+开始看小年轻心机辣么深，和帝国串通搞死项梁，又让主角去攻帝都送死 ...</blockquote>
+怀王的动机是可以理解的，手段也是最优解，这里面其实有BUG的是项羽和他舅，正常来讲他舅一个摄政王为什么要听傀儡皇帝的离开都城，其次是项羽，他太强了，实际上等于是一己之力击败了除他之外的所有贵族势力
+

@@ -3215,3 +3215,79 @@ maybe最大的失败就是认了个畜当兄弟。 被他和手下那群集美�
 
 不是说台妹回台湾了么，怎么还在桑海
 
+
+
+*****
+
+####  反方向的波  
+##### 21374#       发表于 2022-10-21 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016128&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-21 00:01</a>
+#TI夜话#
+
+不是说台妹回台湾了么，怎么还在桑海</blockquote>
+苔姨前阵子聪台北飞回来了吧 之前好几天卜上传机车小视频了
+
+*****
+
+####  没钱买手办  
+##### 21375#       发表于 2022-10-21 00:03
+
+耳机砸键盘视频发一下
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  resorry  
+##### 21376#       发表于 2022-10-21 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016016&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-20 23:53</a>
+
+哦，可能也就某个俱乐部的粉丝会帮俱乐部说话了，我说一下阿茶的粉丝群里讨论三大话题让大家乐一下：认新 ...</blockquote>
+鳖鳖卜他妈全是副作用
+
+*****
+
+####  shhekun  
+##### 21377#       发表于 2022-10-21 00:06
+
+怪不得pgl能赚钱，该有的都没有。
+
+*****
+
+####  Litccc  
+##### 21378#       发表于 2022-10-21 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016139&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-21 00:02</a>
+苔姨前阵子聪台北飞回来了吧 之前好几天卜上传机车小视频了</blockquote>
+哦牛逼，漏油还关注台妹的
+
+*****
+
+####  百世诸侯  
+##### 21379#       发表于 2022-10-21 00:07
+
+我爱台妹❤️
+
+*****
+
+####  非建政专用号  
+##### 21380#       发表于 2022-10-21 00:08
+
+憋憋说要让茶队紧急培训几个英语单词?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnwick  
+##### 21381#       发表于 2022-10-21 00:09
+
+集美论坛上发的 https://img.nga.178.com/attachments/mon_202210/20/8xQ8pw6-2qfhXlZ5uT6wS8w-50.mp4?filename=1%5fbilibili%2emp4
+
+*****
+
+####  Kazepollar  
+##### 21382#       发表于 2022-10-21 00:09
+
+我估计明天就有解决方案了，现场延迟15秒就完事儿了
+
