@@ -6349,3 +6349,25 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 面包房姑娘到底啥来头？ 错过了一周目的剧情，一脸懵逼。 还有贤者之塔的两个画风不一样的NPC，续作搞起来呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jy000129  
+##### 589#       发表于 2022-10-20 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006655&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-20 16:08</a>
+
+面包房姑娘到底啥来头？ 错过了一周目的剧情，一脸懵逼。 还有贤者之塔的两个画风不一样的NPC，续作搞起来 ...</blockquote>
+外传主角
+
+*****
+
+####  元气海牛  
+##### 590#       发表于 2022-10-20 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006825&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-20 16:16</a>
+
+外传主角</blockquote>
+原来是作者私货<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
