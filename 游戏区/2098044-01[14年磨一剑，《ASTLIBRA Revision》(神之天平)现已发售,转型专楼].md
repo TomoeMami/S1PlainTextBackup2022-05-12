@@ -6546,3 +6546,16 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 白也太不淑女了，叫醒主角的方式除了把袜子扔脸，内裤扔脸，要不就是坐脸上放p。幸亏新章里红毛整了她一把 ...</blockquote>
 这难道不是奖励吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 606#       发表于 2022-10-20 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58010346&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-20 19:21</a>
+这游戏空中移动方式太多了，三段跳，空中漂浮，永久空中漂浮，空中下降速度降低，空中冲刺…… ...</blockquote>
+还有暗属性第一个凭依
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

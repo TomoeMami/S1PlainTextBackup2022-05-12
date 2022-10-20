@@ -8346,3 +8346,551 @@ dodo哭起来真的是。
 
 这把问题就是起来的那一波没打死，老路中后期不够肥。
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 20610#       发表于 2022-10-20 20:41
+
+算了算了，毕竟生病了，结局也在意料之中，就这么回事吧
+
+
+
+*****
+
+####  樱冢名月  
+##### 20611#       发表于 2022-10-20 20:41
+
+感觉暂停那里和TS绕后走第一个送的第一波就有点悬了。明显状态只比冠后好一点跟第一天没法比
+
+*****
+
+####  adretyu67  
+##### 20612#       发表于 2022-10-20 20:41
+
+预期是打不过，实际也没打过。。
+
+*****
+
+####  Damocles990609  
+##### 20613#       发表于 2022-10-20 20:42
+
+这就是cndota白银时代的葬礼<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 20614#       发表于 2022-10-20 20:42
+
+这把我早说了，要么30分钟之前被推死，要么50分钟之后被拆死，能赢比赛的时间只有20分钟，后面一个小时我都没想过有任何翻盘画面
+
+*****
+
+####  苏沃雷生  
+##### 20615#       发表于 2022-10-20 20:42
+
+都打了两个小时，肯定都有病。最关键的还是为什么拖到了小小转核，但是我们是上帝视角都觉得后面autowin，选手就更不可能意识到了。当然下路上高那波如果TB死前就刷新，那估计也是拿下了，可惜
+
+*****
+
+####  Litccc  
+##### 20616#       发表于 2022-10-20 20:42
+
+平复下心情看明天茶队表演了，感觉大概率打不过液体<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 20617#       发表于 2022-10-20 20:42
+
+；；玉玉了
+
+*****
+
+####  VT1996  
+##### 20618#       发表于 2022-10-20 20:42
+
+那波tb开bkb拿命换一路感觉问题也很大
+
+*****
+
+####  TIZI  
+##### 20619#       发表于 2022-10-20 20:42
+
+4个病人人打快2个小时就别喷了吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  adretyu67  
+##### 20620#       发表于 2022-10-20 20:42
+
+谁去把王蠢鱼埋了呢？明天把国师boom打爆又要抠水了
+
+*****
+
+####  zsu222  
+##### 20621#       发表于 2022-10-20 20:42
+
+大吊明天好好bp 别整蛊求你了
+
+*****
+
+####  TI三冠王AME  
+##### 20622#       发表于 2022-10-20 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一起见证cn dota末法时代到来
+
+*****
+
+####  walfeds  
+##### 20623#       发表于 2022-10-20 20:43
+
+这把z小鬼其实很给机会，决策问题和状态导致后期集中力下降没办法了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 20624#       发表于 2022-10-20 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012107&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-20 20:42</a>
+平复下心情看明天茶队表演了，感觉大概率打不过液体</blockquote>
+aster打瑞典xg我觉得还是有优势的
+不过张志成灵感来了的概率也很大
+
+*****
+
+####  银翼的维罗西  
+##### 20625#       发表于 2022-10-20 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012105&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 20:42</a>
+
+这把我早说了，要么30分钟之前被推死，要么50分钟之后被拆死，能赢比赛的时间只有20分钟，后面一个小时我都 ...</blockquote>
+有的，飞鞋老鹿和飞鞋大屁股带球打对面人不齐，而且那时候兵线优势
+
+*****
+
+####  isla  
+##### 20626#       发表于 2022-10-20 20:43
+
+不理解为啥到最后牛头也没a，多个位移不好吗
+
+*****
+
+####  テロメア  
+##### 20627#       发表于 2022-10-20 20:43
+
+cndota早就是无根之水。
+
+主要这次新世界势力你方唱罢我登场，对比下更加落寞罢了
+
+*****
+
+####  Kazepollar  
+##### 20628#       发表于 2022-10-20 20:43
+
+心碎了漏油<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ACFUNBILI  
+##### 20629#       发表于 2022-10-20 20:43
+
+难受
+
+*****
+
+####  my707776310  
+##### 20630#       发表于 2022-10-20 20:43
+
+我主要是想不明白前边把盾给TB干嘛...
+
+*****
+
+####  Asukalangley33  
+##### 20631#       发表于 2022-10-20 20:44
+
+翻去看了一下黄翔那边的弹幕
+
+一眼3,40岁一年只看TI，客户端上一把6年前，痛心疾首喊着西恩DOTA要DEAD了的弹幕
+
+顺便表达一下自己有懂这个游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+戏好足
+
+*****
+
+####  夏溪澪mio  
+##### 20632#       发表于 2022-10-20 20:44
+
+希望南美夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  方舟失智博士  
+##### 20633#       发表于 2022-10-20 20:44
+
+这个小小转核出圣剑真的果断 没第一把小小圣剑真不好说 相反tb的装备就没灵性多了
+就这样吧 能被暴击秒了 说明命运之神也没眷顾过rng <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  端木恋心  
+##### 20634#       发表于 2022-10-20 20:44
+
+卸腿王明天努努力啊。给我焦阳个舞台，带你们躺。
+
+*****
+
+####  nightmare902015  
+##### 20635#       发表于 2022-10-20 20:44
+
+z小鬼从90分钟开始就没犯错误了，力中暴力的几波稳住局势，非常冒险地冲杀酱油，给卡猴和xnova很大压力但自己都撤回来了。唉，这就是年轻人吧
+
+*****
+
+####  樱冢名月  
+##### 20636#       发表于 2022-10-20 20:44
+
+今天看完，我这个从DAC就粉樱花兄弟的人，其实也看开了，那两个人绝对调整不回来的。特别是叶智标，这届TI感觉已经结束了。
+
+*****
+
+####  bluebaby  
+##### 20637#       发表于 2022-10-20 20:44
+
+偷家是正确的，问题是牛要去断tp的，rng该去多看几遍ti3决胜局
+
+*****
+
+####  憧憬鲨  
+##### 20638#       发表于 2022-10-20 20:44
+
+下路上高那一波的决策非常离谱，不知道陈国康当时到底是个什么打算
+中间在天辉主野区打的两波团也稀烂
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">带病老逼挣扎了半天还是淹死了
+
+*****
+
+####  恐怖利刃  
+##### 20639#       发表于 2022-10-20 20:45
+
+gg采访说现场能听见解说跟观众的声音，开雾偷盾都被报点了
+
+*****
+
+####  ののワ  
+##### 20640#       发表于 2022-10-20 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012105&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 20:42</a>
+
+这把我早说了，要么30分钟之前被推死，要么50分钟之后被拆死，能赢比赛的时间只有20分钟，后面一个小时我都 ...</blockquote>
+有一个小小的窗口期，entity也没太在意上路兵线，同时不敢压死RNG高地的时候，上路兵线到了拿命填拆超级兵，只差中路双兵营和下路远程，出超级兵就换你压ett了
+
+
+
+*****
+
+####  嘴瓢王者  
+##### 20641#       发表于 2022-10-20 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012055&amp;ptid=2099454" target="_blank">haruhiismer 发表于 2022-10-20 20:40</a>
+
+第一个盾就该给ts啊，tb拿盾只能带盾刷钱</blockquote>
+估计是想搞推进节奏，然后没打好，高地都没上。
+
+不过就上帝视角rng肯定有问题，大恶魔这把输出环境真的很堪忧，明显ts更能搏到节奏，杀个ts几次跳刀难产感觉能赢
+
+*****
+
+####  迷途lite  
+##### 20642#       发表于 2022-10-20 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">都这样了，就这样吧
+
+*****
+
+####  苏沃雷生  
+##### 20643#       发表于 2022-10-20 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012139&amp;ptid=2099454" target="_blank">isla 发表于 2022-10-20 20:43</a>
+不理解为啥到最后牛头也没a，多个位移不好吗</blockquote>
+我是觉得A杖没用。RNG两酱油穷得抠脚，就万把块钱，后期直播都切的买活很多人没意识到
+
+*****
+
+####  CVHFGD  
+##### 20644#       发表于 2022-10-20 20:45
+
+这么看打的太稳也不行，有时候还得是打打富贵险中求的操作
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Rorgen  
+##### 20645#       发表于 2022-10-20 20:45
+
+寄希望于鳖星的我觉得还是祈祷A畜回家被飞机发动机卷死吧，这个比较实际
+
+*****
+
+####  枯风瘦雪02  
+##### 20646#       发表于 2022-10-20 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012138&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-20 20:43</a>
+
+有的，飞鞋老鹿和飞鞋大屁股带球打对面人不齐，而且那时候兵线优势</blockquote>
+没有那么好带球的，死灵龙A杖羊刀扫图加上狼人召唤物扯兵线（后面还有魔晶狼），想带到深入的位置反而是自己更好死一点
+
+*****
+
+####  Kazepollar  
+##### 20647#       发表于 2022-10-20 20:46
+
+感觉看了一百分钟有点代入进去了，好难受啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 20648#       发表于 2022-10-20 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012192&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-20 20:45</a>
+gg采访说现场能听见解说跟观众的声音，开雾偷盾都被报点了</blockquote>
+这种没隔音房的比赛简直典中典，csgo那边特维斯特zz借着观众欢呼声跳下外场，对面守外场的人被吵的根本啥都没听见。
+
+*****
+
+####  夏溪澪mio  
+##### 20649#       发表于 2022-10-20 20:46
+
+比赛时的高压状态未必会注意到现场报点，别人能报你也能报，没必要
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tengshuo980  
+##### 20650#       发表于 2022-10-20 20:46
+
+没把握住，有什么好说的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Rorgen  
+##### 20651#       发表于 2022-10-20 20:46
+
+妮们还是太看不起大后期的狼人死灵龙了，哥们天天跟着西恩33哥混，对这俩英雄很有理解好吧
+
+*****
+
+####  horacio  
+##### 20652#       发表于 2022-10-20 20:46
+
+最后entity暂停嘲讽？我看输了难过的都没最后的gg画面
+
+*****
+
+####  TI三冠王AME  
+##### 20653#       发表于 2022-10-20 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012166&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-20 20:44</a>
+
+翻去看了一下黄翔那边的弹幕
+
+一眼3,40岁一年只看TI，客户端上一把6年前，痛心疾首喊着西恩DOTA要DEAD了的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最搞笑的是现在两万贵宾聚集在YYF直播间，YYF在跳伞吃鸡，弹幕在哭青春结束，两边各玩各的
+
+*****
+
+####  帽子戏法马夏尔  
+##### 20654#       发表于 2022-10-20 20:47
+
+夜跑去了，兄弟们，现在回家换鞋
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  夜光铃  
+##### 20655#       发表于 2022-10-20 20:47
+
+今年看来会是有史以来西恩ti最差成绩了
+
+*****
+
+####  蛭人  
+##### 20656#       发表于 2022-10-20 20:47
+
+DAC2版本是樱花兄弟最爽的版本，甚至在硬实力最强的一届major还能和VP把手腕，可惜没有超越，反观厨子基辅一战成名，ti7雪崩后，又在ti89迎来最适合自己的队友大腿普森，偷了处长两个盾。
+
+*****
+
+####  Litccc  
+##### 20657#       发表于 2022-10-20 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012252&amp;ptid=2099454" target="_blank">horacio 发表于 2022-10-20 20:46</a>
+
+最后entity暂停嘲讽？我看输了难过的都没最后的gg画面</blockquote>
+Entity官推说是fishman太激动砸键盘的时候不小心按到了
+
+*****
+
+####  VanArkride  
+##### 20658#       发表于 2022-10-20 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012252&amp;ptid=2099454" target="_blank">horacio 发表于 2022-10-20 20:46</a>
+最后entity暂停嘲讽？我看输了难过的都没最后的gg画面</blockquote>
+冰魂暂停了
+
+*****
+
+####  思考者的迷  
+##### 20659#       发表于 2022-10-20 20:48
+
+明天送LGD 后天送阿茶了
+
+*****
+
+####  莉拉厨  
+##### 20660#       发表于 2022-10-20 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012252&amp;ptid=2099454" target="_blank">horacio 发表于 2022-10-20 20:46</a>
+
+最后entity暂停嘲讽？我看输了难过的都没最后的gg画面</blockquote>
+没嘲讽 就是fishman戏来了暂停，可能打算发点什么没发出来，然后玮哥开了后打gg
+
+*****
+
+####  银翼的维罗西  
+##### 20661#       发表于 2022-10-20 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012221&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 20:45</a>
+
+没有那么好带球的，死灵龙A杖羊刀扫图加上狼人召唤物扯兵线（后面还有魔晶狼），想带到深入的位置反而是 ...</blockquote>
+要我说老鹿中期开始冲脸让牛头和TB发挥随便打，但是又有中冰魂大被秒的风险，但是你不冒风险给对面压力还想赢，带球已经算风险小的一种了
+
+*****
+
+####  nowaki  
+##### 20662#       发表于 2022-10-20 20:48
+
+砸键盘还能这么精准的
+
+*****
+
+####  樱冢名月  
+##### 20663#       发表于 2022-10-20 20:48
+
+第一波TB被秒，没推下来，马后炮来说，就很悬了。那时候就打定主意拖死你了。看的时候心里真的想着不要被秒，不要死在高地后，队友怎么上来救，结果想什么来什么。真的吐了。
+
+*****
+
+####  shhekun  
+##### 20664#       发表于 2022-10-20 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012252&amp;ptid=2099454" target="_blank">horacio 发表于 2022-10-20 20:46</a>
+
+最后entity暂停嘲讽？我看输了难过的都没最后的gg画面</blockquote>
+没现场画面，大概率暂停嘲讽，小概率庆祝不小心按错键了。
+
+我觉得还是得扣他们的bp时间，虽然可能是无意的。
+
+*****
+
+####  憧憬鲨  
+##### 20665#       发表于 2022-10-20 20:49
+
+不好救吧，我感觉队友上去了大概率这把提前几十分钟结束
+
+*****
+
+####  leader01234  
+##### 20666#       发表于 2022-10-20 20:49
+
+我还是受不了冠晴这个lich。tbbkb拆塔被丢我都能理解他是想趁双倍强拆，操作时候大脑当机没按过来。这lich我是真没想到就一个加冰盾的操作压力下他的大脑在想什么
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  JoelBirch  
+##### 20667#       发表于 2022-10-20 20:49
+
+没玻璃房真的很傻逼
+
+*****
+
+####  nowaki  
+##### 20668#       发表于 2022-10-20 20:50
+
+dota信息量这么大的游戏，还想着听观众声音报点我算他牛逼，这脑子得十核驱动吧
+
+*****
+
+####  枯风瘦雪02  
+##### 20669#       发表于 2022-10-20 20:50
+
+我是觉得现在再没啥真核了，dota2孜孜不倦地砍物理的输出能力，提升酱油的生存能力，现在再肥的大哥也就BKB的六秒输出时间，没有团队的控制不出大炮几乎没啥可能稳定点杀对手，打木桩的输出能力完全只能用来打嘴炮转化不出实战效果
+
+*****
+
+####  不应  
+##### 20670#       发表于 2022-10-20 20:50
+
+50分钟的时候还是觉得随便打的，毕竟后期还是rng厉害。真没想到打到了100分钟的后期
+
+
+
+*****
+
+####  walfeds  
+##### 20671#       发表于 2022-10-20 20:50
+
+该给大脑降降温了漏油们<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  c88711611  
+##### 20672#       发表于 2022-10-20 20:50
+
+只能说没那个命，没有新冠，进了胜者组，完全不一样的心态，不一样的状态
+
+*****
+
+####  nightmare902015  
+##### 20673#       发表于 2022-10-20 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012339&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 20:50</a>
+我是觉得现在再没啥真核了，dota2孜孜不倦地砍物理的输出能力，提升酱油的生存能力，现在再肥的大哥也就BKB ...</blockquote>
+这就是虚空jugg这种核心牛逼的地方了。
+
+*****
+
+####  NaYo丶  
+##### 20674#       发表于 2022-10-20 20:50
+
+这个队的中单死灵龙感觉是绝中绝
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  樱冢名月  
+##### 20675#       发表于 2022-10-20 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012281&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-20 20:47</a>
+
+DAC2版本是樱花兄弟最爽的版本，甚至在硬实力最强的一届major还能和VP把手腕，可惜没有超越，反观厨子基辅 ...</blockquote>
+那年看到XXS的猛犸是真的很感动，感觉未来是他的。结果TI7打完以后这所有的时间，只想让他把感动还给我。
+
