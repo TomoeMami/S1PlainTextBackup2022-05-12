@@ -86,3 +86,12 @@
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  KOPKOM  
+##### 1939#         楼主| 发表于 2022-10-20 16:45
+
+话说一开始推轮椅出来的是不是君望里把孝之关在地下室调教的那位啊？
+

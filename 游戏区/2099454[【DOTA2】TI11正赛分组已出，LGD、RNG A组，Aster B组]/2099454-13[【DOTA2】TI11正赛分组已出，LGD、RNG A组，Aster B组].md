@@ -6688,3 +6688,1178 @@ gg咯
 
 寄咯。
 
+
+
+*****
+
+####  isla  
+##### 18803#       发表于 2022-10-20 16:42
+
+马尔斯大三个
+
+*****
+
+####  snarc1  
+##### 18804#       发表于 2022-10-20 16:42
+
+寄了，这影魔攻速加起来拆的太快了
+
+*****
+
+####  外挂全家脚气  
+##### 18805#       发表于 2022-10-20 16:42
+
+已经结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 18806#       发表于 2022-10-20 16:42
+
+回家回家
+
+*****
+
+####  甩不出去的黄牌  
+##### 18807#       发表于 2022-10-20 16:42
+
+这可能就是献祭吧，得到了什么，又是失去了什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  茜卓娜拉  
+##### 18808#       发表于 2022-10-20 16:43
+
+双倍影魔真是不讲道理。。。。这马尔斯玩的有点秀，BOOM可以啊
+
+*****
+
+####  ArowRocher  
+##### 18809#       发表于 2022-10-20 16:43
+
+A组荣耀！
+
+*****
+
+####  迷途lite  
+##### 18810#       发表于 2022-10-20 16:43
+
+靠，目前为止只预测对了秘密赢lgd
+
+
+
+*****
+
+####  zhrs456  
+##### 18811#       发表于 2022-10-20 16:43
+
+脑东京状态太差了 这TS根本没打出作用
+
+*****
+
+####  人別離苦  
+##### 18812#       发表于 2022-10-20 16:43
+
+剔头真的有用！
+
+*****
+
+####  a1370303  
+##### 18813#       发表于 2022-10-20 16:43
+
+回家啰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  枯风瘦雪02  
+##### 18814#       发表于 2022-10-20 16:43
+
+这两天都是这样的，崩溃做完工作装让经济加尝试带节奏，但是带不起来，然后崩溃越来越穷，yatoro也刷不到统治比赛，老东京后期拿着钱没用处，赌奇迹团失败被闷杀
+
+*****
+
+####  fananaf  
+##### 18815#       发表于 2022-10-20 16:43
+
+我错了，sf牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  少年游不游  
+##### 18816#       发表于 2022-10-20 16:43
+
+处刑了
+
+*****
+
+####  Crazy_Knife  
+##### 18817#       发表于 2022-10-20 16:43
+
+Ti10冠军已经回家了，亚军还要多久呢
+
+*****
+
+####  Rorgen  
+##### 18818#       发表于 2022-10-20 16:43
+
+这马尔斯也贴猛了
+
+*****
+
+####  方舟失智博士  
+##### 18819#       发表于 2022-10-20 16:43
+
+好厉害啊 这比赛好看啊 比lgd的比赛好看
+
+*****
+
+####  4591  
+##### 18820#       发表于 2022-10-20 16:43
+
+雪碧,寄.由扒鸡总算体现出本赛季前半412的水平
+
+*****
+
+####  windtrack_qh  
+##### 18821#       发表于 2022-10-20 16:43
+
+LGD：要不我们下去先把雪碧锤了吧 
+
+雪碧：你想的太多了
+
+*****
+
+####  fopinecone  
+##### 18822#       发表于 2022-10-20 16:43
+
+太帅了BOOM！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sepcorvus  
+##### 18823#       发表于 2022-10-20 16:44
+
+败者组的bo1刺激。
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  夏溪澪mio  
+##### 18824#       发表于 2022-10-20 16:44
+
+lgd不打我也不打了
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  やト  
+##### 18825#       发表于 2022-10-20 16:44
+
+  舒服 雪碧也滚蛋了
+
+*****
+
+####  食粪者  
+##### 18826#       发表于 2022-10-20 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">这就是蹭撸狗的下场
+
+*****
+
+####  北欧王座  
+##### 18827#       发表于 2022-10-20 16:44
+
+雪碧的夏天结束了
+
+*****
+
+####  端木恋心  
+##### 18828#       发表于 2022-10-20 16:44
+
+雪碧真的眼角有泪了
+
+*****
+
+####  usoda  
+##### 18829#       发表于 2022-10-20 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">服了 “世界杯魔咒”
+
+*****
+
+####  朝游北海  
+##### 18830#       发表于 2022-10-20 16:44
+
+完了，LGD应该可以挺进下一局了
+
+*****
+
+####  xz_04  
+##### 18831#       发表于 2022-10-20 16:44
+
+集美们不会以为 BOOM 比雪碧好打吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 18832#       发表于 2022-10-20 16:44
+
+这下yatoro说偶像是ame没人觉得阴阳怪气了吧，粉随正主
+
+*****
+
+####  iceplatinum  
+##### 18833#       发表于 2022-10-20 16:44
+
+哈哈，雪碧先败了。b组第一个被淘汰
+
+*****
+
+####  lmslardar  
+##### 18834#       发表于 2022-10-20 16:44
+
+兄弟们 剃头真的有用
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  苏沃雷生  
+##### 18835#       发表于 2022-10-20 16:44
+
+这离上个major这么短，咋鱼得这么快呢
+
+*****
+
+####  难怪大神都走了  
+##### 18836#       发表于 2022-10-20 16:44
+
+dota之神真的是个光头！
+
+*****
+
+####  izayoi39  
+##### 18837#       发表于 2022-10-20 16:44
+
+崩溃哥是个大号版xxs啊，这个版本3号位需要当工具人的打法崩溃哥是真玩不来的
+
+*****
+
+####  无恨  
+##### 18838#       发表于 2022-10-20 16:44
+
+BOOM好像是被EG抬上去的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那场我没看
+
+下场再淘汰LGD
+
+*****
+
+####  越动天下  
+##### 18839#       发表于 2022-10-20 16:44
+
+脑东京伏着下颚 
+
+*****
+
+####  超法拉  
+##### 18840#       发表于 2022-10-20 16:44
+
+这脑东京 这种局势老鹿不出个魔晶?刚才有魔晶那波说不定真杀了，活该回家啊
+
+
+
+*****
+
+####  fananaf  
+##### 18841#       发表于 2022-10-20 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007324&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-20 16:43</a>
+
+脑东京状态太差了 这TS根本没打出作用</blockquote>
+经济被黑鸟分了很多，ts这英雄没经济就是废物了
+
+*****
+
+####  TIZI  
+##### 18842#       发表于 2022-10-20 16:44
+
+绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+面八打国师有一手的，二轮游不现实了啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  米德  
+##### 18843#       发表于 2022-10-20 16:44
+
+兄弟们 剃头真的有用
+
+*****
+
+####  RGm  
+##### 18844#       发表于 2022-10-20 16:44
+
+这个卫冕冠军真是菜啊。选的什么几把阵容。
+
+*****
+
+####  非建政专用号  
+##### 18845#       发表于 2022-10-20 16:44
+
+我建议东欧bc认清谁是大哥<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Imanmi  
+##### 18846#       发表于 2022-10-20 16:44
+
+哇集美这都能起跳的吗？还锤雪碧？你比雪碧还菜！
+
+*****
+
+####  lyjssj  
+##### 18847#       发表于 2022-10-20 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说你是卫冕冠军加major冠军加石油杯亚军有什么用
+
+改回的家要回呀
+
+*****
+
+####  Sabbah  
+##### 18848#       发表于 2022-10-20 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006082&amp;ptid=2099454" target="_blank">Sabbah 发表于 2022-10-20 15:40</a>
+
+你永远可以相信蔡宜风的bo1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">相信
+
+*****
+
+####  莉拉厨  
+##### 18849#       发表于 2022-10-20 16:44
+
+不去适应版本，好似！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天姬Angelotte  
+##### 18850#       发表于 2022-10-20 16:44
+
+可以藏到TI12了
+
+*****
+
+####  战狼PTSD  
+##### 18851#       发表于 2022-10-20 16:45
+
+兄弟们 剃头真的有用
+
+*****
+
+####  windhawind2  
+##### 18852#       发表于 2022-10-20 16:45
+
+常打四加二的感受是 黑鸟关就是个秀起来花里胡哨 但是最后关头被被动哥平a打的摸不着北的技能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  哈曼的YY  
+##### 18853#       发表于 2022-10-20 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">尼玛的 上届冠军都这么惨的吗
+
+boom看起来也不像能宰畜的 难受
+
+*****
+
+####  夏溪澪mio  
+##### 18854#       发表于 2022-10-20 16:45
+
+我赛况冠军填的红龙，赛事冠军填的雪碧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 18855#       发表于 2022-10-20 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年的卫冕冠军队道崩的有点快
+
+*****
+
+####  超人苏坦纳  
+##### 18856#       发表于 2022-10-20 16:45
+
+哇 老干瘪败者一轮游吧 创造历史 让boom双杀冠亚 
+
+*****
+
+####  izayoi39  
+##### 18857#       发表于 2022-10-20 16:45
+
+崩溃哥在下路待得时间那么长又没有推塔能力来压制对面野区
+
+*****
+
+####  roxas.sora  
+##### 18858#       发表于 2022-10-20 16:45
+
+国师要送八王上飞机了么
+
+*****
+
+####  百世诸侯  
+##### 18859#       发表于 2022-10-20 16:45
+
+这支雪碧应该要散了吧
+
+*****
+
+####  Cookiekira  
+##### 18860#       发表于 2022-10-20 16:45
+
+我的崩溃哥<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  万世创伤伊莫库  
+##### 18861#       发表于 2022-10-20 16:45
+
+干瘪雪碧ETT这几个互练的全部遭重，我感觉RNG很有机会啊XDM
+
+*****
+
+####  Rorgen  
+##### 18862#       发表于 2022-10-20 16:45
+
+ts完全不会老鹿小强，强拿是这样的呀
+
+*****
+
+####  dclara1  
+##### 18863#       发表于 2022-10-20 16:45
+
+偿还偿还
+
+*****
+
+####  fopinecone  
+##### 18864#       发表于 2022-10-20 16:46
+
+兄弟们 剃头真的有用
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  端木恋心  
+##### 18865#       发表于 2022-10-20 16:46
+
+有一说一boom打不过lgd吧。
+
+*****
+
+####  IG.430  
+##### 18866#       发表于 2022-10-20 16:46
+
+这就是蹭撸狗的下场
+
+*****
+
+####  isla  
+##### 18867#       发表于 2022-10-20 16:46
+
+一边两个2，一边两个3，这次ti真实神经
+
+*****
+
+####  外挂全家脚气  
+##### 18868#       发表于 2022-10-20 16:46
+
+A组荣耀由我第8名BOOM来守护<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枯风瘦雪02  
+##### 18869#       发表于 2022-10-20 16:46
+
+开赛这么多天了雪碧就没有调整过，他们最喜欢的节奏已经被赛事证明保证不了胜利了他们也不做改变，那就继续这么顺理成章地走向失败吧
+
+*****
+
+####  河水  
+##### 18870#       发表于 2022-10-20 16:46
+
+所以major不能拿啊
+
+
+
+*****
+
+####  迷途lite  
+##### 18871#       发表于 2022-10-20 16:46
+
+这下偿还了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  43453  
+##### 18872#       发表于 2022-10-20 16:46
+
+被马尔斯送上飞机了啊，还不如自己玩！
+
+*****
+
+####  iriyano  
+##### 18873#       发表于 2022-10-20 16:46
+
+有一说一major不是a畜雪碧绝对赢不了的，结果赢了给自己错觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然我觉得boom赢不了所以预测了雪碧，boom加油！
+
+*****
+
+####  北欧王座  
+##### 18874#       发表于 2022-10-20 16:46
+
+靠三号位这版本很难赢比赛。
+
+*****
+
+####  百世诸侯  
+##### 18875#       发表于 2022-10-20 16:46
+
+冷知识，RNG也是互练几兄弟的一员
+
+*****
+
+####  fopinecone  
+##### 18876#       发表于 2022-10-20 16:46
+
+仙贝植发 boom剃头 胜负不用我多说了吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  南风尧  
+##### 18877#       发表于 2022-10-20 16:46
+
+开会没看啊。雪碧崩的比lgd还崩啊
+
+*****
+
+####  fananaf  
+##### 18878#       发表于 2022-10-20 16:46
+
+有一说一，雪碧两个盾送得太怂了，该拼得团要拼啊
+
+*****
+
+####  你可以试试  
+##### 18879#       发表于 2022-10-20 16:46
+
+这运营得也太鳖了，永远怕有盾影魔，永远不肯打一波正面
+
+*****
+
+####  白野苍衣  
+##### 18880#       发表于 2022-10-20 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">major冠军加卫冕冠军一轮游  真是邪了门了
+
+*****
+
+####  情商  
+##### 18881#         楼主| 发表于 2022-10-20 16:46
+
+蹭撸狗是这样的
+
+*****
+
+####  莉拉厨  
+##### 18882#       发表于 2022-10-20 16:46
+
+讲道理小组赛打了个2:0boom确实打不过，感觉lgd可以准备和eg会面了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雅朵莉雀  
+##### 18883#       发表于 2022-10-20 16:46
+
+yupaj！yupaj！
+
+这盘yupaj的表演也太漂亮了，后面每个大都是矛大
+
+这是我第一次在职业比赛上看到有人跳刀回头矛大，太他妈帅了
+
+*****
+
+####  RGm  
+##### 18884#       发表于 2022-10-20 16:47
+
+指望boom干死水厂有点困难，还是期待eg吧。
+
+*****
+
+####  proselyte  
+##### 18885#       发表于 2022-10-20 16:47
+
+b组真妖
+
+*****
+
+####  甩不出去的黄牌  
+##### 18886#       发表于 2022-10-20 16:47
+
+这是ti前major的冠军啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maju3  
+##### 18887#       发表于 2022-10-20 16:47
+
+蹭撸狗是这样的
+
+*****
+
+####  夏溪澪mio  
+##### 18888#       发表于 2022-10-20 16:47
+
+妈的，雪碧上次major逆版本夺冠也给了他能连冠的错觉
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ysasz  
+##### 18889#       发表于 2022-10-20 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007419&amp;ptid=2099454" target="_blank">万世创伤伊莫库 发表于 2022-10-20 16:45</a>
+
+干瘪雪碧ETT这几个互练的全部遭重，我感觉RNG很有机会啊XDM</blockquote>
+RNG的问题是人能不能打
+
+*****
+
+####  坚定的团子党  
+##### 18890#       发表于 2022-10-20 16:47
+
+这支雪碧感觉也要散了，12345都变菜了，这时就需要踢人，不管是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  belldandy_ye  
+##### 18891#       发表于 2022-10-20 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007129&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 16:33</a>
+
+以前都是collapse先手把人送队友脸上杀，现在要其他人打先手就是这个便秘样好吧 ...</blockquote>
+雪碧这个队的死穴就是4-5的进攻性太差了，双辅助都不会打先手，3号位拿不到开团英雄团战没法打.
+
+*****
+
+####  越动天下  
+##### 18892#       发表于 2022-10-20 16:47
+
+哇 漏油 我发现我的预测错光了 就对一个lgd呀 其他一个不对呀
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 幻想风靡_| + 1|我也是，相信哥哥|
+
+查看全部评分
+
+*****
+
+####  幻想风靡_  
+##### 18893#       发表于 2022-10-20 16:47
+
+看看B组谁先丢脸
+
+*****
+
+####  月亮与五块钱  
+##### 18894#       发表于 2022-10-20 16:47
+
+你说雪碧实力不行，别人是刚拿了国际赛事一亚一冠，败者组打只鸡都能一轮游谁想得到。
+
+猴子也许能写出莎士比亚，但填不准TI预测
+
+*****
+
+####  smlszh  
+##### 18895#       发表于 2022-10-20 16:47
+
+<img src="https://img.saraba1st.com/forum/202210/20/164729xjoo29r9g1q8u8ae.png" referrerpolicy="no-referrer">
+
+<strong>相信lgd.png</strong> (149.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 16:47 上传
+
+吐了预测除了lgd都错了
+
+只能相信lgd了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 18896#       发表于 2022-10-20 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007459&amp;ptid=2099454" target="_blank">雅朵莉雀 发表于 2022-10-20 16:46</a>
+yupaj！yupaj！
+
+这盘yupaj的表演也太漂亮了，后面每个大都是矛大
+
+这是我第一次在职业比赛上看到有人跳刀回 ...</blockquote>
+有无解肥影魔拍塔兜底，他纯粹就是上去秀操作
+
+*****
+
+####  Suny08  
+##### 18897#       发表于 2022-10-20 16:47
+
+B组耻辱是你啊雪碧，我吐了
+
+*****
+
+####  NaYo丶  
+##### 18898#       发表于 2022-10-20 16:47
+
+尬黑了 崩溃哥马尔斯还是矛大过的本届ti
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 18899#       发表于 2022-10-20 16:48
+
+41马尔斯最后倒在马尔斯茅下，令人唏嘘
+
+*****
+
+####  nowaki  
+##### 18900#       发表于 2022-10-20 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哥们小组赛就看出来雪碧一轮游了好吧
+
+
+
+*****
+
+####  Crazy_Knife  
+##### 18901#       发表于 2022-10-20 16:48
+
+雪碧真是菜的没法直视，感觉基本没给boom造成过什么威胁，休了两天就这也是没戏
+
+*****
+
+####  百世诸侯  
+##### 18902#       发表于 2022-10-20 16:48
+
+还好窝相信BC，多对了一个
+
+*****
+
+####  齐柏林轰炸机  
+##### 18903#       发表于 2022-10-20 16:48
+
+应该五点半多一点到rng
+
+*****
+
+####  苏沃雷生  
+##### 18904#       发表于 2022-10-20 16:48
+
+菜宜风是面八杏奴+1
+
+*****
+
+####  嘴瓢王者  
+##### 18905#       发表于 2022-10-20 16:48
+
+不是boom打的好?前期对线两路优，运营完全不给雪碧机会，影魔马尔斯萨尔发挥完美。
+
+lgd不好好调整拿到线优gg真的不好打，gg这个队现在状态比小组赛好
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  枯风瘦雪02  
+##### 18906#       发表于 2022-10-20 16:48
+
+Mira这局的先手简直是个笑话，无意义的跳刺后退，Yatoro还浪费了好多时间爬在小强身上不打钱
+
+*****
+
+####  万世创伤伊莫库  
+##### 18907#       发表于 2022-10-20 16:49
+
+<blockquote>ysasz 发表于 2022-10-20 16:47
+RNG的问题是人能不能打</blockquote>
+哎，也是……
+
+*****
+
+####  nxmonitor  
+##### 18908#       发表于 2022-10-20 16:49
+
+BOOM的实力真的不是很强，老实打自己擅长的老套路赢面也比较大，TS直接把自己弄进去了……
+
+*****
+
+####  iriyano  
+##### 18909#       发表于 2022-10-20 16:49
+
+还好窝相信BC，多对了一个
+妈的但是我预测的eg赢秘密我的预测之路已经结束了
+
+*****
+
+####  isla  
+##### 18910#       发表于 2022-10-20 16:49
+
+四把预测全错
+
+*****
+
+####  Rorgen  
+##### 18911#       发表于 2022-10-20 16:49
+
+感觉collapse该出走了，碰到自己兜不住的版本这四个队友真的不行
+
+*****
+
+####  zyw0  
+##### 18912#       发表于 2022-10-20 16:49
+
+集美们，剃头真的有用
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  百世诸侯  
+##### 18913#       发表于 2022-10-20 16:50
+
+boom斩了雪碧士气加成，而窝已经能猜到老干鳖休息室已经冰河时代了，都不好说好吧
+
+*****
+
+####  Kazepollar  
+##### 18914#       发表于 2022-10-20 16:50
+
+个人感觉ts的双辅助确实不行，没啥进攻性。整个队的节奏依靠collapse
+
+*****
+
+####  nowaki  
+##### 18915#       发表于 2022-10-20 16:50
+
+除了崩溃这四个队友都是战犯好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 18916#       发表于 2022-10-20 16:50
+
+崩溃自己英雄池也有问题，该会的还是要会
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  耐赫伊勒缇  
+##### 18917#       发表于 2022-10-20 16:50
+
+好呀，两级半没了呀
+
+<img src="https://img.saraba1st.com/forum/202210/20/164950f21ly7rbyzzu20ml.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (99.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 16:49 上传
+
+看了下预测，竞猜指北
+
+<img src="https://img.saraba1st.com/forum/202210/20/164950tjjhl3vl6p6e2yjm.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (85.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 16:49 上传
+
+*****
+
+####  Rorgen  
+##### 18918#       发表于 2022-10-20 16:50
+
+cis本届ti最好成绩13-16名
+
+*****
+
+####  Django  
+##### 18919#       发表于 2022-10-20 16:50
+
+预测作业目前全灭，让我看看下一个死的是谁
+
+*****
+
+####  snarc1  
+##### 18920#       发表于 2022-10-20 16:50
+
+脑东京ts实在不行
+
+*****
+
+####  NaYo丶  
+##### 18921#       发表于 2022-10-20 16:50
+
+这只雪碧该散了吧 不知道要退役几个
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Suny08  
+##### 18922#       发表于 2022-10-20 16:51
+
+<img src="https://img.saraba1st.com/forum/202210/20/165024ko7squkq50i22hkw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>62165B3A-6B24-4753-AFE0-B1825557A94E.jpeg</strong> (17.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 16:50 上传
+
+雪碧最想杀的应该是eg 吧，放水放了个爹上来
+
+*****
+
+####  憧憬鲨  
+##### 18923#       发表于 2022-10-20 16:51
+
+建议老东京带着奖金回去继续读大学
+
+*****
+
+####  maju3  
+##### 18924#       发表于 2022-10-20 16:51
+
+玩偶姐姐是你吗
+
+*****
+
+####  Crazy_Knife  
+##### 18925#       发表于 2022-10-20 16:51
+
+这把崩溃也没啥作用啊，这黑鸟要啥没啥，突出一个有你没你没区别
+
+*****
+
+####  Aeons  
+##### 18926#       发表于 2022-10-20 16:51
+
+雪碧从小组赛到回家局，要么就是线劣被碾，要么就是打出点小优势，然后塔盾全放，怎么不把基地也放了。
+
+*****
+
+####  Rorgen  
+##### 18927#       发表于 2022-10-20 16:51
+
+collapse去西欧吧，能考上医学院，英语应该过关的
+
+*****
+
+####  izayoi39  
+##### 18928#       发表于 2022-10-20 16:51
+
+boom其实前期打得挺差，给雪碧很大机会了，但是崩溃哥占线时间太长这段优势期被他们放过了，影魔控了1代盾就无限好打了
+
+*****
+
+####  北欧王座  
+##### 18929#       发表于 2022-10-20 16:51
+
+崩溃出走他也得打工具人啊。。。他不会打咋办嘛
+
+*****
+
+####  星野航  
+##### 18930#       发表于 2022-10-20 16:51
+
+没辙，这届自打开打第二天，ts就是这个状态了
+
+老东京中路垃圾桶+稀烂对线状态，yatoro脑子里不知道想啥，4，5游走不顺视野铺不开，四兄弟靠collapse一手带躺，然后就是憋着刷钱
+
+刷到对面拿了一代盾，拆了三个塔，拿了二代盾拆了三个塔，高地打一波，输了
+
+只能说打完阿灵顿放假一个月真的放出事，这游戏还是这样，新版本一场比赛没打，上来肯定是要凉凉，管你是不是ti卫冕冠军还是major冠军
+
+这班子感觉明年也见不到了，只能说再见了
+
+Illuya，Sanya，Maga，Mira and Yarik
+
+
+
+*****
+
+####  lyjssj  
+##### 18931#       发表于 2022-10-20 16:51
+
+既然要回家了，雪碧队内是不是要把攒了一年的基辅major打一下
+
+*****
+
+####  walfeds  
+##### 18932#       发表于 2022-10-20 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007550&amp;ptid=2099454" target="_blank">耐赫伊勒缇 发表于 2022-10-20 16:50</a>
+
+好呀，两级半没了呀
+
+看了下预测，竞猜指北</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以可以
+
+*****
+
+####  一品堂官  
+##### 18933#       发表于 2022-10-20 16:52
+
+这就没了嘛 看好的只剩茶队了<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 18934#       发表于 2022-10-20 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007575&amp;ptid=2099454" target="_blank">Suny08 发表于 2022-10-20 16:51</a>
+雪碧最想杀的应该是eg 吧，放水放了个爹上来</blockquote>
+也没啥意义，就算能跟qc打也就是多走一轮，雪碧这种表现只会沦为lgd虐杀时集美吹嘘的资本
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 18935#       发表于 2022-10-20 16:52
+
+打到现在秘密这老牌强队的含金量越来越高了啊
+
+*****
+
+####  Lorraine_Kinney  
+##### 18936#       发表于 2022-10-20 16:52
+
+雪碧在机场藏了个黑鸟，等着LGD
+
+*****
+
+####  枯风瘦雪02  
+##### 18937#       发表于 2022-10-20 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007575&amp;ptid=2099454" target="_blank">Suny08 发表于 2022-10-20 16:51</a>
+
+雪碧最想杀的应该是eg 吧，放水放了个爹上来</blockquote>
+不是倒在这队就是倒在那队，这个版本雪碧不知道怎么赢的，小组赛赌了一辈子奇迹团翻盘，哪有这么便宜的好事哦
+
+*****
+
+####  反方向的波  
+##### 18938#       发表于 2022-10-20 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007575&amp;ptid=2099454" target="_blank">Suny08 发表于 2022-10-20 16:51</a>
+雪碧最想杀的应该是eg 吧，放水放了个爹上来</blockquote>
+那eg也想杀雪碧马，迅雷能上去有雪碧在小组赛疯狂和平鸽一份功劳
+
+*****
+
+####  sodah  
+##### 18939#       发表于 2022-10-20 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">崩溃哥
+
+*****
+
+####  Rorgen  
+##### 18940#       发表于 2022-10-20 16:52
+
+我没觉得三号位黑鸟这么打有问题啊，bp出来就只能这么打，撒也不懂
+
+*****
+
+####  StrangerJ  
+##### 18941#       发表于 2022-10-20 16:52
+
+好呀，上班时间都在用客户端是吧
+
+*****
+
+####  憧憬鲨  
+##### 18942#       发表于 2022-10-20 16:52
+
+Puppy这老逼为什么总能找到顶级队友
+
+*****
+
+####  iceplatinum  
+##### 18943#       发表于 2022-10-20 16:52
+
+感觉就是bp被人读到了，抢走兽王，崩溃哥就没作用了
+
+*****
+
+####  Avantasi  
+##### 18944#       发表于 2022-10-20 16:53
+
+再见了，所有的毛子战队
+
+*****
+
+####  Jooohnny  
+##### 18945#       发表于 2022-10-20 16:53
+
+<img src="https://img.saraba1st.com/forum/202210/20/165310sxojxvhvyjwwy8rz.png" referrerpolicy="no-referrer">
+
+<strong>~Q(A~MT7$A45H8B@F%7XVKD.png</strong> (58.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 16:53 上传
+
+*****
+
+####  安斧天高辽  
+##### 18946#       发表于 2022-10-20 16:53
+
+希望蔡国师努把力，明天指挥小弟把A畜宰了
+

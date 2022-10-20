@@ -6400,3 +6400,24 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 作者的一个三消手游MAGICUS
 
+
+
+*****
+
+####  NEO·ZERO  
+##### 592#       发表于 2022-10-20 16:43
+
+完了，第五章进城堡前选了带小姑娘一起走（虽然剧情看出她是白了……）
+
+然后存档覆盖了，是不是她必死了………………？
+
+*****
+
+####  元气海牛  
+##### 593#       发表于 2022-10-20 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007203&amp;ptid=2098044" target="_blank">后会莫急 发表于 2022-10-20 16:37</a>
+
+作者的一个三消手游MAGICUS</blockquote>
+是说这一对咋画风都不一样<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
