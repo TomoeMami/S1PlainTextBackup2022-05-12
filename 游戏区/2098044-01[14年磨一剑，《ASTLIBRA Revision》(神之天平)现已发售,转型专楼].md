@@ -6559,3 +6559,20 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  何处分可  
+##### 607#       发表于 2022-10-20 21:30
+
+<img src="https://img.saraba1st.com/forum/202210/20/212934kvlcowf3zh3gohgw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (274.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 21:29 上传
+
+第二章这个洞窟里面的宝箱怎么拿，还有右上的高台和标志怎么拿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
