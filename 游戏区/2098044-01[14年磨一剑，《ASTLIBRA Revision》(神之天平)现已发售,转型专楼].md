@@ -6159,3 +6159,14 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  shimotsuki14  
+##### 570#       发表于 2022-10-20 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997856&amp;ptid=2098044" target="_blank">soranoguiji 发表于 2022-10-20 07:35</a>
+弓我记得一开始就能拿了啊，好像有个山需要二段跳过去然后地面有个箭头按上有个宝箱 ...</blockquote>
+淦！一直没注意到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">还在想一章二章的光靠扔箭怎么搞的到空中的靶子
+
