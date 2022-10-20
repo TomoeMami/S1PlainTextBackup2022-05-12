@@ -2445,3 +2445,12 @@ job子好可爱，青梅和黑皮不在一个学校要怎么入部
 
 等队友召集完毕，主题暂时还没出现和其他钓鱼露营轻百合一样有趣的手工内容
 
+
+
+*****
+
+####  luciferion  
+##### 200#       发表于 2022-10-20 23:21
+
+May the Force be with you笑死，多语言的语音识别日常弱智<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
