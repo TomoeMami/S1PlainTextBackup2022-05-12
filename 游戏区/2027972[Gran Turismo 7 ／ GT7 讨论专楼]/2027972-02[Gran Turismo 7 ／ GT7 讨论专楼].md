@@ -120,3 +120,17 @@ gt7的每日竞赛还是全是公路赛吗，有拉力吗</blockquote>
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  fcssnake  
+##### 1692#       发表于 2022-10-20 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998436&amp;ptid=2027972" target="_blank">扑克脸军曹 发表于 2022-10-20 09:06</a>
+
+撒丁岛800pp、勒芒700pp，东京高600pp
+
+难度：撒丁岛撒丁岛</blockquote>
+不对吧，效率是撒丁岛&gt;勒芒才是
+
