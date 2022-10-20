@@ -519,3 +519,16 @@ PC大屏听歌对味，AA快下池
 
 每天上去收次菜 能打就打不能打就关游戏
 
+
+
+*****
+
+####  南淮四时月  
+##### 64#       发表于 2022-10-21 01:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016143&amp;ptid=2068560" target="_blank">minto24 发表于 2022-10-21 00:02</a>
+这游戏应该是有氪金隔离的  你白嫖微氪根本碰不到氪佬 都不在一个境界
+
+每天上去收次菜 能打就打不能打就关 ...</blockquote>
+碰不到的话氪佬的游戏体验是怎么来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
