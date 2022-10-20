@@ -6678,3 +6678,27 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">天空城的解谜是要干嘛，那个链子有啥用
 
+
+
+*****
+
+####  元气海牛  
+##### 618#       发表于 2022-10-20 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58015068&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-20 22:58</a>
+
+天空城的解谜是要干嘛，那个链子有啥用</blockquote>
+右边缺口丢飞刀，会提示飞刀插到对面墙上，然后左边机关调整符文石到飞刀位置，右边再次丢飞刀，就可以去捡石头了
+
+*****
+
+####  九门惠  
+##### 619#       发表于 2022-10-20 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58015068&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-20 22:58</a>
+
+天空城的解谜是要干嘛，那个链子有啥用</blockquote>
+解谜是要凑齐四个符文开门 
+
+这个是要调整高度 跑另一边房间对准缝隙扔飞刀打下来
+
