@@ -12287,3 +12287,12 @@ hnn竟然组织活动了
 
 今年尊不是主催，葛也明说了不参加，葛尊磕到了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 17627#       发表于 2022-10-21 01:19
+
+不得不说尊这晚上黑屁玩运营，第二天早上滑跪太败人缘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推上都有不少人喷她出尔反尔的
+

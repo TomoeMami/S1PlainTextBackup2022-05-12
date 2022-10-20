@@ -3765,3 +3765,62 @@ ti10 对面火猫<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 明天窝克就开启过载模式让小黑子知道，什么叫全程变身的tb
 
+
+
+*****
+
+####  沉默之声  
+##### 21438#       发表于 2022-10-21 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016667&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-21 00:53</a>
+
+去年大主憋和粉丝拷打司马懒狗还是有成果的，比如今年斗鱼虎牙不能参与银趴 ...</blockquote>
+斗鱼不能播实在是太大快人心了，去年的假赛论不就是那帮主播魔怔粉搞出来的
+
+*****
+
+####  恐怖利刃  
+##### 21439#       发表于 2022-10-21 01:12
+
+火猫前期早就被狠狠干住了
+
+*****
+
+####  roxas.sora  
+##### 21440#       发表于 2022-10-21 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016791&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-21 01:07</a>
+
+这把打到大后期要是个双圣剑火猫真不虚召唤物吧</blockquote>
+火猫的话前期会被动物园突破的吧............
+
+*****
+
+####  银翼的维罗西  
+##### 21441#       发表于 2022-10-21 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016791&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-21 01:07</a>
+
+这把打到大后期要是个双圣剑火猫真不虚召唤物吧</blockquote>
+这版本三猫这么蛇皮就是推进太狠了，没有三猫的版本观赏性真的不行
+
+*****
+
+####  Rorgen  
+##### 21442#       发表于 2022-10-21 01:17
+
+给zayac选几把土猫乐呵乐呵得了，另外三个不配上场
+
+*****
+
+####  CVHFGD  
+##### 21443#       发表于 2022-10-21 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016766&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-21 01:04</a>
+ti10 对面火猫
+10个魂，双圣剑，超哥苏猴灵魂附体
+冰龙转大哥也不弱 ...</blockquote>
+狼人25级天赋那一吼，600的攻击力直接就剩200多了，双圣剑只能说将将够<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
