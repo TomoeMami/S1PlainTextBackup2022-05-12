@@ -134,3 +134,15 @@ gt7的每日竞赛还是全是公路赛吗，有拉力吗</blockquote>
 难度：撒丁岛撒丁岛</blockquote>
 不对吧，效率是撒丁岛&gt;勒芒才是
 
+
+
+*****
+
+####  扑克脸军曹  
+##### 1693#       发表于 2022-10-20 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58002178&amp;ptid=2027972" target="_blank">fcssnake 发表于 2022-10-20 12:39</a>
+
+不对吧，效率是撒丁岛&gt;勒芒才是</blockquote>
+改了轮胎耐久度之后没怎么刷，可能不太清楚现在的刷钱套路，我删掉效率和难度这块吧
+
