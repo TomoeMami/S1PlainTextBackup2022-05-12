@@ -2831,3 +2831,127 @@ RTZ原名——Artour Babaev
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">15年还是16年学校停电，我和一个兄弟在操场上一边散步一边聊了很久的16军校
 这么一想我和这个兄弟好久没见过了
 
+
+
+*****
+
+####  百世诸侯  
+##### 21329#       发表于 2022-10-20 23:22
+
+唉，刚才像个傻逼一样哭了半天。我刚上大学的时候maybe还没打职业，TI3惨败，同学和我说天梯第一的天才少年出来打职业了肯定能拿冠军。我其实没有特别粉过超哥，只是想到了人生中最美好的几年。曾经以为势在必得的东西并没有得到，最终一去不回头
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 21330#       发表于 2022-10-20 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014245&amp;ptid=2099454" target="_blank">啊哈 发表于 2022-10-20 22:15</a>
+在小象还是rng的时候有采访问他以后会直播吗？他好像说的不直播，要去搞投资，语气记得挺肯定的 ...</blockquote>
+白天跟不严峻炒股，晚上直播呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nowaki  
+##### 21331#       发表于 2022-10-20 23:23
+
+哥们小组赛就坚定的认为雪碧一轮游，是不是提前和v社做局了呀，boom再差也比现在的雪碧强
+
+*****
+
+####  nxmonitor  
+##### 21332#       发表于 2022-10-20 23:23
+
+所以漏油们就承认吧，前面天天嘴上说支持茶队，最后也只不过是工具人，这个是不是茶根本不重要……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战场原和纱  
+##### 21333#       发表于 2022-10-20 23:23
+
+我只想马上看到LGD回家，茶队underdog夺冠。
+
+*****
+
+####  Rorgen  
+##### 21334#       发表于 2022-10-20 23:25
+
+高考考上西南政法不如没上过高中的，集美还是傻逼狗篮子
+
+*****
+
+####  非建政专用号  
+##### 21335#       发表于 2022-10-20 23:25
+
+卜是，你和漏油急也没用阿，你楼要是有能和那个只有两跟手指的老胖子说上话的萨特还能解决一下
+
+司马东西不装隔音房我也没办法阿
+
+*****
+
+####  TI三冠王AME  
+##### 21336#       发表于 2022-10-20 23:25
+
+窝只能承认你这条司马集美被人点草了几百次了还赖在这里只能是童年看到琴马暴毙的样子后觉醒了受虐癖
+
+*****
+
+####  sodah  
+##### 21337#       发表于 2022-10-20 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还报点还报点，当打CSGO呢？现在TI这种强度的比赛，场面上的信息都未必能处理过来，还听你解说和观众喊的批话是吧。
+
+*****
+
+####  Asukalangley33  
+##### 21338#       发表于 2022-10-20 23:26
+
+前面不已经说了，炒作这种无聊的事只是因为水厂第一轮下来了
+
+要是水厂还在胜者组呆着，这事根本没人鸟
+
+本质是集美们自己心理也没底气，提前安排预案
+
+*****
+
+####  nxmonitor  
+##### 21339#       发表于 2022-10-20 23:27
+
+如果V社没反应的话，茶就需要改变BP策略了，只有塔是跑不掉报了意义也很小的，选个偏推进的阵容比较好，还是老样子拖后很麻烦……
+
+*****
+
+####  PigMourne  
+##### 21340#       发表于 2022-10-20 23:27
+
+搞场外也能叫dodo之神嘛？哥们觉得真被dodo之神加持的比赛，那必须是各路硬件设备拉满，无敌场馆无敌转播无敌开幕式，现在这种草台ti，dodo之神怕是看都懒得看一眼<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 21341#       发表于 2022-10-20 23:28
+
+皮套痴司马
+
+*****
+
+####  白昼梦  
+##### 21342#       发表于 2022-10-20 23:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这届线下场馆本来就low得够呛了
+
+*****
+
+####  食粪者  
+##### 21343#       发表于 2022-10-20 23:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水厂要是2：0秘密的话尼哥会提这茬？
+
+*****
+
+####  非建政专用号  
+##### 21344#       发表于 2022-10-20 23:31
+
+我建议也别搭房子了，直接现场添加汉语解说，西语解说，为丁真再加个俄语解说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

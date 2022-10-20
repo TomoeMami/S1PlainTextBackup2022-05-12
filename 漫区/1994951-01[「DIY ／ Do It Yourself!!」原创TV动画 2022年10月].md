@@ -2454,3 +2454,12 @@ job子好可爱，青梅和黑皮不在一个学校要怎么入部
 
 May the Force be with you笑死，多语言的语音识别日常弱智<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 201#       发表于 2022-10-20 23:23
+
+什么娘化乔布斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
