@@ -12226,3 +12226,21 @@ hnn竟然组织活动了
 顺便这个图做的有点可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/72f1cc485db447d59c6bd44e1b4855c9/CMP_20221020192414372.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AloissiolA  
+##### 17621#       发表于 2022-10-20 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58001235&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-10-20 11:48</a>
+
+你虹越是要证明彩虹这个牌子不依靠任何单独一个liver就能挣钱。越是和holo工商只要出牌子，具体哪个liver大 ...</blockquote>
+[https://www.fragrance-u.jp/pages/anideal](https://www.fragrance-u.jp/pages/anideal)　anideal 3
+[https://collabo-cafe.com/events/ ... himamura-vol4-2022/](https://collabo-cafe.com/events/collabo/nijisanji-shimamura-vol4-2022/) しまむら 4
+[https://shop.nijisanji.jp/s/niji ... 248&amp;tag=TAG_117](https://shop.nijisanji.jp/s/niji/item/list?ima=4248&amp;tag=TAG_117) サンリオ 3
+[https://www.buntobi.com/articles/entry/news/014787/](https://www.buntobi.com/articles/entry/news/014787/)　シヤチハタ 2
+[https://hobby.watch.impress.co.jp/docs/news/1437260.html](https://hobby.watch.impress.co.jp/docs/news/1437260.html) WIXOSS 5
+[https://www.universal-music.co.jp/raindrops/news/2022-06-08/](https://www.universal-music.co.jp/raindrops/news/2022-06-08/) Maimai 2
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正云宝最擅长的就是张口就来
+
