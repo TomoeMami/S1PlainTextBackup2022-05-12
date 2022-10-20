@@ -3509,3 +3509,133 @@ ent那aa要憋个银月出来游戏时间能缩10分钟<img src="https://static.
 
 Ti8本来是最有含金量最有机会的一次，可惜了
 
+
+
+*****
+
+####  fopinecone  
+##### 21407#       发表于 2022-10-21 00:43
+
+走神儿了，请稍后再试
+没想到今天还能被支付宝恶心到的，牛皮
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蛭人  
+##### 21408#       发表于 2022-10-21 00:43
+
+7.0以后漏油打少了吧，酱油后期真的不弱，就算你四保一，大哥也应该优先保证自己酱油不死的情况下去杀对面，这游戏现在臭酱油后期一点也不难玩，比以前有意思多了，以前六十分钟你身上可能只有鞋魔棒推推。
+
+*****
+
+####  恐怖利刃  
+##### 21409#       发表于 2022-10-21 00:44
+
+刚才没点发送，我的
+
+*****
+
+####  Keynes  
+##### 21410#       发表于 2022-10-21 00:45
+
+啥情况，老鹿ts拉席克怎么都不对<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 21411#       发表于 2022-10-21 00:45
+
+领到了领到了，感谢楼友
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  fopinecone  
+##### 21412#       发表于 2022-10-21 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016589&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-21 00:45</a>
+啥情况，老鹿ts拉席克怎么都不对</blockquote>
+你看看是不是脑东京
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Keynes  
+##### 21413#       发表于 2022-10-21 00:46
+
+为啥还能看到n姓集美在你楼滚刀肉啊<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 21414#       发表于 2022-10-21 00:46
+
+大半夜的不睡居然有红包<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 21415#       发表于 2022-10-21 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016580&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-21 00:44</a>
+刚才没点发送，我的</blockquote>
+<img src="https://p.sda1.dev/7/7fd1a3b7b63f01d6c2b1189479950045/Screenshot_2022-10-21-00-46-10-37_3915bacb930634b7e206116f9dc9486f.jpg" referrerpolicy="no-referrer">
+？何意啊这是
+
+*****
+
+####  tengshuo980  
+##### 21416#       发表于 2022-10-21 00:47
+
+这红包也秒没的，我吐了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Keynes  
+##### 21417#       发表于 2022-10-21 00:47
+
+锁了锁了
+
+*****
+
+####  非建政专用号  
+##### 21418#       发表于 2022-10-21 00:47
+
+窝建议你楼所有人支付宝都改名litccc
+
+*****
+
+####  Keynes  
+##### 21419#       发表于 2022-10-21 00:48
+
+回归性原理：恐怖利刃就是ccc哥
+
+*****
+
+####  ck4pa  
+##### 21420#       发表于 2022-10-21 00:48
+
+眉笔一退cn中单被国外各种天才少年单压应该会成常态了吧
+
+
+
+*****
+
+####  恐怖利刃  
+##### 21421#       发表于 2022-10-21 00:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前是实名，cosplay一下
+
+*****
+
+####  plok201  
+##### 21422#       发表于 2022-10-21 00:51
+
+还拷打V社，阿V都摆烂那么多年了，今天今天这幅样子还咋改<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
