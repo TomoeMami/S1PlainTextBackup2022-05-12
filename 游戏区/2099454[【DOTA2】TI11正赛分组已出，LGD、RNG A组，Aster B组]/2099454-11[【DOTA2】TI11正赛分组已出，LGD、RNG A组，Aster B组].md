@@ -8094,3 +8094,129 @@ ti后龙骑士(dota2英雄)会加强吗，现在好弱势啊。
 
 可以十点去steam.tv/dota2看英文流，不需要挂工具
 
+
+
+*****
+
+####  端木恋心  
+##### 15906#       发表于 2022-10-20 09:42
+
+sccc有点帅啊
+
+*****
+
+####  坚定的团子党  
+##### 15907#       发表于 2022-10-20 09:42
+
+超哥！
+
+*****
+
+####  北条早苗  
+##### 15908#       发表于 2022-10-20 09:42
+
+鳖站这画质也太糊了，还是当罕见了
+
+*****
+
+####  啊哈  
+##### 15909#       发表于 2022-10-20 09:43
+
+有老肥仔 的welcome international吗
+
+*****
+
+####  火鸡味锅巴  
+##### 15910#       发表于 2022-10-20 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998888&amp;ptid=2099454" target="_blank">啊哈 发表于 2022-10-20 09:43</a>
+
+有老肥仔 的welcome international吗</blockquote>
+十点钟才开呢，现在是imbatv在整尬活
+
+*****
+
+####  walfeds  
+##### 15911#       发表于 2022-10-20 09:46
+
+88burden，我去老鼠台了
+
+*****
+
+####  Kazepollar  
+##### 15912#       发表于 2022-10-20 09:46
+
+草，怎么集锦全是谜团
+
+*****
+
+####  火鸡味锅巴  
+##### 15913#       发表于 2022-10-20 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998922&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-20 09:46</a>
+
+草，怎么集锦全是谜团</blockquote>
+谜团配怨灵，比赛和个畜生一样
+
+*****
+
+####  情商  
+##### 15914#         楼主| 发表于 2022-10-20 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998853&amp;ptid=2099454" target="_blank">火鸡味锅巴 发表于 2022-10-20 09:40</a>
+
+可以十点去steam.tv/dota2看英文流，不需要挂工具</blockquote>
+没画面一片黑啊
+
+*****
+
+####  反方向的波  
+##### 15915#       发表于 2022-10-20 09:48
+
+哭了哭了，英文流在处刑南美doto
+
+*****
+
+####  walfeds  
+##### 15916#       发表于 2022-10-20 09:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小电锤呢，救一下啊
+
+*****
+
+####  Avantasi  
+##### 15917#       发表于 2022-10-20 09:49
+
+我超，rng延期到明天七点了吗
+
+*****
+
+####  johnwick  
+##### 15918#       发表于 2022-10-20 09:50
+
+这也太草台了
+
+*****
+
+####  火鸡味锅巴  
+##### 15919#       发表于 2022-10-20 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998940&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-20 09:47</a>
+
+没画面一片黑啊</blockquote>
+要十点了吧，这个是正式比赛楼
+
+*****
+
+####  sodah  
+##### 15920#       发表于 2022-10-20 09:50
+
+还以为戏哥哥直播之后也会像赛垃圾一样胖成球了
+
+*****
+
+####  usoda  
+##### 15921#       发表于 2022-10-20 09:50
+
+叔叔这什么烂比直播。。声音大点会死吗
+

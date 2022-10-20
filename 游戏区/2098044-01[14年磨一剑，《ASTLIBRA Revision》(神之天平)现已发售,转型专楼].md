@@ -6136,3 +6136,15 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 明云三次装幕后黑手“欢迎来到我家”，配合BGM，太中二了，好逗一大叔。三次都乐的我够呛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  五块  
+##### 568#       发表于 2022-10-20 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998823&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-20 09:39</a>
+
+已经拿到了，原来雪山有个小猪房间的武器没买，这后续查漏功能可以提升下就方便了，这缺一个武器硬是相当 ...</blockquote>
+我每章都把小猪买空才进下一章，漏了确实麻烦。
+
