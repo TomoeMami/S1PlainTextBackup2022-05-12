@@ -12160,3 +12160,13 @@ kmnz三专有比二专好听的，但感觉还是不如一专
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正不止一次在楼里说过了，自从上市了之后变得越来越抠，早晚会有受不了这种气氛又要走人的
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17614#       发表于 2022-10-20 11:48
+
+你虹越是要证明彩虹这个牌子不依靠任何单独一个liver就能挣钱。越是和holo工商只要出牌子，具体哪个liver大家轮流上。头部被指名的机会多的情况形成了鲜明的对比。
+而这更是因为彩虹前期运营摆烂，抽卡狼性积重难返。就很想笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
