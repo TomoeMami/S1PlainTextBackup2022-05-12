@@ -3447,3 +3447,65 @@ maybe最大的失败就是认了个畜当兄弟。 被他和手下那群集美�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">指望国师带着boom能治水就有点难了，不过国师能治水成功就发红包吧
 
+
+
+*****
+
+####  CVHFGD  
+##### 21400#       发表于 2022-10-21 00:33
+
+话说这次刷新了我对所谓真正的大后期的见识，没想到一些酱油有钱之后比真正的大哥都能打，之前看过最长的也就是70分钟的样子。
+还有就是看别人复盘说RNG偷基地有其实有很多次机会的，只可惜当时体力精力问题没余力想太多了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  尖刺外婆  
+##### 21401#       发表于 2022-10-21 00:33
+
+黑了五六年梅鳖，没想到梅鳖以这种方式退役了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+司马a畜却还要在表演几天，玉玉了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 21402#       发表于 2022-10-21 00:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016475&amp;ptid=2099454" target="_blank">CVHFGD 发表于 2022-10-21 00:33</a>
+话说这次刷新了我对所谓真正的大后期的见识，没想到一些酱油有钱之后比真正的大哥都能打，之前看过最长的也 ...</blockquote>
+小小本来就是物理大核
+
+*****
+
+####  非建政专用号  
+##### 21403#       发表于 2022-10-21 00:39
+
+ent那aa要憋个银月出来游戏时间能缩10分钟<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 21404#       发表于 2022-10-21 00:39
+
+选阵容的时候就不太会考虑到这么大后期吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  恐怖利刃  
+##### 21405#       发表于 2022-10-21 00:40
+
+之前说雪碧一轮游发红包
+口令：我敢肯定___不是脑东京的绝活
+
+*****
+
+####  沉默之声  
+##### 21406#       发表于 2022-10-21 00:40
+
+老人都退了，新时代来了，就现在一帮捕鱼带妹的游戏环境，确实配不上决赛日
+
+Ti8本来是最有含金量最有机会的一次，可惜了
+
