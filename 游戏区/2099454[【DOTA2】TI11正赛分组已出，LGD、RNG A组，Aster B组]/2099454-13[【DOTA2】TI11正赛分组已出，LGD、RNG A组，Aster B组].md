@@ -8237,3 +8237,565 @@ kky抽的ssr是马桶 杰瑞 麦西 gh，分两次抽的
 
 支持sa整火，敲碎拳酱和批九的壳
 
+
+
+*****
+
+####  iriyano  
+##### 18992#       发表于 2022-10-20 17:01
+
+我感觉崩溃哥还是想打兄弟dota的，反而其他几个b不一定想
+
+*****
+
+####  belldandy_ye  
+##### 18993#       发表于 2022-10-20 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007711&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 16:55</a>
+
+这个阵容拿出来，先手靠mira，是你你也不敢打</blockquote>
+双5辅助能怎么办呢，队伍框架不大变的话想办法搞个真4号位吧
+
+*****
+
+####  你可以试试  
+##### 18994#       发表于 2022-10-20 17:01
+
+唉，司马假赛论集美估计又要开始了，今年冰龙打巫妖没钱请PA，所以一轮游了
+
+*****
+
+####  Rorgen  
+##### 18995#       发表于 2022-10-20 17:01
+
+ThunderA三号位如果是wisper我看好进决赛，现在还是算了，中后期运营团战差点意思
+
+*****
+
+####  nowaki  
+##### 18996#       发表于 2022-10-20 17:01
+
+大爹才是刀圈抽卡第一人好吧，能连续抽出老迹 ana 普森三个超级2号位。
+
+*****
+
+####  星野航  
+##### 18997#       发表于 2022-10-20 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007765&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-20 17:57</a>
+
+虽然我也是小雪人，但我真的得说这把完全是雪碧自找的，脑东京刷了血精BKB，黑鸟出了A，抢到了小强，结果就 ...</blockquote>
+实际上是小组赛后面输多了自己打犹豫了
+
+如果你小组赛都追了ts的比赛，所有局基本都是这个打法
+
+我只能说放假放出事，这版本节奏根本没找到
+
+雪碧小组赛的画面是固定的
+
+bp首先选个版本热门，被针对，摇摆，脑东京当垃圾桶，优先保崩溃跟yatoro对线。
+
+进游戏，基本是脑东京把劣，然后边路或优或劣乃至小优。10分钟后第一波小交锋，多半输
+
+然后开始憋着刷，刷到第一代盾让了，对面拔三个塔。接着组织一波团，打得过，翻了，拿下
+
+打不过，接着刷，让二代盾。打高地团，重复判定。然后憋死
+
+基本都是这个走向，状态就稀烂了，崩溃把把能做的都做了，最后没啥辙。然后自己赖以生存的视野也不行了。mira这先手就别说了吧，有点丢人了
+
+*****
+
+####  哈曼的YY  
+##### 18998#       发表于 2022-10-20 17:02
+
+今晚得看真视界疗伤了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 18999#       发表于 2022-10-20 17:02
+
+我觉得秘密起码应该进决赛日
+
+*****
+
+####  Gosin  
+##### 19000#       发表于 2022-10-20 17:02
+
+把老东京踢了然后按照天梯分捋抓个没有队会俄语的15岁天才少年了呀
+
+基本上是这么个节奏
+
+*****
+
+####  iriyano  
+##### 19001#       发表于 2022-10-20 17:02
+
+鲁迅替基辅先拿100分
+看丁真表演了
+
+*****
+
+####  你可以试试  
+##### 19002#       发表于 2022-10-20 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">基辅major都开了还能在一起打，我觉得兄弟dota还是能打下去的
+
+*****
+
+####  Asukalangley33  
+##### 19003#       发表于 2022-10-20 17:02
+
+别人都是献祭头发给DOTA之神
+
+最好的先辈植发<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看好蔡宜风复刻橘子的经历，再看一个
+
+*****
+
+####  w2210059  
+##### 19004#       发表于 2022-10-20 17:03
+
+漏油看好谁夺冠？感觉秘密一路飞升了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 19005#       发表于 2022-10-20 17:03
+
+ppy抽卡功力可以但再没举盾，是不是该自我反思一下
+
+*****
+
+####  Rorgen  
+##### 19006#       发表于 2022-10-20 17:03
+
+这fnc打gg才是败者组第一轮该有的对决，看好瑞文和德拉臭脑浆大战
+
+*****
+
+####  RGm  
+##### 19007#       发表于 2022-10-20 17:03
+
+mira之前玩个4号位大圣节奏挺好的，多练练还是能练出先手能力的吧。大不了学自然神，放完技能之后往地上一躺就好了。
+
+*****
+
+####  草海灭巨  
+##### 19008#       发表于 2022-10-20 17:03
+
+所以说不要小看进ti的任何一只队伍，奈何集美就是喜欢贷款冠军，从ti8到现在，多少回了都
+
+*****
+
+####  白野苍衣  
+##### 19009#       发表于 2022-10-20 17:03
+
+不觉得秘密会夺冠
+
+*****
+
+####  Kazepollar  
+##### 19010#       发表于 2022-10-20 17:03
+
+其实是大爹和ceb的队养人，不管是奇迹哥和ana都是玩的最舒服的中单，自身天赋也高。
+
+*****
+
+####  VanArkride  
+##### 19011#       发表于 2022-10-20 17:04
+
+从实验室爬出来发现战况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+感觉ppy要二冠了
+
+*****
+
+####  nxmonitor  
+##### 19012#       发表于 2022-10-20 17:04
+
+nts打nisha气势上先怂几分就打不过了，不过打东南亚中单就是另一回事了，虾之国内部也是有血脉压制……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 19013#       发表于 2022-10-20 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007889&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-20 17:03</a>
+ppy抽卡功力可以但再没举盾，是不是该自我反思一下</blockquote>
+ppy抽的是w33和ni公子，真没法和另外两个冠军队长比
+
+*****
+
+####  迷途lite  
+##### 19014#       发表于 2022-10-20 17:04
+
+考虑到我看好的队伍都回家了，我只能看好lgd夺冠了
+
+*****
+
+####  越动天下  
+##### 19015#       发表于 2022-10-20 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007861&amp;ptid=2099454" target="_blank">越动天下 发表于 2022-10-20 17:02</a>
+我觉得秘密起码应该进决赛日</blockquote>
+但是应该是败者组出来的夺冠
+
+*****
+
+####  枯风瘦雪02  
+##### 19016#       发表于 2022-10-20 17:04
+
+ppy不是靠抽卡机会堆出来的水平吗？他抽到的人不还有w33，ace，ee，midone这种吗
+
+*****
+
+####  哈曼的YY  
+##### 19017#       发表于 2022-10-20 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007845&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-20 17:01</a>
+
+唉，司马假赛论集美估计又要开始了，今年冰龙打巫妖没钱请PA，所以一轮游了 ...</blockquote>
+巫妖和pa是怎么诞生的黑话
+
+*****
+
+####  星野航  
+##### 19018#       发表于 2022-10-20 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪碧如果要变阵，老东京跟mira都可以被优化的
+
+差不多了，25岁大龄中单，到位了
+
+虽然我挺喜欢这蒙古老哥的，但上限基本到这了
+
+保住yatoro跟collapse还有戏
+
+以及miposhka这届bp做得是真辣了，需要自己回去好好反思 
+
+*****
+
+####  syndrome2032  
+##### 19019#       发表于 2022-10-20 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007905&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 17:04</a>
+ppy抽的是w33和ni公子，真没法和另外两个冠军队长比</blockquote>
+weehaa也是抢厂公没抢过大爹找的替代品。
+
+*****
+
+####  安子醬  
+##### 19020#       发表于 2022-10-20 17:04
+
+崩溃最后那波是不是大招空了?影魔被秒了的话还有的打吧
+
+
+
+*****
+
+####  w2210059  
+##### 19021#       发表于 2022-10-20 17:05
+
+干瘪这种顶配背景板都虐完了，该夺冠了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 19022#       发表于 2022-10-20 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007911&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 17:04</a>
+ppy不是靠抽卡机会堆出来的水平吗？他抽到的人不还有w33，ace，ee，midone这种吗 ...</blockquote>
+ace和ee是老逼不算抽卡，midone是蔡宜风抽的
+
+*****
+
+####  蛭人  
+##### 19023#       发表于 2022-10-20 17:05
+
+pyy没懂这个游戏怎么赢啊，真正理解游戏胜负的，ti89版本大爹是懂的，可惜厨子成天喜欢切假腿不打DPC，加上成就太高，双冠一拿三个人切假腿，中间这一年ti鸽了，不然厨子普森正当巅峰，还能再冲刺下。
+
+*****
+
+####  你可以试试  
+##### 19024#       发表于 2022-10-20 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说帕皮二冠了，就冲他组的队让鲁提辖三拳打死王蠢鱼这点，我就决定再也不黑他了
+
+*****
+
+####  反方向的波  
+##### 19025#       发表于 2022-10-20 17:06
+
+上一次卫冕冠军早早收拾行李还是2017年翅膀兵分三路海选去送<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 19026#       发表于 2022-10-20 17:06
+
+雪碧要是优化就是踢了245，这几个已经迷的不能打职业了。
+
+*****
+
+####  w2210059  
+##### 19027#       发表于 2022-10-20 17:06
+
+其实雪碧我一直觉得丫头肉和他偶像差不多，会刷但是脑子秀逗的比赛特别多
+
+*****
+
+####  莉拉厨  
+##### 19028#       发表于 2022-10-20 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007912&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-20 17:04</a>
+巫妖和pa是怎么诞生的黑话</blockquote>
+巫妖会死者复生，所以前线一直有兵
+PA就是按名字的意思
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  thistimeforlife  
+##### 19029#       发表于 2022-10-20 17:06
+
+支持peru doto 
+
+sa已经创造历史了 今天宰eg的两把也是赏心悦目，能更进一步就好了
+
+*****
+
+####  非建政专用号  
+##### 19030#       发表于 2022-10-20 17:06
+
+运气好确实不讲道理阿，克里斯还能伴生一个ssr一个sr，这去哪说理
+
+*****
+
+####  Rorgen  
+##### 19031#       发表于 2022-10-20 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007956&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-20 17:06</a>
+运气好确实不讲道理阿，克里斯还能伴生一个ssr一个sr，这去哪说理</blockquote>
+什么都要转进一下克神是吧，小黑子标记了
+
+*****
+
+####  你可以试试  
+##### 19032#       发表于 2022-10-20 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007912&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-20 17:04</a>
+
+巫妖和pa是怎么诞生的黑话</blockquote>
+即兴创作，大家看得懂就行<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bluebaby  
+##### 19033#       发表于 2022-10-20 17:06
+
+要是真被ppy又混个ti能气死多少人<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 19034#       发表于 2022-10-20 17:07
+
+今年我是双手支持秘密亚军的，谁冠军无所谓
+
+*****
+
+####  syndrome2032  
+##### 19035#       发表于 2022-10-20 17:07
+
+ 本帖最后由 syndrome2032 于 2022-10-20 17:08 编辑 
+
+没啥好气的啊。
+
+根据秘密年年成绩越来越好定律，去年第三，今年起码亚军吧
+
+笑话拳酱主要是他实在太能tm毒瘤了，5号位不吸点钱就走不动路。
+
+*****
+
+####  你可以试试  
+##### 19036#       发表于 2022-10-20 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007951&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-20 17:06</a>
+
+巫妖会死者复生，所以前线一直有兵
+
+PA就是按名字的意思</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我真没想这么多，就是按发音选的，之所以不选另外一个因为都是冰系
+
+*****
+
+####  枯风瘦雪02  
+##### 19037#       发表于 2022-10-20 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007947&amp;ptid=2099454" target="_blank">w2210059 发表于 2022-10-20 17:06</a>
+
+其实雪碧我一直觉得丫头肉和他偶像差不多，会刷但是脑子秀逗的比赛特别多 ...</blockquote>
+现在会刷就够了，刷得足够快就能把很多不该变成该，别的不说，中美两个刷逼C不都是除了刷啥都不行嘛，照样能打最高水平比赛
+
+*****
+
+####  cuiluzhu  
+##### 19038#       发表于 2022-10-20 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第N界我给老迹选队友的活动中选中了崩溃哥
+
+*****
+
+####  w2210059  
+##### 19039#       发表于 2022-10-20 17:08
+
+拳击手真拿了冠军会和大爹推特battle几十局的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 19040#       发表于 2022-10-20 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉今年打完脑东京肯定是蚌埠住了
+
+话说GPK算不算非卖品
+
+*****
+
+####  Rorgen  
+##### 19041#       发表于 2022-10-20 17:09
+
+主要是ni公子如果夺冠，没法超过430和topson这俩冠军中单
+但是如果夺亚就可以踢飞maybe和w33成为最强亚军中单了！
+
+*****
+
+####  星野航  
+##### 19042#       发表于 2022-10-20 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那既然如此，是不是必须支持一个明年阿拳招揽崩溃勇夺双冠了
+
+*****
+
+####  雅朵莉雀  
+##### 19043#       发表于 2022-10-20 17:09
+
+TI10如果按时办的话秘密就是希望最大的，当时秘密的比赛真是把宰猪
+
+先贷款给nisha一个不过分吧，但是我还是资瓷Pakazs
+
+*****
+
+####  外挂全家脚气  
+##### 19044#       发表于 2022-10-20 17:09
+
+<blockquote>2-0带病RNG的队是不基德的都输了</blockquote>
+
+OG瑟瑟发抖，ET倒是有个高情商祝福
+
+*****
+
+####  w2210059  
+##### 19045#       发表于 2022-10-20 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007984&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 17:08</a>
+
+现在会刷就够了，刷得足够快就能把很多不该变成该，别的不说，中美两个刷逼C不都是除了刷啥都不行嘛，照样 ...</blockquote>
+上帝也会刷，但是一波上头把自己打没了
+
+*****
+
+####  molilanmao  
+##### 19046#       发表于 2022-10-20 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007998&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-20 17:08</a>
+
+感觉今年打完脑东京肯定是蚌埠住了
+
+话说GPK算不算非卖品</blockquote>
+gpk踢了几个大哥了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Aeons  
+##### 19047#       发表于 2022-10-20 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">雪碧这队会散吗，说实话有几位现在打的已经泯然众人了。
+
+*****
+
+####  苏沃雷生  
+##### 19048#       发表于 2022-10-20 17:09
+
+CIS卜是还有爱沙尼亚哈哈明吗
+
+*****
+
+####  你可以试试  
+##### 19049#       发表于 2022-10-20 17:10
+
+我个人私心还是希望雪碧一直五人兄弟dota下去的，反正冠军也拿过了，像邪恶双雄那样献祭兄弟情拿个亚军开心吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 19050#       发表于 2022-10-20 17:10
+
+gpk估摸狗都不要吧。
+
+要适配的话cis区天才少年其实挺多的。
+
+
+
+*****
+
+####  Kazepollar  
+##### 19051#       发表于 2022-10-20 17:10
+
+明年阿拳的队ni公子奇迹哥崩溃神，东欧不大，创造神话！
+
+*****
+
+####  Rorgen  
+##### 19052#       发表于 2022-10-20 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008029&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-20 17:10</a>
+明年阿拳的队ni公子奇迹哥崩溃神，东欧不大，创造神话！</blockquote>
+老迹还是算了
+我提醒一下，丁真是纯血小拳套
+
+*****
+
+####  sodah  
+##### 19053#       发表于 2022-10-20 17:11
+
+老迹还是先想办法跟kky切割再选队友吧
+
+*****
+
+####  星野航  
+##### 19054#       发表于 2022-10-20 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007998&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-20 18:08</a>
+
+感觉今年打完脑东京肯定是蚌埠住了
+
+话说GPK算不算非卖品</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要调整那也不会调整成gpk
+
+关键时gpk那秀逗程度可比老东京厉害多了
+
+起码老东京场面越大越稳，gpk那是反向的，场面越大自己越萎
+
+还不如从天梯找天才少年来得直接 
+
+*****
+
+####  米奥莉奈  
+##### 19055#       发表于 2022-10-20 17:11
+
+vp去年14是大腿被踢了，纯净哥画z走了，最后只有独联体处长愿意陪gpk打，没什么可说的
+
+—— 来自 motorola XT2175-2, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
