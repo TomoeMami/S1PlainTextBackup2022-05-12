@@ -6535,3 +6535,14 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 白也太不淑女了，叫醒主角的方式除了把袜子扔脸，内裤扔脸，要不就是坐脸上放p。幸亏新章里红毛整了她一把。
 
+
+
+*****
+
+####  蓝雉  
+##### 605#         楼主| 发表于 2022-10-20 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58010738&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-20 19:39</a>
+白也太不淑女了，叫醒主角的方式除了把袜子扔脸，内裤扔脸，要不就是坐脸上放p。幸亏新章里红毛整了她一把 ...</blockquote>
+这难道不是奖励吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

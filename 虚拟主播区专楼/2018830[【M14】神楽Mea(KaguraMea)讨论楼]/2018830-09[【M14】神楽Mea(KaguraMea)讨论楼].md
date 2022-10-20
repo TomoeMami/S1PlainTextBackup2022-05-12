@@ -7228,3 +7228,36 @@ img2img的瞳色很好办,手动用画图模式画俩琥珀色和蓝色圆点
 
 还涨了几千粉
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12689#       发表于 2022-10-20 20:25
+
+p站开始给ai绘画限制和给标签了，那我不客气了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几天内认真跑了好几次学习模型，效果还不如我一开始随便弄得，是真tm离谱……
+
+<img src="https://img.saraba1st.com/forum/202210/20/202304fdyu9vavjikukj0v.png" referrerpolicy="no-referrer">
+
+<strong>01427-20221018130712.png</strong> (125.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 20:23 上传
+
+<img src="https://img.saraba1st.com/forum/202210/20/202308i7dchhzdodclkrut.png" referrerpolicy="no-referrer">
+
+<strong>01554-20221018132901.png</strong> (201.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 20:23 上传
+
+<img src="https://img.saraba1st.com/forum/202210/20/202337beqh8588fzh8uwe2.png" referrerpolicy="no-referrer">
+
+<strong>00670-20221018040710.png</strong> (231.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 20:23 上传
+
