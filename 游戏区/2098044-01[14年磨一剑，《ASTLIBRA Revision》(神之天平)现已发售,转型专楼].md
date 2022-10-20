@@ -6483,3 +6483,21 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 最少第七章通了再说，第八章装备有了更好打一点，这BOSS还有即死，不是很好躲，输出不够容错率相 ...</blockquote>
 并没有即死 可以格挡的
 
+
+
+*****
+
+####  M27MD  
+##### 599#       发表于 2022-10-20 19:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">第七章去贤者之塔路上，有一个啥都没有的场景据说有宝箱怎么发现出来
+
+*****
+
+####  AeonsTorn  
+##### 600#       发表于 2022-10-20 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58010093&amp;ptid=2098044" target="_blank">M27MD 发表于 2022-10-20 19:09</a>
+第七章去贤者之塔路上，有一个啥都没有的场景据说有宝箱怎么发现出来 ...</blockquote>
+那个要拿失重往左一直走的那个？
+

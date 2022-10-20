@@ -6032,3 +6032,22 @@ gow2018的那些支线还可以吧，都做了点剧情
 
 哦，这个era有人说好像是假的。就说咋可能118g这么大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 659#       发表于 2022-10-20 19:12
+
+🚨 God of War Ragnarök (PS4-PS5)
+
+🟩 US :
+
+🟧 PS4 : 106.9 GB (Version: 1.01)
+🟫 PS5 : 84 GB (Version: 1.001.000)
+
+🟨 EU :
+
+🟦 PS4 : 118.519 GB (Version: 1.01)
+🟪 PS5 : 90-100 GB (exact size soon) 
+

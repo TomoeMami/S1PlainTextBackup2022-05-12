@@ -2415,3 +2415,15 @@ Do It Your Radio!! 第 1 回开始配信，嘉宾&amp;#x662 ...</blockquote>
 
 这集也稳的一比 job子的小学生感营造的很好 还顺便塑造了部长 本季3幻神真不是吹的<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 197#       发表于 2022-10-20 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58002729&amp;ptid=1994951" target="_blank">NZ-333 发表于 2022-10-20 13:05</a>
+
+用的这个源，结果字幕成这样了，是我播放器的问题吗…</blockquote>
+你这应该是播放器的问题，被遮住的是日语字幕，本来应该是上中文下日语原文的……
+
