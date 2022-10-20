@@ -100,3 +100,23 @@
 
 gt7的每日竞赛还是全是公路赛吗，有拉力吗
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1690#       发表于 2022-10-20 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58000733&amp;ptid=2027972" target="_blank">byisme001 发表于 2022-10-20 11:20</a>
+gt7的每日竞赛还是全是公路赛吗，有拉力吗</blockquote>
+没有拉力赛，只能等官方哪天整活了，但是我想真的没有人多少喜欢这游戏的拉力赛
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一个陆仁贾  
+##### 1691#       发表于 2022-10-20 12:16
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
