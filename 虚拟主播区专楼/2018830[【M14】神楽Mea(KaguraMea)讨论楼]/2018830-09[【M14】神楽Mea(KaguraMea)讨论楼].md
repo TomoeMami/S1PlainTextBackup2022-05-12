@@ -7332,3 +7332,31 @@ nb官号订阅里面也没她了，别吧，炸号炸个没完。
 
 2022-10-20 21:49 上传
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12697#       发表于 2022-10-20 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58013748&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-10-20 21:49</a>
+
+讲个笑话，推特认证</blockquote>
+认证又不代表不封，神谷英树刚被封解封也没多久，
+
+不知道mea这次是永久还是啥。
+
+*****
+
+####  路人庚  
+##### 12698#       发表于 2022-10-20 21:56
+
+之前好像有印象说，认证了的推特号有更方便的客服，也许更容易解封吧
+
+*****
+
+####  TomDu  
+##### 12699#       发表于 2022-10-20 21:58
+
+大危机！<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">一定要解封啊…
+
