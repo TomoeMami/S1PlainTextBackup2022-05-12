@@ -6434,3 +6434,14 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  Leona_Akari  
+##### 595#       发表于 2022-10-20 17:50
+
+怎么区分金银宝箱是否到上限？
+
+是按照章节划分的还是单纯按照图划分？
+

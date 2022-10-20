@@ -9988,3 +9988,204 @@ acg2009，傻鲷的cd决赛优势掉线重连输了
 
 D1时代平台打得人非常多，但比赛啥的确实关注度没那么高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  万世创伤伊莫库  
+##### 19187#       发表于 2022-10-20 17:42
+
+fnc这把应该平推了，6点前应该能见到RNG
+
+*****
+
+####  越动天下  
+##### 19188#       发表于 2022-10-20 17:43
+
+发条这真是个脑瘫
+
+*****
+
+####  火鸡味锅巴  
+##### 19189#       发表于 2022-10-20 17:43
+
+建议老逼回忆一下名侦探ldd的长篇
+
+*****
+
+####  izayoi39  
+##### 19190#       发表于 2022-10-20 17:43
+
+fn这真的菜，无限好打的阵容能拖到现在还没法控图
+
+*****
+
+####  牛肉丸  
+##### 19191#       发表于 2022-10-20 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008465&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-20 17:36</a>
+
+我刚打DOTA时候有个VIGOSS来中国的事
+
+当时主流也都是吹VIGOSS独一档，西恩有厉害的，但是没他叼
+
+然后VIGOSS ...</blockquote>
+7L队里是单车憋憋龙神
+
+*****
+
+####  枯风瘦雪02  
+##### 19192#       发表于 2022-10-20 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008564&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-20 17:43</a>
+
+fn这真的菜，无限好打的阵容能拖到现在还没法控图</blockquote>
+一队的老（菜）逼，要能打早就拿名次成名宿了
+
+*****
+
+####  赤星ビスコ  
+##### 19193#       发表于 2022-10-20 17:44
+
+d1那会甚至不知道还有dota比赛，天天和同学一起快乐dota<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 19194#       发表于 2022-10-20 17:44
+
+7l是不是就潘局起家的地方
+
+*****
+
+####  牛肉丸  
+##### 19195#       发表于 2022-10-20 17:44
+
+我还买过憋憋那本DOTA攻略，写的还真可以
+
+*****
+
+####  你可以试试  
+##### 19196#       发表于 2022-10-20 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">哥们dota2入门正是电子性欲爆棚的时候，宁愿自己多匹两把练练都懒得看比赛，也就决赛看看，听听名次战绩
+
+*****
+
+####  zhliiiii  
+##### 19197#       发表于 2022-10-20 17:45
+
+ti1的时候国内比赛主流还是dota1啊，ti2以后才开始有dota2比赛，ti3的时候才上国服
+
+比较搞笑的是12年的wcg，中国区第一第二去打总决赛的dota2比赛，第三第四打do1比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  华发夜眼[CN]  
+##### 19198#       发表于 2022-10-20 17:45
+
+07年开始打的，开始关注比赛应该是cd的鲷吧，然后一直当小鲷民到退役了
+
+*****
+
+####  牛肉丸  
+##### 19199#       发表于 2022-10-20 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008589&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-20 17:44</a>
+
+7l是不是就潘局起家的地方</blockquote>
+水厂卖水起源故事了
+
+*****
+
+####  Asukalangley33  
+##### 19200#       发表于 2022-10-20 17:46
+
+这波虽然打赢了，但是FNC这火枪的走位看的我真得上头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Rorgen  
+##### 19201#       发表于 2022-10-20 17:46
+
+德拉乔，这届唯一能和A畜相提并论的carry了
+
+*****
+
+####  syndrome2032  
+##### 19202#       发表于 2022-10-20 17:47
+
+ 本帖最后由 syndrome2032 于 2022-10-20 17:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008580&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 17:44</a>
+一队的老（菜）逼，要能打早就拿名次成名宿了</blockquote>
+令人惊奇的发现fnatic这队居然没怎么换人
+
+还是raven armel dj jabz几个人。
+
+今年这队能游出来真的是纯属巧合。
+
+*****
+
+####  Kabine  
+##### 19203#       发表于 2022-10-20 17:47
+
+寻找失散多年的儿子，特征：
+
+*****
+
+####  超人苏坦纳  
+##### 19204#       发表于 2022-10-20 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008632&amp;ptid=2099454" target="_blank">Kabine 发表于 2022-10-20 17:47</a>
+
+寻找失散多年的儿子，特征：</blockquote>
+二次元 普信 看管人
+
+*****
+
+####  Asukalangley33  
+##### 19205#       发表于 2022-10-20 17:49
+
+我开黑班子的冠绝哥，以前高中的时候他可以晚上打DOTA打到早上5点，第二天接着上课
+
+一个寒假打450把DOTA
+
+然后现在纯纯的癞皮狗，每年本子冲1000级然后天天打枪，DOTA一周5把，多了一把就是累累累
+
+*****
+
+####  你可以试试  
+##### 19206#       发表于 2022-10-20 17:49
+
+在野区迷路
+
+*****
+
+####  万世创伤伊莫库  
+##### 19207#       发表于 2022-10-20 17:49
+
+我家里现在还有傻鲷退役的专访杂志，都是回忆好吧
+
+*****
+
+####  你可以试试  
+##### 19208#       发表于 2022-10-20 17:50
+
+一周有5把6-2已经是相当质量的性生活了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我当年同学没一个打的
+
+*****
+
+####  Rorgen  
+##### 19209#       发表于 2022-10-20 17:50
+
+你永远可以相信后期的boom
+
+*****
+
+####  wzy200912345  
+##### 19210#       发表于 2022-10-20 17:51
+
+卧槽神拉
+
