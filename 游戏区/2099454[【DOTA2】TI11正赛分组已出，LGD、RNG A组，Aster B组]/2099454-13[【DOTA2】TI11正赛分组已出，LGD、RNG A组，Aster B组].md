@@ -9612,3 +9612,379 @@ Ori的状态对茶而言意义一般的，除非他能好到把中单打爆再�
 
 后面的败者组都是BO1这么夸张吗？ 
 
+
+
+*****
+
+####  StrangerJ  
+##### 19147#       发表于 2022-10-20 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008388&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 17:30</a>
+感觉本楼老逼不多啊，当年navi三兄弟的生涯老逼们应该是如数家珍吧
+三个人都是08-09的ks.int同期生，当时的 ...</blockquote>
+这老逼程度有点太老了呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mizoh  
+##### 19148#       发表于 2022-10-20 17:32
+
+雪碧可以备战TI12了
+
+*****
+
+####  Gosin  
+##### 19149#       发表于 2022-10-20 17:32
+
+ 本帖最后由 Gosin 于 2022-10-20 17:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008354&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-20 17:28</a>
+
+今年这bp跟赛训的安排做得很差，miposhka跟silent真的好好反思
+
+放一个月假纯粹是给自己找不自在， ...</blockquote>
+他们自己其实心里都没啥底...事实证明也确实不行
+
+我估计应该还是吸取教训，(先含泪解说)回塞尔维亚好好备战dpc和major了这几个逼按照履历其实不太好在强队随便横跳---跟那种跳着玩的cis区选手不一样，他们也随便跳但都是八线到十八线队
+
+yatoro之前的两个队liquidpedia都没信息的...
+
+collapse和mira是一个乌克兰八线队的老队友.
+
+老东京职业生涯15年出道19年才有信息...
+
+miposhka 作为cis区远古选手只在帝国混过没进过vp navi...
+
+*****
+
+####  Asukalangley33  
+##### 19150#       发表于 2022-10-20 17:32
+
+我之前说南美DOTA几年内没竞争力看来说早了啊
+
+不会DOTA这边也来个巴西LG那种南美狠角色吧？
+
+*****
+
+####  Suny08  
+##### 19151#       发表于 2022-10-20 17:32
+
+猴爹估计要在败者组为所欲为咯，接下来估计大概率打yopaj 和床，这估计要让他信心回来了
+
+*****
+
+####  思考者的迷  
+##### 19152#       发表于 2022-10-20 17:32
+
+雪碧真的藏到了Ti12 我真的哭死
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 19153#       发表于 2022-10-20 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008388&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 17:30</a>
+感觉本楼老逼不多啊，当年navi三兄弟的生涯老逼们应该是如数家珍吧
+三个人都是08-09的ks.int同期生，当时的 ...</blockquote>
+你去跟叶饮潇湘连麦吧
+
+*****
+
+####  TIZI  
+##### 19154#       发表于 2022-10-20 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008395&amp;ptid=2099454" target="_blank">我爱撩菜 发表于 2022-10-20 17:31:02</a>
+后面的败者组都是BO1这么夸张吗？</blockquote>bo3 败者组首轮是bo1
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nxmonitor  
+##### 19155#       发表于 2022-10-20 17:33
+
+说实话LGD也有同样的问题，也是4号位被拴在劣势路了，不过是因为bian状态不好，甚至RNG也有一样的问题，只不过是查理斯身体不好对线血崩了……
+
+*****
+
+####  超人苏坦纳  
+##### 19156#       发表于 2022-10-20 17:33
+
+死灵龙 mdoe 孙润发
+
+*****
+
+####  Kazepollar  
+##### 19157#       发表于 2022-10-20 17:34
+
+ti4的时候哥们儿还是高中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实不算老逼，我打dota1的时候已经是6.77了
+
+*****
+
+####  Sabbah  
+##### 19158#       发表于 2022-10-20 17:34
+
+你去跟叶饮潇湘连麦吧
+
+*****
+
+####  枯风瘦雪02  
+##### 19159#       发表于 2022-10-20 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008422&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-20 17:33</a>
+
+说实话LGD也有同样的问题，也是4号位被拴在劣势路了，不过是因为bian状态不好，甚至RNG也有一样的问题，只 ...</blockquote>
+对线的时候离不开和到开团的时候都打不好先手的差距还是挺大的
+
+*****
+
+####  tasuku  
+##### 19160#       发表于 2022-10-20 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008368&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-20 17:29</a>
+国师明天想宰面八只有一种可能。
+
+猴爹和德张心态爆炸不想玩了乱送。</blockquote>
+不懂外号可以不用的
+
+*****
+
+####  Rorgen  
+##### 19161#       发表于 2022-10-20 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008420&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-20 17:33</a>
+你去跟叶饮潇湘连麦吧</blockquote>
+我只想和他妈连麦
+
+*****
+
+####  你可以试试  
+##### 19162#       发表于 2022-10-20 17:34
+
+永远记得去年十月，在最绝望的时刻，雪碧打出来的充满激情的dota是如何逼疯集美的，我的心中只有感恩，farewell
+
+*****
+
+####  越动天下  
+##### 19163#       发表于 2022-10-20 17:35
+
+fnc看的经济可以 但是实际感觉已经不行了
+
+*****
+
+####  哈曼的YY  
+##### 19164#       发表于 2022-10-20 17:35
+
+玛德不会给干瘪和小组赛一样第一天拉跨后面起来了吧
+
+但是boom感觉又带不走 小组赛被干瘪0-2的
+
+*****
+
+####  zhrs456  
+##### 19165#       发表于 2022-10-20 17:35
+
+我只想和他妈连麦
+
+*****
+
+####  StrangerJ  
+##### 19166#       发表于 2022-10-20 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008433&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-20 17:34</a>
+不懂外号可以不用的</blockquote>
+哥们儿小组赛没看过论坛？新款德张移民神
+
+*****
+
+####  星野航  
+##### 19167#       发表于 2022-10-20 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008414&amp;ptid=2099454" target="_blank">Gosin 发表于 2022-10-20 18:32</a>
+
+他们自己其实心里都没啥底...事实证明也确实不行
+
+我估计应该还是吸取教训，(先含泪解说)回塞尔维亚好好备 ...</blockquote>
+就没底，第一个vlog出来的时候，所有人的采访都感觉没什么自信
+
+提到的话都是“我们放了一个月假，我们不会说训练胜率如何，只能说最近调整了不少”
+
+这话说出口就一股子，其实我们还没摸索到这版本要怎么打的感觉
+
+然后天梯胜率除了崩溃一个人，其他四兄弟都是50以下的水准，整个就是晕晕糊糊的
+
+打起来果然就莫名其妙了。等等看了，我是感觉要么不懂再来一年，要么老东京离开，找个新中单再搓了
+
+事实证明major冠军在ti上的发挥确实有梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 19168#       发表于 2022-10-20 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008388&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 17:30</a>
+感觉本楼老逼不多啊，当年navi三兄弟的生涯老逼们应该是如数家珍吧
+三个人都是08-09的ks.int同期生，当时的 ...</blockquote>
+真正的老b只记得恭喜越南sb战队
+你说的都是些啥啊不认识
+
+*****
+
+####  nxmonitor  
+##### 19169#       发表于 2022-10-20 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008432&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 17:34</a>
+
+对线的时候离不开和到开团的时候都打不好先手的差距还是挺大的</blockquote>
+确实，卡师傅生病以后状态特别差，不知道今天晚上会怎么样……
+
+*****
+
+####  Asukalangley33  
+##### 19170#       发表于 2022-10-20 17:36
+
+我刚打DOTA时候有个VIGOSS来中国的事
+
+当时主流也都是吹VIGOSS独一档，西恩有厉害的，但是没他叼
+
+然后VIGOSS被干了以后记得好像是开始吹566和黄翔厉害
+
+
+
+*****
+
+####  莉拉厨  
+##### 19171#       发表于 2022-10-20 17:37
+
+10年之前确实有点老了，身边的几个朋友基本上是从ehome十冠王时期开始关注的
+
+*****
+
+####  bluebaby  
+##### 19172#       发表于 2022-10-20 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老逼可以不要回忆了，再回忆就要梗最多的那些个人登场了
+
+*****
+
+####  无恨  
+##### 19173#       发表于 2022-10-20 17:38
+
+entity包括教练有四个独联体的，现在BB、TS都被淘汰了 ，该轮到他们了
+
+*****
+
+####  星野航  
+##### 19174#       发表于 2022-10-20 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008388&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 18:30</a>
+
+感觉本楼老逼不多啊，当年navi三兄弟的生涯老逼们应该是如数家珍吧
+
+三个人都是08-09的ks.int同期生，当时的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别说，我正经开始看dota比赛还是从ti1开始
+
+dota1的很多比赛都没怎么看过，从看war3比赛到看dota2比赛有过空窗期。在10年前dota战队的结构确实不是很清楚
+
+*****
+
+####  Asukalangley33  
+##### 19175#       发表于 2022-10-20 17:38
+
+虽然梗很多，但是我这辈子只和一个职业队打过比赛
+
+就是达蒙P和雕的NIRVANA<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 19176#       发表于 2022-10-20 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008479&amp;ptid=2099454" target="_blank">无恨 发表于 2022-10-20 17:38</a>
+entity包括教练有四个独联体的，现在BB、TS都被淘汰了 ，该轮到他们了</blockquote>
+那ett淘汰以后就轮到秘密了？
+
+*****
+
+####  反方向的波  
+##### 19177#       发表于 2022-10-20 17:39
+
+德拉乔妮这个水人送的是真的快
+
+*****
+
+####  nxmonitor  
+##### 19178#       发表于 2022-10-20 17:39
+
+虾之国血脉压制不是吹的，你看下小组赛LGD打BOOM两局就好了，BOOM中单看到nts和nts看到nisha一样……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 19179#       发表于 2022-10-20 17:39
+
+GG这个开雾太蠢了 下路线都要到高地了
+
+*****
+
+####  Rorgen  
+##### 19180#       发表于 2022-10-20 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008456&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-20 17:36</a>
+真正的老b只记得恭喜越南sb战队
+你说的都是些啥啊不认识</blockquote>
+acg2009，傻鲷的cd决赛优势掉线重连输了
+
+*****
+
+####  超人苏坦纳  
+##### 19181#       发表于 2022-10-20 17:40
+
+这个瑞文是之前拳击手的指定菜逼吗？
+
+*****
+
+####  walfeds  
+##### 19182#       发表于 2022-10-20 17:40
+
+虽然09年第一次打的刀，但当年就没什么看比赛习惯，有空都在玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在逐步电子ed了才转过来
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  枯风瘦雪02  
+##### 19183#       发表于 2022-10-20 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008514&amp;ptid=2099454" target="_blank">超人苏坦纳 发表于 2022-10-20 17:40</a>
+
+这个瑞文是之前拳击手的指定菜逼吗？</blockquote>
+是.zsbd
+
+*****
+
+####  星野航  
+##### 19184#       发表于 2022-10-20 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008493&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-20 18:39</a>
+
+那ett淘汰以后就轮到秘密了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有现在在打的GG
+
+*****
+
+####  syndrome2032  
+##### 19185#       发表于 2022-10-20 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008514&amp;ptid=2099454" target="_blank">超人苏坦纳 发表于 2022-10-20 17:40</a>
+这个瑞文是之前拳击手的指定菜逼吗？</blockquote>
+是国师指定的。
+
+拳酱指定菜逼先后是mp，ace
+
+*****
+
+####  wzy200912345  
+##### 19186#       发表于 2022-10-20 17:40
+
+D1时代平台打得人非常多，但比赛啥的确实关注度没那么高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
