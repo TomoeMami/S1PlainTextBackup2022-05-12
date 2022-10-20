@@ -64,3 +64,19 @@
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  扑克脸军曹  
+##### 1687#       发表于 2022-10-20 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995785&amp;ptid=2027972" target="_blank">舌怪 发表于 2022-10-19 22:57</a>
+
+请问现在有什么方便赚钱的办法吗？我才发现我一辆VGT的车都没有，打不了更新菜单里那个vision gran turismo ...</blockquote>
+撒丁岛800pp、勒芒700pp，东京高600pp
+
+难度：撒丁岛&lt;勒芒&lt;东京高
+
+来钱效率：东京高&gt;勒芒&gt;撒丁岛
+
