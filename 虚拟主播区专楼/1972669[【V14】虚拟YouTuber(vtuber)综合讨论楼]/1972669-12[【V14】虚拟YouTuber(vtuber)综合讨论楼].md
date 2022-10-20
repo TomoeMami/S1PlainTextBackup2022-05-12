@@ -12151,3 +12151,12 @@ kmnz三专有比二专好听的，但感觉还是不如一专
 
 还不是虹人打钱不给力，要反思啊
 
+
+
+*****
+
+####  Porsche  
+##### 17613#       发表于 2022-10-20 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正不止一次在楼里说过了，自从上市了之后变得越来越抠，早晚会有受不了这种气氛又要走人的
+
