@@ -6148,3 +6148,14 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 已经拿到了，原来雪山有个小猪房间的武器没买，这后续查漏功能可以提升下就方便了，这缺一个武器硬是相当 ...</blockquote>
 我每章都把小猪买空才进下一章，漏了确实麻烦。
 
+
+
+*****
+
+####  lazycat233  
+##### 569#       发表于 2022-10-20 10:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我就说我打boss怎么这么刮痧，属性点全点幸运了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
