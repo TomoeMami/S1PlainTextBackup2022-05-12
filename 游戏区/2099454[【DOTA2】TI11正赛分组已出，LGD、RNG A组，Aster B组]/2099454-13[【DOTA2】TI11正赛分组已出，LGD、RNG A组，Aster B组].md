@@ -3614,3 +3614,635 @@ BC：就是妮选我？
 
 为什么S1的A畜粉丝总有一股太监味
 
+
+
+*****
+
+####  DDWarrior  
+##### 18426#       发表于 2022-10-20 15:21
+
+<strong>感觉lgd故意第三避开茶给自己玩大了</strong>
+
+当时就应该去拿第二，淘汰赛就打茶，反正茶也是要去败者组，该牺牲就牺牲了，哎
+
+*****
+
+####  nowaki  
+##### 18427#       发表于 2022-10-20 15:22
+
+哦牛批，故意拿第三是什么洗法
+
+*****
+
+####  非建政专用号  
+##### 18428#       发表于 2022-10-20 15:23
+
+我建议你楼以后搬大便不是截图就当是自己拉的，你楼大粪转运车我只认战狼ptsd
+
+*****
+
+####  roxas.sora  
+##### 18429#       发表于 2022-10-20 15:23
+
+这种洗法说明清算力度不够
+
+*****
+
+####  情商  
+##### 18430#         楼主| 发表于 2022-10-20 15:23
+
+感觉lgd故意第三避开茶给自己玩大了  当时就应该去拿第二，淘汰赛就打茶，反正茶也是要去败者组，该牺牲就牺牲了，哎
+
+*****
+
+####  Asukalangley33  
+##### 18431#       发表于 2022-10-20 15:23
+
+2022年还在念叨"TI10是2届奖金”“TI奖金V社包税”的人也太怪了吧
+
+居然让我在现实生活中遇到了，好TM傻逼啊
+
+感觉就像你现在找个二次元聊里番，他开口就是夜勤bing栋，感觉他脑内的时候十几年没变过
+
+*****
+
+####  lyjssj  
+##### 18432#       发表于 2022-10-20 15:24
+
+露米要回家了，晚上九点直播间见
+
+*****
+
+####  Rorgen  
+##### 18433#       发表于 2022-10-20 15:24
+
+老干鳖小组赛打Hokori GG BetBoom都是1-1，怎么还有人认为有实力的，特别是A组比B组强度低这么多
+
+*****
+
+####  一品堂官  
+##### 18434#       发表于 2022-10-20 15:24
+
+撸米是吧 管人痴屌用没有
+
+*****
+
+####  nowaki  
+##### 18435#       发表于 2022-10-20 15:24
+
+你lgd打完bb的时候，茶都没开始打雪碧，他知道茶能进胜者组是吧
+
+*****
+
+####  你可以试试  
+##### 18436#       发表于 2022-10-20 15:25
+
+那完了，我开口就是bible黑色，我也是遗老了
+
+*****
+
+####  莉拉厨  
+##### 18437#       发表于 2022-10-20 15:25
+
+已经结束辣，我都说了你红龙这个卜基德的小弟敢选bc我克神直接把你头都拧下来
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  甩不出去的黄牌  
+##### 18438#       发表于 2022-10-20 15:25
+
+2022年还在念叨"TI10是2届奖金”“TI奖金V社包税”的人也太怪了吧
+
+居然让我在现实生活中遇到了，好TM傻逼啊
+
+感觉就像你现在找个二次元聊里番，他开口就是黑兽，感觉他脑内的时候十几年没变过
+
+*****
+
+####  沈经文  
+##### 18439#       发表于 2022-10-20 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005720&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-20 15:23</a>
+
+2022年还在念叨"TI10是2届奖金”“TI奖金V社包税”的人也太怪了吧
+
+居然让我在现实生活中遇到了，好TM傻逼啊 ...</blockquote>
+星号果然是夜勤bing栋，真的经典啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏西踩到我了  
+##### 18440#       发表于 2022-10-20 15:25
+
+lgd表现太差了，扇了我两个大比兜
+
+*****
+
+####  sepcorvus  
+##### 18441#       发表于 2022-10-20 15:26
+
+A组又倒了一个
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  roxas.sora  
+##### 18442#       发表于 2022-10-20 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">维斯帕在南美真的可惜了，好强
+
+*****
+
+####  食粪者  
+##### 18443#       发表于 2022-10-20 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005749&amp;ptid=2099454" target="_blank">甩不出去的黄牌 发表于 2022-10-20 15:25</a>
+2022年还在念叨"TI10是2届奖金”“TI奖金V社包税”的人也太怪了吧
+
+居然让我在现实生活中遇到了，好TM傻逼啊 ...</blockquote>
+来点新名作，我也好久没关注了
+
+*****
+
+####  坚定的团子党  
+##### 18444#       发表于 2022-10-20 15:26
+
+1打5，属实拿这猴子没办法
+
+*****
+
+####  walfeds  
+##### 18445#       发表于 2022-10-20 15:26
+
+露米是吧 管人痴屌用没有
+
+*****
+
+####  你可以试试  
+##### 18446#       发表于 2022-10-20 15:26
+
+竿叔叔吧
+
+*****
+
+####  一夜秋风袭锦城  
+##### 18447#       发表于 2022-10-20 15:26
+
+还有这种奇怪的要求，满足妮，a处司马
+
+*****
+
+####  Sabbah  
+##### 18448#       发表于 2022-10-20 15:26
+
+管人痴屌用没有
+
+*****
+
+####  sodah  
+##### 18449#       发表于 2022-10-20 15:26
+
+看着拆完打GG是吧？
+
+*****
+
+####  情商  
+##### 18450#         楼主| 发表于 2022-10-20 15:27
+
+2022年还在念叨"TI10是2届奖金”“TI奖金V社包税”的人也太怪了吧
+
+居然让我在现实生活中遇到了，好TM傻逼啊
+
+感觉就像你现在找个二次元聊里番，他开口就是轮舞曲，感觉他脑内的时候十几年没变过
+
+
+
+*****
+
+####  银翼的维罗西  
+##### 18451#       发表于 2022-10-20 15:27
+
+管人痴屌用没有
+
+*****
+
+####  阿垃垃圾历  
+##### 18452#       发表于 2022-10-20 15:27
+
+按照这个进度 rng比赛是不是要提前开啊 
+我tm估计还没下班 在回家路上
+
+*****
+
+####  非建政专用号  
+##### 18453#       发表于 2022-10-20 15:27
+
+克神在猴子身后畏畏缩缩的偷偷a塔，一看火猫有靠近意图马上跳刀的样子突然让我觉得在哪见过
+
+*****
+
+####  Rorgen  
+##### 18454#       发表于 2022-10-20 15:27
+
+K1太下头了，这换我绝对不出晕锤，直接血辣好吧
+
+*****
+
+####  莉拉厨  
+##### 18455#       发表于 2022-10-20 15:27
+
+按照b组这强度rng比赛可以不用看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 18456#       发表于 2022-10-20 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">脑子里第一个跳出来的是鬼父，看来我是首陀罗
+
+*****
+
+####  snarc1  
+##### 18457#       发表于 2022-10-20 15:28
+
+克里斯一个人去刷就行了
+
+*****
+
+####  nowaki  
+##### 18458#       发表于 2022-10-20 15:28
+
+现在的里番全是大奶晃晃晃，确实不如十年前
+
+*****
+
+####  勤练带来力量  
+##### 18459#       发表于 2022-10-20 15:28
+
+就算ame能达到去年鸭头肉(决赛)的水平，bian能有崩溃哥的水平吗晕
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 18460#       发表于 2022-10-20 15:28
+
+b组强度打不过的
+
+*****
+
+####  一色いろは  
+##### 18461#       发表于 2022-10-20 15:28
+
+谁来一张克神的你指尖跳动的电光<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usoda  
+##### 18462#       发表于 2022-10-20 15:28
+
+A组又走一个<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  幻想风靡_  
+##### 18463#       发表于 2022-10-20 15:28
+
+b组这强度是不是可以提前恭喜ett了
+
+*****
+
+####  外挂全家脚气  
+##### 18464#       发表于 2022-10-20 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005654&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-20 15:20</a>
+
+你是老几？要你觉得，你指导个什么东西？摆正自己进这楼就要挨打的本质ok？ ...</blockquote>
+我也没指导什么啊，你在说什么？至于挨打，我也没反抗啊，愚蠢的我以前没看清AME/LGD本质，受点惩罚也是应该的嘛。
+
+我唯一觉得有奇怪的就是怎么我说AME这臭烘烘的屎是LGD绝对的背锅位（毕竟4人带一坨屎打5人怎么赢）怎么也会被骂，好像不准我黑AME/LGD一样<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+*****
+
+####  齐柏林轰炸机  
+##### 18465#       发表于 2022-10-20 15:29
+
+这下老二都没了，A÷的威力太强了
+
+*****
+
+####  syndrome2032  
+##### 18466#       发表于 2022-10-20 15:29
+
+bc:小农药，谁才是sa老大啊。
+ta:正是在下。
+
+*****
+
+####  thistimeforlife  
+##### 18467#       发表于 2022-10-20 15:29
+
+南美二哥！
+
+*****
+
+####  银翼的维罗西  
+##### 18468#       发表于 2022-10-20 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005791&amp;ptid=2099454" target="_blank">阿垃垃圾历 发表于 2022-10-20 15:27</a>
+
+按照这个进度 rng比赛是不是要提前开啊 
+
+我tm估计还没下班 在回家路上</blockquote>
+建议不看，我不准备看了
+
+*****
+
+####  snarc1  
+##### 18469#       发表于 2022-10-20 15:30
+
+sky big！！！
+
+*****
+
+####  莉拉厨  
+##### 18470#       发表于 2022-10-20 15:30
+
+克神太懂这个游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">和猴子幻象同时在线前面，拍了一巴掌把近战兵全部拍残就走了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wzy200912345  
+##### 18471#       发表于 2022-10-20 15:30
+
+哈哈哈哈哈哈哈哈哈哈哈哈哈或或或或或或或或或或或或或或或或或或或或或或这个大今天最好笑的时刻
+
+*****
+
+####  迷途lite  
+##### 18472#       发表于 2022-10-20 15:30
+
+rng也是a组<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 18473#         楼主| 发表于 2022-10-20 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005825&amp;ptid=2099454" target="_blank">外挂全家脚气 发表于 2022-10-20 15:29</a>
+
+我也没指导什么啊，你在说什么？至于挨打，我也没反抗啊，愚蠢的我以前没看清AME/LGD本质，受点惩罚也是 ...</blockquote>
+你不会以为正常人看不出你再阴阳怪气吧？
+
+*****
+
+####  walfeds  
+##### 18474#       发表于 2022-10-20 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">农药智商被完爆了，老大哥还是老大哥
+
+*****
+
+####  Rorgen  
+##### 18475#       发表于 2022-10-20 15:30
+
+bc：让一个小小
+
+*****
+
+####  弈秋  
+##### 18476#       发表于 2022-10-20 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">克神克神 勇猛超神
+
+*****
+
+####  迷途lite  
+##### 18477#       发表于 2022-10-20 15:30
+
+艹这个谜团道心要破碎了
+
+*****
+
+####  nowaki  
+##### 18478#       发表于 2022-10-20 15:30
+
+谜团和影魔大幻想
+
+*****
+
+####  fopinecone  
+##### 18479#       发表于 2022-10-20 15:30
+
+红龙最后这也太小丑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sodah  
+##### 18480#       发表于 2022-10-20 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双大齐空
+
+
+
+*****
+
+####  莉拉厨  
+##### 18481#       发表于 2022-10-20 15:30
+
+血祭克神！
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Horusddt  
+##### 18482#       发表于 2022-10-20 15:30
+
+感觉bc唯一小丑克神呀
+
+*****
+
+####  赤星ビスコ  
+##### 18483#       发表于 2022-10-20 15:30
+
+笑死，克神死了更好打
+
+*****
+
+####  roxas.sora  
+##### 18484#       发表于 2022-10-20 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你大哥还是你大哥
+
+*****
+
+####  非建政专用号  
+##### 18485#       发表于 2022-10-20 15:31
+
+窝克在队友身后装逼被暴打真是绝了
+
+*****
+
+####  外挂全家脚气  
+##### 18486#       发表于 2022-10-20 15:31
+
+再次A组什么臭鱼烂虾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 18487#       发表于 2022-10-20 15:31
+
+18-0-7，鉴定为炸鱼破坏ti生态
+
+*****
+
+####  nowaki  
+##### 18488#       发表于 2022-10-20 15:31
+
+[@反方向的波](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=550767) 红包红包
+
+*****
+
+####  bluebaby  
+##### 18489#       发表于 2022-10-20 15:31
+
+双重空大笑死了
+
+*****
+
+####  jk9hot  
+##### 18490#       发表于 2022-10-20 15:31
+
+克神我们回家直播吧，哈哈
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cwlo  
+##### 18491#       发表于 2022-10-20 15:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这谜团太搞了
+
+*****
+
+####  北欧王座  
+##### 18492#       发表于 2022-10-20 15:31
+
+名场面拉空大
+
+*****
+
+####  syndrome2032  
+##### 18493#       发表于 2022-10-20 15:32
+
+目前b组对a组3-0。看看谁来第一个为a组争光拿下首胜。
+
+*****
+
+####  屠夫  
+##### 18494#       发表于 2022-10-20 15:32
+
+<img src="https://img.saraba1st.com/forum/202210/20/153125ewp45k4eebtbw8k5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A382A847-F2D4-4DBF-BC46-CC598E222C43.jpeg</strong> (137.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 15:31 上传
+
+别吧，茶这种fw队不值得lgd特意选剧毒啊<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 18495#       发表于 2022-10-20 15:32
+
+南美组个银河战舰出来随便爆杀毛子和西欧开启王朝吧
+
+*****
+
+####  坚定的团子党  
+##### 18496#       发表于 2022-10-20 15:32
+
+克神这小小是真的绷不住，狐假虎威<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lxxh  
+##### 18497#       发表于 2022-10-20 15:32
+
+笑死这两个大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 18498#       发表于 2022-10-20 15:32
+
+口令：_________生日快乐      名字只用一半 打中文
+今天这把场上谁生日不用我说了吧<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fopinecone| + 1|好评加鹅|
+| 莉拉厨| + 1|好评加鹅|
+| 弈秋| + 1|生日快乐！|
+
+查看全部评分
+
+*****
+
+####  情商  
+##### 18499#         楼主| 发表于 2022-10-20 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005916&amp;ptid=2099454" target="_blank">屠夫 发表于 2022-10-20 15:32</a>
+
+别吧，茶这种fw队不值得lgd特意选剧毒啊</blockquote>
+ 哦牛皮，出动六号位剧毒是吧
+
+*****
+
+####  一夜秋风袭锦城  
+##### 18500#       发表于 2022-10-20 15:33
+
+哦牛批，lxo还能这么不基德
+
+*****
+
+####  坚定的团子党  
+##### 18501#       发表于 2022-10-20 15:33
+
+投毒论 和去年 假赛论 一样弱智
+
+*****
+
+####  Rorgen  
+##### 18502#       发表于 2022-10-20 15:33
+
+感觉thunderA的三号位换wisper直接决赛了
+
+*****
+
+####  非建政专用号  
+##### 18503#       发表于 2022-10-20 15:34
+
+口令红包：窝克_ _ 轻取红龙
+
+第一个是窝克一年一度的重要日子
+
