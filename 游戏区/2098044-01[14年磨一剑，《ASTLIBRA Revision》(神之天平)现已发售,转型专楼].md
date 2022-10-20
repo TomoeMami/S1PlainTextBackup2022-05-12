@@ -6102,3 +6102,18 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 贤者要全武器全盾和全护甲，他还说没要求全饰品，是关照了主角，这没全收集对照表是要人命啊 ...</blockquote>
 基本上就是每章商店+图纸武器，扭蛋武器，挑战BOSS武器，配合嘉隆的鼻子扫图吧<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  五块  
+##### 565#       发表于 2022-10-20 09:25
+
+ 本帖最后由 五块 于 2022-10-20 09:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998539&amp;ptid=2098044" target="_blank">vidomina 发表于 2022-10-20 09:17</a>
+
+感觉打伤害还是全魔力用凭依技来的快啊，平a感觉太刮？</blockquote>
+刷素材平A舒服，狂暴空蝉自动连击一键过图<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+我现在把精力上升量拉满，凭依技用无敌时间长耗能少的月光纯当躲技能用，上完加速加攻一个破防能砍boss一半血。
+

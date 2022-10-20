@@ -80,3 +80,14 @@
 
 来钱效率：东京高&gt;勒芒&gt;撒丁岛
 
+
+
+*****
+
+####  heseran  
+##### 1688#       发表于 2022-10-20 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995785&amp;ptid=2027972" target="_blank">舌怪 发表于 2022-10-19 22:57</a>
+请问现在有什么方便赚钱的办法吗？我才发现我一辆VGT的车都没有，打不了更新菜单里那个vision gran turismo ...</blockquote>
+每天一把勒芒<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
