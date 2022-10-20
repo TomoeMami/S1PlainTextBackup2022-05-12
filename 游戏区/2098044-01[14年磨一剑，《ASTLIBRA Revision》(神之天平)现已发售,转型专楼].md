@@ -5998,3 +5998,15 @@ miss chef
 二周目了，面包店换盔甲的心天平怎么搞来着，隐藏BOSS给的装备都练出宝石了 ...</blockquote>
 应该是竞技场或者小徽章会出一本炼金指南，配方里宝石全部合成最后有变石
 
+
+
+*****
+
+####  雪落白夜  
+##### 556#       发表于 2022-10-20 08:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57994849&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-19 21:45</a>
+
+说起来岁月真是把杀猪刀，盖乌是怎么从当年的美少年长成这种大叔样的 ...</blockquote>
+再怎么样的美少年经历那种事还过了十几年也要变大叔<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
