@@ -33,3 +33,13 @@
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  rrtyui  
+##### 2625#       发表于 2022-10-20 16:25
+
+虽败犹荣作为贬义词早在1718年成绩好的时候就已经被按死了
+之后从来都是“这次是真的虽败犹荣吧！”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

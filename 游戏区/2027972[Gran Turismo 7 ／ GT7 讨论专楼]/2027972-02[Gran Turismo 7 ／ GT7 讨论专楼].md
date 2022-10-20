@@ -158,3 +158,17 @@ gt7的每日竞赛还是全是公路赛吗，有拉力吗</blockquote>
 改了轮胎耐久度之后没怎么刷，可能不太清楚现在的刷钱套路，我删掉效率和难度这块吧 ...</blockquote>
 迈凯轮MP4/4增重限马力到800PP，跑撒丁岛嘎嘎乱杀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iou90  
+##### 1695#       发表于 2022-10-20 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995785&amp;ptid=2027972" target="_blank">舌怪 发表于 2022-10-19 22:57</a>
+
+请问现在有什么方便赚钱的办法吗？我才发现我一辆VGT的车都没有，打不了更新菜单里那个vision gran turismo ...</blockquote>
+我最喜欢的是1小时spa 因为是800pp 所以gr2/gr1级别的车都可以
+
+其次撒丁岛...
+
