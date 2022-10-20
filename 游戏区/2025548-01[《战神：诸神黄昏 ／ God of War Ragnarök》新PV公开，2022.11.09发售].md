@@ -6110,3 +6110,12 @@ gow2018的那些支线还可以吧，都做了点剧情
 
 战神怎么还把槲寄生做成项链了，杀人诛心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  漫漫来  
+##### 665#       发表于 2022-10-21 02:22
+
+隔壁ff16的新片直接放了，所以真就没有showcase了呗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉这作宣传也太低调了，剩下半个月就发售了怎么没怎么看到宣传
+

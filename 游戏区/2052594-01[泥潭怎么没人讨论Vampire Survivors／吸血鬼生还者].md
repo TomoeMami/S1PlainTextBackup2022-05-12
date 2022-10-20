@@ -3156,3 +3156,21 @@ Vampire Survivors\resources\app\.webpack\renderer\assets\img
 
 我目前还是处在刚解锁全人物和全金币被动上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saberserker  
+##### 309#       发表于 2022-10-21 02:01
+
+ 本帖最后由 saberserker 于 2022-10-21 02:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58017029&amp;ptid=2052594" target="_blank">Leona_Akari 发表于 2022-10-21 01:48</a>
+
+1.0了
+
+重新捡起来玩了，现在是个什么流程。。。
+
+我目前还是处在刚解锁全人物和全金币被动上 ...</blockquote>
+
+现在随便玩了，都很牛逼
+

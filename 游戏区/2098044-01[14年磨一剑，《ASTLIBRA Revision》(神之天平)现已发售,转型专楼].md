@@ -6832,3 +6832,48 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 是不是你在技能界面里按过特殊键了，上面有个手动切换暂停和不暂停的选项。 ...</blockquote>
 原来如此，我还以为出bug了
 
+
+
+*****
+
+####  有点追求  
+##### 630#       发表于 2022-10-21 02:29
+
+第三关这BOSS设计的太傻了，死了5次才知道它这用飞行道具的时候可以近身打。。
+
+还有既然不给存档点，起码你每次让我重新开始BOSS战的话就别把我的药给用掉啊。
+
+
+
+*****
+
+####  onlv星骸  
+##### 631#       发表于 2022-10-21 02:45
+
+<img src="https://img.saraba1st.com/forum/202210/21/024350rr5lj0i0r04ffigr.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221021023408.png</strong> (69.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 02:43 上传
+
+打完完美结局了，新章剧情太赞了。看了眼成就就还剩杀敌15000要刷的，刷刷白金了。漏了个小徽章得按wiki找了...
+
+*****
+
+####  onlv星骸  
+##### 632#       发表于 2022-10-21 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58015810&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-20 23:41</a>
+
+装备盘这个还是没看懂，我发现装备盘可以装备3个，但是装备盘似乎也分质量高低的，那这东西属性都是随机的 ...</blockquote>
+属性全随机，多了的话替换。 但是他掉落的时候会指定槽位，不是你想替换掉哪个就替换哪个。
+
+*****
+
+####  shimotsuki14  
+##### 633#       发表于 2022-10-21 04:03
+
+沉迷了，两天打了十四个小时多，刚把第三章打完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
