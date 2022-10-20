@@ -12098,3 +12098,31 @@ kmnz三专有比二专好听的，但感觉还是不如一专
 
 铲弟昨晚这个氪金大暴死三井途中现实逃避去看角色故事结果正好应景对上太艹了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星野航  
+##### 17608#       发表于 2022-10-20 10:16
+
+昨天龙胆尊杂谈悄默声细黑屁了不少nijisanji运营，说什么自己也没啥办法， 也没有决定权，只是“原作者”blabla
+
+结果早晨就各种找补，什么自己说话太负面了很抱歉，还做图表示nju很有趣你们都要来
+
+很难不怀疑下播之后被经纪人点草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我就等着看ankr的第一次投资人电话会议了，看看田角这帮人能扯出什么东西
+
+*****
+
+####  星野航  
+##### 17609#       发表于 2022-10-20 10:16
+
+昨天龙胆尊杂谈悄默声细黑屁了不少nijisanji运营，说什么自己也没啥办法， 也没有决定权，只是“原作者”blabla
+
+结果早晨就各种找补，什么自己说话太负面了很抱歉，还做图表示nju很有趣你们都要来
+
+很难不怀疑下播之后被经纪人点草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我就等着看ankr的第一次投资人电话会议了，看看田角这帮人能扯出什么东西
+
