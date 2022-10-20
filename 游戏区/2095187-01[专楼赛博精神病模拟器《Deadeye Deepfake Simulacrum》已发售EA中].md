@@ -1453,3 +1453,19 @@ C:\Users\*\AppData\LocalLow\nodayshalleraseyou\DeadeyeDeepfakeSimulacrum\
 
 诶诶 这算已经正式发售了么 我看还在抢先体验状态呀 之后作者还会加新内容么
 
+
+
+*****
+
+####  Tring  
+##### 76#         楼主| 发表于 2022-10-20 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998564&amp;ptid=2095187" target="_blank">c1062596251 发表于 2022-10-20 09:19</a>
+
+诶诶 这算已经正式发售了么 我看还在抢先体验状态呀 之后作者还会加新内容么 ...</blockquote>
+算EA状态。
+
+EA说明里写着会加新内容，这作者挺守信的，发售前承诺的东西发售时基本都做到了。
+
+至少还有个肉鸽模式肯定是会加的。
+

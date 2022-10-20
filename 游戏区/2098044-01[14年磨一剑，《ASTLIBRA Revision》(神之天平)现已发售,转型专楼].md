@@ -6117,3 +6117,22 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 我现在把精力上升量拉满，凭依技用无敌时间长耗能少的月光纯当躲技能用，上完加速加攻一个破防能砍boss一半血。
 
+
+
+*****
+
+####  元气海牛  
+##### 566#       发表于 2022-10-20 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998572&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-20 09:21</a>
+
+基本上就是每章商店+图纸武器，扭蛋武器，挑战BOSS武器，配合嘉隆的鼻子扫图吧 ...</blockquote>
+已经拿到了，原来雪山有个小猪房间的武器没买，这后续查漏功能可以提升下就方便了，这缺一个武器硬是相当于重头刷了一遍全地图<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  元气海牛  
+##### 567#       发表于 2022-10-20 09:40
+
+明云三次装幕后黑手“欢迎来到我家”，配合BGM，太中二了，好逗一大叔。三次都乐的我够呛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
