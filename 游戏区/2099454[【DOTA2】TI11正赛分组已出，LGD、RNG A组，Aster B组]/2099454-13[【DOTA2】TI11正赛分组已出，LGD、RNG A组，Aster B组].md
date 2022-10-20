@@ -4246,3 +4246,408 @@ bc：让一个小小
 
 第一个是窝克一年一度的重要日子
 
+
+
+*****
+
+####  fopinecone  
+##### 18504#       发表于 2022-10-20 15:34
+
+哦牛皮，不是克神是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  walfeds  
+##### 18505#       发表于 2022-10-20 15:34
+
+别发了别发了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">被锁了领不了
+
+*****
+
+####  43453  
+##### 18506#       发表于 2022-10-20 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005930&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-20 15:32</a>
+口令：_________生日快乐      名字只用一半 打中文
+今天这把场上谁生日不用我说了吧 ...</blockquote>
+领到了领到了，谢谢漏油的可乐
+
+*****
+
+####  Rorgen  
+##### 18507#       发表于 2022-10-20 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005947&amp;ptid=2099454" target="_blank">坚定的团子党 发表于 2022-10-20 15:33</a>
+投毒论 和去年 假赛论 一样弱智</blockquote>
+你也憋不住了？上次你在楼里憋不住被扣几十分忘了是吧哈哈
+
+*****
+
+####  ののワ  
+##### 18508#       发表于 2022-10-20 15:34
+
+这B组强度这么高的吗……
+
+*****
+
+####  Sabbah  
+##### 18509#       发表于 2022-10-20 15:35
+
+满意了吧，被锁5小时了呀
+
+*****
+
+####  Litccc  
+##### 18510#       发表于 2022-10-20 15:35
+
+原来妮就是烟火烟火
+
+
+
+*****
+
+####  asd235614  
+##### 18511#       发表于 2022-10-20 15:35
+
+小电锤，开拆！
+
+*****
+
+####  nowaki  
+##### 18512#       发表于 2022-10-20 15:35
+
+哥们作为中国人只知道潘飞的行为在国内要坐牢的
+
+妮们集美是新加坡人可能需要科普一下
+
+*****
+
+####  你可以试试  
+##### 18513#       发表于 2022-10-20 15:35
+
+现在口风变成唯一想赢的是萧瑟，都是移民神犯罪咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+无耻队友你也有今天
+
+*****
+
+####  情商  
+##### 18514#         楼主| 发表于 2022-10-20 15:35
+
+满意了吧，被锁5小时了呀
+
+*****
+
+####  Rorgen  
+##### 18515#       发表于 2022-10-20 15:36
+
+克里斯这把优势对线没被火猫打爆，立tm大功了呀
+
+*****
+
+####  非建政专用号  
+##### 18516#       发表于 2022-10-20 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005980&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-20 15:35</a>
+
+原来妮就是烟火烟火</blockquote>
+烟火烟火手比我快多了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 18517#         楼主| 发表于 2022-10-20 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005991&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-20 15:35</a>
+
+现在口风变成唯一想赢的是萧瑟，都是移民神犯罪咯
+
+无耻队友你也有今天 ...</blockquote>
+拆队狗活该
+
+*****
+
+####  坚定的团子党  
+##### 18518#       发表于 2022-10-20 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005964&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 15:34</a>
+
+你也憋不住了？上次你在楼里憋不住被扣几十分忘了是吧哈哈</blockquote>
+绷不住了，你是个什么**东西，来不来solo?
+
+*****
+
+####  莉拉厨  
+##### 18519#       发表于 2022-10-20 15:37
+
+又要sala了吗<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 18520#         楼主| 发表于 2022-10-20 15:37
+
+打打打打打
+
+*****
+
+####  azccc52  
+##### 18521#       发表于 2022-10-20 15:37
+
+别发了别发了被锁了领不了
+
+*****
+
+####  tasuku  
+##### 18522#       发表于 2022-10-20 15:37
+
+草泥马第一天就结束了
+
+b652280aade53b4517fa3f84b575245.jpg
+(121.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 15:37 上传
+
+<img src="https://img.saraba1st.com/forum/202210/20/153729u66n6ni8kjuztd8t.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 18523#       发表于 2022-10-20 15:37
+
+打打打，房间号报一下我来观战
+
+*****
+
+####  甩不出去的黄牌  
+##### 18524#       发表于 2022-10-20 15:37
+
+好呀好呀，搬砖一个红包没抢到，玉玉了
+
+*****
+
+####  Rorgen  
+##### 18525#       发表于 2022-10-20 15:38
+
+笑死，看来这位滚刀肉集美还记得自己的光辉历史
+
+*****
+
+####  百世诸侯  
+##### 18526#       发表于 2022-10-20 15:38
+
+打打打打打
+
+*****
+
+####  azccc52  
+##### 18527#       发表于 2022-10-20 15:38
+
+速速solo
+
+*****
+
+####  非建政专用号  
+##### 18528#       发表于 2022-10-20 15:38
+
+打打打，不打以后遇到的队友都是窝克
+
+*****
+
+####  nowaki  
+##### 18529#       发表于 2022-10-20 15:38
+
+我请崩溃帮帮忙 能不能来把马尔斯
+
+*****
+
+####  情商  
+##### 18530#         楼主| 发表于 2022-10-20 15:38
+
+<img src="https://p.sda1.dev/7/28d3f2f8485103b5de22a8221b97f74f/smh_edit_1665888858010.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 18531#       发表于 2022-10-20 15:38
+
+锁了的严查一下
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  sodah  
+##### 18532#       发表于 2022-10-20 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">不想看见崩溃神这么早离开。
+
+*****
+
+####  VT1996  
+##### 18533#       发表于 2022-10-20 15:39
+
+这比赛开得也太快了吧
+
+*****
+
+####  战狼PTSD  
+##### 18534#       发表于 2022-10-20 15:39
+
+玉玉了，小鸽子也太能吸了
+
+这LGD打完居然就处长像个人，退役神真牛啊，但是看到树上被砍下来还是笑出了声
+
+克里斯不拆电锤后恐怖如斯，我为去年的轻视道歉
+
+*****
+
+####  一品堂官  
+##### 18535#       发表于 2022-10-20 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006032&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-20 15:37</a>
+草泥马第一天就结束了</blockquote>
+哈哈哈哈 兄弟可以的 是不是梭哈了啊
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  FBIwarning  
+##### 18536#       发表于 2022-10-20 15:40
+
+我看小组赛飞机的胜率是100% 怎么没有队伍选呢
+
+*****
+
+####  Aeons  
+##### 18537#       发表于 2022-10-20 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哎，不希望雪碧bo1走
+
+*****
+
+####  Sabbah  
+##### 18538#       发表于 2022-10-20 15:40
+
+你永远可以相信蔡宜风的bo1
+
+*****
+
+####  反方向的波  
+##### 18539#       发表于 2022-10-20 15:40
+
+mira是不是去乌克兰鸭店做过牛郎<img src="https://p.sda1.dev/7/2d19899d1511f12650c72780eb80dbfb/CMP_20221020154020777.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 18540#       发表于 2022-10-20 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005856&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-20 15:30</a>
+
+你不会以为正常人看不出你再阴阳怪气吧？</blockquote>
+哎呦，这集美肯定不会这么攻击他们的giegie啊
+
+我这说AME司马，是一坨臭烘烘的屎毫无作用（哦也不是毫无作用毕竟要5人开游戏），建议正常人可以无脑黑的畜生，你说我是阴阳怪气，意思是说我是集美洗giegie是吧，那楼里怕都是集美伪装的A黑吧
+
+再有，小组赛AME水人打液体那把赢了一个个就缩壳了不黑了，我在那有理有据输出LGD打的很差全靠液体没脑子送赢的还被人说看不懂比赛，我看楼里集美是真的多
+
+
+
+*****
+
+####  nowaki  
+##### 18541#       发表于 2022-10-20 15:40
+
+窝克这把和个酱油一样 队友都懒得救的 有什么吹点？
+
+*****
+
+####  Rorgen  
+##### 18542#       发表于 2022-10-20 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006078&amp;ptid=2099454" target="_blank">FBIwarning 发表于 2022-10-20 15:40</a>
+
+我看小组赛飞机的胜率是100% 怎么没有队伍选呢</blockquote>
+飞机只有pakazs玩得好
+
+*****
+
+####  坚定的团子党  
+##### 18543#       发表于 2022-10-20 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006043&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 15:38:12</a>
+笑死，看来这位滚刀肉集美还记得自己的光辉历史</blockquote>这就怂了，不应该呀，不是嘴硬嘛，赶紧报id
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  非建政专用号  
+##### 18544#       发表于 2022-10-20 15:40
+
+飞机唯一指定使用者paksza比赛还没开
+
+*****
+
+####  Rorgen  
+##### 18545#       发表于 2022-10-20 15:40
+
+集美们，一起冲死小黑龙！
+
+<img src="https://img.saraba1st.com/forum/202210/20/154031wu5z1jr7gjuoxjul.jpg" referrerpolicy="no-referrer">
+
+<strong>91(T2~5HI7NU1~J__XAPG1K.jpg</strong> (75.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 15:40 上传
+
+*****
+
+####  两三流浪者  
+##### 18546#       发表于 2022-10-20 15:40
+
+这样的lgd夺冠 更好看
+
+*****
+
+####  一品堂官  
+##### 18547#       发表于 2022-10-20 15:40
+
+差不多 一看就是**的
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  你可以试试  
+##### 18548#       发表于 2022-10-20 15:41
+
+有一说一，sala输了不丢人好吧，邪恶双雄打得再好也还是无耻，y更是个A装备的司马东西，打一下给我们助兴啊
+
+*****
+
+####  Damocles990609  
+##### 18549#       发表于 2022-10-20 15:41
+
+不敢solo的建议直接认爹好吧
+
+*****
+
+####  草海灭巨  
+##### 18550#       发表于 2022-10-20 15:41
+
+话说楼友们是什么时候彻底黑化成a黑的
+1  ti8后
+2  ti9后
+3  ti10后
+4  和管人谈恋爱没担当分手后
+
