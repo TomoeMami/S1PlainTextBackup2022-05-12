@@ -9615,3 +9615,597 @@ eg打干瘪2-0 不会又是循环克制吧
 
 TB我确实一开始就认为压根不该选。其它都挺稳的，就TB我觉得有问题。
 
+
+
+*****
+
+####  Kazepollar  
+##### 20762#       发表于 2022-10-20 21:01
+
+如果是飞机真能赢
+
+*****
+
+####  柚上舍人  
+##### 20763#       发表于 2022-10-20 21:01
+
+等一个“哈喽maybe”
+
+*****
+
+####  恐怖利刃  
+##### 20764#       发表于 2022-10-20 21:01
+
+漏油天天拿科比咒ame结果超哥先致敬了
+
+*****
+
+####  Asukalangley33  
+##### 20765#       发表于 2022-10-20 21:02
+
+拿不到直播大合同必在过年后切假腿，话放在这里
+
+切假腿后可能转4,5
+
+*****
+
+####  FUZE  
+##### 20766#       发表于 2022-10-20 21:02
+
+问一个云玩家问题
+
+为什么MAY皇要叫超哥？
+
+*****
+
+####  Litccc  
+##### 20767#       发表于 2022-10-20 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012675&amp;ptid=2099454" target="_blank">FUZE 发表于 2022-10-20 21:02</a>
+
+问一个云玩家问题
+
+为什么MAY皇要叫超哥？</blockquote>无冠超苏猴，单亚虐奇迹
+
+*****
+
+####  越动天下  
+##### 20768#       发表于 2022-10-20 21:02
+
+lgd和RNG这里面的人应该很多都会没吧 阿楚今年滚不滚呀
+
+*****
+
+####  反方向的波  
+##### 20769#       发表于 2022-10-20 21:02
+
+霉鳖这一年从三个dpc再到阿灵顿major的表现退役完全不奇怪，反倒是ti预选前版本大更删除了中路小野让他回光返照了一下
+
+*****
+
+####  星野航  
+##### 20770#       发表于 2022-10-20 21:02
+
+只能说18年温哥华那场不愿意醒来的幻想还是会被击碎的
+如果今年打完骄阳也离开的话
+属于cndota后期的世界级中单真的都要消失了
+
+*****
+
+####  Rorgen  
+##### 20771#       发表于 2022-10-20 21:02
+
+现在东南亚天梯打完都在公屏发respect纪念somnus，打dota的人是看在眼里的呀
+
+*****
+
+####  赤星ビスコ  
+##### 20772#       发表于 2022-10-20 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012675&amp;ptid=2099454" target="_blank">FUZE 发表于 2022-10-20 21:02</a>
+问一个云玩家问题
+
+为什么MAY皇要叫超哥？</blockquote>
+原来是黑称，无冠超苏猴
+
+*****
+
+####  魂断=血包win  
+##### 20773#       发表于 2022-10-20 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012675&amp;ptid=2099454" target="_blank">FUZE 发表于 2022-10-20 21:02</a>
+问一个云玩家问题
+
+为什么MAY皇要叫超哥？</blockquote>
+无冠超苏猴，单亚虐奇迹，一开始是黑称
+
+—— 来自 HONOR KOZ-AL40, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  桐道悠  
+##### 20774#       发表于 2022-10-20 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们在说啥，飞机只会比tb更差，飞机被狼人吼一下还剩多少攻？
+
+*****
+
+####  枯风瘦雪02  
+##### 20775#       发表于 2022-10-20 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012675&amp;ptid=2099454" target="_blank">FUZE 发表于 2022-10-20 21:02</a>
+问一个云玩家问题
+
+为什么MAY皇要叫超哥？</blockquote>
+无冠超sumail到吴冠超到超哥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  刹那芳華  
+##### 20776#       发表于 2022-10-20 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012662&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-20 21:01</a>
+
+如果是飞机真能赢</blockquote>
+不一定。
+
+但TB的间歇期真的太长了，至少在推进的时候也许可以保一下持续作战能力。
+
+*****
+
+####  憧憬鲨  
+##### 20777#       发表于 2022-10-20 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012675&amp;ptid=2099454" target="_blank">FUZE 发表于 2022-10-20 21:02</a>
+问一个云玩家问题
+
+为什么MAY皇要叫超哥？</blockquote>
+无冠超苏猴，单亚压奇迹，缩写就是吴冠超
+然后他某次采访自我介绍说大家好我是吴冠超
+
+*****
+
+####  非建政专用号  
+##### 20778#       发表于 2022-10-20 21:03
+
+无冠超苏猴，单亚虐奇迹，简称无冠超，再简称冠超
+
+*****
+
+####  5678给  
+##### 20779#       发表于 2022-10-20 21:03
+
+说飞机的是没看到前两天有一把飞机单核的比赛吗，飞机后期只会更惨
+
+*****
+
+####  adretyu67  
+##### 20780#       发表于 2022-10-20 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012623&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-20 21:00</a>
+
+看了下boom的战绩 其他几乎全输 但是打eg2-0？
+
+eg打干瘪2-0 不会又是循环克制吧 ...</blockquote>
+eg没打好。但是败者组eg打干瘪不好说。没准会被翻回来。
+
+*****
+
+####  Asukalangley33  
+##### 20781#       发表于 2022-10-20 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012675&amp;ptid=2099454" target="_blank">FUZE 发表于 2022-10-20 21:02</a>
+
+问一个云玩家问题
+
+为什么MAY皇要叫超哥？</blockquote>
+当年在水厂那段时间，号称“无冠超奇迹 苏猴”
+
+然后TI8名场面后被升级成了冠字辈，冠超
+
+后来就叫超哥了
+
+*****
+
+####  nightmare902015  
+##### 20782#       发表于 2022-10-20 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012701&amp;ptid=2099454" target="_blank">桐道悠 发表于 2022-10-20 21:03</a>
+你们在说啥，飞机只会比tb更差，飞机被狼人吼一下还剩多少攻？</blockquote>
+反正都是百分比减攻，那咋办呢吼一嗓子减了tb160攻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 20783#       发表于 2022-10-20 21:04
+
+我估计rng是想着中期一波推平才选的tb，没想到被拖到了超级大后期
+
+*****
+
+####  桐道悠  
+##### 20784#       发表于 2022-10-20 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012716&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-20 21:03</a>
+
+反正都是百分比减攻，那咋办呢吼一嗓子减了tb160攻</blockquote>
+所以说飞机打动物园这个思路根本就是不成立的
+
+*****
+
+####  leader01234  
+##### 20785#       发表于 2022-10-20 21:04
+
+这把c可能要我说小骷髅好一点，有孽主没有被冲脸的压力情况下就是动物园头疼一个灵活的缚灵锁/后期羊刀否决了。
+这把肯定有很多可以优化的点，比如大祭品换阿托斯，比如上高那波，偷家决策。但没什么想抱怨的，至少他们都努力的去找这个赢的思路了。
+我只想针对冠晴，他到底有在想这把怎么赢吗
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acejoe  
+##### 20786#       发表于 2022-10-20 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012716&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-20 21:03</a>
+反正都是百分比减攻，那咋办呢吼一嗓子减了tb160攻</blockquote>
+资源给老路，tb吃伤害。
+
+*****
+
+####  sodah  
+##### 20787#       发表于 2022-10-20 21:05
+
+跟英雄有什么关系，rng也不是想到这种超大后才选tb啊。
+
+*****
+
+####  吃货红毛  
+##### 20788#       发表于 2022-10-20 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">看样子今年真的是一个CNDOTA句号了 希望之后几天还有转机
+
+*****
+
+####  5678给  
+##### 20789#       发表于 2022-10-20 21:05
+
+如果一个故事的结局不够好 可能是因为它还不够长​  从ti7看比赛年年都是这样，故事什么时候才结局呢。
+
+*****
+
+####  snarc1  
+##### 20790#       发表于 2022-10-20 21:05
+
+其实没啥好如果的，在被破高地塔前，都是有一剑封喉的机会的。
+
+
+
+*****
+
+####  Asukalangley33  
+##### 20791#       发表于 2022-10-20 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012689&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-20 21:02</a>
+
+只能说18年温哥华那场不愿意醒来的幻想还是会被击碎的
+
+如果今年打完骄阳也离开的话
+
+属于cndota后期的世界级 ...</blockquote>
+处长嘴巴说要退
+
+但是以他的缩壳个性，可能连“要退”2个字都不敢跟潘婕说
+
+*****
+
+####  利剑Crazy-88  
+##### 20792#       发表于 2022-10-20 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012398&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-20 20:52</a>
+
+还有个大概率杀回来的LGD，虽然很讨厌这只队伍，但这事还是得承认</blockquote>
+真的杀的回来吗？我怎么感觉最多搞到巴巴耶夫这轮就要水漫狮城了
+
+*****
+
+####  c88711611  
+##### 20793#       发表于 2022-10-20 21:06
+
+没打出自己阵容中期的强势期，大老师阵容一直看好对面，实际结果也是这样，对面打起拉扯来，tb和大屁股太笨了，只能靠酱油，可惜酱油发挥也一般，ts一个人输出不够的
+
+*****
+
+####  鳕鱼子  
+##### 20794#       发表于 2022-10-20 21:06
+
+老鹿大后期还是有点刮
+
+*****
+
+####  OVTVO  
+##### 20795#       发表于 2022-10-20 21:06
+
+飞机感觉像大哥船长的上位替代，用来打特殊对线的。虽然我很不喜欢牛头、TB这两手，但是RNG这阵容整体来说问题不大，感觉还是他们对ett阵容理解不够，中期一些关键装选择有问题。
+
+*****
+
+####  Rorgen  
+##### 20796#       发表于 2022-10-20 21:06
+
+被秘密eg2-0，和hokori gg bb1-1的水厂就不要拿出来找画面了
+
+*****
+
+####  没钱买手办  
+##### 20797#       发表于 2022-10-20 21:06
+
+我以前不怎么喜欢maybe的，不过这样的结局，确实令人难受
+
+*****
+
+####  proselyte  
+##### 20798#       发表于 2022-10-20 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012769&amp;ptid=2099454" target="_blank">利剑Crazy-88 发表于 2022-10-20 21:05</a>
+
+真的杀的回来吗？我怎么感觉最多搞到巴巴耶夫这轮就要水漫狮城了</blockquote>
+败者组都够玩了
+
+不觉得能杀回来
+
+*****
+
+####  woyzeck  
+##### 20799#       发表于 2022-10-20 21:07
+
+就是没打过ent呗，对面这小小打得这么好就该赢。
+
+*****
+
+####  Fam  
+##### 20800#       发表于 2022-10-20 21:07
+
+小组赛第一天和第二天的maybe，会想到今天是这么离开赛场的吗？唉……
+
+*****
+
+####  Fam  
+##### 20801#       发表于 2022-10-20 21:07
+
+小组赛第一天和第二天的maybe，会想到今天是这么离开赛场的吗？唉……
+
+*****
+
+####  赤星ビスコ  
+##### 20802#       发表于 2022-10-20 21:07
+
+下路高地估计想的盾换一路也划算
+那时候肯定觉得后期tb拉席克比对面推进阵容好打，谁能想到被打到**后期
+
+*****
+
+####  蛭人  
+##### 20803#       发表于 2022-10-20 21:07
+
+被秘密eg2-0，和hokori gg bb1-1的水厂就不要拿出来找画面了
+
+*****
+
+####  掉头学姐  
+##### 20804#       发表于 2022-10-20 21:07
+
+超哥能转4、5？我是无法想象的，就这样落幕吧
+
+*****
+
+####  acejoe  
+##### 20805#       发表于 2022-10-20 21:07
+
+你们不会真觉得还能切假腿吧，现在的队伍肯定要不起超哥，除非超哥降薪打酱油。
+
+*****
+
+####  Cookiekira  
+##### 20806#       发表于 2022-10-20 21:07
+
+崩溃哥和超哥都走了 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer"> 只想看nisha夺冠了已经
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nowaki  
+##### 20807#       发表于 2022-10-20 21:07
+
+找管人小姐姐哭了
+
+*****
+
+####  roxas.sora  
+##### 20808#       发表于 2022-10-20 21:07
+
+ent拿这个阵容前期没推下来陷入劣势还能不断找机会尽量减少失误拖过去rng阵容强势期其实做的真的不错，看看能在败者组活几轮吧
+
+*****
+
+####  Rorgen  
+##### 20809#       发表于 2022-10-20 21:08
+
+冠超给劳资开播狠狠吸痔疮葑的人气
+
+*****
+
+####  银翼的维罗西  
+##### 20810#       发表于 2022-10-20 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012758&amp;ptid=2099454" target="_blank">5678给 发表于 2022-10-20 21:05</a>
+
+如果一个故事的结局不够好 可能是因为它还不够长​  从ti7看比赛年年都是这样，故事什么时候才结局呢。 ...</blockquote>
+就像看CSGO外国天才表演呗，从现在开始做南美刀塔30年老粉
+
+*****
+
+####  刹那芳華  
+##### 20811#       发表于 2022-10-20 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012786&amp;ptid=2099454" target="_blank">OVTVO 发表于 2022-10-20 21:06</a>
+
+飞机感觉像大哥船长的上位替代，用来打特殊对线的。虽然我很不喜欢牛头、TB这两手，但是RNG这阵容整体来说 ...</blockquote>
+还有关键的不太会应对维萨吉扫图。
+
+能被这玩意拖住节奏估计也是打之前想都没想过的。
+
+*****
+
+####  jk9hot  
+##### 20812#       发表于 2022-10-20 21:08
+
+明年28咯还能干的动中单吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  izayoi39  
+##### 20813#       发表于 2022-10-20 21:08
+
+主要问题其实是tb不够肥，30分钟那段时间tb的经济没跟其他人拉开差距打死人太慢了，在往后打就开始输出慢慢不够了
+
+*****
+
+####  非建政专用号  
+##### 20814#       发表于 2022-10-20 21:08
+
+明天还有窝克比赛，一本满足
+
+*****
+
+####  sepcorvus  
+##### 20815#       发表于 2022-10-20 21:08
+
+TB出装不好，没打出效果，突出一个刮痧。我是没想到有TB的局还能拖到这么后面的。
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  枯风瘦雪02  
+##### 20816#       发表于 2022-10-20 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012769&amp;ptid=2099454" target="_blank">利剑Crazy-88 发表于 2022-10-20 21:05</a>
+真的杀的回来吗？我怎么感觉最多搞到巴巴耶夫这轮就要水漫狮城了</blockquote>
+我只是表达一下这只傻逼队伍至少明后两天还有很大可能作为一只“中国队”留在赛会中<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  赤星ビスコ  
+##### 20817#       发表于 2022-10-20 21:08
+
+小超人就等着超哥退役开播了
+
+*****
+
+####  Concrete  
+##### 20818#       发表于 2022-10-20 21:09
+
+那之后的比较瞩目cn中单会是谁呢?
+
+*****
+
+####  利剑Crazy-88  
+##### 20819#       发表于 2022-10-20 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012793&amp;ptid=2099454" target="_blank">proselyte 发表于 2022-10-20 21:07</a>
+
+败者组都够玩了
+
+不觉得能杀回来</blockquote>
+对啊，我也觉得杀不上来好吧，相信A畜！
+
+*****
+
+####  5678给  
+##### 20820#       发表于 2022-10-20 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012822&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-20 21:08</a>
+就像看CSGO外国天才表演呗，从现在开始做南美刀塔30年老粉</blockquote>
+md，看你回我瞬间就想起伞哥哥了，莫名的感觉和超哥有点像。
+
+
+
+*****
+
+####  TI三冠王AME  
+##### 20821#       发表于 2022-10-20 21:09
+
+A杖维萨吉就是恶心的批爆啊，SSzai外卡赛就表演过了
+
+*****
+
+####  adretyu67  
+##### 20822#       发表于 2022-10-20 21:09
+
+下轮打茶或者液体，下下轮应该是打OG。下下下轮是秘鲁超人或者拳酱。
+
+基本上下下下轮应该就是entity的最后一战了。
+
+*****
+
+####  蛭人  
+##### 20823#       发表于 2022-10-20 21:09
+
+RTZ和老北京一个年龄，望知悉。
+
+*****
+
+####  detao0452  
+##### 20824#       发表于 2022-10-20 21:09
+
+我感觉maybe要退肯定不会切假腿了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 20825#       发表于 2022-10-20 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012842&amp;ptid=2099454" target="_blank">5678给 发表于 2022-10-20 21:09</a>
+
+md，看你回我瞬间就想起伞哥哥了，莫名的感觉和超哥有点像。</blockquote>
+我的天哪，我伞要有超哥的卓越天赋和宽裕环境早就冠了好吗
+
+*****
+
+####  izayoi39  
+##### 20826#       发表于 2022-10-20 21:10
+
+rng这阵容正常打到30分钟应该是tb甩所有人1到2个大件的，但是实际比赛也都看到了，tb没能拉开经济
+
+*****
+
+####  憧憬鲨  
+##### 20827#       发表于 2022-10-20 21:10
+
+维萨吉这个A就是很屌，逼得RNG要不停地出宝石
+
+*****
+
+####  OVTVO  
+##### 20828#       发表于 2022-10-20 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012724&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-20 21:04</a>
+
+我估计rng是想着中期一波推平才选的tb，没想到被拖到了超级大后期</blockquote>
+感觉还是一代盾左右处理的有问题，对双方中期战斗力分析出了偏差，导致平推节奏没打好，二代盾那一波没抓住后是越来越难打
+
+*****
+
+####  非建政专用号  
+##### 20829#       发表于 2022-10-20 21:11
+
+rtz是北美饭皇，妮冠超可不敢说自己是饭皇
+
