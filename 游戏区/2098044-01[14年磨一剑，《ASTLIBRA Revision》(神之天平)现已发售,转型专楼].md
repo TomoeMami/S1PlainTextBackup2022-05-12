@@ -6232,3 +6232,12 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 新章通了，剧情我感觉很完美能给10分，大团圆就是好题外话，作者居然没做一个new game+继承装备道具等级能 ...</blockquote>
 最后女神牺牲了我不能接受！！<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer"> 还以为真大团圆完美了，结果最后还给我一刀，剧透反白，围观慎重
 
+
+
+*****
+
+####  vidomina  
+##### 577#       发表于 2022-10-20 13:37
+
+无所谓了，反正这一路发的刀还少吗
+

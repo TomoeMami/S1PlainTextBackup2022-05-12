@@ -6938,3 +6938,315 @@ lgd有点急
  鲁迅这把硬住我基辅major立刻支持navi好吧</blockquote>
 我不行，我要等雪碧送lgd回家才支持
 
+
+
+*****
+
+####  walfeds  
+##### 17417#       发表于 2022-10-20 13:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">英文流这两个slacks面具有点搞
+
+*****
+
+####  屠夫  
+##### 17418#       发表于 2022-10-20 13:31
+
+ame再不表演表演，这届ti打完集美就有充分理由清算队友，拦着别人不让骂a醋了
+
+*****
+
+####  外挂全家脚气  
+##### 17419#       发表于 2022-10-20 13:32
+
+然而这把宙斯DP小小LICH是最有可能打出4赵云带阿斗的
+
+*****
+
+####  nxmonitor  
+##### 17420#       发表于 2022-10-20 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58003211&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-20 13:27</a>
+
+ban小强马西就去打四啊，难道巫妖宙斯很好打马西吗</blockquote>
+这次比赛巫妖拿出来就是克玛西的，一个冰盾玛西就没伤害了，当然宙斯还是怕玛西gank的，但总比小强直接关住两个好吧，Y的视野碰到小强就不说了……
+
+*****
+
+####  Crazy_Knife  
+##### 17421#       发表于 2022-10-20 13:32
+
+加油啊拳击手！加油啊泥沙！
+
+*****
+
+####  walfeds  
+##### 17422#       发表于 2022-10-20 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58003293&amp;ptid=2099454" target="_blank">古代人皮克 发表于 2022-10-20 13:31</a>
+
+草</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦草，错过了
+
+*****
+
+####  Quark  
+##### 17423#       发表于 2022-10-20 13:32
+
+刚才的诸葛亮呢 出来说说这把优劣了
+
+*****
+
+####  acejoe  
+##### 17424#       发表于 2022-10-20 13:32
+
+这阵容我怎么感觉面八在说，我们好像没推塔啊，然后最后一手点个dp
+
+*****
+
+####  风尘的时光  
+##### 17425#       发表于 2022-10-20 13:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/7/5c11d022432a4d8713cdeb4d0f5e912a/CMP_20221020133227253.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 17426#       发表于 2022-10-20 13:32
+
+这眼位被研究穿了啊
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  银翼的维罗西  
+##### 17427#       发表于 2022-10-20 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58003294&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-20 13:31</a>
+
+刚才的几个诸葛亮来说说这把bp爆了吗，很急</blockquote>
+爆不了，秘密这阵容也吊，拳击手到了淘汰赛还是稳
+
+*****
+
+####  恐怖利刃  
+##### 17428#       发表于 2022-10-20 13:33
+
+我觉得lgd bp优
+
+*****
+
+####  StrangerJ  
+##### 17429#       发表于 2022-10-20 13:33
+
+干瘪为什么不肯死保猴爹呢，看不出来现在的大腿是谁吗
+
+*****
+
+####  草海灭巨  
+##### 17430#       发表于 2022-10-20 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58002974&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-20 13:15</a>
+对了电锤换成暗灭，lgd那波盾就偷掉了，撒也不懂就玩德鲁伊</blockquote>
+西恩这些队伍都喜欢预演，一旦局势发展到不是所预想的那样就脑浆了就不会玩了，应变能力极其差，出装出不到位打法也不到位，这种情况品鉴的还少吗尤其是他老干爹的比赛，不能在比赛中进化的队伍是夺不了冠的
+
+
+
+*****
+
+####  情商  
+##### 17431#         楼主| 发表于 2022-10-20 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58003293&amp;ptid=2099454" target="_blank">古代人皮克 发表于 2022-10-20 13:31</a>
+
+草</blockquote>
+这个有点好玩
+
+*****
+
+####  迷途lite  
+##### 17432#       发表于 2022-10-20 13:33
+
+说实话本中军喜欢lgd的阵容，感觉很工整没什么短板<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是这把na马西看起来都很好发挥
+细一想也是有短板，机师短板<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Renko117  
+##### 17433#       发表于 2022-10-20 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58003316&amp;ptid=2099454" target="_blank">风尘的时光 发表于 2022-10-20 13:32</a></blockquote>
+撸狗司马
+
+*****
+
+####  我爱撩菜  
+##### 17434#       发表于 2022-10-20 13:34
+
+giegie大圣输了就发红包<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 17435#       发表于 2022-10-20 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58003330&amp;ptid=2099454" target="_blank">草海灭巨 发表于 2022-10-20 13:33</a>
+西恩这些队伍都喜欢预演，一旦局势发展到不是所预想的那样就脑浆了就不会玩了，应变能力极其差，出装出不 ...</blockquote>
+我看杜鹏杨乐乐出装都挺好的啊，怎么到A畜这里就不一样了捏
+
+*****
+
+####  莉拉厨  
+##### 17436#       发表于 2022-10-20 13:34
+
+现在秘密真的不装了，直接把鲁迅丢到优势路去了，水晶弟玩个大锤走劣势路，他真的是1吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArowRocher  
+##### 17437#       发表于 2022-10-20 13:36
+
+鲁迅是真的强的，已经复仇faithbian三把了
+
+*****
+
+####  nxmonitor  
+##### 17438#       发表于 2022-10-20 13:36
+
+秘密突围赛把VP干掉就是两把小强，一路小强用到小组赛继续乱杀的，而且小强克制好几个热门英雄的，前几天还在吐槽怎么RNG不怎么用小强了，查理斯估计是生病了脑筋转不过来了……
+
+*****
+
+####  恐怖利刃  
+##### 17439#       发表于 2022-10-20 13:37
+
+还在复读小强
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 17440#       发表于 2022-10-20 13:37
+
+2路线优，啥时候表演<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  horacio  
+##### 17441#       发表于 2022-10-20 13:37
+
+突围赛xg也是被小强搞了，都是前期大优势
+
+*****
+
+####  恐怖利刃  
+##### 17442#       发表于 2022-10-20 13:38
+
+这不给个板？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 17443#         楼主| 发表于 2022-10-20 13:38
+
+这盘该清算脑浆y了
+
+*****
+
+####  nxmonitor  
+##### 17444#       发表于 2022-10-20 13:38
+
+resolution和ATF类似，不把他当核心用他立刻不会玩了，小水晶在秘密就是完全没地位的，还有秘密一贯的4号位被ppy吸血……
+
+*****
+
+####  外挂全家脚气  
+##### 17445#       发表于 2022-10-20 13:38
+
+猴爹舒服了
+
+*****
+
+####  UnhappyTails  
+##### 17446#       发表于 2022-10-20 13:39
+
+<img src="https://s3.bmp.ovh/imgs/2022/10/20/c937c2d052a92cf0.jpeg" referrerpolicy="no-referrer">
+
+您说的是，但是《保卫萧瑟》是psg.lgd战队自研的一款塔防游戏，您将扮演中单nts，在对线中任何对线不压对面2000就会游戏失败的规则下，寻找“相信萧瑟”的真相
+
+*****
+
+####  Crazy_Knife  
+##### 17447#       发表于 2022-10-20 13:39
+
+这波双杀不应该呀
+
+*****
+
+####  JoelBirch  
+##### 17448#       发表于 2022-10-20 13:39
+
+坏了
+
+*****
+
+####  winkle  
+##### 17449#       发表于 2022-10-20 13:39
+
+大锤这英雄打推进确实好用。配合能卖的队友好用，队友站不住就是个憨憨。
+
+*****
+
+####  fopinecone  
+##### 17450#       发表于 2022-10-20 13:39
+
+奥术大k两个头<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lyjssj  
+##### 17451#       发表于 2022-10-20 13:39
+
+这把lgx挺难输的，帕皮匠，你的灵机一动也是要偿还的吗
+
+*****
+
+####  我爱撩菜  
+##### 17452#       发表于 2022-10-20 13:39
+
+哇 nts这双杀
+
+*****
+
+####  qty  
+##### 17453#       发表于 2022-10-20 13:39
+
+什么情况nisha压不住了吗？
+
+*****
+
+####  nowaki  
+##### 17454#       发表于 2022-10-20 13:40
+
+坏了坏了
+
+*****
+
+####  Dreamophobia  
+##### 17455#       发表于 2022-10-20 13:40
+
+坏了，病毒注入了
+
+加油秘密<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 17456#       发表于 2022-10-20 13:41
+
+被ts踩死了
+
