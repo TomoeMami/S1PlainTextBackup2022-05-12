@@ -8220,3 +8220,174 @@ sccc有点帅啊
 
 叔叔这什么烂比直播。。声音大点会死吗
 
+
+
+*****
+
+####  坚定的团子党  
+##### 15922#       发表于 2022-10-20 09:51
+
+英文流弹幕都是些什么几把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+AYAYA If Ephey has 5 million fans, I am one of them. AYAYA If Ephey has ten fans, I am one of them. AYAYA If Ephey has only one fan, then that is me. AYAYA If Ephey has no fans, that means I am no more on the Earth. AYAYA If the world is against Ephey, I am against the world.
+
+*****
+
+####  Kazepollar  
+##### 15923#       发表于 2022-10-20 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998969&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-20 09:49</a>
+ 我超，rng延期到明天七点了吗</blockquote>
+晚上七点吧
+
+*****
+
+####  asd235614  
+##### 15924#       发表于 2022-10-20 09:52
+
+B站这什么鬼音量，不会播可以不播，挂着黑听都听不了了
+
+*****
+
+####  反方向的波  
+##### 15925#       发表于 2022-10-20 09:52
+
+no  opening ceremony？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 15926#       发表于 2022-10-20 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57999003&amp;ptid=2099454" target="_blank">坚定的团子党 发表于 2022-10-20 09:51</a>
+
+英文流弹幕都是些什么几把
+
+AYAYA If Ephey has 5 million fans, I am one of them. AYAYA If Ephey  ...</blockquote>
+管人痴定型文是吧，yue了
+
+*****
+
+####  北条早苗  
+##### 15927#       发表于 2022-10-20 09:54
+
+好，英文主舞台没有政确脸
+
+*****
+
+####  坚定的团子党  
+##### 15928#       发表于 2022-10-20 09:55
+
+感觉是没开幕式了，场馆明显很小，可能决赛阶段在演唱会搞个开幕式吧
+
+*****
+
+####  反方向的波  
+##### 15929#       发表于 2022-10-20 09:55
+
+<img src="https://p.sda1.dev/7/dde1a6c46ca838ecc5e9e8ef0fe8b119/CMP_20221020095537046.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 15930#       发表于 2022-10-20 09:56
+
+开幕式放决赛前那大部分队伍都艹了吧
+
+
+
+*****
+
+####  端木恋心  
+##### 15931#       发表于 2022-10-20 09:56
+
+应该有个入场吧至少。去年空场都有个入场。
+
+*****
+
+####  StrangerJ  
+##### 15932#       发表于 2022-10-20 09:56
+
+imba竟然还没死？不仅没死还能搞到淘汰赛转播权？wtf
+
+*****
+
+####  百世诸侯  
+##### 15933#       发表于 2022-10-20 09:56
+
+管人痴定型文是吧，yue了
+
+*****
+
+####  情商  
+##### 15934#         楼主| 发表于 2022-10-20 09:56
+
+g胖又跑新西兰去了？
+
+*****
+
+####  Avantasi  
+##### 15935#       发表于 2022-10-20 09:57
+
+A畜不是能刷吗，怎么GPM前五都没
+
+*****
+
+####  弈秋  
+##### 15936#       发表于 2022-10-20 09:58
+
+今年没有welcome了吗
+
+*****
+
+####  银翼的维罗西  
+##### 15937#       发表于 2022-10-20 09:58
+
+管人痴定型文是吧，yue了，AYAYA是谁
+
+*****
+
+####  Avantasi  
+##### 15938#       发表于 2022-10-20 09:59
+
+改标题了楼主
+
+*****
+
+####  sodah  
+##### 15939#       发表于 2022-10-20 09:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为国内就imba这个团队搞这些还行，是很难死的辣。
+
+*****
+
+####  IG.430  
+##### 15940#       发表于 2022-10-20 09:59
+
+低能独轮车烂活，还是“artour”独轮车比较乐
+<blockquote>Can u all stop calling him "Artour"? he isn't ur real life friend. You all call him Arteezy only because he is Arteezy to you. I am his real life friend and I call him Artour only close friends can call him by his real name. You all are just random people to him  </blockquote>
+
+*****
+
+####  坚定的团子党  
+##### 15941#       发表于 2022-10-20 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57999078&amp;ptid=2099454" target="_blank">端木恋心 发表于 2022-10-20 09:56</a>
+
+应该有个入场吧至少。去年空场都有个入场。</blockquote>
+去年是V社自己办的，今年PGL外包明显各种东西都降一档
+
+*****
+
+####  12481632  
+##### 15942#       发表于 2022-10-20 10:00
+
+管人痴定型文是吧，yue了，AYAYA是谁
+
+*****
+
+####  反方向的波  
+##### 15943#       发表于 2022-10-20 10:00
+
+pgl你妈死了
+
