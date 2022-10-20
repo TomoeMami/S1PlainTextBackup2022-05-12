@@ -6188,3 +6188,15 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">封印城那个眠了守卫过去，断桥半空中那个箭靶怎么解，半空中拉弩差一点点的来不及
 
+
+
+*****
+
+####  黒長直姫  
+##### 573#       发表于 2022-10-20 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58001161&amp;ptid=2098044" target="_blank">yla 发表于 2022-10-20 11:41</a>
+
+封印城那个眠了守卫过去，断桥半空中那个箭靶怎么解，半空中拉弩差一点点的来不及 ...</blockquote>
+岸边算好位置超视距可以打到 或者拿到浮空了再来射
+
