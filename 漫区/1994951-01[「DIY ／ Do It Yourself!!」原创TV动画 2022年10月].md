@@ -2494,3 +2494,15 @@ DIY不可能翻车！我要吹爆锦织……（划掉）
 
 看到DIY里面对于布丁和jobs对于新科技的宣言，让我感觉这才是新时代少女应该有的精气神。特别是深夜都还在打开VS code编程的布丁，确实感受到了某种青春的活力（虽然看样子过几年肯定要秃顶了）
 
+
+
+*****
+
+####  309465205  
+##### 205#       发表于 2022-10-21 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57898182&amp;ptid=1994951" target="_blank">hqtkkb 发表于 2022-10-14 00:10</a>
+
+大概是战吧逛多了，总觉的布丁不来个捶地哭差点意思</blockquote>
+战吧口味不是更喜欢看女主捶地哭吗
+

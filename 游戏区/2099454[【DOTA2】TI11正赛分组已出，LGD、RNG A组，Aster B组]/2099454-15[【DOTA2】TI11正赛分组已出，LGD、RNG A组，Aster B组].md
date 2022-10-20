@@ -3700,3 +3700,68 @@ Ti8本来是最有含金量最有机会的一次，可惜了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  憧憬鲨  
+##### 21430#       发表于 2022-10-21 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016730&amp;ptid=2099454" target="_blank">CVHFGD 发表于 2022-10-21 01:00</a>
+不过这局倒是让我觉得TI10的第五局要是也能拖到这个时间，说不定狼人小小就能赢了。都能把圣剑加的攻击力 ...</blockquote>
+没有死灵龙的ett大概也会像LGD一样被TB撕碎
+
+*****
+
+####  Rorgen  
+##### 21431#       发表于 2022-10-21 01:03
+
+tb这英雄大后期就是铁der逼，装备栏限制缺攻击力还不能爆攻速，吃bkb吃刷新没位移
+跟版本第一C水人的差距就好比克里斯和ni公子
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 21432#       发表于 2022-10-21 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58016730&amp;ptid=2099454" target="_blank">CVHFGD 发表于 2022-10-21 01:00</a>
+不过这局倒是让我觉得TI10的第五局要是也能拖到这个时间，说不定狼人小小就能赢了。都能把圣剑加的攻击力 ...</blockquote>
+ti10 对面火猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+10个魂，双圣剑，超哥苏猴灵魂附体
+冰龙转大哥也不弱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 21433#       发表于 2022-10-21 01:05
+
+水人RNG自己ban掉了，想抢拉席克肯定就没办法指望再抢到水人，这把bp其实比大哥狼人舒服了不知道多少倍
+
+*****
+
+####  蛭人  
+##### 21434#       发表于 2022-10-21 01:05
+
+厨子普森把把选水人是有道理的啊，版本第一carry，让对面大哥两件装备都能赢，可惜茶队是水人波高一代目。
+
+*****
+
+####  roxas.sora  
+##### 21435#       发表于 2022-10-21 01:05
+
+话说看视频真的是砸耳机刚好停了.........那个轮盘是啥情况
+
+*****
+
+####  憧憬鲨  
+##### 21436#       发表于 2022-10-21 01:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这把打到大后期要是个双圣剑火猫真不虚召唤物吧
+
+*****
+
+####  非建政专用号  
+##### 21437#       发表于 2022-10-21 01:08
+
+明天窝克就开启过载模式让小黑子知道，什么叫全程变身的tb
+

@@ -147,3 +147,16 @@
 
 这么赶怕是要腾出时间给管人加戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1944#       发表于 2022-10-21 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012462&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-10-20 20:54</a>
+这么赶怕是要腾出时间给管人加戏了</blockquote>
+应该不会，这么赶是试图把剩下的剧情尽可能塞进12集里面<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
