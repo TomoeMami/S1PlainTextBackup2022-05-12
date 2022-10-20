@@ -3424,3 +3424,26 @@ maybe最大的失败就是认了个畜当兄弟。 被他和手下那群集美�
 那直接选手酒店里打，旁边放罐头掌声，现场坐十个倒霉蛋，同步敲gg起来摘耳机握手，反正观众也看不到妮在打 ...</blockquote>
 你是懂管人的
 
+
+
+*****
+
+####  陈苦瓜  
+##### 21397#       发表于 2022-10-21 00:25
+
+我怎么听说隔壁就是延迟5分钟。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 21398#       发表于 2022-10-21 00:27
+
+今天自己群里聊这事儿还被看隔壁比赛的群友嘲笑说现场直播肯定有延迟啊你第一年看比赛啊这么业余……结果不是我的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 21399#       发表于 2022-10-21 00:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">指望国师带着boom能治水就有点难了，不过国师能治水成功就发红包吧
+

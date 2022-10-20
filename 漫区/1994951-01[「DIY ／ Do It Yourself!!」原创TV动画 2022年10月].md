@@ -2476,3 +2476,12 @@ DIY不可能翻车！我要吹爆锦织……（划掉）
 （看看监督是谁）
 我要吹爆米田和弘！
 
+
+
+*****
+
+####  月光润色  
+##### 203#       发表于 2022-10-21 00:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">看了两眼这番，小朋友就摆弄电钻了有点吓人呀
+
