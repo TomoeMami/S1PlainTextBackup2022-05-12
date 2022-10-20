@@ -2252,3 +2252,284 @@ ceb就是fly在没尾巴心中的替代品，撒也不懂
 报点是事实存在的啊，GG的队员出来说的，你们以为明天茶队不会受影响？茶队英语比LGD还差呢…… ...</blockquote>
 报点真有用五个秘鲁佬是怎么暴打美国队的
 
+
+
+*****
+
+####  Rorgen  
+##### 21265#       发表于 2022-10-20 22:52
+
+没尾巴发推：
+heart breaking
+ti with all its roughness
+
+说起来冠超在没尾巴那里评价一直挺高的，ti7打完出来直接搂着那热乎劲
+
+*****
+
+####  nowaki  
+##### 21266#       发表于 2022-10-20 22:52
+
+rtz id天鸽 纯纯中国人听不懂报点好吧
+
+*****
+
+####  战狼PTSD  
+##### 21267#       发表于 2022-10-20 22:52
+
+有一说一，报点不是超级假赛论坛原创的，没意思，GG战队自己说的
+
+*****
+
+####  Asukalangley33  
+##### 21268#       发表于 2022-10-20 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014917&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-20 22:51</a>
+
+报点真有用五个秘鲁佬是怎么暴打美国队的</blockquote>
+我来解释一下
+
+EG 5个人里面没有英语母语的，秘鲁人也是
+
+所以是公平的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Horusddt  
+##### 21269#       发表于 2022-10-20 22:53
+
+我这届ti想看的只剩lgd怎么死了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 21270#       发表于 2022-10-20 22:53
+
+现场没隔音室是该喷啊，但超级集美论坛已经滑坡成有人听着解说报眼报雾报盾打比赛了<img src="https://p.sda1.dev/7/b53e7485e6bfcd8d98ff67eeaca16e4e/CMP_20221020225320337.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nowaki  
+##### 21271#       发表于 2022-10-20 22:54
+
+哦牛批 意思eg这么多年不是用英语交流的？
+
+*****
+
+####  非建政专用号  
+##### 21272#       发表于 2022-10-20 22:54
+
+司马懒狗社连隔音房这点b钱都扣，活该挨骂好伐
+
+明天替补马上上场lgd.rotk直接对着菜宜风开骂
+
+*****
+
+####  Rorgen  
+##### 21273#       发表于 2022-10-20 22:54
+
+别造谣，fly教大家用希伯来语沟通的好吧
+
+*****
+
+####  tasuku  
+##### 21274#       发表于 2022-10-20 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014955&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-20 22:52</a>
+
+我来解释一下
+
+EG 5个人里面没有英语母语的，秘鲁人也是
+
+所以是公平的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你别说，我大概想了下甚至还没一个美国人？
+
+不过加麻大人的母语不是英语吗？
+
+*****
+
+####  Asukalangley33  
+##### 21275#       发表于 2022-10-20 22:54
+
+现在的节奏是不ENTITY乳化么？
+
+建议隔壁国新区鹅毋网军直接切入转进一波<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 21276#       发表于 2022-10-20 22:55
+
+本来情绪很低落，看到两个集美太监又开始追着报点说真是乐开花
+
+*****
+
+####  nxmonitor  
+##### 21277#       发表于 2022-10-20 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014917&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-20 22:51</a>
+
+报点真有用五个秘鲁佬是怎么暴打美国队的</blockquote>
+就是TA比EG强太多正面团战干掉的，主要是开雾和肉山爆出来导致劣势根本没法处理了，BOOM和TS那把两边晃那么长时间都没打起来，要是BOOM有这个水平还至于垫底吗？
+
+*****
+
+####  nxmonitor  
+##### 21278#       发表于 2022-10-20 22:56
+
+要是解决不了只能支持秘鲁人的队伍把其他人都干掉了，可惜他们是绝活队再往下走有点难的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 21279#       发表于 2022-10-20 22:56
+
+看了下霉皇人气还真高啊，比量子鞭退役牌面多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 21280#       发表于 2022-10-20 22:56
+
+有没有可能boom最后一天2-0了eg 还2-0两个加赛对手手感起来了，而最后一天雪碧还在和克神1-1
+
+*****
+
+####  bluebaby  
+##### 21281#       发表于 2022-10-20 22:56
+
+md不能支持茶吗，茶也英文不行！
+
+*****
+
+####  tasuku  
+##### 21282#       发表于 2022-10-20 22:56
+
+报点开图真的有用国内外卡赛游出来的就该是XXX和XXXX了
+
+*****
+
+####  百世诸侯  
+##### 21283#       发表于 2022-10-20 22:57
+
+克神活到第二轮了，雪碧也配碰瓷？
+
+*****
+
+####  HydraCat  
+##### 21284#       发表于 2022-10-20 22:57
+
+睡了睡了，明天再继续看。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Asukalangley33  
+##### 21285#       发表于 2022-10-20 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014986&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-20 22:54</a>
+
+你别说，我大概想了下甚至还没一个美国人？
+
+不过加麻大人的母语不是英语吗？
+
+ ...</blockquote>
+曾今不算冷的知识
+
+RTZ原名——Artour Babaev
+
+祖籍斯坦5国中哪个，是加麻大移民，小时候跟爹过去的
+
+所以母语是俄语<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  团结奋进碇真嗣  
+##### 21286#       发表于 2022-10-20 22:57
+
+<img src="https://img.saraba1st.com/forum/202210/20/225542lc79br6l9orb1l9b.png" referrerpolicy="no-referrer">
+
+<strong>无标题.png</strong> (178.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 22:55 上传
+
+我这预测好吧，早上截至前1分钟瞎填，后边空着的本来应该是填上了的，可能数据没传上去
+
+*****
+
+####  walfeds  
+##### 21287#       发表于 2022-10-20 22:58
+
+哦草，打蛇随棍上了属于是
+
+*****
+
+####  nxmonitor  
+##### 21288#       发表于 2022-10-20 23:00
+
+所以GG今天赢了FNC，他们的Carry出来接受俄语采访的话你们都不信了？这可是赢的队亲自说的，他还亲口说还有个队员说对面有双倍不要打了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 21289#       发表于 2022-10-20 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014981&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-20 22:54</a>
+
+司马懒狗社连隔音房这点b钱都扣，活该挨骂好伐
+
+明天替补马上上场lgd.rotk直接对着菜宜风开骂 ...</blockquote>
+这和当年上海MAJOR一样吧 外包PGL和外包RU婊的KEYTV 只能说谁也不比谁干净
+
+*****
+
+####  人別離苦  
+##### 21290#       发表于 2022-10-20 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58015060&amp;ptid=2099454" target="_blank">团结奋进碇真嗣 发表于 2022-10-20 22:57</a>
+我这预测好吧，早上截至前1分钟瞎填，后边空着的本来应该是填上了的，可能数据没传上去
+
+ ...</blockquote>
+上海major 2.0是吧
+
+*****
+
+####  woyzeck  
+##### 21291#       发表于 2022-10-20 23:02
+
+能听到解说那肯定得解决，这种隔音房能现搭的吧，挺简单的。
+
+*****
+
+####  nxmonitor  
+##### 21292#       发表于 2022-10-20 23:02
+
+要是输的队出来说也就罢了，赢的队出来说那可信度太高了呀，你们想要支持的茶队照样受影响的……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 21293#       发表于 2022-10-20 23:02
+
+我说lgd还没滚蛋呢，能不能别找这些借口啊
+
+还正反都有用是吧
+
+输了就是对面有人报点开图
+
+赢了就是老子硬实力不怕你开图是吧
+
+*****
+
+####  fopinecone  
+##### 21294#       发表于 2022-10-20 23:03
+
+隔音房要搞多久有懂得楼友吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

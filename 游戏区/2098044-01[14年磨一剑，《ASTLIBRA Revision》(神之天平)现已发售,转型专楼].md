@@ -6662,3 +6662,19 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  AeonsTorn  
+##### 616#       发表于 2022-10-20 22:57
+
+二周目这个强化系统有点太无底洞了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">受不了了
+
+*****
+
+####  lazycat233  
+##### 617#       发表于 2022-10-20 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">天空城的解谜是要干嘛，那个链子有啥用
+
