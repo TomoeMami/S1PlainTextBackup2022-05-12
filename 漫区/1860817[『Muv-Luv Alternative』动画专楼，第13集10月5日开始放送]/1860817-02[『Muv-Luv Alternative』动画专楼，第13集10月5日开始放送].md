@@ -70,3 +70,19 @@
 
 下一集开头就是冥夜不记得昨天的约定，早上遇到纯夏，对方竟称呼为白银同学，A part结尾完成篮球架砸脑袋成就，B part进入纯夏日记煽情环节，结尾以白银高喊“我，爱着纯夏！”回到beta世界结束。再下一集直接回见00unit，我猜大概就是这样了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  墨染樱@mt  
+##### 1938#       发表于 2022-10-20 08:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997500&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-20 03:23</a>
+文戏快点没什么，就是白银没回亿起名场面，差点意思。刚建立起感情就光速去世
+
+和冥夜去山顶是动画 ...</blockquote>
+不是原创，是莳岛オルタ的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+所以还是本质垃圾漫改动画
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

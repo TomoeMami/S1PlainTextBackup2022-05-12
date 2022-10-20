@@ -6022,3 +6022,23 @@ miss chef
 总之我现在第五章打完是五个天平，有可能是我记错了</blockquote>
 第五章BOSS战前就可以6个天平托盘的，2345每章节一个
 
+
+
+*****
+
+####  casle  
+##### 558#       发表于 2022-10-20 08:19
+
+ 本帖最后由 casle 于 2022-10-20 08:20 编辑 
+
+我的天平是没点异常状态，全点了基础属性<img src="https://sm.ms/image/UediaA8rhqNRXWQ" id="aimg_UmBmN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+H9(H1RZO%Y7B6@8UD)ZK89T.png
+(166.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 08:19 上传
+
+<img src="https://img.saraba1st.com/forum/202210/20/081946ou2mc5vuza6vuf7u.png" referrerpolicy="no-referrer">
+
