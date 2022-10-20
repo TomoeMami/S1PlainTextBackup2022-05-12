@@ -6636,3 +6636,14 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 小鬼我没打，紫发的精英驾驶员是可以打过的，还有一小段嘉隆吐槽你太强了的剧情
 
+
+
+*****
+
+####  Leona_Akari  
+##### 614#       发表于 2022-10-20 22:26
+
+打完区域boss区域清空，那没拿到的素材就没法再刷了？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

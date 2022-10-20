@@ -1377,3 +1377,244 @@ Pis不是自己都被当猪宰了
 
 骆非池的门面买在武汉哪里啊？听说几十套
 
+
+
+*****
+
+####  mizoh  
+##### 21164#       发表于 2022-10-20 22:23
+
+小超人也太多了吧
+
+*****
+
+####  nowaki  
+##### 21165#       发表于 2022-10-20 22:24
+
+<blockquote>老干爹别装了，实在不行继续四保一把
+
+现在调整状态肯定是来不及了，给莫言个猛犸帕克之类的，给边拿狼**王或者猛犸，实在没有就尸王抄袭，再没有蓝胖打三！
+
+死保个虚空敌法师水人这类的吧。感觉也没啥别的办法了，四大强势的玩的都不咋地。</blockquote>
+<blockquote>不太懂，今年两个major上怎么没人说隔音房的问题？？
+
+两个major都没隔音房，major也很重要关系ti名额，两个major没人给v社提这个事情吗？</blockquote>
+<blockquote>今年的Major根本没有观众 当然也没有现场解说啊？</blockquote>
+
+*****
+
+####  勤练带来力量  
+##### 21166#       发表于 2022-10-20 22:24
+
+不过打了一把107分钟还输了的局冠超现在还在排天梯我是服的，正常人打完这么一把至少两天不想开dota2吧
+
+*****
+
+####  Rorgen  
+##### 21167#       发表于 2022-10-20 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014362&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-20 22:22</a>
+那还得是骆半城牛逼啊
+
+骆非池的门面买在武汉哪里啊？听说几十套</blockquote>
+骆非池家里本来就有一堆门面，奖金也全拿去买门面了
+我之前听人透露他应该是住户部巷附近
+
+*****
+
+####  反方向的波  
+##### 21168#       发表于 2022-10-20 22:24
+
+结果被骗去抄币，走上芬兰偷税哥已经走过的歧路，最后发个微博“somnus out    maybe back ”宣布再挣一年工资
+
+*****
+
+####  端木恋心  
+##### 21169#       发表于 2022-10-20 22:24
+
+洛非池不是听说本来家里就有钱吗？之前看谁的直播说的以前打比赛大家都吃泡面的，430带着个1万多的名表。
+
+*****
+
+####  lmslardar  
+##### 21170#       发表于 2022-10-20 22:24
+
+430买房子赶上好时候了，现在买北京房子当投资是不是脑袋大了点
+
+*****
+
+####  ysasz  
+##### 21171#       发表于 2022-10-20 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">经济下行周期搞投资，真就被人当冤大头来宰了，手续费都能骗光你本金的那种宰法
+
+*****
+
+####  ckming  
+##### 21172#       发表于 2022-10-20 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014351&amp;ptid=2099454" target="_blank">hahamamamia 发表于 2022-10-20 15:21</a>
+
+其实讲道理啊 
+
+PGL好像都承办好几届TI了呀 
+
+还是说之前都承办的预选赛所以TI还没那么草台 ...</blockquote>
+之前v社一直有参与吧，直到ti10是完全放给pgl。但上次在罗马尼亚，成本很低且没观众，无所谓什么隔音效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 21173#       发表于 2022-10-20 22:25
+
+430当年也不算穷小子吧我记得
+
+*****
+
+####  woyzeck  
+##### 21174#       发表于 2022-10-20 22:25
+
+<blockquote>Rorgen 发表于 2022-10-20 22:22
+跟着炒股是有可能的，核中核消息卜严峻有一堆操盘手小树人给他露风</blockquote>
+90016转战证券所，股市黄埔军校再出击！
+
+*****
+
+####  Asukalangley33  
+##### 21175#       发表于 2022-10-20 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014398&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 22:24</a>
+
+骆非池家里本来就有一堆门面，奖金也全拿去买门面了
+
+我之前听人透露他应该是住户部巷附近 ...</blockquote>
+以前过年的时候在路上遇到过他，虽然他在街对面
+
+社恐不敢喊轮轮好吧
+
+应该是住积玉桥附近，我家以前也那块
+
+*****
+
+####  tasuku  
+##### 21176#       发表于 2022-10-20 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014397&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-20 22:24</a>
+
+不过打了一把107分钟还输了的局冠超现在还在排天梯我是服的，正常人打完这么一把至少两天不想开dota2吧 ...</blockquote>
+和输到天亮一个意思
+
+意难平
+
+*****
+
+####  Rorgen  
+##### 21177#       发表于 2022-10-20 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014425&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-20 22:25</a>
+
+以前过年的时候在路上遇到过他，虽然他在街对面
+
+社恐不敢喊轮轮好吧</blockquote>
+那就对了，全武汉最黄金的一片地段，牛逼大发了
+
+*****
+
+####  StrangerJ  
+##### 21178#       发表于 2022-10-20 22:26
+
+搞投资别搞得跟猴逼一样
+
+*****
+
+####  asd235614  
+##### 21179#       发表于 2022-10-20 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">难受了半天缓过来了点，放平心态等明天茶和我克了
+
+*****
+
+####  哈萨维·诺亚  
+##### 21180#       发表于 2022-10-20 22:27
+
+难受啊来自: iPhone客户端
+
+
+
+*****
+
+####  lmslardar  
+##### 21181#       发表于 2022-10-20 22:27
+
+突然想到卡卡是不是还没说退啊，再赖一年吧，然后剃个光头
+
+*****
+
+####  啊哈  
+##### 21182#       发表于 2022-10-20 22:27
+
+狗逼萨特这也能波
+
+*****
+
+####  zhrs456  
+##### 21183#       发表于 2022-10-20 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58014451&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-20 22:26</a>
+
+搞投资别搞得跟猴逼一样</blockquote>
+豪是赌球 
+
+*****
+
+####  百世诸侯  
+##### 21184#       发表于 2022-10-20 22:28
+
+90016私募公司
+
+*****
+
+####  食粪者  
+##### 21185#       发表于 2022-10-20 22:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过几个月等一个野人直播，冠超直播挺好看的
+
+*****
+
+####  Rorgen  
+##### 21186#       发表于 2022-10-20 22:29
+
+卜先生只要亏钱就会开播的，妮们看他多久没播了
+
+*****
+
+####  Kazepollar  
+##### 21187#       发表于 2022-10-20 22:29
+
+哥们儿真出去跑了一圈步，缓过来了
+
+*****
+
+####  walfeds  
+##### 21188#       发表于 2022-10-20 22:29
+
+酱油的生涯周期还是比核心位长的
+
+*****
+
+####  novoland  
+##### 21189#       发表于 2022-10-20 22:29
+
+<blockquote>やト 发表于 2022-10-20 21:12
+</blockquote>
+我的关注点是为啥没有iPhone8
+
+*****
+
+####  DearRye  
+##### 21190#       发表于 2022-10-20 22:30
+
+野史不是说jerax拿完冠军也搞投资去了吗，后来回来是投资亏完了，有没有什么佐证。还说这芬兰小子猴精的很，搞个皮包公司免了奖金的税。
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
