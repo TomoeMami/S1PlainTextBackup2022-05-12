@@ -7863,3 +7863,377 @@ Puppy这老逼为什么总能找到顶级队友
 
 希望蔡国师努把力，明天指挥小弟把A畜宰了
 
+
+
+*****
+
+####  莉拉厨  
+##### 18947#       发表于 2022-10-20 16:53
+
+bp确实被读烂了，最后一手拿出兽王崩溃脸色都不对了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Mika-S  
+##### 18948#       发表于 2022-10-20 16:53
+
+b组大家都很给力，为什么到了你雪碧这里就拉了跨呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 18949#       发表于 2022-10-20 16:53
+
+eg不是自己卜基德想殴打美洲兄弟，然后又给自己点了个爹
+
+*****
+
+####  一品堂官  
+##### 18950#       发表于 2022-10-20 16:53
+
+鸽子吸魂巫术
+
+*****
+
+####  坚定的团子党  
+##### 18951#       发表于 2022-10-20 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007599&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-20 16:51</a>
+
+既然要回家了，雪碧队内是不是要把攒了一年的基辅major打一下</blockquote>
+《无耻的队友》毛版可以发了呀，之前脑东京接受采访就说，队友嫌他菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 18952#       发表于 2022-10-20 16:53
+
+蔡宜风王八杏奴，yopaj猴爹杏奴，望周知
+
+*****
+
+####  a1370303  
+##### 18953#       发表于 2022-10-20 16:53
+
+我服了，预测到目前为止一个没对<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bluebaby  
+##### 18954#       发表于 2022-10-20 16:54
+
+狂憋是一只队伍打的没信心要散伙的前奏，这把雪碧前期是能打的，两个肉山团也是可以打的，但是一直选择了憋，输的一点不冤。
+
+*****
+
+####  非建政专用号  
+##### 18955#       发表于 2022-10-20 16:54
+
+窝一直相信南美人的阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 18956#       发表于 2022-10-20 16:54
+
+几个臭棋篓子互相训练越练越菜
+
+*****
+
+####  Rorgen  
+##### 18957#       发表于 2022-10-20 16:54
+
+无耻的队友cis版
+
+*****
+
+####  星野航  
+##### 18958#       发表于 2022-10-20 16:55
+
+这班子肯定会散的啊，至少脑东京这岁数也差不多了，该回莫大读书了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   
+
+雪碧这几个英语都可以，东欧西欧都能去，今年秘密要是还不行，明年说不定阿拳直接给崩溃招入再冲一届了
+
+*****
+
+####  iriyano  
+##### 18959#       发表于 2022-10-20 16:55
+
+雪碧推特下面一万个版本的boom是什么叼队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 18960#       发表于 2022-10-20 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  枯风瘦雪02  
+##### 18961#       发表于 2022-10-20 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007678&amp;ptid=2099454" target="_blank">bluebaby 发表于 2022-10-20 16:54</a>
+
+狂憋是一只队伍打的没信心要散伙的前奏，这把雪碧前期是能打的，两个肉山团也是可以打的，但是一直选择了憋 ...</blockquote>
+这个阵容拿出来，先手靠mira，是你你也不敢打
+
+*****
+
+####  Avantasi  
+##### 18962#       发表于 2022-10-20 16:55
+
+可以了，单凭崩溃哥TI10的发挥我就不会黑他
+
+*****
+
+####  帕林马哲理  
+##### 18963#       发表于 2022-10-20 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007633&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-20 09:52</a>
+Puppy这老逼为什么总能找到顶级队友</blockquote>
+这支秘密可能是ppy最喜欢的那种队，123号位可以互换角色，45也可以，能够最大程度实现他的奇思妙想。
+
+*****
+
+####  nxmonitor  
+##### 18964#       发表于 2022-10-20 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007592&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-20 16:51</a>
+
+boom其实前期打得挺差，给雪碧很大机会了，但是崩溃哥占线时间太长这段优势期被他们放过了，影魔控了1代盾 ...</blockquote>
+黑鸟这英雄就是这个样子啊，小狗打马尔斯被阴了一手兽王就很难打了，BOOM已经给一些机会了，兽王线上都被小狗打炸了……
+
+*****
+
+####  syndrome2032  
+##### 18965#       发表于 2022-10-20 16:56
+
+cis全灭，去年透支了。
+major冠军有毒论至今未破，带着米神的og多半打不过tundra。
+国师下面加把劲宰了面八吧。
+
+今年感觉是泥公子大战批九，看谁登顶了
+
+*****
+
+####  Rorgen  
+##### 18966#       发表于 2022-10-20 16:56
+
+别吹ppy这老杂毛了，不是给他捡到ni公子估计已经成绩烂到被喷退役好吧
+
+*****
+
+####  百世诸侯  
+##### 18967#       发表于 2022-10-20 16:56
+
+乌克兰烧0晚上穿女装给崩溃哥谢罪吧
+
+*****
+
+####  嘴瓢王者  
+##### 18968#       发表于 2022-10-20 16:56
+
+rng加油！
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  枯风瘦雪02  
+##### 18969#       发表于 2022-10-20 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007720&amp;ptid=2099454" target="_blank">帕林马哲理 发表于 2022-10-20 16:55</a>
+
+这支秘密可能是ppy最喜欢的那种队，123号位可以互换角色，45也可以，能够最大程度实现他的奇思妙想。 ...</blockquote>
+小水晶和resolution手也确实足够硬，不是ace midone那种摇完丢人的机师
+
+*****
+
+####  端木恋心  
+##### 18970#       发表于 2022-10-20 16:57
+
+这轮比赛没意思。等一会超哥了。
+
+*****
+
+####  一品堂官  
+##### 18971#       发表于 2022-10-20 16:57
+
+秘密虽然状态可以，但我还是要说这是个恶心队伍，主要就是因为拳击手。
+
+*****
+
+####  IG.430  
+##### 18972#       发表于 2022-10-20 16:57
+
+说句ppy捡到了这个时代的骆非池不过分<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 18973#       发表于 2022-10-20 16:57
+
+虽然我也是小雪人，但我真的得说这把完全是雪碧自找的，脑东京刷了血精BKB，黑鸟出了A，抢到了小强，结果就没好好打过架。
+
+让一个盾，让一塔二塔，让两个盾。一直怕着不敢打不敢先手被白A掉高地塔，等来的是被人先手，赢不了还丑陋，我就纳闷了打团又不是打不过？？
+
+这就是巫妖的聪明之处了，他知道冰龙肯定不会只贪一个前哨就满足，让着让着要让基地了，来刚啊谁怕谁
+
+希望雪碧好好思考调整一下吧，第一天的运营明明没这么丑陋的，小黑超级兵那把就是不投也打出了风采。兄弟 dota best dota
+
+*****
+
+####  TIZI  
+##### 18974#       发表于 2022-10-20 16:57
+
+cis不是还有个独苗丁真一会大战rng嘛
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kazepollar  
+##### 18975#       发表于 2022-10-20 16:57
+
+今天看下来还是ta这支队伍打得最漂亮，小配合和团战打的真的精彩
+
+*****
+
+####  Litccc  
+##### 18976#       发表于 2022-10-20 16:57
+
+理了个发雪碧就没了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">还等着崩溃哥送处长上飞机呢
+
+*****
+
+####  北欧王座  
+##### 18977#       发表于 2022-10-20 16:57
+
+那ppy抽ssr的功力还是可以的。虽然不如kky一届出了四次货然后用到现在
+
+*****
+
+####  雅朵莉雀  
+##### 18978#       发表于 2022-10-20 16:58
+
+我是不相信tundra这个队的，这队是真的瘸腿
+
+不如投入peru doto的怀抱，南美的第一冠要来了！
+
+*****
+
+####  Rorgen  
+##### 18979#       发表于 2022-10-20 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007763&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-20 16:57</a>
+说句ppy捡到了这个时代的骆非池不过分</blockquote>
+反串黑亚超是吧，好好好
+
+*****
+
+####  nowaki  
+##### 18980#       发表于 2022-10-20 16:58
+
+崩溃虽然是个懒狗不学不练，但大部分三号位也都是自己节奏，强练别人的东西也玩不了多好。
+
+这个班子去年就是1245躺着等崩溃打先手，只不过鸭头肉越打越自信，脑东京决赛透支开了一手樱花模式。1245离开崩溃又要淹死在东欧鱼塘了，就是不知道崩溃想不想打兄弟dota，我看冰龙现在搞得人人自危，崩溃说不定早就憋着去西欧北美拿第二国籍了。
+
+*****
+
+####  ztgmeteor  
+##### 18981#       发表于 2022-10-20 16:58
+
+明天：
+面8：“看到没，雪碧选老鹿都输了！咱们要信自己的体系！”
+啪！一选dp<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 18982#       发表于 2022-10-20 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007774&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-20 16:57</a>
+理了个发雪碧就没了还等着崩溃哥送处长上飞机呢</blockquote>
+理发是吧，妮又想去新加坡举盾了？
+
+*****
+
+####  RGm  
+##### 18983#       发表于 2022-10-20 16:58
+
+秘密的短板就是ppy，玩什么不好玩毒瘤5。
+
+*****
+
+####  Avantasi  
+##### 18984#       发表于 2022-10-20 16:58
+
+我之前以为乌克兰major一开就要散伙，还能那个major冠军可以了，赛前准备也就那样，TI打得也确实菜
+
+*****
+
+####  walfeds  
+##### 18985#       发表于 2022-10-20 16:58
+
+讲道理卫冕队可以一起打第二年，第三年总要变阵/散伙的
+
+要么赢了没斗志，要么输了有矛盾
+
+*****
+
+####  百世诸侯  
+##### 18986#       发表于 2022-10-20 16:59
+
+papi酱谷爱凌没把你打boom？
+
+*****
+
+####  usoda  
+##### 18987#       发表于 2022-10-20 16:59
+
+没事 崩溃哥今晚多呆一天明天可以和处长坐同一班飞机走
+
+*****
+
+####  嘴瓢王者  
+##### 18988#       发表于 2022-10-20 16:59
+
+fnc大战看不见的东方敌人
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 18989#       发表于 2022-10-20 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58007780&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-20 16:57</a>
+那ppy抽ssr的功力还是可以的。虽然不如kky一届出了四次货然后用到现在</blockquote>
+kky抽的ssr是马桶 杰瑞 麦西 gh，分两次抽的
+老迹是没尾巴抽的
+
+*****
+
+####  莉拉厨  
+##### 18990#       发表于 2022-10-20 17:00
+
+剃头真的有玄学加成？那仙贝赶紧去剃个莫西干吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  syndrome2032  
+##### 18991#       发表于 2022-10-20 17:00
+
+哦，对，还有南美超人pakazs。
+
+支持sa整火，敲碎拳酱和批九的壳
+
