@@ -6445,3 +6445,29 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 是按照章节划分的还是单纯按照图划分？
 
+
+
+*****
+
+####  AeonsTorn  
+##### 596#       发表于 2022-10-20 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008676&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-20 17:50</a>
+怎么区分金银宝箱是否到上限？
+
+是按照章节划分的还是单纯按照图划分？</blockquote>
+每区域固定5个图纸
+后面第四章竞技场的狙击这一关会给宝物图鉴，可以看漏了没有
+
+*****
+
+####  Leona_Akari  
+##### 597#       发表于 2022-10-20 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008896&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-10-20 18:03</a>
+
+每区域固定5个图纸
+
+后面第四章竞技场的狙击这一关会给宝物图鉴，可以看漏了没有 ...</blockquote>
+好，那我先继续打了
+
