@@ -6371,3 +6371,32 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 外传主角</blockquote>
 原来是作者私货<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  后会莫急  
+##### 591#       发表于 2022-10-20 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006655&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-20 16:08</a>
+
+面包房姑娘到底啥来头？ 错过了一周目的剧情，一脸懵逼。 还有贤者之塔的两个画风不一样的NPC，续作搞起来 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/20/163543jfdozray22yiryc3.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221020163113.png</strong> (31.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 16:35 上传
+
+<img src="https://img.saraba1st.com/forum/202210/20/163543s3mska8nv353jh5w.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221020163522.png</strong> (39.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 16:35 上传
+
+作者的一个三消手游MAGICUS
+
