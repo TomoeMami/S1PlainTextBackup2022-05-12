@@ -6291,3 +6291,40 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 论坛助手,iPh ...</blockquote>
 减少收益
 
+
+
+*****
+
+####  元气海牛  
+##### 583#       发表于 2022-10-20 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58003387&amp;ptid=2098044" target="_blank">vidomina 发表于 2022-10-20 13:37</a>
+
+无所谓了，反正这一路发的刀还少吗</blockquote>
+几乎所有的刀都被回收了的吧。战胜龙神的时候，龙神还说女神就交给男主照顾了，结果最后一直在背后付出最多的却被排除在大团圆之外，只有贤者知道真像，我不能接受！！<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我猫呢?  
+##### 584#       发表于 2022-10-20 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005007&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-20 14:47</a>
+天平怎么配没看懂，我刚拿到天平，左边34，右边38，然后顶上刻度显示60？这个刻度有啥影响？
+
+论坛助手,iPh ...</blockquote>
+表示你现在的天平收益是60%，如果两边karma相差10以上，收益降为0
+
+*****
+
+####  元气海牛  
+##### 585#       发表于 2022-10-20 14:59
+
+话说剧情暗示宰相和男主是兄弟吧，有什么办法能相认嘛
+
+*****
+
+####  何处分可  
+##### 586#       发表于 2022-10-20 14:59
+
+昨天卡30一下今天更了个补丁就正常了，果然是补丁打补丁结果出bug了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

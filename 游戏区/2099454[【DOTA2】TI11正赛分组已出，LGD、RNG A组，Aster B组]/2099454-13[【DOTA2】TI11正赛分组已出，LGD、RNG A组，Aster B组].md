@@ -2091,3 +2091,453 @@ lgd在忙没看，你楼能不能说一下这两把几个人贡献了几个名�
 
 终于抢到了，生活如意了
 
+
+
+*****
+
+####  莉拉厨  
+##### 18237#       发表于 2022-10-20 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005067&amp;ptid=2099454" target="_blank">阿垃垃圾历 发表于 2022-10-20 14:51</a>
+口令红包：常人不与—为伍 
+
+发个红包为rng加油 这个口令很简单了吧</blockquote>
+谢谢爹，够我吃一顿了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  南宫月汐  
+##### 18238#       发表于 2022-10-20 14:53
+
+超哥ti5圣剑火猫值得一个冠名
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  拿拿子  
+##### 18239#       发表于 2022-10-20 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005070&amp;ptid=2099454" target="_blank">古代人皮克 发表于 2022-10-20 14:51</a>
+
+破</blockquote>
+看成破而后粒晓偷新生
+
+*****
+
+####  勤练带来力量  
+##### 18240#       发表于 2022-10-20 14:53
+
+哦牛批还有这种角度<img src="https://p.sda1.dev/7/d72bdc98c56769571516248c55463110/CMP_20221020145322931.jpg" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  fopinecone  
+##### 18241#       发表于 2022-10-20 14:53
+
+哇，多打了个生字，100块的没抢到，玉玉了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nerugigannte  
+##### 18242#       发表于 2022-10-20 14:54
+
+尽力了尽力了，都是魔怔怪，都是狙击手
+
+狂欢狂欢狂欢狂欢狂欢
+
+*****
+
+####  テロメア  
+##### 18243#       发表于 2022-10-20 14:54
+
+这就是南美dota吗，好几把狂野
+
+*****
+
+####  Keynes  
+##### 18244#       发表于 2022-10-20 14:54
+
+怎么楼里几个集美不说话了？喂喂喂，还能说话不？
+
+*****
+
+####  非建政专用号  
+##### 18245#       发表于 2022-10-20 14:54
+
+窝克虚晃一枪拿下一血<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 18246#       发表于 2022-10-20 14:54
+
+克里斯上来抢符就被羞辱，红龙是真卜基德
+
+*****
+
+####  xz_04  
+##### 18247#       发表于 2022-10-20 14:54
+
+开场30秒三个人头，热血！
+
+*****
+
+####  阿垃垃圾历  
+##### 18248#       发表于 2022-10-20 14:54
+
+哪里萨特 就是个野生狗头人罢了 
+
+*****
+
+####  walfeds  
+##### 18249#       发表于 2022-10-20 14:54
+
+哦草，没抢到还是锁了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我不如意了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  沈经文  
+##### 18250#       发表于 2022-10-20 14:54
+
+nmlgb劳资到现在一个没抢到呀，白打这么多字了
+
+*****
+
+####  百世诸侯  
+##### 18251#       发表于 2022-10-20 14:54
+
+不管哪个选手，你既然找个公共场合喊girls help girls的对象，那我就一定拿放大镜盯着你看
+
+*****
+
+####  azccc52  
+##### 18252#       发表于 2022-10-20 14:54
+
+草，哥们试了处长畜牲ame都不对，被ban了5小时，玉玉了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 18253#       发表于 2022-10-20 14:55
+
+不是cs吗 为什么我连续错
+
+*****
+
+####  甩不出去的黄牌  
+##### 18254#       发表于 2022-10-20 14:55
+
+抢红包没看怎么开局1分钟就3个头
+
+*****
+
+####  tarsbd  
+##### 18255#       发表于 2022-10-20 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005060&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-20 14:51</a>
+
+lgd在忙没看，你楼能不能说一下这两把几个人贡献了几个名场面</blockquote>
+电锤熊德打不过远古，重新招小熊还打不过，最后把哥几个都摇过来一起打算不算
+
+*****
+
+####  Avantasi  
+##### 18256#       发表于 2022-10-20 14:55
+
+就是畜啊
+
+*****
+
+####  nerugigannte  
+##### 18257#       发表于 2022-10-20 14:55
+
+感谢ame，能让我与萨特一同狂欢 
+
+*****
+
+####  你可以试试  
+##### 18258#       发表于 2022-10-20 14:55
+
+你们怎么不是一一对应啊，自己加字
+
+*****
+
+####  Keynes  
+##### 18259#       发表于 2022-10-20 14:56
+
+nmlgb劳资到现在就抢到一个呀，偷红包的集美是真的司马
+
+*****
+
+####  nowaki  
+##### 18260#       发表于 2022-10-20 14:56
+
+a黑智商果然比较低，石锤了
+
+*****
+
+####  -_-||  
+##### 18261#       发表于 2022-10-20 14:56
+
+a黑智商果然比较低，石锤了
+
+*****
+
+####  利剑Crazy-88  
+##### 18262#       发表于 2022-10-20 14:56
+
+漏油们，口令红包是在哪里抢的啊？给条明路bbuh
+
+*****
+
+####  北欧王座  
+##### 18263#       发表于 2022-10-20 14:56
+
+不管哪个选手，你既然找个公共场合喊红豆泥阿里嘎多的对象，那我就一定拿放大镜盯着你看
+
+*****
+
+####  Avantasi  
+##### 18264#       发表于 2022-10-20 14:56
+
+a黑智商果然比较低，石锤了
+
+*****
+
+####  两三流浪者  
+##### 18265#       发表于 2022-10-20 14:56
+
+漏油早该加入秘密discord了
+
+image.png
+(64.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 14:56 上传
+
+<img src="https://img.saraba1st.com/forum/202210/20/145612qxhlzin5kl8vfi5i.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人別離苦  
+##### 18266#       发表于 2022-10-20 14:56
+
+a黑智商果然比较低，石锤了
+
+*****
+
+####  情商  
+##### 18267#         楼主| 发表于 2022-10-20 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005169&amp;ptid=2099454" target="_blank">利剑Crazy-88 发表于 2022-10-20 14:56</a>
+
+漏油们，口令红包是在哪里抢的啊？给条明路bbuh</blockquote>
+支付宝搜红包
+
+*****
+
+####  tengshuo980  
+##### 18268#       发表于 2022-10-20 14:57
+
+抢不到
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  米德  
+##### 18269#       发表于 2022-10-20 14:57
+
+a黑智商果然比较低，石锤了
+
+*****
+
+####  南宫月汐  
+##### 18270#       发表于 2022-10-20 14:57
+
+有没有兄弟们发一个这场处长的经济输出比
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  银翼的维罗西  
+##### 18271#       发表于 2022-10-20 14:57
+
+a黑智商果然比较低，石锤了
+
+*****
+
+####  憧憬鲨  
+##### 18272#       发表于 2022-10-20 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005144&amp;ptid=2099454" target="_blank">tarsbd 发表于 2022-10-20 14:55</a>
+电锤熊德打不过远古，重新招小熊还打不过，最后把哥几个都摇过来一起打算不算 ...</blockquote>
+然后那波野被nts抢了好几个
+
+*****
+
+####  IG.430  
+##### 18273#       发表于 2022-10-20 14:57
+
+大圣抓不住短短的连击刀强势期，那就只能高地团再发挥了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+高强度下这个英雄对于割割还是太难了
+
+*****
+
+####  非建政专用号  
+##### 18274#       发表于 2022-10-20 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005144&amp;ptid=2099454" target="_blank">tarsbd 发表于 2022-10-20 14:55</a>
+
+电锤熊德打不过远古，重新招小熊还打不过，最后把哥几个都摇过来一起打算不算 ...</blockquote>
+妮说的这个看着像低分局开黑找乐子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 18275#       发表于 2022-10-20 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005022&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-20 14:48</a>
+宁做猛男，不做细狗！ 秘密2-0LGD晋级胜者组</blockquote>
+细狗是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  甩不出去的黄牌  
+##### 18276#       发表于 2022-10-20 14:58
+
+怎么不是一啊  加密能不能好好的打下划线<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 18277#       发表于 2022-10-20 14:58
+
+卧槽，wisper
+
+*****
+
+####  莉拉厨  
+##### 18278#       发表于 2022-10-20 14:58
+
+wisper搞这么厉害干嘛，克神小小没发挥空间了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fananaf  
+##### 18279#       发表于 2022-10-20 14:58
+
+又是1号位SF，看看是不是版本陷阱吧
+
+*****
+
+####  你可以试试  
+##### 18280#       发表于 2022-10-20 14:58
+
+处长这场有大招数据好看的，猴爹被小强不断抓死，德张DP是个大骨灰工具人
+
+*****
+
+####  Rorgen  
+##### 18281#       发表于 2022-10-20 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005199&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-20 14:57</a>
+大圣抓不住短短的连击刀强势期，那就只能高地团再发挥了
+
+高强度下这个英雄对于割割还是太难了 ...</blockquote>
+德鲁伊戴泽都推不起来，不给A畜点大牲线上还怎么打啊
+
+*****
+
+####  安子醬  
+##### 18282#       发表于 2022-10-20 14:59
+
+干爹从去年开始一直是线劣特别会找机会偷盾,这次被秘密拿捏了,两把不偷盾说不定还能鳖久一点
+
+*****
+
+####  食粪者  
+##### 18283#       发表于 2022-10-20 14:59
+
+老干瘪输了司马么鳖没输
+
+*****
+
+####  nowaki  
+##### 18284#       发表于 2022-10-20 14:59
+
+露米神的sf不咋地
+
+*****
+
+####  阿垃垃圾历  
+##### 18285#       发表于 2022-10-20 15:00
+
+搬砖中 没考虑那么多啊 
+楼里前几天那么多人在那复读 而且我就一条杠 咋样都想到了吧
+
+*****
+
+####  syndrome2032  
+##### 18286#       发表于 2022-10-20 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005070&amp;ptid=2099454" target="_blank">古代人皮克 发表于 2022-10-20 14:51</a>
+破</blockquote>
+破而后立?败者组还没打就觉得没了?
+
+*****
+
+####  希望之花  
+##### 18287#       发表于 2022-10-20 15:00
+
+请psglgd战队挑选航班
+
+*****
+
+####  情商  
+##### 18288#         楼主| 发表于 2022-10-20 15:00
+
+出电锤的德鲁伊去偷盾能把人笑死
+
+*****
+
+####  snarc1  
+##### 18289#       发表于 2022-10-20 15:01
+
+蝙蝠吃人了
+
+*****
+
+####  ck4pa  
+##### 18290#       发表于 2022-10-20 15:01
+
+玛西是太超模了，风行跳刀电锤bkb能干的事，玛西一个bkb就够了，还能干得更好
+
+*****
+
+####  外挂全家脚气  
+##### 18291#       发表于 2022-10-20 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58005075&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-20 14:51</a>
+
+还在滚刀肉？你真是浅草到一种程度了啊</blockquote>
+漏油真的好严格哦，难道只有一出生下来就是坚定不移的AME/LGD黑才能黑么，连改过自新的都不许么<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
