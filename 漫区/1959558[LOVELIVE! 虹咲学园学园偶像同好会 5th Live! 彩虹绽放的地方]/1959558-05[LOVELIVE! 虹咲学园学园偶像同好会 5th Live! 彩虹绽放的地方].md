@@ -56,3 +56,14 @@ azn的新歌还可以，感觉除了游乐园外一直在试不同的风格
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  无聊者X  
+##### 6570#       发表于 2022-10-20 08:04
+
+虹的同人画师留存率好惊人
+
+—— 来自 ZTE A2322, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -6010,3 +6010,15 @@ miss chef
 说起来岁月真是把杀猪刀，盖乌是怎么从当年的美少年长成这种大叔样的 ...</blockquote>
 再怎么样的美少年经历那种事还过了十几年也要变大叔<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雪落白夜  
+##### 557#       发表于 2022-10-20 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997039&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-20 01:02</a>
+
+总之我现在第五章打完是五个天平，有可能是我记错了</blockquote>
+第五章BOSS战前就可以6个天平托盘的，2345每章节一个
+
