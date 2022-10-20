@@ -3018,3 +3018,148 @@ RTZ原名——Artour Babaev
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58015777&amp;ptid=2099454" target="_blank">超人苏坦纳 发表于 2022-10-20 23:39</a></blockquote>
 不值得啊超哥
 
+
+
+*****
+
+####  超人苏坦纳  
+##### 21352#       发表于 2022-10-20 23:41
+
+哎 辞职看it的我是傻逼
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 希望之花| + 1|惨|
+
+查看全部评分
+
+*****
+
+####  Rorgen  
+##### 21353#       发表于 2022-10-20 23:41
+
+鳖星的状态已经接近一崩到底了，赢了液体就还好，赢不了肯定是光速出局的
+
+*****
+
+####  nxmonitor  
+##### 21354#       发表于 2022-10-20 23:44
+
+只可惜茶队已经和V社反应这事情了，看来他们自己都没有这么大度，说打不过就技不如人呢……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  两三流浪者  
+##### 21355#       发表于 2022-10-20 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58013905&amp;ptid=2099454" target="_blank">VanArkride 发表于 2022-10-20 21:57</a>
+
+你们不看GG采访的吗，比什么听欢呼严重多了
+
+https://ggscore.com/en/dota-2/news/39686</blockquote>
+那fnatic只要表示自己没听到就能重赛咯
+
+*****
+
+####  nowaki  
+##### 21356#       发表于 2022-10-20 23:45
+
+茶队明天大概率被马桶几手绝活弄死，主要茶队拖到sszai犯病的后期自己也开始犯病了。boom大概率带不走lgd 只能期待eg了
+
+*****
+
+####  非建政专用号  
+##### 21357#       发表于 2022-10-20 23:45
+
+胜者组八人众里哪个是最弱中单，批九还是micke
+
+*****
+
+####  莉拉厨  
+##### 21358#       发表于 2022-10-20 23:46
+
+ 本帖最后由 莉拉厨 于 2022-10-20 23:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58015860&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-20 23:44</a>
+只可惜茶队已经和V社反应这事情了，看来他们自己都没有这么大度，说打不过就技不如人呢…… ...</blockquote>
+作为小茶叶我明确告诉你阿茶一轮游的比赛多了去了，我这么说只是因为我心态放宽了无所谓，能走一步是一步吧。至于选手反应了和我什么关系？我能把枪架在国土头上让这**不说？
+你指望俱乐部和观众同步是不可能的，就像这次潘飞化身剧毒术士的事，你能让潘飞不去吗？
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  VanArkride  
+##### 21359#       发表于 2022-10-20 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58015868&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-20 23:44</a>
+那fnatic只要表示自己没听到就能重赛咯</blockquote>
+csgo之前选手也抱怨过，没下文了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 21360#       发表于 2022-10-20 23:46
+
+支持狠狠拷打威乐，司马懒狗给老子吐点东西出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Asukalangley33  
+##### 21361#       发表于 2022-10-20 23:47
+
+现场视频一下把隔壁Entity乳化论搞没了啊
+
+呜呜呜呜呜，又少一个场外
+
+*****
+
+####  Avantasi  
+##### 21362#       发表于 2022-10-20 23:48
+
+其他无所谓，水厂明天快点死吧
+
+*****
+
+####  非建政专用号  
+##### 21363#       发表于 2022-10-20 23:48
+
+妮们要场外？
+
+#k1辱华
+
+*****
+
+####  acejoe  
+##### 21364#       发表于 2022-10-20 23:48
+
+希望多看点奇葩阵容奇葩打法，以前期待米波炸弹人，现在也来点冷门英雄上ti，把对手打得猪脑过载。
+
+*****
+
+####  Avantasi  
+##### 21365#       发表于 2022-10-20 23:48
+
+不希望30号去线下观战点有司马集美叫他妈，最好两个外国队打
+
+*****
+
+####  nowaki  
+##### 21366#       发表于 2022-10-20 23:49
+
+micke菜 但他会喊boxi来
+
+*****
+
+####  -SLSL-  
+##### 21367#       发表于 2022-10-20 23:51
+
+快进到给米克选龙骑士
+
