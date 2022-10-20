@@ -6576,3 +6576,45 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 第二章这个洞窟里面的宝箱怎么拿，还有右上的高台和标志怎么拿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  A1LI  
+##### 608#       发表于 2022-10-20 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58013308&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-20 21:30</a>
+
+第二章这个洞窟里面的宝箱怎么拿，还有右上的高台和标志怎么拿</blockquote>
+要后面合成哥布林石板，开你脚下的门，没错，你脚下右面一点其实是个门。
+
+标志是啥来着，箭靶？那个要射。
+
+*****
+
+####  白軍浪  
+##### 609#       发表于 2022-10-20 21:35
+
+第8章开头的自由探索时间，有什么需要拿上的东西吗？第8章什么属性的晶石比较少？我先准备一些
+
+*****
+
+####  helix  
+##### 610#       发表于 2022-10-20 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58013308&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-20 21:30</a>
+第二章这个洞窟里面的宝箱怎么拿，还有右上的高台和标志怎么拿</blockquote>
+上面那个箭靶站那堆石头顶上极限二段跑跳能上去
+
+*****
+
+####  何处分可  
+##### 611#       发表于 2022-10-20 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58013384&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-20 21:33</a>
+
+要后面合成哥布林石板，开你脚下的门，没错，你脚下右面一点其实是个门。
+
+标志是啥来着，箭靶？那个要射 ...</blockquote>
+卧槽，还真有个门
+

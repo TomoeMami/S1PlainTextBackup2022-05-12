@@ -1913,3 +1913,21 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 兄弟：“ 放屁！我小时候亲人也被帝国害死了，我也TM没因为这个就跑到别的村庄里放火杀人啊？？“<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tand177  
+##### 167#       发表于 2022-10-20 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58010081&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-20 19:09</a>
+
+这作角色对白上有很多让人眼前一亮的地方，
+
+举个例子</blockquote>
+这游戏里长得好看的和脑子有问题都是项羽那边的，咱这儿虽然都是大老粗，但都是好兄弟啊
+
+巴里斯塔尔的描写有时候感觉强行降智，但仔细想想，其实跟项羽的性格一模一样，甚至还更好一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+值得一提的一点，营地活动大多有一种咱们确确实实在打仗的军旅生活感，而不是出门郊游
+
