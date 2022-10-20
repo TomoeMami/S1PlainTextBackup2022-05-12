@@ -67,3 +67,13 @@ azn的新歌还可以，感觉除了游乐园外一直在试不同的风格
 
 —— 来自 ZTE A2322, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Skyline_R  
+##### 6571#       发表于 2022-10-20 17:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+<img src="https://dd-static.jd.com/ddimg/jfs/t1/174756/29/30747/208019/63511aa8E6778bc06/1171dd200521ee71.png" referrerpolicy="no-referrer">
+

@@ -10189,3 +10189,309 @@ ti1的时候国内比赛主流还是dota1啊，ti2以后才开始有dota2比赛�
 
 卧槽神拉
 
+
+
+*****
+
+####  反方向的波  
+##### 19211#       发表于 2022-10-20 17:51
+
+笑死我了，这波的起源是火枪在中路白给水人送一个变身火枪
+
+*****
+
+####  JoelBirch  
+##### 19212#       发表于 2022-10-20 17:52
+
+看了下XinQ的采访，感觉明显有点急，我对胖子还是抱有同情心理的，可惜了
+
+*****
+
+####  Kazepollar  
+##### 19213#       发表于 2022-10-20 17:52
+
+巧了，哥们儿很讨厌长得丑的肥仔，所以不喜欢xinQ
+
+*****
+
+####  Rorgen  
+##### 19214#       发表于 2022-10-20 17:53
+
+这火枪真下头，大推推银月冰眼什么烂逼装备
+
+*****
+
+####  Kazepollar  
+##### 19215#       发表于 2022-10-20 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008722&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-20 17:53</a>
+ 这火枪真下头，大推推银月冰眼什么烂逼装备</blockquote>
+俺打路人特喜欢出银月蝴蝶这种装备，没啥用但是玩的爽
+
+*****
+
+####  齐柏林轰炸机  
+##### 19216#       发表于 2022-10-20 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008731&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-20 17:53</a>
+
+俺打路人特喜欢出银月蝴蝶这种装备，没啥用但是玩的爽</blockquote>
+也没，打特定英雄出这两还是有效果的
+
+*****
+
+####  wzy200912345  
+##### 19217#       发表于 2022-10-20 17:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现代化军事dota,炸傻了
+
+*****
+
+####  Kazepollar  
+##### 19218#       发表于 2022-10-20 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58008743&amp;ptid=2099454" target="_blank">齐柏林轰炸机 发表于 2022-10-20 17:54</a>
+ 也没，打特定英雄出这两还是有效果的</blockquote>
+我玩剑圣小黑都喜欢第一二件就出蝴蝶<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">是真的爽
+
+*****
+
+####  やト  
+##### 19219#       发表于 2022-10-20 17:55
+
+ 打APEX呢
+
+*****
+
+####  超人苏坦纳  
+##### 19220#       发表于 2022-10-20 17:56
+
+新概念烟火神
+
+*****
+
+####  反方向的波  
+##### 19221#       发表于 2022-10-20 17:56
+
+哇，tofu直接被发条a杖导弹炸死了
+
+*****
+
+####  sodah  
+##### 19222#       发表于 2022-10-20 17:56
+
+要被拖死在肉山这边了？
+
+*****
+
+####  你可以试试  
+##### 19223#       发表于 2022-10-20 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">血厚容易跑攻速高看着爽啊，路人都这样
+
+*****
+
+####  人別離苦  
+##### 19224#       发表于 2022-10-20 17:57
+
+这畜出的什么装备
+
+*****
+
+####  wzy200912345  
+##### 19225#       发表于 2022-10-20 17:57
+
+卧槽超威蓝猫！
+
+*****
+
+####  反方向的波  
+##### 19226#       发表于 2022-10-20 17:57
+
+BOOM茖牛逼
+当然raven这菜比功不可没
+
+*****
+
+####  越动天下  
+##### 19227#       发表于 2022-10-20 17:57
+
+完美团
+
+*****
+
+####  外挂全家脚气  
+##### 19228#       发表于 2022-10-20 17:57
+
+完美团，来两次<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 19229#       发表于 2022-10-20 17:57
+
+卧槽，这团战
+
+*****
+
+####  Rorgen  
+##### 19230#       发表于 2022-10-20 17:58
+
+boom把对线除开真的是一线中单
+
+
+
+*****
+
+####  sodah  
+##### 19231#       发表于 2022-10-20 17:58
+
+卧槽，这团战。
+
+*****
+
+####  walfeds  
+##### 19232#       发表于 2022-10-20 17:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦草，团灭
+
+*****
+
+####  呆毛王嫁给我  
+##### 19233#       发表于 2022-10-20 17:58
+
+这波团有点帅的
+
+*****
+
+####  syndrome2032  
+##### 19234#       发表于 2022-10-20 17:58
+
+ggnb。
+
+瑞文这ta都没看到干了啥就没了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 19235#       发表于 2022-10-20 17:58
+
+fnatic真不配赢
+
+*****
+
+####  超人苏坦纳  
+##### 19236#       发表于 2022-10-20 17:58
+
+漏油说得对啊 这帮逼要是手上有活的话早游出来了
+
+*****
+
+####  Gosin  
+##### 19237#       发表于 2022-10-20 17:59
+
+打完看下发条伤害量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+太欢乐了
+
+*****
+
+####  Crazy_Knife  
+##### 19238#       发表于 2022-10-20 17:59
+
+这火枪纯犯罪啊，打的是个锤子
+
+*****
+
+####  Rorgen  
+##### 19239#       发表于 2022-10-20 18:00
+
+哇德拉臭，更飞鞋不留买，不愧是妮
+
+*****
+
+####  sepcorvus  
+##### 19240#       发表于 2022-10-20 18:00
+
+火枪装备是伏笔啊
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  iriyano  
+##### 19241#       发表于 2022-10-20 18:00
+
+哇，fantic坑我积分啊
+
+*****
+
+####  cwlo  
+##### 19242#       发表于 2022-10-20 18:01
+
+这火枪那么肥，打不动人的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 19243#       发表于 2022-10-20 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜欢打tps的总算被制裁了
+
+*****
+
+####  tasuku  
+##### 19244#       发表于 2022-10-20 18:01
+
+别说了，从9月开始开黑班子一群几年没打的突然复活
+
+一群老逼天天打bo服打到一两点已经扛不住了
+
+*****
+
+####  恐怖利刃  
+##### 19245#       发表于 2022-10-20 18:01
+
+除了雪碧一把没预测对，另外不知道为什么感觉rng是可以拿下的
+
+*****
+
+####  Kazepollar  
+##### 19246#       发表于 2022-10-20 18:02
+
+这火枪装备是真的滑
+
+*****
+
+####  端木恋心  
+##### 19247#       发表于 2022-10-20 18:02
+
+一小时了还没打完啊。我切过来以为该到超哥了。
+
+*****
+
+####  johnwick  
+##### 19248#       发表于 2022-10-20 18:02
+
+这么菜逼的队能打茶队2：0？
+
+*****
+
+####  tasuku  
+##### 19249#       发表于 2022-10-20 18:02
+
+才发现有个更新观战的队伍名字没了啊，开比分表看到的是队标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wzy200912345  
+##### 19250#       发表于 2022-10-20 18:02
+
+发条烟火到送自己回家<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 19251#       发表于 2022-10-20 18:03
+
+胜者组两场对了，败者组现在为止全错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这看着是要连错第三场了，还有最后的希望rng
+
