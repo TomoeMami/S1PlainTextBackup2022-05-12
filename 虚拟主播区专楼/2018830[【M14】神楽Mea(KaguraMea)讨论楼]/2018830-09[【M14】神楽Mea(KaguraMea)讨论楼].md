@@ -7301,3 +7301,34 @@ nb官号订阅里面也没她了，别吧，炸号炸个没完。
 
 怎么突然就被封了
 
+
+
+*****
+
+####  yywzjsw  
+##### 12694#       发表于 2022-10-20 21:45
+
+传了lol的问题？
+
+*****
+
+####  古战场亡魂  
+##### 12695#       发表于 2022-10-20 21:45
+
+平时不养个2nd的日常号，现在冻了推特连个独立发声渠道都没有。
+
+*****
+
+####  路人庚  
+##### 12696#       发表于 2022-10-20 21:49
+
+讲个笑话，推特认证
+
+<img src="https://img.saraba1st.com/forum/202210/20/214916a9j5k9x9ey1jvw9w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F7D61825-FA3B-4429-8C66-FA02D531144B.jpeg</strong> (152.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-20 21:49 上传
+
