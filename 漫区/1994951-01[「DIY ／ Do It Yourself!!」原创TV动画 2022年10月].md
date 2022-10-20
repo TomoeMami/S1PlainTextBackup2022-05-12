@@ -2463,3 +2463,16 @@ May the Force be with you笑死，多语言的语音识别日常弱智<img src="
 
 什么娘化乔布斯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我特么吹爆  
+##### 202#       发表于 2022-10-21 00:01
+
+三集看下来
+照着这个节奏做下去直逼幸运星啊
+DIY不可能翻车！我要吹爆锦织……（划掉）
+（看看监督是谁）
+我要吹爆米田和弘！
+
