@@ -6220,3 +6220,15 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 弩和飞刀伤害是固定的还是看攻击的？简直竞技场逃课神器啊。
 
+
+
+*****
+
+####  元气海牛  
+##### 576#       发表于 2022-10-20 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58001983&amp;ptid=2098044" target="_blank">startea15 发表于 2022-10-20 12:29</a>
+
+新章通了，剧情我感觉很完美能给10分，大团圆就是好题外话，作者居然没做一个new game+继承装备道具等级能 ...</blockquote>
+最后女神牺牲了我不能接受！！<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer"> 还以为真大团圆完美了，结果最后还给我一刀，剧透反白，围观慎重
+
