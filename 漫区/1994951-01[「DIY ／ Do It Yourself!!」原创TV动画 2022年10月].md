@@ -2382,3 +2382,15 @@ Do It Your Radio!! 第 1 回开始配信，嘉宾&amp;#x662 ...</blockquote>
 
 2022-10-20 13:04 上传
 
+
+
+*****
+
+####  千恋万花  
+##### 194#       发表于 2022-10-20 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58002729&amp;ptid=1994951" target="_blank">NZ-333 发表于 2022-10-20 13:05</a>
+
+用的这个源，结果字幕成这样了，是我播放器的问题吗…</blockquote>
+大概是强制忽略了 ASS 的字幕样式
+
