@@ -12215,3 +12215,14 @@ kmnz三专有比二专好听的，但感觉还是不如一专
 
 hnn竟然组织活动了
 
+
+
+*****
+
+####  FCCHua  
+##### 17620#       发表于 2022-10-20 19:24
+
+行动力，虽然是ow2
+顺便这个图做的有点可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/72f1cc485db447d59c6bd44e1b4855c9/CMP_20221020192414372.jpg" referrerpolicy="no-referrer">
+
