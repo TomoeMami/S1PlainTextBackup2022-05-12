@@ -109,3 +109,12 @@
 
 呃呃，还以为学生会盘子要憋到周年之类的跟FA一起骗波大的，看来金字塔已经万策尽了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alialex  
+##### 7401#         楼主| 发表于 2022-10-20 15:44
+
+这次大流士联动符合剧情有改过吗，刚把第一张地图打完，怎么追加角色都露脸几次了
+

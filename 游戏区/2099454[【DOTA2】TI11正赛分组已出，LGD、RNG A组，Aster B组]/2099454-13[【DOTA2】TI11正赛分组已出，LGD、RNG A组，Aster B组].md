@@ -4651,3 +4651,532 @@ mira是不是去乌克兰鸭店做过牛郎<img src="https://p.sda1.dev/7/2d1989
 3  ti10后
 4  和管人谈恋爱没担当分手后
 
+
+
+*****
+
+####  情商  
+##### 18551#         楼主| 发表于 2022-10-20 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006078&amp;ptid=2099454" target="_blank">FBIwarning 发表于 2022-10-20 15:40</a>
+
+我看小组赛飞机的胜率是100% 怎么没有队伍选呢</blockquote>
+打谜团特攻的
+
+*****
+
+####  lyjssj  
+##### 18552#       发表于 2022-10-20 15:41
+
+牛的，本铁血西米露都不敢这么填
+
+*****
+
+####  银翼的维罗西  
+##### 18553#       发表于 2022-10-20 15:41
+
+雪碧可千万要苟过这一轮，淘汰赛减伤流已经不好用了，又成了硬实力的比拼，我等着他们送老干鳖回家
+
+*****
+
+####  夏溪澪mio  
+##### 18554#       发表于 2022-10-20 15:41
+
+赛况我填的红龙总冠军啊<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sodah  
+##### 18555#       发表于 2022-10-20 15:41
+
+这大鞭哥的女朋友一直这么喜欢玩尬的吗。
+
+*****
+
+####  nowaki  
+##### 18556#       发表于 2022-10-20 15:42
+
+曼巴信徒是这样的
+
+*****
+
+####  zhliiiii  
+##### 18557#       发表于 2022-10-20 15:42
+
+魁梧大神跟你闹呢
+
+*****
+
+####  usoda  
+##### 18558#       发表于 2022-10-20 15:42
+
+雪碧宰个BOOM应该没压力的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 18559#       发表于 2022-10-20 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006110&amp;ptid=2099454" target="_blank">草海灭巨 发表于 2022-10-20 15:41</a>
+
+话说楼友们是什么时候彻底黑化成a黑的
+
+1  ti8后
+
+2  ti9后</blockquote>
+33333
+
+ti10前清算我的偶像森哥，ti10后搞假赛，喂的shi实在是太多了
+
+*****
+
+####  齐柏林轰炸机  
+##### 18560#       发表于 2022-10-20 15:42
+
+六年了，兄弟们，还有奇迹吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snarc1  
+##### 18561#       发表于 2022-10-20 15:43
+
+这女的真的典中典
+
+*****
+
+####  Avantasi  
+##### 18562#       发表于 2022-10-20 15:43
+
+量子鞭真勾搭上了可以算刀圈阶级飞跃第二人了吧，第一个是肉九
+
+*****
+
+####  Suny08  
+##### 18563#       发表于 2022-10-20 15:43
+
+44444
+
+*****
+
+####  赤星ビスコ  
+##### 18564#       发表于 2022-10-20 15:43
+
+cn夺不夺冠又如何<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Horusddt  
+##### 18565#       发表于 2022-10-20 15:43
+
+只能说刻板印象是有道理的
+
+*****
+
+####  zsu222  
+##### 18566#       发表于 2022-10-20 15:43
+
+boom喜欢憋后期 我是觉得玩不过绿龙的
+
+*****
+
+####  Kazepollar  
+##### 18567#       发表于 2022-10-20 15:43
+
+今晚rng力中暴力拿下ett，就真是疯狂星期了
+
+*****
+
+####  反方向的波  
+##### 18568#       发表于 2022-10-20 15:44
+
+选4能不能先说一下你们给各种皮套人一共打了多少工资
+
+*****
+
+####  朝奈  
+##### 18569#       发表于 2022-10-20 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006110&amp;ptid=2099454" target="_blank">草海灭巨 发表于 2022-10-20 15:41</a>
+
+话说楼友们是什么时候彻底黑化成a黑的
+
+1  ti8后
+
+2  ti9后</blockquote>
+什么JB,没有D1年代就开始的李狗蛋黑这种选项?
+
+*****
+
+####  OVTVO  
+##### 18570#       发表于 2022-10-20 15:44
+
+雪碧打BOOM真的不好说，我觉得BOOM最后一天打的还可以，虽然EG那两盘含金量不高，但是打苏哥和BB的两盘我觉得打的还可以。
+
+
+
+*****
+
+####  情商  
+##### 18571#         楼主| 发表于 2022-10-20 15:44
+
+c房了叫我
+
+*****
+
+####  战狼PTSD  
+##### 18572#       发表于 2022-10-20 15:44
+
+这大鞭哥的女朋友一直这么喜欢玩尬的吗。
+
+*****
+
+####  mizoh  
+##### 18573#       发表于 2022-10-20 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006110&amp;ptid=2099454" target="_blank">草海灭巨 发表于 2022-10-20 15:41</a>
+
+话说楼友们是什么时候彻底黑化成a黑的
+
+1  ti8后
+
+2  ti9后</blockquote>
+1
+
+*****
+
+####  fopinecone  
+##### 18574#       发表于 2022-10-20 15:44
+
+奇迹预选赛就淘汰了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  thistimeforlife  
+##### 18575#       发表于 2022-10-20 15:45
+
+当年ti8直播g4g5都为og提心吊胆的在此 但如果说ti8是因为og精彩的胜半决胜决总决大翻盘看服的，后来只不过是对lgd和潘婕一系的仇恨与日俱增的过程<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nxmonitor  
+##### 18576#       发表于 2022-10-20 15:45
+
+苏哥和BB也是垫底的好有什么用啊……<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 18577#       发表于 2022-10-20 15:45
+
+c房了叫我
+
+*****
+
+####  呆毛王嫁给我  
+##### 18578#       发表于 2022-10-20 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006110&amp;ptid=2099454" target="_blank">草海灭巨 发表于 2022-10-20 15:41</a>
+
+话说楼友们是什么时候彻底黑化成a黑的
+
+1  ti8后
+
+2  ti9后</blockquote>
+假赛论甚嚣尘上的时候他作为主要当事人一言不发缩壳之后
+
+A畜吃dota这口饭，他的荣耀和职业生涯都和CNDOTA息息相关，结果CNdota圈这么大的事你当事人你一句话不说，这是无恩
+
+队友都站出来说话，吸引火力了，你一声不吭，看着队友被你的脑残粉撕，这是无义
+
+人可以菜，可以混，不能无恩无义。你无恩无义，我只能认为你自己都没把自己当人，我也心安理得叫你一声畜生。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| azccc52| + 1||
+
+查看全部评分
+
+*****
+
+####  Django  
+##### 18579#       发表于 2022-10-20 15:45
+
+先拉个中立yy
+
+*****
+
+####  强袭型抹布  
+##### 18580#       发表于 2022-10-20 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006110&amp;ptid=2099454" target="_blank">草海灭巨 发表于 2022-10-20 15:41</a>
+话说楼友们是什么时候彻底黑化成a黑的
+1  ti8后
+2  ti9后</blockquote>
+0生下来就是畜牲了
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  snarc1  
+##### 18581#       发表于 2022-10-20 15:46
+
+怎么boom被罚备用时间了
+
+*****
+
+####  usoda  
+##### 18582#       发表于 2022-10-20 15:46
+
+他妈的你爸爸是解放军你却要当个润人？量子鞭迟早被这女人玩死
+
+*****
+
+####  tasuku  
+##### 18583#       发表于 2022-10-20 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006110&amp;ptid=2099454" target="_blank">草海灭巨 发表于 2022-10-20 15:41</a>
+
+话说楼友们是什么时候彻底黑化成a黑的
+
+1  ti8后
+
+2  ti9后</blockquote>
+TI7<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 18584#       发表于 2022-10-20 15:46
+
+哥们儿ti8那年去现场看dac就被老畜鳖喂屎了好吧，后面也只喜欢森哥对另外四个无感，决赛之后直接化身纯血a黑
+
+*****
+
+####  你可以试试  
+##### 18585#       发表于 2022-10-20 15:46
+
+我不装了，我就是小超人，把超哥最好的几年绑住的时候开黑的，然后就是wings风波，开着VPGAME还好意思各种推广，假赛论
+
+*****
+
+####  BloodWingS  
+##### 18586#       发表于 2022-10-20 15:47
+
+又放玛西了啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llconforever  
+##### 18587#       发表于 2022-10-20 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006218&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-20 15:46</a>
+TI7</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">核废料是吧
+
+*****
+
+####  一夜秋风袭锦城  
+##### 18588#       发表于 2022-10-20 15:48
+
+我一直都卜是a黑啊，但a畜打的这么畜不能不让我喷吧？
+
+*****
+
+####  莉拉厨  
+##### 18589#       发表于 2022-10-20 15:48
+
+看看雪碧是不是小组赛在装把自己装进去了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 18590#         楼主| 发表于 2022-10-20 15:48
+
+ti3之后就是老干鳖黑了好吧
+
+*****
+
+####  Rorgen  
+##### 18591#       发表于 2022-10-20 15:48
+
+TA这么强，但是RNG训练赛可以吊打
+刀塔
+607
+2 小时前  
+又看了下RNG小组赛前两天行云流水的团战和配合，真的，LGD真TM畜生
+
+*****
+
+####  zsu222  
+##### 18592#       发表于 2022-10-20 15:48
+
+上来就老鹿小强 这么真实吗
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 18593#       发表于 2022-10-20 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006215&amp;ptid=2099454" target="_blank">usoda 发表于 2022-10-20 15:46</a>
+他妈的你爸爸是解放军你却要当个润人？量子鞭迟早被这女人玩死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">权贵膝盖软的多了去了
+
+*****
+
+####  银翼的维罗西  
+##### 18594#       发表于 2022-10-20 15:48
+
+来咯，影儿魔儿打老鹿，版本最强的两个核
+
+*****
+
+####  syndrome2032  
+##### 18595#       发表于 2022-10-20 15:48
+
+小强老鹿，强度摆在这。
+
+*****
+
+####  Rorgen  
+##### 18596#       发表于 2022-10-20 15:48
+
+感觉这个核中核有可信度，rng前两天的状态打线很屌，但是中期强势期把握不好
+
+*****
+
+####  bluebaby  
+##### 18597#       发表于 2022-10-20 15:49
+
+没有9神信徒来说十年干爹黑的故事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  树洞专用  
+##### 18598#       发表于 2022-10-20 15:49
+
+血轮眼，启动！
+
+*****
+
+####  少年游不游  
+##### 18599#       发表于 2022-10-20 15:49
+
+ti10决赛的畜级表演加上集美的假赛论后彻底绷不住了
+
+*****
+
+####  TheOccuria  
+##### 18600#       发表于 2022-10-20 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006110&amp;ptid=2099454" target="_blank">草海灭巨 发表于 2022-10-20 15:41</a>
+
+话说楼友们是什么时候彻底黑化成a黑的
+
+1  ti8后
+
+2  ti9后</blockquote>
+严格来说是ti8后半年
+
+讲道理菜逼c多了去了，这种犯了大罪的缩壳半年就拿出来吹属实恶心
+
+
+
+*****
+
+####  jk9hot  
+##### 18601#       发表于 2022-10-20 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006110&amp;ptid=2099454" target="_blank">草海灭巨 发表于 2022-10-20 15:41</a>
+话说楼友们是什么时候彻底黑化成a黑的
+1  ti8后
+2  ti9后</blockquote>
+猪肉九卖猪肉的时候
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  齐柏林轰炸机  
+##### 18602#       发表于 2022-10-20 15:50
+
+又没有众筹泰国杀手的，把A÷手脚拿了
+
+*****
+
+####  izayoi39  
+##### 18603#       发表于 2022-10-20 15:50
+
+雪碧也开始拉西克和小强了
+
+*****
+
+####  漂灵  
+##### 18604#       发表于 2022-10-20 15:50
+
+ti9以前一直拿A ME黑冠超，冠超去了小象后反而对其有了好感，又转头用冠超黑ame，可以说是坚定的老干鳖黑了吧？
+
+*****
+
+####  Rorgen  
+##### 18605#       发表于 2022-10-20 15:51
+
+今年ti的大核刷逼只有pakazs强势，其他的全是打架核占上风，懂我钦点之人的含金量了吗
+
+*****
+
+####  nowaki  
+##### 18606#       发表于 2022-10-20 15:51
+
+ti89其实还好 ti10假赛论彻底绷不住了
+
+*****
+
+####  tasuku  
+##### 18607#       发表于 2022-10-20 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006234&amp;ptid=2099454" target="_blank">llconforever 发表于 2022-10-20 15:47</a>
+
+核废料是吧</blockquote>
+那倒不是，单纯恶心ru婊的队伍而已
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 18608#       发表于 2022-10-20 15:52
+
+不是，雪碧看到了自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 18609#       发表于 2022-10-20 15:52
+
+怎么没有队拿电 狗打老鹿，电 狗是老鹿亲爹好吧
+
+*****
+
+####  阿垃垃圾历  
+##### 18610#       发表于 2022-10-20 15:52
+
+ti9之后 对ame再无感 ti10彻底转黑
+
+*****
+
+####  izayoi39  
+##### 18611#       发表于 2022-10-20 15:52
+
+lgd虽然没十年，但是也有七八年了，从ti5到ti6那段时间开始lgd黑，当时主要是吴冠超黑，后来a畜来了也是一块黑，ti8是唯一一段时间吴冠超让我咋黑的周期
+

@@ -6328,3 +6328,15 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 昨天卡30一下今天更了个补丁就正常了，果然是补丁打补丁结果出bug了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jy000129  
+##### 587#       发表于 2022-10-20 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58004663&amp;ptid=2098044" target="_blank">cnlmaa 发表于 2022-10-20 14:32</a>
+
+第五章地底那条龙是要通关前来打吗，目前的装备直接被秒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最少第七章通了再说，第八章装备有了更好打一点，这BOSS还有即死，不是很好躲，输出不够容错率相当低
+
