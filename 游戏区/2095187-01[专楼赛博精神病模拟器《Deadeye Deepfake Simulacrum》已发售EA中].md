@@ -1394,3 +1394,23 @@ C:\Users\*\AppData\LocalLow\nodayshalleraseyou\DeadeyeDeepfakeSimulacrum\
 
 另外，一个角色开全技能至少要2k点技能点……真的能办到么？
 
+
+
+*****
+
+####  Errey  
+##### 72#       发表于 2022-10-20 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997895&amp;ptid=2095187" target="_blank">Tring 发表于 2022-10-20 07:43</a>
+
+主要是战斗这件事本身在这个游戏里就不如黑入划算。
+
+战斗会导致耗时大量增加，而低容错率导致一旦失误又得 ...</blockquote>
+抛开走不同结局这种因素，整个游戏倾向就是玩骇客，全都是为骇客设计好的，开局拿到3芯片开骇客和潜行职业，很多地图都能迅速找到overlord然后乱玩，即便地图不太支持，通过潜行职业的便携后门(Portable Backdoor)随便开着玩
+
+战斗相对来说很划得来了，冲进去打打打完事走人，只要不还钱没什么亏的，不划算的其实是枪手骑士这类明着的战斗职业，没有数值支持非常弱
+
+开死灵法师(Necromancer)，带上EGO6的召唤和吃尸体，被动选近战不撞墙，带最长的剑开局直接冲进去退回来然后找个墙角不停划拉，捡点好枪就开推
+
+开魅魔(Empath)，就不停拉友军也是一顿乱杀
+
