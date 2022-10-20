@@ -6083,3 +6083,22 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  vidomina  
+##### 563#       发表于 2022-10-20 09:17
+
+感觉打伤害还是全魔力用凭依技来的快啊，平a感觉太刮？
+
+*****
+
+####  jy000129  
+##### 564#       发表于 2022-10-20 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57995916&amp;ptid=2098044" target="_blank">元气海牛 发表于 2022-10-19 23:08</a>
+
+贤者要全武器全盾和全护甲，他还说没要求全饰品，是关照了主角，这没全收集对照表是要人命啊 ...</blockquote>
+基本上就是每章商店+图纸武器，扭蛋武器，挑战BOSS武器，配合嘉隆的鼻子扫图吧<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+

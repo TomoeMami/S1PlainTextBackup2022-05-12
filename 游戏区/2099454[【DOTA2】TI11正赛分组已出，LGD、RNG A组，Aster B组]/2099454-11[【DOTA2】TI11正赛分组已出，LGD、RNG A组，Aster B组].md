@@ -7669,3 +7669,149 @@ xinq土猫买活脑浆一个人滚上去送第二路 是整活
 
 开幕式几点
 
+
+
+*****
+
+####  端木恋心  
+##### 15852#       发表于 2022-10-20 08:59
+
+按照一般规律提前半小时吧。
+
+*****
+
+####  Yugao  
+##### 15853#       发表于 2022-10-20 09:05
+
+兄弟们，骷髅王坐马桶那个身心是哪个本子的啊，是不是绝版了
+
+*****
+
+####  情商  
+##### 15854#         楼主| 发表于 2022-10-20 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998427&amp;ptid=2099454" target="_blank">Yugao 发表于 2022-10-20 09:05</a>
+
+兄弟们，骷髅王坐马桶那个身心是哪个本子的啊，是不是绝版了</blockquote>
+ti10的，没说绝版，可能以后会跟卡尔身心一样复刻吧
+
+*****
+
+####  啊哈  
+##### 15855#       发表于 2022-10-20 09:09
+
+<blockquote>苏西踩到我了 发表于 2022-10-20 04:11
+主要是我相信lgd是真的强，不用科研不用菠菜很难解释他们在某些情况的奇怪选择，比如lgd打gg，我就坚信lg ...</blockquote>
+lgd这种队单纯的是赢多了，不像xg那么迷信绝活而已，所以bp能放开很多而已
+
+*****
+
+####  火鸡味锅巴  
+##### 15856#       发表于 2022-10-20 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998448&amp;ptid=2099454" target="_blank">啊哈 发表于 2022-10-20 09:09</a>
+
+lgd这种队单纯的是赢多了，不像xg那么迷信绝活而已，所以bp能放开很多而已 ...</blockquote>
+去年lgd看起来bp无敌，实际上把bian打崩了就崩到底。本质就是队员体系。
+
+*****
+
+####  Litccc  
+##### 15857#       发表于 2022-10-20 09:12
+
+涛哥的好兄弟jj会来献唱吗
+
+*****
+
+####  Litccc  
+##### 15858#       发表于 2022-10-20 09:12
+
+涛哥的好兄弟jj会来献唱吗
+
+*****
+
+####  walfeds  
+##### 15859#       发表于 2022-10-20 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998427&amp;ptid=2099454" target="_blank">Yugao 发表于 2022-10-20 09:05</a>
+
+兄弟们，骷髅王坐马桶那个身心是哪个本子的啊，是不是绝版了</blockquote>
+那个是真王至宝吧
+
+不过自从有了复刻卡尔身心的操作没有哪个饰品可以说绝对绝版了
+
+*****
+
+####  情商  
+##### 15860#         楼主| 发表于 2022-10-20 09:13
+
+jj巴不得杀了bts的马，自己的队ti预选赛都打不了
+
+*****
+
+####  情商  
+##### 15861#         楼主| 发表于 2022-10-20 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57998488&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-20 09:13</a>
+
+那个是真王至宝吧
+
+不过自从有了复刻卡尔身心的操作没有哪个饰品可以说绝对绝版了 ...</blockquote>
+军团哪个应该是真绝版了
+
+*****
+
+####  啊哈  
+##### 15862#       发表于 2022-10-20 09:15
+
+<blockquote>Yugao 发表于 2022-10-20 09:05
+兄弟们，骷髅王坐马桶那个身心是哪个本子的啊，是不是绝版了</blockquote>
+那个是至宝ti10和风行女王至宝一起出的，正常渠道，估计你只能等dota2停服那天，来个全饰品免费送
+
+*****
+
+####  百世诸侯  
+##### 15863#       发表于 2022-10-20 09:18
+
+窝昨晚做梦梦见秘密被LGD两把20分钟速通，等一个梦是相反的好吧
+
+*****
+
+####  强袭型抹布  
+##### 15864#       发表于 2022-10-20 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997507&amp;ptid=2099454" target="_blank">苏西踩到我了 发表于 2022-10-20 03:32</a>
+我没预测，这次小组赛都太藏活了，还不如突围赛的几把来的有意思
+
+不考虑藏活，单纯说纸面胜率，肯定还是lg ...</blockquote>
+楼里有些人反a畜反的跟神经病一样，连23458厉害都不让说，说了就给扣a畜粉的帽子。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  强袭型抹布  
+##### 15865#       发表于 2022-10-20 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997507&amp;ptid=2099454" target="_blank">苏西踩到我了 发表于 2022-10-20 03:32</a>
+我没预测，这次小组赛都太藏活了，还不如突围赛的几把来的有意思
+
+不考虑藏活，单纯说纸面胜率，肯定还是lg ...</blockquote>
+楼里有些人反a畜反的跟神经病一样，连23458厉害都不让说，说了就给扣a畜粉的帽子。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 15866#       发表于 2022-10-20 09:19
+
+jj还是拷打一下自家staff吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你smg有空拍宣传片没空报名
+
+*****
+
+####  百世诸侯  
+##### 15867#       发表于 2022-10-20 09:20
+
+窝昨晚做梦梦见秘密被LGD两把20分钟速通，等一个梦是相反的好吧
+

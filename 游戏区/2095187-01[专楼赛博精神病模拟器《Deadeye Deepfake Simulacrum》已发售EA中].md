@@ -1444,3 +1444,12 @@ C:\Users\*\AppData\LocalLow\nodayshalleraseyou\DeadeyeDeepfakeSimulacrum\
 
 有这个考量才逼你点潜行吧
 
+
+
+*****
+
+####  c1062596251  
+##### 75#       发表于 2022-10-20 09:19
+
+诶诶 这算已经正式发售了么 我看还在抢先体验状态呀 之后作者还会加新内容么
+
