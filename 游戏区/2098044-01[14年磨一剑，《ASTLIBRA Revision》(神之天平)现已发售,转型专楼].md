@@ -7410,3 +7410,17 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 三个盘 ...</blockquote>
 会都挂到武器上 理论上可以吃到所有属性被动的加成 可以回家里时候卸完被动和装备单HIT试试看伤害区别
 
+
+
+*****
+
+####  后会莫急  
+##### 678#       发表于 2022-10-21 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025239&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-21 15:44</a>
+
+话说一把武器，武器盘里有多种属性，那如果每个盘都选不同的属性，是同存还是默认原来武器的属性？
+
+三个盘 ...</blockquote>
+同在，但想万用得凑互克对子，水火 风土 光暗，因为只要你有克制属性就能不触发怪物抗性，当然也可以用精灵庇护技能
+
