@@ -6617,3 +6617,13 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 
 我迫不及待想耍锤子了！！
 
+
+
+*****
+
+####  SergeGlenn  
+##### 720#       发表于 2022-10-22 07:18
+
+50秒奎爷VS索尔，我没看，不怕剧透的可以瞅下
+[https://www.veed.io/view/6b49c5ab-67f8-4f78-ae7a-cab8d68f2c55](https://www.veed.io/view/6b49c5ab-67f8-4f78-ae7a-cab8d68f2c55)
+
