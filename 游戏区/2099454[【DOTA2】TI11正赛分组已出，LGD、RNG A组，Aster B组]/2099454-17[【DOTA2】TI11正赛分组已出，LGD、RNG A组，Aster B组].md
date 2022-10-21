@@ -1975,3 +1975,507 @@ ts也是个活在去年ti的队伍，这不巧了嘛<img src="https://static.sar
 
 虽然我没看懂选个玛尔斯开摇最后选个凤凰把自己搞死是什么逻辑
 
+
+
+*****
+
+####  IG.430  
+##### 24256#       发表于 2022-10-21 17:52
+
+憋住了，哥们要睡捉了
+
+*****
+
+####  jk9hot  
+##### 24257#       发表于 2022-10-21 17:52
+
+真得玩小控小技能干干干
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  越动天下  
+##### 24258#       发表于 2022-10-21 17:52
+
+boom没了
+
+*****
+
+####  seki_m  
+##### 24259#       发表于 2022-10-21 17:52
+
+这马尔斯凤凰我看笑了，会选不会打
+
+*****
+
+####  樱冢名月  
+##### 24260#       发表于 2022-10-21 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这凤凰是怎么敢选的，能这样飞，这边变蛋的
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 24261#       发表于 2022-10-21 17:52
+
+猴王<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 24262#       发表于 2022-10-21 17:53
+
+定点没矛到神了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏沃雷生  
+##### 24263#       发表于 2022-10-21 17:53
+
+妮们卜会有什么奇怪的期待吧？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">唯一一只不存在干翻干瘪可能的就是菜宜风这队了
+
+*****
+
+####  walfeds  
+##### 24264#       发表于 2022-10-21 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">今天下班回家继续打游戏，看nm
+
+*****
+
+####  Rorgen  
+##### 24265#       发表于 2022-10-21 17:53
+
+哥哥一波团打了30输出，望周知
+
+*****
+
+####  百世诸侯  
+##### 24266#       发表于 2022-10-21 17:53
+
+马尔斯和凤凰都尿了，解说还说这马尔斯是绝活，窝看和量子鞭水平差不多
+
+*****
+
+####  scg2017  
+##### 24267#       发表于 2022-10-21 17:53
+
+先手船长有输出吗
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 24268#       发表于 2022-10-21 17:53
+
+蔡宜丰真的是fw啊
+
+*****
+
+####  nerugigannte  
+##### 24269#       发表于 2022-10-21 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好今天去吃饭了
+
+*****
+
+####  NaYo丶  
+##### 24270#       发表于 2022-10-21 17:53
+
+不会让lgd把状态打出来了吧
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  sodah  
+##### 24271#       发表于 2022-10-21 17:53
+
+真的好恶心啊。
+
+*****
+
+####  恐怖利刃  
+##### 24272#       发表于 2022-10-21 17:54
+
+这不敢打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 24273#       发表于 2022-10-21 17:54
+
+这大招就这样用了
+
+*****
+
+####  Rorgen  
+##### 24274#       发表于 2022-10-21 17:54
+
+哥哥带盾，船长有船被一个往外的矛吓出bkb，笑死我了
+他太稳了，稳健得仿佛失去了什么亲妈一样
+
+*****
+
+####  反方向的波  
+##### 24275#       发表于 2022-10-21 17:54
+
+鳖起来了，看吐了
+
+*****
+
+####  弈秋  
+##### 24276#       发表于 2022-10-21 17:54
+
+带个盾都要撤退是吧
+
+*****
+
+####  jk9hot  
+##### 24277#       发表于 2022-10-21 17:54
+
+还好漏油今晚去外面吃吃喝喝
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  百世诸侯  
+##### 24278#       发表于 2022-10-21 17:54
+
+新切入点：先辈替父报仇了
+
+*****
+
+####  逃离二次元  
+##### 24279#       发表于 2022-10-21 17:54
+
+菜宜风如果做个人就下把直接打GG，免得让水厂找回状态
+
+*****
+
+####  adretyu67  
+##### 24280#       发表于 2022-10-21 17:55
+
+鉴定为纯纯的虐菜局，很难想象boom这队伍昨天怎么赢的。
+
+只能说雪碧更菜
+
+*****
+
+####  越动天下  
+##### 24281#       发表于 2022-10-21 17:55
+
+Gg了
+
+*****
+
+####  勤练带来力量  
+##### 24282#       发表于 2022-10-21 17:55
+
+秒coco凤凰不变蛋啊
+
+*****
+
+####  齐柏林轰炸机  
+##### 24283#       发表于 2022-10-21 17:56
+
+国师别藏了，第二把赶紧上活
+
+*****
+
+####  越动天下  
+##### 24284#       发表于 2022-10-21 17:56
+
+我只能说完全不是一个水平
+
+*****
+
+####  枯风瘦雪02  
+##### 24285#       发表于 2022-10-21 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027414&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-21 17:53</a>
+
+马尔斯和凤凰都尿了，解说还说这马尔斯是绝活，窝看和量子鞭水平差不多</blockquote>
+昨天处刑雪碧的马尔斯啊
+
+*****
+
+####  樱冢名月  
+##### 24286#       发表于 2022-10-21 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">喝汤一样选个凤凰，木shit真的神经
+
+*****
+
+####  xz_04  
+##### 24287#       发表于 2022-10-21 17:56
+
+坏起来了呀，处长不会又能进决赛日吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  tontyoutoure  
+##### 24288#       发表于 2022-10-21 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027447&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-21 17:55</a>
+
+鉴定为纯纯的虐菜局，很难想象boom这队伍昨天怎么赢的。
+
+只能说雪碧更菜 ...</blockquote>
+NA带着小狗四处转没抓到过boom的人，有什么好说的。
+
+*****
+
+####  seki_m  
+##### 24289#       发表于 2022-10-21 17:57
+
+吃了雪碧给lgd当大补丸
+
+*****
+
+####  7450  
+##### 24290#       发表于 2022-10-21 17:57
+
+今天是没乐子看了
+
+国师你bp的是个鸡儿啊
+
+*****
+
+####  walfeds  
+##### 24291#       发表于 2022-10-21 17:57
+
+蔡宜风你选的是nm啊
+
+*****
+
+####  windhawind2  
+##### 24292#       发表于 2022-10-21 17:57
+
+漏油们怎么还指望mushit能压制下面八的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  苏西踩到我了  
+##### 24293#       发表于 2022-10-21 17:57
+
+赢得又怂又慌，不得不说败者组和超哥遗言给的压力太大了
+
+*****
+
+####  jk9hot  
+##### 24294#       发表于 2022-10-21 17:57
+
+进不了决赛日，还有9个秘鲁人等着畜长。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  万世创伤伊莫库  
+##### 24295#       发表于 2022-10-21 17:57
+
+陈这英雄是不是可以解放3号位英雄，不用考虑出imba的大祭品？
+
+*****
+
+####  OVTVO  
+##### 24296#       发表于 2022-10-21 17:57
+
+BOOM这队没那么弱，打成这样就是血脉压制。
+
+昨天一方面是雪碧打了自己不太擅长的TS体系，另一方面昨天BOOM状态比今天好太多了。
+
+*****
+
+####  snarc1  
+##### 24297#       发表于 2022-10-21 17:57
+
+东南亚不行
+
+*****
+
+####  windhawind2  
+##### 24298#       发表于 2022-10-21 17:58
+
+漏油们怎么还指望mushit能压制下面八的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  5678给  
+##### 24299#       发表于 2022-10-21 17:58
+
+怎么贷款决赛日的人都来了，boomA组第八而已，碰见B组一碰就碎
+
+*****
+
+####  哈萨维·诺亚  
+##### 24300#       发表于 2022-10-21 17:58
+
+蔡宜风你选的是nm啊
+
+
+
+*****
+
+####  月亮与五块钱  
+##### 24301#       发表于 2022-10-21 17:58
+
+不是，这有什么惊讶的，裹尸布替父报仇而已。
+
+这局要赢只有阵容不蛇的情况下，先把大鱼人打烂。
+
+*****
+
+####  Sabbah  
+##### 24302#       发表于 2022-10-21 17:58
+
+你永远无法相信蔡宜风对阵张宁的比赛
+
+*****
+
+####  Rorgen  
+##### 24303#       发表于 2022-10-21 17:58
+
+不会真的有人相信蔡宜风吧，昨天boom已经超水平发挥了
+
+*****
+
+####  listenermy  
+##### 24304#       发表于 2022-10-21 17:59
+
+每次结婚都当做最后一次结婚，也不要怕离婚
+
+*****
+
+####  Suny08  
+##### 24305#       发表于 2022-10-21 17:59
+
+大鱼真的克这版本热门核心小狗，所以xg 等于全是选的版本答案
+
+*****
+
+####  lyjssj  
+##### 24306#       发表于 2022-10-21 17:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大胆预测面8会一直给萧瑟选裹尸布大圣，选到对面尊重ban为止
+
+强调前期打架的版本大圣确实也挺适合的
+
+*****
+
+####  ysasz  
+##### 24307#       发表于 2022-10-21 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">泥楼日常如丧考妣啊，有点腚力呀。万一这场是经典重现，碾翻被碾呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  maju3  
+##### 24308#       发表于 2022-10-21 18:00
+
+看了看bp，八王这是准备回归新加坡major正面大圣反面巨魔的模式了？注定走不远好吧
+
+*****
+
+####  VT1996  
+##### 24309#       发表于 2022-10-21 18:00
+
+别急相信a处，蔡宜风的高光时刻不就是踩着a处拿的dac吗
+
+*****
+
+####  IG.430  
+##### 24310#       发表于 2022-10-21 18:00
+
+ 本帖最后由 IG.430 于 2022-10-21 18:02 编辑 
+
+河道矛nts那波没接上是因为矛位移的优先级比海民起飞的优先级低，戳不动在天上位移的船长，所以nts能开出bkb
+
+*****
+
+####  二宮飛鳥酱  
+##### 24311#       发表于 2022-10-21 18:00
+
+boom不指望了，还是指望克神吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 24312#       发表于 2022-10-21 18:01
+
+这版本大牲铁下头英雄，火猫级别的，也不看看都是什么人在玩，水晶都不玩了
+
+*****
+
+####  恐怖利刃  
+##### 24313#       发表于 2022-10-21 18:01
+
+看了下昨天那把加油啊淳🐟最后maybe直接被宰猪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OVTVO  
+##### 24314#       发表于 2022-10-21 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027510&amp;ptid=2099454" target="_blank">maju3 发表于 2022-10-21 18:00</a>
+
+看了看bp，八王这是准备回归新加坡major正面大圣反面巨魔的模式了？注定走不远好吧 ...</blockquote>
+是的，所以很纳闷兄弟们为啥一惊一乍的。。。
+
+*****
+
+####  xuzy0919  
+##### 24315#       发表于 2022-10-21 18:01
+
+还是指望克神吧
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 24316#       发表于 2022-10-21 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027508&amp;ptid=2099454" target="_blank">ysasz 发表于 2022-10-21 18:00</a>
+泥楼日常如丧考妣啊，有点腚力呀。万一这场是经典重现，碾翻被碾呢 ...</blockquote>
+热知识，今年还没淘汰赛2：1
+
+*****
+
+####  苏沃雷生  
+##### 24317#       发表于 2022-10-21 18:02
+
+这跟选什么有半毛关系，你就是让干瘪全员random，菜宜风带的队也赢不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 24318#       发表于 2022-10-21 18:02
+
+明天克神能送走lgd我发100块钱红包好吧，虽然克神估计对线要被猴爹压2000
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iriyano  
+##### 24319#       发表于 2022-10-21 18:03
+
+还没有咋么了
+哥哥就是要创造历史
+
+*****
+
+####  方舟失智博士  
+##### 24320#       发表于 2022-10-21 18:03
+
+mushi玩不过八王 看着头晕都点凤凰了
+
