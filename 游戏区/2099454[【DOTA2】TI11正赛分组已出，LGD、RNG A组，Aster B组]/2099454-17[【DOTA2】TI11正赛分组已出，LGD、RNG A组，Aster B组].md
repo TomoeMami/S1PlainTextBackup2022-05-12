@@ -1769,3 +1769,209 @@ boom这阵容有爆发吗？陈加口血能杀人吗
 
 所以老奶奶可以多选一点，打大祭品也好用……
 
+
+
+*****
+
+####  你可以试试  
+##### 24230#       发表于 2022-10-21 17:42
+
+真恶心啊
+
+*****
+
+####  nowaki  
+##### 24231#       发表于 2022-10-21 17:42
+
+查询boom可敬值
+
+*****
+
+####  IG.430  
+##### 24232#       发表于 2022-10-21 17:43
+
+我请莫言帮个忙，帮忙来把船儿长
+
+*****
+
+####  nightmare902015  
+##### 24233#       发表于 2022-10-21 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027269&amp;ptid=2099454" target="_blank">nxmonitor 发表于 2022-10-21 17:41</a>
+大祭品可能真的是陷阱，真正的版本答案是小技能多甩个不停打小团战？因为这个版本翻盘是非常难的…… ...</blockquote>
+那也至少得有瞬间处理那个大祭品棒子的英雄，才满足你说的情况。首推是玛西，次一点的召唤物比如谜团，再次一点就是老奶奶。
+
+*****
+
+####  勤练带来力量  
+##### 24234#       发表于 2022-10-21 17:43
+
+他太稳健了，稳健得像失去过什么一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 24235#       发表于 2022-10-21 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027294&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-21 17:43</a>
+那也至少得有瞬间处理那个大祭品棒子的英雄，才满足你说的情况。首推是玛西，次一点的召唤物比如谜团，再 ...</blockquote>
+你是真的下头，还在回这死妈弱智滚刀肉集美
+
+*****
+
+####  OVTVO  
+##### 24236#       发表于 2022-10-21 17:43
+
+虽然我也比较看好BC，但BC前中期彻底打崩LGD的概率太低了。不过如果石头人不尿，还是很有机会送走LGD的。
+
+*****
+
+####  resorry  
+##### 24237#       发表于 2022-10-21 17:43
+
+查询boom可敬值
+
+*****
+
+####  iriyano  
+##### 24238#       发表于 2022-10-21 17:44
+
+卧槽，哥哥居然没出连击刀？
+
+*****
+
+####  -_-||  
+##### 24239#       发表于 2022-10-21 17:44
+
+查询boom可敬值
+
+*****
+
+####  坚定的团子党  
+##### 24240#       发表于 2022-10-21 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027300&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-21 17:43</a>
+
+你是真的下头，还在回这死妈弱智滚刀肉集美</blockquote>
+你个怂逼又算什么，solo又不敢报id，和集美有区别？
+
+
+
+*****
+
+####  iriyano  
+##### 24241#       发表于 2022-10-21 17:45
+
+钻TP秀啊
+
+*****
+
+####  roxas.sora  
+##### 24242#       发表于 2022-10-21 17:45
+
+好恶心啊草，让水厂起势了
+
+*****
+
+####  zhrs456  
+##### 24243#       发表于 2022-10-21 17:45
+
+那条狗还在楼里面赖着？ 真是司全家啊
+
+*****
+
+####  jk9hot  
+##### 24244#       发表于 2022-10-21 17:47
+
+猴爹对上🦐队真是血脉压制啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  iriyano  
+##### 24245#       发表于 2022-10-21 17:48
+
+相信萧瑟
+送两波就翻了
+
+*****
+
+####  ggfsaraba  
+##### 24246#       发表于 2022-10-21 17:48
+
+boom不是昨天干翻乐 ts 吗，怎么今天像换了个队一样。
+
+*****
+
+####  情商  
+##### 24247#         楼主| 发表于 2022-10-21 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027350&amp;ptid=2099454" target="_blank">ggfsaraba 发表于 2022-10-21 17:48</a>
+
+boom不是昨天干翻乐 ts 吗，怎么今天像换了个队一样。</blockquote>
+有没有可能ts是真的菜？
+
+*****
+
+####  呆毛王嫁给我  
+##### 24248#       发表于 2022-10-21 17:48
+
+菜宜丰这10年来都在被八王按着草，指望做了教练会有什么不同我觉得大可不必，还是看明天吧
+
+*****
+
+####  sodah  
+##### 24249#       发表于 2022-10-21 17:49
+
+蔡宜风这第一把的BP我已经不想今晚加菜了。
+
+*****
+
+####  Rorgen  
+##### 24250#       发表于 2022-10-21 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027317&amp;ptid=2099454" target="_blank">坚定的团子党 发表于 2022-10-21 17:45</a>
+你个怂逼又算什么，solo又不敢报id，和集美有区别？</blockquote>
+牛批，我的id就在楼里挂着，你去找枪来吧
+上次被集美找枪还鸽了一个周末，太清楚你们这群死妈货色了
+
+*****
+
+####  勤练带来力量  
+##### 24251#       发表于 2022-10-21 17:50
+
+呕了，眼下开雾抓不到人在那狂刷报点啊神了
+
+*****
+
+####  Crazy_Knife  
+##### 24252#       发表于 2022-10-21 17:50
+
+ts也是个活在去年ti的队伍，这不巧了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 24253#       发表于 2022-10-21 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027351&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-21 17:48</a>
+有没有可能ts是真的菜？</blockquote>
+主楼能不能加上这俩傻逼滚刀肉集美的id，我真的佛了，一直有人在回呀
+
+*****
+
+####  cwlo  
+##### 24254#       发表于 2022-10-21 17:51
+
+有点无聊了
+
+*****
+
+####  hyde_caesar  
+##### 24255#       发表于 2022-10-21 17:51
+
+这就是纯粹的被肌肉夹死了, <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+虽然我没看懂选个玛尔斯开摇最后选个凤凰把自己搞死是什么逻辑
+
