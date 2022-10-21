@@ -7541,3 +7541,12 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 现在能用的攻略只有前面那个日文的吗</blockquote>
 机翻就够用了 实在不行难点楼里都总结得差不多了的
 
+
+
+*****
+
+####  何处分可  
+##### 688#       发表于 2022-10-21 19:46
+
+原来第三章boss给的靴子是免疫地形伤害，搞得我好多宝箱都是渡岩浆过去，这些火焰地形伤害也太高了，基本扛个5-6下就血皮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

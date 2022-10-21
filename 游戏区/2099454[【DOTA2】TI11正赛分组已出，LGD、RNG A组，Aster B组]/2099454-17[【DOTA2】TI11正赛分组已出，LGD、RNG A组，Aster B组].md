@@ -6355,3 +6355,261 @@ maybe一句话让我对他再无同情可言 滚得好
 面八回答：因为我听到你们后台在讲选小黑就选了。</blockquote>
 这尼玛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  5678给  
+##### 24826#       发表于 2022-10-21 19:43
+
+水厂买热搜开始了，微博热搜第一了，图发不上来
+
+*****
+
+####  憧憬鲨  
+##### 24827#       发表于 2022-10-21 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029057&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-21 19:40</a>
+大概再比今天强20%就能进决赛，当然要夺冠最好还要有一个人劣势敢狂，ti8og的这个位置是1，雪碧的这个位 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">劣势曾焦阳不说敢不敢，是一定会出去白给，打局势的这不就来了吗
+
+*****
+
+####  lyjssj  
+##### 24828#       发表于 2022-10-21 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我超
+
+隔壁tm也太闹僵了吧，一整个版面都在舔gege
+
+我理解了为什么梓瑟楼能盖4万层了
+
+*****
+
+####  樱冢名月  
+##### 24829#       发表于 2022-10-21 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029100&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-21 19:43</a>
+
+我超
+
+隔壁tm也太闹僵了吧，一整个版面都在舔gege</blockquote>
+不然怎么叫超级集美扣水论坛
+
+*****
+
+####  情商  
+##### 24830#         楼主| 发表于 2022-10-21 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029030&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-21 19:39</a>
+
+所以妮们应该狠狠地把泰迪退役的舆论安排上，今天张天茖都已经采访里自顾自宣布霉鳖退役了讲真我昨 ...</blockquote>
+卜是致敬窝壳的mambaout？
+
+*****
+
+####  百世诸侯  
+##### 24831#       发表于 2022-10-21 19:44
+
+<img src="https://img.saraba1st.com/forum/202210/21/194422me2eu3rou1ron22v.jpg" referrerpolicy="no-referrer">
+
+<strong>cd54f44356ee52b.jpg</strong> (11.33 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-21 19:44 上传
+
+<img src="https://img.saraba1st.com/forum/202210/21/194422eia5imsdarwm5ql8.jpg" referrerpolicy="no-referrer">
+
+<strong>601eea9e76e7b090.jpg</strong> (59.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-21 19:44 上传
+
+🤢🤢🤢
+
+*****
+
+####  Rorgen  
+##### 24832#       发表于 2022-10-21 19:44
+
+路垚Bryant，余亚军Bryant
+焦比宇宙
+
+*****
+
+####  端木恋心  
+##### 24833#       发表于 2022-10-21 19:44
+
+意思是都在嘲讽舞台有问题了？
+
+*****
+
+####  樱冢名月  
+##### 24834#       发表于 2022-10-21 19:45
+
+哇，漏油又在搬运这些看不懂的东西了
+
+*****
+
+####  adretyu67  
+##### 24835#       发表于 2022-10-21 19:45
+
+好好好，冷面杀手王蠢鱼，回归水厂最初人设，可以说是不忘畜心了
+
+*****
+
+####  情商  
+##### 24836#         楼主| 发表于 2022-10-21 19:46
+
+注：双修畜、假赛狗、管人痴、集美、男同与毒狗不得入内
+
+*****
+
+####  JoelBirch  
+##### 24837#       发表于 2022-10-21 19:46
+
+哇楼友一边叫着恶心一边可劲儿搬啊都有毛病是吧
+
+*****
+
+####  吃货红毛  
+##### 24838#       发表于 2022-10-21 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">尬到抠脚 立刻从楼里脱出 等明天比赛再来
+
+*****
+
+####  -SLSL-  
+##### 24839#       发表于 2022-10-21 19:47
+
+哇楼友一边叫着恶心一边可劲儿搬啊都有毛病是吧
+
+*****
+
+####  魂断=血包win  
+##### 24840#       发表于 2022-10-21 19:47
+
+雌小鬼能不能杀一杀南通
+
+—— 来自 HONOR KOZ-AL40, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  Horusddt  
+##### 24841#       发表于 2022-10-21 19:47
+
+你们自己去厕所被恶心了还要恶心漏油是吧
+
+*****
+
+####  非建政专用号  
+##### 24842#       发表于 2022-10-21 19:47
+
+你楼至少学会用截图了，不然过两天你楼就是超级男同专楼了
+
+*****
+
+####  FBIwarning  
+##### 24843#       发表于 2022-10-21 19:48
+
+<img src="https://img.saraba1st.com/forum/202210/21/194755deovmonv8vyrnkwk.jpg" referrerpolicy="no-referrer">
+
+<strong>1666352615864444.jpg</strong> (120.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 19:47 上传
+
+*****
+
+####  ck4pa  
+##### 24844#       发表于 2022-10-21 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029100&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-21 19:43</a>
+
+我超
+
+隔壁tm也太闹僵了吧，一整个版面都在舔gege</blockquote>
+别隔壁啦，谁住粪坑隔壁啊
+
+*****
+
+####  TIZI  
+##### 24845#       发表于 2022-10-21 19:49
+
+拯救大鳖巴巴耶夫是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  莉拉厨  
+##### 24846#       发表于 2022-10-21 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029170&amp;ptid=2099454" target="_blank">魂断=血包win 发表于 2022-10-21 19:47</a>
+雌小鬼能不能杀一杀南通
+
+—— 来自 HONOR KOZ-AL40, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+雌小鬼第三男同第四是吧，我不接受这个结局
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  勤练带来力量  
+##### 24847#       发表于 2022-10-21 19:50
+
+<img src="https://p.sda1.dev/7/488378f895e334768a11d6c72d2f2736/IMG_20221021_194947.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  TIZI  
+##### 24848#       发表于 2022-10-21 19:50
+
+nga那帮人看看自己发的什么玩意不觉得尬嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  情商  
+##### 24849#         楼主| 发表于 2022-10-21 19:50
+
+热知识，雌小鬼就是百世诸侯创的
+
+*****
+
+####  Litccc  
+##### 24850#       发表于 2022-10-21 19:51
+
+百世诸侯算南通吗
+
+*****
+
+####  adretyu67  
+##### 24851#       发表于 2022-10-21 19:51
+
+我是一直叫z小鬼的。
+
+毕竟zzzzzzz
+
+*****
+
+####  -SLSL-  
+##### 24852#       发表于 2022-10-21 19:51
+
+百世诸侯算南通吗
+
+*****
+
+####  Rorgen  
+##### 24853#       发表于 2022-10-21 19:52
+
+明天前两场不用看，西欧dpc都看烂了
+
