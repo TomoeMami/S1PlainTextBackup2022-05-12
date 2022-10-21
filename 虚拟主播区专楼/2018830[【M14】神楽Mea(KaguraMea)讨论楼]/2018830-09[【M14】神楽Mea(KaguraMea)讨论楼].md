@@ -7512,3 +7512,29 @@ nb官号订阅里面也没她了，别吧，炸号炸个没完。
 
 昨天甚至都没往这边想  希望早点没事
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12717#       发表于 2022-10-21 20:11
+
+来张触手图压压惊。
+
+<img src="https://img.saraba1st.com/forum/202210/21/201216tfvnsdc5x58s8izn.png" referrerpolicy="no-referrer">
+
+<strong>00002-20221020212641.png</strong> (42.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 20:12 上传
+
+*****
+
+####  十九号大侠  
+##### 12718#       发表于 2022-10-21 20:20
+
+害怕，不安
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -7588,3 +7588,15 @@ wiki标的第四章 带鸟鼻子去舔图找呗
 突然发现漏了个盾冲,这是哪来的</blockquote>
 4章村子右边有个地方能炸开，里面的箱子
 
+
+
+*****
+
+####  蓝雉  
+##### 693#         楼主| 发表于 2022-10-21 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029516&amp;ptid=2098044" target="_blank">后会莫急 发表于 2022-10-21 20:07</a>
+
+4章村子右边有个地方能炸开，里面的箱子</blockquote>
+原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

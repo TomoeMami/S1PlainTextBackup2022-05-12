@@ -7177,3 +7177,178 @@ pakazs走的是最纯正的被挑当爹化龙路径</blockquote>
 
 哇，本小狗头人刚刷新就被萨特给波死了。
 
+
+
+*****
+
+####  反方向的波  
+##### 24923#       发表于 2022-10-21 20:13
+
+ 本帖最后由 反方向的波 于 2022-10-21 20:15 编辑 
+
+窝最看不懂的还是Darkmago，这人以前一直和sacred轮流躺下给超人爹搭舞台，结果现在打出来的东西在b组10队中单里只弱于ni公子和曾焦阳
+
+怀疑这个比是不是打eg狂刷数据啊
+
+*****
+
+####  哈曼的YY  
+##### 24924#       发表于 2022-10-21 20:14
+
+boom果然不行
+我现在就当小电锤 支持克神宰畜
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lyjssj  
+##### 24925#       发表于 2022-10-21 20:14
+
+妈的 黄翔2000舰了 这爱国火箭
+
+今年万一举盾了岂不是要万舰
+
+*****
+
+####  -SLSL-  
+##### 24926#       发表于 2022-10-21 20:15
+
+我也好想当萨特， 漏油能教教我吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 24927#       发表于 2022-10-21 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029632&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-21 20:14</a>
+
+boom果然不行
+
+我现在就当小电锤 支持克神宰畜</blockquote>
+我现在就怕克里斯被莫言当猪宰然后线优虐**c找回信心找回状态，水厂舆论铺天盖地
+
+*****
+
+####  nightmare902015  
+##### 24928#       发表于 2022-10-21 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029634&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-21 20:14</a>
+妈的 黄翔2000舰了 这爱国火箭
+
+今年万一举盾了岂不是要万舰</blockquote>
+连夜饮潇湘今天都能200+舰，lgd赢了就是鸡犬升天啊。
+
+*****
+
+####  没钱买手办  
+##### 24929#       发表于 2022-10-21 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029570&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-21 20:10</a>
+我怎么记得手办哥是有妹妹的，不要再问了已经分了？</blockquote>
+没分，别尬黑好吧
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tasuku  
+##### 24930#       发表于 2022-10-21 20:17
+
+所以说当解说的有谁能拒绝当集美啊
+
+
+
+*****
+
+####  樱冢名月  
+##### 24931#       发表于 2022-10-21 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才200舰，我还以为20000舰呢，版主什么时候才能在上海买房和莓女士结婚啊。
+
+*****
+
+####  TI三冠王AME  
+##### 24932#       发表于 2022-10-21 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029643&amp;ptid=2099454" target="_blank">-SLSL- 发表于 2022-10-21 20:15</a>
+
+我也好想当萨特， 漏油能教教我吗</blockquote>
+找个出大支配的支配你一下，立刻比萨特还厉害
+
+*****
+
+####  恐怖利刃  
+##### 24933#       发表于 2022-10-21 20:19
+
+狗头人tanya开播不见你们打米，其他人收了爱国火箭看不下去了
+
+*****
+
+####  lyjssj  
+##### 24934#       发表于 2022-10-21 20:19
+
+阿版200舰队，一半得靠出神那边吧
+
+*****
+
+####  憧憬鲨  
+##### 24935#       发表于 2022-10-21 20:19
+
+意思是量子鞭被德国小鹿支配了
+
+*****
+
+####  Rorgen  
+##### 24936#       发表于 2022-10-21 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029726&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-21 20:19</a>
+狗头人tanya开播不见你们打米，其他人收了爱国火箭看不下去了</blockquote>
+这俩狗萨特也配收米
+
+*****
+
+####  逃离二次元  
+##### 24937#       发表于 2022-10-21 20:20
+
+这俩狗萨特也配收米
+
+*****
+
+####  usoda  
+##### 24938#       发表于 2022-10-21 20:20
+
+舰长不稀奇 来点爱国总督
+
+*****
+
+####  重名的mufasa  
+##### 24939#       发表于 2022-10-21 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029704&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-21 20:18</a>
+找个出大支配的支配你一下，立刻比萨特还厉害</blockquote>
+那得先搭上龙骑吧
+
+*****
+
+####  苏沃雷生  
+##### 24940#       发表于 2022-10-21 20:21
+
+淳路人，谭雅是萨特吗
+
+*****
+
+####  反方向的波  
+##### 24941#       发表于 2022-10-21 20:21
+
+被电炎绝手和破晓辰星大支配，妮也可以很厉害
+
+*****
+
+####  Rorgen  
+##### 24942#       发表于 2022-10-21 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029769&amp;ptid=2099454" target="_blank">苏沃雷生 发表于 2022-10-21 20:21</a>
+淳路人，谭雅是萨特吗</blockquote>
+家里上海好几套房天天坐着不用上班，妮觉得呢
+
