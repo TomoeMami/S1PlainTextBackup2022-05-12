@@ -7051,3 +7051,34 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 之前楼友提到二周目一把武器怎么拿的？我都快通关了才想起来没拿到</blockquote>
 给老婆喂15个爱情
 
+
+
+*****
+
+####  六至九  
+##### 649#       发表于 2022-10-21 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019956&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-21 10:38</a>
+给老婆喂15个爱情</blockquote>
+肉鸽地牢真的会掉爱情吗？
+
+*****
+
+####  黒長直姫  
+##### 650#       发表于 2022-10-21 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020360&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-21 10:56</a>
+
+肉鸽地牢真的会掉爱情吗？</blockquote>
+会 至少BOSS层的箱子会（铜的都会） 道中我没出过
+
+*****
+
+####  jy000129  
+##### 651#       发表于 2022-10-21 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020360&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-21 10:56</a>
+
+肉鸽地牢真的会掉爱情吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没关系，带队友打完回酒馆对话保底一个
+
