@@ -7509,3 +7509,35 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 现在能用的攻略只有前面那个日文的吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 685#       发表于 2022-10-21 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58028436&amp;ptid=2098044" target="_blank">casle 发表于 2022-10-21 19:02</a>
+
+喂够爱情会提示你结局已经改变的</blockquote>
+但是提示变了还要再喂一个
+
+*****
+
+####  A1LI  
+##### 686#       发表于 2022-10-21 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58028495&amp;ptid=2098044" target="_blank">Ashice 发表于 2022-10-21 19:05</a>
+
+现在能用的攻略只有前面那个日文的吗</blockquote>
+多问坛友吧，我这种不懂日文的玩没中文攻略的rpg简直折磨，幸好坛友够牛比。
+
+*****
+
+####  黒長直姫  
+##### 687#       发表于 2022-10-21 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58028495&amp;ptid=2098044" target="_blank">Ashice 发表于 2022-10-21 19:05</a>
+
+现在能用的攻略只有前面那个日文的吗</blockquote>
+机翻就够用了 实在不行难点楼里都总结得差不多了的
+
