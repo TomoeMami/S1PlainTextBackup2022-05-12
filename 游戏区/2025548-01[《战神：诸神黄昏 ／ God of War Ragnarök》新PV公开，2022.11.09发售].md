@@ -6135,3 +6135,14 @@ gow2018的那些支线还可以吧，都做了点剧情
 
 妈的，索尼你就把cod让了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 668#       发表于 2022-10-21 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58017128&amp;ptid=2025548" target="_blank">漫漫来 发表于 2022-10-21 02:22</a>
+隔壁ff16的新片直接放了，所以真就没有showcase了呗感觉这作宣传也太低调了，剩下半个月就发售了怎 ...</blockquote>
+今晚就有了
+
