@@ -3201,3 +3201,21 @@ Vampire Survivors\resources\app\.webpack\renderer\assets\img
 
 不是说1.0不用社区汉化了吗，怎么还是这么拉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了，反正这游戏也无所谓
 
+
+
+*****
+
+####  虎纹鲨鱼鱼鱼  
+##### 313#       发表于 2022-10-21 18:24
+
+这最终boss战还挺有内味的
+
+*****
+
+####  otakun  
+##### 314#       发表于 2022-10-21 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027846&amp;ptid=2052594" target="_blank">虎纹鲨鱼鱼鱼 发表于 2022-10-21 18:24</a>
+这最终boss战还挺有内味的</blockquote>
+之前教堂的首次boss 战和1.0福地的boss 都很有通关的味道，然后过了福地才告诉你还有个隐藏角色要解锁<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
