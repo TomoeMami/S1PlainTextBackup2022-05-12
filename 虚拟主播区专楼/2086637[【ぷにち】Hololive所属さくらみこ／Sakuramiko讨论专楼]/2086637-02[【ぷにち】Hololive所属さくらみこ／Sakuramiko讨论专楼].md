@@ -9896,3 +9896,12 @@ IMG_20221020_221123_edit_334715075977050.jpg
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 2443#         楼主| 发表于 2022-10-21 11:20
+
+以前也没单独发推的，没这习惯，大概率没兴趣
+
