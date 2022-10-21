@@ -6146,3 +6146,12 @@ gow2018的那些支线还可以吧，都做了点剧情
 隔壁ff16的新片直接放了，所以真就没有showcase了呗感觉这作宣传也太低调了，剩下半个月就发售了怎 ...</blockquote>
 今晚就有了
 
+
+
+*****
+
+####  theworld  
+##### 669#       发表于 2022-10-21 08:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">PDD这百亿补贴。。还好没直接买数字版
+

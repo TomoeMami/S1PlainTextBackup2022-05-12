@@ -4259,3 +4259,190 @@ EG作为北美队听不懂英文被南美队干掉是不是过于丢人了</bloc
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  IG.430  
+##### 21491#       发表于 2022-10-21 08:41
+
+又想起了徐林森在小象演示过超级大后期四号位火女用双圣剑终结比赛<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 21492#       发表于 2022-10-21 08:41
+
+eg是正面团被打烂的，我怀疑听懂了也打不过
+
+*****
+
+####  nowaki  
+##### 21493#       发表于 2022-10-21 08:42
+
+一个英国或者美国选手都没有，那不是没有英语母语的
+
+*****
+
+####  憧憬鲨  
+##### 21494#       发表于 2022-10-21 08:42
+
+RTZ应该懂英文吧，不然最开始怎么和小鸽子谈恋爱的
+
+*****
+
+####  夏溪澪mio  
+##### 21495#       发表于 2022-10-21 08:42
+
+dota这游戏是这样的啊，阵容中期一个强度，后期一个强度，大后期又是一个强度啊。
+kaka要是转一刀牛这把能赢吗？
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Keynes  
+##### 21496#       发表于 2022-10-21 08:44
+
+我感觉这东西有影响，但肯定没集美说的影响那么大好吧，老畜鳖昨天打的是什么东西集美自己心里要有点逼数
+
+*****
+
+####  思考者的迷  
+##### 21497#       发表于 2022-10-21 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018075&amp;ptid=2099454" target="_blank">夏溪澪mio 发表于 2022-10-21 08:42</a>
+
+dota这游戏是这样的啊，阵容中期一个强度，后期一个强度，大后期又是一个强度啊。
+
+kaka要是转一刀牛这把能 ...</blockquote>
+也赢不了 后期还是秒不掉人 进场就被小小狼人小鸟A死了
+
+*****
+
+####  莉拉厨  
+##### 21498#       发表于 2022-10-21 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018074&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-21 08:42</a>
+RTZ应该懂英文吧，不然最开始怎么和小鸽子谈恋爱的</blockquote>
+my boy的姓氏是俄裔的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  syndrome2032  
+##### 21499#       发表于 2022-10-21 08:45
+
+被关在高地上打麻将，对面清完野和线再挖几个赏金符，转也转不出来。打到100分钟经济差都8w了。
+
+*****
+
+####  Nyaaarlathotep  
+##### 21500#       发表于 2022-10-21 08:46
+
+我的经验告诉我不能相信茶，看来今年 ti 就这样了。
+
+*****
+
+####  憧憬鲨  
+##### 21501#       发表于 2022-10-21 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018090&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-21 08:44</a>
+my boy的姓氏是俄裔的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+不是说是斯坦人吗，其实我看苏猴英语也还行，挺多视频里拿英语和人吹水没什么问题的，就是口音重点
+
+*****
+
+####  walfeds  
+##### 21502#       发表于 2022-10-21 08:47
+
+不是，妮们再说下去eg真就变成希伯来语交流的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">美国俱乐部队员不会说英语是吧
+
+*****
+
+####  izayoi39  
+##### 21503#       发表于 2022-10-21 08:47
+
+赢不了的啊，rng那阵容想赢就是30分钟tb经济碾压其他人能在牛头控制期间灌死对面，然后在45分钟前结束比赛，简单得说就是tb刷得不够肥
+
+*****
+
+####  情商  
+##### 21504#         楼主| 发表于 2022-10-21 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018001&amp;ptid=2099454" target="_blank">w2210059 发表于 2022-10-21 08:37</a>
+
+小小本来就是Dota1贴吧时代的神单霸主，更何况三技能无赖神技，tb神单算个吊毛 ...</blockquote>
+皮早改了
+
+*****
+
+####  二宮飛鳥酱  
+##### 21505#       发表于 2022-10-21 08:48
+
+这么一想影响最大的还是隐藏的神符，偷盾和开雾
+
+但LGD偷盾不插真眼总不能是解说问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  南风尧  
+##### 21506#       发表于 2022-10-21 08:48
+
+今天不会两个BO3一把不赢吧？ 那真是上海重演
+
+*****
+
+####  nowaki  
+##### 21507#       发表于 2022-10-21 08:48
+
+咋办呢 eg听得懂英语就没法解释怎么会被ta遛狗啊，只能是希伯来语交流了
+
+*****
+
+####  勤练带来力量  
+##### 21508#       发表于 2022-10-21 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018124&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-21 08:48</a>
+这么一想影响最大的还是隐藏的神符，偷盾和开雾
+
+但LGD偷盾不插真眼总不能是解说问题吧 ...</blockquote>
+解说不用中文给lgd报小强开隐身进去了难道就没有责任？
+
+*****
+
+####  lyjssj  
+##### 21509#       发表于 2022-10-21 08:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这种解说报点也就隔壁会当真了
+
+*****
+
+####  憧憬鲨  
+##### 21510#       发表于 2022-10-21 08:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">知道插眼的队伍已经把雪碧送走了
+
+
+
+*****
+
+####  syndrome2032  
+##### 21511#       发表于 2022-10-21 08:50
+
+eg内部交流就是英文。fly和cr1t总不可能懂俄文吧，床一个菲律宾人被ee带去na这么多年也总不可能不懂英文吧。
+
+开幕漏油就在抱怨傻逼v🐍连个隔音棚都不给不就怕瓜田李下有人带报点窥图节奏。
+
+*****
+
+####  二宮飛鳥酱  
+##### 21512#       发表于 2022-10-21 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018142&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-21 08:49</a>
+
+解说不用中文给lgd报小强开隐身进去了难道就没有责任？</blockquote>
+解说：就算我不会中文有1%的锅，你LGD正面打不过难道没有99%吗！
+
