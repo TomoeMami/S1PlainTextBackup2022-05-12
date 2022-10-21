@@ -9950,3 +9950,14 @@ pm.jpg
 
 这人又睡过头了？
 
+
+
+*****
+
+####  rs5621  
+##### 2447#       发表于 2022-10-21 21:34
+
+怕不是忙晕过去了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

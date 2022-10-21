@@ -8405,3 +8405,350 @@ noooooooooooooooooooooooooo
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  nowaki  
+##### 25063#       发表于 2022-10-21 21:32
+
+lgd今年这招太狠了，冠军稳了
+
+*****
+
+####  樱冢名月  
+##### 25064#       发表于 2022-10-21 21:32
+
+这ti还不如重开，什么傻逼玩意儿
+
+*****
+
+####  TI三冠王AME  
+##### 25065#       发表于 2022-10-21 21:33
+
+<img src="https://img.saraba1st.com/forum/202210/21/213302kjccc8l5scwlllkb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 21:33 上传
+
+*****
+
+####  Rorgen  
+##### 25066#       发表于 2022-10-21 21:33
+
+汉堡猫哥几个应该没啥症状吧，我看今天在场馆气色还挺好的
+
+*****
+
+####  テロメア  
+##### 25067#       发表于 2022-10-21 21:33
+
+bc今天还在场。搞大了一个都跑不了，解说隔离，观众退票。
+
+*****
+
+####  adretyu67  
+##### 25068#       发表于 2022-10-21 21:33
+
+bc今天还上过场呢，打过比赛的一个都跑不了。
+
+*****
+
+####  tengshuo980  
+##### 25069#       发表于 2022-10-21 21:33
+
+ti还办个啥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Litccc  
+##### 25070#       发表于 2022-10-21 21:33
+
+为什么每个实力派队伍在和lgd比赛前都会变羊
+
+*****
+
+####  woyzeck  
+##### 25071#       发表于 2022-10-21 21:33
+
+希望汉堡猫打的都是辉瑞摩登纳
+
+*****
+
+####  逃离二次元  
+##### 25072#       发表于 2022-10-21 21:34
+
+<img src="https://p.sda1.dev/7/17a52c2be98ce4df6fde3d4659997d43/Screenshot_20221021-212941_edit_1666359102704.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/1745149ca3616be1419957bff83a50c5/Screenshot_20221021-212941_edit_1666359008052.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米奥莉奈  
+##### 25073#       发表于 2022-10-21 21:34
+
+这剧毒刷新大伤害打满了
+
+*****
+
+####  情商  
+##### 25074#         楼主| 发表于 2022-10-21 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030934&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-21 21:33</a></blockquote>
+真是一群野种啊
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  哈曼的YY  
+##### 25075#       发表于 2022-10-21 21:34
+
+我等着看要是过了bc这关后面几个对手阳不阳吧
+
+*****
+
+####  反方向的波  
+##### 25076#       发表于 2022-10-21 21:34
+
+litccc连夜购票→连夜退票→后悔了→没后悔
+
+*****
+
+####  情商  
+##### 25077#         楼主| 发表于 2022-10-21 21:35
+
+litccc连夜购票→连夜退票→后悔了→没后悔
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  逃离二次元  
+##### 25078#       发表于 2022-10-21 21:35
+
+litccc连夜购票→连夜退票→后悔了→没后悔
+
+*****
+
+####  walfeds  
+##### 25079#       发表于 2022-10-21 21:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030969&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-21 21:34</a>
+
+真是一群野种啊
+
+论坛助手,iPad</blockquote>
+不如野种
+
+*****
+
+####  宫藤芳佳  
+##### 25080#       发表于 2022-10-21 21:36
+
+#潘飞狂舔BC房间的门把手
+
+
+
+*****
+
+####  朝游北海  
+##### 25081#       发表于 2022-10-21 21:36
+
+实锤了，水厂豢养忍者给对手投毒
+
+*****
+
+####  nowaki  
+##### 25082#       发表于 2022-10-21 21:36
+
+<img src="https://img.saraba1st.com/forum/202210/21/213623nqs2g165gwwx2qre.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221021213505.png</strong> (92.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 21:36 上传
+
+*****
+
+####  樱冢名月  
+##### 25083#       发表于 2022-10-21 21:37
+
+是一群娘生没娘养的孤儿差不多
+
+*****
+
+####  情商  
+##### 25084#         楼主| 发表于 2022-10-21 21:37
+
+这个倒叙黎明真的纯孤儿
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Avantasi  
+##### 25085#       发表于 2022-10-21 21:37
+
+bc加油啊，希望人人超哥化
+
+*****
+
+####  Suny08  
+##### 25086#       发表于 2022-10-21 21:37
+
+什么jb 啊，剧毒还刷新大的，这特么谁打得过啊
+
+*****
+
+####  莉拉厨  
+##### 25087#       发表于 2022-10-21 21:37
+
+bc今天坐的位置是右边，boom的兄弟们要遭重了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 25088#       发表于 2022-10-21 21:38
+
+场地就那么小，谁逃得掉
+
+*****
+
+####  Sabbah  
+##### 25089#       发表于 2022-10-21 21:38
+
+第四十二回:汉堡猫狮城抬棺绝死战
+
+*****
+
+####  朝游北海  
+##### 25090#       发表于 2022-10-21 21:39
+
+克神后天呢，到时候会减轻很多，RNG第二天发挥的还行，bc加油。
+
+*****
+
+####  反方向的波  
+##### 25091#       发表于 2022-10-21 21:39
+
+bc这卜是五人全灭？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  resorry  
+##### 25092#       发表于 2022-10-21 21:39
+
+野王：大家要东南亚野区分布么，这个我熟
+
+*****
+
+####  fopinecone  
+##### 25093#       发表于 2022-10-21 21:39
+
+李家坡这地方现在应该没有溯源的概念吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tengshuo980  
+##### 25094#       发表于 2022-10-21 21:39
+
+这ti算得上历史上最草台ti吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Crazy_Knife  
+##### 25095#       发表于 2022-10-21 21:40
+
+老干瘪不会一路靠剧毒术士毒到决赛吧，想想就好恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  为了mf注册  
+##### 25096#       发表于 2022-10-21 21:40
+
+集美真是群cs啊，主办方也真操蛋，没那个能力别办啊
+
+*****
+
+####  越动天下  
+##### 25097#       发表于 2022-10-21 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031052&amp;ptid=2099454" target="_blank">fopinecone 发表于 2022-10-21 21:39</a>
+李家坡这地方现在应该没有溯源的概念吧
+
+—— 来自 S1Fun</blockquote>
+就那新增 不是乱传 
+
+*****
+
+####  夜光铃  
+##### 25098#       发表于 2022-10-21 21:40
+
+什么剧毒术士潘飞
+
+*****
+
+####  roxas.sora  
+##### 25099#       发表于 2022-10-21 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">bc加油！碾碎畜生水厂
+
+*****
+
+####  枯风瘦雪02  
+##### 25100#       发表于 2022-10-21 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031052&amp;ptid=2099454" target="_blank">fopinecone 发表于 2022-10-21 21:39</a>
+李家坡这地方现在应该没有溯源的概念吧
+
+—— 来自 S1Fun</blockquote>
+纯平行躺平，每天新增一万/500万左右，赛程拉这么长怕是最后哪只队不得冠就哪只队得冠哦
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  snarc1  
+##### 25101#       发表于 2022-10-21 21:41
+
+六打五，一个人大了五个怎么打
+
+*****
+
+####  食粪者  
+##### 25102#       发表于 2022-10-21 21:41
+
+牛逼啊，集美太司马了吧
+
+—— 来自 samsung SM-T867U, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  情商  
+##### 25103#         楼主| 发表于 2022-10-21 21:42
+
+好好休息一天吧
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  没钱买手办  
+##### 25104#       发表于 2022-10-21 21:43
+
+噩耗啊，我尼玛吐了
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

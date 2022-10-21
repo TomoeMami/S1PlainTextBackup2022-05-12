@@ -6414,3 +6414,21 @@ https://weibo.com/1969176463/MbnmNeQVd
 
 好想玩啊啊啊啊啊啊啊啊啊啊啊
 
+
+
+*****
+
+####  maiyunfei  
+##### 697#       发表于 2022-10-21 21:33
+
+急急急急急，等发售
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  clover293  
+##### 698#       发表于 2022-10-21 21:35
+
+vg倒是说了几个缺点，一个是由于要照顾ps4（或者说一开始目标平台是ps4 cory说的），好像钻洞还是会破坏节奏。另一个是表情动画
+
