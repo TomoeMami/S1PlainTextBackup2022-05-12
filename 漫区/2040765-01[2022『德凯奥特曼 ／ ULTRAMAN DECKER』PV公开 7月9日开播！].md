@@ -601,3 +601,24 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 —— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Piano-Forest  
+##### 668#         楼主| 发表于 2022-10-21 14:48
+
+<img src="https://p.sda1.dev/7/3b75ecb4e120a67e07d255ef8c2293d9/74ca894dly1h7cs4r67saj235s1qdqbj.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/a0d41d0e6001333448c09277897a5b7d/74ca894dly1h7cs41dozrj235s1pwnpd.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/59508171c30f5bd90a94b4420d1f45bd/74ca894dly1h7cs46w4xtj235s1s010e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/eebe49954c155ed0cdbbaa175f2fb12b/74ca894dly1h7cs48u7kwj235s1pqjze.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 669#         楼主| 发表于 2022-10-21 14:50
+
+<img src="https://p.sda1.dev/7/a6cb3319c28ae34ebc56090894da8fc1/e97fa867-ba34-4e09-bb29-87e6c9a79d94.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/4db2e4934c2b79e311e038f4abbc51e3/ea507bd5-314c-4d72-8534-231e91f5221d.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/5bfe47c91a76fc589936137ecd76d3f2/afa15c7a-1e2c-4898-874b-dba5585908df.jpg" referrerpolicy="no-referrer">
+
