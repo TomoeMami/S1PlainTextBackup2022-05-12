@@ -7249,3 +7249,51 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">毕竟没经历后面成为公会主厨的剧情也不会想到是故意做成这个不能吃的样子，配合唯一的debuff名称及超长持续，还有成就名mischief暗示，才会想到这个毒就是恶作剧
 
+
+
+*****
+
+####  A1LI  
+##### 666#       发表于 2022-10-21 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58022473&amp;ptid=2098044" target="_blank">onlv星骸 发表于 2022-10-21 13:01</a>
+
+竞技场全打完给你个掉身上装备的装备盘几率提高的饰品
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">靠，我昨天就差会长没打……
+
+*****
+
+####  A1LI  
+##### 667#       发表于 2022-10-21 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58023363&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-21 13:54</a>
+
+这个地方的宝箱怎么拿，掉在岩浆上跳了好几下都没出现</blockquote>
+跳什么跳，要调查啊。
+
+*****
+
+####  jy000129  
+##### 668#       发表于 2022-10-21 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58023363&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-21 13:54</a>
+
+这个地方的宝箱怎么拿，掉在岩浆上跳了好几下都没出现</blockquote>
+站在这上面按“↑”方向键
+
+*****
+
+####  jy000129  
+##### 669#       发表于 2022-10-21 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019532&amp;ptid=2098044" target="_blank">onlv星骸 发表于 2022-10-21 10:17</a>
+
+为啥我吃了到时间直接gameover了 并没有触发成就啊
+
+找到了 原来要再之后的剧情吃才行
+
+ ...</blockquote>
+要到哪一步剧情再吃才行，不过我已经吃了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

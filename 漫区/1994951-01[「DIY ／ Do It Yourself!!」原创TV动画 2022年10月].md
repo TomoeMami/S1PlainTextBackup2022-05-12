@@ -2540,3 +2540,12 @@ job子有种胡桃青春版的既视感
 
 印象最深刻的是那句Bad shit<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">口音太逗了
 
+
+
+*****
+
+####  chiefshi  
+##### 210#       发表于 2022-10-21 14:34
+
+job子用电钻自紧这一下好帅，自己用的时候从来都是老老实实用手转紧
+
