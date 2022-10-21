@@ -10877,3 +10877,597 @@ doto之神说头发已经够多了，给点别的零件吧
 
 再次证明虾之国的血统 赫赫<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  caupollen  
+##### 23926#       发表于 2022-10-21 17:02
+
+用剃头对抗剃头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我要看见lgd五个人光头
+
+*****
+
+####  反方向的波  
+##### 23927#       发表于 2022-10-21 17:02
+
+窝克再赢下去本月工资要不保了
+口令：_______第一人nb 
+填wisper国籍
+
+*****
+
+####  nightmare902015  
+##### 23928#       发表于 2022-10-21 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026480&amp;ptid=2099454" target="_blank">迷途lite 发表于 2022-10-21 17:01</a>
+doto之神说头发已经够多了，给点别的零件吧</blockquote>
+掰手腕断手的dota之神收不收。
+
+*****
+
+####  roxas.sora  
+##### 23929#       发表于 2022-10-21 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">国师！这楼的兄弟会不会被清算就看你了！不要让大家失望
+
+*****
+
+####  adretyu67  
+##### 23930#       发表于 2022-10-21 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026498&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-21 17:02</a>
+
+掰手腕断手的dota之神收不收。</blockquote>
+辣位先森不是早断过了，不收
+
+*****
+
+####  zsu222  
+##### 23931#       发表于 2022-10-21 17:03
+
+国师。麻烦好好下棋
+
+*****
+
+####  没钱买手办  
+##### 23932#       发表于 2022-10-21 17:03
+
+没看过杰出，肌肉doa到底啥意思啊
+
+*****
+
+####  Rorgen  
+##### 23933#       发表于 2022-10-21 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026497&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-21 17:02</a>
+窝克再赢下去本月工资要不保了
+口令：_______第一人nb 
+填wisper国籍</blockquote>
+烟火烟火就是妮是吧，标记了
+
+*****
+
+####  izayoi39  
+##### 23934#       发表于 2022-10-21 17:03
+
+国师给点儿力把王八b爆了送水厂走啊
+
+*****
+
+####  walfeds  
+##### 23935#       发表于 2022-10-21 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026517&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-21 17:03</a>
+没看过杰出，肌肉doa到底啥意思啊</blockquote>
+硬实力2.0
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  团结奋进碇真嗣  
+##### 23936#       发表于 2022-10-21 17:04
+
+lgd输sea祖传艺能
+
+*****
+
+####  nightmare902015  
+##### 23937#       发表于 2022-10-21 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026497&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-21 17:02</a>
+窝克再赢下去本月工资要不保了
+口令：_______第一人nb 
+填wisper国籍</blockquote>
+你tm就是红包神是吧
+
+*****
+
+####  哈曼的YY  
+##### 23938#       发表于 2022-10-21 17:04
+
+boom和干瘪是a组内战啊 而且小组赛boom被0-2
+
+感觉难 不过要是真送走了我发个大的好吧
+
+*****
+
+####  tasuku  
+##### 23939#       发表于 2022-10-21 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026517&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-21 17:03</a>
+
+没看过杰出，肌肉doa到底啥意思啊</blockquote>
+我一直以为指的是本能dota，不带脑子的那种
+
+*****
+
+####  枯风瘦雪02  
+##### 23940#       发表于 2022-10-21 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026517&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-21 17:03</a>
+
+没看过杰出，肌肉doa到底啥意思啊</blockquote>
+基本就是硬实力的意思
+
+
+
+*****
+
+####  情商  
+##### 23941#         楼主| 发表于 2022-10-21 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026517&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-21 17:03</a>
+
+没看过杰出，肌肉doa到底啥意思啊</blockquote>
+lgd是现代dota，其他队都是肌肉dota。
+
+类似于之前的lgd硬实力独一挡，属于是车轱辘屁话
+
+*****
+
+####  cobymar  
+##### 23942#       发表于 2022-10-21 17:04
+
+哇每个队都有光头，神了
+
+*****
+
+####  dddyghr  
+##### 23943#       发表于 2022-10-21 17:04
+
+牧师是不是从ti4开始当了八年八王的**？ 今年该翻身了
+
+*****
+
+####  Quark  
+##### 23944#       发表于 2022-10-21 17:04
+
+每个红包都有你还能工资不保是吧
+
+*****
+
+####  zhrs456  
+##### 23945#       发表于 2022-10-21 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026459&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-21 17:00</a>
+
+不是说迷信，小鸽子是不是不太旺夫。。。。。。。。</blockquote>
+张天鸽没跟RTZ搞在一起前 RTZ有出什么大赛的好成绩吗？秘密EG反复横跳？
+
+*****
+
+####  caupollen  
+##### 23946#       发表于 2022-10-21 17:05
+
+boom也有个光头啊
+
+*****
+
+####  morwhipppo  
+##### 23947#       发表于 2022-10-21 17:05
+
+真送走我发个5波，说到做到
+
+*****
+
+####  nowaki  
+##### 23948#       发表于 2022-10-21 17:05
+
+boom把头发献给dota之神后干死了雪碧的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超级柯南迷  
+##### 23949#       发表于 2022-10-21 17:05
+
+相信mushi好吧
+
+*****
+
+####  Crazy_Knife  
+##### 23950#       发表于 2022-10-21 17:05
+
+只能用光头击败光头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 23951#       发表于 2022-10-21 17:05
+
+难受，谜语红包只剩两次试错机会了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  情商  
+##### 23952#         楼主| 发表于 2022-10-21 17:06
+
+难受，谜语红包只剩3次试错机会了
+
+*****
+
+####  RGm  
+##### 23953#       发表于 2022-10-21 17:06
+
+草，eg真tmd的丢人啊。
+
+*****
+
+####  5678给  
+##### 23954#       发表于 2022-10-21 17:06
+
+上面那个是玻利维亚吧
+
+*****
+
+####  Avantasi  
+##### 23955#       发表于 2022-10-21 17:06
+
+赖皮社真要make dota greater again是不是只能抱csgo的大腿，major跟TI合办一次了
+
+*****
+
+####  Rorgen  
+##### 23956#       发表于 2022-10-21 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026542&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-21 17:04</a>
+张天鸽没跟RTZ搞在一起前 RTZ有出什么大赛的好成绩吗？秘密EG反复横跳？</blockquote>
+之前最好成绩是季军，之后也是，没区别
+
+*****
+
+####  nowaki  
+##### 23957#       发表于 2022-10-21 17:06
+
+把元气给boom！
+
+*****
+
+####  枯风瘦雪02  
+##### 23958#       发表于 2022-10-21 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026563&amp;ptid=2099454" target="_blank">RGm 发表于 2022-10-21 17:06</a>
+
+草，eg真tmd的丢人啊。</blockquote>
+rtz和阿床这么多年职业生涯有不丢人的时刻吗
+
+*****
+
+####  5678给  
+##### 23959#       发表于 2022-10-21 17:06
+
+boom！boom！
+
+*****
+
+####  jk9hot  
+##### 23960#       发表于 2022-10-21 17:07
+
+面8对mushi，梦回ti4 nb对dk
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  StrangerJ  
+##### 23961#       发表于 2022-10-21 17:07
+
+漏油元气都有毒的，憋给了，要给给干瘪吧
+
+*****
+
+####  nightmare902015  
+##### 23962#       发表于 2022-10-21 17:07
+
+ 本帖最后由 nightmare902015 于 2022-10-21 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026575&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-21 17:06</a>
+rtz和阿床这么多年职业生涯有不丢人的时刻吗</blockquote>
+打野被抓一脸懵逼被迫暴走（）
+
+*****
+
+####  逃离二次元  
+##### 23963#       发表于 2022-10-21 17:07
+
+boom！boom！
+
+*****
+
+####  RGm  
+##### 23964#       发表于 2022-10-21 17:07
+
+boom加油，干死水厂。
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 23965#       发表于 2022-10-21 17:07
+
+想看dac2.0，蔡宜风，俯卧撑来一个好吗
+
+*****
+
+####  Rorgen  
+##### 23966#       发表于 2022-10-21 17:07
+
+预测一个A畜回家找霉鳖组成霉飞畜舞工作室抢葑茖饭碗，搞得葑茖没饭吃，只能在yyf淘宝店卖ti冠军同款绿帽收30岁中产老逼大米
+
+*****
+
+####  逃离二次元  
+##### 23967#       发表于 2022-10-21 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026583&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-21 17:07</a>
+打野被抓一脸懵逼被迫暴走lgd（）</blockquote>
+是vg啦
+
+*****
+
+####  StrangerJ  
+##### 23968#       发表于 2022-10-21 17:08
+
+想看dac2.0，蔡宜风，俯卧撑来一个好吗
+
+*****
+
+####  南风尧  
+##### 23969#       发表于 2022-10-21 17:08
+
+开了开了，A组魔咒，干爹危
+
+*****
+
+####  roxas.sora  
+##### 23970#       发表于 2022-10-21 17:08
+
+现代dota和肌肉dota就是舔水厂的话术罢了。。。。。只不过传播开了就流行起来，国内舆论被水厂控制很严重的
+
+
+
+*****
+
+####  逃离二次元  
+##### 23971#       发表于 2022-10-21 17:08
+
+元气借给fbz！
+
+*****
+
+####  nowaki  
+##### 23972#       发表于 2022-10-21 17:08
+
+蔡宜风，赢一次好吗
+
+*****
+
+####  nightmare902015  
+##### 23973#       发表于 2022-10-21 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026599&amp;ptid=2099454" target="_blank">逃离二次元 发表于 2022-10-21 17:07</a>
+是vg啦</blockquote>
+我的，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">在想马上要来的比赛。
+
+*****
+
+####  夏溪澪mio  
+##### 23974#       发表于 2022-10-21 17:08
+
+楼友开扫射攻击是吧
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  樱冢名月  
+##### 23975#       发表于 2022-10-21 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026583&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-21 17:07</a>
+
+打野被抓一脸懵逼被迫暴走lgd（）</blockquote>
+被迫暴走VG吧
+
+*****
+
+####  zhrs456  
+##### 23976#       发表于 2022-10-21 17:08
+
+蔡宜风，赢一次好吗
+
+*****
+
+####  没钱买手办  
+##### 23977#       发表于 2022-10-21 17:08
+
+反方向的波这个逼到底用的什么挂抢红包的
+
+*****
+
+####  憧憬鲨  
+##### 23978#       发表于 2022-10-21 17:08
+
+蔡宜风，我们要赢
+
+*****
+
+####  roxas.sora  
+##### 23979#       发表于 2022-10-21 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026542&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-21 17:04</a>
+
+张天鸽没跟RTZ搞在一起前 RTZ有出什么大赛的好成绩吗？秘密EG反复横跳？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">他在秘密好歹能拿点冠军啊
+
+*****
+
+####  OVTVO  
+##### 23980#       发表于 2022-10-21 17:08
+
+讲道理当年rtz杀鳖是真的高光
+
+*****
+
+####  逃离二次元  
+##### 23981#       发表于 2022-10-21 17:08
+
+反方向的波这个逼到底用的什么挂抢红包的
+
+*****
+
+####  IG.430  
+##### 23982#       发表于 2022-10-21 17:09
+
+有没有可能是阿里员工
+
+*****
+
+####  苏西踩到我了  
+##### 23983#       发表于 2022-10-21 17:09
+
+boom接着屠神成功，我就去买他们的周边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Crazy_Knife  
+##### 23984#       发表于 2022-10-21 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026607&amp;ptid=2099454" target="_blank">南风尧 发表于 2022-10-21 17:08</a>
+开了开了，A组魔咒，干爹危</blockquote>
+有啥魔咒啊，这是a组互搂啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 23985#         楼主| 发表于 2022-10-21 17:09
+
+我在为油吧唧请神活动中，请到了Mushi(ti3限定款)
+
+*****
+
+####  Quark  
+##### 23986#       发表于 2022-10-21 17:09
+
+反方向的波这个逼到底用的什么挂抢红包的
+
+*****
+
+####  樱冢名月  
+##### 23987#       发表于 2022-10-21 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">支持正义清算红包神！红包神开挂！红包神打假赛！
+
+*****
+
+####  zhliiiii  
+##### 23988#       发表于 2022-10-21 17:09
+
+反方向的波这个逼到底用的什么挂抢红包的
+
+*****
+
+####  反方向的波  
+##### 23989#       发表于 2022-10-21 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58026622&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-21 17:08</a>
+反方向的波这个逼到底用的什么挂抢红包的</blockquote>
+等泥们用谜语红包互相伤害完，全都被禁了不是就能抢到了
+
+*****
+
+####  情商  
+##### 23990#         楼主| 发表于 2022-10-21 17:09
+
+支持正义清算红包神！红包神开挂！红包神打假赛！
+
+*****
+
+####  bluebaby  
+##### 23991#       发表于 2022-10-21 17:09
+
+别指望boom，指望八王来灵感吧，炼金猛犸很适合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 23992#       发表于 2022-10-21 17:10
+
+反方向的波这个逼到底用的什么挂抢红包的
+
+*****
+
+####  逃离二次元  
+##### 23993#       发表于 2022-10-21 17:10
+
+支持正义清算红包神！红包神开挂！红包神打假赛！
+
+*****
+
+####  nowaki  
+##### 23994#       发表于 2022-10-21 17:10
+
+支持正义清算红包神！红包神开挂！红包神打假赛！
+
+*****
+
+####  枯风瘦雪02  
+##### 23995#       发表于 2022-10-21 17:10
+
+RTZ打中单那会也就是对线机器刷钱快，刷出神装A地板干翻一切，正好克制某人也算版本到位了
+
+*****
+
+####  Caa  
+##### 23996#       发表于 2022-10-21 17:10
+
+好心帮转<img src="https://p.sda1.dev/7/286b9bc7c7b852773535c22f73852c92/CMP_20221021171023286.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  hyde_caesar  
+##### 23997#       发表于 2022-10-21 17:10
+
+反方向的波这个逼到底用的什么挂抢红包的
+
+*****
+
+####  Rorgen  
+##### 23998#       发表于 2022-10-21 17:10
+
+支持正义清算红包神！红包神开挂！红包神打假赛！
+
+*****
+
+####  sodah  
+##### 23999#       发表于 2022-10-21 17:10
+
+ 反方向的波这个逼到底用的什么挂抢红包的
+
+*****
+
+####  winkle  
+##### 24000#       发表于 2022-10-21 17:10
+
+支持正义清算红包神！红包神开挂！红包神打假赛！
+

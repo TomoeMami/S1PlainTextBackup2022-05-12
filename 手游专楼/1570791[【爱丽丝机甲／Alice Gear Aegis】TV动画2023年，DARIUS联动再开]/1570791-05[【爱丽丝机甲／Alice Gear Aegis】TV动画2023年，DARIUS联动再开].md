@@ -129,3 +129,12 @@
 
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 7403#       发表于 2022-10-21 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">会长这盘子，没有新语音吗
+
