@@ -10250,3 +10250,25 @@ FNC正式投诉跟GG比赛的解说声问题了<img src="https://static.saraba1s
 
 不知道哪个会发生
 
+
+
+*****
+
+####  情商  
+##### 25290#         楼主| 发表于 2022-10-22 07:10
+
+每次苏西发病的时候掀背就会给他 两逼兜
+
+
+
+*****
+
+####  Damocles990609  
+##### 25291#       发表于 2022-10-22 07:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58034057&amp;ptid=2099454" target="_blank">外挂全家脚气 发表于 2022-10-22 06:08</a>
+FNC正式投诉跟GG比赛的解说声问题了
+
+当然懒狗社这几天肯定没法改进，最多4强的时候临时加隔音室 ...</blockquote>
+四强要去体育馆了，隔音房坑定有的
+
