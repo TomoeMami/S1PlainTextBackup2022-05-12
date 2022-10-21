@@ -7330,3 +7330,36 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 第八章打完后打ex地图，现在卡在龙神了。龙神石化接秒杀怎么处理啊?<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jy000129  
+##### 672#       发表于 2022-10-21 15:03
+
+ 本帖最后由 jy000129 于 2022-10-21 15:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58024447&amp;ptid=2098044" target="_blank">h33 发表于 2022-10-21 14:55</a>
+
+第八章打完后打ex地图，现在卡在龙神了。龙神石化接秒杀怎么处理啊?</blockquote>
+我是先去火山打战神，拿战神的单手剑，输出高一点，天赋纯爆输出，技能用电系倒数第二个，直接在秒杀技能放出来之前打掉的
+
+石化技能应该可以躲，延长闪避时间的技能或者举盾防御都可以试试
+
+还有天空城进门左转的妖精王可以偷鸡，躲石板下面雨下不到，带加攻击范围的天赋上劈磨死，打完给的衣服防御挺高
+
+*****
+
+####  后会莫急  
+##### 673#       发表于 2022-10-21 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58024447&amp;ptid=2098044" target="_blank">h33 发表于 2022-10-21 14:55</a>
+
+第八章打完后打ex地图，现在卡在龙神了。龙神石化接秒杀怎么处理啊?</blockquote>
+龙神技能是两段
+
+一段石化，没伤害，吃个药防石化就行
+
+二段扭曲，超高伤害，只要不中石化随便格
+
+无脑打法就是吃抗石化药，屏幕变黑就格挡
+
