@@ -8752,3 +8752,128 @@ bc这卜是五人全灭？<img src="https://static.saraba1st.com/image/smiley/fa
 
 —— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nowaki  
+##### 25105#       发表于 2022-10-21 21:43
+
+为什么我看bc官推没说，哪来的消息
+
+*****
+
+####  Horusddt  
+##### 25106#       发表于 2022-10-21 21:44
+
+…怎么lgd打谁谁羊啊
+
+*****
+
+####  tengshuo980  
+##### 25107#       发表于 2022-10-21 21:44
+
+傻逼v社，办不了ti就别办，搁这里丢人现眼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ArowRocher  
+##### 25108#       发表于 2022-10-21 21:45
+
+早日康复吧，虽然很难说对运动员来说生涯和身体哪个更重要。
+
+*****
+
+####  非建政专用号  
+##### 25109#       发表于 2022-10-21 21:45
+
+来点信源，我卜信克里斯在这里倒下
+
+*****
+
+####  樱冢名月  
+##### 25110#       发表于 2022-10-21 21:46
+
+牛啊，以后出去打比赛藏个剧毒术士就好了是吧
+
+
+
+*****
+
+####  Rorgen  
+##### 25111#       发表于 2022-10-21 21:46
+
+消息来源微博丝路电竞还行，哪里来的杂毛
+
+*****
+
+####  憧憬鲨  
+##### 25112#       发表于 2022-10-21 21:46
+
+推特没动静啊，BC的话题里面也没东西
+
+*****
+
+####  夜光铃  
+##### 25113#       发表于 2022-10-21 21:46
+
+知道的是ti，不知道的还以是吃鸡大赛，搁这跑毒圈
+
+*****
+
+####  枯风瘦雪02  
+##### 25114#       发表于 2022-10-21 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031169&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-21 21:45</a>
+来点信源，我卜信克里斯在这里倒下</blockquote>
+微博@丝路电竞，我看到的截图是这个，等官方吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  莉拉厨  
+##### 25115#       发表于 2022-10-21 21:46
+
+ 本帖最后由 莉拉厨 于 2022-10-21 21:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031137&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-21 21:43</a>
+为什么我看bc官推没说，哪来的消息</blockquote>
+自ti开始以来所有造垚都成真了啊...讲道理这个毒狗电竞网站有线下的线人太正常了，我只能说希望是这个司马毒狗网站造垚
+企查查了一下这公司还挺正规的，看样子不是什么野鸡毒狗公司，所以是真的假的还不好说，现在就等消息吧
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Crazy_Knife  
+##### 25116#       发表于 2022-10-21 21:47
+
+尼玛的，不会是集美造谣吧，这就有点恶心人了嗷
+
+*****
+
+####  Rorgen  
+##### 25117#       发表于 2022-10-21 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031190&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-21 21:46</a>
+自ti开始以来所有造垚都成真了啊...讲道理这个毒狗电竞网站有线下的线人太正常了，我只能说希望是这个司 ...</blockquote>
+我造的A畜见焦比能成真吗
+
+*****
+
+####  非建政专用号  
+##### 25118#       发表于 2022-10-21 21:48
+
+哥们去拆电锤为窝克祈福了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 25119#       发表于 2022-10-21 21:48
+
+造谣成真，在这玩Persona2是吧
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

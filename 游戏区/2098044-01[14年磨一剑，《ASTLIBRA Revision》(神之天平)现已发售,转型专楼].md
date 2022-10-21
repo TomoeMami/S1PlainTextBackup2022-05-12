@@ -7720,3 +7720,24 @@ wiki标的第四章 带鸟鼻子去舔图找呗
 打完你就知道有没有了 还能骗你不成</blockquote>
 都打过了，可能是我记错了。没事，大不了刷就是了。
 
+
+
+*****
+
+####  有点追求  
+##### 705#       发表于 2022-10-21 21:42
+
+第四章什么剧情，什么双性恋公交车<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22021211RC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  白軍浪  
+##### 706#       发表于 2022-10-21 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029251&amp;ptid=2098044" target="_blank">希克苏鲁伯 发表于 2022-10-21 19:52</a>
+
+在一堆遗迹兵那里磨了半天，正想痛骂什么难度设计，一看原来逃到最左边就行 ...</blockquote>
+遗迹利用依凭的能量吸收，武器用这个地图的风锤子加上锤枪，用月光 ，小火龙，鲨鱼还是能打过去的
+
