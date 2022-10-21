@@ -7445,3 +7445,39 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 最终迷宫里刷队友好感度有用嘛？另外听说2周是不是还有一把武器可以获得？
 
+
+
+*****
+
+####  黒長直姫  
+##### 681#       发表于 2022-10-21 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027945&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-21 18:31</a>
+
+最终迷宫里刷队友好感度有用嘛？另外听说2周是不是还有一把武器可以获得？ ...</blockquote>
+刷满给爱情 每个队友可以拿2个 喂老婆15个爱情给武器
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A1LI| + 2|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  A1LI  
+##### 682#       发表于 2022-10-21 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58028362&amp;ptid=2098044" target="_blank">黒长直姫 发表于 2022-10-21 18:58</a>
+
+刷满给爱情 每个队友可以拿2个 喂老婆15个爱情给武器</blockquote>
+哦哦，多谢！突然想起来我把一周目那个最终武器强化了50级，感觉亏了！
+
+那真结局需要多少爱情，就是15个嘛？
+
