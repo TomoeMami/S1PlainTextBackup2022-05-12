@@ -10173,3 +10173,14 @@ ti6年代不应该是大家都菜吗。
 
 希望治水不需要秘密，BC就两拳打倒
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 25282#       发表于 2022-10-22 01:49
+
+【【VLOG】VG TI11全程回顾】 [https://www.bilibili.com/video/B ... 7f2ad1957f770503173](https://www.bilibili.com/video/BV1TD4y1k7PR?share_source=copy_web&amp;vd_source=40c0f17328af67f2ad1957f770503173)
+
+没想到VG自己都没觉得能出线，输了其乐融融，就fade不太服气的样子
+

@@ -2628,3 +2628,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 但是后边再也没出现过，是我换手机重新登陆导致的吗
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3229#       发表于 2022-10-22 01:46
+
+是不是新建号的连续登录奖励啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
