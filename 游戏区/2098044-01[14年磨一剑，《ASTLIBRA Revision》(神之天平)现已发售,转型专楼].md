@@ -7384,3 +7384,29 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 铜矿+熔炼工具合成铜锭。包里使用合成书，然后翻页。</blockquote>
 草 原来可以翻页
 
+
+
+*****
+
+####  黒長直姫  
+##### 676#       发表于 2022-10-21 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58024177&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-21 14:40</a>
+
+要到哪一步剧情再吃才行，不过我已经吃了</blockquote>
+到公会了贴着她吃 有个判定距离的 
+
+这个蛋糕把毒抗堆到91（剧毒自然消解不触发）来主动吃触发身上的异常相关被动 简直是神器
+
+*****
+
+####  黒長直姫  
+##### 677#       发表于 2022-10-21 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025239&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-21 15:44</a>
+
+话说一把武器，武器盘里有多种属性，那如果每个盘都选不同的属性，是同存还是默认原来武器的属性？
+
+三个盘 ...</blockquote>
+会都挂到武器上 理论上可以吃到所有属性被动的加成 可以回家里时候卸完被动和装备单HIT试试看伤害区别
+
