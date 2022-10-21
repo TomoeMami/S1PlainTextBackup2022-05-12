@@ -7151,3 +7151,15 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 电池怎么用的
 
+
+
+*****
+
+####  jy000129  
+##### 658#       发表于 2022-10-21 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021830&amp;ptid=2098044" target="_blank">onlv星骸 发表于 2022-10-21 12:21</a>
+
+电池怎么用的</blockquote>
+带着就行，注意看光剑可以砍出一个波了
+
