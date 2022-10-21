@@ -7185,3 +7185,22 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 我发现我2345章好像都少一个小徽章，但是找不到</blockquote>
 都在箱子里，装备嘉隆的鼻子还是什么来着那个技能，会显示当前地图有多少箱子。
 
+
+
+*****
+
+####  onlv星骸  
+##### 661#       发表于 2022-10-21 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58022038&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-21 12:34:06</a>
+说真的是不是该把不想用武器都买了，然后留自己想用的，这样掉率应该会高一些吧。 ...</blockquote>竞技场全打完给你个掉身上装备的装备盘几率提高的饰品
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lazycat233  
+##### 662#       发表于 2022-10-21 13:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我现在这个游戏有BUG，只要是入队的队友姿势就卡在战斗伸手的样子，看着好难受
+

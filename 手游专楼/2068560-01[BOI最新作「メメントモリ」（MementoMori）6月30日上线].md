@@ -541,3 +541,14 @@ PC大屏听歌对味，AA快下池
 
 上线两天，流水过5亿，只能说，最开始目标用户就是矿老板的游戏真是厉害。这游戏首要目标群就不是二次元用户<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  windvictor  
+##### 66#       发表于 2022-10-21 13:08
+
+<blockquote>elven119 发表于 2022-10-21 07:44
+上线两天，流水过5亿，只能说，最开始目标用户就是矿老板的游戏真是厉害。这游戏首要目标群就不是二次元用 ...</blockquote>
+全世界上线的四国语言游戏，这流水一般了
+
