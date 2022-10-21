@@ -4081,3 +4081,35 @@ tb很差吗，能吃伤害，能上高，能推进，射程远，有伤害，还
 结果没想到居然是一个刮痧哥，开完bk ...</blockquote>
 跑其实不完全是刮痧，主要还是摸不到人，TB这东西太笨了
 
+
+
+*****
+
+####  resorry  
+##### 21469#       发表于 2022-10-21 08:01
+
+昨天其实ETT第一次上高的时候牛头板住，TB一轮就把狼人灌死了，TB还是有输出的，但是输出环境太差，只能打到跑的飞快的狼人死灵龙,BKB一结束就被风熊猫关了
+
+*****
+
+####  lyjssj  
+##### 21470#       发表于 2022-10-21 08:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">仔细想想，可能外卡的VG和XG还有是点竞争力的，能和液体和秘密过两招
+
+*****
+
+####  米奥莉奈  
+##### 21471#       发表于 2022-10-21 08:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在是个什么风向？现场英文报点坑我老干瘪，应该冲v🐍要求和秘密重赛？
+
+*****
+
+####  憧憬鲨  
+##### 21472#       发表于 2022-10-21 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58017674&amp;ptid=2099454" target="_blank">格雷殿下 发表于 2022-10-21 07:56</a>
+tb很差吗，能吃伤害，能上高，能推进，射程远，有伤害，还有恐怖心潮。漏油一直说tb不行，那说一个可以的? ...</blockquote>
+TB不差的，但是楼友们很想再给他个射手天赋
+

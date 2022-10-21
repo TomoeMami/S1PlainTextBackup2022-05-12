@@ -6888,3 +6888,17 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  黒長直姫  
+##### 635#       发表于 2022-10-21 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58017675&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-21 07:56</a>
+
+准备全程最低难度了，后面有些boss是堆怪的打的真的难受，而且小怪还硬
+
+  -- 来自 能搜索的 Stage1官方 An ...</blockquote>
+有个困难难度杯 困难也不算难打 就是要拉满成长盘比较肝
+
