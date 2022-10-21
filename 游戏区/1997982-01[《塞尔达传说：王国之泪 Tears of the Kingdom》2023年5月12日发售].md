@@ -124,3 +124,19 @@ https://youtu.be/2XZ5mWZJCD8</blockquote>
 12月TGA颁奖典礼，一定有广告，有没有新pv未知</blockquote>
 我猜一个明年二月份宣布延期，然后公布ns后续机
 
+
+
+*****
+
+####  heseran  
+##### 629#       发表于 2022-10-21 11:54
+
+肯定不会延期了吧，不如剑指发售前公布新机和王国之泪限定机<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 630#       发表于 2022-10-21 11:57
+
+再延我任亏就过期了（
+
