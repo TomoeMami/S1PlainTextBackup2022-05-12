@@ -10070,3 +10070,362 @@ Fnc那两把选的蠢打的也蠢，生生把自己全队状态都打没了
 
 余亚军Bryant的焦比战衣呢
 
+
+
+*****
+
+####  usoda  
+##### 22221#       发表于 2022-10-21 12:12
+
+我在“为曾骄阳请神”活动中请到了约旦ori miracle（TI7限定款），大家也来帮曾骄阳请神罢！
+
+*****
+
+####  nowaki  
+##### 22222#       发表于 2022-10-21 12:12
+
+没有曼巴精神的东西！
+
+*****
+
+####  卡卡  
+##### 22223#       发表于 2022-10-21 12:12
+
+现在就一个1：1论外，不知道要怎么定位另外BOOM对LGD，估计LGD死上加死
+
+*****
+
+####  夏溪澪mio  
+##### 22224#       发表于 2022-10-21 12:13
+
+jiayoua jiaoyang
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IG.430  
+##### 22225#       发表于 2022-10-21 12:13
+
+没有曼巴精神的东西！
+
+*****
+
+####  nightmare902015  
+##### 22226#       发表于 2022-10-21 12:13
+
+死灵龙这英雄重做过没有？我怎么感觉从结绳记事开始就tm这四个技能，机制都一样。
+
+*****
+
+####  Litccc  
+##### 22227#       发表于 2022-10-21 12:13
+
+没有曼巴精神的东西！
+
+*****
+
+####  无意义小号  
+##### 22228#       发表于 2022-10-21 12:13
+
+给莫奈特也请个miracle ti7限定版！
+
+*****
+
+####  sodah  
+##### 22229#       发表于 2022-10-21 12:14
+
+ 没有曼巴精神的东西！
+
+*****
+
+####  天堂蜘蛛  
+##### 22230#       发表于 2022-10-21 12:14
+
+看了眼昨天打秘密第二把的复盘，我是真不知道处长脑子里在想什么东西
+
+她打比赛的理解永远就是单机游戏采灵芝打个人节奏，队友干架不管不顾的
+
+但凡这个大圣前面参战能多一点这把应该就拿下了
+
+
+
+*****
+
+####  百世诸侯  
+##### 22231#       发表于 2022-10-21 12:14
+
+没有曼巴精神的东西！
+
+*****
+
+####  iriyano  
+##### 22232#       发表于 2022-10-21 12:14
+
+骄阳骄阳！
+
+*****
+
+####  枯风瘦雪02  
+##### 22233#       发表于 2022-10-21 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021724&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-21 12:13</a>
+死灵龙这英雄重做过没有？我怎么感觉从结绳记事开始就tm这四个技能，机制都一样。 ...</blockquote>
+现在的A可太可怕了好吗……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  蛭人  
+##### 22234#       发表于 2022-10-21 12:15
+
+我前妻那么肥
+
+可见处长脑子里面还是鳖鳖dota2水平，然而后者最后生涯领悟了啊。
+
+*****
+
+####  AIDSL  
+##### 22235#       发表于 2022-10-21 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021734&amp;ptid=2099454" target="_blank">天堂蜘蛛 发表于 2022-10-21 12:14</a>
+
+看了眼昨天打秘密第二把的复盘，我是真不知道处长脑子里在想什么东西
+
+她打比赛的理解永远就是单机游戏采灵 ...</blockquote>
+你这就有点过分了，大球假腿连击刀就已经参过战了，解说当时也说参战时间提前了。
+
+*****
+
+####  Rorgen  
+##### 22236#       发表于 2022-10-21 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021724&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-21 12:13</a>
+死灵龙这英雄重做过没有？我怎么感觉从结绳记事开始就tm这四个技能，机制都一样。 ...</blockquote>
+数值改过，机制除了A魔晶没改过，被动以前是护甲魔抗
+应该是从6.65重做开始稳定的
+
+*****
+
+####  scg2017  
+##### 22237#       发表于 2022-10-21 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021748&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-21 12:15</a>
+我前妻那么肥
+
+可见处长脑子里面还是鳖鳖dota2水平，然而后者最后生涯领悟了啊。 ...</blockquote>
+别尬黑，鳖鳖偶尔还会玩法核，和rotk一起还会玩推进
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  usoda  
+##### 22238#       发表于 2022-10-21 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021734&amp;ptid=2099454" target="_blank">天堂蜘蛛 发表于 2022-10-21 12:14</a>
+
+看了眼昨天打秘密第二把的复盘，我是真不知道处长脑子里在想什么东西
+
+她打比赛的理解永远就是单机游戏采灵 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泥潭版主不是早就定过性了 处长玩这游戏就是把屏幕里看到的所有能打死的东西都刷光 不管是小兵还是野怪甚至是对方英雄
+
+*****
+
+####  百世诸侯  
+##### 22239#       发表于 2022-10-21 12:16
+
+昨天处长真的提前打架了好吧
+
+*****
+
+####  Sabbah  
+##### 22240#       发表于 2022-10-21 12:16
+
+这个跳大肉山离谱了
+
+我听播报好像是夜魇扫描的下路主野区位置
+
+然后突然小牛带狗就要跳肉山坑
+
+感觉确实是现场报点了 
+
++R by [xrxl] (undefined)
+
+是破雾了
+
+哈哈 那还真没注意开雾 
+
+*****
+
+####  尖刺外婆  
+##### 22241#       发表于 2022-10-21 12:17
+
+狗是打力量笨逼的特种carry，本质是另一种模式的小娜迦
+
+*****
+
+####  Cookiekira  
+##### 22242#       发表于 2022-10-21 12:17
+
+纠结了 希望马桶哥和骄阳都加油吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  越动天下  
+##### 22243#       发表于 2022-10-21 12:17
+
+来喽
+
+*****
+
+####  利剑Crazy-88  
+##### 22244#       发表于 2022-10-21 12:17
+
+别想辣！如果超哥不中毒就是昨天老畜鳖或者今天og的选位，到时候被tundra或者秘密痛宰会有昨晚痛苦孤胆英雄体面？
+
+*****
+
+####  -SLSL-  
+##### 22245#       发表于 2022-10-21 12:17
+
+没有曼巴精神的东西！
+
+*****
+
+####  Rorgen  
+##### 22246#       发表于 2022-10-21 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021776&amp;ptid=2099454" target="_blank">尖刺外婆 发表于 2022-10-21 12:17</a>
+狗是打力量笨逼的特种carry，本质是另一种模式的小娜迦</blockquote>
+这版本后期狗比想象中屌，我上个月高强度复健的时候发现的，可以当半个大核了
+
+*****
+
+####  llconforever  
+##### 22247#       发表于 2022-10-21 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021724&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-21 12:13</a>
+死灵龙这英雄重做过没有？我怎么感觉从结绳记事开始就tm这四个技能，机制都一样。 ...</blockquote>
+大招重做过，当年不只2条小龙
+
+*****
+
+####  nightmare902015  
+##### 22248#       发表于 2022-10-21 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021745&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-21 12:15</a>
+现在的A可太可怕了好吗……
+
+—— 来自 S1Fun</blockquote>
+那当然他a帐刚改还有高空视野的时候我把把玩大概上了500分<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 22249#       发表于 2022-10-21 12:18
+
+憋憋还是会打节奏的，后期在ig就是憋憋带着xxs打节奏的，憋憋主要是做人太差了
+
+*****
+
+####  AIDSL  
+##### 22250#       发表于 2022-10-21 12:19
+
+作为一个德鲁伊使用者，我对马桶哥视奸已久，他在之前的比赛中的德鲁伊节奏完美符合刻板印象——中期一波失误，就开始小熊永不够的状态，然后拖入30分钟成为burden。
+
+但是最近状态突然回暖，秘密又回到了去年Ti前半段那种没人能让马桶哥发晕的后期到来的感觉。有点看不懂。
+
+*****
+
+####  Crazy_Knife  
+##### 22251#       发表于 2022-10-21 12:19
+
+Ti7周期的鳖鳖可一点都不鳖，都能算是个打架核了，前期就会带队推塔打架的
+
+*****
+
+####  Rorgen  
+##### 22252#       发表于 2022-10-21 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021806&amp;ptid=2099454" target="_blank">AIDSL 发表于 2022-10-21 12:19</a>
+作为一个德鲁伊使用者，我对马桶哥视奸已久，他在之前的比赛中的德鲁伊节奏完美符合刻板印象——中期一波失 ...</blockquote>
+鉴定为铁血小搋子
+
+*****
+
+####  Avantasi  
+##### 22253#       发表于 2022-10-21 12:20
+
+17年DAC有一说一看的很爽，不是核核也看得爽
+
+*****
+
+####  Avantasi  
+##### 22254#       发表于 2022-10-21 12:20
+
+17年DAC有一说一看的很爽，不是核核也看得爽
+
+*****
+
+####  Sabbah  
+##### 22255#       发表于 2022-10-21 12:20
+
+德鲁伊中期小熊永远在转cd真的是自己的问题比较多吗
+
+*****
+
+####  nightmare902015  
+##### 22256#       发表于 2022-10-21 12:21
+
+天辉谷圣，小黑子可以闭嘴了。
+
+*****
+
+####  a1370303  
+##### 22257#       发表于 2022-10-21 12:21
+
+茶茶又来拉低谷圣的胜率了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Crazy_Knife  
+##### 22258#       发表于 2022-10-21 12:21
+
+茶队选到了ts和冰女，感觉bp已经拿的不错了
+
+*****
+
+####  枯风瘦雪02  
+##### 22259#       发表于 2022-10-21 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021806&amp;ptid=2099454" target="_blank">AIDSL 发表于 2022-10-21 12:19</a>
+作为一个德鲁伊使用者，我对马桶哥视奸已久，他在之前的比赛中的德鲁伊节奏完美符合刻板印象——中期一波失 ...</blockquote>
+我对马桶哥一直有个偏见就是大概在一万经济左右他特别厉害，然后就开始刷打结合出问题，经济下滑、出装迷惑、终结能力不强……这届他的表现也挺超出我预计的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  尖刺外婆  
+##### 22260#       发表于 2022-10-21 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021756&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-21 12:15</a>
+数值改过，机制除了A魔晶没改过，被动以前是护甲魔抗
+应该是从6.65重做开始稳定的 ...</blockquote>
+死灵龙上个大热版本是支配三龙，25级8层皮无敌小鸟平推。再看看现在右边全英雄最脑残的25天赋+10甲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  外挂全家脚气  
+##### 22261#       发表于 2022-10-21 12:22
+
+艹TPS来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

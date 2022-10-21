@@ -7131,3 +7131,23 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 我发现我2345章好像都少一个小徽章，但是找不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 656#       发表于 2022-10-21 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021647&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-21 12:09</a>
+我发现我2345章好像都少一个小徽章，但是找不到</blockquote>
+对着wiki宝箱列表找吧 小徽章都是箱子出的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  onlv星骸  
+##### 657#       发表于 2022-10-21 12:21
+
+电池怎么用的
+
