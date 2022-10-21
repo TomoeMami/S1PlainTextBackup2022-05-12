@@ -6536,3 +6536,16 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 二柄是唯一一个能通关的媒体？这里面是不是有啥见不得人的勾当啊</blockquote>
 大概率都通了，索尼也没办法拿着枪顶着不让通关，二柄提了一句
 
+
+
+*****
+
+####  名字已被吃  
+##### 711#       发表于 2022-10-21 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030752&amp;ptid=2025548" target="_blank">SergeGlenn 发表于 2022-10-21 21:23</a>
+四个画面模式，竟然还有120帧模式。。</blockquote>
+太好了，有40针的画质模式，真得感谢失眠症把这个模式带起来<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

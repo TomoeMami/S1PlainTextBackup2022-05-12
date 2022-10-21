@@ -43,3 +43,15 @@
 奥贝可能无所谓，但是对于一向强调公平公正的莱而言，可不能这样无所谓 ...</blockquote>
 监督又自说自话了，原着里是放松对他们的监视而不是放松皇宫的警备。
 
+
+
+*****
+
+####  aptx8285144  
+##### 5490#       发表于 2022-10-21 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031960&amp;ptid=1502023" target="_blank">卡奥斯·克斯拉 发表于 2022-10-21 22:42</a>
+
+监督又自说自话了，原着里是放松对他们的监视而不是放松皇宫的警备。</blockquote>
+错，和动画一样，奥贝原作里确实也提出过是否削弱皇宫的警备<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+

@@ -11334,3 +11334,14 @@ horipro 摩多摩多
 啊，鲤鱼的初辣鸡也开始收费收听了</blockquote>
 加长应该。看来收听的用户有一定数量？<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 8541#       发表于 2022-10-21 22:43
+
+花田京极罪大恶极，搞的谷价怨声载道。
+
+这动画角色分，不管粉哪个都别扭，可能民警稍微好点，或者红蓝一起粉也还行。
+

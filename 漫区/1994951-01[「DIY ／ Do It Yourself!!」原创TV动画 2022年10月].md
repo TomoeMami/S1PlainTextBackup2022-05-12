@@ -2693,3 +2693,33 @@ DIY部の看板は、私の思入れのあるデザインです
 <img src="https://p.sda1.dev/7/a1a81f9430dbcfc9cc0babe4bc1623bc/20221021_224004.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/a9bda46d4ee460661b063403abb146a2/20221021_224005.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 219#         楼主| 发表于 2022-10-21 22:49
+
+[https://twitter.com/lexisthere87/status/1582736539922366465](https://twitter.com/lexisthere87/status/1582736539922366465)
+<img src="https://p.sda1.dev/7/67c483258c2423e469fef5fab8a178e6/20221021_224430.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/radio1985head/status/1582723371451629568](https://twitter.com/radio1985head/status/1582723371451629568)
+<img src="https://p.sda1.dev/7/4f736b28910e577c1fdb59924e14b885/20221021_224424.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/_aniihs_/status/1582758205813272576](https://twitter.com/_aniihs_/status/1582758205813272576)
+<img src="https://p.sda1.dev/7/db714d630ea1a9f56a1528de241e2903/20221021_224415.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/plus_plus09/status/1582763220183691264](https://twitter.com/plus_plus09/status/1582763220183691264)
+<img src="https://p.sda1.dev/7/8da3a93e7bbf2ff7dbbf0631a720c7ea/20221021_224343.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/G10sensei/status/1582945288565641217](https://twitter.com/G10sensei/status/1582945288565641217)
+<img src="https://p.sda1.dev/7/8cbfcb04c806f1cb8d68ff476c4d3523/20221021_224353.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/__ria_iks/status/1582820404359372802](https://twitter.com/__ria_iks/status/1582820404359372802)
+
+改めましてDIY#03、一部を除いてほぼ全カット原画作監としてお仕事させて頂きました！今岡さんの神すぎるレイアウト修のニュアンスを崩さないよう全力で頑張りました
+
+めちゃくちゃ贅沢な経験だった……有難う御座いました！！
+<img src="https://p.sda1.dev/7/e8d75db676f4a3328f1245bf2eeee569/20221021_224443.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/0105b3268f3a79336f36c331a89e1c6f/20221021_224408.jpg" referrerpolicy="no-referrer">
+

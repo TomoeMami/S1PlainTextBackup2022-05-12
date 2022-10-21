@@ -2608,3 +2608,14 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 谁也没比谁高贵嘛
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  铁柱子  
+##### 3227#       发表于 2022-10-21 22:51
+
+<blockquote>quanlix 发表于 2022-10-21 10:06
+每登录50天送30石头那个吧</blockquote>
+应该不是，他有一个完整的签到页面，第一天第二天第几天给什么东西，还可以点框框看详情
+
