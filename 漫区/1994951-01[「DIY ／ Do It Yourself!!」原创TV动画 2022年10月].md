@@ -2572,3 +2572,13 @@ job子用电钻自紧这一下好帅，自己用的时候从来都是老老实�
 <img src="https://p.sda1.dev/7/5ff13bb444af06a4cd0d54895a169a68/diy_anime-1583367487676030976-img1.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/e480e3e2e8410a4cb325c4d6ee691e11/diy_anime-1583367487676030976-img2.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 212#       发表于 2022-10-21 17:21
+
+秋アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第3話放送後インタビュー：シリーズ構成＆脚本 筆安一幸さん｜誰かを頼っていいんだよ、誰かに頼られていいんだよ、ということを感じてもらいたい
+[https://www.animatetimes.com/news/details.php?id=1666243780](https://www.animatetimes.com/news/details.php?id=1666243780)
+
