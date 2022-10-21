@@ -573,3 +573,25 @@ PC大屏听歌对味，AA快下池
 
 这种游戏的资源是要一直在后台挂着才会增加，还是杀了进程也会加啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sacross  
+##### 69#       发表于 2022-10-21 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58028015&amp;ptid=2068560" target="_blank">薛定谔的小猫 发表于 2022-10-21 18:35</a>
+这种游戏的资源是要一直在后台挂着才会增加，还是杀了进程也会加啊</blockquote>
+是服务器那边计算的，和放置少女一个路数
+
+—— 来自 OnePlus IN2020, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sacross  
+##### 70#       发表于 2022-10-21 20:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">所以这起手又来一个长时维护，行不行啊
+
+—— 来自 OnePlus IN2020, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

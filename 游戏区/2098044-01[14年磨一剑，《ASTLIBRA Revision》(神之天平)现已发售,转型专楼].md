@@ -7600,3 +7600,14 @@ wiki标的第四章 带鸟鼻子去舔图找呗
 4章村子右边有个地方能炸开，里面的箱子</blockquote>
 原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  A1LI  
+##### 694#       发表于 2022-10-21 20:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">先打个坏结局看看剧情，通关后继承存档还能回到打boss之前继续刷好结局道具，问题是为啥把装备都给我扒了……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果还不如直接读之前没通关的档比较快。
+
