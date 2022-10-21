@@ -5483,3 +5483,248 @@ navi那么早跑去entity解释的推文下嘲讽删了吗
 
 nga的经典操作 只要删了带节奏的就是sg/s1了
 
+
+
+*****
+
+####  Litccc  
+##### 21636#       发表于 2022-10-21 09:51
+
+确实，好多弱智言论哥们直接复制过来结果原贴被删了，就变成哥们自己写的了
+
+*****
+
+####  roxas.sora  
+##### 21637#       发表于 2022-10-21 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019046&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-21 09:50</a>
+
+这个版本只能打单核的，节奏太快了，资源只够单核刷，所有想打多核的队伍都是死得很惨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">想拖也得选能守塔守高地的，单核阵容上高地不顺是很容易被翻盘的
+
+*****
+
+####  ck4pa  
+##### 21638#       发表于 2022-10-21 09:52
+
+那以后dota还有几个俱乐部吧，中国赛区不会就剩水厂系养蛊了吧
+
+*****
+
+####  Quark  
+##### 21639#       发表于 2022-10-21 09:53
+
+所以要把楼主id这些格式内容也复制过来
+
+*****
+
+####  sodah  
+##### 21640#       发表于 2022-10-21 09:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“虽然你砸到键盘键盘暂停是意外，但你发轮盘还是辱了”我**服了。
+
+*****
+
+####  lyjssj  
+##### 21641#       发表于 2022-10-21 09:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">XG不是已经说在战一年了吗
+
+本来还被群嘲，现在想想能看见张成俊丁鱼脖god是不是觉得还不错<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  resorry  
+##### 21642#       发表于 2022-10-21 09:54
+
+买dust的事情确定了么，那看来骄阳是真的最后一年了，加油啊骄阳
+
+*****
+
+####  roxas.sora  
+##### 21643#       发表于 2022-10-21 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019103&amp;ptid=2099454" target="_blank">sodah 发表于 2022-10-21 09:53</a>
+
+“虽然你砸到键盘键盘暂停是意外，但你发轮盘还是辱了”我**服了。</blockquote>
+没留意看，轮盘是暂停前还是暂停后发的
+
+*****
+
+####  银翼的维罗西  
+##### 21644#       发表于 2022-10-21 09:55
+
+我在“为曾焦阳请神”活动中请到了约旦ori miracle（TI7限定款），大家也来帮曾焦阳请神罢！
+
+*****
+
+####  勤练带来力量  
+##### 21645#       发表于 2022-10-21 09:55
+
+曾焦阳没有小人劝本来今年就退了的吧
+
+*****
+
+####  Rorgen  
+##### 21646#       发表于 2022-10-21 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019116&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-21 09:55</a>
+我在“为曾焦阳请神”活动中请到了约旦ori miracle（TI7限定款），大家也来帮曾焦阳请神罢！ ...</blockquote>
+结果请到了ti6的
+
+*****
+
+####  百世诸侯  
+##### 21647#       发表于 2022-10-21 09:56
+
+我在“为曾焦阳请神”活动中请到了约旦ori miracle（TI7限定款），大家也来帮曾焦阳请神罢！
+
+*****
+
+####  iriyano  
+##### 21648#       发表于 2022-10-21 09:56
+
+脑11实力不行，就是会来事
+
+*****
+
+####  Rorgen  
+##### 21649#       发表于 2022-10-21 09:56
+
+约旦曾焦阳和德国张志成没进ti，但中华奇迹哥和银川kky刚好在一队了
+
+*****
+
+####  syndrome2032  
+##### 21650#       发表于 2022-10-21 09:56
+
+水厂打完张睿达跑了，备胎也就是抓项羽。
+仙贝说是也要退，找个新的不难。
+张睿达跑了文丑多半也会顺带。
+
+剩个猴爹倒还行。猴爹只要不上轮椅宰西恩这群新生代中单都是切瓜砍菜。
+
+*****
+
+####  resorry  
+##### 21651#       发表于 2022-10-21 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019132&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-21 09:56</a>
+
+我在“为曾焦阳请神”活动中请到了约旦ori miracle（TI7限定款），大家也来帮曾焦阳请神罢！ ...</blockquote>
+请到了IG.430（TI5特供）
+
+*****
+
+####  fopinecone  
+##### 21652#       发表于 2022-10-21 09:57
+
+集美们真的看得上s1吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+连社区对战都没被邀请好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  12481632  
+##### 21653#       发表于 2022-10-21 09:58
+
+泥潭是知名撸狗论坛，集美们瞧不上的
+
+*****
+
+####  Quark  
+##### 21654#       发表于 2022-10-21 09:58
+
+随便找了个现场拍的视频 轮盘先于暂停 激动得发完轮盘就起身庆祝了吧
+
+而且发个轮盘就是乳了吗 集美滑坡的水平也是越来越低了
+
+<img src="https://img.saraba1st.com/forum/202210/21/095642srbiviurvihyahv4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 09:56 上传
+
+*****
+
+####  情商  
+##### 21655#         楼主| 发表于 2022-10-21 09:58
+
+我在“为曾焦阳请神”活动中请到了美国maybe sumail（TI5拉席克最强使用者限定款），大家也来帮曾焦阳请神罢！
+
+*****
+
+####  Rorgen  
+##### 21656#       发表于 2022-10-21 09:58
+
+其实我感觉张志成在国外的reputation比r畜还高
+ti1的影响力真的比想象中大，也就国内不承认
+
+*****
+
+####  izayoi39  
+##### 21657#       发表于 2022-10-21 09:59
+
+曾骄阳不是前队友搞这么一出，就是被小人劝也不太会回来的吧，曾骄阳确实是感觉到自己水平下滑了
+
+*****
+
+####  Litccc  
+##### 21658#       发表于 2022-10-21 09:59
+
+感觉老鳖和pis影响力最大
+
+*****
+
+####  fopinecone  
+##### 21659#       发表于 2022-10-21 09:59
+
+我在“为曾焦阳请神”活动中请到了美国maybe sumail（TI5拉席克最强使用者限定款），大家也来帮曾焦阳请神罢！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  北欧王座  
+##### 21660#       发表于 2022-10-21 10:00
+
+秘密棱镜计划是吧，窃听风云
+
+
+
+*****
+
+####  Quark  
+##### 21661#       发表于 2022-10-21 10:00
+
+而且说实话张志成30+了保养的还挺好的 面相挺帅的呀
+
+*****
+
+####  -SLSL-  
+##### 21662#       发表于 2022-10-21 10:00
+
+lou还要被nowaki和unhappytails绑架一年吗
+
+*****
+
+####  lyjssj  
+##### 21663#       发表于 2022-10-21 10:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">TI1，印象最深的是毛毛鸭绝活TK出了个推推，以及总决赛NAVI第一把选了先知屠夫连冲3次EHOME高低被翻
+
+*****
+
+####  情商  
+##### 21664#         楼主| 发表于 2022-10-21 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019192&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-21 09:58</a>
+
+其实我感觉张志成在国外的reputation比r畜还高
+
+ti1的影响力真的比想象中大，也就国内不承认 ...</blockquote>
+ti1本来就是非战之罪，navi有胜者组优势+熟悉游戏的优势
+

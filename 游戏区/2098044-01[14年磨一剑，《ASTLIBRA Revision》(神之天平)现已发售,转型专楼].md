@@ -6926,3 +6926,15 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  quanlix  
+##### 638#       发表于 2022-10-21 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58013957&amp;ptid=2098044" target="_blank">casle 发表于 2022-10-20 22:00</a>
+
+小鬼我没打，紫发的精英驾驶员是可以打过的，还有一小段嘉隆吐槽你太强了的剧情 ...</blockquote>
+你这是二周目限定吗，我打的时候那个黑色机甲开战之后都没有攻击判定的
+
