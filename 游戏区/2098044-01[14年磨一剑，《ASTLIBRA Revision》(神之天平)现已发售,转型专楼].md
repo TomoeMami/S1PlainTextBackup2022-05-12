@@ -7611,3 +7611,15 @@ wiki标的第四章 带鸟鼻子去舔图找呗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果还不如直接读之前没通关的档比较快。
 
+
+
+*****
+
+####  onlv星骸  
+##### 695#       发表于 2022-10-21 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029771&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-21 20:21</a>
+
+先打个坏结局看看剧情，通关后继承存档还能回到打boss之前继续刷好结局道具，问题是为啥把装备都给 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">因为最后的那段动画要让主角穿成原本的衣服，就给扒了
+
