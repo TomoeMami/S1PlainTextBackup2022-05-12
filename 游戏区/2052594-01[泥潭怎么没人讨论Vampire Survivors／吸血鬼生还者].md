@@ -3183,3 +3183,12 @@ Vampire Survivors\resources\app\.webpack\renderer\assets\img
 
 1.0，看到邪魔图鉴里各种机翻中文，欢乐
 
+
+
+*****
+
+####  wthall  
+##### 311#       发表于 2022-10-21 08:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是没有正常的中文版么？那我继续等着
+

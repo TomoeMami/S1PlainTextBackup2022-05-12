@@ -4113,3 +4113,45 @@ tb很差吗，能吃伤害，能上高，能推进，射程远，有伤害，还
 tb很差吗，能吃伤害，能上高，能推进，射程远，有伤害，还有恐怖心潮。漏油一直说tb不行，那说一个可以的? ...</blockquote>
 TB不差的，但是楼友们很想再给他个射手天赋
 
+
+
+*****
+
+####  二宮飛鳥酱  
+##### 21473#       发表于 2022-10-21 08:11
+
+昨晚没怎么刷论坛，所以现场隔音不好选手能听到解说报信息是真是假<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 21474#       发表于 2022-10-21 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58017770&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-21 08:11</a>
+
+昨晚没怎么刷论坛，所以现场隔音不好选手能听到解说报信息是真是假</blockquote>
+能听到声音肯定是真的，能从这些声音里知道多少信息乃至于有没有影响比赛就不知道了
+
+*****
+
+####  7450  
+##### 21475#       发表于 2022-10-21 08:17
+
+没隔音房就是草台啊，该骂
+
+但是等输了才开始带隔音房的节奏，只能说经典输不起好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 21476#       发表于 2022-10-21 08:20
+
+隔音再不好也轮不到干瘪叫好吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">打出23比3还有什么好说的
+
+*****
+
+####  bluebaby  
+##### 21477#       发表于 2022-10-21 08:20
+
+tb不是很灵活，爆发在100分钟的局不够了，说白了不是tb多差，是拿了tb拖到100分钟就不行了，对面的12打到那时候更不行，都给小小打辅助了
+

@@ -183,3 +183,14 @@ gt7的每日竞赛还是全是公路赛吗，有拉力吗</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1697#       发表于 2022-10-21 08:11
+
+那我躺银牌了
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
