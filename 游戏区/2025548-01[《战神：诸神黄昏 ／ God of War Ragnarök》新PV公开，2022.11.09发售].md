@@ -6549,3 +6549,12 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  nage560  
+##### 712#       发表于 2022-10-21 23:00
+
+竟然还有这么多前作的场景，服了。
+

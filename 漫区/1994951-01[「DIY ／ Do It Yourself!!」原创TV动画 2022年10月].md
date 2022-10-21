@@ -2723,3 +2723,34 @@ DIY部の看板は、私の思入れのあるデザインです
 <img src="https://p.sda1.dev/7/e8d75db676f4a3328f1245bf2eeee569/20221021_224443.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/0105b3268f3a79336f36c331a89e1c6f/20221021_224408.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 220#         楼主| 发表于 2022-10-21 22:52
+
+[https://twitter.com/uchikoga/status/1582708184640167937](https://twitter.com/uchikoga/status/1582708184640167937)
+
+オリジナルアニメ『Do It Yourself!!』（ @diy_anime ）のデザインあれこれしています。エンドクレジットで「オフィシャルデザイナー」という肩書きになっていてビックリ。タイトルロゴデザインもやってます。データ見直したら「！！」の没案を見つけた。 
+<img src="https://p.sda1.dev/7/20463fea9f0a2e322e7c9309f384a28f/20221021_224954.jpg" referrerpolicy="no-referrer">
+
+『Do It Yourself!! -どぅー・いっと・ゆあせるふ-』
+
+すてっぷ３より、作監修正をご紹介
+<img src="https://p.sda1.dev/7/6e8e40063df7a940007ca034f55306ce/20221021_225029.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/edd23116a79eb6c95bbbbdaa2a33df9a/20221021_225033.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/7858ef3a7f890486ab983b0bbc91d7bf/20221021_225035.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/ba149e685defa2d671407827b6802e5b/20221021_225036.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/d0dfe41fecc9fe96dc6fef18915747ad/20221021_225046.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/2aab11d8ef0ac1310ad6a5192d1230d3/20221021_225049.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/3b2b119167f494bcc9363f4be3614c67/20221021_225051.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/950941d7f0e0a8a919a1c84ea4a3dc80/20221021_225052.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  人形灾害  
+##### 221#       发表于 2022-10-21 22:58
+
+小学生真是太可爱啦<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

@@ -9615,3 +9615,40 @@ whispet带躺好吧
 
 他跟阿九差不多吧，中路稳住当挂件，等13带躺
 
+
+
+*****
+
+####  齐柏林轰炸机  
+##### 25215#       发表于 2022-10-21 22:54
+
+你们对茶队的期望达到了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lmslardar  
+##### 25216#       发表于 2022-10-21 22:55
+
+达到了啊，焦阳已经是历史最好战绩了吧，希望他能跟超哥一样再燃烧一把，都这一步了现在烧到决赛日不过分吧
+
+*****
+
+####  izayoi39  
+##### 25217#       发表于 2022-10-21 22:56
+
+克里斯擅长的是拿有限的经济就能打出作用的英雄，经济高了反而不会打的那种
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 25218#       发表于 2022-10-21 22:59
+
+有句说句，今天虚无主义爆爆爆融化rtz还是可以的，希望后天爆种<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 25219#       发表于 2022-10-21 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我今年希望电锤神夺冠好吧
+
