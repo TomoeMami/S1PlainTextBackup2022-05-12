@@ -6627,3 +6627,25 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 50秒奎爷VS索尔，我没看，不怕剧透的可以瞅下
 [https://www.veed.io/view/6b49c5ab-67f8-4f78-ae7a-cab8d68f2c55](https://www.veed.io/view/6b49c5ab-67f8-4f78-ae7a-cab8d68f2c55)
 
+
+
+*****
+
+####  Kazepollar  
+##### 721#       发表于 2022-10-22 07:45
+
+还有吗还有吗<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clover293  
+##### 722#       发表于 2022-10-22 07:49
+
+ 本帖最后由 clover293 于 2022-10-22 07:50 编辑 
+
+那段也没泄露啥，就是奎爷和索尔打。
+
+有意思的就是奎爷的复活方式，那段笑出声
+
+（是玩家把奎爷玩搞死了）
+
