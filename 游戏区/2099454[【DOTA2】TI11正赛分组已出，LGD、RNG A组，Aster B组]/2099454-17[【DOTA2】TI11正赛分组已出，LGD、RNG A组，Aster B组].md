@@ -7764,3 +7764,76 @@ lit戏戏戏下次搬屎还是带上链接吧，要不过两天就是你写的�
 
 jiayoua chunyu！
 
+
+
+*****
+
+####  Avantasi  
+##### 24988#       发表于 2022-10-21 20:54
+
+BGM：binary是吧？
+
+*****
+
+####  夏溪澪mio  
+##### 24989#       发表于 2022-10-21 20:54
+
+赢个boom集美这么开心？
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  mizoh  
+##### 24990#       发表于 2022-10-21 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030208&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-21 20:48</a>
+
+批九都是集美唯一指定大腿了 我服了</blockquote>
+太搞笑了
+
+
+
+*****
+
+####  哈曼的YY  
+##### 24991#       发表于 2022-10-21 20:54
+
+<img src="https://img.saraba1st.com/forum/202210/21/205417ya0n75ykz6y6nrmy.jpg" referrerpolicy="no-referrer">
+
+<strong>(BCPZNSBX[]143}2M5J(IX1.jpg</strong> (9.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 20:54 上传
+
+*****
+
+####  adretyu67  
+##### 24992#       发表于 2022-10-21 20:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">的时候能不能统一引用啊
+
+*****
+
+####  银翼的维罗西  
+##### 24993#       发表于 2022-10-21 20:58
+
+集美们赢了个BOOM就开始发春是何意啊，BOOM不是连RNG都打不过嘛
+
+*****
+
+####  百世诸侯  
+##### 24994#       发表于 2022-10-21 21:00
+
+这张图更是重量级
+
+<img src="https://img.saraba1st.com/forum/202210/21/210006xyey8ldle933yy8t.jpg" referrerpolicy="no-referrer">
+
+<strong>13d52506e9cd7959.jpg</strong> (62.61 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-21 21:00 上传
+
