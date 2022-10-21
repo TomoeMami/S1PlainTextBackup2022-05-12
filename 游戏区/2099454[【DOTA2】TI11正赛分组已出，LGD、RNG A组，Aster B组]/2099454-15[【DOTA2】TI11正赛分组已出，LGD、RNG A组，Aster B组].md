@@ -9590,3 +9590,483 @@ po3预选那么多把屁用没有的伐木机我还以为楼友们都已经认�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lyjssj  
+##### 22158#       发表于 2022-10-21 12:03
+
+插下怨灵之契以后猴子纯刮痧，相反石头人可以光速切完双酱油。。哪怕猴子完爆小狗也没卵用
+
+*****
+
+####  Rorgen  
+##### 22159#       发表于 2022-10-21 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021522&amp;ptid=2099454" target="_blank">cwlo 发表于 2022-10-21 12:03</a>
+石头人就是最适合这版本的队了吧</blockquote>
+他们不会水人老鹿，上限有问题的
+
+*****
+
+####  蛭人  
+##### 22160#       发表于 2022-10-21 12:03
+
+宋淳还是没有原谅泽马
+
+*****
+
+####  银翼的维罗西  
+##### 22161#       发表于 2022-10-21 12:03
+
+这版本不会多操的三号位全被淘汰了，这下人阳痿就不服了，哥们把选谜团蜘蛛，狼人受王也玩的贼溜怎么就天天被人骂呢
+
+*****
+
+####  恐怖利刃  
+##### 22162#       发表于 2022-10-21 12:03
+
+狗其实不是很怕发母鸡跟猴子
+
+*****
+
+####  薪火带新茶  
+##### 22163#       发表于 2022-10-21 12:03
+
+石头人好硬
+
+*****
+
+####  Rorgen  
+##### 22164#       发表于 2022-10-21 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021528&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-21 12:03</a>
+插下怨灵之契以后猴子纯刮痧，相反石头人可以光速切完双酱油。。哪怕猴子完爆小狗也没卵用 ...</blockquote>
+这版本同经济猴子打不过狗的
+
+*****
+
+####  Crazy_Knife  
+##### 22165#       发表于 2022-10-21 12:03
+
+伐木机说起来是打肉核专精，但前几个版本也都是对完线往地上一躺优势转化不成胜势啊
+
+*****
+
+####  Sabbah  
+##### 22166#       发表于 2022-10-21 12:04
+
+wisper的蝙蝠骑士把露米创得死去活来管人痴过于痛苦选择性遗忘了
+
+*****
+
+####  反方向的波  
+##### 22167#       发表于 2022-10-21 12:04
+
+wisper的蝙蝠骑士把露米创得死去活来管人痴过于痛苦选择性遗忘了
+
+*****
+
+####  蛭人  
+##### 22168#       发表于 2022-10-21 12:04
+
+BZM装比不给sccc中，凭宋淳的性格，是会记他一辈子的。
+
+*****
+
+####  IG.430  
+##### 22169#       发表于 2022-10-21 12:04
+
+任蓝球：我不比33差
+
+*****
+
+####  Rorgen  
+##### 22170#       发表于 2022-10-21 12:04
+
+wisper的蝙蝠骑士把露米创得死去活来管人痴过于痛苦选择性遗忘了
+
+
+
+*****
+
+####  赤星ビスコ  
+##### 22171#       发表于 2022-10-21 12:04
+
+不知道哪个集美说的猴子龙心处理不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 22172#       发表于 2022-10-21 12:04
+
+问题是这版本双核都打不了，更别说三核了，老11那种人你不让他打核心不就是各种送嘛
+
+*****
+
+####  usoda  
+##### 22173#       发表于 2022-10-21 12:04
+
+B组恐怖如斯啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 22174#       发表于 2022-10-21 12:05
+
+xg这个队伍的三大哥哪个不打核都是地上一躺的那种
+
+*****
+
+####  勤练带来力量  
+##### 22175#       发表于 2022-10-21 12:05
+
+b组之耻已经有一个雪碧了，茶茶不会要成为下一个吧亚达哟
+
+*****
+
+####  Crazy_Knife  
+##### 22176#       发表于 2022-10-21 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021562&amp;ptid=2099454" target="_blank">usoda 发表于 2022-10-21 12:04</a>
+B组恐怖如斯啊</blockquote>
+别急，B组之耻马上要上线了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 22177#       发表于 2022-10-21 12:06
+
+批九这采访乐死我了：我的英雄池都是看skiter爹需求选的
+
+*****
+
+####  thistimeforlife  
+##### 22178#       发表于 2022-10-21 12:06
+
+别急 b组之耻马上上线
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nightmare902015  
+##### 22179#       发表于 2022-10-21 12:06
+
+我感觉还得看好亡魂胸针，我铁血胸针厨，这玩意出了以后管你tm怨灵之契，五下随便淦任何目标好吧。
+
+*****
+
+####  RGm  
+##### 22180#       发表于 2022-10-21 12:06
+
+ATF还不如把选大屁股。总比那傻逼伐木机有用。
+
+*****
+
+####  nowaki  
+##### 22181#       发表于 2022-10-21 12:06
+
+如果茶送液体下去 败者组下半区就是西欧dpc了 上半区是lgd虐菜
+
+*****
+
+####  格雷殿下  
+##### 22182#       发表于 2022-10-21 12:06
+
+兽不做人，老是不开bkb。不过对面老虎白牛死灵龙，无限带球也不好抓。保不准单带的时候来个牛头一套，再跳只小狗下来，两口咬死。
+
+*****
+
+####  AualloniaMK2  
+##### 22183#       发表于 2022-10-21 12:07
+
+感觉总决赛是秘密和石头人了
+
+*****
+
+####  火鸡味锅巴  
+##### 22184#       发表于 2022-10-21 12:07
+
+鳖星一生，不弱于人！守护b组荣耀!
+
+*****
+
+####  Avantasi  
+##### 22185#       发表于 2022-10-21 12:07
+
+叶志标小组赛打到后面有点弱智
+
+*****
+
+####  火鸡味锅巴  
+##### 22186#       发表于 2022-10-21 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021593&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-21 12:06</a>
+
+如果茶送液体下去 败者组下半区就是西欧dpc了 上半区是lgd虐菜</blockquote>
+真的能虐菜吗？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 22187#       发表于 2022-10-21 12:07
+
+雪碧死亡名单：lgd，rng，ett，og<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 22188#       发表于 2022-10-21 12:07
+
+讲道理，这版本的狗更像是一个敏核
+
+*****
+
+####  StrangerJ  
+##### 22189#       发表于 2022-10-21 12:07
+
+别忘了另一个b组之耻fnatic，小组赛可把茶队2比0了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  CNFH1984  
+##### 22190#       发表于 2022-10-21 12:08
+
+我在“为曾骄阳请神”活动中请到了约旦ori miracle（TI7限定款），大家也来帮曾骄阳请神罢！
+
+*****
+
+####  Avantasi  
+##### 22191#       发表于 2022-10-21 12:08
+
+狗就是力量里的剑圣
+
+*****
+
+####  izayoi39  
+##### 22192#       发表于 2022-10-21 12:08
+
+茶队这场确实有点儿难打，主要是液体算是a组唯一一个这个版本英雄玩得还可以的队伍了
+
+*****
+
+####  sodah  
+##### 22193#       发表于 2022-10-21 12:08
+
+批九狂
+
+*****
+
+####  nightmare902015  
+##### 22194#       发表于 2022-10-21 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021611&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-21 12:07</a>
+雪碧死亡名单：lgd，rng，ett，og</blockquote>
+LOSER组合是这样的。
+
+*****
+
+####  人別離苦  
+##### 22195#       发表于 2022-10-21 12:08
+
+我在“为曾骄阳请神”活动中请到了约旦ori miracle（TI7限定款），大家也来帮曾骄阳请神罢！
+
+*****
+
+####  dpl451  
+##### 22196#       发表于 2022-10-21 12:08
+
+批九找好自己的定位躺就完了，两大爹能带他躺进胜决
+
+*****
+
+####  端木恋心  
+##### 22197#       发表于 2022-10-21 12:08
+
+狂
+
+*****
+
+####  scg2017  
+##### 22198#       发表于 2022-10-21 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021615&amp;ptid=2099454" target="_blank">Yugao 发表于 2022-10-21 12:07</a>
+讲道理，这版本的狗更像是一个敏核</blockquote>
+早就是了吧，力量成长不如风行
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 22199#       发表于 2022-10-21 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021627&amp;ptid=2099454" target="_blank">sodah 发表于 2022-10-21 12:08</a>
+批九狂</blockquote>
+41狐假虎威
+
+*****
+
+####  Crazy_Knife  
+##### 22200#       发表于 2022-10-21 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021604&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-21 12:07</a>
+叶志标小组赛打到后面有点弱智</blockquote>
+Fnc那两把选的蠢打的也蠢，生生把自己全队状态都打没了
+
+
+
+*****
+
+####  米德  
+##### 22201#       发表于 2022-10-21 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">雾草认真work下班一看石头人宰猪了 看来是我不懂dota
+
+*****
+
+####  sodah  
+##### 22202#       发表于 2022-10-21 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021638&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-21 12:08</a>
+
+41狐假虎威</blockquote>
+不过也挺好的，找准自己定位了。
+
+*****
+
+####  漂灵  
+##### 22203#       发表于 2022-10-21 12:09
+
+我在“为曾骄阳请神”活动中请到了约旦ori miracle（TI7限定款），大家也来帮曾骄阳请神罢！
+
+*****
+
+####  星野航  
+##### 22204#       发表于 2022-10-21 12:09
+
+桶现在这造型，太野性了
+
+*****
+
+####  哈曼的YY  
+##### 22205#       发表于 2022-10-21 12:10
+
+逼站全是刷报点的 看吐了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nowaki  
+##### 22206#       发表于 2022-10-21 12:10
+
+所有赢rng的a组队都输了 但是液体和rng1-1
+
+*****
+
+####  Sabbah  
+##### 22207#       发表于 2022-10-21 12:10
+
+我在“为曾骄阳请神”活动中请到了约旦ori miracle（TI6限定款），大家也来帮曾骄阳请神罢！
+
+*****
+
+####  米德  
+##### 22208#       发表于 2022-10-21 12:10
+
+我在“为曾骄阳请神”活动中请到了约旦ori miracle（TI7限定款），大家也来帮曾骄阳请神罢！
+
+*****
+
+####  勤练带来力量  
+##### 22209#       发表于 2022-10-21 12:10
+
+科比战衣呢皮球
+
+*****
+
+####  Rorgen  
+##### 22210#       发表于 2022-10-21 12:10
+
+所有赢rng的a组队都输了 但是液体和rng1-1
+
+*****
+
+####  漂灵  
+##### 22211#       发表于 2022-10-21 12:10
+
+漏油没看小组赛吗，og烂逼队伍，rng不冠随便打，冠了都一度有胜势。本来就是个败者组实力。
+
+*****
+
+####  sodah  
+##### 22212#       发表于 2022-10-21 12:10
+
+说了大方向定了，这届就是报点了。
+
+*****
+
+####  外挂全家脚气  
+##### 22213#       发表于 2022-10-21 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021618&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-21 12:07</a>
+
+别忘了另一个b组之耻fnatic，小组赛可把茶队2比0了</blockquote>
+目前严格遵循的规律是所有0-2RNG的都输了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 22214#       发表于 2022-10-21 12:11
+
+好快的开
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  snarc1  
+##### 22215#       发表于 2022-10-21 12:11
+
+我在“为曾骄阳请神”活动中请到了约旦ori miracle（TI7限定款），大家也来帮曾骄阳请神罢！
+
+*****
+
+####  薪火带新茶  
+##### 22216#       发表于 2022-10-21 12:11
+
+狮子般的男人！马桶哥！
+
+*****
+
+####  tengshuo980  
+##### 22217#       发表于 2022-10-21 12:11
+
+越讲越可惜超哥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  人別離苦  
+##### 22218#       发表于 2022-10-21 12:11
+
+意思今年的借口已经找好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  薪火带新茶  
+##### 22219#       发表于 2022-10-21 12:11
+
+狮子一样的男人，马桶！
+
+*****
+
+####  Rorgen  
+##### 22220#       发表于 2022-10-21 12:12
+
+余亚军Bryant的焦比战衣呢
+

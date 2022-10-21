@@ -7122,3 +7122,12 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 反正每个队友带2次顺便做成就，还没做完就刷够了</blockquote>
 那你运气还挺好的 我农了一身紫盘子也就出了一个
 
+
+
+*****
+
+####  lazycat233  
+##### 655#       发表于 2022-10-21 12:09
+
+我发现我2345章好像都少一个小徽章，但是找不到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
