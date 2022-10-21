@@ -5912,3 +5912,220 @@ ta打秘密是有优势的，pakazs是今年强队里唯一大核玩得非常好
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 24771#       发表于 2022-10-21 19:23
+
+凭什么超哥是熊二？
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  勤练带来力量  
+##### 24772#       发表于 2022-10-21 19:23
+
+楼友们是不是忘了超级集美论坛可是能写出恶魔小学妹这种畜生东西的地方<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 24773#       发表于 2022-10-21 19:23
+
+哇NMD非得发鬼图是吧<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 24774#       发表于 2022-10-21 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58028780&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-21 19:23</a>
+
+楼友们是不是忘了超级集美论坛可是能写出恶魔小学妹这种畜生东西的地方 ...</blockquote>
+妮楼也是有雌小鬼pure的二次创作的
+
+*****
+
+####  Imanmi  
+##### 24775#       发表于 2022-10-21 19:24
+
+能写明出处吗，我吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 24776#       发表于 2022-10-21 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">男酮丨
+
+*****
+
+####  反方向的波  
+##### 24777#       发表于 2022-10-21 19:25
+
+已保存，以后和刀狗群里小泰迪对线就先把这个图丢上去
+
+*****
+
+####  Litccc  
+##### 24778#       发表于 2022-10-21 19:25
+
+南通最喜欢的熊男<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 24779#       发表于 2022-10-21 19:25
+
+好恶心
+
+*****
+
+####  外挂全家脚气  
+##### 24780#       发表于 2022-10-21 19:25
+
+EG这路线太搞笑了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 小组第一大量2-0，只在最后一天弄了个让人一眼觉得让了的0-2，然后选个南美爹被干个0-2，败者组再被个南美爹0-2回家，献祭头发屁用没有
+
+这LGD...只能等K1来制裁了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  逃离二次元  
+##### 24781#       发表于 2022-10-21 19:26
+
+已保存，以后和刀狗群里小泰迪对线就先把这个图丢上去
+
+*****
+
+####  OVTVO  
+##### 24782#       发表于 2022-10-21 19:26
+
+老娘我是黄翔VS雌小鬼pureVS恶魔小学妹，二次元高法会怎么选？
+
+*****
+
+####  齐柏林轰炸机  
+##### 24783#       发表于 2022-10-21 19:26
+
+sg是这样的
+
+*****
+
+####  -SLSL-  
+##### 24784#       发表于 2022-10-21 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Avantasi  
+##### 24785#       发表于 2022-10-21 19:27
+
+sg是这样的
+
+*****
+
+####  超法拉  
+##### 24786#       发表于 2022-10-21 19:28
+
+还是看看鹏子吧
+<img src="https://p.sda1.dev/7/25be6bf004141574cde53fd1b7d28f79/e41f1b25-dd2e-4d42-ab92-20752041fe21.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 24787#       发表于 2022-10-21 19:28
+
+鹏子搞这么帅干嘛，“闭嘴看我表演！”
+
+*****
+
+####  端木恋心  
+##### 24788#       发表于 2022-10-21 19:29
+
+看了一眼现在全是2比0。
+
+*****
+
+####  TI三冠王AME  
+##### 24789#       发表于 2022-10-21 19:29
+
+杜鹏核心群消息：举盾了鹏子就cos白丝风行
+
+*****
+
+####  nightmare902015  
+##### 24790#       发表于 2022-10-21 19:29
+
+不如冰女至宝裸足一根
+
+*****
+
+####  TIZI  
+##### 24791#       发表于 2022-10-21 19:29
+
+鹏子今天处刑桶哥了
+桶哥突围赛小组赛打的都挺硬的，今天两把打的都一股尿味
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nowaki  
+##### 24792#       发表于 2022-10-21 19:30
+
+杜鹏核心群消息：举盾了鹏子就cos白丝风行
+
+*****
+
+####  端木恋心  
+##### 24793#       发表于 2022-10-21 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58028874&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-21 19:29</a>
+
+杜鹏核心群消息：举盾了鹏子就cos白丝风行</blockquote>
+有一说一鹏哥cos过白丝了。还是在DPC主舞台的。
+
+*****
+
+####  樱冢名月  
+##### 24794#       发表于 2022-10-21 19:31
+
+桶哥今天像被SSZAI带去小天鹅了一样，脑浆估计都没了
+
+*****
+
+####  OVTVO  
+##### 24795#       发表于 2022-10-21 19:31
+
+说了，鹏子致敬前队友，职业dota中单谢君豪，ti冠军已经是囊中之物了。
+
+*****
+
+####  非建政专用号  
+##### 24796#       发表于 2022-10-21 19:31
+
+你⚡️指⚡️尖⚡️跃⚡️动⚡️的⚡️电⚡️锤，是⚡️我⚡️此⚡️生⚡️不⚡️灭⚡️的⚡️信⚡️仰
+
+<img src="https://img.saraba1st.com/forum/202210/21/193117irrgrrrrvrg6mghv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (667.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 19:31 上传
+
+傻卵二次元都不能处，不如窝克
+
+*****
+
+####  WDDzzZ  
+##### 24797#       发表于 2022-10-21 19:32
+
+秘鲁哥脑浆玩不过ppy，输一把就该到点了
+
