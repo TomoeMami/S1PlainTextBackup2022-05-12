@@ -6938,3 +6938,36 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 小鬼我没打，紫发的精英驾驶员是可以打过的，还有一小段嘉隆吐槽你太强了的剧情 ...</blockquote>
 你这是二周目限定吗，我打的时候那个黑色机甲开战之后都没有攻击判定的
 
+
+
+*****
+
+####  Leona_Akari  
+##### 639#       发表于 2022-10-21 10:04
+
+初期弓在哪，到火山了箭还只能用手扔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lazycat233  
+##### 640#       发表于 2022-10-21 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019300&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-21 10:04:45</a>
+初期弓在哪，到火山了箭还只能用手扔</blockquote>在第一章图有一把弓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，武器拿那个火杖就可以打远程标靶
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  五块  
+##### 641#       发表于 2022-10-21 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019300&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-21 10:04</a>
+
+初期弓在哪，到火山了箭还只能用手扔
+
+论坛助手,iPhone</blockquote>
+竞技场我记得前两章就有把弩。
+

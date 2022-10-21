@@ -5728,3 +5728,264 @@ lou还要被nowaki和unhappytails绑架一年吗
 ti1的影响力真的比想象中大，也就国内不承认 ...</blockquote>
 ti1本来就是非战之罪，navi有胜者组优势+熟悉游戏的优势
 
+
+
+*****
+
+####  sodah  
+##### 21665#       发表于 2022-10-21 10:01
+
+看来大方向是定了，我看主舞台的弱智都开始刷报点了。
+
+*****
+
+####  北欧王座  
+##### 21666#       发表于 2022-10-21 10:01
+
+轮盘这节奏也就玻璃心带了。那对面就是暂停了又咋样，不服你赢啊。挑邪茬难看
+
+*****
+
+####  syndrome2032  
+##### 21667#       发表于 2022-10-21 10:02
+
+白院士do1年代名气就没银k大吧。
+
+银k国士无双id还是do1年代。
+
+*****
+
+####  tasuku  
+##### 21668#       发表于 2022-10-21 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018001&amp;ptid=2099454" target="_blank">w2210059 发表于 2022-10-21 08:37</a>
+小小本来就是Dota1贴吧时代的神单霸主，更何况三技能无赖神技，tb神单算个吊毛 ...</blockquote>
+还神单霸主呢，去刀区看看妈妈的论文都说不出来这话
+
+*****
+
+####  lyjssj  
+##### 21669#       发表于 2022-10-21 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">显然得请TI8亚军中单啊，应景
+
+*****
+
+####  izayoi39  
+##### 21670#       发表于 2022-10-21 10:02
+
+ti1国内接触dota2太晚了，国外是内测的时候就开始玩了。而且ti1本质上就是为了宣传dota2的大型广告
+
+*****
+
+####  格雷殿下  
+##### 21671#       发表于 2022-10-21 10:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又想起当年说那个不认识英雄，选了巫妖的梗了
+
+*****
+
+####  walfeds  
+##### 21672#       发表于 2022-10-21 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">前面的我忘了，后面的我也忘了，写在og受难日前一天
+
+*****
+
+####  Quark  
+##### 21673#       发表于 2022-10-21 10:05
+
+国内的内测码都被水厂掌握着倒卖了
+
+从战队来说则是不相信100w奖金没认真准备 而且那时候国内也只能打外服dota2吧 延迟太高了
+
+*****
+
+####  情商  
+##### 21674#         楼主| 发表于 2022-10-21 10:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">ehome 合大件都不知道怎么合成
+
+*****
+
+####  syndrome2032  
+##### 21675#       发表于 2022-10-21 10:05
+
+骄阳退了泰迪退了。国内能稳压油面的中单就只剩猴爹一个了吧。
+xg再打一年的策略其实没错。
+就不知道长颈鹿能送成啥样子。
+
+*****
+
+####  星野航  
+##### 21676#       发表于 2022-10-21 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019192&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-21 10:58</a>
+
+其实我感觉张志成在国外的reputation比r畜还高
+
+ti1的影响力真的比想象中大，也就国内不承认 ...</blockquote>
+lanm要说跟rotk差不多吧，至少肯定是最喜欢的那一档
+
+主要还是能聊能讲，闷葫芦是攒不下什么人气的
+
+*****
+
+####  勤练带来力量  
+##### 21677#       发表于 2022-10-21 10:05
+
+jiayou a pijiu
+
+*****
+
+####  外挂全家脚气  
+##### 21678#       发表于 2022-10-21 10:06
+
+坐等MI酱的神发挥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RaibowDash  
+##### 21679#       发表于 2022-10-21 10:06
+
+ti1那个时候的英雄都什么妖魔鬼怪，选错很正常，后面换引擎加粒子饰品加模型重做，现在看起来才顺眼多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 21680#       发表于 2022-10-21 10:06
+
+Jiayouapiqiu
+
+*****
+
+####  Launce  
+##### 21681#       发表于 2022-10-21 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有一种可能，EG被锤就是因为专注听报点导致分神了
+
+*****
+
+####  Rorgen  
+##### 21682#       发表于 2022-10-21 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019333&amp;ptid=2099454" target="_blank">Launce 发表于 2022-10-21 10:06</a>
+有没有一种可能，EG被锤就&amp;#x ...</blockquote>
+你是真的有点卜基德
+
+*****
+
+####  Rorgen  
+##### 21683#       发表于 2022-10-21 10:07
+
+讲道理昨天造了个eg靠希伯来语交流的谣，今天早上起来居然看到有人在认真讨论，真的绷不住
+
+*****
+
+####  白昼梦  
+##### 21684#       发表于 2022-10-21 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题是报点是你外国爹开始提的啊，又不是cn队自己找的借口
+
+*****
+
+####  horacio  
+##### 21685#       发表于 2022-10-21 10:08
+
+刚打开直播就看到弹幕飘过一个听力考试，笑死我了
+
+*****
+
+####  Rorgen  
+##### 21686#       发表于 2022-10-21 10:08
+
+哦牛批，一手给mi酱点冰女是吧
+
+*****
+
+####  12481632  
+##### 21687#       发表于 2022-10-21 10:08
+
+jiayouapengzi
+
+*****
+
+####  walfeds  
+##### 21688#       发表于 2022-10-21 10:08
+
+哦草，爱凌酱
+
+*****
+
+####  maju3  
+##### 21689#       发表于 2022-10-21 10:09
+
+大狗还不如土娟，现在冰女厉害都不知道
+
+*****
+
+####  izayoi39  
+##### 21690#       发表于 2022-10-21 10:09
+
+咋感觉娟居然是主舞台最正经的解说了
+
+
+
+*****
+
+####  thistimeforlife  
+##### 21691#       发表于 2022-10-21 10:09
+
+加油吧 白银时代的最后一舞！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 21692#       发表于 2022-10-21 10:09
+
+我在“为曾焦阳请神”活动中请到了ehome oldchicken（TI6限定款），大家也来帮曾焦阳请神罢！
+
+*****
+
+####  Rorgen  
+##### 21693#       发表于 2022-10-21 10:10
+
+讲道理，eg占了听力便宜我是信的，这司马队经常几个人开雾进对面野区就地刷钱，一点停滞都没有非常行云流水
+
+*****
+
+####  Quark  
+##### 21694#       发表于 2022-10-21 10:10
+
+第一阶段bp与马西无关 哦牛批 还有这种bp
+
+*****
+
+####  nightmare902015  
+##### 21695#       发表于 2022-10-21 10:10
+
+玛西瓜兽真不熟✋🏻，一选谷爱凌才是最强夜魇
+
+*****
+
+####  莉拉厨  
+##### 21696#       发表于 2022-10-21 10:11
+
+一选谷圣！
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  izayoi39  
+##### 21697#       发表于 2022-10-21 10:11
+
+bzm是真的受不了队友了吧，第一轮就给自己来个火猫这种单人也能打架的中单了
+
+*****
+
+####  syndrome2032  
+##### 21698#       发表于 2022-10-21 10:11
+
+og学到了，一选谷圣主光环让米神泉水挂机是吧。
+
