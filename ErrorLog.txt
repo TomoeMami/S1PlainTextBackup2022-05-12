@@ -1,1 +1,5 @@
 
+[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/游戏区/2012218-01[《辐射2》二十五周年简体中文典藏版，含RPUV26、高清补丁…].md'
+!!error:id=2012218
+[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/外野/2100099-01[这剧情属实有点离谱，不会又是小编拿阿卡林省编的段子吧].md'
+!!error:id=2100099

@@ -7163,3 +7163,25 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 电池怎么用的</blockquote>
 带着就行，注意看光剑可以砍出一个波了
 
+
+
+*****
+
+####  A1LI  
+##### 659#       发表于 2022-10-21 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58017175&amp;ptid=2098044" target="_blank">onlv星骸 发表于 2022-10-21 02:50</a>
+
+属性全随机，多了的话替换。 但是他掉落的时候会指定槽位，不是你想替换掉哪个就替换哪个。 ...</blockquote>
+说真的是不是该把不想用武器都买了，然后留自己想用的，这样掉率应该会高一些吧。
+
+*****
+
+####  A1LI  
+##### 660#       发表于 2022-10-21 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021647&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-21 12:09</a>
+
+我发现我2345章好像都少一个小徽章，但是找不到</blockquote>
+都在箱子里，装备嘉隆的鼻子还是什么来着那个技能，会显示当前地图有多少箱子。
+
