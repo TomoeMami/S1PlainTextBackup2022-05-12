@@ -631,3 +631,12 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 仁叔的全名是明日见德凯/デッカー·アスミ
 
+
+
+*****
+
+####  柳柳昭陵  
+##### 671#       发表于 2022-10-21 23:10
+
+真就反向致敬，后代给前代光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。明年新盖怎么反向，新盖逼王吗
+
