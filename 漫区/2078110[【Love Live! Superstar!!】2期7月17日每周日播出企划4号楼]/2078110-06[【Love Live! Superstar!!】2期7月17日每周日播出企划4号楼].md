@@ -11076,3 +11076,12 @@ horipro 摩多摩多
 价格比我手上的alter索菲还贵，可是质量看着像景品，衣服细节做成一团，面相也不好看<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 世嘉星团两套景品都不怎样，只胜在便宜。眼镜厂夏服那套好一点点
 
+
+
+*****
+
+####  lj205  
+##### 8523#       发表于 2022-10-21 09:40
+
+这次不安排上电视和杂志宣传吗？
+

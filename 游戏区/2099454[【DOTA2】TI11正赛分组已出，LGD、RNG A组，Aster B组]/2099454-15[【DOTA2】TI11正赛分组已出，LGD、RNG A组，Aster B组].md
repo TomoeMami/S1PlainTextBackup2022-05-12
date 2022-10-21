@@ -4975,3 +4975,229 @@ ame是很厉害，但他的队友这次真的不厉害
 
 我是茶茶就今天一连进比赛直接暂停，公屏说明暂停原因说听见解说声音了，你癞皮社管不管吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dclara1  
+##### 21579#       发表于 2022-10-21 09:31
+
+相信大鞭哥的英文
+
+*****
+
+####  nowaki  
+##### 21580#       发表于 2022-10-21 09:32
+
+德张都要润了，不会还听不懂英语吧
+
+*****
+
+####  usoda  
+##### 21581#       发表于 2022-10-21 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">意思是今年干瘪还没滚回家集美们就已经开始发大力了？真的是一帮弱智玩意儿
+
+*****
+
+####  情商  
+##### 21582#         楼主| 发表于 2022-10-21 09:32
+
+【LGD 0:2 秘密 肉山团失利是因为解说报点？这下真相了-哔哩哔哩】 [https://b23.tv/zJlVpYG](https://b23.tv/zJlVpYG)
+
+*****
+
+####  Launce  
+##### 21583#       发表于 2022-10-21 09:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说听解说报点的，麻烦去开个黑，一边打比赛一边和队友语音，再在后台挂2个视频放着播感受下DEBUFF
+
+*****
+
+####  Vacuolar  
+##### 21584#       发表于 2022-10-21 09:33
+
+<blockquote>Rorgen 发表于 2022-10-21 09:30
+入耳式耳机+隔音耳罩跟隔音房区别不大，单纯pgl耳机漏风
+
+妮看星际应该知道黄蛤蟆以前天天吹那个森海塞尔的 ...</blockquote>
+黄旭东吹的有毛用，去打过线下都懂，我听解说报战术听得清清楚楚。
+
+*****
+
+####  walfeds  
+##### 21585#       发表于 2022-10-21 09:33
+
+秘密把太多和比赛无关的东西带了进来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+值得尊敬的对手呢，救一下啊
+
+*****
+
+####  roxas.sora  
+##### 21586#       发表于 2022-10-21 09:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">报点也不是你打肉山明知道对面有na还不插真眼的理由吧，我懂了，一定是听到解说说对面不在肉山区附近所以大胆打！
+
+*****
+
+####  thistimeforlife  
+##### 21587#       发表于 2022-10-21 09:33
+
+投毒风云  报点传说 场外乐子是拉满了 办的也确实烂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+扣1支持小电锤送天鸽回家
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  勤练带来力量  
+##### 21588#       发表于 2022-10-21 09:33
+
+赫赫开黑一堆管人痴边看管人直播边打的
+
+*****
+
+####  Litccc  
+##### 21589#       发表于 2022-10-21 09:34
+
+赫赫开黑一堆管人痴边看管人直播边打的
+
+*****
+
+####  Keynes  
+##### 21590#       发表于 2022-10-21 09:35
+
+好气啊，eg要是听得懂英语也不至于被ta这种南美菜鸡暴打，为rtz割割不平
+
+*****
+
+####  情商  
+##### 21591#         楼主| 发表于 2022-10-21 09:35
+
+<blockquote>我从隔壁星际区来的，作为去过线下比赛的，我就说两点，1我算它隔音耳罩再牛逼，人是有骨传声的，音响够大，总能听到解说声音。2、DOTA2打起来不能和我们一样完全不开麦克风，必须开麦交流，没有隔音房，降噪再牛逼也不可能把解说声音去掉。</blockquote>经典nga起手送吗式啊
+
+*****
+
+####  nowaki  
+##### 21592#       发表于 2022-10-21 09:35
+
+哥们玩45一般是黑听管人歌回的，死了就说这波撞雾了快跑
+
+*****
+
+####  Rorgen  
+##### 21593#       发表于 2022-10-21 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018773&amp;ptid=2099454" target="_blank">Vacuolar 发表于 2022-10-21 09:33</a>
+黄旭东吹的有毛用，去打过线下都懂，我听解说报战术听得清清楚楚。</blockquote>
+问题是dota2没有隔音房靠隔音耳罩的比赛也举办了无数次，这是第一次有人反应能听到声音，那只能是pgl设备问题了，巧的是csgo那边出岔子的比赛同样是pgl出问题，就不要想当然了
+
+*****
+
+####  白野苍衣  
+##### 21594#       发表于 2022-10-21 09:36
+
+今年就这样吧  能进个前六就不错了  打不过也是技不如人 
+
+*****
+
+####  Vacuolar  
+##### 21595#       发表于 2022-10-21 09:36
+
+<blockquote>情商 发表于 2022-10-21 09:35
+经典nga起手送吗式啊</blockquote>
+我的隔壁是scboy论坛，你想的是什么
+
+*****
+
+####  情商  
+##### 21596#         楼主| 发表于 2022-10-21 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018832&amp;ptid=2099454" target="_blank">Vacuolar 发表于 2022-10-21 09:36</a>
+
+我的隔壁是scboy论坛，你想的是什么</blockquote>
+所以说经典送吗啊，开头表明自己与lgd无关，然后全文输出lgd如何不利
+
+*****
+
+####  S1水军  
+##### 21597#       发表于 2022-10-21 09:38
+
+说真的  TI1就他们隔音房了  ti11就大厅打 当时我看到就觉得 也太low了  V社预算被谁吃了
+
+*****
+
+####  银翼的维罗西  
+##### 21598#       发表于 2022-10-21 09:38
+
+哥们玩45一般是黑听管人歌回的，死了就说这波撞雾了快跑
+
+*****
+
+####  二宮飛鳥酱  
+##### 21599#       发表于 2022-10-21 09:38
+
+HOHO发微博了，国外三个置顶帖说隔音问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 21600#       发表于 2022-10-21 09:38
+
+哥们儿楼里抢红包的时候都听不清楚领导在上面说啥，可能这就是窝成为不了抢红包职业选手的理由
+
+
+
+*****
+
+####  Launce  
+##### 21601#       发表于 2022-10-21 09:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看管人直播其实问题不大，因为就一个声音，专注打起来下意识会忽略的，那些七嘴八舌的声音才是最顶的，更不要说在杂乱的环境里筛选有用的信息还得保持操作和沟通
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">隔音房最大效果还是屏蔽杂音，开黑突然来个电流声当场表演一个操作变形
+
+*****
+
+####  usoda  
+##### 21602#       发表于 2022-10-21 09:40
+
+“传闻fishman每天训练后都要一个人留下来练10分钟耳机砸F9”
+
+*****
+
+####  usoda  
+##### 21603#       发表于 2022-10-21 09:40
+
+超级假赛论坛 超级报点论坛 超级暂停论坛 还有没有新的花样？很是期待啊
+
+*****
+
+####  zhliiiii  
+##### 21604#       发表于 2022-10-21 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018691&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-21 09:28</a>
+
+怎么天天有人觉得cn区贡献最多奖金的。。。。。。。。。</blockquote>
+今年知乎假赛论（自以为）的最大论据就是本子收入大幅下降
+
+逻辑是：假赛-中国观众因为假赛都不充本子了-本子收入少了60%
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 21605#       发表于 2022-10-21 09:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">报点坑cn队的，ent侮辱rng的。。。nga到底收了水厂多少钱
+
+*****
+
+####  Litccc  
+##### 21606#       发表于 2022-10-21 09:42
+
+<img src="https://p.sda1.dev/7/0ba5dd836e66d177785203f48554bcb3/CMP_20221021094140421.jpg" referrerpolicy="no-referrer">
+
+我记得科比不是说那谁么
+
