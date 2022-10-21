@@ -6119,3 +6119,19 @@ gow2018的那些支线还可以吧，都做了点剧情
 
 隔壁ff16的新片直接放了，所以真就没有showcase了呗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉这作宣传也太低调了，剩下半个月就发售了怎么没怎么看到宣传
 
+
+
+*****
+
+####  clover293  
+##### 666#       发表于 2022-10-21 07:58
+
+都沦落到要艺术总监亲自发新图宣传了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 667#       发表于 2022-10-21 07:59
+
+妈的，索尼你就把cod让了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

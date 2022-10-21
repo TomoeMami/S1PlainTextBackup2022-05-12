@@ -12307,3 +12307,12 @@ hnn竟然组织活动了
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Suny08  
+##### 17629#       发表于 2022-10-21 07:56
+
+反正这次没有king我是真的嗑到了
+

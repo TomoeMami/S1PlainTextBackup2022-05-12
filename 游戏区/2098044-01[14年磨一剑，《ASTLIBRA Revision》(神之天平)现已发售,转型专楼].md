@@ -6877,3 +6877,14 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 沉迷了，两天打了十四个小时多，刚把第三章打完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lazycat233  
+##### 634#       发表于 2022-10-21 07:56
+
+准备全程最低难度了，后面有些boss是堆怪的打的真的难受，而且小怪还硬
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
