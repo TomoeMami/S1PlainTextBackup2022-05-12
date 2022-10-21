@@ -6186,3 +6186,15 @@ PDD多少钱？
 PDD多少钱？</blockquote>
 439
 
+
+
+*****
+
+####  rp1993  
+##### 673#       发表于 2022-10-21 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58023184&amp;ptid=2025548" target="_blank">医生狼多 发表于 2022-10-21 13:40</a>
+
+439</blockquote>
+只看到469的，是少了什么券么……
+
