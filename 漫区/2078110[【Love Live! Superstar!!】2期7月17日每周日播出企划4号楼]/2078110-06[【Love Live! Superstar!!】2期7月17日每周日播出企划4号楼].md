@@ -11365,3 +11365,17 @@ horipro 摩多摩多
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花田：我明明给你们换人复刻了可香，为什么会这样呢
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8544#       发表于 2022-10-21 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032505&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-21 23:32</a>
+
+经5ch提醒跑油管看了眼小星星，只能说……有些东西抛弃了，最终失去的可能比抛弃的更多，这真的值得吗？
+
+  ...</blockquote>
+咱们观众其实很难知道星这个企划现在到底是赚多赚少，如果它企划方确实感觉良好，优势在我，那么啥也不会改变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
