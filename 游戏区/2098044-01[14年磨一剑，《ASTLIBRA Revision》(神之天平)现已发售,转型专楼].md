@@ -6998,3 +6998,25 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 我猜是玩 ...</blockquote>
 为啥我吃了到时间直接gameover了 并没有触发成就啊
 
+
+
+*****
+
+####  casle  
+##### 644#       发表于 2022-10-21 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019239&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-21 10:01</a>
+
+你这是二周目限定吗，我打的时候那个黑色机甲开战之后都没有攻击判定的 ...</blockquote>
+我是第二次去未来要逃走的时候打的，应该不算二周目
+
+*****
+
+####  quanlix  
+##### 645#       发表于 2022-10-21 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019748&amp;ptid=2098044" target="_blank">casle 发表于 2022-10-21 10:29</a>
+
+我是第二次去未来要逃走的时候打的，应该不算二周目</blockquote>
+好吧，我以为是和阿斯特莱亚签契约那次
+
