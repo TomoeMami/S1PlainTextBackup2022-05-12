@@ -6129,3 +6129,229 @@ sg是这样的
 
 秘鲁哥脑浆玩不过ppy，输一把就该到点了
 
+
+
+*****
+
+####  thistimeforlife  
+##### 24798#       发表于 2022-10-21 19:32
+
+刀楼阿灵顿major就在畅想的 #杜鹏儿化龙 现在进度有20%了没有<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  horacio  
+##### 24799#       发表于 2022-10-21 19:32
+
+听到b叔说皮球的采访，去听了一遍，我决定相信茶
+
+*****
+
+####  nowaki  
+##### 24800#       发表于 2022-10-21 19:32
+
+你⚡️指⚡️尖⚡️跃⚡️动⚡️的⚡️电⚡️锤，是⚡️我⚡️此⚡️生⚡️不⚡️灭⚡️的⚡️信⚡️仰
+
+*****
+
+####  逃离二次元  
+##### 24801#       发表于 2022-10-21 19:33
+
+你⚡️指⚡️尖⚡️跃⚡️动⚡️的⚡️电⚡️锤，是⚡️我⚡️此⚡️生⚡️不⚡️灭⚡️的⚡️信⚡️仰
+
+*****
+
+####  萧千绝  
+##### 24802#       发表于 2022-10-21 19:33
+
+什么鬼？现场不隔音有人报点又是啥节奏
+
+*****
+
+####  Keynes  
+##### 24803#       发表于 2022-10-21 19:33
+
+你⚡️指⚡️尖⚡️跃⚡️动⚡️的⚡️电⚡️锤，是⚡️我⚡️此⚡️生⚡️不⚡️灭⚡️的⚡️信⚡️仰
+相信克神后天处刑猴爹！
+
+*****
+
+####  mizoh  
+##### 24804#       发表于 2022-10-21 19:33
+
+小泰迪和排卵粉真的一股味，好特么恶心
+
+*****
+
+####  Avantasi  
+##### 24805#       发表于 2022-10-21 19:35
+
+<blockquote>好想嗦xinq的沟壑
+
+这牛也太牛逼了 看麻了 </blockquote>
+
+太监牛的
+
+*****
+
+####  人別離苦  
+##### 24806#       发表于 2022-10-21 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">这也太恶心了
+
+*****
+
+####  反方向的波  
+##### 24807#       发表于 2022-10-21 19:37
+
+杜鹏今天手热，斯洛伐克宋淳也不差，感觉叶志标和北马其顿dota第一人的节奏对位是明天石头人茶这一组关键了
+
+p9？谁？
+
+*****
+
+####  -SLSL-  
+##### 24808#       发表于 2022-10-21 19:37
+
+管人吃就算了，楠桐也来？
+
+*****
+
+####  lmslardar  
+##### 24809#       发表于 2022-10-21 19:37
+
+明天茶是最后一场吧 上午不用看了休息一上午
+
+*****
+
+####  情商  
+##### 24810#         楼主| 发表于 2022-10-21 19:38
+
+男同四个吗
+
+
+
+*****
+
+####  ck4pa  
+##### 24811#       发表于 2022-10-21 19:38
+
+泰迪本来都悲情英雄了，硬是要回头舔一口畜搞南桐恶心人啊真是服了
+
+*****
+
+####  Rorgen  
+##### 24812#       发表于 2022-10-21 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58028992&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-21 19:37</a>
+杜鹏今天手热，斯洛伐克宋淳也不差，感觉叶志标和北马其顿dota第一人的节奏对位是明天石头人茶这一组关键了 ...</blockquote>
+看不起dota2职业赛场载具第一人？
+
+*****
+
+####  樱冢名月  
+##### 24813#       发表于 2022-10-21 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029009&amp;ptid=2099454" target="_blank">ck4pa 发表于 2022-10-21 19:38</a>
+
+泰迪本来都悲情英雄了，硬是要回头舔一口畜搞南桐恶心人啊真是服了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大概就是大家最喜欢的悲情英雄的恶堕吧
+
+*****
+
+####  蛭人  
+##### 24814#       发表于 2022-10-21 19:39
+
+看不起dota2职业赛场载具第一人？
+
+*****
+
+####  反方向的波  
+##### 24815#       发表于 2022-10-21 19:39
+
+所以妮们应该狠狠地把泰迪退役的舆论安排上，今天张天茖都已经采访里自顾自宣布霉鳖退役了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲真我昨天看到somnus out第一反应out卜是淘汰的意思么
+
+*****
+
+####  越动天下  
+##### 24816#       发表于 2022-10-21 19:39
+
+南通真的受不了了 别的都可以无所谓
+
+*****
+
+####  莉拉厨  
+##### 24817#       发表于 2022-10-21 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58028921&amp;ptid=2099454" target="_blank">thistimeforlife 发表于 2022-10-21 19:32</a>
+刀楼阿灵顿major就在畅想的 #杜鹏儿化龙 现在进度有20%了没有</blockquote>
+大概再比今天强20%就能进决赛，当然要夺冠最好还要有一个人劣势敢狂，ti8og的这个位置是1，雪碧的这个位置是2，阿茶的23不像是劣势敢冒着白给的风险去打开局势的类型，所以这个人就是你啦杜鹏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  魂断=血包win  
+##### 24818#       发表于 2022-10-21 19:41
+
+又搞南通又搞南通又搞南通
+
+—— 来自 HONOR KOZ-AL40, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  非建政专用号  
+##### 24819#       发表于 2022-10-21 19:41
+
+克里斯的大屁股能否也算成载具流中单
+
+*****
+
+####  fopinecone  
+##### 24820#       发表于 2022-10-21 19:42
+
+注：双修畜、假赛狗、管人痴、LGD粉、楠酮与毒狗不得入内
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  TI三冠王AME  
+##### 24821#       发表于 2022-10-21 19:42
+
+看看克里斯的拉丁风情大屁股<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 24822#       发表于 2022-10-21 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029057&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-21 19:40</a>
+
+大概再比今天强20%就能进决赛，当然要夺冠最好还要有一个人劣势敢狂，ti8og的这个位置是1，雪碧的这个位 ...</blockquote>
+想看到决赛XXS拿出猛犸梦回DAC圆梦。
+
+*****
+
+####  nowaki  
+##### 24823#       发表于 2022-10-21 19:42
+
+maybe一句话让我对他再无同情可言 滚得好
+
+*****
+
+####  恐怖利刃  
+##### 24824#       发表于 2022-10-21 19:42
+
+不是致敬曼巴奥特吗
+
+*****
+
+####  外挂全家脚气  
+##### 24825#       发表于 2022-10-21 19:42
+
+<blockquote>刚刚老鼠台主持人采访面八，你为什么要选小黑配合死灵龙这种我都能想出来的组合呢？
+
+面八回答：因为我听到你们后台在讲选小黑就选了。</blockquote>
+这尼玛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

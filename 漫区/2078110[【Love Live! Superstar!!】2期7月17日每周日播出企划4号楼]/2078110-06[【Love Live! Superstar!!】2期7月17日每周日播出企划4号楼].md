@@ -11268,3 +11268,16 @@ horipro 摩多摩多
 
 啊，鲤鱼的初辣鸡也开始收费收听了
 
+
+
+*****
+
+####  愛さ実  
+##### 8536#       发表于 2022-10-21 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58027967&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-21 18:32</a>
+啊，鲤鱼的初辣鸡也开始收费收听了</blockquote>
+付费的有额外内容
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
