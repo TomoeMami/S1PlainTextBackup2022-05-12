@@ -7851,3 +7851,12 @@ boss掉下去应该是bug，我这火属性大招的替换版也会因为这个b
 
 后面哪章还有个挑战送更高级的厨艺合成书
 
+
+
+*****
+
+####  A1LI  
+##### 718#       发表于 2022-10-22 00:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光剑到手时间太晚了，都没刷出来几个高级盘就直接打boss了。
+

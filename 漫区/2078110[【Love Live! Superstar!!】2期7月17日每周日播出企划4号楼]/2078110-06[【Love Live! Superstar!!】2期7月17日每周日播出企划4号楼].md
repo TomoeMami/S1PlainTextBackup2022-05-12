@@ -11418,3 +11418,33 @@ TYMM好像瘦了，未来可期
 
 这个figma也咕咕够久的了，貌似用疫情当原因推了两次了，8月推到11月
 
+
+
+*****
+
+####  nufawneafg  
+##### 8549#       发表于 2022-10-22 00:28
+
+ 本帖最后由 nufawneafg 于 2022-10-22 00:32 编辑 
+
+不用正收益啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+榨取ip价值哪来正的负的一说，只要尽快变现ip价值就行了，怎么快怎么高效转化怎么来，kpi以外名声啊感受啥的都是虚的，自我感动能来快钱吗，很难的啦，逮着一个变现点造就完事了。
+至于什么五年十年后都是另一批人操作另一批人看了，哪用的上现在这批人操心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 8550#       发表于 2022-10-22 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032895&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-22 00:10</a>
+
+赚应该还是有赚的，问题是，他原本可以多赚粉丝几份钱，照着可香那个质量也可以多赚几波cp粉的钱，但他们为 ...</blockquote>
+咱们确实是这么想的，可是它企划方或许可能一开始没这么想过
+
+口嗨一点：
+以前也看过一些小分析，就拿现在“香音传”来说，它企划方力捧Leader位，大概是给观众树立个榜样，可能看动画的青少年一些对企划的憧憬之类的东西，毕竟Leader是海选出来的，这就传递了一个一个“大家都可以追梦”的信号，或者说星团现在可能是为以后的海选之类的做人才储备<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+三期生这个海选消息出来，个人有点“香音传”就有点这个意思在里面了
+
+当然“香音传”很明显的弊端就是献祭其他角色，究竟这样值不值，咱们观众现在还是很难看清楚
+
