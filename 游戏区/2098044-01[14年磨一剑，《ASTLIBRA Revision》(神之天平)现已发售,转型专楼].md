@@ -7860,3 +7860,19 @@ boss掉下去应该是bug，我这火属性大招的替换版也会因为这个b
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">光剑到手时间太晚了，都没刷出来几个高级盘就直接打boss了。
 
+
+
+*****
+
+####  何处分可  
+##### 719#       发表于 2022-10-22 00:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">第三章大眼球boss咋打
+
+*****
+
+####  希克苏鲁伯  
+##### 720#       发表于 2022-10-22 00:51
+
+几个神有什么挑战顺序吗，战神和画里的神打了，剩下的不知道好不好打
+

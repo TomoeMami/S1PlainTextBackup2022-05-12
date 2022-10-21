@@ -12364,3 +12364,14 @@ hnn竟然组织活动了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">这是怎么搭上关系的
 
+
+
+*****
+
+####  fastary  
+##### 17633#       发表于 2022-10-22 00:45
+
+看黛灰毕业后好几个liver都提到有交流就是fwgs没提还以为最后一个月燃尽了，暂时没什么交流友谊的意欲了。
+
+没想到这么快就有新的供给还实现了冲绳旅行(虽然只是fwgs+教练各自请假然后不约而同发了冲绳的图)<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">感觉我又是贴贴mmr了
+

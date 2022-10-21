@@ -6601,3 +6601,19 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 
 不会就多了一把武器吧，说不过去啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猫不萌  
+##### 718#       发表于 2022-10-22 00:41
+
+能给点boss战信息就好了，希望能全有陌生人水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Fuero  
+##### 719#       发表于 2022-10-22 00:41
+
+我迫不及待想耍锤子了！！
+
