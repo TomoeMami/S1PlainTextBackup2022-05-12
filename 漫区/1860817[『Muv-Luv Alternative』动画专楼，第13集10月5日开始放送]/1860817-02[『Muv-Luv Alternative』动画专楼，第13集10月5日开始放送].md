@@ -160,3 +160,12 @@
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  小松莉奈  
+##### 1945#       发表于 2022-10-21 15:15
+
+小麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">下一话就该日记了，不过这文戏还是不指望能做好了。这么赶估计下一话最后就回归了。
+
