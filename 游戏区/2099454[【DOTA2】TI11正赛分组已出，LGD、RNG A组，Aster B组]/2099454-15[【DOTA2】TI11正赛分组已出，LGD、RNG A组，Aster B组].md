@@ -7954,3 +7954,321 @@ taiga不服“再给我一次神谕，相信我”
 
 TA冠军相啊
 
+
+
+*****
+
+####  莉拉厨  
+##### 21945#       发表于 2022-10-21 11:13
+
+马西兽都放了og不会还输了吧，那确实是技不如人了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  吃货红毛  
+##### 21946#       发表于 2022-10-21 11:14
+
+兽加玛西还行 胜率溢出
+
+*****
+
+####  勤练带来力量  
+##### 21947#       发表于 2022-10-21 11:14
+
+哇不会是批九的中单sb吧
+
+*****
+
+####  AIDSL  
+##### 21948#       发表于 2022-10-21 11:15
+
+前面两位被光速打脸…………
+
+OG是真被人看扁了啊，不过没差，这队我就对bzm有好感。
+
+*****
+
+####  w2210059  
+##### 21949#       发表于 2022-10-21 11:15
+
+这个jb神谕有个屁用，为啥这么爱选？
+
+*****
+
+####  哈曼的YY  
+##### 21950#       发表于 2022-10-21 11:15
+
+ogban尸王末日什么操作
+
+*****
+
+####  Rorgen  
+##### 21951#       发表于 2022-10-21 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020605&amp;ptid=2099454" target="_blank">AIDSL 发表于 2022-10-21 11:10</a>
+这个说法能解释第一个，但解释不了明鞭为什么打得屎
+
+他又不是对线烂的选手，但是我看人拉片，1级跟小小配 ...</blockquote>
+那个应该是单纯小组赛第一天状态差吧，我记得他天梯死灵龙还是很厉害的
+
+*****
+
+####  nxmonitor  
+##### 21952#       发表于 2022-10-21 11:15
+
+怎么现在还有人选猴子的啊，这不是又要被推平了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  草海灭巨  
+##### 21953#       发表于 2022-10-21 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020478&amp;ptid=2099454" target="_blank">UnhappyTails 发表于 2022-10-21 11:05</a>
+以后能不能都别在b站播了，这豪华阵容我真消受不起了
+
+主舞台难民一大堆，去zdgy那里杰/在吹自己比og职业选 ...</blockquote>
+建议看youc的
+8000分大神，无论是bp还是局势的解读都很到位，专业性完爆解说，而且人不多不少没什么节奏也不至于太冷清
+唯一缺点是这个主播是个lxo铁集美，看他解说lgd的比赛可能会让楼友不适<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 21954#       发表于 2022-10-21 11:16
+
+bzm是真得感觉og里唯一一个想赢比赛的，其他人都是想自己咋玩得舒服咋玩
+
+*****
+
+####  Rorgen  
+##### 21955#       发表于 2022-10-21 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020697&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-21 11:15</a>
+ogban尸王末日什么操作</blockquote>
+尸王怕劣势路被打烂，末日是33胜率非常高的英雄
+
+*****
+
+####  蜜汁鸡  
+##### 21956#       发表于 2022-10-21 11:17
+
+败者组 雪碧优势鳖死自己，fnc阵容蠢到家。
+
+*****
+
+####  Rorgen  
+##### 21957#       发表于 2022-10-21 11:17
+
+哦牛批，og死都不ban娜迦混沌，tundra的牌真的比你想象的多
+
+*****
+
+####  哈曼的YY  
+##### 21958#       发表于 2022-10-21 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020709&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-21 11:16</a>
+
+尸王怕劣势路被打烂，末日是33胜率非常高的英雄</blockquote>
+结果又放死灵龙<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 21959#       发表于 2022-10-21 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020379&amp;ptid=2099454" target="_blank">夏溪澪mio 发表于 2022-10-21 11:57</a>
+
+冰蛙是怎么削的，明明雪碧逆版本major夺冠，怎么这版本major前三都不太行了
+
+—— 来自 Xiaomi Mi 10, Andr ...</blockquote>
+说是雪碧逆版本，实际上版本比赛的节奏还是他们很喜欢的，而且英雄池上没怎么影响1，2，顶多就是让崩溃学学**电棍，以崩溃的手活跟脑子，学这些还是简单的
+
+这版本一来是滚雪球速度快，雪碧老一套避战躲着刷拼一波机会就不行了。你之前刷20分钟还能在2塔打一波，现在20分钟你就高地上见面了。
+
+再加上夺冠放假，准备必然不足，就是等死了，要说这届才是真逆版本，因为版本打法就counter了，这比几个英雄削弱更致命   
+
+*****
+
+####  UnhappyTails  
+##### 21960#       发表于 2022-10-21 11:17
+
+这个ti办的确实不如major，包括主流平台只有b站能播也是不如major的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+看老鼠台去了，爷不伺候了
+
+
+
+*****
+
+####  roxas.sora  
+##### 21961#       发表于 2022-10-21 11:17
+
+石头人这阵容会不会伤害低了点前期
+
+*****
+
+####  izayoi39  
+##### 21962#       发表于 2022-10-21 11:18
+
+fnc那阵容可不蠢，输了纯粹是fnc的手活太烂了被对面硬靠肌肉打出来奇迹团
+
+*****
+
+####  安斧天高辽  
+##### 21963#       发表于 2022-10-21 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018653&amp;ptid=2099454" target="_blank">johnwick 发表于 2022-10-21 09:26</a>
+
+如果是CN办的比赛出现这种情况，即使CN夺冠我也不会为他们感到高兴，而是觉得这是一种耻辱，靠作弊拿到的冠 ...</blockquote>
+SM的集美又来发癫是吧
+
+*****
+
+####  iceplatinum  
+##### 21964#       发表于 2022-10-21 11:18
+
+感觉石头人到点了，这阵容打个鬼
+
+*****
+
+####  越动天下  
+##### 21965#       发表于 2022-10-21 11:19
+
+这个是og好一些
+
+*****
+
+####  北条早苗  
+##### 21966#       发表于 2022-10-21 11:19
+
+p9也开始艺术起来了
+
+*****
+
+####  Rorgen  
+##### 21967#       发表于 2022-10-21 11:19
+
+不是og乱选？
+
+*****
+
+####  米德  
+##### 21968#       发表于 2022-10-21 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这石头人什么勾八阵容啊
+
+*****
+
+####  syndrome2032  
+##### 21969#       发表于 2022-10-21 11:19
+
+马西也要给米神玩吗?
+
+*****
+
+####  seki_m  
+##### 21970#       发表于 2022-10-21 11:19
+
+猴子这版本就是沙壁英雄，相信king
+
+*****
+
+####  IG.430  
+##### 21971#       发表于 2022-10-21 11:19
+
+顶着小牛选猴子何意啊
+
+*****
+
+####  为了mf注册  
+##### 21972#       发表于 2022-10-21 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020747&amp;ptid=2099454" target="_blank">安斧天高辽 发表于 2022-10-21 11:18</a>
+
+SM的集美又来发癫是吧</blockquote>
+他是复制上面的nga里的发言
+
+*****
+
+####  izayoi39  
+##### 21973#       发表于 2022-10-21 11:20
+
+og唯一赢的方法我只想到bzm被普森上身把对面杀穿，og这阵容速度也太慢了，又要被石头人抓着全图撵了
+
+*****
+
+####  米德  
+##### 21974#       发表于 2022-10-21 11:20
+
+哦不对 og阵容也很搞
+
+*****
+
+####  Rorgen  
+##### 21975#       发表于 2022-10-21 11:20
+
+tundra看出来妮优势路的软肋，直接自信一二手连点pom保vis肯定能无解肥，后面就随便选选了
+og这五号位马西，猴子，伐木机，不知道在选个什么jb
+
+*****
+
+####  勤练带来力量  
+##### 21976#       发表于 2022-10-21 11:20
+
+中单sb都玩起来了
+
+*****
+
+####  哈曼的YY  
+##### 21977#       发表于 2022-10-21 11:21
+
+伐木机打3个力量英雄有说法吗
+
+*****
+
+####  nxmonitor  
+##### 21978#       发表于 2022-10-21 11:21
+
+FNC的阵容选了火枪，那就天生就容易被翻盘，而且出装有很严重的问题，银月冰眼这是在虐菜吗？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 21979#       发表于 2022-10-21 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020784&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-21 11:20</a>
+og唯一赢的方法我只想到bzm被普森上身把对面杀穿，og这阵容速度也太慢了，又要被石头人抓着全图撵了 ...</blockquote>
+bzm是普森非常看好的选手，自愿退位让贤的
+然后反手给秘密推荐水晶，真的卜基德
+
+*****
+
+####  FBIwarning  
+##### 21980#       发表于 2022-10-21 11:21
+
+<img src="https://img.saraba1st.com/forum/202210/21/112155hl0cybpx8tkcok7k.png" referrerpolicy="no-referrer">
+
+<strong>1666322357177611.png</strong> (87.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 11:21 上传
+
+*****
+
+####  没钱买手办  
+##### 21981#       发表于 2022-10-21 11:22
+
+刚来，这把是2009的中单白牛吗
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  越动天下  
+##### 21982#       发表于 2022-10-21 11:22
+
+反正我觉得og这个对线比上把好 两边中单都是节奏 我相信bzm
+

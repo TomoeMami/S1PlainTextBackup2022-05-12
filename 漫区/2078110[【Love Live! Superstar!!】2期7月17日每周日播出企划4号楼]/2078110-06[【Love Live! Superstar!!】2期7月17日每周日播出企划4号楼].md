@@ -11120,3 +11120,42 @@ horipro 摩多摩多
 
 好多广播，明年的活也好多
 
+
+
+*****
+
+####  优妮可  
+##### 8527#       发表于 2022-10-21 11:14
+
+<img src="https://img.saraba1st.com/forum/202210/21/111408mayivvviqeiuyyec.jpg" referrerpolicy="no-referrer">
+
+<strong>20221021_111202.jpg</strong> (461.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 11:14 上传
+
+*****
+
+####  starring  
+##### 8528#       发表于 2022-10-21 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020442&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-21 11:03</a></blockquote>
+星和蝶同台啊（怎么老是和谷山纪章同台
+
+*****
+
+####  Piano-Forest  
+##### 8529#       发表于 2022-10-21 11:18
+
+【表紙初公開】
+
+電撃G’sマガジン12月号は10月28日（金）発売です。
+
+『ラブライブ！スーパースター!!』表紙＆巻頭特集第４弾として米女メイ＆若菜四季が表紙を飾ります
+
+付録はポスター2枚！
+
+表紙の米女メイ＆若菜四季と人気コーナー「Liella! Pick Up Style」の葉月 恋＆若菜四季
+<img src="https://p.sda1.dev/7/ce94fdf5166c572fa1b89bcca18c1bae/20221021_111658.jpg" referrerpolicy="no-referrer">
+
