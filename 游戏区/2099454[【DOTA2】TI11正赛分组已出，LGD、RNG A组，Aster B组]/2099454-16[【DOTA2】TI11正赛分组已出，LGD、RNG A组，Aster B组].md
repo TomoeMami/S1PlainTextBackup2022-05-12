@@ -8218,3 +8218,332 @@ EG年提前过年了
 
 准备进入 我请莫言帮个忙 环节
 
+
+
+*****
+
+####  百世诸侯  
+##### 23578#       发表于 2022-10-21 15:52
+
+写在a畜回家前一个小时
+
+*****
+
+####  Rorgen  
+##### 23579#       发表于 2022-10-21 15:52
+
+但是冷知识，wisper小组赛拿三号位火猫宰了一把猪
+
+*****
+
+####  nightmare902015  
+##### 23580#       发表于 2022-10-21 15:53
+
+这版本龙骑是什么废物点心，就会变个龙
+
+
+
+*****
+
+####  zhliiiii  
+##### 23581#       发表于 2022-10-21 15:53
+
+可不敢乱说
+
+*****
+
+####  walfeds  
+##### 23582#       发表于 2022-10-21 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025358&amp;ptid=2099454" target="_blank">RaibowDash 发表于 2022-10-21 15:51</a>
+
+可惜现在没人选龙骑了，不然出个A杖绝对能把液体4号位关了</blockquote>
+妮也是百世诸侯？
+
+*****
+
+####  Crazy_Knife  
+##### 23583#       发表于 2022-10-21 15:53
+
+他吊他是wisper，你菜你是大床神啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 23584#       发表于 2022-10-21 15:53
+
+哦牛逼，会变龙还不够是吧。
+
+*****
+
+####  azccc52  
+##### 23585#       发表于 2022-10-21 15:54
+
+误入此楼
+
+*****
+
+####  反方向的波  
+##### 23586#       发表于 2022-10-21 15:55
+
+mybed上一把比鸽鸽垃圾多了，前面死得像bot一样直接把雪球滚起来了
+
+*****
+
+####  勤练带来力量  
+##### 23587#       发表于 2022-10-21 15:55
+
+误入此楼
+
+*****
+
+####  南风尧  
+##### 23588#       发表于 2022-10-21 15:55
+
+演SQ的偿还吗 
+
+*****
+
+####  人別離苦  
+##### 23589#       发表于 2022-10-21 15:56
+
+误入此楼
+
+*****
+
+####  星野航  
+##### 23590#       发表于 2022-10-21 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025346&amp;ptid=2099454" target="_blank">河水 发表于 2022-10-21 16:51</a>
+
+推进版本，老vg的精神传承，rotk的体系真核，骄阳他能做到吗？</blockquote>
+只要monet不像油神一样迷失，骄阳保持水平我看行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  Cookiekira  
+##### 23591#       发表于 2022-10-21 15:56
+
+误入此楼
+
+*****
+
+####  迷途lite  
+##### 23592#       发表于 2022-10-21 15:56
+
+误入此楼
+
+*****
+
+####  zhliiiii  
+##### 23593#       发表于 2022-10-21 15:56
+
+我们误会泰迪了
+刀塔 153 28 分钟前  
+仔细分析泰迪那句话，其实很不自然。
+jiayou a chun yu
+
+疑点1 没有儿化音
+总所周知 泰迪是老百京，所以应该打 jia er you er a er chun er yu er
+疑点2 打完马上排天梯
+输了应该难受，为什么马上酬勤？
+疑点3 这句话里面其实隐藏了 jiayou a chun yu。
+
+所以这句话 隐含了大量的信息。经过我分析后，重新断句和组合后是
+
+ya jun  i  you achu 
+亚军哎，有achu
+所以破案了，这句话真正含义是提醒同一场天梯里的量子边和马来猴王，让他们小心achu
+不知道他们破译出来吗？有他们联系方式的去提醒一下 谢谢
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 3376653378| + 1|欢乐多|
+
+查看全部评分
+
+*****
+
+####  roxas.sora  
+##### 23594#       发表于 2022-10-21 15:57
+
+好好看比赛，别乱讲话，不要命了
+
+*****
+
+####  Crazy_Knife  
+##### 23595#       发表于 2022-10-21 15:57
+
+卧槽，看了眼刚把这把火猫加上去胜率顺利跌破了30%<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 23596#       发表于 2022-10-21 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025444&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-21 15:56</a>
+
+我们误会泰迪了
+
+刀塔 153 28 分钟前  
+
+仔细分析泰迪那句话，其实很不自然。</blockquote>
+笑了，油菜花。
+
+*****
+
+####  尖刺外婆  
+##### 23597#       发表于 2022-10-21 15:58
+
+龙骑的问题是小鱼人太火，卜过这届应该能上场，先手，半个物理输出和推进点。
+比如秘密石头人这种队中路放个影魔lina老鹿，优势路摆个doom死灵龙，三号位龙骑，阵容就很立体
+
+*****
+
+####  情商  
+##### 23598#         楼主| 发表于 2022-10-21 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025444&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-21 15:56</a>
+我们误会泰迪了
+刀塔 153 28 分钟前  
+仔细分析泰迪那句话，其实很不自然。</blockquote>
+正确的
+
+*****
+
+####  火鸡味锅巴  
+##### 23599#       发表于 2022-10-21 15:58
+
+ti不存在的英雄就不必讨论了，丢人
+
+*****
+
+####  非建政专用号  
+##### 23600#       发表于 2022-10-21 15:58
+
+尊重窝克不尊重wisper？妮是不知道输给谁阿
+
+*****
+
+####  迷途lite  
+##### 23601#       发表于 2022-10-21 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025444&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-21 15:56</a>
+我们误会泰迪了
+刀塔 153 28 分钟前  
+仔细分析泰迪那句话，其实很不自然。</blockquote>
+是要中科院密码所的联系方式吗
+
+*****
+
+####  反方向的波  
+##### 23602#       发表于 2022-10-21 15:58
+
+eg连续三把输南美的小小了，痔将fly还ban卜ban呢
+
+*****
+
+####  Kazepollar  
+##### 23603#       发表于 2022-10-21 15:59
+
+诶，龙骑也是哥们儿曾经最爱的英雄。一手选出来主皮，突出一个混到死
+
+*****
+
+####  憧憬鲨  
+##### 23604#       发表于 2022-10-21 15:59
+
+OK床仔不会真以为我克很强吧
+
+*****
+
+####  非建政专用号  
+##### 23605#       发表于 2022-10-21 16:00
+
+哥们酱油龙骑，主打一个和对面健身教练对练<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 23606#       发表于 2022-10-21 16:00
+
+完了完了，bc给克神选老鹿了，这不得刷死全队
+
+*****
+
+####  seki_m  
+##### 23607#       发表于 2022-10-21 16:00
+
+一手谷，被反手ban影魔拿拉席克<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 23608#       发表于 2022-10-21 16:00
+
+龙骑摸一个怨灵之契也够垃圾的。无论二三，更优秀的选择太多了。
+
+*****
+
+####  FBIwarning  
+##### 23609#       发表于 2022-10-21 16:01
+
+败者组也bo3了？到底是怎样的赛制
+
+*****
+
+####  非建政专用号  
+##### 23610#       发表于 2022-10-21 16:01
+
+窝克就是bc最大的障眼法
+
+
+
+*****
+
+####  adretyu67  
+##### 23611#       发表于 2022-10-21 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025501&amp;ptid=2099454" target="_blank">FBIwarning 发表于 2022-10-21 16:01</a>
+
+败者组也bo3了？到底是怎样的赛制</blockquote>
+败者组第一轮bo1，其他全部bo3啊
+
+*****
+
+####  非建政专用号  
+##### 23612#       发表于 2022-10-21 16:01
+
+败者第一轮bo1，第二轮开始bo3
+
+*****
+
+####  Rorgen  
+##### 23613#       发表于 2022-10-21 16:01
+
+eg全队加起来懂克水平不如本楼平均
+
+*****
+
+####  情商  
+##### 23614#         楼主| 发表于 2022-10-21 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025501&amp;ptid=2099454" target="_blank">FBIwarning 发表于 2022-10-21 16:01</a>
+败者组也bo3了？到底是怎样的赛制</blockquote>
+败者组第一轮bo1不都好几年这样了吗
+
+*****
+
+####  没钱买手办  
+##### 23615#       发表于 2022-10-21 16:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">败者组第一轮bo1，决赛bo5，其余全bo3
+
+不会是第一次云比赛吧
+
