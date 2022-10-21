@@ -2636,3 +2636,60 @@ job子用电钻自紧这一下好帅，自己用的时候从来都是老老实�
 
 —— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Piano-Forest  
+##### 218#         楼主| 发表于 2022-10-21 22:43
+
+[https://twitter.com/VintageSwaro109/status/1582773344189157376](https://twitter.com/VintageSwaro109/status/1582773344189157376)
+
+#DIYアニメ  
+
+ぷりんの部屋の窓辺にあるウィンドチャイムラフ画と、ボツのラフ画
+
+たくみが作っていたのは
+
+ロープ編みで作るハンギング
+
+これはとっても簡単に作れるので、みんなに作って欲しいな 可愛のだよ
+
+(ロープ編みは私のYouTubeに応用編あります↓↓↓)
+[https://youtu.be/rjHQ6Ce2JFc](https://youtu.be/rjHQ6Ce2JFc)
+<img src="https://p.sda1.dev/7/a870ca356e0acfd94f6bbbab72ecda03/20221021_223939.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/ff08dd35f96cbd8d703dccd41a8234b3/20221021_223942.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/14054846e11f2af7fd375868fac8fb94/20221021_223944.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/73705d92e74d5e31603cc18a9e02dd05/20221021_223946.jpg" referrerpolicy="no-referrer">
+
+ガラス塗料で緑にした丸い器を入れると
+
+海の浮き玉のような雰囲気になります
+<img src="https://p.sda1.dev/7/2e8eded3b4670f92e2bbcc798ff53cc5/20221021_223953.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/VintageSwaro109/status/1582961787271806976](https://twitter.com/VintageSwaro109/status/1582961787271806976)
+
+Do It Yourself!! -どぅー・いっと・ゆあせるふ- 
+
+第1話(すてっぷ①)のブックスタンドの
+
+ラフ画、設計、こんな感じでデザインしたり、設計したりしました
+<img src="https://p.sda1.dev/7/2828400a8fcf4789e90cf10be0847878/20221021_223957.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/6540677f48d5f5a22d4ca0d18cbba9b6/20221021_223958.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/bb22870c6145d00db12b4d2a6b194a37/20221021_223959.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/54fc452fce56dfcfe77e4d733c95dfe0/20221021_224000.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/VintageSwaro109/status/1583090899932057601](https://twitter.com/VintageSwaro109/status/1583090899932057601)
+
+#DIYアニメ 
+
+DIY部の看板は、私の思入れのあるデザインです
+
+せるふ達ならどんな材料を使うだろうか？
+
+どんな色を選ぶだろうか？
+
+女子校のDIY部ならではの看板にしたくて、何日も何日も書いては消して、やっと｢これだ！｣という看板のデザインが出来上がりました。
+<img src="https://p.sda1.dev/7/a1a81f9430dbcfc9cc0babe4bc1623bc/20221021_224004.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/a9bda46d4ee460661b063403abb146a2/20221021_224005.jpg" referrerpolicy="no-referrer">
+

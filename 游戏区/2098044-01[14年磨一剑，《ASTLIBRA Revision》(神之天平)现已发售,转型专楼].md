@@ -7778,3 +7778,22 @@ WIKI网址是啥，想看看漏的小徽章在哪
 海蛇洞穴里面那四个红色灯球是什么解谜，里面是小徽章么，</blockquote>
 不是，就开个快捷门，顺序是1221还是2112我忘了，设置好了按开关就行。
 
+
+
+*****
+
+####  九门惠  
+##### 711#       发表于 2022-10-21 22:33
+
+boss掉下去应该是bug，我这火属性大招的替换版也会因为这个bug完全没法用<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  后会莫急  
+##### 712#       发表于 2022-10-21 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031768&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-21 22:25</a>
+
+海蛇洞穴里面那四个红色灯球是什么解谜，里面是小徽章么，</blockquote>
+扑克牌，四种花色
+
