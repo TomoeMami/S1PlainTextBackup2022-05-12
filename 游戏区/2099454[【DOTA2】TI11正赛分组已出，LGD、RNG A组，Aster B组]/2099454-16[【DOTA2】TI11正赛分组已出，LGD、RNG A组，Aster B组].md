@@ -7923,3 +7923,298 @@ wisper：简简单单宰个猪
 
 所以剃头真的有用吗
 
+
+
+*****
+
+####  fopinecone  
+##### 23542#       发表于 2022-10-21 15:44
+
+你⚡️指⚡️尖⚡️跃⚡️动⚡️的⚡️电⚡️锤，是⚡️我⚡️此⚡️生⚡️不⚡️灭⚡️的⚡️信⚡️仰
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Asukalangley33  
+##### 23543#       发表于 2022-10-21 15:44
+
+今年看来很忌讳打鳖式DOTA
+
+能推起来是最叼的阵容，次一档是打架+推进
+
+再次是团战体系，最菜的就是鳖式反击
+
+*****
+
+####  JoelBirch  
+##### 23544#       发表于 2022-10-21 15:44
+
+我觉得剃头还是有用的，但当和尚不能破淫戒吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xuzy0919  
+##### 23545#       发表于 2022-10-21 15:44
+
+我早就是南美doto粉了
+
+*****
+
+####  adretyu67  
+##### 23546#       发表于 2022-10-21 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025224&amp;ptid=2099454" target="_blank">Suny08 发表于 2022-10-21 15:43</a>
+
+所以剃头真的有用吗</blockquote>
+第一个剃头的是天才-yatoro
+
+第二个是庸才-skem
+
+第三个是蠢才-rtz
+
+*****
+
+####  情商  
+##### 23547#         楼主| 发表于 2022-10-21 15:44
+
+旎站真是畜生啊，你推流了nmlgb
+
+*****
+
+####  seki_m  
+##### 23548#       发表于 2022-10-21 15:44
+
+今年剃头，致敬鸭头肉和致敬油垃圾选一个吧
+
+*****
+
+####  lyjssj  
+##### 23549#       发表于 2022-10-21 15:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剃头了比赛也输了，更悲惨的是冬天马上要来了，不戴帽子天天头疼
+
+*****
+
+####  Sayuki1025  
+##### 23550#       发表于 2022-10-21 15:45
+
+dy气的把粉丝群解散了 是真的吗
+
+
+
+*****
+
+####  nightmare902015  
+##### 23551#       发表于 2022-10-21 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025247&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-21 15:44</a>
+
+第一个剃头的是天才-yatoro
+
+第二个是庸才-skem
+
+第三个是蠢才-rtz</blockquote>
+那TI淘汰赛上第一个波高的水人——？
+
+第二个波高的水人——？
+
+第三个波高的水人——？（出现了没啊）
+
+*****
+
+####  憧憬鲨  
+##### 23552#       发表于 2022-10-21 15:45
+
+RTZ，你永远不如Fear，记住是永远！
+
+*****
+
+####  蛭人  
+##### 23553#       发表于 2022-10-21 15:45
+
+我在老鼠台，大家都在嘲笑EG。
+
+*****
+
+####  情商  
+##### 23554#         楼主| 发表于 2022-10-21 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025263&amp;ptid=2099454" target="_blank">Sayuki1025 发表于 2022-10-21 15:45</a>
+
+dy气的把粉丝群解散了 是真的吗</blockquote>
+聊液体四号位被举报了
+
+*****
+
+####  百世诸侯  
+##### 23555#       发表于 2022-10-21 15:46
+
+不是，是群里有人带液体四号位节奏被举报炸群了
+
+*****
+
+####  反方向的波  
+##### 23556#       发表于 2022-10-21 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025263&amp;ptid=2099454" target="_blank">Sayuki1025 发表于 2022-10-21 15:45</a>
+dy气的把粉丝群解散了 是真的吗</blockquote>
+两把液体4号位名字刷太多了炸了
+
+三国杀核心群还是没有事的
+
+*****
+
+####  snarc1  
+##### 23557#       发表于 2022-10-21 15:46
+
+巴巴耶夫中亚血统，冬天不慌
+
+*****
+
+####  Sayuki1025  
+##### 23558#       发表于 2022-10-21 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025275&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-21 15:45</a>
+
+聊液体四号位被举报了</blockquote>
+这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 23559#       发表于 2022-10-21 15:47
+
+全场光头给rtz聚元气弹是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 23560#       发表于 2022-10-21 15:47
+
+黑话，撤！
+
+*****
+
+####  万世创伤伊莫库  
+##### 23561#       发表于 2022-10-21 15:48
+
+其实EG这把也不算纯鳖式阵容，主要是前面优势路裂开，中期火猫声音应该最大的时候又接连暴毙，直接就僵住了
+
+*****
+
+####  没钱买手办  
+##### 23562#       发表于 2022-10-21 15:48
+
+液体四号位，牛逼，还有这种黑话
+
+*****
+
+####  憧憬鲨  
+##### 23563#       发表于 2022-10-21 15:49
+
+这把不是子龙把myboy的头皮都啃下来了
+
+*****
+
+####  fananaf  
+##### 23564#       发表于 2022-10-21 15:49
+
+火猫这英雄淘汰赛开始没赢过吧
+
+*****
+
+####  walfeds  
+##### 23565#       发表于 2022-10-21 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还公开处刑ppd的
+
+*****
+
+####  Rorgen  
+##### 23566#       发表于 2022-10-21 15:50
+
+猴爹的棺材板帕克火猫现在都是垃圾英雄
+
+*****
+
+####  trackerList  
+##### 23567#       发表于 2022-10-21 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">twitch直接处刑eg了呀
+
+嘴上不基德迟早要付出代价的
+
+*****
+
+####  樱冢名月  
+##### 23568#       发表于 2022-10-21 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这EG感觉是一蹦到底啊。到底在搞毛
+
+*****
+
+####  adretyu67  
+##### 23569#       发表于 2022-10-21 15:50
+
+就看王八会不会奖励猴爹火枪火女了
+
+*****
+
+####  河水  
+##### 23570#       发表于 2022-10-21 15:51
+
+推进版本，老vg的精神传承，rotk的体系真核，骄阳他能做到吗？
+
+*****
+
+####  憧憬鲨  
+##### 23571#       发表于 2022-10-21 15:51
+
+EG年提前过年了
+
+*****
+
+####  非建政专用号  
+##### 23572#       发表于 2022-10-21 15:51
+
+卜是我克神给子龙让经济，能有这发挥<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RaibowDash  
+##### 23573#       发表于 2022-10-21 15:51
+
+可惜现在没人选龙骑了，不然出个A杖绝对能把液体4号位关了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 23574#         楼主| 发表于 2022-10-21 15:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025333&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-21 15:49</a>
+
+怎么还公开处刑ppd的</blockquote>
+来图看看
+
+*****
+
+####  ののワ  
+##### 23575#       发表于 2022-10-21 15:51
+
+演SQ偿还了，下把NAGA荣耀
+
+*****
+
+####  Crazy_Knife  
+##### 23576#       发表于 2022-10-21 15:51
+
+火猫这傻逼英雄现在凭啥声音大，这次tiban选都不少，胜率刚过30，突出一个没卵用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 23577#       发表于 2022-10-21 15:51
+
+准备进入 我请莫言帮个忙 环节
+

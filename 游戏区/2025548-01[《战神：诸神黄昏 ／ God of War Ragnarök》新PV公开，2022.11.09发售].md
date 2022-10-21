@@ -6207,3 +6207,14 @@ PDD多少钱？</blockquote>
 
 这次实体还不是又要被扣钥匙扣。。。服了
 
+
+
+*****
+
+####  医生狼多  
+##### 675#       发表于 2022-10-21 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58024931&amp;ptid=2025548" target="_blank">rp1993 发表于 2022-10-21 15:27</a>
+只看到469的，是少了什么券么……</blockquote>
+你没有领到百亿补贴的券吗？有个300-30的
+
