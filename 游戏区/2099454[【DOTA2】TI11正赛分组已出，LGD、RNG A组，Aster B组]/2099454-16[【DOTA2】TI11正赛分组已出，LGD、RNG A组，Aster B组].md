@@ -8547,3 +8547,380 @@ eg全队加起来懂克水平不如本楼平均
 
 不会是第一次云比赛吧
 
+
+
+*****
+
+####  Kazepollar  
+##### 23616#       发表于 2022-10-21 16:02
+
+dota2有新血了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 23617#       发表于 2022-10-21 16:02
+
+理性讨论，谷圣是否有点过誉了。对位打团能爆她的四五还是很多的，感觉不配一选。
+
+*****
+
+####  非建政专用号  
+##### 23618#       发表于 2022-10-21 16:02
+
+可惜ok床仔了，把窝克当人看，没想到窝克没把自己当人
+
+*****
+
+####  StrangerJ  
+##### 23619#       发表于 2022-10-21 16:02
+
+不是啊，别的比赛没看过，往年ti也没看过吗？
+
+*****
+
+####  maju3  
+##### 23620#       发表于 2022-10-21 16:03
+
+北美a畜赶紧死
+
+*****
+
+####  情商  
+##### 23621#         楼主| 发表于 2022-10-21 16:03
+
+这老鹿怎么到处蹭啊
+
+<img src="https://p.sda1.dev/7/dff2c5ba5fea681ad185068a45f2fe69/CMP_20221021160252815.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 23622#       发表于 2022-10-21 16:03
+
+所以这就是胜者组和败者组最大的差别啊。
+
+败者组第一轮bo1输了就回家，被对面摆个大招直接针对没扛过来就完蛋，没有任何调整的机会。
+
+*****
+
+####  FBIwarning  
+##### 23623#       发表于 2022-10-21 16:03
+
+哦哦 以前只看最后两天的
+
+*****
+
+####  roxas.sora  
+##### 23624#       发表于 2022-10-21 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025534&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-21 16:03</a>
+
+这老鹿怎么到处蹭啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">又一个要被吸干了？
+
+*****
+
+####  テロメア  
+##### 23625#       发表于 2022-10-21 16:04
+
+这两队都不兴玛西
+
+*****
+
+####  Rorgen  
+##### 23626#       发表于 2022-10-21 16:04
+
+<img src="https://img.saraba1st.com/forum/202210/21/160414yy58qq8o7br2rb88.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (64.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 16:04 上传
+
+这不是解散的吗，谁造谣炸群
+
+*****
+
+####  OVTVO  
+##### 23627#       发表于 2022-10-21 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58023962&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-21 14:30</a>
+
+牛的</blockquote>
+杜鹏在请神活动中请到了前队友、LFY二号位、dota前职业中单，谢君豪super！点击回复一起为CN军团请神吧！
+
+*****
+
+####  非建政专用号  
+##### 23628#       发表于 2022-10-21 16:04
+
+队长会玩陈?没印象阿
+
+*****
+
+####  格雷殿下  
+##### 23629#       发表于 2022-10-21 16:04
+
+漏油们，这个强子，真的犯罪了吗
+
+*****
+
+####  Bernoulli  
+##### 23630#       发表于 2022-10-21 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025524&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-21 16:02</a>
+
+理性讨论，谷圣是否有点过誉了。对位打团能爆她的四五还是很多的，感觉不配一选。 ...</blockquote>
+一手谷圣有藏意图的感觉吧，对面要是去针对她就有点亏了。
+
+*****
+
+####  fopinecone  
+##### 23631#       发表于 2022-10-21 16:05
+
+eg火猫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nxmonitor  
+##### 23632#       发表于 2022-10-21 16:05
+
+怎么又是火猫了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 23633#       发表于 2022-10-21 16:06
+
+哦牛批，水厂花钱请独联体女妖吸魂boom队员是吧，等会儿重点关注这个逼的发挥
+
+*****
+
+####  憧憬鲨  
+##### 23634#       发表于 2022-10-21 16:06
+
+娜迦不给玩了
+
+*****
+
+####  你可以试试  
+##### 23635#       发表于 2022-10-21 16:06
+
+爱0确实强啊，你说几个前期好的45
+
+*****
+
+####  StrangerJ  
+##### 23636#       发表于 2022-10-21 16:06
+
+还拿火猫还拿火猫
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 23637#       发表于 2022-10-21 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025534&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-21 16:03</a>
+这老鹿怎么到处蹭啊</blockquote>
+全是老粉吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Crazy_Knife  
+##### 23638#       发表于 2022-10-21 16:06
+
+就，就火猫，看好eg被2:0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 23639#         楼主| 发表于 2022-10-21 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025556&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-21 16:04</a>
+
+这不是解散的吗，谁造谣炸群</blockquote>
+炸了之后 解散的
+
+*****
+
+####  樱冢名月  
+##### 23640#       发表于 2022-10-21 16:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么头铁么，北美饭皇：不打TI了，我要回家见DP
+
+
+
+*****
+
+####  OVTVO  
+##### 23641#       发表于 2022-10-21 16:06
+
+CM是因为光环回蓝提速小节奏、好处理召唤物、技能强力几个方面才导致胜率这么高的吧。
+
+*****
+
+####  nightmare902015  
+##### 23642#       发表于 2022-10-21 16:07
+
+EG有没有一号位luna的说法，luna+cm简直教科书。
+
+*****
+
+####  非建政专用号  
+##### 23643#       发表于 2022-10-21 16:07
+
+经典24手wisper<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 23644#       发表于 2022-10-21 16:07
+
+哦，nb，娜迦老鹿刷遍全场，wisper爹不要经济的喽
+
+*****
+
+####  Crazy_Knife  
+##### 23645#       发表于 2022-10-21 16:07
+
+冰女被针对又不亏，实在不行好歹还有个光环回回蓝呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 23646#       发表于 2022-10-21 16:07
+
+阵容蛇起来了bc，来一手露娜不随便打
+
+*****
+
+####  maju3  
+##### 23647#       发表于 2022-10-21 16:07
+
+早上石头人那场拍观众席的时候还拍到eva了，戴着口罩
+
+*****
+
+####  朝游北海  
+##### 23648#       发表于 2022-10-21 16:08
+
+K1拿到刷钱核了，克神该经典第六了
+
+*****
+
+####  非建政专用号  
+##### 23649#       发表于 2022-10-21 16:08
+
+wisper爹经济靠rtz和fly，我猜是蝙蝠
+
+*****
+
+####  憧憬鲨  
+##### 23650#       发表于 2022-10-21 16:08
+
+感觉克神和子龙一整把都看不到野怪长啥样了
+
+*****
+
+####  Pbynessseri  
+##### 23651#       发表于 2022-10-21 16:09
+
+这BP搞笑呢？
+
+*****
+
+####  Rorgen  
+##### 23652#       发表于 2022-10-21 16:09
+
+哦牛批，敢给克里斯玩ts的
+
+*****
+
+####  nxmonitor  
+##### 23653#       发表于 2022-10-21 16:09
+
+EG这阵容是想回家了啊，娜迦关了好几个人，就看火猫是不是肥了……
+
+*****
+
+####  roxas.sora  
+##### 23654#       发表于 2022-10-21 16:09
+
+为啥叫她老鹿
+
+*****
+
+####  人別離苦  
+##### 23655#       发表于 2022-10-21 16:10
+
+我记得wisper的酒仙是绿鞋裸a的
+
+*****
+
+####  nowaki  
+##### 23656#       发表于 2022-10-21 16:10
+
+撕裂大地
+
+*****
+
+####  nightmare902015  
+##### 23657#       发表于 2022-10-21 16:10
+
+我记得eva不是TS啊，真的假的
+
+*****
+
+####  Rorgen  
+##### 23658#       发表于 2022-10-21 16:10
+
+这不是bc经典假赛小强吗
+
+*****
+
+####  火鸡味锅巴  
+##### 23659#       发表于 2022-10-21 16:11
+
+[https://steam.tv/dota2](https://steam.tv/dota2)
+
+可以不罕见看纯净流了！
+
+*****
+
+####  nowaki  
+##### 23660#       发表于 2022-10-21 16:11
+
+bc选蛇了，感觉没了
+
+*****
+
+####  百世诸侯  
+##### 23661#       发表于 2022-10-21 16:12
+
+bc选小强又想吃一把了？
+
+*****
+
+####  maju3  
+##### 23662#       发表于 2022-10-21 16:12
+
+相信北美a畜！
+
+*****
+
+####  哈曼的YY  
+##### 23663#       发表于 2022-10-21 16:12
+
+eva这不拍一部dota主题电影？
+
+*****
+
+####  非建政专用号  
+##### 23664#       发表于 2022-10-21 16:13
+
+gojira的强子有蟑螂恶霸模式，望周知<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

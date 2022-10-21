@@ -2549,3 +2549,26 @@ job子有种胡桃青春版的既视感
 
 job子用电钻自紧这一下好帅，自己用的时候从来都是老老实实用手转紧
 
+
+
+*****
+
+####  千恋万花  
+##### 211#       发表于 2022-10-21 16:00
+
+|||◤キャラクター設定公開|
+|　　 &amp;#x1F528; #ジョブ子 ⚙️　◢|||
+
+制服全身・表情設定を公開✨
+
+&amp;#x1F4F9;キャラクターPVｰジョブ子ｰ(cv #大森日雅 )
+[https://youtu.be/9yYB3L14_JU](https://youtu.be/9yYB3L14_JU)
+
+&amp;#x1F4FA;TVアニメ好評放送･配信中!
+[https://diy-anime.com/onair/](https://diy-anime.com/onair/)
+
+&amp;#x1F4BF;CD･BD予約受付中!
+[https://diy-anime.com/bd-cd/](https://diy-anime.com/bd-cd/)
+<img src="https://p.sda1.dev/7/5ff13bb444af06a4cd0d54895a169a68/diy_anime-1583367487676030976-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/e480e3e2e8410a4cb325c4d6ee691e11/diy_anime-1583367487676030976-img2.jpg" referrerpolicy="no-referrer">
+
