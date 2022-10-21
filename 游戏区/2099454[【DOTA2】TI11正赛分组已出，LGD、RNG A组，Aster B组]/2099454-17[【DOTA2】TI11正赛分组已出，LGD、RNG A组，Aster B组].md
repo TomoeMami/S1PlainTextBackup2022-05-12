@@ -10129,3 +10129,31 @@ ti6年代不应该是大家都菜吗。
 
 看见我克笑容，就像听露米唱左手指月一样温暖纯真
 
+
+
+*****
+
+####  勤练带来力量  
+##### 25277#       发表于 2022-10-22 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032878&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-22 00:08</a>
+今日最后一搬</blockquote>
+感觉不如丁真...眼神
+
+*****
+
+####  Anonekoy  
+##### 25278#       发表于 2022-10-22 00:54
+
+坚毅的眼神都来了吗
+
+*****
+
+####  resorry  
+##### 25279#       发表于 2022-10-22 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033227&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-22 00:47</a>
+
+看见我克笑容，就像听露米唱左手指月一样温暖纯真</blockquote>
+我克神明明像露米唱暗香一样温和又坚毅
+
