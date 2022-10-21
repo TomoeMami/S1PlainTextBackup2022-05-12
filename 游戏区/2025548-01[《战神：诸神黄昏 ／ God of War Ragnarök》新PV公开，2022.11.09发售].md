@@ -6155,3 +6155,14 @@ gow2018的那些支线还可以吧，都做了点剧情
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">PDD这百亿补贴。。还好没直接买数字版
 
+
+
+*****
+
+####  mashav  
+##### 670#       发表于 2022-10-21 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018148&amp;ptid=2025548" target="_blank">theworld 发表于 2022-10-21 08:50</a>
+PDD这百亿补贴。。还好没直接买数字版</blockquote>
+还好吧，我两个月前TB预定也和pdd差不多价
+
