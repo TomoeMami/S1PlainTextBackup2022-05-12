@@ -7550,3 +7550,19 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 原来第三章boss给的靴子是免疫地形伤害，搞得我好多宝箱都是渡岩浆过去，这些火焰地形伤害也太高了，基本扛个5-6下就血皮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  希克苏鲁伯  
+##### 689#       发表于 2022-10-21 19:52
+
+在一堆遗迹兵那里磨了半天，正想痛骂什么难度设计，一看原来逃到最左边就行
+
+*****
+
+####  蓝雉  
+##### 690#         楼主| 发表于 2022-10-21 19:57
+
+突然发现漏了个盾冲,这是哪来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

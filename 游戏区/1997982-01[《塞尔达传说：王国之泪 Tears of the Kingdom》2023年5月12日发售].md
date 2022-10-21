@@ -140,3 +140,15 @@ https://youtu.be/2XZ5mWZJCD8</blockquote>
 
 再延我任亏就过期了（
 
+
+
+*****
+
+####  牛奶笛  
+##### 631#       发表于 2022-10-21 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021176&amp;ptid=1997982" target="_blank">mcq_2 发表于 2022-10-21 11:43</a>
+
+我猜一个明年二月份宣布延期，然后公布ns后续机</blockquote>
+我的猜想是，今年3月的延期，已经是为适配新机型延期的，只是现在还不能公布。
+

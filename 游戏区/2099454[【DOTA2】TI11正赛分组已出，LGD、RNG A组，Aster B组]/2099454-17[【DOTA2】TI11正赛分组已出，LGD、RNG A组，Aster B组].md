@@ -6613,3 +6613,258 @@ nga那帮人看看自己发的什么玩意不觉得尬嘛<img src="https://stati
 
 明天前两场不用看，西欧dpc都看烂了
 
+
+
+*****
+
+####  屠夫  
+##### 24854#       发表于 2022-10-21 19:52
+
+谁能告诉我nyu什么意思。昨天maybe发的jiayou a chu我看懂了，后面跟的nyu我不大理解，是猫叫口癖吗？
+
+*****
+
+####  勤练带来力量  
+##### 24855#       发表于 2022-10-21 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029222&amp;ptid=2099454" target="_blank">TIZI 发表于 2022-10-21 19:50</a>
+nga那帮人看看自己发的什么玩意不觉得尬嘛
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+这帮人磕完处长跟皮套人磕孙正跟舞蹈区女主播，完了还要破防呜呜呜我的cp是假的，你觉得他们会觉得尬吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 24856#       发表于 2022-10-21 19:52
+
+那是nya，不准你侮辱猫叫口癖
+
+*****
+
+####  百世诸侯  
+##### 24857#       发表于 2022-10-21 19:53
+
+<img src="https://img.saraba1st.com/forum/202210/21/195321hw8ffjjefojjjdfe.jpg" referrerpolicy="no-referrer">
+
+<strong>1178633886.jpg</strong> (81.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-21 19:53 上传
+
+*****
+
+####  JoelBirch  
+##### 24858#       发表于 2022-10-21 19:54
+
+楼友不会整就别整了，好你妈尬
+
+*****
+
+####  nowaki  
+##### 24859#       发表于 2022-10-21 19:54
+
+百世诸侯铁南桐
+
+*****
+
+####  勤练带来力量  
+##### 24860#       发表于 2022-10-21 19:54
+
+不得不说myboy剃完光头都还是挺帅的
+
+*****
+
+####  樱冢名月  
+##### 24861#       发表于 2022-10-21 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029275&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-21 19:53</a></blockquote>
+哈哈哈哈，绷不住了，配上myboy这张肾亏脸。
+
+*****
+
+####  没钱买手办  
+##### 24862#       发表于 2022-10-21 19:55
+
+明天上午玩贝斯录个p5的曲子去世嘉那投稿看能不能中个什么奖，下午正好看阿茶
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kazepollar  
+##### 24863#       发表于 2022-10-21 19:57
+
+玩乐器的狗萨特，妹妹透到腻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 24864#       发表于 2022-10-21 19:57
+
+ti就是看乐子，去年我的乐子之一周海洋宇宙全让A畜碰上了，真晦气，还好决赛等到了大的
+今年我的三大乐子
+看ni公子当独逼
+看批九装载具
+看克里斯拆电锤
+感觉比A畜乐多了好吧
+
+*****
+
+####  情商  
+##### 24865#         楼主| 发表于 2022-10-21 19:58
+
+玩乐器的狗萨特，妹妹透到腻了吧
+
+*****
+
+####  walfeds  
+##### 24866#       发表于 2022-10-21 19:58
+
+玩乐器的狗萨特，妹妹透到腻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TI三冠王AME  
+##### 24867#       发表于 2022-10-21 19:58
+
+别急，他玩的是贝斯
+
+*****
+
+####  Litccc  
+##### 24868#       发表于 2022-10-21 19:58
+
+玩乐器的狗萨特，妹妹透到腻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 24869#       发表于 2022-10-21 19:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">萨特开始放波了，小狗头人受不了了。
+
+*****
+
+####  人別離苦  
+##### 24870#       发表于 2022-10-21 19:59
+
+别波了 别波了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  leia_rolando  
+##### 24871#       发表于 2022-10-21 19:59
+
+<blockquote>lyjssj 发表于 2022-10-21 19:19
+我是觉得，茶能赢马体当然也能赢石头人，甚至也能赢秘密
+
+最少不会低于46开
+</blockquote>
+漏油不是说液体是外卡游进a组的菜逼吗
+
+*****
+
+####  情商  
+##### 24872#         楼主| 发表于 2022-10-21 20:00
+
+你楼不会有人不知道手办哥开宝马的吧
+
+*****
+
+####  火神龙  
+##### 24873#       发表于 2022-10-21 20:00
+
+超级喷水论坛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 24874#       发表于 2022-10-21 20:00
+
+生活不如意了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fopinecone  
+##### 24875#       发表于 2022-10-21 20:00
+
+别波了 别波了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67  
+##### 24876#       发表于 2022-10-21 20:01
+
+看了下赛程表，支持鳖茶含泪不敌石头人，下去送走剧毒队，彻底打爆西恩成绩全靠干瘪的言论
+
+*****
+
+####  nowaki  
+##### 24877#       发表于 2022-10-21 20:01
+
+呵呵 a黑果然生活如意
+
+*****
+
+####  一品堂官  
+##### 24878#       发表于 2022-10-21 20:01
+
+吉他就骗骗不懂行的小妹妹 贝斯是能透女主唱的 漏油懂又不懂啊
+
+*****
+
+####  TI三冠王AME  
+##### 24879#       发表于 2022-10-21 20:01
+
+呵呵 a黑果然生活如意
+
+*****
+
+####  魂断=血包win  
+##### 24880#       发表于 2022-10-21 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029366&amp;ptid=2099454" target="_blank">leia_rolando 发表于 2022-10-21 19:59</a>
+漏油不是说液体是外卡游进a组的菜逼吗</blockquote>
+液体自己拎不清了，zai突围和小组赛打工具人打得挺好的，让他c他没这个能力，马桶进淘汰赛也脑浆了不少
+
+—— 来自 HONOR KOZ-AL40, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  roger_goodell  
+##### 24881#       发表于 2022-10-21 20:02
+
+家游啊蠢鱼<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 24882#       发表于 2022-10-21 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029401&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-21 20:01</a>
+
+吉他就骗骗不懂行的小妹妹 贝斯是能透女主唱的 漏油懂又不懂啊</blockquote>
+你这么懂，也是透过女主唱的狗萨特是吧
+
+*****
+
+####  情商  
+##### 24883#         楼主| 发表于 2022-10-21 20:02
+
+马桶今天两个省bkb简直犯罪，一个dp下坡追人 一个跟tb皇城互搂
+
+*****
+
+####  Rorgen  
+##### 24884#       发表于 2022-10-21 20:03
+
+液体应该能八强，算是超预期了好吧，外卡两个队我的预期就是液体保底八强秘密保底六强
+因为新版本，以赛代练打得多就是有优势
+
