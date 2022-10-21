@@ -19,3 +19,15 @@
 现在倒是意识到一个很玩味的地方，莱拒绝奥贝提出的是否削弱警备的建议，反而算勉强削弱了对摩特的罪恶感， ...</blockquote>
 摩特也算是旧派系的人清洗了也就清洗了
 
+
+
+*****
+
+####  aptx8285144  
+##### 5488#       发表于 2022-10-21 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030409&amp;ptid=1502023" target="_blank">卡奥斯·克斯拉 发表于 2022-10-21 21:01</a>
+
+摩特也算是旧派系的人清洗了也就清洗了</blockquote>
+奥贝可能无所谓，但是对于一向强调公平公正的莱而言，可不能这样无所谓
+

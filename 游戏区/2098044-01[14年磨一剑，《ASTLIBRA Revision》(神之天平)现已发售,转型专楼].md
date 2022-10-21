@@ -7667,3 +7667,25 @@ wiki标的第四章 带鸟鼻子去舔图找呗
 
 我已经打到刷爱情的垃圾时间了，按说1周拿到3个，2周剧情拿到1个，酒馆npc拿到10个，也就是说深渊刷到2个就够了。
 
+
+
+*****
+
+####  黒長直姫  
+##### 700#       发表于 2022-10-21 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030562&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-21 21:11</a>
+
+我已经打到刷爱情的垃圾时间了，按说1周拿到3个，2周剧情拿到1个，酒馆npc拿到10个，也就是说深渊刷到2个就 ...</blockquote>
+不用 1周目3个齐的话一个都不用刷 竞技场打完还有一个 刚好够
+
+*****
+
+####  A1LI  
+##### 701#       发表于 2022-10-21 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030664&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-21 21:17</a>
+
+不用 1周目3个齐的话一个都不用刷 竞技场打完还有一个 刚好够</blockquote>
+那我可能记错了，反正一周我3个是肯定拿到了。2周怎么感觉不太对，竞技场没有吧……
+

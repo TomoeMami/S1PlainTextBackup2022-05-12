@@ -6355,3 +6355,26 @@ https://weibo.com/1969176463/MbnmNeQVd
 前五小时肯定有肥仔初战吧</blockquote>
 有的，二柄明说了
 
+
+
+*****
+
+####  组织上的  
+##### 691#       发表于 2022-10-21 21:10
+
+<blockquote>敲钟浓度也降低了</blockquote>泥潭福音啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SergeGlenn  
+##### 692#       发表于 2022-10-21 21:12
+
+草这回preview不让放新的演示片段的，只有几张新截图。这意思不会真有个SOP吧。。。
+
+*****
+
+####  性兽阿怪  
+##### 693#       发表于 2022-10-21 21:15
+
+感觉就是pro max版本，不过这样也够了
+
