@@ -2600,3 +2600,28 @@ job子用电钻自紧这一下好帅，自己用的时候从来都是老老实�
 
 确实很小学生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rslika  
+##### 215#       发表于 2022-10-21 19:01
+
+ 本帖最后由 rslika 于 2022-10-21 19:03 编辑 
+
+<img src="http://wx1.sinaimg.cn/mw690/6b1828b2ly1h7d436m85uj203204rjr8.jpg" referrerpolicy="no-referrer">
+
+楼上的布女士：<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/a4211b184e0657474177ba0f60616b47/QQ截图20221021190021.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Rhantolk  
+##### 216#       发表于 2022-10-21 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58028429&amp;ptid=1994951" target="_blank">rslika 发表于 2022-10-21 19:01</a>
+楼上的布女士：</blockquote>
+应该用草莓表情
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
