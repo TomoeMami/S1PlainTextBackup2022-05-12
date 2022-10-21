@@ -7424,3 +7424,15 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 三个盘 ...</blockquote>
 同在，但想万用得凑互克对子，水火 风土 光暗，因为只要你有克制属性就能不触发怪物抗性，当然也可以用精灵庇护技能
 
+
+
+*****
+
+####  A1LI  
+##### 679#       发表于 2022-10-21 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58025946&amp;ptid=2098044" target="_blank">后会莫急 发表于 2022-10-21 16:31</a>
+
+同在，但想万用得凑互克对子，水火 风土 光暗，因为只要你有克制属性就能不触发怪物抗性，当然也可以用精 ...</blockquote>
+精灵庇护+麦克丝韦妖吧，一个是取消相同属性衰减，一个是提高全属性克制的伤害。无敌了简直。
+
