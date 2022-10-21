@@ -11052,3 +11052,15 @@ horipro 摩多摩多
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  adw667  
+##### 8521#       发表于 2022-10-21 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58012698&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-20 21:03</a>
+
+景品厂什么时候死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">关键是还死贵，比wishsong那套贵了好几倍，它卖300一个我都加入愿望单了
+
