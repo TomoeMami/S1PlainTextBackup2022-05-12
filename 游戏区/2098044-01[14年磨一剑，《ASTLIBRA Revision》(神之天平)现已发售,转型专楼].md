@@ -6971,3 +6971,30 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 论坛助手,iPhone</blockquote>
 竞技场我记得前两章就有把弩。
 
+
+
+*****
+
+####  quanlix  
+##### 642#       发表于 2022-10-21 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019300&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-21 10:04</a>
+
+初期弓在哪，到火山了箭还只能用手扔
+
+论坛助手,iPhone</blockquote>
+第一章只有史莱姆的图，有个矿点能往右走，记得要二段跳
+
+*****
+
+####  onlv星骸  
+##### 643#       发表于 2022-10-21 10:17
+
+ 本帖最后由 onlv星骸 于 2022-10-21 10:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57997283&amp;ptid=2098044" target="_blank">后会莫急 发表于 2022-10-20 01:45</a>
+
+新章喂阿努莉斯爱情，到一定程度她会给你一个面包（剧毒?） 吃了等时间过去
+
+我猜是玩 ...</blockquote>
+为啥我吃了到时间直接gameover了 并没有触发成就啊
+
