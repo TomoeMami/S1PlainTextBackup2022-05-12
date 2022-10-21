@@ -7082,3 +7082,17 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 肉鸽地牢真的会掉爱情吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没关系，带队友打完回酒馆对话保底一个
 
+
+
+*****
+
+####  黒長直姫  
+##### 652#       发表于 2022-10-21 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020390&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-21 10:59</a>
+
+没关系，带队友打完回酒馆对话保底一个</blockquote>
+每个队友只能拿到两个 一共10个 加上竞技场给的 扭蛋给的 本传给的
+
+还不够的只能刷出来
+
