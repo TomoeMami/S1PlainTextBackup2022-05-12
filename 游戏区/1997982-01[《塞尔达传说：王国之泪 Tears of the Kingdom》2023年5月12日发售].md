@@ -98,3 +98,29 @@ https://youtu.be/2XZ5mWZJCD8</blockquote>
 
 4月12日之前，专属直面会，最终pv，公布dlc，限定机等
 
+
+
+*****
+
+####  mcq_2  
+##### 627#       发表于 2022-10-21 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019101&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2022-10-21 09:53</a>
+
+接下去的几个月宣发流程猜测
+
+12月TGA颁奖典礼，一定有广告，有没有新pv未知</blockquote>
+我猜一个明年二月份宣布延期，然后公布ns后续机
+
+*****
+
+####  mcq_2  
+##### 628#       发表于 2022-10-21 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019101&amp;ptid=1997982" target="_blank">牛奶笛 发表于 2022-10-21 09:53</a>
+
+接下去的几个月宣发流程猜测
+
+12月TGA颁奖典礼，一定有广告，有没有新pv未知</blockquote>
+我猜一个明年二月份宣布延期，然后公布ns后续机
+

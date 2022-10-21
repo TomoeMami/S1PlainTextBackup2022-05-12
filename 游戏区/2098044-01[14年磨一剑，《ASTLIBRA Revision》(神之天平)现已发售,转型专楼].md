@@ -7110,3 +7110,15 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 还不够的只能刷出来 ...</blockquote>
 反正每个队友带2次顺便做成就，还没做完就刷够了
 
+
+
+*****
+
+####  黒長直姫  
+##### 654#       发表于 2022-10-21 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020975&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-21 11:31</a>
+
+反正每个队友带2次顺便做成就，还没做完就刷够了</blockquote>
+那你运气还挺好的 我农了一身紫盘子也就出了一个
+
