@@ -10217,3 +10217,14 @@ xm应该早就麻了，年年倒在最后一步
 
 梅憋a畜同时戏来，不愧是水厂饭圈双雄。
 
+
+
+*****
+
+####  外挂全家脚气  
+##### 25287#       发表于 2022-10-22 06:08
+
+FNC正式投诉跟GG比赛的解说声问题了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+当然懒狗社八成这几天没法改进，最多4强的时候临时加隔音室
+
