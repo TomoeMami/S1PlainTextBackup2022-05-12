@@ -7204,3 +7204,20 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">我现在这个游戏有BUG，只要是入队的队友姿势就卡在战斗伸手的样子，看着好难受
 
+
+
+*****
+
+####  何处分可  
+##### 663#       发表于 2022-10-21 13:54
+
+<img src="https://img.saraba1st.com/forum/202210/21/135407pforoce9zhjt9co5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (149.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 13:54 上传
+
+这个地方的宝箱怎么拿，掉在岩浆上跳了好几下都没出现
+
