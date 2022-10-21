@@ -6585,3 +6585,19 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 
 肯定是要有1代场景的啊，不然怎么表现诸神黄昏的前后变化，九界湖都因为芬布尔之冬被冻住，这种情况下提尔设计的桥估计就失效了，然后去矮人国寻找提尔的线不就可以展开了么
 
+
+
+*****
+
+####  pandaman7777  
+##### 716#       发表于 2022-10-22 00:32
+
+媒体宣发开始干活儿了
+
+*****
+
+####  性兽阿怪  
+##### 717#       发表于 2022-10-22 00:39
+
+不会就多了一把武器吧，说不过去啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
