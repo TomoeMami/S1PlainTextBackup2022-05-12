@@ -7096,3 +7096,17 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 
 还不够的只能刷出来
 
+
+
+*****
+
+####  jy000129  
+##### 653#       发表于 2022-10-21 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58020569&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-21 11:09</a>
+
+每个队友只能拿到两个 一共10个 加上竞技场给的 扭蛋给的 本传给的
+
+还不够的只能刷出来 ...</blockquote>
+反正每个队友带2次顺便做成就，还没做完就刷够了
+
