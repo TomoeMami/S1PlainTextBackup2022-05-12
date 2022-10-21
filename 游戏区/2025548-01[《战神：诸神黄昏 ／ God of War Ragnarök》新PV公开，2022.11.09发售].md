@@ -6479,3 +6479,40 @@ vg倒是说了几个缺点，一个是由于要照顾ps4（或者说一开始目
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031695&amp;ptid=2025548" target="_blank">kuker53 发表于 2022-10-21 22:19</a></blockquote>
 草，真想拿把雷神锤砸死它<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hotsmile  
+##### 704#       发表于 2022-10-21 22:21
+
+完整的战斗系统，多，多个锤子
+
+*****
+
+####  ff2077  
+##### 705#       发表于 2022-10-21 22:21
+
+啥都不让说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  SergeGlenn  
+##### 706#       发表于 2022-10-21 22:25
+
+很简单新武器+新的可操控人物都不能讲呗
+
+*****
+
+####  性兽阿怪  
+##### 707#       发表于 2022-10-21 22:26
+
+二柄是唯一一个能通关的媒体？这里面是不是有啥见不得人的勾当啊
+
+*****
+
+####  SergeGlenn  
+##### 708#       发表于 2022-10-21 22:30
+
+gamespot提到一个细节，快速转身被取消了，也就是说手柄的方向键下键空出来了，你们懂的
+

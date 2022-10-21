@@ -9424,3 +9424,140 @@ BC虽然坐拥克，K，轻语三神，但是三神并不是所有时间都在�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Rorgen  
+##### 25192#       发表于 2022-10-21 22:22
+
+霉鳖是个蠢逼没错，但是他钱挣够了可以不在乎水厂泼污水，妮们小超人可就不得好似辣
+
+*****
+
+####  反方向的波  
+##### 25193#       发表于 2022-10-21 22:22
+
+<img src="https://p.sda1.dev/7/8ec53a798b9cd4e27a8aaafa090d71a3/FflOT0nXkAIdHaS.jpg" referrerpolicy="no-referrer">
+今年这个eg's year真的卜基德
+
+*****
+
+####  adretyu67  
+##### 25194#       发表于 2022-10-21 22:24
+
+泰迪给集美送子弹做的事还少吗
+
+他可以拿别人当兄弟，别人可不见得心里这么盘算。
+
+不知道茶猪当初在直播里说这话的时候对泰迪是怎么想的，虽然他笑话冷锋太正能量
+
+*****
+
+####  walfeds  
+##### 25195#       发表于 2022-10-21 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031731&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-21 22:22</a>
+
+今年这个eg's year真的卜基德</blockquote>
+kyle什么时候基德过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 25196#       发表于 2022-10-21 22:26
+
+你别说，克神小小算是他玩的比较好的节奏英雄了，虽然对线天天被爆，但是中后期该打的先手都打了，属于是合格的三号位小小了。
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  勤练带来力量  
+##### 25197#       发表于 2022-10-21 22:26
+
+还真是，团队决策最后成了给集美递的刀子
+
+*****
+
+####  thistimeforlife  
+##### 25198#       发表于 2022-10-21 22:26
+
+来日若论英豪，万世有我名号！Chris Luck！
+
+*****
+
+####  恐怖利刃  
+##### 25199#       发表于 2022-10-21 22:27
+
+<img src="https://img.saraba1st.com/forum/202210/21/222659sg60gqy8rh8pgmr8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>300297D4-FB16-4D51-B753-D62DF655FBA3.jpeg</strong> (317.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 22:26 上传
+
+现已收入lpl梗百科
+
+*****
+
+####  团结奋进碇真嗣  
+##### 25200#       发表于 2022-10-21 22:28
+
+我就不信lgd还能一串六夺冠不成
+
+
+
+*****
+
+####  逃离二次元  
+##### 25201#       发表于 2022-10-21 22:28
+
+现已收入lpl梗百科
+
+*****
+
+####  勤练带来力量  
+##### 25202#       发表于 2022-10-21 22:28
+
+现已收入lpl梗百科
+
+*****
+
+####  憧憬鲨  
+##### 25203#       发表于 2022-10-21 22:28
+
+lpl是谁啊，真没看过这哥们，老蹭那一圈的？
+
+*****
+
+####  sodah  
+##### 25204#       发表于 2022-10-21 22:29
+
+现已收入lpl梗百科
+
+*****
+
+####  团结奋进碇真嗣  
+##### 25205#       发表于 2022-10-21 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031796&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-21 22:27</a>
+
+现已收入lpl梗百科</blockquote>
+撸狗能不能死一死啊
+
+*****
+
+####  Rorgen  
+##### 25206#       发表于 2022-10-21 22:29
+
+三号位小小也是要A人的，克神打的是把推推或者吹风换成bkb的四号位小小，撒也不懂
+
+*****
+
+####  为了mf注册  
+##### 25207#       发表于 2022-10-21 22:30
+
+maybe昨晚说的那句话会像当年给a处洗地一样，等着被集美清算吧
+
