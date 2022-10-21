@@ -7806,3 +7806,17 @@ boss掉下去应该是bug，我这火属性大招的替换版也会因为这个b
 
 第六章装备要用到的绿色矿怎么合，没有合成公式合不了，有一些蛋糕也是
 
+
+
+*****
+
+####  白軍浪  
+##### 714#       发表于 2022-10-21 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032383&amp;ptid=2098044" target="_blank">luffy800 发表于 2022-10-21 23:20</a>
+
+第六章装备要用到的绿色矿怎么合，没有合成公式合不了，有一些蛋糕也是</blockquote>
+这个地图的矿和熔炼工具合成，金属应该不用强制要求配方书吧？
+
+高级配方书在竞技场
+
