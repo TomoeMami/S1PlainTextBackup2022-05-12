@@ -7538,3 +7538,12 @@ nb官号订阅里面也没她了，别吧，炸号炸个没完。
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  chelomei  
+##### 12719#       发表于 2022-10-21 22:11
+
+开始打电动了,看来问题不大
+

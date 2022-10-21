@@ -6448,3 +6448,34 @@ vg倒是说了几个缺点，一个是由于要照顾ps4（或者说一开始目
 
 以为是大型dlc，其实就是大型dlc
 
+
+
+*****
+
+####  kuker53  
+##### 701#       发表于 2022-10-21 22:15
+
+这前瞻有效信息还是少，啥也不让说，尤其是游戏动力那文章，看完想掐死他
+
+*****
+
+####  kuker53  
+##### 702#       发表于 2022-10-21 22:19
+
+<img src="https://img.saraba1st.com/forum/202210/21/221940mdsmh4lzhodtst48.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20221021221844290.jpg</strong> (53.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-21 22:19 上传
+
+*****
+
+####  医生狼多  
+##### 703#       发表于 2022-10-21 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58031695&amp;ptid=2025548" target="_blank">kuker53 发表于 2022-10-21 22:19</a></blockquote>
+草，真想拿把雷神锤砸死它<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+

@@ -622,3 +622,12 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 <img src="https://p.sda1.dev/7/4db2e4934c2b79e311e038f4abbc51e3/ea507bd5-314c-4d72-8534-231e91f5221d.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/7/5bfe47c91a76fc589936137ecd76d3f2/afa15c7a-1e2c-4898-874b-dba5585908df.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 670#       发表于 2022-10-21 22:17
+
+仁叔的全名是明日见德凯/デッカー·アスミ
+
