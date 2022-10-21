@@ -6915,3 +6915,14 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 </blockquote>
 我是装上大跳三段跳浮空，然后一路连冲到最后才到的，里面宝箱是一把传奇弓。
 
+
+
+*****
+
+####  lazycat233  
+##### 637#       发表于 2022-10-21 09:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">二周目是无继承从头开始打么
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
