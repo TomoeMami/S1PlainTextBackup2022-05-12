@@ -552,3 +552,15 @@ PC大屏听歌对味，AA快下池
 上线两天，流水过5亿，只能说，最开始目标用户就是矿老板的游戏真是厉害。这游戏首要目标群就不是二次元用 ...</blockquote>
 全世界上线的四国语言游戏，这流水一般了
 
+
+
+*****
+
+####  elven119  
+##### 67#       发表于 2022-10-21 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58022615&amp;ptid=2068560" target="_blank">windvictor 发表于 2022-10-21 13:08</a>
+
+全世界上线的四国语言游戏，这流水一般了</blockquote>
+我看的这个只有日本，其他三国不清楚流水多少
+

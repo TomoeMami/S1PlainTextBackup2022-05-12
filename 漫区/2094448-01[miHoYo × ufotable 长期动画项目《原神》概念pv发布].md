@@ -26,3 +26,15 @@ uba消息看到周日会有饼，不知道是真是假
 
 不过和UFO没啥关系，是Sun Creature Studio做的
 
+
+
+*****
+
+####  icecry  
+##### 1500#       发表于 2022-10-21 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58021710&amp;ptid=2094448" target="_blank">KASUKASU111 发表于 2022-10-21 12:12</a>
+
+uba消息看到周日会有饼，不知道是真是假</blockquote>
+周日是3.2前瞻会
+
