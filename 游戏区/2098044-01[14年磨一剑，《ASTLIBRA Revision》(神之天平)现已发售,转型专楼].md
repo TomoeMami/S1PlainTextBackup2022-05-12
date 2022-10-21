@@ -7820,3 +7820,34 @@ boss掉下去应该是bug，我这火属性大招的替换版也会因为这个b
 
 高级配方书在竞技场
 
+
+
+*****
+
+####  耳廓狐  
+##### 715#       发表于 2022-10-22 00:03
+
+这个战神第二阶段莫名其妙秒人是什么原理？不会和之前的雪球一样是BUG吧？盾牌都挡不住
+
+*****
+
+####  希克苏鲁伯  
+##### 716#       发表于 2022-10-22 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032837&amp;ptid=2098044" target="_blank">耳廓狐 发表于 2022-10-22 00:03</a>
+
+这个战神第二阶段莫名其妙秒人是什么原理？不会和之前的雪球一样是BUG吧？盾牌都挡不住 ...</blockquote>
+拔刀3次后固定秒杀，dps检测。点了狂暴疯狂输出就是
+
+*****
+
+####  希克苏鲁伯  
+##### 717#       发表于 2022-10-22 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032383&amp;ptid=2098044" target="_blank">luffy800 发表于 2022-10-21 23:20</a>
+
+第六章装备要用到的绿色矿怎么合，没有合成公式合不了，有一些蛋糕也是</blockquote>
+竞技场有个打罐子的挑战，打完送高级合成书，点狂暴全加攻拿风武器输出就行
+
+后面哪章还有个挑战送更高级的厨艺合成书
+

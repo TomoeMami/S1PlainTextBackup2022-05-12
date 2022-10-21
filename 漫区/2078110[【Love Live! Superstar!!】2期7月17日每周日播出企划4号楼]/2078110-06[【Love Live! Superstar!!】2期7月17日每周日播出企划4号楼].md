@@ -11379,3 +11379,33 @@ horipro 摩多摩多
   ...</blockquote>
 咱们观众其实很难知道星这个企划现在到底是赚多赚少，如果它企划方确实感觉良好，优势在我，那么啥也不会改变<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liu461  
+##### 8545#       发表于 2022-10-22 00:08
+
+只要能捧出明皇，洗脚婢祭天本来就是写在剧本里的，有啥值不值的<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
+TYMM好像瘦了，未来可期
+
+*****
+
+####  ruffian  
+##### 8546#       发表于 2022-10-22 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032802&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-21 23:58:54</a>
+咱们观众其实很难知道星这&amp;# ...</blockquote>赚应该还是有赚的，问题是，他原本可以多赚粉丝几份钱，照着可香那个质量也可以多赚几波cp粉的钱，但他们为了替粉丝省钱，不惜把dd变成单推，不惜让非官推形同陌路，他们真的，我哭死
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kfly  
+##### 8547#       发表于 2022-10-22 00:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032802&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-21 23:58</a>
+咱们观众其实很难知道星这&amp;# ...</blockquote>
+我是真不信做成这样还能有多少正收益，拭目以待呗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
