@@ -7689,3 +7689,34 @@ wiki标的第四章 带鸟鼻子去舔图找呗
 不用 1周目3个齐的话一个都不用刷 竞技场打完还有一个 刚好够</blockquote>
 那我可能记错了，反正一周我3个是肯定拿到了。2周怎么感觉不太对，竞技场没有吧……
 
+
+
+*****
+
+####  黒長直姫  
+##### 702#       发表于 2022-10-21 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030695&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-21 21:19</a>
+
+那我可能记错了，反正一周我3个是肯定拿到了。2周怎么感觉不太对，竞技场没有吧…… ...</blockquote>
+打完你就知道有没有了 还能骗你不成
+
+*****
+
+####  h33  
+##### 703#       发表于 2022-10-21 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58024447&amp;ptid=2098044" target="_blank">h33 发表于 2022-10-21 14:55</a>
+第八章打完后打ex地图，现在卡在龙神了。龙神石化接秒杀怎么处理啊?</blockquote>
+发现了一个神技，能让空中创人造成伤害。虽然没有多少伤害，但是伤害段数多，创两三次绿条就满了直接凭依技无敌，无脑复读就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  A1LI  
+##### 704#       发表于 2022-10-21 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030743&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-21 21:23</a>
+
+打完你就知道有没有了 还能骗你不成</blockquote>
+都打过了，可能是我记错了。没事，大不了刷就是了。
+
