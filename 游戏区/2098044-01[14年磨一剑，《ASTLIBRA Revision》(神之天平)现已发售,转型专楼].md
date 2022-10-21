@@ -7623,3 +7623,47 @@ wiki标的第四章 带鸟鼻子去舔图找呗
 先打个坏结局看看剧情，通关后继承存档还能回到打boss之前继续刷好结局道具，问题是为啥把装备都给 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">因为最后的那段动画要让主角穿成原本的衣服，就给扒了
 
+
+
+*****
+
+####  A1LI  
+##### 696#       发表于 2022-10-21 21:02
+
+ 本帖最后由 A1LI 于 2022-10-21 21:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030169&amp;ptid=2098044" target="_blank">onlv星骸 发表于 2022-10-21 20:45</a>
+
+因为最后的那段动画要让主角穿成原本的衣服，就给扒了</blockquote>
+真别说，我这个档还出现点bug，最后的时候传送到盖亚深渊前，跳不下去……
+
+也就是说永远没法刷第一层。
+
+行吧，退了游戏重进就好了……
+
+*****
+
+####  jy000129  
+##### 697#       发表于 2022-10-21 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030169&amp;ptid=2098044" target="_blank">onlv星骸 发表于 2022-10-21 20:45</a>
+
+因为最后的那段动画要让主角穿成原本的衣服，就给扒了</blockquote>
+问题是连乌鸦都没了，传送后才回来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jy000129  
+##### 698#       发表于 2022-10-21 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58029251&amp;ptid=2098044" target="_blank">希克苏鲁伯 发表于 2022-10-21 19:52</a>
+
+在一堆遗迹兵那里磨了半天，正想痛骂什么难度设计，一看原来逃到最左边就行 ...</blockquote>
+当时打一个就够吃力了，打一群还有天火，很明显不是给你打的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我死了一次就直接开溜
+
+*****
+
+####  A1LI  
+##### 699#       发表于 2022-10-21 21:11
+
+我已经打到刷爱情的垃圾时间了，按说1周拿到3个，2周剧情拿到1个，酒馆npc拿到10个，也就是说深渊刷到2个就够了。
+

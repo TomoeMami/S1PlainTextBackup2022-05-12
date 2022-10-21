@@ -6286,3 +6286,72 @@ PDD多少钱？</blockquote>
 
 这次好像是前5小时的preview
 
+
+
+*****
+
+####  吃鸡南小鸟  
+##### 683#       发表于 2022-10-21 21:04
+
+几个预先评测基本就是好评，放心预购<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 看来很稳
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  医生狼多  
+##### 684#       发表于 2022-10-21 21:05
+
+preview当然都是好评
+
+*****
+
+####  415452356  
+##### 685#       发表于 2022-10-21 21:05
+
+  a9说支线有主线级别的关卡设计，加料不要停
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  popchong  
+##### 686#       发表于 2022-10-21 21:06
+
+前五小时肯定有肥仔初战吧
+
+*****
+
+####  SergeGlenn  
+##### 687#       发表于 2022-10-21 21:06
+
+preview只要不是太垃圾都不会说的太难听的
+
+*****
+
+####  医生狼多  
+##### 688#       发表于 2022-10-21 21:07
+
+a9
+https://weibo.com/1622008051/MbnmRn0qG
+ucg
+https://weibo.com/2419188521/MbnmP2qMH
+游民
+https://weibo.com/1969176463/MbnmNeQVd
+
+*****
+
+####  kuker53  
+##### 689#       发表于 2022-10-21 21:07
+
+二柄视频说已经通关了，放心买
+
+*****
+
+####  clover293  
+##### 690#       发表于 2022-10-21 21:09
+
+<blockquote>popchong 发表于 2022-10-21 21:06
+前五小时肯定有肥仔初战吧</blockquote>
+有的，二柄明说了
+

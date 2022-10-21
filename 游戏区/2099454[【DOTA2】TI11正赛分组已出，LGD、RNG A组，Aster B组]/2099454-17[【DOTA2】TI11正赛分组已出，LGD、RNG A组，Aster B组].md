@@ -7837,3 +7837,178 @@ BGM：binary是吧？
 由手机上传
 2022-10-21 21:00 上传
 
+
+
+*****
+
+####  lyjssj  
+##### 24995#       发表于 2022-10-21 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真的有点恶寒了卧槽
+
+*****
+
+####  反方向的波  
+##### 24996#       发表于 2022-10-21 21:03
+
+窝是真的急了，泥们在管人区卜是有÷藏室的么
+
+*****
+
+####  Rorgen  
+##### 24997#       发表于 2022-10-21 21:04
+
+榊心 9099714 级别: 学徒 威望: 1 注册: 10-11-19
+2022-10-21 20:56
+感觉lgd就怕秘密，其他队都还好。
+主要就是nts被nisha爆的厉害，感觉有心魔了。 
+
+*****
+
+####  Rorgen  
+##### 24998#       发表于 2022-10-21 21:04
+
+不是，怎么秘密还在可敬啊
+
+*****
+
+####  roxas.sora  
+##### 24999#       发表于 2022-10-21 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">水厂一天不死，舆论就好不了
+
+*****
+
+####  勤练带来力量  
+##### 25000#       发表于 2022-10-21 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030461&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-21 21:04</a>
+不是，怎么秘密还在可敬啊</blockquote>
+ti10真正的总决赛对手跟你闹呢
+
+*****
+
+####  resorry  
+##### 25001#       发表于 2022-10-21 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58030382&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-21 21:00</a>
+
+这张图更是重量级</blockquote>
+然后决赛学泰凯斯瞄队友老婆被队友按进显示器？
+
+*****
+
+####  Avantasi  
+##### 25002#       发表于 2022-10-21 21:06
+
+不知道是该佩服漏油找屎的能力，还是太监拉屎的能力
+
+*****
+
+####  情商  
+##### 25003#         楼主| 发表于 2022-10-21 21:06
+
+ 别ban了，侮辱士官长了
+
+*****
+
+####  情商  
+##### 25004#         楼主| 发表于 2022-10-21 21:08
+
+哦牛皮，我算是知道你楼皮套孝子为什么越来越多了 
+
+<img src="https://img.saraba1st.com/forum/202210/21/210751bjityt6pythhswxy.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221021210955.png</strong> (66.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 21:07 上传
+
+*****
+
+####  非建政专用号  
+##### 25005#       发表于 2022-10-21 21:08
+
+这是星际争霸泰凯斯，望周知
+
+*****
+
+####  Litccc  
+##### 25006#       发表于 2022-10-21 21:09
+
+楼主：nowaki
+
+*****
+
+####  情商  
+##### 25007#         楼主| 发表于 2022-10-21 21:09
+
+星际争霸啊，那不熟
+
+*****
+
+####  憧憬鲨  
+##### 25008#       发表于 2022-10-21 21:09
+
+这头像我好像见过，他妈比你们怎么都有NGA账号
+
+*****
+
+####  情商  
+##### 25009#         楼主| 发表于 2022-10-21 21:11
+
+<img src="https://img.saraba1st.com/forum/202210/21/211033t1zb9gbdnt7dlhla.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221021211237.png</strong> (14.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 21:10 上传
+
+<img src="https://img.saraba1st.com/forum/202210/21/211056ylziirli888rxso8.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221021211253.png</strong> (61.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 21:10 上传
+
+<img src="https://img.saraba1st.com/forum/202210/21/211057uy8jlo741yn1j7ok.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221021211301.png</strong> (37.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-21 21:10 上传
+
+*****
+
+####  -SLSL-  
+##### 25010#       发表于 2022-10-21 21:11
+
+这个楼快被楠铜和shit填满了，也许管人区才是最后的净土<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 25011#       发表于 2022-10-21 21:11
+
+好呀，皮套痴抢红包是吧，下次能不能搞点难度系数高的口令，哥们至今只抢了两块钱。
+
+*****
+
+####  樱冢名月  
+##### 25012#       发表于 2022-10-21 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这p图他妈也下得去手，雪茄猛男配个太监脸是吧
+
+*****
+
+####  没钱买手办  
+##### 25013#       发表于 2022-10-21 21:12
+
+楼主：nowaki
+
