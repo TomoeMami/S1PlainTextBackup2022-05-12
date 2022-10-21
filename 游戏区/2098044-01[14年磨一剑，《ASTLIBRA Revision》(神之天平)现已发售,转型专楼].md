@@ -7233,3 +7233,19 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 这个地方的宝箱怎么拿，掉在岩浆上跳了好几下都没出现</blockquote>
 按上键试试，如果不行就等拿了无视地形的鞋子再来。
 
+
+
+*****
+
+####  后会莫急  
+##### 665#       发表于 2022-10-21 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019532&amp;ptid=2098044" target="_blank">onlv星骸 发表于 2022-10-21 10:17</a>
+
+为啥我吃了到时间直接gameover了 并没有触发成就啊
+
+找到了 原来要再之后的剧情吃才行
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">毕竟没经历后面成为公会主厨的剧情也不会想到是故意做成这个不能吃的样子，配合唯一的debuff名称及超长持续，还有成就名mischief暗示，才会想到这个毒就是恶作剧
+
