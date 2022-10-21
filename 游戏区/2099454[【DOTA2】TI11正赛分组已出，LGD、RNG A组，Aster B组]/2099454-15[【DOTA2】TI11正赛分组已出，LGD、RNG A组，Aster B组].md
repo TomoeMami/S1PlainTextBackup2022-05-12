@@ -4180,3 +4180,82 @@ tb不是很灵活，爆发在100分钟的局不够了，说白了不是tb多差�
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  加图索  
+##### 21481#       发表于 2022-10-21 08:32
+
+解说报点这事不是GG赢了比赛后说的吗？
+关键是茶咋办？他们今天打液体啊。
+
+*****
+
+####  坚定的团子党  
+##### 21482#       发表于 2022-10-21 08:34
+
+据贴吧核弹说，鳖在直播中也透露隔音影响大，但向V社反应后无下文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 21483#       发表于 2022-10-21 08:35
+
+TA是秘鲁队吧，能听懂英文吗
+
+*****
+
+####  nowaki  
+##### 21484#       发表于 2022-10-21 08:36
+
+秘鲁人说西班牙语
+
+*****
+
+####  zhwpjy  
+##### 21485#       发表于 2022-10-21 08:36
+
+ 本帖最后由 zhwpjy 于 2022-10-21 08:39 编辑 
+
+都怪cn开发王者 你看开发lol北美已经被dota之神降下神罚 还不知悔改 还要开发王者 dota之神心眼小可不弄死你
+
+*****
+
+####  w2210059  
+##### 21486#       发表于 2022-10-21 08:37
+
+小小本来就是Dota1贴吧时代的神单霸主，更何况三技能无赖神技，tb神单算个吊毛
+
+*****
+
+####  w2210059  
+##### 21487#       发表于 2022-10-21 08:37
+
+小小本来就是Dota1贴吧时代的神单霸主，更何况三技能无赖神技，tb神单算个吊毛
+
+*****
+
+####  二宮飛鳥酱  
+##### 21488#       发表于 2022-10-21 08:37
+
+EG作为北美队听不懂英文被南美队干掉是不是过于丢人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  -SLSL-  
+##### 21489#       发表于 2022-10-21 08:39
+
+就不能是南美哥们儿打的硬<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 21490#       发表于 2022-10-21 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018005&amp;ptid=2099454" target="_blank">二宫飞鸟酱 发表于 2022-10-21 08:37</a>
+EG作为北美队听不懂英文被南美队干掉是不是过于丢人了</blockquote>
+昨天汴京过了，eg场上五个没有英语母语者，所以eg只是普普通通的菜，绝对没有菜到听到关键信息还打不过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
