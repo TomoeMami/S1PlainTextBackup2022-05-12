@@ -2594,3 +2594,17 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 这次90++掉落太抠了，才30几个箱，要的素材还特别多，不会是抱着伪无限池你们肯定会多刷点的想法设计的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 3226#       发表于 2022-10-21 18:17
+
+主要是铜材料的掉率跟上次艹本比起来不太行，其他都当添头了
+
+上次是忘却灰+99镜
+现在是仪式剑+煌星
+谁也没比谁高贵嘛
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
