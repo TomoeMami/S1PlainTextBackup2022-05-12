@@ -3219,3 +3219,14 @@ Vampire Survivors\resources\app\.webpack\renderer\assets\img
 这最终boss战还挺有内味的</blockquote>
 之前教堂的首次boss 战和1.0福地的boss 都很有通关的味道，然后过了福地才告诉你还有个隐藏角色要解锁<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不可避免  
+##### 315#       发表于 2022-10-22 04:15
+
+机翻好烂，还有图鉴解锁有BUG，从100/104开刷补图鉴，看着已经103/104了，差最后一个董事。
+
+然后打完董事图鉴变成101/104了，前面三个白刷了。
+

@@ -7885,3 +7885,100 @@ boss掉下去应该是bug，我这火属性大招的替换版也会因为这个b
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">通了，感觉人都麻了，一看成就有困难难度通关，作者什么时候更新个可选难度的真二周目，不然实在打不下去了。
 
+
+
+*****
+
+####  Yz895623  
+##### 722#       发表于 2022-10-22 01:55
+
+ 本帖最后由 Yz895623 于 2022-10-22 02:01 编辑 
+
+困难难度第五章打魔王怀疑人生啊
+那个召唤技能直接从不知道哪儿叫了个飞龙出来，血量好像还是原装的，这tm认真的吗，超级二合一是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/7/c6d3e4b93b704059273d3fecb32c7851/CMP_20221022020024972.jpg" referrerpolicy="no-referrer">
+好吧，哪只二合一，全家老小齐上阵，不干死我不罢休啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pf67  
+##### 723#       发表于 2022-10-22 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033637&amp;ptid=2098044" target="_blank">Yz895623 发表于 2022-10-22 01:55</a>
+困难难度第五章打魔王怀疑人生啊
+那个召唤技能直接从不知道哪儿叫了个飞龙出来，血量好像还是原装的，这tm ...</blockquote>
+甚至会叫两个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Yz895623  
+##### 724#       发表于 2022-10-22 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033649&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-22 01:57</a>
+甚至会叫两个
+
+—— 来自 OPPO PCLM10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+求问一手这怎么打啊，眨个眼的功夫就有七八个货色玩儿了命的锤我，身上又是麻痹又是石化，臣妾想甩手柄了啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  五块  
+##### 725#       发表于 2022-10-22 03:01
+
+ 本帖最后由 五块 于 2022-10-22 03:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033672&amp;ptid=2098044" target="_blank">Yz895623 发表于 2022-10-22 02:03</a>
+
+求问一手这怎么打啊，眨个眼的功夫就有七八个货色玩儿了命的锤我，身上又是麻痹又是石化，臣妾想甩手柄了 ...</blockquote>
+格挡接弹反接月光，优先清小怪，地狱难度除了飞龙其他都能迅速清掉，boss本体基本没啥威胁，堆飞龙了就拉一旁去，还打不过就练会级，我打这里的时候40级800血。
+
+不过说真的，这里就摔手柄了建议趁早买一个备着，比起七章及之后的恶意这小小的lich真不算啥<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+对了，一开始拉到王座左边的话第一波小怪可能卡在墙里，立马毫无威胁。
+
+*****
+
+####  苏西踩到我了  
+##### 726#       发表于 2022-10-22 03:55
+
+才知道第五章的分歧点，然后读回三个小时前的存档，这何尝不是一种改变历史
+
+*****
+
+####  有点追求  
+##### 727#       发表于 2022-10-22 04:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033637&amp;ptid=2098044" target="_blank">Yz895623 发表于 2022-10-22 01:55</a>
+
+困难难度第五章打魔王怀疑人生啊
+
+那个召唤技能直接从不知道哪儿叫了个飞龙出来，血量好像还是原装的，这tm ...</blockquote>
+建议血量先弄到1000.。随便一个石化你就要暴毙。
+
+我反正玩到这里将近40级，血量加到40，纯加攻击和敏捷，BUFF上玩有200能量就用暗杀很容易就打过去了。
+
+*****
+
+####  有点追求  
+##### 728#       发表于 2022-10-22 04:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033200&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-22 00:44</a>
+
+第三章大眼球boss咋打</blockquote>
+他没有放飞行道具你就不能近身打眼睛，就打打火之类蹭精力放白虎石柱之类的刮一刮，开始放波了就可以近身打了，最主要是药要够，10多个小药瓶就行了
+
+*****
+
+####  onlv星骸  
+##### 729#       发表于 2022-10-22 05:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033637&amp;ptid=2098044" target="_blank">Yz895623 发表于 2022-10-22 01:55:09</a>
+v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都是原版的除了飞龙没啥威胁，就debuff麻烦，石化药麻痹药磕上
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

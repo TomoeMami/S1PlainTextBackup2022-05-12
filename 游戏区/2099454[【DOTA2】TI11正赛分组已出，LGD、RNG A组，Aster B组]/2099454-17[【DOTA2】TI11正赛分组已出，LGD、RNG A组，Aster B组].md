@@ -10184,3 +10184,36 @@ ti6年代不应该是大家都菜吗。
 
 没想到VG自己都没觉得能出线，输了其乐融融，就fade不太服气的样子
 
+
+
+*****
+
+####  恐怖利刃  
+##### 25283#       发表于 2022-10-22 02:05
+
+xm应该早就麻了，年年倒在最后一步
+
+*****
+
+####  woyzeck  
+##### 25284#       发表于 2022-10-22 02:42
+
+看了眼采访，原来a畜还说看到冠超的留言当时就哭了，我怎么越看越像在恶心人呢。
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 25285#       发表于 2022-10-22 02:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033776&amp;ptid=2099454" target="_blank">woyzeck 发表于 2022-10-22 02:42</a>
+看了眼采访，原来a畜还说看到冠超的留言当时就哭了，我怎么越看越像在恶心人呢。 ...</blockquote>
+与其说恶心人，不如说这人就没有什么感情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+➗就是➗
+
+*****
+
+####  woyzeck  
+##### 25286#       发表于 2022-10-22 02:52
+
+梅憋a畜同时戏来，不愧是水厂饭圈双雄。
+

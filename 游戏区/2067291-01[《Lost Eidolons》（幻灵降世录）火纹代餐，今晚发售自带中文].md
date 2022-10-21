@@ -1982,3 +1982,34 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 不过这作倒是非常便宜。
 
+
+
+*****
+
+####  trentswd  
+##### 171#       发表于 2022-10-22 04:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">买了 序章没问题 第一章就无限loading
+
+搜了一下说可能是微星的nahimic有冲突，要全部禁了
+
+禁了之后好像没啥问题了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总体还蛮丝滑的，但是地上的书信好难找啊
+
+*****
+
+####  bwsusaga  
+##### 172#         楼主| 发表于 2022-10-22 04:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033934&amp;ptid=2067291" target="_blank">trentswd 发表于 2022-10-22 04:46</a>
+
+买了 序章没问题 第一章就无限loading
+
+搜了一下说可能是微星的nahimic有冲突，要全部禁了
+
+禁了之后 ...</blockquote>
+现在更新后可以调节亮度了，70左右差不多了，
+
+找书信之类的，前几章我还找找，后面我就不找了，因为我发现书信都会掉落在你当前回合需要交谈的任务角色身边，你做任务找人聊天的时候留意下镜头，基本都在角色身边不远处。
+
