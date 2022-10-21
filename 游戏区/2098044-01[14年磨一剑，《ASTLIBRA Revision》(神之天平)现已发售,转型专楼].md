@@ -7020,3 +7020,34 @@ H9(H1RZO%Y7B6@8UD)ZK89T.png
 我是第二次去未来要逃走的时候打的，应该不算二周目</blockquote>
 好吧，我以为是和阿斯特莱亚签契约那次
 
+
+
+*****
+
+####  jy000129  
+##### 646#       发表于 2022-10-21 10:33
+
+之前楼友提到二周目一把武器怎么拿的？我都快通关了才想起来没拿到
+
+*****
+
+####  yla  
+##### 647#       发表于 2022-10-21 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019300&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-21 10:04</a>
+
+初期弓在哪，到火山了箭还只能用手扔
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">进第三章就能打第三章对应的斗技场杯赛，第一场就给个弩，比捡来的弓好用多了
+
+*****
+
+####  黒長直姫  
+##### 648#       发表于 2022-10-21 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019833&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-21 10:33</a>
+
+之前楼友提到二周目一把武器怎么拿的？我都快通关了才想起来没拿到</blockquote>
+给老婆喂15个爱情
+
