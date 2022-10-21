@@ -564,3 +564,12 @@ PC大屏听歌对味，AA快下池
 全世界上线的四国语言游戏，这流水一般了</blockquote>
 我看的这个只有日本，其他三国不清楚流水多少
 
+
+
+*****
+
+####  薛定谔的小猫  
+##### 68#       发表于 2022-10-21 18:35
+
+这种游戏的资源是要一直在后台挂着才会增加，还是杀了进程也会加啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
