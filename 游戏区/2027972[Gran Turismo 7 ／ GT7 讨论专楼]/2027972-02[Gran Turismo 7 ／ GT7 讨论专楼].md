@@ -194,3 +194,12 @@ gt7的每日竞赛还是全是公路赛吗，有拉力吗</blockquote>
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  byisme001  
+##### 1698#       发表于 2022-10-21 13:31
+
+gt7这抽奖是黑幕吧，倒现在没回都是抽到最差的那个
+
