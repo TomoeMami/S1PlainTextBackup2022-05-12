@@ -2531,3 +2531,12 @@ job子有种胡桃青春版的既视感
 
 上错了学一个人偷偷到学校后面废弃房子前哭鼻子，也太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CharlieZ-  
+##### 209#       发表于 2022-10-21 14:05
+
+印象最深刻的是那句Bad shit<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">口音太逗了
+
