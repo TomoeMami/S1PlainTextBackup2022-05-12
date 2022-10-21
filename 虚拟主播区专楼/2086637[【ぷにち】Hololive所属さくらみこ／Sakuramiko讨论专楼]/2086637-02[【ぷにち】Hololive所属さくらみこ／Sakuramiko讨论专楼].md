@@ -9961,3 +9961,25 @@ pm.jpg
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 2448#       发表于 2022-10-21 21:51
+
+<img src="https://p.sda1.dev/7/1f2c75ddd5425bbbfce44ca87d4d3463/CMP_20221021214859939.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 2449#       发表于 2022-10-21 21:57
+
+ 本帖最后由 rs5621 于 2022-10-21 21:58 编辑 
+<blockquote>さくらみこオリ曲『ベイビーダンス』歌ったよ的Twitter<blockquote>作业とMTGしていたらこんな时间だYO！</blockquote>
+
+そのかわりに、动画をあげようと、思うYO🥹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
