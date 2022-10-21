@@ -11064,3 +11064,15 @@ horipro 摩多摩多
 景品厂什么时候死</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">关键是还死贵，比wishsong那套贵了好几倍，它卖300一个我都加入愿望单了
 
+
+
+*****
+
+####  starring  
+##### 8522#       发表于 2022-10-21 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58018415&amp;ptid=2078110" target="_blank">adw667 发表于 2022-10-21 09:10</a>
+关键是还死贵，比wishsong那套贵了好几倍，它卖300一个我都加入愿望单了 ...</blockquote>
+价格比我手上的alter索菲还贵，可是质量看着像景品，衣服细节做成一团，面相也不好看<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+世嘉星团两套景品都不怎样，只胜在便宜。眼镜厂夏服那套好一点点
+

@@ -3192,3 +3192,12 @@ Vampire Survivors\resources\app\.webpack\renderer\assets\img
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是没有正常的中文版么？那我继续等着
 
+
+
+*****
+
+####  kuglv  
+##### 312#       发表于 2022-10-21 09:27
+
+不是说1.0不用社区汉化了吗，怎么还是这么拉啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了，反正这游戏也无所谓
+
