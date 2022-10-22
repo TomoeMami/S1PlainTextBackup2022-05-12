@@ -6649,3 +6649,28 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 
 （是玩家把奎爷玩搞死了）
 
+
+
+*****
+
+####  bingo0716  
+##### 723#       发表于 2022-10-22 08:11
+
+能确定没有高尔夫剧情就准备预购了。
+
+*****
+
+####  医生狼多  
+##### 724#       发表于 2022-10-22 08:11
+
+ 本帖最后由 医生狼多 于 2022-10-22 08:16 编辑 
+
+也太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强制剧情活是吧
+
+*****
+
+####  陈玉礼  
+##### 725#       发表于 2022-10-22 08:13
+
+草 还能这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
