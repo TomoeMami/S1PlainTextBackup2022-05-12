@@ -4180,3 +4180,234 @@ atf老老实实打这些先手英雄还是可以的。按住
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  walfeds  
+##### 26051#       发表于 2022-10-22 13:43
+
+ptsd是吧
+
+*****
+
+####  roxas.sora  
+##### 26052#       发表于 2022-10-22 13:44
+
+本泽马这个采访...社恐啊
+
+*****
+
+####  情商  
+##### 26053#         楼主| 发表于 2022-10-22 13:45
+
+说真的，gg这个队跟rng差不多，都是再同一个位置核心被抓了两次开始恶性循环，一个人都快没了的沙王就这么有经济了，难顶
+
+很难不说这个尸王是西欧冠晴
+
+*****
+
+####  Avantasi  
+##### 26054#       发表于 2022-10-22 13:45
+
+说真的，gg这个队跟rng差不多，都是再同一个位置核心被抓了两次开始恶性循环  很难不说这个尸王是西欧冠晴
+
+*****
+
+####  walfeds  
+##### 26055#       发表于 2022-10-22 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038367&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-22 13:44</a>
+
+本泽马这个采访...社恐啊</blockquote>
+我怎么看到的是光头采访
+
+*****
+
+####  没钱买手办  
+##### 26056#       发表于 2022-10-22 13:45
+
+采访还是应该采访皮球这样的
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  roxas.sora  
+##### 26057#       发表于 2022-10-22 13:46
+
+谦虚了，居然说3000分的玩家天火都砸的比他准
+
+*****
+
+####  nightmare902015  
+##### 26058#       发表于 2022-10-22 13:46
+
+蓝猫在本次淘汰赛中83%胜率我觉得可以搞搞看啊，也是很多中单的绝活吧。
+灵活不说，输出嘎嘎暴力控制也不错。
+
+*****
+
+####  syndrome2032  
+##### 26059#       发表于 2022-10-22 13:46
+
+下面该ett大战液体了。
+
+马桶生涯最后的战役差不多该点开了。
+
+*****
+
+####  情商  
+##### 26060#         楼主| 发表于 2022-10-22 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这盘卡尔舞台确实大啊，有小娜迦 沙王 双头龙帮他定位，打的也确实好，bzm还是谦虚了
+
+*****
+
+####  Avantasi  
+##### 26061#       发表于 2022-10-22 13:47
+
+这个旋转舞台可以的，节奏好快，建议推广，不过确实没隔音房有点sima
+
+*****
+
+####  sodah  
+##### 26062#       发表于 2022-10-22 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038322&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-22 13:40</a>
+ 双头龙卡尔的高地真不好上，其实第一次上高地影魔就被一套小技能甩残了  —— 来自 HONOR LGE-AN00, Andr ...</blockquote>
+讲道理第一个盾就不是让你上对面高地的啊，有兽王野区不扫还能让对面带掉自己下路二塔就离谱。
+
+*****
+
+####  情商  
+##### 26063#         楼主| 发表于 2022-10-22 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038396&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-22 13:46</a>
+
+蓝猫在本次淘汰赛中83%胜率我觉得可以搞搞看啊，也是很多中单的绝活吧。
+
+灵活不说，输出嘎嘎暴力控制也不错 ...</blockquote>
+被推起来就没啥用了，还不如老鹿
+
+*****
+
+####  roxas.sora  
+##### 26064#       发表于 2022-10-22 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038383&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-22 13:45</a>
+
+我怎么看到的是光头采访</blockquote>
+主舞台这边张天鸽采访是本泽马
+
+*****
+
+####  帕林马哲理  
+##### 26065#       发表于 2022-10-22 13:48
+
+我感觉液体2-0宰entity，马桶暴走一次<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 26066#       发表于 2022-10-22 13:48
+
+BZM卡尔绝活啊，虽然不是奇迹普森那种现象级吧，但真绝活。
+
+*****
+
+####  nightmare902015  
+##### 26067#       发表于 2022-10-22 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038414&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-22 13:48</a>
+被推起来就没啥用了，还不如老鹿</blockquote>
+草，那怎么可能和ts比。我只是想想猴爹与其玩ts那吊样，不如试试蓝猫火女吧。
+
+*****
+
+####  syndrome2032  
+##### 26068#       发表于 2022-10-22 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038422&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-22 13:49</a>
+草，那怎么可能和ts比。我只是想想猴爹与其玩ts那吊样，不如试试蓝猫火女吧。 ...</blockquote>
+三猫版本猴爹也很少玩蓝猫。
+
+*****
+
+####  情商  
+##### 26069#         楼主| 发表于 2022-10-22 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038422&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-22 13:49</a>
+
+草，那怎么可能和ts比。我只是想想猴爹与其玩ts那吊样，不如试试蓝猫火女吧。 ...</blockquote>
+我巴不得nts鸟漫狮城
+
+*****
+
+####  反方向的波  
+##### 26070#       发表于 2022-10-22 13:50
+
+杰伦热身一下，准备给可敬马桶唱最后的战役了
+
+
+
+*****
+
+####  walfeds  
+##### 26071#       发表于 2022-10-22 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038415&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-22 13:48</a>
+
+主舞台这边张天鸽采访是本泽马</blockquote>哦哦
+
+*****
+
+####  柚上舍人  
+##### 26072#       发表于 2022-10-22 13:52
+
+粗犷的桶哥，会是最后的战役吗？
+
+*****
+
+####  情商  
+##### 26073#         楼主| 发表于 2022-10-22 13:52
+
+扣1 纯真神在液体泉水画z
+
+*****
+
+####  -SLSL-  
+##### 26074#       发表于 2022-10-22 13:52
+
+哇
+
+*****
+
+####  syndrome2032  
+##### 26075#       发表于 2022-10-22 13:53
+
+上来就**，ett已经准备打膀胱大战了
+
+*****
+
+####  Crazy_Knife  
+##### 26076#       发表于 2022-10-22 13:53
+
+那我觉得液体打不过ett，看好ett2:1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NaYo丶  
+##### 26077#       发表于 2022-10-22 13:53
+
+感觉又是膀胱局
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Avantasi  
+##### 26078#       发表于 2022-10-22 13:53
+
+赶紧搞完看南美上帝了
+

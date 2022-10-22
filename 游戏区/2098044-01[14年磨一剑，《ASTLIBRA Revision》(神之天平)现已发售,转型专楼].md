@@ -8247,3 +8247,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 恶魔城彩蛋那里 就是城门口水晶点的商店正下方那个被挡着入口的山</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，竟然在那里
 
+
+
+*****
+
+####  shimotsuki14  
+##### 755#       发表于 2022-10-22 13:44
+
+昨夜打完第四章，虽然小镇主线令人唏嘘，但人际关系真是…不忍直视。
+

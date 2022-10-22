@@ -810,3 +810,14 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 听说下个月的剧集拿子回归
 
+
+
+*****
+
+####  丹德里恩  
+##### 685#       发表于 2022-10-22 13:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">这武器真就只能给小朋友玩，比双重剑还小....
+
+另外查询未来特宝状态
+
