@@ -8589,3 +8589,18 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 能吧，虽然我是一周目清的</blockquote>
 那二周目还有新的隐藏宝箱么，一周目拿完了，如果没有我就能省几个水晶
 
+
+
+*****
+
+####  jy000129  
+##### 789#       发表于 2022-10-22 20:14
+
+ 本帖最后由 jy000129 于 2022-10-22 20:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58043681&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 20:09</a>
+
+那二周目还有新的隐藏宝箱么，一周目拿完了，如果没有我就能省几个水晶 ...</blockquote>
+有的，多几个扭蛋
+
+另外多几个可升级宝石的拿，但宝石不在箱子里，只能找地图上的亮点
+
