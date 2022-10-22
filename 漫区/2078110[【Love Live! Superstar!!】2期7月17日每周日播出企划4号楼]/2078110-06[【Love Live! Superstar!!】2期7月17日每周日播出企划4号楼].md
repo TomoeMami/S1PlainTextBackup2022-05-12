@@ -11469,3 +11469,14 @@ TYMM好像瘦了，未来可期
 只能说很复杂，经典决策时豪情万丈，论证时唯唯诺诺，执行时得过且过，小错误时无人监管，需要倒查错误时为时已晚，大公司病是这样的，日本大公司还要更奇怪一点
 望向30年才查出来造假的三菱电机
 
+
+
+*****
+
+####  ruffian  
+##### 8553#       发表于 2022-10-22 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033082&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-10-22 00:31:14</a></blockquote>团里海选上来的可不止立德一个，恋和樱小路不也献祭了吗？就算海选上了也还是有被献祭的可能，被强推的只有一个，真是残酷呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
