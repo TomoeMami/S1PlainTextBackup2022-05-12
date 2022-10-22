@@ -8765,3 +8765,32 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 打完第六章寻思回头清清ex没想到第三个就卡住了……好不容易爬过了道中，结果跟龙神对搓一晚上也没打过去昏迷了我，石化扭曲二连这什么变态连招啊，自动格挡没法出完美格挡，盾条还是寄，盾条寄了扭曲直接把我送走……于是换个思路用神医免疫石化然后连挡倒是成功解了，然而神医副作用1.5受伤，跳起来打龙蹭到龙头火球套餐我还是直接满血归零，这可咋办啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 一想到明天还要先重新爬过蘑菇天使套餐我就虚脱了
 
+
+
+*****
+
+####  jy000129  
+##### 807#       发表于 2022-10-23 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047291&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-22 23:16</a>
+
+打完第六章寻思回头清清ex没想到第三个就卡住了……好不容易爬过了道中，结果跟龙神对搓一晚上也没打过去昏 ...</blockquote>
+不如试试把第七章通关了再回来打，攻防高了打起来简单很多
+
+*****
+
+####  何处分可  
+##### 808#       发表于 2022-10-23 00:32
+
+第四章这个女装这段剧情太乐了，就是收集素材这个东市买骏马西市买长鞭有点绷不住，不过还好要刷素材和武器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jy000129  
+##### 809#       发表于 2022-10-23 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046712&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 22:40</a>
+
+装备盘里分配能力衰减线是啥意思</blockquote>
+属性到了一个值后收益会衰减，这个是提高属性收益的
+
