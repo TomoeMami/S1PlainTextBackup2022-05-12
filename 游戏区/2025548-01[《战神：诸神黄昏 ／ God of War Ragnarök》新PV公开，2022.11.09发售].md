@@ -6784,3 +6784,24 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 https://www.veed.io/view/6b49c5ab-67f8-4f78-ae7a-cab8d68f ...</blockquote>
 就只有雷神在那骂奎爷骂了50秒哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  popchong  
+##### 737#       发表于 2022-10-22 11:12
+
+ 本帖最后由 popchong 于 2022-10-22 11:14 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这托尔虽然口吐芬芳，但是战斗经验完全不输奎爷，力量甚至更胜一筹，超级肥仔
+<img src="https://img.saraba1st.com/forum/202209/14/142537jkqzkt33kkazkru5.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 738#       发表于 2022-10-22 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">密米尔认证九界最嗜血屠夫岂是浪得虚名
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

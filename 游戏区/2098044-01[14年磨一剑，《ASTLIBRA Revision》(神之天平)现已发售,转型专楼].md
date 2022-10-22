@@ -8028,3 +8028,22 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 黄金宝箱出的概率是随机的吗，第三章我一个黄金宝箱都没碰见</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问就是心不够诚，刷的不够多
 
+
+
+*****
+
+####  h33  
+##### 734#       发表于 2022-10-22 11:17
+
+全武器精通嘉隆还差一个，还有隐藏吗？
+
+*****
+
+####  jy000129  
+##### 735#       发表于 2022-10-22 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036296&amp;ptid=2098044" target="_blank">h33 发表于 2022-10-22 11:17</a>
+
+全武器精通嘉隆还差一个，还有隐藏吗？</blockquote>
+武器装备要是收集全了去贤者塔找大贤者换一把武器
+

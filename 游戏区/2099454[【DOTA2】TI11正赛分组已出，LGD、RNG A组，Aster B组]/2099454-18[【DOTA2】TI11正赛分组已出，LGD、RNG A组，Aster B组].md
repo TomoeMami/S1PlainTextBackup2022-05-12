@@ -350,3 +350,158 @@ lgd还能到败决？
 
 bc要是冠了搞不好真能让lgd游上去
 
+
+
+*****
+
+####  Rorgen  
+##### 25548#       发表于 2022-10-22 11:12
+
+这sf被草得满地图乱跑，真的有点搞笑好吧，想赢必须boom爹波波无解先手
+
+*****
+
+####  莉拉厨  
+##### 25549#       发表于 2022-10-22 11:12
+
+集美把lgd夺冠剧本都想好了，bc阿茶og石头人，最后3:0可敬的对手秘密，maybe上台抱着ame痛哭，世纪tm的大和解啊
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 25550#       发表于 2022-10-22 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036212&amp;ptid=2099454" target="_blank">morwhipppo 发表于 2022-10-22 11:09</a>
+
+有没有漏油核中核，bc真的冠了嘛</blockquote>
+没有
+
+*****
+
+####  一品堂官  
+##### 25551#       发表于 2022-10-22 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035913&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-22 10:44</a>
+来个前十二次元说一下孤独摇滚好看吗
+
+—— 来自 Xiaomi 21121210C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+昨晚看了两集 一般 可能社交障碍人士会有共情吧
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  莉拉厨  
+##### 25552#       发表于 2022-10-22 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036212&amp;ptid=2099454" target="_blank">morwhipppo 发表于 2022-10-22 11:09</a>
+有没有漏油核中核，bc真的冠了嘛</blockquote>
+十二小时过去官推没说，是造垚的可能大幅上升，不过老外说不定真的不在乎，阳了也不急着报
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 25553#       发表于 2022-10-22 11:17
+
+上个版本的ban人
+
+*****
+
+####  nowaki  
+##### 25554#       发表于 2022-10-22 11:17
+
+外网关于bc新冠也只有个头像是铃原露露的管人痴提了一句，鉴定为国内集美造谣
+
+*****
+
+####  弈秋  
+##### 25555#       发表于 2022-10-22 11:18
+
+还在蠕动亚龙
+
+*****
+
+####  Rorgen  
+##### 25556#       发表于 2022-10-22 11:18
+
+戏瘾来了atf
+
+*****
+
+####  -SLSL-  
+##### 25557#       发表于 2022-10-22 11:19
+
+atf还搁这玩他那逼毒瘤龙呢
+
+*****
+
+####  nowaki  
+##### 25558#       发表于 2022-10-22 11:19
+
+atf17岁打得像71岁一样瘤
+
+*****
+
+####  nxmonitor  
+##### 25559#       发表于 2022-10-22 11:19
+
+OG备用时间为什么才50秒了？
+
+*****
+
+####  walfeds  
+##### 25560#       发表于 2022-10-22 11:19
+
+已昏厥，勿念
+
+
+
+*****
+
+####  银翼的维罗西  
+##### 25561#       发表于 2022-10-22 11:20
+
+ATF这**是给自己选的吗，我是觉得GG这一号位不仅不要针对他，更应该让他肥起来刷光地图，因为他肥了也没用
+
+*****
+
+####  勤练带来力量  
+##### 25562#       发表于 2022-10-22 11:21
+
+atf的毒瘤程度直逼老年艹艹
+
+*****
+
+####  哈曼的YY  
+##### 25563#       发表于 2022-10-22 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036299&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-22 11:17</a>
+
+外网关于bc新冠也只有个头像是铃原露露的管人痴提了一句，鉴定为国内集美造谣 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/22/112113cyv4v4lg8tgflttm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 11:21 上传
+
+*****
+
+####  反方向的波  
+##### 25564#       发表于 2022-10-22 11:21
+
+一想到eslone杜鹏被ateaf打了两个大芘兜就生气
+
+*****
+
+####  adretyu67  
+##### 25565#       发表于 2022-10-22 11:22
+
+不要慌 马桶/zzzz会教育atf的
+
