@@ -11735,3 +11735,14 @@ A店下单后直接发电子码，G店这次不一样，是跟着CD一起发的�
 twi：@unyanai
 翻嵌：洲崎惠梨
 
+
+
+*****
+
+####  Kfly  
+##### 8578#       发表于 2022-10-22 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58039200&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-22 15:05</a>
+“多变现”和“快变现”还是有些微区别的，别看一次数据平平，但是频率高啊，在单次投入只是赚多赚少的背 ...</blockquote>
+原来是志不在此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
