@@ -11534,3 +11534,24 @@ TYMM好像瘦了，未来可期
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  starring  
+##### 8558#       发表于 2022-10-22 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035258&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-10-22 09:42</a>
+
+个人觉得青山俨然是现实里的副c，动画再怎么如何，小百合不在的时候肯定还是靠青山的，海选组的意义还是存 ...</blockquote>
+铃原的定位越看越尴尬，2期生唯一有C位曲的是emo，自身歌舞实力又比不上另外三人，性格也不够突出甚至有点小透明。外貌的话大叔粉大概会喜欢，刚亮相的时候说从打铁大叔变成铃原大叔的人现在似乎也没那么多。现在夹在一期生和三期生中间，一副炮灰的样子太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 8559#       发表于 2022-10-22 10:21
+
+中了鲤鱼新单的签售，但是以为还是跟前两次那样陪跑，所以留言特别傻，希望到时别被嫌弃<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+说起来为什么煤炉一直没有人出唠嗑抽选码…………<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+

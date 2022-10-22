@@ -6770,3 +6770,17 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 长枪我是觉得不太可能，再怎么蛮子好歹也是主神，奥丁最后连自己的武器都在别人手上被爆揍那也 ...</blockquote>
 剑也有不少啊，弗雷的胜利之剑，苏尔特尔的炎之魔剑，还有提尔锋这种
 
+
+
+*****
+
+####  lain大人  
+##### 736#       发表于 2022-10-22 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58034310&amp;ptid=2025548" target="_blank">SergeGlenn 发表于 2022-10-22 07:18</a>
+
+50秒奎爷VS索尔，我没看，不怕剧透的可以瞅下
+
+https://www.veed.io/view/6b49c5ab-67f8-4f78-ae7a-cab8d68f ...</blockquote>
+就只有雷神在那骂奎爷骂了50秒哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
