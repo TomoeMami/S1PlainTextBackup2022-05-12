@@ -138,3 +138,19 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">会长这盘子，没有新语音吗
 
+
+
+*****
+
+####  不灭的旋律  
+##### 7404#       发表于 2022-10-22 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006171&amp;ptid=1570791" target="_blank">alialex 发表于 2022-10-20 15:44</a>
+
+这次大流士联动符合剧情有改过吗，刚把第一张地图打完，怎么追加角色都露脸几次了 ...</blockquote>
+即改了又没改，原有基础上插入了伊芙丽的剧情
+
+----------------------------------------------
+
+顺便提醒一下奶排联动送的10连快到期了，各位自己看着办
+

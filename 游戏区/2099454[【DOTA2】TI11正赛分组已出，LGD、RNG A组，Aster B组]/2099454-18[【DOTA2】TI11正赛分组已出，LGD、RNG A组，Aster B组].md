@@ -4854,3 +4854,92 @@ tobi这队内地位真低啊，被动了半天在塔下绕了一圈都没人T的
 
 相信电 狗！
 
+
+
+*****
+
+####  cwlo  
+##### 26139#       发表于 2022-10-22 14:21
+
+这套**阵容小组赛狂输还选<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏西踩到我了  
+##### 26140#       发表于 2022-10-22 14:21
+
+**无限守高带线，小娜迦无限带线，别说一个小时，两个小时都有可能……
+
+到后面没准冰女转核，把你们都biu死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 26141#       发表于 2022-10-22 14:22
+
+这种连个团战发动点都没的阵容除了拖能干的事情也不多
+
+*****
+
+####  wzy200912345  
+##### 26142#       发表于 2022-10-22 14:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">漏油是不是真歇息去了，都不回咯
+
+*****
+
+####  强袭型抹布  
+##### 26143#       发表于 2022-10-22 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038788&amp;ptid=2099454" target="_blank">苏西踩到我了 发表于 2022-10-22 14:21</a>
+**无限守高带线，小娜迦无限带线，别说一个小时，两个小时都有可能……
+
+到后面没准冰女转核，把你们都biu ...</blockquote>
+90分钟大概能刷出5个核，跟rng 回家局差不多。
+只要核够多，谜团就没用了
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zhrs456  
+##### 26144#       发表于 2022-10-22 14:27
+
+⚡🐶的局什么时候有羊刀什么时候有讨论价值
+
+*****
+
+####  蛭人  
+##### 26145#       发表于 2022-10-22 14:28
+
+艹，怎么集美又进本楼啊，无视LZ规则是呗。
+
+*****
+
+####  逃离二次元  
+##### 26146#       发表于 2022-10-22 14:30
+
+在和兄弟吃火锅
+已经辣晕了<img src="https://static.saraba1st.com/image/smiley/face2017/141.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 26147#       发表于 2022-10-22 14:31
+
+术士zai又开始了，经典吸队友血不参战旁边刷两个技能看着。
+
+*****
+
+####  ninini212  
+##### 26148#       发表于 2022-10-22 14:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">**大战，我先去昏睡了
+
+*****
+
+####  asd235614  
+##### 26149#       发表于 2022-10-22 14:32
+
+午休去趴会，感觉睡醒可能还没打完
+

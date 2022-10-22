@@ -8284,3 +8284,30 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 后面这食材也太难掉了吧，研究所我已经来回杀穿了三遍所有的材料都全了就差砂糖。 ...</blockquote>
 好像研究所的树会掉，我当时都放弃刷了，直接去面包店买果酱面包分解出来的砂糖
 
+
+
+*****
+
+####  M27MD  
+##### 759#       发表于 2022-10-22 14:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这2周目进魔王城就问要不要带白，这又是坑吗
+
+*****
+
+####  M27MD  
+##### 760#       发表于 2022-10-22 14:26
+
+ 本帖最后由 M27MD 于 2022-10-22 14:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">砂糖不是第九章的话，就面包店买2400血的那个包分解出果汁咯，不要果汁继续分解就是砂糖了
+
+*****
+
+####  AeonsTorn  
+##### 761#       发表于 2022-10-22 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038509&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 13:55</a>
+怎么才算收集齐所有装备啊，小徽章也算么，我把宝物图鉴里的装备都集齐了找老头没反应 ...</blockquote>
+石像盾，心天平，竞技场最后的盾，一般可能漏的就这几个
+
