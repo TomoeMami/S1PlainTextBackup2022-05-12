@@ -8510,3 +8510,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 第三章这boss，扣的我手都疼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  onlv星骸  
+##### 781#       发表于 2022-10-22 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58037744&amp;ptid=2098044" target="_blank">SyIXVII 发表于 2022-10-22 12:55:26</a>
+具体在哪段剧情</blockquote>一直喂爱情，直到她位置变了就可以了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

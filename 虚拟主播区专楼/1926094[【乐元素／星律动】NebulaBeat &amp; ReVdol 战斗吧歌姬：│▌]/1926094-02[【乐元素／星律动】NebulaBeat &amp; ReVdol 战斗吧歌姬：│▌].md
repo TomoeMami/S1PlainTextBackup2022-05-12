@@ -8429,3 +8429,33 @@ kino我是百连时关注的，但完全不了解的话，也不会点进直播�
 
 你这么说我就懂了，闪了
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2396#         楼主| 发表于 2022-10-22 19:02
+
+捡剑hhh
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h7e9pydzadj20pl0dq4e0.jpg" referrerpolicy="no-referrer">
+
+是这样的，当初开始看歌姬时候一代清歌已经休息了，虽然之前楼里有人截图聊到也还是没点进去， 
+
+缘差不多就这样吧
+
+*****
+
+####  awy47  
+##### 2397#       发表于 2022-10-22 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">就这样吧，各位楼友有缘再见
+
+*****
+
+####  喜闻乐见  
+##### 2398#         楼主| 发表于 2022-10-22 19:09
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h7e9y8rn0kj20pv0em4ge.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h7e9xndej6j20nm0cwnaa.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h7e9y1gjflj20o00dnqgo.jpg" referrerpolicy="no-referrer">
+

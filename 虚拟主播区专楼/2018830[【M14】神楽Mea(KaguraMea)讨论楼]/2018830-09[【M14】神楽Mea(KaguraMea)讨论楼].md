@@ -7598,3 +7598,15 @@ kagura_mea_new.pt
 
 errrrr，不是录播的吗
 
+
+
+*****
+
+####  ashero  
+##### 12722#       发表于 2022-10-22 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58040715&amp;ptid=2018830" target="_blank">07579394 发表于 2022-10-22 17:06</a>
+
+errrrr，不是录播的吗</blockquote>
+10月1录的
+
