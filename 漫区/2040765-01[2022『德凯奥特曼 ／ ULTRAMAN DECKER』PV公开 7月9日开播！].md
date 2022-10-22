@@ -779,3 +779,14 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 原本预想的是未来德凯奉献出生命，将自己的光传递给了奏大，以自己的性命为赌注，期待现在的德凯能够创造出数百年后没有斯菲亚存在的和平未来，结果就是后代隔空传功，以此获得了新形态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a656418zz  
+##### 682#       发表于 2022-10-22 12:07
+
+隔壁对这集的评价一转抗疫和键政 不得不说真写实啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

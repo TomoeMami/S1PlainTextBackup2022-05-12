@@ -8091,3 +8091,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 看了下是副武器这个技能，在魔王城外气球商店那个图，假山下面的山洞里面 ...</blockquote>
 多谢多谢，地图入口被树挡住根本没发现<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lazycat233  
+##### 740#       发表于 2022-10-22 12:10
+
+竞技场一共几个啊
+
