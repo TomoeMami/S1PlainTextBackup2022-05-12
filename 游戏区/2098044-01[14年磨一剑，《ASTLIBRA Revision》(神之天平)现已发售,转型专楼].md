@@ -8342,3 +8342,32 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 石像盾，心天平，竞技场最后的盾，一般可能漏的就这几个</blockquote>
 心天平是啥
 
+
+
+*****
+
+####  lazycat233  
+##### 765#       发表于 2022-10-22 14:52
+
+还有我9个竞技场任务达成了好像没给爱心
+
+*****
+
+####  绕指流光  
+##### 766#       发表于 2022-10-22 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58039049&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 14:48</a>
+心天平是啥</blockquote>
+炼金出变石后城镇面包店购买，各色石头就是最终的几把武器满熟练度奖励
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  六至九  
+##### 767#       发表于 2022-10-22 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58039085&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 14:52</a>
+还有我9个竞技场任务达成了好像没给爱心</blockquote>
+爱心是第十章竞技场才会有的
+

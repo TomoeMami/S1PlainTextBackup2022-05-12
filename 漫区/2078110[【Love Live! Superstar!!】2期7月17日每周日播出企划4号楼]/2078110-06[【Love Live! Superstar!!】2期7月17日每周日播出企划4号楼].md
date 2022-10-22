@@ -11675,3 +11675,34 @@ A店下单后直接发电子码，G店这次不一样，是跟着CD一起发的�
 
 之后访谈又来个什么一开始就知道有三期生啦，落选了好不开心，三巡就已经在现场巴拉巴拉
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8572#       发表于 2022-10-22 14:52
+
+除了上次就有意愿但年龄不够的（这部分上个地上波都得成纸片人多少有点debuff），更多的可不就剩上次挑剩下的了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不过反正也就两个，挑一挑总还是有的，别再整个成长型我就谢谢他们了
+
+*****
+
+####  优妮可  
+##### 8573#       发表于 2022-10-22 14:56
+
+估计也选不出小百合青山那种开局就拉满属性的了。只能选点有苗子的慢慢培养了，反正我是觉得越选越拉的。真来个大神那铃原得尴尬了
+
+*****
+
+####  player3960  
+##### 8574#       发表于 2022-10-22 14:59
+
+鲤鱼fmt也cue到菜宝了，最近几次b站直播每次都有提到菜宝，关系是真好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/22/145831uqdmbva79aafq965.png" referrerpolicy="no-referrer">
+
+<strong>3f56fb863dff453f854b857dac821b9c.png</strong> (27.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 14:58 上传
+
