@@ -8100,3 +8100,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 竞技场一共几个啊
 
+
+
+*****
+
+####  黒長直姫  
+##### 741#       发表于 2022-10-22 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036958&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 12:10</a>
+
+竞技场一共几个啊</blockquote>
+每章一个 一个5场 新章的9场 打完会长会恭喜你的
+

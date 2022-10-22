@@ -11587,3 +11587,18 @@ TYMM好像瘦了，未来可期
 
 什么储备人才，储备一群肉眼可见只会拿你当工具当跳板的小妹妹吗，企划这么屈尊啊，我哭死。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 8563#       发表于 2022-10-22 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036734&amp;ptid=2078110" target="_blank">a92063256 发表于 2022-10-22 11:54</a>
+
+你这一说我想起来我找代购买了几张ag还没给我抽选码，该去问问去了 ...</blockquote>
+
+A店下单后直接发电子码，G店这次不一样，是跟着CD一起发的码券。
+
+以上都是指网店购买
+
