@@ -2704,3 +2704,14 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 （活动主线好像会掉俩狗粮，我打了三个10AP日常本，然后找了个free本刷了一次就完成了）
 
+
+
+*****
+
+####  yzj134100  
+##### 3236#       发表于 2022-10-23 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58037643&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-10-22 12:47</a>
+没断签，连续登陆59天</blockquote>
+那不清楚了，没关注过新人登陆奖励
+
