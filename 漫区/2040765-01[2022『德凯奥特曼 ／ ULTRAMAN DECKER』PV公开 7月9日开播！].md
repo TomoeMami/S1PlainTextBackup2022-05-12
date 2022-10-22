@@ -730,3 +730,21 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 所以未来的扳机嗝屁了？
 
+
+
+*****
+
+####  拆骨羊肉2  
+##### 679#       发表于 2022-10-22 11:11
+
+完美的一集我只能说，背景设定全抖干净的同时充满了情感的爆发
+最后所有的感情汇聚成最终形态的绝招
+特效也拉满
+还留下一堆扣子，让人期待
+脚本太强了
+久弥你看看人家
+你讲了两季+剧场版，还在德凯里塞了两集垃圾，还不如人家一集信息量大情感丰富<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+写作不适合你，回家种地吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

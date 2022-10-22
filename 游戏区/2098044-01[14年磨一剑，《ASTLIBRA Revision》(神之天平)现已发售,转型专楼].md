@@ -8016,3 +8016,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 黄金宝箱出的概率是随机的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，第三章我一个黄金宝箱都没碰见
 
+
+
+*****
+
+####  jy000129  
+##### 733#       发表于 2022-10-22 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035923&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-22 10:44</a>
+
+黄金宝箱出的概率是随机的吗，第三章我一个黄金宝箱都没碰见</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问就是心不够诚，刷的不够多
+
