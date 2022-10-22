@@ -8701,3 +8701,41 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">乐园第三个小徽章怎么拿
 
+
+
+*****
+
+####  六至九  
+##### 800#       发表于 2022-10-22 22:24
+
+自制道具最后一个是什么？
+
+*****
+
+####  DRAGONBLEAPIECE  
+##### 801#       发表于 2022-10-22 22:24
+
+刚开始玩
+
+求问一下 有时候自动会出现的角色前方白色透明玻璃一样的是啥？
+
+*****
+
+####  A1LI  
+##### 802#       发表于 2022-10-22 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046320&amp;ptid=2098044" target="_blank">M27MD 发表于 2022-10-22 22:20</a>
+
+乐园第三个小徽章怎么拿</blockquote>
+就是那个打木桶的房间，跳出去，然后悬浮在空中，用弩或者弓箭射。
+
+*****
+
+####  A1LI  
+##### 803#       发表于 2022-10-22 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046407&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-22 22:24</a>
+
+自制道具最后一个是什么？</blockquote>
+二周目给女主喂15个爱情，解锁完美结局，去酒馆和她对话，会给你一把激光剑，算是本作最后一把武器，把这武器熟练度练满，就解锁了那最后一个道具“手电筒”。
+
