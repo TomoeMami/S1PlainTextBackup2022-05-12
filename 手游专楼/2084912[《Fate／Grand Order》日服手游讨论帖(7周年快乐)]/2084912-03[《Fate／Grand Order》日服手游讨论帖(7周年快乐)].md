@@ -2679,3 +2679,15 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 日推看到个 普通のソシャゲ tag 竟然是在聊 FGO，原来 FGO 运营之前都没搞过转发抽奖吗？不过确实也是在日本流行转发抽奖前就火起来的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  J-002  
+##### 3234#       发表于 2022-10-22 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58037643&amp;ptid=2084912" target="_blank">铁柱子 发表于 2022-10-22 12:47:59</a>
+没断签，连续登陆59天</blockquote>新人/回归奖励领完了？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
