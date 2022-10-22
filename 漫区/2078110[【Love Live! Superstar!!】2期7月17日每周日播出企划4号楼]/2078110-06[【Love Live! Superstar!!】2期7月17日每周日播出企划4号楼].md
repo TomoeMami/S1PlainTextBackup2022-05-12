@@ -11706,3 +11706,32 @@ A店下单后直接发电子码，G店这次不一样，是跟着CD一起发的�
 
 2022-10-22 14:58 上传
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8575#       发表于 2022-10-22 15:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">反正加人确定事项那我还是希望能来点即战力，比如结那舞台的表现好的话怎么都更好接受些，至于动画VN什么的三期随便安排点吃瘪糊弄糊弄大家就当无事发生了，反正大家都是垫子
+
+*****
+
+####  nufawneafg  
+##### 8576#       发表于 2022-10-22 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035299&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-22 09:46</a>
+如果现在的操作能做到快速变现价值的话，那我也没话说了
+
+就说多赚钱这事上，官方肯定是要挨上一棒 ...</blockquote>
+“多变现”和“快变现”还是有些微区别的，别看一次数据平平，但是频率高啊，在单次投入只是赚多赚少的背景下，这不就又快又好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 8577#       发表于 2022-10-22 15:08
+
+可香！<img src="https://p.sda1.dev/7/089d9697ed87d5683bb4e9232f873396/CMP_20221022150749082.jpg" referrerpolicy="no-referrer">
+twi：@unyanai
+翻嵌：洲崎惠梨
+

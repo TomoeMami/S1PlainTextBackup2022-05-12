@@ -5413,3 +5413,178 @@ tobi的英雄快没了啊。
 
 谁玩lina我支持谁<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  情商  
+##### 26213#         楼主| 发表于 2022-10-22 15:01
+
+萌猩球问，为什么藏到回家局还是老鹿尸王火枪小小？
+
+*****
+
+####  izayoi39  
+##### 26214#       发表于 2022-10-22 15:02
+
+李逵是a组唯一一个在玩新版本打法的，能打ent不是很正常嘛
+
+*****
+
+####  syndrome2032  
+##### 26215#       发表于 2022-10-22 15:03
+
+这把z小鬼没了。
+
+tobi的英雄被ban了个光
+
+*****
+
+####  情商  
+##### 26216#         楼主| 发表于 2022-10-22 15:04
+
+鳖尬黑，eg也是，不过被pakazs直接把nightfall打废了
+
+*****
+
+####  蛭人  
+##### 26217#       发表于 2022-10-22 15:04
+
+这把我好像看过，马桶壮烈牺牲是吧。
+
+*****
+
+####  walfeds  
+##### 26218#       发表于 2022-10-22 15:07
+
+一符换+1
+
+*****
+
+####  nerugigannte  
+##### 26219#       发表于 2022-10-22 15:08
+
+液体一直发面8语音是不是zai提议的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">面8说了败者组输给我们带你一整年的小天鹅
+
+*****
+
+####  弈秋  
+##### 26220#       发表于 2022-10-22 15:08
+
+脑瘫火枪
+
+
+
+*****
+
+####  12481632  
+##### 26221#       发表于 2022-10-22 15:08
+
+太顶针了
+
+*****
+
+####  cwlo  
+##### 26222#       发表于 2022-10-22 15:08
+
+BOXI神！
+
+*****
+
+####  RaibowDash  
+##### 26223#       发表于 2022-10-22 15:08
+
+这把火枪的输出环境还不错啊 站后面无限爆头 不好切的
+
+*****
+
+####  苏西踩到我了  
+##### 26224#       发表于 2022-10-22 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58039143&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-22 14:58</a>
+@苏西踩到我了
+</blockquote>
+是藏了啊，但输了啊
+
+你也别用这个打我脸，要打脸是用lgd的例子比较合适，我会接着让你打
+
+*****
+
+####  walfeds  
+##### 26225#       发表于 2022-10-22 15:09
+
+z小鬼想什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 26226#       发表于 2022-10-22 15:09
+
+这就是你们说的纯真神是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  asd235614  
+##### 26227#       发表于 2022-10-22 15:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pure这贪小谜团钱把自己贪死了，死前觉得亏得不够多还搭进去一个吃树和树枝
+
+*****
+
+####  Rorgen  
+##### 26228#       发表于 2022-10-22 15:09
+
+ 本帖最后由 Rorgen 于 2022-10-22 15:10 编辑 
+
+核中核消息，马桶ti总击杀超老迹了
+目前前五 冠超 苏猴 鸽鸽 马桶 老迹，居然有两对队友
+
+*****
+
+####  テロメア  
+##### 26229#       发表于 2022-10-22 15:10
+
+被打傻了
+
+*****
+
+####  nightmare902015  
+##### 26230#       发表于 2022-10-22 15:10
+
+boxi的前期真的太强了啊，把对手都打烂了。
+
+*****
+
+####  yourSwaTer  
+##### 26231#       发表于 2022-10-22 15:10
+
+崩了啊
+
+*****
+
+####  ArowRocher  
+##### 26232#       发表于 2022-10-22 15:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RaibowDash  
+##### 26233#       发表于 2022-10-22 15:10
+
+boxi搞这么厉害干嘛啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 26234#       发表于 2022-10-22 15:10
+
+雌小鬼马上就要被拉去填线了
+
+*****
+
+####  walfeds  
+##### 26235#       发表于 2022-10-22 15:10
+
+boxi搞这么厉害干什么f:067]
+

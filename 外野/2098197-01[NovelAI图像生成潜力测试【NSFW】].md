@@ -73,3 +73,75 @@ nnovelai网页版出图吗？
 
 还有，批的话我没试过，但是画手的时候，加上masterpiece，产出图片的质量照样会有所提高，还挺明显
 
+
+
+*****
+
+####  白左  
+##### 310#       发表于 2022-10-22 15:09
+
+[https://www.illuminarty.ai/](https://www.illuminarty.ai/)
+
+则个判断ai的网站还挺准的，不知道用的什么算法
+
+本以为是根据细节的混沌程度，但是发现低清jpg和高清原图结果差不多
+
+看网友反馈准确度大概在80%左右的样子
+
+实测下来有一些图会莫名其妙地判断错
+
+AI作品：
+
+（同样风格的两个美少女就结果迥异
+
+<img src="https://img.saraba1st.com/forum/202210/22/150844tutvpvxfj9nvnxvt.jpg" referrerpolicy="no-referrer">
+
+<strong>R_R_a1.jpg</strong> (115.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 15:08 上传
+
+<img src="https://img.saraba1st.com/forum/202210/22/150844qyno1uls5ug9t3n6.jpg" referrerpolicy="no-referrer">
+
+<strong>R_R_a2.jpg</strong> (53.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 15:08 上传
+
+<img src="https://img.saraba1st.com/forum/202210/22/150844z4c2i09lnnap0tib.jpg" referrerpolicy="no-referrer">
+
+<strong>R_R_a3.jpg</strong> (47.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 15:08 上传
+
+人类作品：
+
+（同画师的其他作品基本结果正确
+
+<img src="https://img.saraba1st.com/forum/202210/22/150844t0yr56qkqu677k7a.jpg" referrerpolicy="no-referrer">
+
+<strong>R_R_h1.jpg</strong> (71.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 15:08 上传
+
+<img src="https://img.saraba1st.com/forum/202210/22/150844pkhkmukd8xizk00h.jpg" referrerpolicy="no-referrer">
+
+<strong>R_R_h2.jpg</strong> (85.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 15:08 上传
+
+*****
+
+####  jinny2014  
+##### 311#       发表于 2022-10-22 15:11
+
+画p
+
