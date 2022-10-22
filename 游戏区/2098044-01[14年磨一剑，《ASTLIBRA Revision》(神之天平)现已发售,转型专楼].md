@@ -8856,3 +8856,14 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 1费的氧气技能是浅水区有效，所以一人高的地方不扣氧气，再深就扣了。4章有没有那个大幅度提高适应力的技能我有点记不清了，有的话把那个也装了，装备还有个蛇神戒指，写着装备上会变得善于游泳的那个，再魔法把提高攻速的风神也点出来，加一起足够让你在各种水环境大杀特杀了
 另外这游戏的饰品不能只看效果，文字描述也要看的<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tgwing  
+##### 816#       发表于 2022-10-23 06:47
+
+有打算出new game+不，二周目重刷太肝了
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

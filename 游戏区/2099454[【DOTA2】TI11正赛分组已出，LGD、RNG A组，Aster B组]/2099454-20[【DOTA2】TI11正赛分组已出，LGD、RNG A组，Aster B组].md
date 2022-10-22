@@ -4591,3 +4591,12 @@ rng...我的rng...<img src="https://static.saraba1st.com/image/smiley/animal2017
 
 说来这算不算实力最悬殊的一届TI，淘汰赛目前10场BO3有8场2-0
 
+
+
+*****
+
+####  食粪者  
+##### 29053#       发表于 2022-10-23 06:49
+
+南美八成和去年第一个major一样
+
