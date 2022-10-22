@@ -8522,3 +8522,19 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lazycat233  
+##### 782#       发表于 2022-10-22 19:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉月光是最实用的技能了，低消耗无敌长
+
+*****
+
+####  大暗月  
+##### 783#       发表于 2022-10-22 19:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">第一章之后看了下攻略才发现漏了好多宝箱，后面能不能回边境啊？
+
