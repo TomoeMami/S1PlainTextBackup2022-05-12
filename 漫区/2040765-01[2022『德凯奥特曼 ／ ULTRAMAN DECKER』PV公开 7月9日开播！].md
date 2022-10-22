@@ -658,3 +658,32 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 这集挺好看的。就是想吐槽这同伴射光球都不找掩体的吗。
 
+
+
+*****
+
+####  Piano-Forest  
+##### 674#         楼主| 发表于 2022-10-22 09:15
+
+第15話 明日への約束
+
+想定もしてなかった事態にカナタたちGUTS-SELECTは動揺を隠せない…。そしてカナタの前に現れた謎の人物の正体とは！？スフィアの真相、そしてウルトラマンデッカーの真実が明かされる時、ダイナミックな奇跡の姿が誕生する！！
+
+脚本：根元 歳三
+
+監督：武居 正能
+<img src="https://p.sda1.dev/7/07cc72977b3acf301da7b60a4c24394d/UDKep15-02H.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/ac09d57c093ebfe003d935bd68c1cfd4/UDKep15-01H.jpg" referrerpolicy="no-referrer">
+
+突如現れた デッカー に変身する
+
+謎の男、その正体は…！？
+
+◢◤　　カナタの子孫
+
+　　　デッカー・アスミ 　◢◤
+
+　　＜演： #谷口賢志 ＞
+<img src="https://p.sda1.dev/7/1b17620e12bf0490c2cdbefe2431d338/20221022042305.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/7/d248dc9d987a0a752c2985df28da3dc7/20221022041917.png" referrerpolicy="no-referrer">
+
