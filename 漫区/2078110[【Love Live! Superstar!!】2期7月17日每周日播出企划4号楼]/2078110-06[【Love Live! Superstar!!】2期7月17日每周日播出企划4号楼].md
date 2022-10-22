@@ -11566,3 +11566,24 @@ TYMM好像瘦了，未来可期
 中了鲤鱼新单的签售，但是以为还是跟前两次那样陪跑，所以留言特别傻，希望到时别被嫌弃</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等老哥的repo
 
+
+
+*****
+
+####  a92063256  
+##### 8561#       发表于 2022-10-22 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035665&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-22 10:21</a>
+
+中了鲤鱼新单的签售，但是以为还是跟前两次那样陪跑，所以留言特别傻，希望到时别被嫌弃</blockquote>
+你这一说我想起来我找代购买了几张ag还没给我抽选码，该去问问去了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 8562#       发表于 2022-10-22 11:56
+
+除了啥都不懂的莽子，多少都知道星现在到底什么风向，这敢去的绝对小九九多得远比企划想要所谓的“怀揣对LL的梦想”的选角相去甚远，但是这也是企划自己选的，活该捏<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+什么储备人才，储备一群肉眼可见只会拿你当工具当跳板的小妹妹吗，企划这么屈尊啊，我哭死。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

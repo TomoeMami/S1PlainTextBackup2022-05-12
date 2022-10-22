@@ -281,3 +281,17 @@
 
 感觉光这套最大的好处，阿卡夏和大公真的死得很快了
 
+
+
+*****
+
+####  Losange  
+##### 17127#       发表于 2022-10-22 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033352&amp;ptid=1158205" target="_blank">poor 发表于 2022-10-22 01:00</a>
+
+旧转世的HARD打10个BOSS的称号，怎么知道哪个没打？
+
+—— 来自 vivo V1981A, Android 12上的 S1Next-鹅版  ...</blockquote>
+称号里找没达成的就行
+

@@ -757,3 +757,25 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 晚上才能看，馋死我了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RainbowSealife  
+##### 681#       发表于 2022-10-22 11:57
+
+<img src="https://img.saraba1st.com/forum/202210/22/113302rjf7aj2iii23i07q.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (154.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 11:33 上传
+
+<img src="https://imgsa.baidu.com/forum/pic/item/40ada594a4c27d1e6a3f2e055ed5ad6edcc4386c.jpg" referrerpolicy="no-referrer">
+<img src="https://imgsa.baidu.com/forum/pic/item/c3be33dfa9ec8a1373014221b203918fa1ecc06e.jpg" referrerpolicy="no-referrer">
+
+光是纽带<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">脚本用心了，伏笔回收，又做了些许铺垫方便后续展开，期待接下来的剧情。
+
+原本预想的是未来德凯奉献出生命，将自己的光传递给了奏大，以自己的性命为赌注，期待现在的德凯能够创造出数百年后没有斯菲亚存在的和平未来，结果就是后代隔空传功，以此获得了新形态<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
