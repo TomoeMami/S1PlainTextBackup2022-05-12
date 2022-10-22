@@ -925,3 +925,12 @@ op里博士直接给了反派的镜头啊<img src="https://static.saraba1st.com/
 据说下个月登场的戴拿</blockquote>
 肯定不是啊，特利迦火星作战，德卡地球作战，戴拿肯定和迪迦一样一集出个场就没了。
 
+
+
+*****
+
+####  carrasco21  
+##### 695#       发表于 2022-10-22 18:56
+
+canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是这个内鬼反派目前动机有点抽象，后面多点塑造吧，要不然大结局洗白共斗斯菲亚的时候多少会有点膈应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
