@@ -6719,3 +6719,30 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 
 索尔，你好温柔
 
+
+
+*****
+
+####  415452356  
+##### 731#       发表于 2022-10-22 09:22
+
+  有对北欧神话了解的人猜一下奎爷的新武器除了锤子还能有什么能从北欧蛮子身上抢过来的吗
+
+*****
+
+####  Kazepollar  
+##### 732#       发表于 2022-10-22 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035080&amp;ptid=2025548" target="_blank">415452356 发表于 2022-10-22 09:22</a>
+ 有对北欧神话了解的人猜一下奎爷的新武器除了锤子还能有什么能从北欧蛮子身上抢过来的吗 ...</blockquote>
+冈格尼尔咯，奥丁的神枪
+
+*****
+
+####  Kazepollar  
+##### 733#       发表于 2022-10-22 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035080&amp;ptid=2025548" target="_blank">415452356 发表于 2022-10-22 09:22</a>
+ 有对北欧神话了解的人猜一下奎爷的新武器除了锤子还能有什么能从北欧蛮子身上抢过来的吗 ...</blockquote>
+其实洛基还有一把剑的，但是游戏里洛基是儿子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
