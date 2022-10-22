@@ -8692,3 +8692,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 原来敏捷是干这个用的，以前尝试过全敏结果伤害变化不是很明显就没有再点了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  M27MD  
+##### 799#       发表于 2022-10-22 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">乐园第三个小徽章怎么拿
+

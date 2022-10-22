@@ -6957,3 +6957,19 @@ croy自己有娃的 肯定不会做出高尔夫剧情 反正我放一百个心
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  哈罗  
+##### 753#       发表于 2022-10-22 22:15
+
+看来是个致郁的结局
+
+*****
+
+####  popchong  
+##### 754#       发表于 2022-10-22 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">大资本家索尼不会允许奎爷死吧
+

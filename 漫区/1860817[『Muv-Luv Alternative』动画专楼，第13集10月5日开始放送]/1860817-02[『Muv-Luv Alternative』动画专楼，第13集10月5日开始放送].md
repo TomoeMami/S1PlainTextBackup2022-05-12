@@ -192,3 +192,17 @@
 
 准备要出的分册百科《月刊Muv-Luv(暂称)》，内容有游戏新作情报、战术机&amp;角色解说、Muv-Luv世界历史介绍等，创刊号C101发售。 ​​​​ 
 
+
+
+*****
+
+####  alucardcz  
+##### 1948#       发表于 2022-10-22 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045954&amp;ptid=1860817" target="_blank">真炮灰 发表于 2022-10-22 22:07</a>
+
+准备要出的分册百科《月刊Muv-Luv(暂称)》，内容有游戏新作情报、战术机&amp;角色解说、Muv-Luv世界历史 ...</blockquote>
+新作。。情报？
+
+天国的tda还有机会出完吗
+
