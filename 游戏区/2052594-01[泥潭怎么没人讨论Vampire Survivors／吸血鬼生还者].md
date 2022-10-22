@@ -3239,3 +3239,17 @@ Vampire Survivors\resources\app\.webpack\renderer\assets\img
 
 武器合成有什么条件吗 让第一个拿鞭子的角色拿了hollow heart也没变成吸血鞭
 
+
+
+*****
+
+####  agion117  
+##### 317#       发表于 2022-10-22 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047029&amp;ptid=2052594" target="_blank">蒂芙尼的早餐 发表于 2022-10-22 23:03</a>
+
+武器合成有什么条件吗 让第一个拿鞭子的角色拿了hollow heart也没变成吸血鞭</blockquote>
+要满级，开宝箱
+
+时停钟和月桂要所有合成品满级
+

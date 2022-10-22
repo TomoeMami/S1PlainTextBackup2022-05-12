@@ -11991,3 +11991,17 @@ nako：“我像猫还是兔子？”
 
 同款滤镜
 
+
+
+*****
+
+####  lucksolo  
+##### 8590#       发表于 2022-10-22 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032505&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-21 23:32</a>
+
+经5ch提醒跑油管看了眼小星星，只能说……有些东西抛弃了，最终失去的可能比抛弃的更多，这真的值得吗？
+
+  ...</blockquote>
+小星星咋了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
