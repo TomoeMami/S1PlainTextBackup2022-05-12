@@ -3778,3 +3778,405 @@ taiga还鼓起掌来了，学我ceb是吧
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  -SLSL-  
+##### 25998#       发表于 2022-10-22 13:31
+
+og戏有点多了
+
+*****
+
+####  IG.430  
+##### 25999#       发表于 2022-10-22 13:31
+
+哈哈，atf跑了
+
+*****
+
+####  情商  
+##### 26000#         楼主| 发表于 2022-10-22 13:31
+
+别急，有的拉筹兜底
+
+*****
+
+####  IG.430  
+##### 26001#       发表于 2022-10-22 13:32
+
+我测，taiga出了个a
+
+*****
+
+####  齐柏林轰炸机  
+##### 26002#       发表于 2022-10-22 13:33
+
+这卡尔吃了吧
+
+*****
+
+####  ティグル  
+##### 26003#       发表于 2022-10-22 13:34
+
+最后一波团打的什么JB？
+
+*****
+
+####  -SLSL-  
+##### 26004#       发表于 2022-10-22 13:34
+
+经典回家船长
+
+*****
+
+####  Avantasi  
+##### 26005#       发表于 2022-10-22 13:34
+
+这两个队大哥都是畜牲
+
+*****
+
+####  Sayuki1025  
+##### 26006#       发表于 2022-10-22 13:34
+
+拉筹<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 26007#       发表于 2022-10-22 13:34
+
+前面不急稳住优势就赢了呀
+
+*****
+
+####  nightmare902015  
+##### 26008#       发表于 2022-10-22 13:34
+
+sf真的是谁都打不过。这萨尔大兽王大已经尽力惹。
+
+*****
+
+####  morwhipppo  
+##### 26009#       发表于 2022-10-22 13:35
+
+出神这解说不是大叫就是复读机，看吐了
+
+*****
+
+####  Litccc  
+##### 26010#       发表于 2022-10-22 13:35
+
+物魔打到后期是这样的
+
+
+
+*****
+
+####  反方向的波  
+##### 26011#       发表于 2022-10-22 13:35
+
+都说了，给boom选个船长，那谁能兜得住德拉臭的尿裤<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RaibowDash  
+##### 26012#       发表于 2022-10-22 13:35
+
+我发现了 版本陷阱不会是大哥SF吧 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snarc1  
+##### 26013#       发表于 2022-10-22 13:35
+
+随便打好吧，这船长都a不过幻象
+
+*****
+
+####  nxmonitor  
+##### 26014#       发表于 2022-10-22 13:36
+
+娜迦不被压死就是这样的啊，TS早点出让小娜迦打个四要好很多……
+
+*****
+
+####  walfeds  
+##### 26015#       发表于 2022-10-22 13:36
+
+大脑在颤抖了
+
+*****
+
+####  zhrs456  
+##### 26016#       发表于 2022-10-22 13:36
+
+入了就是入了
+
+*****
+
+####  情商  
+##### 26017#         楼主| 发表于 2022-10-22 13:36
+
+这盘跟娜迦有个叼关系？
+
+*****
+
+####  Crazy_Knife  
+##### 26018#       发表于 2022-10-22 13:36
+
+atf也暂停是吧，哪来的脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AualloniaMK2  
+##### 26019#       发表于 2022-10-22 13:36
+
+感觉败者组都好菜
+
+*****
+
+####  IG.430  
+##### 26020#       发表于 2022-10-22 13:36
+
+挼几：看不见哥们嘎嘎暴力？
+
+*****
+
+####  柚上舍人  
+##### 26021#       发表于 2022-10-22 13:36
+
+秀起来了
+
+*****
+
+####  PigMourne  
+##### 26022#       发表于 2022-10-22 13:36
+
+入了还要暂停，学谁不好学ett<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 26023#       发表于 2022-10-22 13:36
+
+入了就是入了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  越动天下  
+##### 26024#       发表于 2022-10-22 13:36
+
+感觉这把脑浆横飞
+
+*****
+
+####  Sayuki1025  
+##### 26025#       发表于 2022-10-22 13:36
+
+艹了 这atf 有没有人治一下 有点危险
+
+*****
+
+####  usoda  
+##### 26026#       发表于 2022-10-22 13:36
+
+哇 这也能输的 <img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snarc1  
+##### 26027#       发表于 2022-10-22 13:36
+
+传统娜迦的厚重
+
+*****
+
+####  蛭人  
+##### 26028#       发表于 2022-10-22 13:36
+
+脑残显示器怎么还在的，你看得懂比赛吗？
+
+*****
+
+####  北欧王座  
+##### 26029#       发表于 2022-10-22 13:37
+
+版本陷阱sf
+
+*****
+
+####  Aeons  
+##### 26030#       发表于 2022-10-22 13:37
+
+这sf<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JoelBirch  
+##### 26031#       发表于 2022-10-22 13:37
+
+这影魔真的有点辣了
+
+*****
+
+####  nxmonitor  
+##### 26032#       发表于 2022-10-22 13:37
+
+影魔绝对是陷阱了，虽然是炮台但是没有任何自保能力，就一手线上厉害……
+
+*****
+
+####  莉拉厨  
+##### 26033#       发表于 2022-10-22 13:37
+
+op说话op
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  情商  
+##### 26034#         楼主| 发表于 2022-10-22 13:38
+
+我前面就说了，这盘这个船长就该去边路
+
+的拉筹就没这个能力玩沙发
+
+*****
+
+####  Crazy_Knife  
+##### 26035#       发表于 2022-10-22 13:38
+
+不是这影魔太菜了吗，但凡做个人这个傻卵og都被推平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 26036#       发表于 2022-10-22 13:38
+
+三猫王在回家局给自己整了个船长，这是致敬谁呢boom。
+
+*****
+
+####  omoito  
+##### 26037#       发表于 2022-10-22 13:38
+
+gg连打三次失败的团战，而且越打越急<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 26038#       发表于 2022-10-22 13:38
+
+ 本帖最后由 zhrs456 于 2022-10-22 13:40 编辑 
+
+COCO这英雄多少届TI证明了比赛强度越高越不好用 局势一旦变差就是超级步兵 技能都是延时起效太容易操作变形了 这一点连龙骑都不如
+
+*****
+
+####  蛭人  
+##### 26039#       发表于 2022-10-22 13:38
+
+油垃圾还是别玩C了，伤害不如沙王是吧。
+
+<img src="https://img.saraba1st.com/forum/202210/22/133829pqmx2pw1p4i4ccc4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 13:38 上传
+
+*****
+
+####  roxas.sora  
+##### 26040#       发表于 2022-10-22 13:38
+
+atf这个沙王真的是服了，非常优秀的发挥，值得尊重
+
+
+
+*****
+
+####  情商  
+##### 26041#         楼主| 发表于 2022-10-22 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038304&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-22 13:38</a>
+
+油垃圾还是别玩C了，伤害差点不如沙王是吧。</blockquote>
+这盘她不就是个四号位放大作用吗？上面有个**还在吹小娜迦，不是卡尔跟沙王早滚蛋咯
+
+*****
+
+####  IG.430  
+##### 26042#       发表于 2022-10-22 13:40
+
+别尬黑，老沙王都知道sk蹭伤害神器
+
+*****
+
+####  wzy200912345  
+##### 26043#       发表于 2022-10-22 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CEB：没卵用的话就是能起作用啊兄弟们
+
+*****
+
+####  aruruu  
+##### 26044#       发表于 2022-10-22 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038295&amp;ptid=2099454" target="_blank">Crazy_Knife 发表于 2022-10-22 13:38</a>
+不是这影魔太菜了吗，但凡做个人这个傻卵og都被推平了</blockquote>
+双头龙卡尔的高地真不好上，其实第一次上高地影魔就被一套小技能甩残了
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 26045#       发表于 2022-10-22 13:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">总算没倒在9-12，知足了
+
+*****
+
+####  情商  
+##### 26046#         楼主| 发表于 2022-10-22 13:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">别人ppy不想跟ace一起打gg也是有理由的啊
+
+*****
+
+####  Litccc  
+##### 26047#       发表于 2022-10-22 13:41
+
+mi酱这把双头龙玩的挺好的，还偷偷摸摸出了个A<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sodah  
+##### 26048#       发表于 2022-10-22 13:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理这把还是看出来ATF手活确实不错，就是这个逼不改改他这偏发育打法还是难成器。
+
+*****
+
+####  北欧王座  
+##### 26049#       发表于 2022-10-22 13:42
+
+atf老老实实打这些先手英雄还是可以的。按住
+
+*****
+
+####  月亮与五块钱  
+##### 26050#       发表于 2022-10-22 13:43
+
+船长这逼英雄怎么还有人喜欢用，sf这种核后期本来就软，加个超级步兵，后期谁去打，让这逼经济的娜迦都赢了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
