@@ -885,3 +885,28 @@ op里博士直接给了反派的镜头啊<img src="https://static.saraba1st.com/
 
 送完女友的特利迦。。。
 
+
+
+*****
+
+####  athena_1982  
+##### 692#       发表于 2022-10-22 18:39
+
+奏大的演技太强了，几句喊话时的面部表情非常到位，浑身鸡皮疙瘩都起来了
+
+感觉跟遥辉各有千秋。遥辉面部细节丰富，表现细腻感情的时候非常到位。而奏大面部干净，爆发感情的时候就特别来感觉
+
+剑悟嘛……只能说剧本太烂连累演员啊
+
+新状态感觉不太好看，脖子那块的黑色怎么看都像是高领毛衣……
+
+*****
+
+####  待宵  
+##### 693#       发表于 2022-10-22 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58041301&amp;ptid=2040765" target="_blank">吃货红毛 发表于 2022-10-22 17:48</a>
+
+男主的演技让他说地球由他来保护的时候特有说服力 蛮不错的</blockquote>
+但是穿越的那位是空手回去的不能再变身了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

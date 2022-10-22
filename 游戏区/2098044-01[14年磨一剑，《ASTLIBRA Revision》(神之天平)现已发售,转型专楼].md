@@ -8477,3 +8477,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 开狂暴蹭过了，感觉输出和防御都有一个明显的断层。感觉很怪
 
+
+
+*****
+
+####  lazycat233  
+##### 778#       发表于 2022-10-22 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58040103&amp;ptid=2098044" target="_blank">从零开始的ccc 发表于 2022-10-22 16:18</a>
+
+天空城第一张图的左边，贤者塔三楼，主城水井</blockquote>
+贤者塔三楼不让进怎么弄
+
