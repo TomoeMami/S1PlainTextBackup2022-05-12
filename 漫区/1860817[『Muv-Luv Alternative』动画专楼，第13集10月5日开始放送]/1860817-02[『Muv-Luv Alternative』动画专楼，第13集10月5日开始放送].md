@@ -206,3 +206,16 @@
 
 天国的tda还有机会出完吗
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1949#       发表于 2022-10-23 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045919&amp;ptid=1860817" target="_blank">alucardcz 发表于 2022-10-22 22:06</a>
+这名场面做的不好啊 为什么要把回去后小麻出事经过删掉 绝望感直接对半砍了 ...</blockquote>
+出事经过？原作里只有文字描述，动画还给了个犯人分镜
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
