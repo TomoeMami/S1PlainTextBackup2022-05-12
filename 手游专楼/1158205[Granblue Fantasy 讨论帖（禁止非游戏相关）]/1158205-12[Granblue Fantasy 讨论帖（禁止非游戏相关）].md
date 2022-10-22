@@ -317,3 +317,17 @@
 
 转世应该还有单个boss的任务吧，好像可以从那里看到
 
+
+
+*****
+
+####  windlikeman  
+##### 17130#       发表于 2022-10-22 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58037666&amp;ptid=1158205" target="_blank">poor 发表于 2022-10-22 12:49</a>
+
+我知道哪个称号没达成啊？称号里也没写以前打了哪几个，就写了3/10，现在就是不知道打了哪3个
+
+—— 来自 ...</blockquote>
+看不到 慢慢打
+

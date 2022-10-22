@@ -868,3 +868,20 @@ op里博士直接给了反派的镜头啊<img src="https://static.saraba1st.com/
 
 —— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  wzp2853  
+##### 691#       发表于 2022-10-22 18:22
+
+这作斯菲亚设定那么NB，是不是最后是4打1？
+
+光国再召唤一次迪迦
+
+据说下个月登场的戴拿
+
+本作主角
+
+送完女友的特利迦。。。
+
