@@ -8206,3 +8206,22 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
  ...</blockquote>
 具体在哪段剧情<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yla  
+##### 751#       发表于 2022-10-22 13:04
+
+新章魔王城的小金币在哪里。。。我来回屠了3圈没看到有漏的宝箱
+
+*****
+
+####  黒長直姫  
+##### 752#       发表于 2022-10-22 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58037842&amp;ptid=2098044" target="_blank">yla 发表于 2022-10-22 13:04</a>
+
+新章魔王城的小金币在哪里。。。我来回屠了3圈没看到有漏的宝箱</blockquote>
+恶魔城彩蛋那里 就是城门口水晶点的商店正下方那个被挡着入口的山
+
