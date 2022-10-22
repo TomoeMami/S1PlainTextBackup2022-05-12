@@ -8625,3 +8625,24 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 原来第六章四个遗迹兵不用打，打完了既没有额外剧情也没奖励，好亏</blockquote>
 没有早看到你发的贴子- -
 
+
+
+*****
+
+####  pf67  
+##### 792#       发表于 2022-10-22 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033672&amp;ptid=2098044" target="_blank">Yz895623 发表于 2022-10-22 02:03</a>
+
+求问一手这怎么打啊，眨个眼的功夫就有七八个货色玩儿了命的锤我，身上又是麻痹又是石化，臣妾想甩手柄了 ...</blockquote>
+我用魔法打的，用那个雷魔法杖，把力量洗成法力，然后随便乱按就行了
+
+*****
+
+####  蓝雉  
+##### 793#         楼主| 发表于 2022-10-22 21:06
+
+你要握住的手已不再是我了.jpg
+
+嘉隆老师你不要走啊,没了你我道儿都走不动了啊(指无法奔跑<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
