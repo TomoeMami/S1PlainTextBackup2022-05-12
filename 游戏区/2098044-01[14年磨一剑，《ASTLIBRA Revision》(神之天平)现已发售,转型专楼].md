@@ -8538,3 +8538,32 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">第一章之后看了下攻略才发现漏了好多宝箱，后面能不能回边境啊？
 
+
+
+*****
+
+####  A1LI  
+##### 784#       发表于 2022-10-22 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58043351&amp;ptid=2098044" target="_blank">大暗月 发表于 2022-10-22 19:50</a>
+
+第一章之后看了下攻略才发现漏了好多宝箱，后面能不能回边境啊？</blockquote>
+最终boss前都可以回去，装备上嘉隆的鼻子被动，能显示地图上有有几个宝箱，开没开过也会显示，到时候找就是了。
+
+*****
+
+####  jy000129  
+##### 785#       发表于 2022-10-22 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58043326&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 19:48</a>
+
+感觉月光是最实用的技能了，低消耗无敌长</blockquote>
+但是论伤害光系4级魔法变种蕾莎突击最实用
+
+*****
+
+####  lazycat233  
+##### 786#       发表于 2022-10-22 19:59
+
+二周目能把一周目漏的神给打了么
+
