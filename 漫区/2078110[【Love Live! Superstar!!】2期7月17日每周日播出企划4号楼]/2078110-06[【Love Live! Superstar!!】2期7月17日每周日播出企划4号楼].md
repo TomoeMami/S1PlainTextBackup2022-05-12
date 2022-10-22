@@ -12005,3 +12005,15 @@ nako：“我像猫还是兔子？”
   ...</blockquote>
 小星星咋了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8591#       发表于 2022-10-22 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047527&amp;ptid=2078110" target="_blank">lucksolo 发表于 2022-10-22 23:29:28</a>
+小星星咋了</blockquote>也没啥，就是后期剧情的烂更衬托出了一期前三集的好，不少但不限于可香人在油管小星星的评论区或缅怀或哀嚎<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
