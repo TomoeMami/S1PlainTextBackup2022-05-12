@@ -34,3 +34,24 @@ nnovelai网页版出图吗？
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alitonz  
+##### 307#       发表于 2022-10-22 13:16
+
+可以拿法器的P到P上，听说很多在符离集这么做了，其他部位也是，早晚会有人发布手、脚等部位各种角度和姿势的合集，找到合适的器官贴上去修正。
+
+*****
+
+####  jojog  
+##### 308#       发表于 2022-10-22 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58037618&amp;ptid=2098197" target="_blank">dayuii 发表于 2022-10-22 12:46</a>
+
+nnovelai网页版出图吗？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+出不了吧 seed还好说，模型和heypernet都不是原生的
+
