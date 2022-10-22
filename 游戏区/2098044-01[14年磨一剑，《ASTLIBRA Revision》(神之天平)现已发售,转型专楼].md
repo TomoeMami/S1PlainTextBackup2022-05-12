@@ -8371,3 +8371,25 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 还有我9个竞技场任务达成了好像没给爱心</blockquote>
 爱心是第十章竞技场才会有的
 
+
+
+*****
+
+####  黒長直姫  
+##### 768#       发表于 2022-10-22 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038509&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 13:55</a>
+怎么才算收集齐所有装备啊，小徽章也算么，我把宝物图鉴里的装备都集齐了找老头没反应 ...</blockquote>
+小徽章算 集齐小徽章抽完有个盾
+
+*****
+
+####  lazycat233  
+##### 769#       发表于 2022-10-22 15:28
+
+ 本帖最后由 lazycat233 于 2022-10-22 15:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">湿地区的小徽章还漏一个，找半天找不到没看见有缺的宝箱，是有什么隐藏地图么，
+
+找到了，竟然在城内武器店，竟然算湿地里的，无语
+
