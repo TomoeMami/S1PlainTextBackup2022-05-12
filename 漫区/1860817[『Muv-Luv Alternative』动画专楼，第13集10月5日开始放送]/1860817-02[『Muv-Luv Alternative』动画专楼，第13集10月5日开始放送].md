@@ -219,3 +219,37 @@
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  鸣上悠  
+##### 1950#       发表于 2022-10-23 02:01
+
+《纯夏在武的生日前夜》
+
+画里的男女是谁？
+
+是武和冥夜约定明天生日出去玩
+
+纯夏呢？
+
+纯夏在打电话
+
+我以为这一话是ED前公布小麻死信，果然不可能这么悠闲要赶剧情，最后纯夏打电话这种扭曲感意外地观感不错
+
+
+
+*****
+
+####  alucardcz  
+##### 1951#       发表于 2022-10-23 02:16
+
+ 本帖最后由 alucardcz 于 2022-10-23 02:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58048371&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-23 00:49</a>
+
+出事经过？原作里只有文字描述，动画还给了个犯人分镜
+
+—— 来自 OnePlus HD1900, Android 13上的 S1Nex ...</blockquote>
+误会了 我说的是自己世界男主角听新闻的那个过程  包括之后男主爆走 发现他力气很大拦都拦不住那段
+

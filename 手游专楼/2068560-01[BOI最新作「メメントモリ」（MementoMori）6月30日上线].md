@@ -637,3 +637,12 @@ PC大屏听歌对味，AA快下池
 
 怎么2202年还有这种让人梦回2012的游戏
 
+
+
+*****
+
+####  leina0602  
+##### 74#       发表于 2022-10-23 02:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">无法相信这游戏在日本居然冲到畅销榜top5
+

@@ -8803,3 +8803,44 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 我佛了 今天打通竞技场给了个装备盘掉率+的饰品我才发现之前身上带着的那个效果是装备盘掉率- 难怪二周目打了5张图了才掉了个位数的盘子武器还只能用树枝
 
+
+
+*****
+
+####  五块  
+##### 811#       发表于 2022-10-23 02:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047291&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-22 23:16</a>
+
+打完第六章寻思回头清清ex没想到第三个就卡住了……好不容易爬过了道中，结果跟龙神对搓一晚上也没打过去昏 ...</blockquote>
+装雾隐，后跳可以躲石化。
+
+*****
+
+####  pf67  
+##### 812#       发表于 2022-10-23 02:45
+
+ 本帖最后由 pf67 于 2022-10-23 02:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047291&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-22 23:16</a>
+
+打完第六章寻思回头清清ex没想到第三个就卡住了……好不容易爬过了道中，结果跟龙神对搓一晚上也没打过去昏 ...</blockquote>
+最恶心是重来还消耗药，我基本上把套路都摸清了，但是5连火球还是偶尔翻车，最后打没药了。。。刷出来的砂糖也没了，最后还是去打7章算了
+
+*****
+
+####  Leona_Akari  
+##### 813#       发表于 2022-10-23 04:04
+
+下水那个氧气啥意思，为什么一会儿会扣一会儿不会扣，海蛇洞窟进门后转弯那个大水道明显氧气不够，怎么让氧气不扣。。。
+
+*****
+
+####  dookiee  
+##### 814#       发表于 2022-10-23 04:49
+
+ 本帖最后由 dookiee 于 2022-10-23 04:50 编辑 
+
+我是死档了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第八章小鬼头那段剧情之后拿到门卡在返程的路上主角开始回想怪物的回忆，然后就很神秘地卡在恶魔城几只怪物的播片循环里了，咋办……跳过之后加速播片，触发剧情之前不给用返回骨片
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
