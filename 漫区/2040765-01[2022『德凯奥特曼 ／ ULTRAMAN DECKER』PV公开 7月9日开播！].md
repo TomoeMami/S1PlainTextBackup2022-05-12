@@ -947,3 +947,19 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  封印的右手  
+##### 697#       发表于 2022-10-22 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58041860&amp;ptid=2040765" target="_blank">wzp2853 发表于 2022-10-22 18:22</a>
+
+这作斯菲亚设定那么NB，是不是最后是4打1？
+
+光国再召唤一次迪迦
+
+据说下个月登场的戴拿</blockquote>
+你这样的话还不如干脆遥辉再穿越归来，直接召唤三杰不更好么
+

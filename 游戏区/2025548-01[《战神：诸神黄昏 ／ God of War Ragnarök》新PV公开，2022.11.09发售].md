@@ -6926,3 +6926,34 @@ croy自己有娃的 肯定不会做出高尔夫剧情 反正我放一百个心
 
 2022-10-22 22:01 上传
 
+
+
+*****
+
+####  415452356  
+##### 750#       发表于 2022-10-22 22:05
+
+  三心在s1有号，建议看看他有没有偷偷上论坛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  ff2077  
+##### 751#       发表于 2022-10-22 22:06
+
+一个壮烈的收场？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 752#       发表于 2022-10-22 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045932&amp;ptid=2025548" target="_blank">ff2077 发表于 2022-10-22 22:06</a>
+一个壮烈的收场？</blockquote>
+  cory亲口说过战神2里面奎爷斩断命运链接后也斩断了死亡与他的链接，所以他是真正意义上的不死之身，当然可能在北欧就不管用了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

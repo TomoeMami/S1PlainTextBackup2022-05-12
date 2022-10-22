@@ -169,3 +169,26 @@
 
 小麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">下一话就该日记了，不过这文戏还是不指望能做好了。这么赶估计下一话最后就回归了。
 
+
+
+*****
+
+####  alucardcz  
+##### 1946#       发表于 2022-10-22 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这名场面做的不好啊 为什么要把回去后小麻出事经过删掉 绝望感直接对半砍了
+
+*****
+
+####  真炮灰  
+##### 1947#       发表于 2022-10-22 22:07
+
+<img src="http://wx1.sinaimg.cn/large/006SCGqIgy1h7eear9la5j31hc0u0gtl.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/006SCGqIgy1h7eefulcq1j31hc0u0wgc.jpg" referrerpolicy="no-referrer">
+<img src="http://wx3.sinaimg.cn/large/006SCGqIgy1h7eei4b0owj31hc0u0gwt.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/006SCGqIgy1h7eelg7039j31hc0u0qdi.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/006SCGqIgy1h7eei4l7pxj31hc0u07ho.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/006SCGqIgy1h7eelz1yy7j31hc0u0dol.jpg" referrerpolicy="no-referrer">
+
+准备要出的分册百科《月刊Muv-Luv(暂称)》，内容有游戏新作情报、战术机&amp;角色解说、Muv-Luv世界历史介绍等，创刊号C101发售。 ​​​​ 
+
