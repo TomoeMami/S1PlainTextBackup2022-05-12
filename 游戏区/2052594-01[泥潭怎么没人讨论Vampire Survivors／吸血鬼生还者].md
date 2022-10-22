@@ -3230,3 +3230,12 @@ Vampire Survivors\resources\app\.webpack\renderer\assets\img
 
 然后打完董事图鉴变成101/104了，前面三个白刷了。
 
+
+
+*****
+
+####  蒂芙尼的早餐  
+##### 316#       发表于 2022-10-22 23:03
+
+武器合成有什么条件吗 让第一个拿鞭子的角色拿了hollow heart也没变成吸血鞭
+

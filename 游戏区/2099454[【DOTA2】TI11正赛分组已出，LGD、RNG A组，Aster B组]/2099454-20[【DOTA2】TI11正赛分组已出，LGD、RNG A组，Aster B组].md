@@ -2347,3 +2347,398 @@ OG和李逵打满3局，OG险胜
 
 最后水厂上台给TUNDRA颁奖 1:3
 
+
+
+*****
+
+####  nowaki  
+##### 28788#       发表于 2022-10-22 23:01
+
+你让批九和处长打决赛是让哥们猝死是吧
+
+*****
+
+####  百世诸侯  
+##### 28789#       发表于 2022-10-22 23:01
+
+BC可敬值极速上升中
+
+*****
+
+####  walfeds  
+##### 28790#       发表于 2022-10-22 23:01
+
+雪碧全队小丑皇好吧，说完boom是什么战队没多久就被boom干死了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 28791#       发表于 2022-10-22 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046995&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-22 23:00</a>
+预测一下后面的赛程吧，纯实力预测，不带成份偏向
+
+因为BC人员状态，被水厂2:0抬走，然后下午2:0茶
+
+OG和李逵 ...</blockquote>
+虽然我也想看digital chaos的复仇，但还是算了，水厂必不可能进决赛日
+
+*****
+
+####  勤练带来力量  
+##### 28792#       发表于 2022-10-22 23:01
+
+有些论坛开始“理性讨论”《冰蛙每年ti前大版本更新是不是不公平》了，沉寂了一年的雪碧粉丝更是纷纷冒头出来为major冠军结果一轮游的雪碧鸣不平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 28793#       发表于 2022-10-22 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047007&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-22 23:01</a>
+有些论坛开始“理性讨论”《冰蛙每年ti前大版本更新是不是不公平》了，沉寂了一年的雪碧粉丝更是纷纷冒头出 ...</blockquote>
+这下ts也敬了
+
+*****
+
+####  Litccc  
+##### 28794#       发表于 2022-10-22 23:02
+
+兔死狐悲罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  情商  
+##### 28795#         楼主| 发表于 2022-10-22 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046995&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-22 23:00</a>
+预测一下后面的赛程吧，纯实力预测，不带成份偏向
+
+因为BC人员状态，被水厂2:0抬走，然后下午2:0茶
+
+OG和李逵 ...</blockquote>
+我看出来了，你是真的集美
+
+*****
+
+####  刹那芳華  
+##### 28796#       发表于 2022-10-22 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047007&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-22 23:01</a>
+
+有些论坛开始“理性讨论”《冰蛙每年ti前大版本更新是不是不公平》了，沉寂了一年的雪碧粉丝更是纷纷冒头出 ...</blockquote>
+这个倒是要有一说一，大赛前大更版本的争议确实存在了好几年了。
+
+*****
+
+####  反方向的波  
+##### 28797#       发表于 2022-10-22 23:03
+
+vp每年ti被打成杏奴的时候公道就不见了<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 28798#       发表于 2022-10-22 23:04
+
+感觉不用等到明天漏油就要跪下了
+
+*****
+
+####  端木恋心  
+##### 28799#       发表于 2022-10-22 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046995&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-22 23:00</a>
+
+预测一下后面的赛程吧，纯实力预测，不带成份偏向
+
+因为BC人员状态，被水厂2:0抬走，然后下午2:0茶
+
+OG和李逵 ...</blockquote>
+我觉得tundra打不过秘密。其他和你想的差不多。但是败决lgd打不过tundra。
+
+*****
+
+####  刹那芳華  
+##### 28800#       发表于 2022-10-22 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046976&amp;ptid=2099454" target="_blank">Suny08 发表于 2022-10-22 22:59</a>
+
+历届的败者组冠军全是进了败者组以后开始全部亮绝活，然后败者组没人处理得了全部打上ban位，然后进决赛发 ...</blockquote>
+倒也不一定是要全亮绝活，想出应对对方的方法也是可以的。
+
+比如TI2的IG。
+
+
+
+*****
+
+####  solmyrli  
+##### 28801#       发表于 2022-10-22 23:05
+
+真的有卸载dota2 的吗？我也求一波饰品～最近还在刷小本子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zyw0  
+##### 28802#       发表于 2022-10-22 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047007&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-22 23:01</a>
+
+有些论坛开始“理性讨论”《冰蛙每年ti前大版本更新是不是不公平》了，沉寂了一年的雪碧粉丝更是纷纷冒头出 ...</blockquote>
+讲道理阿林顿major前六这届ti全拉了。其中雪碧拉的最狠。而且大版本更新这个问题说了好几年了，不是今年第一次说了。
+
+*****
+
+####  OVTVO  
+##### 28803#       发表于 2022-10-22 23:05
+
+蛙畜的大更版本确实有问题啊，老OG、VP的经历还不能证明这个思路是个傻逼？
+
+*****
+
+####  Rorgen  
+##### 28804#       发表于 2022-10-22 23:05
+
+tundra打秘密肯定是有赢点的，毕竟究极田忌赛马
+
+*****
+
+####  苹果皮卡丘  
+##### 28805#       发表于 2022-10-22 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046988&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-22 23:00</a></blockquote>
+不是，诋毁拜仁是lgd是吧？
+
+*****
+
+####  非建政专用号  
+##### 28806#       发表于 2022-10-22 23:05
+
+og先斩液体再斩ta，鉴定为op
+
+*****
+
+####  Rorgen  
+##### 28807#       发表于 2022-10-22 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047063&amp;ptid=2099454" target="_blank">solmyrli 发表于 2022-10-22 23:05</a>
+真的有卸载dota2 的吗？我也求一波饰品～最近还在刷小本子</blockquote>
+妮还没适应本楼的臊皮语言环境
+
+*****
+
+####  情商  
+##### 28808#         楼主| 发表于 2022-10-22 23:06
+
+石头人打秘密不跟打崽一样，哥们又不是没看过eudpc
+
+*****
+
+####  ck4pa  
+##### 28809#       发表于 2022-10-22 23:06
+
+话说楼友觉得没阳的rng能达到哪里
+
+*****
+
+####  百世诸侯  
+##### 28810#       发表于 2022-10-22 23:06
+
+真怀疑有的漏油是不是比赛就看个人头数变化，这老干鳖的实力你肉眼看不出来？
+
+*****
+
+####  Rorgen  
+##### 28811#       发表于 2022-10-22 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047067&amp;ptid=2099454" target="_blank">OVTVO 发表于 2022-10-22 23:05</a>
+蛙畜的大更版本确实有问题啊，老OG、VP的经历还不能证明这个思路是个傻逼？ ...</blockquote>
+感觉不如ti8液体
+
+*****
+
+####  陈苦瓜  
+##### 28812#       发表于 2022-10-22 23:06
+
+真得拜托**v社 第二阶段本子销售额 分成放到明年dpc和majot吧 哎。
+
+*****
+
+####  adretyu67  
+##### 28813#       发表于 2022-10-22 23:06
+
+ 本帖最后由 adretyu67 于 2022-10-22 23:08 编辑 
+
+毒狗队也是major亚军啊，能不能让他们滚蛋啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+怎么还有这么多傻狗给毒狗队贷款亚军的，你们真的是傻狗不是集美反串吗？你们贷款亚军还不如干脆梦想毒狗队最后败者组逆袭3:0反杀呢
+
+*****
+
+####  nowaki  
+##### 28814#       发表于 2022-10-22 23:06
+
+lgd 两路自动炸的对线
+
+*****
+
+####  thistimeforlife  
+##### 28815#       发表于 2022-10-22 23:07
+
+废话不多 为我克积攒电锤能量吧， peru dota forever young！
+
+*****
+
+####  Asukalangley33  
+##### 28816#       发表于 2022-10-22 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047051&amp;ptid=2099454" target="_blank">端木恋心 发表于 2022-10-22 23:04</a>
+
+我觉得tundra打不过秘密。其他和你想的差不多。但是败决lgd打不过tundra。</blockquote>
+我永远相信趴皮畜，他畜了这么多届了，也不差这次
+
+*****
+
+####  勤练带来力量  
+##### 28817#       发表于 2022-10-22 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047090&amp;ptid=2099454" target="_blank">ck4pa 发表于 2022-10-22 23:06</a>
+话说楼友觉得没阳的rng能达到哪里</blockquote>
+跟液体一个名次吧，液体能走到哪我觉得rng也就差不多到哪了
+
+*****
+
+####  Rorgen  
+##### 28818#       发表于 2022-10-22 23:08
+
+原来tundra拿的才是去年水厂的剧本
+skiter=猴爹，33=量子鞭，批九=A畜
+
+*****
+
+####  情商  
+##### 28819#         楼主| 发表于 2022-10-22 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047100&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-22 23:07</a>
+我永远相信趴皮畜，他畜了这么多届了，也不差这次</blockquote>
+意思是不相信a畜，这下可以定性成分了
+
+*****
+
+####  反方向的波  
+##### 28820#       发表于 2022-10-22 23:08
+
+Beastcoast战队发布公告，称队内有几名成员核酸检测呈阳性。并且由于主办方没有给教练提供带电脑的隔离间，他们的下场比赛将在没有教练的情况下进行。
+
+在我们上一场比赛之后，我们一名队员出现了咽喉疼痛的症状，经核酸检测后，发现我的团队的几名成员的核酸检测呈阳性，我们在确认了阳性结果后立即向Valve报告。
+不幸的事，由于Valve的规定，我们的教练不会被提供一个带电脑的隔离间。这意味着我们将被迫在没有教练的情况下参加明天的比赛，这非常令人失望，但我们仍将努力在比赛中做到最好。
+我们感谢您的持续支持。
+
+卜说了，向伟大的失败者汉堡猫致意
+
+*****
+
+####  OVTVO  
+##### 28821#       发表于 2022-10-22 23:08
+
+秘密打石头人BO3有机会靠nisha爆种拿下，BO5真是看不到赢面。
+
+*****
+
+####  nightmare902015  
+##### 28822#       发表于 2022-10-22 23:08
+
+我一直觉得上个版本三号位当大哥，一号位当三号位的版本是最适合gege躺着夺冠的。或许冰蛙不更新的话，全自动线劣的lgd真的还能说道说道。
+
+*****
+
+####  非建政专用号  
+##### 28823#       发表于 2022-10-22 23:08
+
+哥们看明白了，司马威乐就他妈知道装他妈最大方的，以前是真掏钱，现在管这黄脸婆?
+
+*****
+
+####  zyw0  
+##### 28824#       发表于 2022-10-22 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047097&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-22 23:06</a>
+
+毒狗队也是major亚军啊，能不能让他们滚蛋啊
+
+怎么还有这么多傻狗贷款亚军的。你们贷款亚军还不如干 ...</blockquote>
+不如直接贷款秘密石头人一起全队阳性，干瘪自动举盾。
+
+*****
+
+####  情商  
+##### 28825#         楼主| 发表于 2022-10-22 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047090&amp;ptid=2099454" target="_blank">ck4pa 发表于 2022-10-22 23:06</a>
+话说楼友觉得没阳的rng能达到哪里</blockquote>
+差不多8强，a组就这样了
+
+*****
+
+####  Asukalangley33  
+##### 28826#       发表于 2022-10-22 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047024&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-22 23:02</a>
+
+我看出来了，你是真的集美</blockquote>
+不想说什么集美集美的
+
+日骂也骂，也骂不死处长这个CS啊
+
+BC这个样了，想想也难赢，茶败者组跟弱智一样，刚刚还被TUNDRA处刑，遇见水厂直接跪地上了
+
+下半区李逵 OG，队里也有畜，TA感觉打的一般般
+
+预测也就纯理性谈，就像今天这个比赛，看之前就想着赢一个小分就算可以了，大概率被2:0
+
+因为野王状态很差，MONET神一把鬼一把，感觉对面气势很盛，就是难打
+
+我反正怎么都不信茶打的过水厂
+
+*****
+
+####  勤练带来力量  
+##### 28827#       发表于 2022-10-22 23:09
+
+v社是真的司马了，搞个电竞比赛连多一间带电脑的房间都搞不出来？不想办就别办
+
+*****
+
+####  Rorgen  
+##### 28828#       发表于 2022-10-22 23:09
+
+rng和液体是完完全全一档的实力，分组运气好能六强
+
+*****
+
+####  血狂毘沙门  
+##### 28829#       发表于 2022-10-22 23:10
+
+明鞭要是状态能恢复上来 很有戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 28830#       发表于 2022-10-22 23:10
+
+尬黑了，p9开始关闭大脑专心给大爹伺候的舒舒服服了，高配克里斯罢了
+
+
+
+*****
+
+####  proselyte  
+##### 28831#       发表于 2022-10-22 23:10
+
+除非再阳几个
+
+不然lgd进不来决赛日
+
