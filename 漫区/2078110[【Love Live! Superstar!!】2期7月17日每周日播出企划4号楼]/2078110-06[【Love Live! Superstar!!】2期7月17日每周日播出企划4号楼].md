@@ -11504,3 +11504,22 @@ TYMM好像瘦了，未来可期
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 8556#       发表于 2022-10-22 09:46
+
+ 本帖最后由 Kfly 于 2022-10-22 09:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033064&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-10-22 00:28</a>
+
+不用“正收益”啊
+
+榨取ip价值哪来正的负的一说，最多只有实的虚的，只要尽快变现ip价值就行了，怎么 ...</blockquote>
+如果现在的操作能做到快速变现价值的话，那我也没话说了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+就说多赚钱这事上，官方肯定是要挨上一棒的，看看能不能把它敲醒吧
+
+而且官方要全是顾眼前的家伙的话，也不会扯出进程这么迅速的星了（但叫人实际执行起来的效果，很难说没有附带一些急功近利的任务就是了（不如说没有才奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">）
+

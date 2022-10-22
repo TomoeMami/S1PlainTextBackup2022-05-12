@@ -612,3 +612,19 @@ PC大屏听歌对味，AA快下池
 
 蛮久没听由卡娜唱歌了 新卡自带一首歌还行
 
+
+
+*****
+
+####  薛定谔的小猫  
+##### 72#       发表于 2022-10-22 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58034834&amp;ptid=2068560" target="_blank">minto24 发表于 2022-10-22 08:48</a>
+
+卡关100万打不过100万
+
+第一个限定就这么牛逼  以后不感想啊
+
+还是撤了 听音乐就算通关</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这奶+盾，怎么感觉直接让普池的几个奶盾全下岗了
+

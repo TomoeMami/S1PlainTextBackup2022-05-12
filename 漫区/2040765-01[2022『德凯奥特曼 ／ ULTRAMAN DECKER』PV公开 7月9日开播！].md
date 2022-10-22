@@ -696,3 +696,19 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔（时）空传功好乐啊
 
+
+
+*****
+
+####  硫黄  
+##### 676#       发表于 2022-10-22 09:43
+
+ 本帖最后由 硫黄 于 2022-10-22 09:50 编辑 
+
+一集就能把朝影的那点破事，和德凯的来源讲清楚
+
+还点名了几百年后传承下来的是明日见家的家训（大概还有宇宙煎饼）
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">特利迦支支吾吾半天最后只可意会不可言传
+
+但这皮套的角还是好kuuga啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

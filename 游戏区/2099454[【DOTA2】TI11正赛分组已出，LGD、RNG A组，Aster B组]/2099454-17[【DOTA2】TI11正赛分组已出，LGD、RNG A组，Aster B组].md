@@ -10980,3 +10980,52 @@ DO1夜魔沉默是单点的，基础属性又是弱智，跳刀没吊用，没�
 
 只要是个真的打刀塔的就知道听场外报点就是搞笑的，刀塔这游戏信息量那么大，场内的都处理不过来，再听场外的直接爆炸，注意力不可能集中的
 
+
+
+*****
+
+####  adretyu67  
+##### 25376#       发表于 2022-10-22 09:41
+
+哦，牛批，这还没回家就忙着青蒜35的地位了
+
+*****
+
+####  masterkeaton  
+##### 25377#       发表于 2022-10-22 09:44
+
+这35早就臭名远扬了
+
+泡沫迟早都要破灭
+
+*****
+
+####  izayoi39  
+##### 25378#       发表于 2022-10-22 09:44
+
+do1夜魔中的时候散华很厉害的，带一个概率减攻速移速的被动，属性也特别适合夜魔，那时候确实适合出
+
+*****
+
+####  walfeds  
+##### 25379#       发表于 2022-10-22 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035180&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-22 09:33</a>
+
+确实，所有打过撸或者不看ti的都应该彻底批倒批臭，别来沾边。
+
+顺带一提，我现在根本想不明白为什么do1夜 ...</blockquote>
+do1夜魔虚空没有a帐效果，伤残恐惧也不是aoe是点控，直奔跳刀bkb切入忽悠自己吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  7450  
+##### 25380#       发表于 2022-10-22 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035247&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-22 09:40</a>
+只要是个真的打刀塔的就知道听场外报点就是搞笑的，刀塔这游戏信息量那么大，场内的都处理不过来，再听场外 ...</blockquote>
+操作的时候肯定没空听报点，
+辅助插眼路上听到一句smoke=对面开雾了我觉得还是反应的过来的
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
