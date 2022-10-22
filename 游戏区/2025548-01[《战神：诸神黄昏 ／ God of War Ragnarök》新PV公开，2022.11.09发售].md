@@ -6674,3 +6674,12 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 
 草 还能这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Geraltwang  
+##### 726#       发表于 2022-10-22 08:35
+
+啊？这也太草了，某种意义上还挺tm合理的
+
