@@ -1564,3 +1564,463 @@ TA只要没被秘密锤晕，基本上就是TA出来。
 
 明天如果lgd被bc送走了，剩下茶队打成什么样我都原谅了，只要有中国队在lgd后面离开比赛，那么这届ti就是圆满的，我真的不想看到“全村的希望”这句批话了
 
+
+
+*****
+
+####  ArowRocher  
+##### 28697#       发表于 2022-10-22 22:41
+
+<img src="https://p.sda1.dev/7/2a7c9e19121e1c284911207043deaf59/CMP_20221022224057964.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  在海岸  
+##### 28698#       发表于 2022-10-22 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">鳖茶这样子只配让畜长再A一次装备好吧，漏油快接受现实了，指望鳖茶不如指望BC打飞水厂
+
+*****
+
+####  人別離苦  
+##### 28699#       发表于 2022-10-22 22:41
+
+希望桶哥再次举盾，打肿德张的脸
+
+*****
+
+####  nowaki  
+##### 28700#       发表于 2022-10-22 22:41
+
+哦牛批，这么败人品的
+
+*****
+
+####  DearRye  
+##### 28701#       发表于 2022-10-22 22:41
+
+你楼支持西恩队伍的也别太急，sneaking就是正儿八经的拆你斯，支持Tundra就是支持西恩dota。
+
+—— 来自 smartisan OD103, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  OVTVO  
+##### 28702#       发表于 2022-10-22 22:41
+
+TA这队伍我觉得有点没招式了，感觉败者组很可能是茶和LGD杀上来一个。
+
+*****
+
+####  ArowRocher  
+##### 28703#       发表于 2022-10-22 22:41
+
+支持Tundra就是支持西恩dota
+
+*****
+
+####  masterffzhou  
+##### 28704#       发表于 2022-10-22 22:42
+
+铁血战狼支持这届唯一中国队好吧，lgd和rng能叫中国队吗
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sodah  
+##### 28705#       发表于 2022-10-22 22:42
+
+别拆尼斯了，回去翻翻漏油发的图。
+
+*****
+
+####  情商  
+##### 28706#         楼主| 发表于 2022-10-22 22:42
+
+铁血战狼支持这届唯一中国队好吧，lgd和rng能叫中国队吗
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Asukalangley33  
+##### 28707#       发表于 2022-10-22 22:42
+
+茶的败者组，懂的都懂啊
+
+明天水厂要是把3冠克里斯吃了，茶稳稳送水厂进决赛日
+
+*****
+
+####  哈曼的YY  
+##### 28708#       发表于 2022-10-22 22:43
+
+明天如果lgd被bc送走了，剩下茶队打成什么样我都原谅了，只要有中国队在lgd后面离开比赛，那么这届ti就是圆满的，我真的不想看到“全村的希望”这句批话了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Yugao  
+##### 28709#       发表于 2022-10-22 22:43
+
+我今年就希望，要么拳击手夺冠，历史无敌第一人，要么电锤神夺冠，打肿你们的脸，真不要让我看到处长决赛日给族谱加一个新爹了
+
+*****
+
+####  dclara1  
+##### 28710#       发表于 2022-10-22 22:43
+
+sneaking就是正儿八经的拆你斯，支持Tundra就是支持西恩dota。
+
+
+
+*****
+
+####  OVTVO  
+##### 28711#       发表于 2022-10-22 22:43
+
+楼友们在S1这种在美华人比上海人多的论坛不要在伪装了啊，该表明自己支持中国队长的态度了。
+
+*****
+
+####  Litccc  
+##### 28712#       发表于 2022-10-22 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046722&amp;ptid=2099454" target="_blank">DearRye 发表于 2022-10-22 22:41</a>
+
+你楼支持西恩队伍的也别太急，sneaking就是正儿八经的拆你斯，支持Tundra就是支持西恩dota。
+
+—— 来自 sm ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/22/224347dwodhz5xdo44wwd2.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-10-21_11-52-06.png</strong> (51.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 22:43 上传
+
+多少有点自欺欺人了
+
+*****
+
+####  ArowRocher  
+##### 28713#       发表于 2022-10-22 22:43
+
+支持熊1就是支持西恩dota
+
+*****
+
+####  walfeds  
+##### 28714#       发表于 2022-10-22 22:44
+
+哦牛批，这么败人品的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天堂蜘蛛  
+##### 28715#       发表于 2022-10-22 22:44
+
+集美论坛还在吹这阵容先进
+
+宙斯+小鱼不就是变种全球流，我是真相信集美没看过TI8以前的比赛了
+
+*****
+
+####  哈曼的YY  
+##### 28716#       发表于 2022-10-22 22:44
+
+问题来了 为啥大家的sf都不肯出跳 有没有出过跳的人？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  TI三冠王AME  
+##### 28717#       发表于 2022-10-22 22:44
+
+sneaking就是正儿八经的拆你斯，支持Tundra就是支持西恩dota。
+
+*****
+
+####  非建政专用号  
+##### 28718#       发表于 2022-10-22 22:44
+
+马体队里有个zai这种seeseetv怎么过ta，对线保肥还少个人处理pakazs
+
+*****
+
+####  两三流浪者  
+##### 28719#       发表于 2022-10-22 22:44
+
+A畜靠一手剧毒跳大混到了前四
+
+*****
+
+####  情商  
+##### 28720#         楼主| 发表于 2022-10-22 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046755&amp;ptid=2099454" target="_blank">OVTVO 发表于 2022-10-22 22:43</a>
+楼友们在S1这种在美华人比上海人多的论坛不要在伪装了啊，该表明自己支持中国队长的态度了。 ...</blockquote>
+戏瘾犯了？
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wzy200912345  
+##### 28721#       发表于 2022-10-22 22:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046741&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-22 22:42</a>
+
+茶的败者组，懂的都懂啊
+
+明天水厂要是把3冠克里斯吃了，茶稳稳送水厂进决赛日 ...</blockquote>
+打掉茶还得打第五轮呢，TA/OG/李逵三选一
+
+*****
+
+####  nowaki  
+##### 28722#       发表于 2022-10-22 22:45
+
+液体连og都过不去的
+
+*****
+
+####  Rorgen  
+##### 28723#       发表于 2022-10-22 22:45
+
+性转谷爱凌，在tundra是美国人，如果在中国队打比赛（ti9newbee）就是中国人，撒也不懂
+
+*****
+
+####  ArowRocher  
+##### 28724#       发表于 2022-10-22 22:45
+
+Lgd能打TA？我觉得费劲
+
+*****
+
+####  没钱买手办  
+##### 28725#       发表于 2022-10-22 22:46
+
+唉，明天lgd赢了茶，注销S1，卸载DOTA2，安装王者荣耀，匹配大奶JK
+
+*****
+
+####  OVTVO  
+##### 28726#       发表于 2022-10-22 22:46
+
+SF这种英雄出跳我觉得和TB出跳的思路差不多吧，有用是有用，但是没必要那么迷信。我是觉得这盘对完线输赢和SF就关系不大了。
+
+*****
+
+####  情商  
+##### 28727#         楼主| 发表于 2022-10-22 22:46
+
+中国话都不会说的中国人，跟ee一样会说几句粤语 就给你们来戏了？
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  cuisite  
+##### 28728#       发表于 2022-10-22 22:46
+
+lgd要是赢了茶，漏油能不能骂一句内战荣耀？
+
+*****
+
+####  walfeds  
+##### 28729#       发表于 2022-10-22 22:46
+
+op对于og今年的成绩已经知足了，不敢奢求<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">马体星奴好吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  朝游北海  
+##### 28730#       发表于 2022-10-22 22:46
+
+LGD凭什么进决赛日啊，除了og想不出他能赢谁，支持saDOTA，我早就是秘鲁人了
+
+*****
+
+####  月亮与五块钱  
+##### 28731#       发表于 2022-10-22 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046722&amp;ptid=2099454" target="_blank">DearRye 发表于 2022-10-22 22:41</a>
+你楼支持西恩队伍的也别太急，sneaking就是正儿八经的拆你斯，支持Tundra就是支持西恩dota。
+
+—— 来自 sm ...</blockquote>
+老子宁愿支持EE或者中国女婿也不支持冰女
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ArowRocher  
+##### 28732#       发表于 2022-10-22 22:47
+
+<img src="https://p.sda1.dev/7/4d71294cd2b4945bff04972a938ecc22/-3b19e7b670824268.jpg" referrerpolicy="no-referrer">
+
+trash talking
+
+*****
+
+####  Rorgen  
+##### 28733#       发表于 2022-10-22 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046795&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-22 22:46</a>
+中国话都不会说的中国人，跟ee一样会说几句粤语 就给你们来戏了？
+
+论坛助手,iPad ...</blockquote>
+虽然前面那人确实戏来，但吴静君真的会说普通话
+
+*****
+
+####  zyw0  
+##### 28734#       发表于 2022-10-22 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046795&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-22 22:46</a>
+
+中国话都不会说的中国人，跟ee一样会说几句粤语 就给你们来戏了？
+
+论坛助手,iPad ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">参考林书豪，可以现学嘛
+
+*****
+
+####  OVTVO  
+##### 28735#       发表于 2022-10-22 22:48
+
+楼主居然不去假赛论坛带中国队长用移民贿赂茶队加赛的节奏我是看不懂的，LAO GUANG的暗号白打了？
+
+*****
+
+####  Rorgen  
+##### 28736#       发表于 2022-10-22 22:48
+
+感觉skiter去秘密或者nisha去tundra，我就会支持这两个队夺冠，不然还是算了
+
+*****
+
+####  反方向的波  
+##### 28737#       发表于 2022-10-22 22:49
+
+吴静君不是lvd吧的一员虎将么，怎么就不会中文了
+
+*****
+
+####  TI三冠王AME  
+##### 28738#       发表于 2022-10-22 22:49
+
+理性讨论历届外国TI冠军班子里的华裔：
+
+2000是纯ABC（A指北美大陆）
+
+ANA是纯ABC（A指澳大利亚）
+
+老东京一百年前是中国人
+
+sneaking生在中国，润到美国而已，西恩含量是最高的，一把子支持了
+
+*****
+
+####  哈曼的YY  
+##### 28739#       发表于 2022-10-22 22:49
+
+原来去年还有楼主点草环节？我要补一补
+那时候我还看贴吧nga 后来被恶心坏了才只看sg和本漏
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  非建政专用号  
+##### 28740#       发表于 2022-10-22 22:49
+
+鱼垃圾高低中戏毕业，atf高速逆行，外带一个诸葛米神，og过马体的几率感觉不如bc穿两中国队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  憧憬鲨  
+##### 28741#       发表于 2022-10-22 22:49
+
+nowaki这比说得好像窝克把前面碰到过的中单都打赢了一样
+
+*****
+
+####  a1370303  
+##### 28742#       发表于 2022-10-22 22:49
+
+唉，明天lgd赢了茶，注销S1，卸载DOTA2，安装王者荣耀，匹配大奶JK
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dpl451  
+##### 28743#       发表于 2022-10-22 22:50
+
+我支持nmb老干瘪，就算决赛是t1和老干瘪打老子直接宣布这是不存在的比赛，去年洪水滔天都没跪这次一个败者组连点嗯实力都没有的老干瘪怕成这样？
+
+*****
+
+####  ArowRocher  
+##### 28744#       发表于 2022-10-22 22:50
+
+坏了，他先成移民神了
+
+*****
+
+####  wzy200912345  
+##### 28745#       发表于 2022-10-22 22:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这石头人有点那个了，逮着没仇没怨平常见不着的外区队使劲输出啊（印象中这俩交手很少）
+
+*****
+
+####  端木恋心  
+##### 28746#       发表于 2022-10-22 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046765&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-22 22:44</a>
+
+问题来了 为啥大家的sf都不肯出跳 有没有出过跳的人？
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+仔细想想看了这么多天物理影魔都是最后一件装备出跳的。没有一个早出的。
+
+这个版本物理影魔就是炮台，和以前版本的TB一个思路。
+
+*****
+
+####  zyw0  
+##### 28747#       发表于 2022-10-22 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046800&amp;ptid=2099454" target="_blank">朝游北海 发表于 2022-10-22 22:46</a>
+
+LGD凭什么进决赛日啊，除了og想不出他能赢谁，支持saDOTA，我早就是秘鲁人了 ...</blockquote>
+干瘪打完bc和茶还有一个礼拜时间，一个礼拜足够让剩下三支一起阳了。到时候别说进决赛日了，举盾都没问题了（当然要是明天被bc或者茶送走那更好）
+
+*****
+
+####  帕林马哲理  
+##### 28748#       发表于 2022-10-22 22:50
+
+希望aster败者组雄起，不能的话希望micke跟zai做人，让马桶哥进败决，再高我感觉不是这支liquid接的住的舞台了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  Rorgen  
+##### 28749#       发表于 2022-10-22 22:51
+
+额，正反手处刑进ti决赛日，是有资格嘲讽的，别整og轮盘队那档子
+
