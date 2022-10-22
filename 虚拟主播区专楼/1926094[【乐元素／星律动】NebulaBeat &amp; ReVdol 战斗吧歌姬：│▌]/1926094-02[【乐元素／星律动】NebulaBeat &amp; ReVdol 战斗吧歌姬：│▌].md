@@ -8543,3 +8543,23 @@ kino我是百连时关注的，但完全不了解的话，也不会点进直播�
 
 糖果齁咸hhhh
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2408#       发表于 2022-10-22 20:47
+
+蛋糕好像是之前kino千舰同款蛋糕
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">赛马娘你毁了这个家
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  喜闻乐见  
+##### 2409#         楼主| 发表于 2022-10-22 20:48
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h7ecu03p29j20qh0f5aly.jpg" referrerpolicy="no-referrer">
+
