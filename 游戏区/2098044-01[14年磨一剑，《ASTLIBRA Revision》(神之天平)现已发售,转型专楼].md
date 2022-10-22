@@ -8132,3 +8132,61 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 后院这俩大石头敲得我手都麻了。。。
 
+
+
+*****
+
+####  luffy800  
+##### 744#       发表于 2022-10-22 12:33
+
+第六章最后的4个古代兵器 困难模式，我装备落后两个版本（没拿新的合成书），实在打不过
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tsubaki  
+##### 745#       发表于 2022-10-22 12:34
+
+那两石头得二周目过来打的，100W血就算二周都要砍半天<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏西踩到我了  
+##### 746#       发表于 2022-10-22 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58034649&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-22 08:20</a>
+录了流程吗？比利上只找得到带她走但不说话的流程。</blockquote>
+没……等等吧，这种好游戏等几天就有雨后春笋般的流程视频出来
+
+*****
+
+####  何处分可  
+##### 747#       发表于 2022-10-22 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036191&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-22 11:08</a>
+
+问就是心不够诚，刷的不够多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来回刷了好几遍了，是不是幸运没点够
+
+*****
+
+####  quanlix  
+##### 748#       发表于 2022-10-22 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58037378&amp;ptid=2098044" target="_blank">luffy800 发表于 2022-10-22 12:33</a>
+
+第六章最后的4个古代兵器 困难模式，我装备落后两个版本（没拿新的合成书），实在打不过
+
+—— 来自 S1Fun ...</blockquote>
+往最左边跑，从魔法阵上战舰，这四个遗迹兵打完有没有奖励就不知道了
+
+*****
+
+####  六至九  
+##### 749#       发表于 2022-10-22 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033884&amp;ptid=2098044" target="_blank">苏西踩到我了 发表于 2022-10-22 03:55</a>
+才知道第五章的分歧点，然后读回三个小时前的存档，这何尝不是一种改变历史 ...</blockquote>
+我读了个十小时的档<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，另外就是坛友上面说的一周目三个爱情最好都取得到，后面肉鸽地牢虽然可以刷出来，但爆率实属不高。
+
