@@ -69,3 +69,14 @@
 
 女王还是很香的吧
 
+
+
+*****
+
+####  Kon-El  
+##### 43641#       发表于 2022-10-22 21:17
+
+这次好在副本不阴间了，增加的敌人都是一排出现，对蓝卡队比较友好<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

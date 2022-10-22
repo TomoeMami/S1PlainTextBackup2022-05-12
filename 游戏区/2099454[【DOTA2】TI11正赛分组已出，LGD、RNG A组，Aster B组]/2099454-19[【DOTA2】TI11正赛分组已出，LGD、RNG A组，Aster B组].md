@@ -7742,3 +7742,743 @@ bp针对捞9没啥用的............石头人大爹二爹是13
 
 来了来了，杜儿鹏儿化煜回放
 
+
+
+*****
+
+####  ArowRocher  
+##### 28042#       发表于 2022-10-22 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58044852&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-22 21:10</a>
+坏了bc新冠是真的，官宣了</blockquote>
+国内流量号竟成真舅舅！
+
+*****
+
+####  莉拉厨  
+##### 28043#       发表于 2022-10-22 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58044852&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-22 21:10</a>
+坏了bc新冠是真的，官宣了
+教练好像也上不了</blockquote>
+上午ins就发了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 28044#       发表于 2022-10-22 21:11
+
+这把选个大圣应该好一点吧，末日基本上就是33的位置了……
+
+*****
+
+####  银翼的维罗西  
+##### 28045#       发表于 2022-10-22 21:11
+
+上路哪有那么好打，pom是T1级别的线霸，小鱼选出来就是要承压的，杜鹏也是个看我表演的货，他就觉得自己也能打
+
+*****
+
+####  roxas.sora  
+##### 28046#       发表于 2022-10-22 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不是吧，明天又要看水厂污染舆论了？
+
+*****
+
+####  OVTVO  
+##### 28047#       发表于 2022-10-22 21:11
+
+小鱼马西对线真的不该打成这样，有傻狗看到怎么吃到电怪的吗？
+
+*****
+
+####  zyw0  
+##### 28048#       发表于 2022-10-22 21:11
+
+微博上那个丝路电竞什么来头？bc阳性的消息比官宣早了整整一天？！
+
+*****
+
+####  jk9hot  
+##### 28049#       发表于 2022-10-22 21:11
+
+菠菜公司有内部线人
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Asukalangley33  
+##### 28050#       发表于 2022-10-22 21:12
+
+这个版本的主流就是高爆发+打完就跑啊
+
+还搁这小鱼，TB都是CJB英雄，你小鱼什么东西啊
+
+再说小鱼本来对线就垃圾，选出来基本AUTOLOSE，但凡小鱼能赢的局，换个其他英雄都好赢的多
+
+石头人又是无限强调对线压制的队伍，选线弱只会被反复滚雪球
+
+我的想法吧，茶非要选小鱼这类英雄的话，可以打311分路
+
+石头人那边C位水平一般，选个能混经验的陪他玩就行
+
+优势路选2个肉搏能力强的酱油疯狂压对面的3
+
+
+
+*****
+
+####  反方向的波  
+##### 28051#       发表于 2022-10-22 21:12
+
+毒狗doto fastest doto<img src="https://static.saraba1st.com/image/smiley/face2017/246.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Suny08  
+##### 28052#       发表于 2022-10-22 21:12
+
+<blockquote>勤练带来力量 发表于 2022-10-22 21:10
+坏了bc新冠是真的，官宣了</blockquote>
+别是whisper 阳了吧，子龙是bc 唯一有希望赢的点了，其他人感觉希望渺茫
+
+*****
+
+####  nowaki  
+##### 28053#       发表于 2022-10-22 21:12
+
+我已经提前原谅了克神
+
+*****
+
+####  adretyu67  
+##### 28054#       发表于 2022-10-22 21:12
+
+<img src="https://img.saraba1st.com/forum/202210/22/211158kthathd2ssmrvyna.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (317.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 21:11 上传
+
+基本上毒狗队明天要和憋茶争夺最后一个西恩名额了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 28055#       发表于 2022-10-22 21:12
+
+克里斯化悲痛为力量，痛击LGD
+
+*****
+
+####  Rorgen  
+##### 28056#       发表于 2022-10-22 21:12
+
+哥们说过了今天四个欧洲队赢，撒也不懂
+tundra这失误率控制明显比你高出档次
+
+*****
+
+####  43453  
+##### 28057#       发表于 2022-10-22 21:13
+
+xxs就别惦记马尔斯出羊刀了，上次被出A的atf马尔斯薄纱，然后下一把自己马尔斯出羊被og薄纱
+
+*****
+
+####  snarc1  
+##### 28058#       发表于 2022-10-22 21:13
+
+毒狗doto fastest doto
+
+*****
+
+####  枯风瘦雪02  
+##### 28059#       发表于 2022-10-22 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58044877&amp;ptid=2099454" target="_blank">OVTVO 发表于 2022-10-22 21:11</a>
+
+小鱼马西对线真的不该打成这样，有傻狗看到怎么吃到电怪的吗？</blockquote>
+第一波刷新小怪就是电鸟。。。
+
+*****
+
+####  苏沃雷生  
+##### 28060#       发表于 2022-10-22 21:13
+
+其实这把还没有把doom对小鱼的克制完全打出来，别忘了DOOM出A之后还能大自己，全方位处刑弟弟鱼。除非对线期把对面彻底打没不然太难了
+
+*****
+
+####  NaYo丶  
+##### 28061#       发表于 2022-10-22 21:13
+
+今天打完换场馆了吧 休赛一周还行的
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  齐柏林轰炸机  
+##### 28062#       发表于 2022-10-22 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">茶队啊茶队
+
+*****
+
+####  Sabbah  
+##### 28063#       发表于 2022-10-22 21:13
+
+我已经提前原谅了克神
+
+*****
+
+####  百世诸侯  
+##### 28064#       发表于 2022-10-22 21:13
+
+别冠轻语哥，要冠就冠克里斯吧
+
+*****
+
+####  walfeds  
+##### 28065#       发表于 2022-10-22 21:13
+
+菠菜公司消息不比你早岂不是给别人送钱
+
+*****
+
+####  adretyu67  
+##### 28066#       发表于 2022-10-22 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58044909&amp;ptid=2099454" target="_blank">苏沃雷生 发表于 2022-10-22 21:13</a>
+
+其实这把还没有把doom对小鱼的克制完全打出来，别忘了DOOM出A之后还能大自己，全方位处刑弟弟鱼。除非对线 ...</blockquote>
+他已经大自己了
+
+*****
+
+####  非建政专用号  
+##### 28067#       发表于 2022-10-22 21:14
+
+别急，万一病毒把窝克的奇思妙想暂时关闭，bc不是乱宰lgd？
+
+*****
+
+####  格雷殿下  
+##### 28068#       发表于 2022-10-22 21:14
+
+马戏BKB以前死太多了，买活又继续死，
+
+明明差几百了，还在死。
+
+队友应该分点钱给马戏的。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 28069#       发表于 2022-10-22 21:14
+
+茶落下去的话一定要斩了lgd啊，我有一个建议，给xxs选酒仙或者doom，就吹猴爹或者大猴爹，打普森的斩首打法好吧，autowin
+
+*****
+
+####  帕林马哲理  
+##### 28070#       发表于 2022-10-22 21:14
+
+限制不住33我感觉你针对skiter，9都没啥用的，33用召唤系还要再强一些<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 28071#       发表于 2022-10-22 21:14
+
+今年阿茶关键局只赢过一次lgd好吧，第一次DPC的排名战，还他妈是BO1
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 28072#       发表于 2022-10-22 21:14
+
+别冠轻语哥，要冠就冠克里斯吧
+
+*****
+
+####  Keynes  
+##### 28073#       发表于 2022-10-22 21:14
+
+别冠轻语哥，要冠就冠克里斯吧
+
+*****
+
+####  JoelBirch  
+##### 28074#       发表于 2022-10-22 21:14
+
+草控制时间倍杀……打毛啊
+
+*****
+
+####  憧憬鲨  
+##### 28075#       发表于 2022-10-22 21:14
+
+别冠子龙啊，要冠就冠我克神吧
+
+*****
+
+####  OVTVO  
+##### 28076#       发表于 2022-10-22 21:14
+
+打doom第一波被吃到电怪不知道是怎么处理的，正常来说这手小鱼打线优我觉得问题不大。
+
+*****
+
+####  ArowRocher  
+##### 28077#       发表于 2022-10-22 21:15
+
+你们真是小电锤？
+
+*****
+
+####  Rorgen  
+##### 28078#       发表于 2022-10-22 21:15
+
+前面的忘了，要冠就冠克里斯吧
+
+*****
+
+####  逃离二次元  
+##### 28079#       发表于 2022-10-22 21:15
+
+别冠轻语哥，要冠就冠克里斯吧
+
+*****
+
+####  银翼的维罗西  
+##### 28080#       发表于 2022-10-22 21:15
+
+茶主要还是给不上压力，和RNG回家局差不多，对面想怎么玩怎么玩，打的太舒服了
+
+
+
+*****
+
+####  izayoi39  
+##### 28081#       发表于 2022-10-22 21:15
+
+归根结底还是bbk状态太差了，不光没节奏，保线也很差了
+
+*****
+
+####  TIZI  
+##### 28082#       发表于 2022-10-22 21:16
+
+前面忘了，小电锤已经哭晕了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Keynes  
+##### 28083#       发表于 2022-10-22 21:16
+
+加油加油，还有两把
+
+*****
+
+####  反方向的波  
+##### 28084#       发表于 2022-10-22 21:16
+
+桀桀，克黑都不装了是吧
+
+*****
+
+####  qty  
+##### 28085#       发表于 2022-10-22 21:16
+
+就阿茶这个无限接近程序化的脑子，对上老干瘪大概率就是送
+
+*****
+
+####  VT1996  
+##### 28086#       发表于 2022-10-22 21:16
+
+茶队明显没意识到这版本doom是可以当一号位打的，之前23有一把无解肥一号位doom就是这样，这doom看不能打直接溜的，就是在当一号位打
+
+*****
+
+####  枯风瘦雪02  
+##### 28087#       发表于 2022-10-22 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58044945&amp;ptid=2099454" target="_blank">OVTVO 发表于 2022-10-22 21:14</a>
+
+打doom第一波被吃到电怪不知道是怎么处理的，正常来说这手小鱼打线优我觉得问题不大。 ...</blockquote>
+那个小野点没封野第一波就刷出电怪了，末日直接过去吃酱油玛西拦不住的，33吃完电怪就连续拉了6个芒果，就是要把小鱼强行压费
+
+*****
+
+####  樱冢名月  
+##### 28088#       发表于 2022-10-22 21:16
+
+草，鹏子这表情，是在怀疑自己了？
+
+*****
+
+####  zhrs456  
+##### 28089#       发表于 2022-10-22 21:17
+
+第一波电怪没真眼封 玛希肉身拦DOOM没拦住 野王保优势路蠢猪一样
+
+*****
+
+####  ArowRocher  
+##### 28090#       发表于 2022-10-22 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58044879&amp;ptid=2099454" target="_blank">zyw0 发表于 2022-10-22 21:11</a>
+微博上那个丝路电竞什么来头？bc阳性的消息比官宣早了整整一天？！</blockquote>
+按推理小说逻辑，这个号就是凶手
+
+*****
+
+####  勤练带来力量  
+##### 28091#       发表于 2022-10-22 21:17
+
+瘟疫法师魔晶太厉害辣，死亡搜寻！<img src="https://p.sda1.dev/7/17e3eb7215ad1518c307b13c175a1449/CMP_20221022211711294.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 28092#       发表于 2022-10-22 21:17
+
+克黑别急，窝克明天就打烂黑子的脸<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 28093#       发表于 2022-10-22 21:17
+
+别冠轻语哥，要冠就冠克里斯吧
+
+*****
+
+####  zhrs456  
+##### 28094#       发表于 2022-10-22 21:17
+
+鳖茶下去打老干鳖那就是TI7复刻 看好A畜再A一次装备
+
+*****
+
+####  逃离二次元  
+##### 28095#       发表于 2022-10-22 21:17
+
+服了，超级推理论坛版本又要回来了？
+
+*****
+
+####  Keynes  
+##### 28096#       发表于 2022-10-22 21:17
+
+鳖茶下去打老干鳖那就是TI7复刻 看好A畜再A一次装备
+
+*****
+
+####  adretyu67  
+##### 28097#       发表于 2022-10-22 21:18
+
+BC发言最严重的反而是教练进不去，不是选手
+
+*****
+
+####  Rorgen  
+##### 28098#       发表于 2022-10-22 21:18
+
+别慌，吴静君也是中国人，tundra也是中国队！
+
+*****
+
+####  逃离二次元  
+##### 28099#       发表于 2022-10-22 21:18
+
+鳖茶下去打老干鳖那就是TI7复刻 看好A畜再A一次装备
+
+*****
+
+####  nowaki  
+##### 28100#       发表于 2022-10-22 21:18
+
+现在还觉得lgd强的真没看比赛吧，lgd边路对线现在是选什么都自动劣，全靠猴爹打线优和节奏，后期收割和切入也得靠猴爹，按住猴爹真的随便打
+
+*****
+
+####  TIZI  
+##### 28101#       发表于 2022-10-22 21:18
+
+以后打doom，优势局小野大家都会记得封了吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  a1370303  
+##### 28102#       发表于 2022-10-22 21:19
+
+鳖茶下去打老干鳖那就是TI7复刻 看好A畜再A一次装备
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 28103#       发表于 2022-10-22 21:19
+
+尊重
+
+*****
+
+####  zyw0  
+##### 28104#       发表于 2022-10-22 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045008&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-22 21:18</a>
+
+别慌，吴静君也是中国人，tundra也是中国队！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">老东京早生一百年也是中国人，雪碧也是中国队
+
+*****
+
+####  Litccc  
+##### 28105#       发表于 2022-10-22 21:19
+
+看好这把国土脑浆放33死灵龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 28106#       发表于 2022-10-22 21:19
+
+小电锤满脑子都在帮克神想怎样才能赢，BC难道是靠克神赢的比赛吗
+
+*****
+
+####  OVTVO  
+##### 28107#       发表于 2022-10-22 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58044982&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-22 21:16</a>
+
+那个小野点没封野第一波就刷出电怪了，末日直接过去吃酱油玛西拦不住的，33吃完电怪就连续拉了6个芒果， ...</blockquote>
+谢谢老哥，我还以为是封小野真眼被对面反了，原来没肉身封小野也没真眼封小野吗，感觉不太应该啊。后面33芒果强线上我看到了，只能说给了机会被抓住了。
+
+*****
+
+####  snarc1  
+##### 28108#       发表于 2022-10-22 21:19
+
+就怕睿达的状态打回来了
+
+*****
+
+####  walfeds  
+##### 28109#       发表于 2022-10-22 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045029&amp;ptid=2099454" target="_blank">zyw0 发表于 2022-10-22 21:19</a>
+
+老东京早生一百年也是中国人，雪碧也是中国队</blockquote>
+建议早生七百年
+
+*****
+
+####  nowaki  
+##### 28110#       发表于 2022-10-22 21:20
+
+小电锤都在祈福新冠的是克神
+
+
+
+*****
+
+####  弈秋  
+##### 28111#       发表于 2022-10-22 21:20
+
+二手影魔 相信鹏子
+
+*****
+
+####  反方向的波  
+##### 28112#       发表于 2022-10-22 21:20
+
+<img src="https://p.sda1.dev/7/abce485d9d86e46b262bfdd31a9877b0/CMP_20221022211933292.jpg" referrerpolicy="no-referrer">
+性转谷圣
+
+*****
+
+####  walfeds  
+##### 28113#       发表于 2022-10-22 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045051&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-22 21:20</a>
+
+性转谷圣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雀食
+
+*****
+
+####  Crazy_Knife  
+##### 28114#       发表于 2022-10-22 21:20
+
+影魔淘汰赛胜率好低啊，感觉现在每个队都会打影魔了
+
+*****
+
+####  百世诸侯  
+##### 28115#       发表于 2022-10-22 21:21
+
+这照片纯纯的熊一，来星雨了
+
+*****
+
+####  齐柏林轰炸机  
+##### 28116#       发表于 2022-10-22 21:21
+
+。。。SF不好整啊
+
+*****
+
+####  a1370303  
+##### 28117#       发表于 2022-10-22 21:21
+
+拿影魔要ban斯文啊
+
+*****
+
+####  caupollen  
+##### 28118#       发表于 2022-10-22 21:21
+
+真双重国籍？
+
+*****
+
+####  枯风瘦雪02  
+##### 28119#       发表于 2022-10-22 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045062&amp;ptid=2099454" target="_blank">Crazy_Knife 发表于 2022-10-22 21:20</a>
+
+影魔淘汰赛胜率好低啊，感觉现在每个队都会打影魔了</blockquote>
+三场是输在rtz手里，我觉得和英雄关系不大
+
+*****
+
+####  JoelBirch  
+##### 28120#       发表于 2022-10-22 21:21
+
+以张睿达现在把劣的状态，我觉得茶队还是能打的，但张睿达要是学一手今天这个末日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ArowRocher  
+##### 28121#       发表于 2022-10-22 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045070&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-22 21:21</a>
+这照片纯纯的熊一，来星雨了</blockquote>
+？
+
+*****
+
+####  端木恋心  
+##### 28122#       发表于 2022-10-22 21:21
+
+鹏哥脸不对啊
+
+*****
+
+####  非建政专用号  
+##### 28123#       发表于 2022-10-22 21:22
+
+bc教练就更不急了，前两天就五号位和教练在bp，后面才开启全队集合bp模式，虽然我觉得bp都一样，主要还是克神和k1想不想坐起来打
+
+*****
+
+####  OVTVO  
+##### 28124#       发表于 2022-10-22 21:22
+
+SF这英雄不管怎么说数值在这里，选了问题不大
+
+*****
+
+####  夜光铃  
+##### 28125#       发表于 2022-10-22 21:22
+
+版本陷阱影魔
+
+*****
+
+####  逃离二次元  
+##### 28126#       发表于 2022-10-22 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045070&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-22 21:21</a>
+这照片纯纯的熊一，来星雨了</blockquote>
+？
+
+*****
+
+####  Keynes  
+##### 28127#       发表于 2022-10-22 21:22
+
+百世诸侯wcnm<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TIZI  
+##### 28128#       发表于 2022-10-22 21:22
+
+注：双修畜、假赛狗、管人痴、集美、男同与毒狗不得入内
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  jk9hot  
+##### 28129#       发表于 2022-10-22 21:22
+
+影魔单拿不强
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  walfeds  
+##### 28130#       发表于 2022-10-22 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045070&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-22 21:21</a>
+
+这照片纯纯的熊一，来星雨了</blockquote>
+？
+
+*****
+
+####  天堂蜘蛛  
+##### 28131#       发表于 2022-10-22 21:22
+
+现在还觉得lgd强的真没看比赛吧，lgd边路对线现在是选什么都自动劣，全靠猴爹打线优和节奏，后期收割和切入也得靠猴爹，按住猴爹真的随便打
+
+*****
+
+####  Suny08  
+##### 28132#       发表于 2022-10-22 21:22
+
+液体的影魔都没赢，我感觉还是影魔的问题，液体算是最喜欢打炮台流的队了
+
+*****
+
+####  莉拉厨  
+##### 28133#       发表于 2022-10-22 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045051&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-22 21:20</a>
+性转谷圣</blockquote>
+哇难怪天天玩冰女啊
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
