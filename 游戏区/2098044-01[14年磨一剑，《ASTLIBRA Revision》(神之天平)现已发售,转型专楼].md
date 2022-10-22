@@ -8272,3 +8272,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 后面这食材也太难掉了吧，研究所我已经来回杀穿了三遍所有的材料都全了就差砂糖。
 
+
+
+*****
+
+####  帆影FX  
+##### 758#       发表于 2022-10-22 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038526&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-22 13:57</a>
+
+后面这食材也太难掉了吧，研究所我已经来回杀穿了三遍所有的材料都全了就差砂糖。 ...</blockquote>
+好像研究所的树会掉，我当时都放弃刷了，直接去面包店买果酱面包分解出来的砂糖
+
