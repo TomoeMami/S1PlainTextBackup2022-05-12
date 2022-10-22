@@ -8489,3 +8489,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 天空城第一张图的左边，贤者塔三楼，主城水井</blockquote>
 贤者塔三楼不让进怎么弄
 
+
+
+*****
+
+####  yla  
+##### 779#       发表于 2022-10-22 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58042173&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 18:38</a>
+
+贤者塔三楼不让进怎么弄</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第六章怎么过卫兵的，这里就怎么过看门人
+

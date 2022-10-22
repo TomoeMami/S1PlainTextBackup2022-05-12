@@ -910,3 +910,18 @@ op里博士直接给了反派的镜头啊<img src="https://static.saraba1st.com/
 男主的演技让他说地球由他来保护的时候特有说服力 蛮不错的</blockquote>
 但是穿越的那位是空手回去的不能再变身了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acejoe  
+##### 694#       发表于 2022-10-22 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58041860&amp;ptid=2040765" target="_blank">wzp2853 发表于 2022-10-22 18:22</a>
+这作斯菲亚设定那么NB，是不是最后是4打1？
+
+光国再召唤一次迪迦
+
+据说下个月登场的戴拿</blockquote>
+肯定不是啊，特利迦火星作战，德卡地球作战，戴拿肯定和迪迦一样一集出个场就没了。
+
