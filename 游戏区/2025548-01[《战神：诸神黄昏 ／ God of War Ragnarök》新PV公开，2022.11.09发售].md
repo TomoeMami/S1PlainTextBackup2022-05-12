@@ -6758,3 +6758,15 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 其实洛基还有一把剑的，但是游戏里洛基是儿子</blockquote>
   <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长枪我是觉得不太可能，再怎么蛮子好歹也是主神，奥丁最后连自己的武器都在别人手上被爆揍那也太没牌面了，要说如果有类似奥林匹斯之剑动作的大剑我觉得也不是不可能
 
+
+
+*****
+
+####  Geraltwang  
+##### 735#       发表于 2022-10-22 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035179&amp;ptid=2025548" target="_blank">415452356 发表于 2022-10-22 09:33</a>
+
+长枪我是觉得不太可能，再怎么蛮子好歹也是主神，奥丁最后连自己的武器都在别人手上被爆揍那也 ...</blockquote>
+剑也有不少啊，弗雷的胜利之剑，苏尔特尔的炎之魔剑，还有提尔锋这种
+

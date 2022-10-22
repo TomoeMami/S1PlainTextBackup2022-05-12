@@ -712,3 +712,12 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 但这皮套的角还是好kuuga啊<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  柳柳昭陵  
+##### 677#       发表于 2022-10-22 09:56
+
+所以这斯菲亚设定不就是病毒，朝影就是那啥的影射<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

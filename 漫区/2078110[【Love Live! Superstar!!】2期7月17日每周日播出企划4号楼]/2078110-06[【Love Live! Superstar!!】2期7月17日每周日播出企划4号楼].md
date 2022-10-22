@@ -11523,3 +11523,14 @@ TYMM好像瘦了，未来可期
 
 而且官方要全是顾眼前的家伙的话，也不会扯出进程这么迅速的星了（但叫人实际执行起来的效果，很难说没有附带一些急功近利的任务就是了（不如说没有才奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  ruffian  
+##### 8557#       发表于 2022-10-22 10:02
+
+不说海选组，整个星团强推香音也只有动画，其他都是尽量端水的，fmt也是根据角色排的live不可能说这个funs单指香音的funs其他饭爬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，在动画中树立一个榜样为以后的海选做人才储备什么的…我不太相信他们能有这样的“远见”
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
