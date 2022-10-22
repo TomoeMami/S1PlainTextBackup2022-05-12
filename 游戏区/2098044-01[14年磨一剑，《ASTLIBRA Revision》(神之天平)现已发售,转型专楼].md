@@ -8402,3 +8402,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 刚刚打了火山的剑神，画里的巫女，魔王城的龙，还有几个神在哪啊
 
+
+
+*****
+
+####  从零开始的ccc  
+##### 771#       发表于 2022-10-22 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58039856&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 15:58</a>
+
+刚刚打了火山的剑神，画里的巫女，魔王城的龙，还有几个神在哪啊</blockquote>
+天空城第一张图的左边，贤者塔三楼，主城水井
+
