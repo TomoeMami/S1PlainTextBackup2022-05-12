@@ -8468,3 +8468,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  有点追求  
+##### 777#       发表于 2022-10-22 17:47
+
+开狂暴蹭过了，感觉输出和防御都有一个明显的断层。感觉很怪
+
