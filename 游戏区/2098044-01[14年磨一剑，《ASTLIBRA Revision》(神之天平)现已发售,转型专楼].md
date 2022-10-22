@@ -8567,3 +8567,25 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 二周目能把一周目漏的神给打了么
 
+
+
+*****
+
+####  jy000129  
+##### 787#       发表于 2022-10-22 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58043498&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 19:59</a>
+
+二周目能把一周目漏的神给打了么</blockquote>
+能吧，虽然我是一周目清的
+
+*****
+
+####  lazycat233  
+##### 788#       发表于 2022-10-22 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58043548&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-22 20:02</a>
+
+能吧，虽然我是一周目清的</blockquote>
+那二周目还有新的隐藏宝箱么，一周目拿完了，如果没有我就能省几个水晶
+
