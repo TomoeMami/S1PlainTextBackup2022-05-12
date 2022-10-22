@@ -9572,3 +9572,411 @@ sszai：原来这个游戏这么简单，只要守尸拉大就能赢，我之前
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  你可以试试  
+##### 26764#       发表于 2022-10-22 17:21
+
+但是那个暂停真的是fishman赢的时候扔耳机凑巧砸到的，有视频的
+
+*****
+
+####  syndrome2032  
+##### 26765#       发表于 2022-10-22 17:21
+
+别说了，希望干瘪明天滚蛋
+
+*****
+
+####  情商  
+##### 26766#         楼主| 发表于 2022-10-22 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58040916&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-22 17:18</a>
+
+zai到底是怎么变成这幅楚生模样的，从秘密出来以后就这样了么，以前还挺喜欢的，3号位4号位都那么屌的人。 ...</blockquote>
+跟ctrl打双4把自己跟ctrl打废了
+
+*****
+
+####  樱冢名月  
+##### 26767#       发表于 2022-10-22 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我真觉得阿茶今晚上这关过不了，估计就没了，就看曼巴能不能嘴臭叶智标让叶智标找回状态了
+
+*****
+
+####  trackerList  
+##### 26768#       发表于 2022-10-22 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不管是不是故意的，bye bye pauseman这个梗都要贯穿他的职业生涯了
+
+*****
+
+####  JoelBirch  
+##### 26769#       发表于 2022-10-22 17:22
+
+液体上去感觉明天真不一定能送走LGD了
+
+*****
+
+####  勤练带来力量  
+##### 26770#       发表于 2022-10-22 17:22
+
+南美荣耀冲
+
+*****
+
+####  syndrome2032  
+##### 26771#       发表于 2022-10-22 17:22
+
+鳖茶下去也攒口气多走一轮吧，万一wisper神不敌新冠的话。
+
+*****
+
+####  柚上舍人  
+##### 26772#       发表于 2022-10-22 17:22
+
+水晶哥3个3－0有上帝那味了🐶
+
+*****
+
+####  樱冢名月  
+##### 26773#       发表于 2022-10-22 17:23
+
+水晶这拿出来看完全3号位啊
+
+*****
+
+####  walfeds  
+##### 26774#       发表于 2022-10-22 17:23
+
+我的评价是鳖星下去把干瘪抬走
+
+*****
+
+####  古代人皮克  
+##### 26775#       发表于 2022-10-22 17:23
+
+给南美人元气了
+
+*****
+
+####  usoda  
+##### 26776#       发表于 2022-10-22 17:23
+
+鳖茶状态不错 不一定下去
+
+*****
+
+####  Rorgen  
+##### 26777#       发表于 2022-10-22 17:23
+
+crit：小组赛的战绩给了我们虚假的希望。我们今年一整年都非常糟糕，在TI11开始前我们没有很高的期望，其实我都不知道我们小组赛怎么了，我们就莫名其妙赢了很多场，但是淘汰赛这样的结果，对我们来说是毁灭性的打击。
+
+*****
+
+####  星野航  
+##### 26778#       发表于 2022-10-22 17:24
+
+讲真，水厂要是撑到第二周，夺冠几率真的大增<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，第一周摁不死，我感觉就不妙了
+
+*****
+
+####  TI三冠王AME  
+##### 26779#       发表于 2022-10-22 17:24
+
+咋就给LGD贷款到败者组第五轮了，先活过明天吧
+
+*****
+
+####  齐柏林轰炸机  
+##### 26780#       发表于 2022-10-22 17:24
+
+刚刚没看到，李逵有没有暂停一下
+
+*****
+
+####  樱冢名月  
+##### 26781#       发表于 2022-10-22 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过整个TI对我来说冲击最大的还是上帝那张拿着咖啡，下面一排5-0
+
+*****
+
+####  R1O  
+##### 26782#       发表于 2022-10-22 17:24
+
+ni公子请神请到斜颚泰迪了
+
+<img src="https://img.saraba1st.com/forum/202210/22/172413gr4ozz4qwa041q8v.png" referrerpolicy="no-referrer">
+
+<strong>}5~L4XG582YSYAHQ4[C_)C4.png</strong> (74.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 17:24 上传
+
+*****
+
+####  walfeds  
+##### 26783#       发表于 2022-10-22 17:24
+
+暴击总算mentally done了？
+
+*****
+
+####  zhrs456  
+##### 26784#       发表于 2022-10-22 17:24
+
+野王大概率不行 鳖茶23都是一旦崩就彻底崩了 TI7被TPII全功率干了2把整个队就彻底没声音了 最后被A畜羞辱离场
+
+*****
+
+####  nowaki  
+##### 26785#       发表于 2022-10-22 17:24
+
+<img src="https://img.saraba1st.com/forum/202210/22/172412ibi48lb809m8g06u.jpg" referrerpolicy="no-referrer">
+
+<strong>11.jpg</strong> (137.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 17:24 上传
+
+再见了，这世界上所有的雌小鬼
+
+*****
+
+####  usoda  
+##### 26786#       发表于 2022-10-22 17:24
+
+来了来了 帕卡兹大神登上舞台<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 26787#       发表于 2022-10-22 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58040997&amp;ptid=2099454" target="_blank">R1O 发表于 2022-10-22 17:24</a>
+ni公子请神请到斜颚泰迪了</blockquote>
+说了，他今年的目标就是亚超变冠超
+
+*****
+
+####  哈曼的YY  
+##### 26788#       发表于 2022-10-22 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58040923&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-22 17:19:11</a>
+哦牛批，这么快就忘了小组赛两把杏奴表演是吧</blockquote>那不管og还液体感觉都不行<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+还得是克神遭绝后患
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  越动天下  
+##### 26789#       发表于 2022-10-22 17:27
+
+有新冠我觉得bc真不行 要看石头人和茶的负者 如果能过  打液体 og都是随便过 要看这一把的胜负是谁
+
+*****
+
+####  TI三冠王AME  
+##### 26790#       发表于 2022-10-22 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58041022&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-22 17:26</a>
+
+那不管og还液体感觉都不行
+
+还得是克神遭绝后患</blockquote>
+妮不会觉得OG液体两兄弟能打得过掉下来的TA或者秘密吧
+
+
+
+*****
+
+####  勤练带来力量  
+##### 26791#       发表于 2022-10-22 17:27
+
+atf看见处长也是稳定尽孝啊，比zai强不到哪去
+
+*****
+
+####  usoda  
+##### 26792#       发表于 2022-10-22 17:27
+
+现在想想ni公子19年年初嚼着口香糖把邪恶双雄当猪宰，没想到三年过去还在重复同样的事情，令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  儛進  
+##### 26793#       发表于 2022-10-22 17:28
+
+茶队赢了这次之后是不是保底前三了啊？
+
+*****
+
+####  勤练带来力量  
+##### 26794#       发表于 2022-10-22 17:28
+
+是的
+
+*****
+
+####  樱冢名月  
+##### 26795#       发表于 2022-10-22 17:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哔哔西这说的，难道处长又拿过冠军嘛。不然怎么每次关键时刻就整蛊
+
+*****
+
+####  越动天下  
+##### 26796#       发表于 2022-10-22 17:28
+
+我先预测一下 应该是秘密赢
+
+*****
+
+####  一夜秋风袭锦城  
+##### 26797#       发表于 2022-10-22 17:28
+
+茶茶石头人随便下来一个都能把干瘪干了吧
+
+*****
+
+####  苏沃雷生  
+##### 26798#       发表于 2022-10-22 17:29
+
+菜宜风和sszai分别是面八头号和二号杏奴，周知
+
+*****
+
+####  情商  
+##### 26799#         楼主| 发表于 2022-10-22 17:29
+
+og不也是a畜杏奴吗
+
+*****
+
+####  恐怖利刃  
+##### 26800#       发表于 2022-10-22 17:29
+
+<img src="https://img.saraba1st.com/forum/202210/22/172927z5ajnjlydyw1wej3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CF078D94-E130-4FBC-AC43-7D85F7EEA03C.jpeg</strong> (252.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 17:29 上传
+
+*****
+
+####  nowaki  
+##### 26801#       发表于 2022-10-22 17:29
+
+批九肯定打不过猴爹，茶队下来内战经验肯定能把lgd打死
+
+*****
+
+####  FBIwarning  
+##### 26802#       发表于 2022-10-22 17:29
+
+别贴什么雌小鬼的图了好吧 以后看本子老是想起这人怎么办
+
+*****
+
+####  樱冢名月  
+##### 26803#       发表于 2022-10-22 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58041053&amp;ptid=2099454" target="_blank">一夜秋风袭锦城 发表于 2022-10-22 17:28</a>
+
+茶茶石头人随便下来一个都能把干瘪干了吧</blockquote>
+茶主要是一掉下去，就容易懵，然后一蹦到底。他要是能一路决赛，我倒是对拿冠军有信心。
+
+*****
+
+####  Rorgen  
+##### 26804#       发表于 2022-10-22 17:29
+
+老干鳖的状态，胜者组四个随便哪个都能把A畜当杏奴草好吧
+
+*****
+
+####  Avantasi  
+##### 26805#       发表于 2022-10-22 17:30
+
+别贴什么雌小鬼的图了好吧 以后看本子老是想起这人怎么办
+
+*****
+
+####  walfeds  
+##### 26806#       发表于 2022-10-22 17:30
+
+这把看好南美超人
+
+*****
+
+####  儛進  
+##### 26807#       发表于 2022-10-22 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58041072&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-22 17:29</a>
+老干鳖的状态，胜者组四个随便哪个都能把A畜当杏奴草好吧</blockquote>
+别，超哥退役后指不定给老干瘪打了buff，又开始发狠了
+
+*****
+
+####  nightmare902015  
+##### 26808#       发表于 2022-10-22 17:31
+
+不是，为啥你们都说现在雌小鬼火但我天天扫一遍exh都看不见多少雌小鬼本，玉玉了。
+
+*****
+
+####  Avantasi  
+##### 26809#       发表于 2022-10-22 17:31
+
+你吗，意思漏油有炼铜的
+
+*****
+
+####  TI三冠王AME  
+##### 26810#       发表于 2022-10-22 17:31
+
+别贴什么雌小鬼的图了好吧 以后看本子老是想起这人怎么办
+
+*****
+
+####  thistimeforlife  
+##### 26811#       发表于 2022-10-22 17:31
+
+干就完事了 多想也没用 鳖星今年2次赢胜决之后贡献了0:6、处长、atm、money、皮chu等名场面 一样有毒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  齐柏林轰炸机  
+##### 26812#       发表于 2022-10-22 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58040991&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-22 17:24</a>
+
+讲真，水厂要是撑到第二周，夺冠几率真的大增，第一周摁不死，我感觉就不妙了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">别担心，A÷从来不会让人失望，希望他今年可以开发出新花样
+
+*****
+
+####  nowaki  
+##### 26813#       发表于 2022-10-22 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58041084&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-22 17:31</a>
+
+不是，为啥你们都说现在雌小鬼火但我天天扫一遍exh都看不见多少雌小鬼本，玉玉了。 ...</blockquote>
+メスガキ
+
+*****
+
+####  弈秋  
+##### 26814#       发表于 2022-10-22 17:32
+
+卧槽 马尔斯
+

@@ -8444,3 +8444,27 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 第六章不太对劲- -，双雪人就已经开始刮痧了，遗迹兵完全打不动啊。。。。  难道是要刷刷刷？ ...</blockquote>
 困难的话还是要农一下成长盘的 以及可以跑酷到火山隐藏开狂暴日战神拿超模单手剑伤害碾压 稍微需要点练习
 
+
+
+*****
+
+####  五块  
+##### 775#       发表于 2022-10-22 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58040777&amp;ptid=2098044" target="_blank">有点追求 发表于 2022-10-22 17:10</a>
+
+第六章不太对劲- -，双雪人就已经开始刮痧了，遗迹兵完全打不动啊。。。。  难道是要刷刷刷？ ...</blockquote>
+这游戏要想不农不刮就得连续攻击打破防，我作战方式类似仁王2，平砍、技能攒条，敌人普通攻击就盾加防反，时间长的攻击就用无敌时间长的变身系凭依技躲，保持一直在攻击的话很快就破防了，破防后开伤害高的暗杀旋风什么的打。
+
+*****
+
+####  pf67  
+##### 776#       发表于 2022-10-22 17:27
+
+ 本帖最后由 pf67 于 2022-10-22 17:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58040777&amp;ptid=2098044" target="_blank">有点追求 发表于 2022-10-22 17:10</a>
+第六章不太对劲- -，双雪人就已经开始刮痧了，遗迹兵完全打不动啊。。。。  难道是要刷刷刷？ ...</blockquote>
+遗迹兵用魔法杖打，无伤过，你可以把攻击力都点给魔力
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
