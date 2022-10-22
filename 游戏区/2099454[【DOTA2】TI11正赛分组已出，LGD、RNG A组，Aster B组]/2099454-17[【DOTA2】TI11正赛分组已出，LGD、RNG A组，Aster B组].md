@@ -10549,3 +10549,31 @@ BC官推什么动静都没有
 
 有盘就会造谣假赛吗 当年核核也没假赛
 
+
+
+*****
+
+####  Rorgen  
+##### 25325#       发表于 2022-10-22 08:53
+
+核核的盘比水厂阴兵大多了
+ti4之前dk完全不如ti10之前的lgd好吧，居然能吹成银河战舰
+
+*****
+
+####  莉拉厨  
+##### 25326#       发表于 2022-10-22 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58034846&amp;ptid=2099454" target="_blank">米奥莉奈 发表于 2022-10-22 08:49</a>
+签证神最后还真的就不如chu神，og该反思了</blockquote>
+这一点esl打完就可以看出来吧，ceb姑且还有一个年龄和英雄池的劣势，chu真的是全方位比misha强，chu不上只能说是chu哥基德不想让misha家里有事
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 25327#       发表于 2022-10-22 09:00
+
+chu神的陈跟牛头玩的是真好，疯狂玩弄鳖星
+

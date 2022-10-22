@@ -640,3 +640,21 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 真就反向致敬，后代给前代光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。明年新盖怎么反向，新盖逼王吗
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 672#       发表于 2022-10-22 09:00
+
+这集真-----------好！奏大这斗志不比整天只会斯麦鲁的某人有气势多了？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+但新皮套真的好丑呀！
+
+*****
+
+####  Aeroblast  
+##### 673#       发表于 2022-10-22 09:01
+
+这集挺好看的。就是想吐槽这同伴射光球都不找掩体的吗。
+
