@@ -21,3 +21,16 @@ Steps: 70, Sampler: Euler a, CFG scale: 13, Seed: 3043135109, Size: 512x512, Mod
 
 Time taken: 1m 22.19sTorch active/reserved: 2626/3148 MiB, Sys VRAM: 5168/12288 MiB (42.06%)
 
+
+
+*****
+
+####  dayuii  
+##### 306#       发表于 2022-10-22 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036897&amp;ptid=2098197" target="_blank">倪十一 发表于 2022-10-22 12:06</a>
+best quality,highly detailed,masterpiece,ultra-detailed,illustration,wine glass,rainy days,gorgeous ...</blockquote>
+nnovelai网页版出图吗？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

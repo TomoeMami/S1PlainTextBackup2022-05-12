@@ -295,3 +295,16 @@
 —— 来自 vivo V1981A, Android 12上的 S1Next-鹅版  ...</blockquote>
 称号里找没达成的就行
 
+
+
+*****
+
+####  poor  
+##### 17128#       发表于 2022-10-22 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036857&amp;ptid=1158205" target="_blank">Losange 发表于 2022-10-22 12:03</a>
+称号里找没达成的就行</blockquote>
+我知道哪个称号没达成啊？称号里也没写以前打了哪几个，就写了3/10，现在就是不知道打了哪3个
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
