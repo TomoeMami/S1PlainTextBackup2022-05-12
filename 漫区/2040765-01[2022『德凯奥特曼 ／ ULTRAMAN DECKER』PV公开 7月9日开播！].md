@@ -857,3 +857,14 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 这是男主演技最棒的一次，爱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  赤道氮  
+##### 690#       发表于 2022-10-22 18:07
+
+op里博士直接给了反派的镜头啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
