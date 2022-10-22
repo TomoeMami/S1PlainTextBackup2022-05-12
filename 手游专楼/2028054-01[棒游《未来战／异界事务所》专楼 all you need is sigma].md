@@ -12,3 +12,12 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  拍不到脑袋  
+##### 799#       发表于 2022-10-22 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">跑了十几张1060差点挂了，等我换新显卡再试试
+
