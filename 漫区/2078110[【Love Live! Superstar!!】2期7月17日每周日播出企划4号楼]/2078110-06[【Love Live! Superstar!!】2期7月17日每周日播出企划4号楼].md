@@ -11757,3 +11757,15 @@ twi：@unyanai
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  starring  
+##### 8580#       发表于 2022-10-22 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58039151&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-22 14:59</a>
+
+鲤鱼fmt也cue到菜宝了，最近几次b站直播每次都有提到菜宝，关系是真好</blockquote>
+瘦下来后哪个角度都拍得好看，而且东方人果然还是黑发最棒<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
