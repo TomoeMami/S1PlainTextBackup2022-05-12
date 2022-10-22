@@ -11555,3 +11555,14 @@ TYMM好像瘦了，未来可期
 
 说起来为什么煤炉一直没有人出唠嗑抽选码…………<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 8560#       发表于 2022-10-22 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035665&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-22 10:21</a>
+中了鲤鱼新单的签售，但是以为还是跟前两次那样陪跑，所以留言特别傻，希望到时别被嫌弃</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等老哥的repo
+
