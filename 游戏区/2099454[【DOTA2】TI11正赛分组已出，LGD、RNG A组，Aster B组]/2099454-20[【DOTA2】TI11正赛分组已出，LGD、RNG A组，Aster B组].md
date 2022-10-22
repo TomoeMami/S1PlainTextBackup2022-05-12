@@ -4600,3 +4600,12 @@ rng...我的rng...<img src="https://static.saraba1st.com/image/smiley/animal2017
 
 南美八成和去年第一个major一样
 
+
+
+*****
+
+####  Avantasi  
+##### 29054#       发表于 2022-10-23 06:57
+
+克神将像蛮牛一样拱死LGD和茶
+
