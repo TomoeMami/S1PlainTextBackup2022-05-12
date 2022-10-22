@@ -748,3 +748,12 @@ bbbbbbbb的战斗经验丰富 一下子就能看出来跟傻憨憨的区别
 
 —— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  永恒的王牌  
+##### 680#       发表于 2022-10-22 11:35
+
+晚上才能看，馋死我了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

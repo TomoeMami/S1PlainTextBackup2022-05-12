@@ -6821,3 +6821,12 @@ https://www.veed.io/view/6b49c5ab-67f8-4f78-ae7a-cab8d68f ...</blockquote>
 
 太艹了，七进七出冥界的男人被这样搞，奇耻大辱啊
 
+
+
+*****
+
+####  医生狼多  
+##### 741#       发表于 2022-10-22 11:40
+
+这段让我想起了最近看的很生草的神兵前传，武勇随便就把山沟里出来的boss秒了，对面灵魂都快升天了结果他觉得不够一跺脚把他灵魂拉回来让他复活，然后过几页自己手没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -8047,3 +8047,26 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 全武器精通嘉隆还差一个，还有隐藏吗？</blockquote>
 武器装备要是收集全了去贤者塔找大贤者换一把武器
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 736#       发表于 2022-10-22 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035923&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-22 10:44</a>
+
+黄金宝箱出的概率是随机的吗，第三章我一个黄金宝箱都没碰见</blockquote>
+我个人体感是幸运晶石配个四五十点打完整个章节会有一两次机会看到金箱子
+
+虽然也有我死的比较多的原因
+
+*****
+
+####  h33  
+##### 737#       发表于 2022-10-22 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036355&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-22 11:22</a>
+武器装备要是收集全了去贤者塔找大贤者换一把武器</blockquote>
+我就是换完了精通还差，嘉隆第一页的最后一个
+
