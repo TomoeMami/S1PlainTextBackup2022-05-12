@@ -10037,3 +10037,14 @@ pm.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下变成粉丝自嗨了
 
+
+
+*****
+
+####  holoan  
+##### 2456#         楼主| 发表于 2022-10-22 10:49
+
+5wantiSC的事到现在推特还有路人讨论呢
+
+不看v的一般吃瓜群众肯定觉得这v圈一天什么破事，就一个幼儿园分组问题就吵成这样简直过于幼稚
+

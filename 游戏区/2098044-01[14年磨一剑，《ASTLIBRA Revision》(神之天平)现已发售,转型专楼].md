@@ -8007,3 +8007,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 那个召唤技能直接从不知道哪儿叫了个飞龙出来，血量好像还是原装的，这tm ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个召唤是随机的，有时候连续召唤BOSS特别恶心人
 
+
+
+*****
+
+####  何处分可  
+##### 732#       发表于 2022-10-22 10:44
+
+黄金宝箱出的概率是随机的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，第三章我一个黄金宝箱都没碰见
+
