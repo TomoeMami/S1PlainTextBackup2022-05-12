@@ -11451,3 +11451,118 @@ gg基本打不过og，估摸一个0:2送走了
 gg基本打不过og，估摸一个0:2送走了</blockquote>
 相信misha会发力的
 
+
+
+*****
+
+####  nightmare902015  
+##### 25429#       发表于 2022-10-22 10:21
+
+csgo ban选图那还真是明牌，赛前随便一个娱乐解说都能预测下那种
+
+*****
+
+####  天堂蜘蛛  
+##### 25430#       发表于 2022-10-22 10:21
+
+4号位小娜迦记得森哥玩过
+
+*****
+
+####  Rorgen  
+##### 25431#       发表于 2022-10-22 10:21
+
+客观来说，atf的bp非常有实力，毕竟是独眼龙亲传大弟子
+但往往到最后会发现bp的最大漏洞是自己的英雄池
+
+*****
+
+####  莉拉厨  
+##### 25432#       发表于 2022-10-22 10:22
+
+ 本帖最后由 莉拉厨 于 2022-10-22 10:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035526&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-22 10:08</a>
+华西村卜是预选赛嘛</blockquote>
+https://b23.tv/UCGXaKB
+给你转一个创世神解说的版本
+另外华西村预选赛是TI6，wings因为只在bts别墅杯这种第三方赛事拿冠军而在major上成绩很差没有直邀，所以去预选虐菜了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nxmonitor  
+##### 25433#       发表于 2022-10-22 10:22
+
+OG这个阵容不错啊，既然ATF不会出大祭品的三，就选一个能打大祭品的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 25434#       发表于 2022-10-22 10:23
+
+Z炮打成C炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 25435#       发表于 2022-10-22 10:25
+
+这naga一直分幻象本体杀鸡好恶心，队友也没指望他保。
+
+*****
+
+####  天堂蜘蛛  
+##### 25436#       发表于 2022-10-22 10:25
+
+第一把基本抬走了
+
+*****
+
+####  越动天下  
+##### 25437#       发表于 2022-10-22 10:25
+
+第一把是bp的胜利
+
+*****
+
+####  Keynes  
+##### 25438#       发表于 2022-10-22 10:25
+
+想ame夺冠，但不想wings二人组双冠怎么办
+自卑的腿毛❾
+20分钟前IP属地:安徽
+这35如果双冠一亚，历史地位直接世界第一第二，但这俩人毫无亮点，配不上这么高的地位，很烦
+
+哦，牛皮，只能说来水厂带畜生打比赛不值得同情好吧，给我狠狠地青蒜
+
+*****
+
+####  nightmare902015  
+##### 25439#       发表于 2022-10-22 10:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035709&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-22 10:25</a>
+想ame夺冠，但不想wings二人组双冠怎么办
+自卑的腿毛❾
+20分钟前IP属地:安徽</blockquote>
+都搬过一遍了还在搬，谔谔
+
+*****
+
+####  zhrs456  
+##### 25440#       发表于 2022-10-22 10:27
+
+别扯什么TI4了 DK打完SL9回来整个队就是送分童子 输到把把想着给老鳖娜迦荣耀了 华西村加上之前的比赛我记得DK和NB打了BO7还是BO多少 根本拉不开差距 到了西雅图DK这个队直接就崩完了 国内当时最看好的是IG 最不看好的是LGD
+
+
+
+*****
+
+####  nowaki  
+##### 25441#       发表于 2022-10-22 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58035622&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-22 10:17</a>
+
+csgo也有banpick吗</blockquote>
+要ban地图的
+
