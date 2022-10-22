@@ -308,3 +308,12 @@
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  horacio  
+##### 17129#       发表于 2022-10-22 17:06
+
+转世应该还有单个boss的任务吧，好像可以从那里看到
+
