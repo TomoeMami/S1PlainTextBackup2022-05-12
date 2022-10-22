@@ -6683,3 +6683,21 @@ https://bbs.a9vg.com/forum.php?mod=viewthread&amp;tid=8865444&amp;extra=page=1&a
 
 啊？这也太草了，某种意义上还挺tm合理的
 
+
+
+*****
+
+####  ff2077  
+##### 727#       发表于 2022-10-22 08:45
+
+草了 这也太喜感了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  名字已被吃  
+##### 728#       发表于 2022-10-22 08:48
+
+草，索尔他是懂什么叫电疗的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
