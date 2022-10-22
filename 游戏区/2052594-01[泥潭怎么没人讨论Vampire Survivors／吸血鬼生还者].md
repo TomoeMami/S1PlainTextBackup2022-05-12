@@ -3270,3 +3270,14 @@ Vampire Survivors\resources\app\.webpack\renderer\assets\img
 
 另外11和21分钟的塔罗牌宝箱只出塔罗牌
 
+
+
+*****
+
+####  dpls  
+##### 319#       发表于 2022-10-23 01:45
+
+xgp版的更新1.0了么
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
