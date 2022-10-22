@@ -8683,3 +8683,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 那种重量500多的武器改怎么用啊，挥不动</blockquote>
 加敏捷，或者有嘉隆的被动技能，加快重武器速度的，也有加快法杖速度的。
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 798#       发表于 2022-10-22 21:53
+
+原来敏捷是干这个用的，以前尝试过全敏结果伤害变化不是很明显就没有再点了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
