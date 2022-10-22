@@ -8070,3 +8070,24 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 武器装备要是收集全了去贤者塔找大贤者换一把武器</blockquote>
 我就是换完了精通还差，嘉隆第一页的最后一个
 
+
+
+*****
+
+####  jy000129  
+##### 738#       发表于 2022-10-22 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036557&amp;ptid=2098044" target="_blank">h33 发表于 2022-10-22 11:39</a>
+
+我就是换完了精通还差，嘉隆第一页的最后一个</blockquote>
+看了下是副武器这个技能，在魔王城外气球商店那个图，假山下面的山洞里面
+
+*****
+
+####  h33  
+##### 739#       发表于 2022-10-22 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036626&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-22 11:45</a>
+看了下是副武器这个技能，在魔王城外气球商店那个图，假山下面的山洞里面 ...</blockquote>
+多谢多谢，地图入口被树挡住根本没发现<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

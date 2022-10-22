@@ -6830,3 +6830,14 @@ https://www.veed.io/view/6b49c5ab-67f8-4f78-ae7a-cab8d68f ...</blockquote>
 
 这段让我想起了最近看的很生草的神兵前传，武勇随便就把山沟里出来的boss秒了，对面灵魂都快升天了结果他觉得不够一跺脚把他灵魂拉回来让他复活，然后过几页自己手没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  415452356  
+##### 742#       发表于 2022-10-22 11:41
+
+  一定要有洗点剧情也算是之前三部曲的惯例了，这次可以说是该回来的都回来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
