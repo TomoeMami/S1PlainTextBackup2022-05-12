@@ -934,3 +934,16 @@ op里博士直接给了反派的镜头啊<img src="https://static.saraba1st.com/
 
 canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是这个内鬼反派目前动机有点抽象，后面多点塑造吧，要不然大结局洗白共斗斯菲亚的时候多少会有点膈应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SFFYLTL  
+##### 696#       发表于 2022-10-22 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57986814&amp;ptid=2040765" target="_blank">草海灭巨 发表于 2022-10-19 12:45</a>
+这作质量不差泽塔多少啊，但热度不怎么高的样子，感觉是bgm拉跨了该燃的地方没有燃起来，对比泽塔特别明显 ...</blockquote>
+感觉玩具不带感
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

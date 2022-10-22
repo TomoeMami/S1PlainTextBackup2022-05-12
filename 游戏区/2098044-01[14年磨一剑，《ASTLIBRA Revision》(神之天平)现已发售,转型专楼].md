@@ -8613,3 +8613,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 原来第六章四个遗迹兵不用打，打完了既没有额外剧情也没奖励，好亏<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  有点追求  
+##### 791#       发表于 2022-10-22 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58044003&amp;ptid=2098044" target="_blank">helix 发表于 2022-10-22 20:27</a>
+
+原来第六章四个遗迹兵不用打，打完了既没有额外剧情也没奖励，好亏</blockquote>
+没有早看到你发的贴子- -
+
