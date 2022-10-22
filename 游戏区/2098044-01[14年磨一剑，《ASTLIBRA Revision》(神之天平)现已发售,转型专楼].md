@@ -7993,3 +7993,17 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 才知道第五章的分歧点，然后读回三个小时前的存档，这何尝不是一种改变历史 ...</blockquote>
 录了流程吗？比利上只找得到带她走但不说话的流程。
 
+
+
+*****
+
+####  jy000129  
+##### 731#       发表于 2022-10-22 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58033637&amp;ptid=2098044" target="_blank">Yz895623 发表于 2022-10-22 01:55</a>
+
+困难难度第五章打魔王怀疑人生啊
+
+那个召唤技能直接从不知道哪儿叫了个飞龙出来，血量好像还是原装的，这tm ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个召唤是随机的，有时候连续召唤BOSS特别恶心人
+
