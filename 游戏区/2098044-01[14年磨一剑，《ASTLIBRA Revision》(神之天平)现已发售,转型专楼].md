@@ -8190,3 +8190,19 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 才知道第五章的分歧点，然后读回三个小时前的存档，这何尝不是一种改变历史 ...</blockquote>
 我读了个十小时的档<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，另外就是坛友上面说的一周目三个爱情最好都取得到，后面肉鸽地牢虽然可以刷出来，但爆率实属不高。
 
+
+
+*****
+
+####  SyIXVII  
+##### 750#       发表于 2022-10-22 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58019532&amp;ptid=2098044" target="_blank">onlv星骸 发表于 2022-10-21 10:17</a>
+
+为啥我吃了到时间直接gameover了 并没有触发成就啊
+
+找到了 原来要再之后的剧情吃才行
+
+ ...</blockquote>
+具体在哪段剧情<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
