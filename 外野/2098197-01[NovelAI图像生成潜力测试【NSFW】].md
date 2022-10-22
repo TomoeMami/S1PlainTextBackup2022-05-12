@@ -55,3 +55,21 @@ nnovelai网页版出图吗？
 —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 出不了吧 seed还好说，模型和heypernet都不是原生的
 
+
+
+*****
+
+####  mintslime  
+##### 309#       发表于 2022-10-22 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57980996&amp;ptid=2098197" target="_blank">Issue 发表于 2022-10-18 23:57</a>
+
+我想画B者说的是跟自己画的B比较而言（图能发吗，oh，我之前在这楼放过https://bbs.saraba1st.com/2b/for ...</blockquote>
+[https://smutba.se/project/31122/](https://smutba.se/project/31122/)
+[https://smutba.se/project/154/](https://smutba.se/project/154/)
+[https://smutba.se/project/30814/](https://smutba.se/project/30814/)
+
+批的3d模型有很多，blender里面摆个合适角度 ，然后截图贴到你的图上，再低降噪跑一遍，这是目前我找到的最好的方法，对手也很有效，比求随机数靠谱多了
+
+还有，批的话我没试过，但是画手的时候，加上masterpiece，产出图片的质量照样会有所提高，还挺明显
+

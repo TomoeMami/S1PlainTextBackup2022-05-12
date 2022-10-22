@@ -8330,3 +8330,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 问一下，我普通难度通关的档是没办法改困难难度是吧，必须开新档？就差一个困难通关成就就白了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 实在有点不想再打一次几十小时
 
+
+
+*****
+
+####  lazycat233  
+##### 764#       发表于 2022-10-22 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038848&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-10-22 14:28</a>
+
+石像盾，心天平，竞技场最后的盾，一般可能漏的就这几个</blockquote>
+心天平是啥
+
