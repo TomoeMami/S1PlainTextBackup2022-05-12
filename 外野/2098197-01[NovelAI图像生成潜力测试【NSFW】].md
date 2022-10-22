@@ -154,3 +154,20 @@ AI作品：
 
 画p没什么问题的，就像上面说的，p一个器官上去底噪用同一个seed跑几遍可以，摆一些特定的角度和动作的反而很难画
 
+
+
+*****
+
+####  Issue  
+##### 313#       发表于 2022-10-22 16:39
+
+ 本帖最后由 Issue 于 2022-10-22 16:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58039068&amp;ptid=2098197" target="_blank">mintslime 发表于 2022-10-22 14:50</a>
+[https://smutba.se/project/31122/](https://smutba.se/project/31122/)
+[https://smutba.se/project/154/](https://smutba.se/project/154/)
+[https://smutba.se/project/30814/](https://smutba.se/project/30814/)</blockquote>
+这个方法我知道，我贴的是真批照片，输入masterpiece、c**s、v**l，各种反咒，加噪再跑，AI照着画都会画成肉条<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+就像我之前说过的，画的批包括上面的汁水都有意识“美容”过，你放的链接其中有些造型简陋，有些不合二刺螈审美，都不太理想，尤其是内部通道的效果（一直想学3d，莫非要为这个学blend吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+[@alitonz](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=113786) 的主意感觉可以，法器有“美容”，还能扒开拍通道，有弹性变形，可惜没购入不会挑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但这里不能说，哪里能讨论这个？
+
