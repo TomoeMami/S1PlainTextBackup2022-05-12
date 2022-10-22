@@ -8311,3 +8311,22 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 怎么才算收集齐所有装备啊，小徽章也算么，我把宝物图鉴里的装备都集齐了找老头没反应 ...</blockquote>
 石像盾，心天平，竞技场最后的盾，一般可能漏的就这几个
 
+
+
+*****
+
+####  六至九  
+##### 762#       发表于 2022-10-22 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58038509&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-22 13:55</a>
+怎么才算收集齐所有装备啊，小徽章也算么，我把宝物图鉴里的装备都集齐了找老头没反应 ...</blockquote>
+还有两个地图宝箱里的铠甲，分别在蛇神洞穴里涨来涨去的黑暗地图和魔王城吃苹果地图，建议带上嘉隆的鼻子找一找
+
+*****
+
+####  startea15  
+##### 763#       发表于 2022-10-22 14:41
+
+问一下，我普通难度通关的档是没办法改困难难度是吧，必须开新档？就差一个困难通关成就就白了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+实在有点不想再打一次几十小时
+

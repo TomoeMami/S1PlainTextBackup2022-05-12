@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/虚拟主播区专楼/2037235-01[【兎田ぺこら】野兔子日记楼（自用）20：00 大乱斗四胜耐久].md'
-!!error:id=2037235
