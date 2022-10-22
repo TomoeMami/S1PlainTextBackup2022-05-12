@@ -2763,3 +2763,14 @@ DIY部の看板は、私の思入れのあるデザインです
 
 醋海带很好吃的样子
 
+
+
+*****
+
+####  最强惠酱  
+##### 223#       发表于 2022-10-23 00:17
+
+job子奶声奶气的好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
