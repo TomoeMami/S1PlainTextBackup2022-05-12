@@ -505,3 +505,171 @@ atf的毒瘤程度直逼老年艹艹
 
 不要慌 马桶/zzzz会教育atf的
 
+
+
+*****
+
+####  dddyghr  
+##### 25566#       发表于 2022-10-22 11:23
+
+这电魂伐木机也值得ban？ 
+
+*****
+
+####  勤练带来力量  
+##### 25567#       发表于 2022-10-22 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036354&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-22 11:21</a>
+一想到eslone杜鹏被ateaf打了两个大芘兜就生气</blockquote>
+eslone决赛我们整个语音全在嘲笑atf那个不出跳裸a杖撒旦的马尔斯der逼，结果打野神把马尔斯扔回自己家人群完美框大四个所有人都不说话了
+
+*****
+
+####  Rorgen  
+##### 25568#       发表于 2022-10-22 11:24
+
+什么时候能看到谷爱凌保丁真，急急急
+
+*****
+
+####  Avantasi  
+##### 25569#       发表于 2022-10-22 11:24
+
+<blockquote>maybe和ame的故事就像一对完美的情侣，注定留下了遗憾</blockquote>
+
+刚看到的，送给吃午饭的兄弟们
+
+*****
+
+####  zyw0  
+##### 25570#       发表于 2022-10-22 11:25
+
+这届ti之前有人ban过伐木机吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nxmonitor  
+##### 25571#       发表于 2022-10-22 11:25
+
+这OG啥阵容啊……
+
+*****
+
+####  walfeds  
+##### 25572#       发表于 2022-10-22 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036390&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-22 11:24</a>
+
+刚看到的，送给吃午饭的兄弟们</blockquote>
+我鲨了你<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 25573#       发表于 2022-10-22 11:25
+
+究极鳖孙战队，og
+
+*****
+
+####  -SLSL-  
+##### 25574#       发表于 2022-10-22 11:25
+
+集美说过的话你来楼里倒一遍，等于说你也是集美吧<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 25575#       发表于 2022-10-22 11:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">集美已经正式宣布不再青蒜泰迪了吗，好好好好好。
+
+到时候请一定要记得狠狠地拷打23458<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">是他们坑了giegie两冠
+
+*****
+
+####  zyw0  
+##### 25576#       发表于 2022-10-22 11:26
+
+这届ti之前有人ban过伐木机吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 25577#       发表于 2022-10-22 11:26
+
+顶不住了，搬集美屎那么有意思？
+屎壳郎附体？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 25578#       发表于 2022-10-22 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58036414&amp;ptid=2099454" target="_blank">zyw0 发表于 2022-10-22 11:26</a>
+这届ti之前有人ban过伐木机吗
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+大概有的吧，毕竟绝活
+
+*****
+
+####  憧憬鲨  
+##### 25579#       发表于 2022-10-22 11:26
+
+你妈呀，哥们还没吃饭呢
+
+*****
+
+####  反方向的波  
+##### 25580#       发表于 2022-10-22 11:27
+
+刚看到的，送给吃午饭的兄弟们
+
+*****
+
+####  吃货红毛  
+##### 25581#       发表于 2022-10-22 11:28
+
+<img src="https://img.saraba1st.com/forum/202210/22/112736qbtk0w9qt05qohko.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221022112727.png</strong> (6.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-22 11:27 上传
+
+中间这哥们照片拍得还挺帅233
+
+*****
+
+####  宫藤芳佳  
+##### 25582#       发表于 2022-10-22 11:28
+
+集美4000+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 25583#       发表于 2022-10-22 11:28
+
+集美官方宣布ti89失利是3457的问题，ti10失利是23458的问题
+
+*****
+
+####  Kazepollar  
+##### 25584#       发表于 2022-10-22 11:29
+
+问了下老婆rng和lgd的人谁最帅，最后选择了xnova，说处长这脸一看就是个怂蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 25585#       发表于 2022-10-22 11:30
+
+gg这sb阵容，ace这个菜逼但凡会玩个死灵龙，gg最后一手死灵龙就碾死og这sb阵容了
+
