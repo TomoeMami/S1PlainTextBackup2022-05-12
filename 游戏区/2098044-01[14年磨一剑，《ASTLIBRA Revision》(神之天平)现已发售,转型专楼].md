@@ -9093,3 +9093,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 新章打完蛇神出不了地图什么情况，读了打boss前的存档再打一遍也一样<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  白軍浪  
+##### 837#       发表于 2022-10-23 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58047291&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-22 23:16</a>
+
+打完第六章寻思回头清清ex没想到第三个就卡住了……好不容易爬过了道中，结果跟龙神对搓一晚上也没打过去昏 ...</blockquote>
+过了石化就换下来呀，开菜单是时停的，同理打崩了也可以换上狂暴，崩完再下掉
+

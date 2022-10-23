@@ -3317,3 +3317,19 @@ xgp版的更新1.0了么
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  otakun  
+##### 323#       发表于 2022-10-23 12:13
+
+双鸟现在是解锁谜题用的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，记得不要合体掉
+
+*****
+
+####  415452356  
+##### 324#       发表于 2022-10-23 12:16
+
+  解锁了初始武器是真空刃的那个角色，这真空刃输出有点低
+
