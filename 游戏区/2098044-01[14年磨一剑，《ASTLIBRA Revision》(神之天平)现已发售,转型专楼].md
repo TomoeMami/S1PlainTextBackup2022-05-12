@@ -9818,3 +9818,60 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 惊喜不断 每次以为自己打完boss总有惊喜等着  ...</blockquote>
 ……剧情里有，你一定是漏看了，就是那个龙。
 
+
+
+*****
+
+####  六至九  
+##### 904#       发表于 2022-10-24 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069966&amp;ptid=2098044" target="_blank">Ashice 发表于 2022-10-24 01:24</a>
+带白的选项是在哪里，我刚打到魔王城迷雾外边的小屋，要重打吗
+
+—— 来自 S1Fun ...</blockquote>
+要打完看门树boss进入魔王城出现，你这还没到，这个选项选完后才会在旁边出现记录点，所以最好提前存档再进去。
+
+*****
+
+####  六至九  
+##### 905#       发表于 2022-10-24 02:15
+
+就是剧透，建议反白
+
+*****
+
+####  pf67  
+##### 906#       发表于 2022-10-24 02:27
+
+旧版合成赚钱的方法好像不能用了唉，现在只能去刷怪了么
+
+*****
+
+####  pf67  
+##### 907#       发表于 2022-10-24 02:29
+
+ 本帖最后由 pf67 于 2022-10-24 02:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067057&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-23 22:49</a>
+
+这里用啥解？我试过弓弩还有回旋镖都打不进去。。。</blockquote>
+回旋镖可以打到，要把握时机在半空中出招.....
+
+*****
+
+####  ds2008  
+##### 908#       发表于 2022-10-24 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58070131&amp;ptid=2098044" target="_blank">油库里 发表于 2022-10-24 01:48</a>
+
+完美通关了 耗时70小时 剧情好手感好音乐好养成丰富 满分神作
+
+惊喜不断 每次以为自己打完boss总有惊喜等着  ...</blockquote>
+男主受伤倒地时候，阿努莉斯抬手就把那只大龙变成乌鸦了
+
+*****
+
+####  LMBS  
+##### 909#       发表于 2022-10-24 05:24
+
+直接默认难度，不看攻略打体验好吗？有限时支线之类吗？
+

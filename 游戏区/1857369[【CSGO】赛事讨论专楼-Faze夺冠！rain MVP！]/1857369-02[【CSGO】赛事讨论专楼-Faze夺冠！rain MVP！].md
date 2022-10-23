@@ -100,3 +100,13 @@
 
 荣就完事了
 
+
+
+*****
+
+####  朔方原的星  
+##### 2630#         楼主| 发表于 2022-10-24 04:12
+
+farlig这个可恨的菜逼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打得像头猪
+a队在短短一年内把lucky和farlig这对卧龙凤雏集齐也是不容易，怎么精挑细选出这种货色的
+

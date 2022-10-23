@@ -9529,3 +9529,135 @@ Lv.12
 
 水厂小编是懂鲜卑的
 
+
+
+*****
+
+####  OVTVO  
+##### 35673#       发表于 2022-10-24 01:52
+
+记得当时好像说二冰是八王的远亲还是什么，还被八王训态度不端正，当时真没想到TI6二冰就能成为TI冠军。（也没想到当时的老11后来能在MDL力中暴力）
+
+*****
+
+####  walfeds  
+##### 35674#       发表于 2022-10-24 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58070061&amp;ptid=2099454" target="_blank">北条早苗 发表于 2022-10-24 01:38</a>
+
+5ban到7ban加的都是第二第三轮，阻止不了拿版本强势的
+
+记得从ti3开始首轮就是2ban2pick，后选连点没变过了 ...</blockquote>
+ti89不是3ban2pick<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 35675#       发表于 2022-10-24 02:02
+
+我吐了，杰出又找水友赞助电脑是吧，等于说喝水也喝不出一个电脑自由真的牛逼。
+
+*****
+
+####  yyf奇遇记  
+##### 35676#       发表于 2022-10-24 02:09
+
+怎么都在造势掀背和泰迪合体啊
+
+卜会小泰迪又要变成lxo了吧
+
+*****
+
+####  恐怖利刃  
+##### 35677#       发表于 2022-10-24 02:22
+
+个人感觉今年两个人最后表现都还算体面，除非能找到不存在的另外三个赵云不然再合体打只会跟小丑一样晚节不保
+
+*****
+
+####  isla  
+##### 35678#       发表于 2022-10-24 02:30
+
+这么一说ti9之后过了多久lgd确认新阵容的来着
+
+*****
+
+####  哈曼的YY  
+##### 35679#       发表于 2022-10-24 02:44
+
+杰出什么反应 还在现代dota吗
+
+*****
+
+####  恐怖利刃  
+##### 35680#       发表于 2022-10-24 02:49
+
+【【杰出哥】LGD茶队赛后简评.聊魔晶谜团,茶队进步,ame,超哥,茶队前景,替RNG惋惜。-哔哩哔哩】 [https://b23.tv/mAIFf0L](https://b23.tv/mAIFf0L)
+
+*****
+
+####  天堂懵懂人  
+##### 35681#       发表于 2022-10-24 02:53
+
+$('mp3_UbH').innerHTML=AC_FL_RunContent('FlashVars', 'soundFile=https%3A%2F%2Flink.hhtjim.com%2F163%2F1824020871.mp3', 'width', '290', 'height', '24', 'allowNetworking', 'internal', 'allowScriptAccess', 'never', 'src', 'https://static.saraba1st.com/image/common/player.swf', 'quality', 'high', 'bgcolor', '#FFFFFF', 'menu', 'false', 'wmode', 'transparent', 'allowNetworking', 'internal');
+
+点播一首the last kiss给所有的老-干爹 
+
+*****
+
+####  山下野人  
+##### 35682#       发表于 2022-10-24 02:55
+
+楼里天天点草集美天天车轱辘老干爹，怕不是真爱。
+
+*****
+
+####  秘奥闪光  
+##### 35683#       发表于 2022-10-24 03:00
+
+今天nga也太恶心了吧，抓着faithbian回家局清算。。。我寻思打bc时那斧王酒仙不是带躺了
+
+没想到ti冠军也是这样收场的，只能说没带处长拿冠军的人风评都是要崩盘的
+
+*****
+
+####  isla  
+##### 35684#       发表于 2022-10-24 03:08
+
+看了一下杰出21号的视频，说的还行啊，说茶比lgd状态强，说只有ame状态还行，还有lgd前六就不错了，所以最新视频也没啥清算的，意料内
+
+*****
+
+####  外挂全家脚气  
+##### 35685#       发表于 2022-10-24 03:17
+
+“只为RNG感到惋惜，RNG作为中国肌肉最强的，超哥来全杀了”
+
+*****
+
+####  ckming  
+##### 35686#       发表于 2022-10-24 03:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58070024&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-23 18:33</a>
+不算冷的知识——艹艹那把还输了，对面是820的EHOME，垃圾呆的SF
+
+画面就是蓝猫守高地，死了买活，然后滚 ...</blockquote>
+我怎么记得那把的sf是玄武玩得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 控了加速单杀葑葛
+
+*****
+
+####  哈曼的YY  
+##### 35687#       发表于 2022-10-24 04:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069790&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 01:06:25</a>
+打鳖星的时候33看到批九先手开车直接毫不犹豫bkbtp，我只能说，这个队很强，强到可以不顾菜逼队友的面子 ...</blockquote>草那波太搞了 以为人齐开团 队友全死一看末日已经润了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lyjssj  
+##### 35688#       发表于 2022-10-24 05:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">杜鹏B站号也太搞了，动态从上往下分别是原舟asoul，要素拉满了
+
