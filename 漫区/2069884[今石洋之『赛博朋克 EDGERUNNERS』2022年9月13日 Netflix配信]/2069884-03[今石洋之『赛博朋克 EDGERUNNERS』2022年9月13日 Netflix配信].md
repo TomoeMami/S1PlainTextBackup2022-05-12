@@ -37,3 +37,21 @@
 图站上黎贝卡人气倍杀露西，真可怕</blockquote>
 就像老歌the one you love里唱的，你所爱的人和爱你的人，普通人更共情爱而不得的吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冰原狼  
+##### 3162#       发表于 2022-10-23 15:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57830180&amp;ptid=2069884" target="_blank">未来起航 发表于 2022-10-9 16:53</a>
+
+我最近又看了遍露露子和半部klk。
+
+咋说呢，扳机的剧本，就像今石自己的金田系一样：并不是原汁原味的经典金 ...</blockquote>
+深表认同
+
+扳机近期作品的一个特点（很难说是优点还是缺点）就是高度依赖观众自身素质，如果观众阅片量多，熟知各种套路，那么就很容易自动脑内补全留白部分，也更能明白扳机想要表达的内容和意向；反之如果观众自己的阅片量和内容储备不够，那就会觉得剧情太赶而且重点飘忽
+
+但我觉得后者不应该是观众的锅……
+
