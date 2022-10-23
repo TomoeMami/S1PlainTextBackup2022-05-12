@@ -9434,3 +9434,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 龙靴+空中跃动=三段跳
 三段跳+弹跳鞋+（空剑+八门引擎+空步）×N连发+伊卡洛斯之翼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  PNK  
+##### 870#       发表于 2022-10-23 21:21
+
+这个游戏alt+tab回桌面会闪退啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

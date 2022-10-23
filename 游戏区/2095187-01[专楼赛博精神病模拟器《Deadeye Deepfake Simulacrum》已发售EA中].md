@@ -1547,3 +1547,26 @@ Medic的bloodmage被动感觉是神技，技能消耗用armor取代Evo, 开局�
 
 the world和自带的F时间减速可以叠加，这时候再用那个自身不受时间减速影响的技能会出现bug，斜着走能直接穿墙，于是不管什么任务都能直接时停逛到目的地然后回家<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 85#       发表于 2022-10-23 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060985&amp;ptid=2095187" target="_blank">Tring 发表于 2022-10-23 18:42</a>
+
+今天更新了，加了些新玩意，修了不少BUG，骑士大幅强化。
+
+其中一个重要改动是黑客时的视野机制便捷化了。最 ...</blockquote>
+草 snap我都变成肉体反射了 
+
+*****
+
+####  空集  
+##### 86#       发表于 2022-10-23 21:18
+
+Fixed a bug preventing the player from snapping back from an exploded landmine. Snapback now occurs automatically.
+
+草 这个bug我在蠕虫关遇到过 本来想懒得上报了原来看起来遇到的人不少
+

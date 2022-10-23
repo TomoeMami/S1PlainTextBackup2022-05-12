@@ -12219,3 +12219,14 @@ payko还蛮适合穿这些花里胡哨的洋服的，算优势吗
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 8607#       发表于 2022-10-23 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58061367&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-10-23 18:58</a>
+听说鱼三单cw挺不错，整一个大期待</blockquote>
+CW是葛佳慧写的，感觉曲调应该也很适合中文市场，最好来个中文版
+
