@@ -9337,3 +9337,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 贤者塔三楼怎么进啊，变身耳环不是剧情里被破坏了吗，怎么拿回来</blockquote>
 下药直接昏睡
 
+
+
+*****
+
+####  蓝雉  
+##### 860#         楼主| 发表于 2022-10-23 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58058936&amp;ptid=2098044" target="_blank">白軍浪 发表于 2022-10-23 17:29</a>
+
+龙卷这个奥义有人开发吗？感觉就防反可以用用</blockquote>
+容易误操作成盾击和飞剑,不是很好用
+
