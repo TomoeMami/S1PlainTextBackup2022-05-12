@@ -10338,3 +10338,20 @@ k
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚的直播目测又没了
 
+
+
+*****
+
+####  rs5621  
+##### 2486#       发表于 2022-10-23 20:35
+
+<blockquote>きょうは裏作业の佳境
+
+なのでがんばりどきだにぇ！！！
+
+配信むずかしそうになっちゃったので
+
+その分がんばる！！！！すまぬ！！
+
+応援しててくりぇ～～～～！！！！</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就知道
+

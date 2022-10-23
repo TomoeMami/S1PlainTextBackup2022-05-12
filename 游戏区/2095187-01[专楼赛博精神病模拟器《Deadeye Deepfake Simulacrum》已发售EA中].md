@@ -1538,3 +1538,12 @@ Medic的bloodmage被动感觉是神技，技能消耗用armor取代Evo, 开局�
 
 其中一个重要改动是黑客时的视野机制便捷化了。最主观的感受就是spike完一个节点后，graph上周围的节点立即就亮了，不用再像以前那样每次都snap过去了。
 
+
+
+*****
+
+####  iellywake  
+##### 84#       发表于 2022-10-23 20:36
+
+the world和自带的F时间减速可以叠加，这时候再用那个自身不受时间减速影响的技能会出现bug，斜着走能直接穿墙，于是不管什么任务都能直接时停逛到目的地然后回家<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
