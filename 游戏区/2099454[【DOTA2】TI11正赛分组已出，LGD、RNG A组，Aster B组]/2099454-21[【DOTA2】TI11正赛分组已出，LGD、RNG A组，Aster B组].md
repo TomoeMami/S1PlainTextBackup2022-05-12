@@ -8261,3 +8261,455 @@ lgd承诺首先使用生化武器
 
 松江金融巨子难道不也是面八杏奴？
 
+
+
+*****
+
+####  Keynes  
+##### 31111#       发表于 2022-10-23 13:40
+
+ 本帖最后由 Keynes 于 2022-10-23 13:42 编辑 
+
+么么鳖孙这个时候敢伸头出来了，可惜就算赢了茶队，下星期遇到外国爹对着你a畜爹的鳖头就是一刀<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuisite  
+##### 31112#       发表于 2022-10-23 13:41
+
+鹏子今天能不能化次龙啊，不想被水淹啊
+
+*****
+
+####  柚上舍人  
+##### 31113#       发表于 2022-10-23 13:41
+
+这楼也太卡了，建议换个新楼
+
+*****
+
+####  szqasd  
+##### 31114#       发表于 2022-10-23 13:41
+
+这第三把，差点把我变成本楼禁止入内的某几类人；
+
+兄弟，打ti呢，不要搞笑阿。
+
+*****
+
+####  憧憬鲨  
+##### 31115#       发表于 2022-10-23 13:41
+
+讲道理这楼里关注BC的应该还挺多的，倒是集美去年骂BC假赛团伙今年吹BC可敬的对手有点好笑了
+
+*****
+
+####  HydraCat  
+##### 31116#       发表于 2022-10-23 13:41
+
+莫言这三把的状态确实有点一般
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ののワ  
+##### 31117#       发表于 2022-10-23 13:41
+
+BC就输在那波秒老鹿之后自信推进上了啊，纪律性不行，对面技能BKB其实都在的，站一个堆被lou死了。再说蝙蝠带盾是何意，你盾要保买活就慢慢刷，你盾要保先手就等大招CD，蝙蝠没技能本来就只能在后面see，带盾完全浪费
+
+*****
+
+####  Jiron.Amos  
+##### 31118#       发表于 2022-10-23 13:41
+
+我们支持LGD，不仅是因为LGD是中国队，更是因为他们打的也好，现在茶队打的好支持茶队的人还不够多？我也喜欢秘密，支持OG，因为我一直在关注他们认可他们喜欢他们打出来的比赛，反观现在一群牛滚蛇神，你们支持LGD的对手是因为支持他们吗？你看过BC几场比赛？你知道他们的小强去年被大牛拍**？你知道他们的中单曾经风行拆分电锤引起热潮吗？你不知道，你根本不支持BC，你只是支持所有LGD的对立面，你只是在攻击LGD，别用你那龌龊的言行来碰瓷真正粉丝的热爱。he tui，一帮臭虫
+
+*****
+
+####  cuisite  
+##### 31119#       发表于 2022-10-23 13:42
+
+去年bc不还是假赛队么
+
+*****
+
+####  sodah  
+##### 31120#       发表于 2022-10-23 13:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还有克里斯这个比怎么后面打起来人都好像脑子宕机了一样。天辉商店那波死的太抽象了。
+
+*****
+
+####  Avantasi  
+##### 31121#       发表于 2022-10-23 13:42
+
+主要你妈A畜历年表演把兄弟们阈值都提高了，反正我个人是有是水厂因为A畜致命失误被翻盘才能爽了
+
+*****
+
+####  TIZI  
+##### 31122#       发表于 2022-10-23 13:42
+
+注：双修畜、假赛狗、管人痴、集美、男同与毒狗不得入内
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  蛭人  
+##### 31123#       发表于 2022-10-23 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054697&amp;ptid=2099454" target="_blank">北条早苗 发表于 2022-10-23 13:40</a>
+
+泥楼今年集美已经算少的了，ti9和去年才是水漫金山</blockquote>
+去年是真水漫金山，毕竟maybe滚了后水厂一直通过几个比赛给处长造势，ti9maybe和fy还在总能分走点，不过也有你楼经典复制粘贴假赛论坛的集美，兴奋剂ana菜不打major赛制不合理，真吐了。
+
+*****
+
+####  nightmare902015  
+##### 31124#       发表于 2022-10-23 13:42
+
+我怎么感觉什么sf玛西谜团还有怨灵之契真的屁用没有啊。版本真正的答案不会是tm选一帮子力量型肉核扫图冲脸吧。
+
+*****
+
+####  VT1996  
+##### 31125#       发表于 2022-10-23 13:42
+
+别急，让ame打出自信是好事，这样才能贡献更多的名场面
+
+*****
+
+####  情商  
+##### 31126#         楼主| 发表于 2022-10-23 13:42
+
+怎么说，可敬的对手了吗
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  外挂全家脚气  
+##### 31127#       发表于 2022-10-23 13:42
+
+猴爹这状态ORI应该能打，但是问题是LGD内战一般都很赵云，感觉茶不好赢啊
+
+*****
+
+####  roxas.sora  
+##### 31128#       发表于 2022-10-23 13:42
+
+怎么水厂两个关键对手都被毒了，dota之神就这么想畜生赢么
+
+*****
+
+####  tengshuo980  
+##### 31129#       发表于 2022-10-23 13:43
+
+不知道轻语在上路被小兵卡位送双杀的时候，是不是有种诸葛亮看司马懿逃出火场的无力感
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  cuisite  
+##### 31130#       发表于 2022-10-23 13:43
+
+看状态，猴爹今天应该打不过焦阳吧
+
+*****
+
+####  masterffzhou  
+##### 31131#       发表于 2022-10-23 13:43
+
+lgd真的是中国队吗水友们
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  超人苏坦纳  
+##### 31132#       发表于 2022-10-23 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054664&amp;ptid=2099454" target="_blank">中已矣 发表于 2022-10-23 13:38</a>
+
+霸下也是龙种</blockquote>
+绷不住了
+
+*****
+
+####  憧憬鲨  
+##### 31133#       发表于 2022-10-23 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054744&amp;ptid=2099454" target="_blank">sodah 发表于 2022-10-23 13:42</a>
+还有克里斯这个比怎么后面打起来人都好像脑子宕机了一样。天辉商店那波死的太抽象了。 ...</blockquote>
+克里斯神每把都是这么玩的，多看看去年他的录像你会觉得他是雇了四个代练的黑帮太子
+
+*****
+
+####  莉拉厨  
+##### 31134#       发表于 2022-10-23 13:43
+
+十年小茶叶已经不想看下午的比赛了，阿茶关键局只赢过一次lgd<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nightmare902015  
+##### 31135#       发表于 2022-10-23 13:44
+
+我怎么感觉什么sf玛西谜团还有怨灵之契真的屁用没有啊。版本真正的答案不会是tm选一帮子力量型肉核扫图冲脸吧。
+
+*****
+
+####  二宮飛鳥酱  
+##### 31136#       发表于 2022-10-23 13:44
+
+茶茶必秒LGD！必秒！<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 31137#       发表于 2022-10-23 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054752&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-23 13:42</a>
+去年是真水漫金山，毕竟maybe滚了后水厂一直通过几个比赛给处长造势，ti9maybe和fy还在总能分走点，不过 ...</blockquote>
+ti9吃药乳化杀人犯和偷上帝梗的集美一点都不少，不过当年可能都只是单纯的lxo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuisite  
+##### 31138#       发表于 2022-10-23 13:44
+
+先把元气给桶哥吧，先看桶哥举盾啊
+
+*****
+
+####  北条早苗  
+##### 31139#       发表于 2022-10-23 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054752&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-23 13:42</a>
+去年是真水漫金山，毕竟maybe滚了后水厂一直通过几个比赛给处长造势，ti9maybe和fy还在总能分走点，不过 ...</blockquote>
+ti9吃药乳化杀人犯和偷上帝梗的集美一点都不少，不过当年可能都只是单纯的lxo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 31140#       发表于 2022-10-23 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054761&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-23 13:42</a>
+怎么说，可敬的对手了吗
+
+论坛助手,iPad</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看到一个弹幕打前喊阳得好打完喊可敬的对手
+
+
+
+*****
+
+####  roxas.sora  
+##### 31141#       发表于 2022-10-23 13:44
+
+k1万万没想到致命的英雄池缺陷是水人啊..............他要玩水人就不会选这么僵硬了
+
+*****
+
+####  逃离二次元  
+##### 31142#       发表于 2022-10-23 13:45
+
+我们支持LGD，不仅是因为LGD是中国队，更是因为他们打的也好，现在茶队打的好支持茶队的人还不够多？我也喜欢秘密，支持OG，因为我一直在关注他们认可他们喜欢他们打出来的比赛，反观现在一群牛滚蛇神，你们支持LGD的对手是因为支持他们吗？你看过BC几场比赛？你知道他们的小强去年被大牛拍**？你知道他们的中单曾经风行拆分电锤引起热潮吗？你不知道，你根本不支持BC，你只是支持所有LGD的对立面，你只是在攻击LGD，别用你那龌龊的言行来碰瓷真正粉丝的热爱。he tui，一帮臭虫
+
+*****
+
+####  guojiaoqi  
+##### 31143#       发表于 2022-10-23 13:45
+
+克里斯状态不稳，看前两年就能看出来，猛的时候真猛，菜的时候都在传他家黑帮指着4个兄弟带他玩
+
+*****
+
+####  弈秋  
+##### 31144#       发表于 2022-10-23 13:45
+
+希望马桶再进一步<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 31145#       发表于 2022-10-23 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054754&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-23 13:42</a>
+我怎么感觉什么sf玛西谜团还有怨灵之契真的屁用没有啊。版本真正的答案不会是tm选一帮子力量型肉核扫图冲脸 ...</blockquote>
+合理啊，秘密和tundra都是双三体系肉核冲脸的队伍
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tengshuo980  
+##### 31146#       发表于 2022-10-23 13:45
+
+ck还是选折了啊，sv，ts这幻想根本活不下来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  火神龙  
+##### 31147#       发表于 2022-10-23 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054770&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-23 13:43</a>
+不知道轻语在上路被小兵卡位送双杀的时候，是不是有种诸葛亮看司马懿逃出火场的无力感
+
+—— 来自 S1Fun ...</blockquote>
+集美论坛已经在说那个小兵寄宿这超哥死去的灵魂了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 31148#       发表于 2022-10-23 13:46
+
+还有放了两把拉西克给nts..............哎
+
+*****
+
+####  sodah  
+##### 31149#       发表于 2022-10-23 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054824&amp;ptid=2099454" target="_blank">火神龙 发表于 2022-10-23 13:46</a>
+
+集美论坛已经在说那个小兵寄宿这超哥死去的灵魂了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ninini212  
+##### 31150#       发表于 2022-10-23 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一这TS放不放真有什么区别吗？
+
+*****
+
+####  莉拉厨  
+##### 31151#       发表于 2022-10-23 13:47
+
+吃了你克英雄池的亏，前天那老鹿玩的跟nm一样
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  苏沃雷生  
+##### 31152#       发表于 2022-10-23 13:47
+
+指望鳖茶送走老干瘪不如指望马一龙的星链砸死A畜
+
+*****
+
+####  莉拉厨  
+##### 31153#       发表于 2022-10-23 13:47
+
+吃了你克英雄池的亏，前天那老鹿玩的跟nm一样
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  -SLSL-  
+##### 31154#       发表于 2022-10-23 13:47
+
+atf今天玩什么捏
+
+*****
+
+####  ののワ  
+##### 31155#       发表于 2022-10-23 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054788&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-23 13:44</a>
+
+我怎么感觉什么sf玛西谜团还有怨灵之契真的屁用没有啊。版本真正的答案不会是tm选一帮子力量型肉核扫图冲脸 ...</blockquote>
+别的不说，物理SF绝对是个five英雄，容错率不行的，均势到30分钟就站不出来了
+
+*****
+
+####  FBIwarning  
+##### 31156#       发表于 2022-10-23 13:47
+
+ 本帖最后由 FBIwarning 于 2022-10-23 13:49 编辑 
+
+莫名喜感
+
+*****
+
+####  昴星长明  
+##### 31157#       发表于 2022-10-23 13:48
+
+就NTS这状态，玩老鹿和滚滚没啥区别，都是查无此人
+
+*****
+
+####  外挂全家脚气  
+##### 31158#       发表于 2022-10-23 13:48
+
+ 本帖最后由 外挂全家脚气 于 2022-10-23 13:49 编辑 
+
+急啥，秘密石头人感觉都打不过，搞不好最后是老牌俱乐部秘密终举盾
+
+*****
+
+####  excalibur--  
+##### 31159#       发表于 2022-10-23 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054848&amp;ptid=2099454" target="_blank">ののワ 发表于 2022-10-23 13:47</a>
+别的不说，物理SF绝对是个five英雄，容错率不行的，均势到30分钟就站不出来了 ...</blockquote>
+物魔感觉还是要跳羊才能打
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  宝儿  
+##### 31160#       发表于 2022-10-23 13:49
+
+bian玩死灵龙不行 玩熊猫斧王是可以的   希望大鞭哥给点力 剩下的比赛也站出来
+
+*****
+
+####  蛭人  
+##### 31161#       发表于 2022-10-23 13:50
+
+请问谭宠，怎么又靠邪恶明鞭了？不是你泰罗砍翻吗？合着到硬仗就指望移民神了？
+
+*****
+
+####  cuisite  
+##### 31162#       发表于 2022-10-23 13:50
+
+atf玩人马？
+
+*****
+
+####  -SLSL-  
+##### 31163#       发表于 2022-10-23 13:50
+
+atf今天玩人马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  proselyte  
+##### 31164#       发表于 2022-10-23 13:50
+
+茶和lgd这俩不是谁赢了谁上去找打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  北条早苗  
+##### 31165#       发表于 2022-10-23 13:50
+
+真正的小电锤看到克神玩影魔就知道没了
+从inf开始克神就玩不来这种英雄，看多了就知道四个队友不跑可能他真就是毒枭少爷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
