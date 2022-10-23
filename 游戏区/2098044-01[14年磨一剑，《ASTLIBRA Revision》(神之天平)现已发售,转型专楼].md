@@ -9162,3 +9162,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 —— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lazycat233  
+##### 844#       发表于 2022-10-23 14:58
+
+二周目不算武器盘最强的单手剑，双手武器和法杖都是啥
+
