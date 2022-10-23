@@ -9294,3 +9294,19 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 过了石化就换下来呀，开菜单是时停的，同理打崩了也可以换上狂暴，崩完再下掉 ...</blockquote>
 昨晚已经打得石乐志了，早上起来又是硬怼了一小时，现在已经放弃进第七章了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yla  
+##### 856#       发表于 2022-10-23 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58057406&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-23 16:29</a>
+
+完美结局一共要几个爱情，一周目三个拿了，地牢还要开几个
+
+  -- 来自 有消息提醒的 Stage1官方 Android客 ...</blockquote>
+14-15个左右吧，一周目3个，斗技场全清1个，队友每人2个
+
+我宝箱开出来大概3个左右，包里最后剩了2个
+
