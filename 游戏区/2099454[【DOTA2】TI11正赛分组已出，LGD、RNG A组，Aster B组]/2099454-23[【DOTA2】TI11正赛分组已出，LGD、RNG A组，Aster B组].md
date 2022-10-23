@@ -2194,3 +2194,652 @@ NGA班长把DAC挂在版头五年 成分还不明显吗？
 
 2022-10-23 18:30 上传
 
+
+
+*****
+
+####  情商  
+##### 33237#         楼主| 发表于 2022-10-23 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060721&amp;ptid=2099454" target="_blank">啊哈 发表于 2022-10-23 18:30</a>
+烟火烟火你什么时候在上海买房啊</blockquote>
+他本来就是桑海土着，望周知
+
+*****
+
+####  JoelBirch  
+##### 33238#       发表于 2022-10-23 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060736&amp;ptid=2099454" target="_blank">战狼PTSD 发表于 2022-10-23 18:30</a>
+丁真吗</blockquote>
+不知道，图转群<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 33239#       发表于 2022-10-23 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060738&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-23 18:30</a></blockquote>
+被三年前三年后了，望周知
+
+*****
+
+####  逃离二次元  
+##### 33240#       发表于 2022-10-23 18:31
+
+我操都有小团体是吧
+
+
+
+*****
+
+####  Asukalangley33  
+##### 33241#       发表于 2022-10-23 18:31
+
+怪不得我在nga骂一堆人都没事，骂了几句rotk毒狗就被封了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+原来是核核
+
+*****
+
+####  Litccc  
+##### 33242#       发表于 2022-10-23 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060721&amp;ptid=2099454" target="_blank">啊哈 发表于 2022-10-23 18:30</a>
+烟火烟火你什么时候在上海买房啊</blockquote>
+你怎么知道烟火烟火在上海没房
+
+*****
+
+####  walfeds  
+##### 33243#       发表于 2022-10-23 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060606&amp;ptid=2099454" target="_blank">笑颜最美谢蕾蕾 发表于 2022-10-23 18:25</a>
+漏油们抢了我的红包钱，不给我加鹅不说，还纷纷说我恶心，伤心了，不发了，再也不发了 ...</blockquote>
+这么多鹅，我发了100只有四鹅的嫉妒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 濡鸦之羽_| + 1|好评加鹅|
+| Tzzt| + 2|好评加鹅|
+| 夏溪澪mio| + 2|没抢到但是感谢楼友|
+
+查看全部评分
+
+*****
+
+####  情商  
+##### 33244#         楼主| 发表于 2022-10-23 18:32
+
+卜会有人还不知道烟火神是桑海土着吧？动迁分了几套房好伐
+
+*****
+
+####  -SLSL-  
+##### 33245#       发表于 2022-10-23 18:32
+
+不是，都胜利了能不能别转nga了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 33246#       发表于 2022-10-23 18:32
+
+虚拟歌姬演唱《香槟》替A皇提前庆祝TI11获胜
+[https://www.bilibili.com/video/BV1cv4y1g7Bg](https://www.bilibili.com/video/BV1cv4y1g7Bg)
+
+*****
+
+####  nowaki  
+##### 33247#       发表于 2022-10-23 18:32
+
+卜会有人还不知道烟火神是桑海土着吧？动迁分了几套房好伐
+
+*****
+
+####  winkle  
+##### 33248#       发表于 2022-10-23 18:33
+
+zai 你在干什么
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 33249#       发表于 2022-10-23 18:33
+
+注：双修畜、假赛狗、管人痴、集美、男同与毒狗不得入内
+
+建议加个小团体，小团体四个吗
+
+*****
+
+####  甩不出去的黄牌  
+##### 33250#       发表于 2022-10-23 18:33
+
+能不能v我50吃个猪脚饭
+
+*****
+
+####  非建政专用号  
+##### 33251#       发表于 2022-10-23 18:33
+
+乐，pakazs要通关了
+
+*****
+
+####  IG.430  
+##### 33252#       发表于 2022-10-23 18:33
+
+唉，有尔斯血魔谜团，拉比克很舒服啊，这把技能不错的
+
+*****
+
+####  迷途lite  
+##### 33253#       发表于 2022-10-23 18:33
+
+能不能v我50吃个猪脚饭
+
+*****
+
+####  Rorgen  
+##### 33254#       发表于 2022-10-23 18:33
+
+看着第一把2塔骄阳被集火，残血选择了站着开BKB用最后的余热打出伤害而不是龟缩逃跑 用命给黑弓吸引火力，真的有些触动 
+同样的位置，同样的境况 ，那个嫌弃你的拒绝者一定会开着bkb往家里缩壳然后被活活打死 ，然后看着队友一个一个死去
+遥想去年，被两个辅助嫌弃过后，我以为你决定去憋茶会是最后一摆 ，也可能是上天的福佑 ，却给了你最后一舞的动力，带着这个被人诟病，被集美狂黑的配置，打出了突破自我的战绩
+加油啊，骄阳，这一次，你才是全村的希望 
+
+*****
+
+####  蛭人  
+##### 33255#       发表于 2022-10-23 18:33
+
+我怎么觉得pakazs有味儿了。
+
+*****
+
+####  OVTVO  
+##### 33256#       发表于 2022-10-23 18:33
+
+zai是怎么有勇气玩滚滚的。。。
+
+*****
+
+####  sodah  
+##### 33257#       发表于 2022-10-23 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这术士zai不服气你就tp死
+
+*****
+
+####  horacio  
+##### 33258#       发表于 2022-10-23 18:34
+
+都是谜团，为什么差距这么大呢
+
+*****
+
+####  winkle  
+##### 33259#       发表于 2022-10-23 18:34
+
+能不能v我40吃个华莱shi
+
+*****
+
+####  蛭人  
+##### 33260#       发表于 2022-10-23 18:34
+
+术士zai滚滚打爆了油垃圾，望周知。
+
+*****
+
+####  nowaki  
+##### 33261#       发表于 2022-10-23 18:34
+
+sszai是真的稳定养怪物，很难想象og的光头打不过sszai
+
+*****
+
+####  刹那芳華  
+##### 33262#       发表于 2022-10-23 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060414&amp;ptid=2099454" target="_blank">fopinecone 发表于 2022-10-23 18:19</a>
+
+口令：昔日一轮空饮晚风七八场 下一句
+
+提示：千里行走</blockquote>
+我去！居然能在刀楼里看到暗杠寅子！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hdyhh1  
+##### 33263#       发表于 2022-10-23 18:34
+
+v50恰个猪脚饭，饿得没有力气了
+
+*****
+
+####  星野航  
+##### 33264#       发表于 2022-10-23 18:34
+
+哇，吃完饭回来看骄阳表演，太狠了骄阳
+
+*****
+
+####  情商  
+##### 33265#         楼主| 发表于 2022-10-23 18:35
+
+让我将你盾牌摘下，下一句
+
+应该都能抢到吧
+
+*****
+
+####  樱冢名月  
+##### 33266#       发表于 2022-10-23 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来都享受dota了，zai处能不能别搞啊
+
+*****
+
+####  哈曼的YY  
+##### 33267#       发表于 2022-10-23 18:35
+
+大的来了
+
+口令：污名之辈，不是谁的下一句歌词 把名字换成a畜
+
+视奸的集美领了**
+
+第一次发不知道会不会出问题
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 3战斗力 +5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Keynes| + 2|好大好大，生活如意了|
+| 百世诸侯| + 1|这个包出巨人戒了，好大|
+| 夏溪澪mio| + 2|漏油好大|
+
+查看全部评分
+
+*****
+
+####  憧憬鲨  
+##### 33268#       发表于 2022-10-23 18:35
+
+焦阳：懂不懂灵魂之泪的含金量啊
+
+*****
+
+####  leia_rolando  
+##### 33269#       发表于 2022-10-23 18:35
+
+曾骄阳是不是和大鞭一样，打完这届就退役了？
+
+*****
+
+####  TIZI  
+##### 33270#       发表于 2022-10-23 18:35
+
+哥们在油面粉丝群赛后喷油面油油玉玉，被当时的油夫人处决了就再也没加过粉丝群
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  古代人皮克  
+##### 33271#       发表于 2022-10-23 18:35
+
+zai真的犯病啊
+
+*****
+
+####  43453  
+##### 33272#       发表于 2022-10-23 18:36
+
+今天所有的A组就要离开了吗
+
+*****
+
+####  星野航  
+##### 33273#       发表于 2022-10-23 18:36
+
+应该是退了，这届能苟进决赛日就是胜利
+
+*****
+
+####  nowaki  
+##### 33274#       发表于 2022-10-23 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">zai还是感觉滚吧，不想看这样的玩意混到决赛日。
+
+哦不对 批九已经混进去了。
+
+*****
+
+####  阿垃垃圾历  
+##### 33275#       发表于 2022-10-23 18:36
+
+睡完觉错过第二局了 lgd滚了舒服
+
+*****
+
+####  woyzeck  
+##### 33276#       发表于 2022-10-23 18:36
+
+不会有人不知道清蒸鲈鱼是核弹转集美吧，最恶心的那种。
+
+*****
+
+####  Rorgen  
+##### 33277#       发表于 2022-10-23 18:36
+
+<img src="https://img.saraba1st.com/forum/202210/23/183558lxnp6xob2n0so22p.png" referrerpolicy="no-referrer">
+
+<strong>-38c6d796c3cd24ba.png</strong> (55.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 18:35 上传
+
+来了来了，sg之子余亚军Bryant
+
+*****
+
+####  adretyu67  
+##### 33278#       发表于 2022-10-23 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060835&amp;ptid=2099454" target="_blank">leia_rolando 发表于 2022-10-23 18:35</a>
+
+曾骄阳是不是和大鞭一样，打完这届就退役了？</blockquote>
+应该会退，他比泰迪还老半岁。
+
+*****
+
+####  IG.430  
+##### 33279#       发表于 2022-10-23 18:36
+
+山崩、撕裂大地、车轮滚滚都是好技能
+
+*****
+
+####  fopinecone  
+##### 33280#       发表于 2022-10-23 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060832&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-23 18:35</a>
+大的来了
+
+口令：污名之辈，不是谁的下一句歌词 把名字换成a畜
+
+视奸的集美领了**</blockquote>
+老板大气！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sodah  
+##### 33281#       发表于 2022-10-23 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060849&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-23 18:36</a>
+
+来了来了，sg之子余亚军Bryant</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">基德基德
+
+*****
+
+####  樱冢名月  
+##### 33282#       发表于 2022-10-23 18:37
+
+“还没注意，内战竟然扔装备”已经在找切入点了
+
+*****
+
+####  蛭人  
+##### 33283#       发表于 2022-10-23 18:37
+
+ 本帖最后由 蛭人 于 2022-10-23 18:38 编辑 
+
+编辑 楼上发了
+
+*****
+
+####  walfeds  
+##### 33284#       发表于 2022-10-23 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060828&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-23 18:35</a>
+
+让我将你盾牌摘下，下一句
+
+应该都能抢到吧</blockquote>
+不是熔化？
+
+*****
+
+####  nowaki  
+##### 33285#       发表于 2022-10-23 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sszai 还得是妮
+
+*****
+
+####  c88711611  
+##### 33286#       发表于 2022-10-23 18:38
+
+皮球牛逼！！！
+
+*****
+
+####  TIZI  
+##### 33287#       发表于 2022-10-23 18:38
+
+这届ti很少见线上谜团拉大击杀啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  情商  
+##### 33288#         楼主| 发表于 2022-10-23 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060828&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-23 18:35</a>
+让我将你盾牌摘下，下一句
+
+应该都能抢到吧</blockquote>
+说好的超级小红包专楼？
+
+<img src="https://p.sda1.dev/7/3dc32b94a3fd013bcfb05986dc811c7c/CMP_20221023183817139.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 33289#       发表于 2022-10-23 18:38
+
+ 本帖最后由 adretyu67 于 2022-10-23 18:39 编辑 
+
+鳖茶如果调整得好，我觉得能摸到决赛地板。
+
+打石头人和TA/液体都是有胜算的。
+
+但是只有打秘密我想不出来怎么赢，因为ni公子真的可以打爆骄阳。
+
+打秘密想赢，小林鹏子骄阳都得透支。
+
+*****
+
+####  甩不出去的黄牌  
+##### 33290#       发表于 2022-10-23 18:38
+
+何意啊 zai
+
+*****
+
+####  walfeds  
+##### 33291#       发表于 2022-10-23 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060849&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-23 18:36</a>
+
+来了来了，sg之子余亚军Bryant</blockquote>
+基德基德
+
+*****
+
+####  Avantasi  
+##### 33292#       发表于 2022-10-23 18:38
+
+不是，我一直以为只是同名水友，真是余亚军？
+
+*****
+
+####  ml1642879  
+##### 33293#       发表于 2022-10-23 18:38
+
+领了楼友们的红包应该买什么茶喝啊，我这只有康师傅的
+
+*****
+
+####  TIZI  
+##### 33294#       发表于 2022-10-23 18:38
+
+哇，zai畜真是下限表演
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  白野苍衣  
+##### 33295#       发表于 2022-10-23 18:39
+
+有人分析一下这俩队谁赢了茶队更好打吗
+
+*****
+
+####  nowaki  
+##### 33296#       发表于 2022-10-23 18:39
+
+sszai这个滚滚搞笑啊
+
+*****
+
+####  Rorgen  
+##### 33297#       发表于 2022-10-23 18:39
+
+<img src="https://img.saraba1st.com/forum/202210/23/183903iuuyrcn1s1szcnmu.jpg" referrerpolicy="no-referrer">
+
+<strong>4c2b65615e35acff.jpg</strong> (167.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 18:39 上传
+
+*****
+
+####  情商  
+##### 33298#         楼主| 发表于 2022-10-23 18:39
+
+发错了，重新编辑一个
+
+*****
+
+####  逃离二次元  
+##### 33299#       发表于 2022-10-23 18:39
+
+皮球bryant牛比
+
+*****
+
+####  Litccc  
+##### 33300#       发表于 2022-10-23 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060904&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-23 18:38</a>
+
+不是，我一直以为只是同名水友，真是余亚军？</blockquote>
+如果你觉得他是，那他就是<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nightmare902015  
+##### 33301#       发表于 2022-10-23 18:39
+
+哇我刚试出来就撤回该红包
+
+*****
+
+####  Avantasi  
+##### 33302#       发表于 2022-10-23 18:39
+
+撤回是何意呀
+
+*****
+
+####  漂灵  
+##### 33303#       发表于 2022-10-23 18:39
+
+我老实说狗头人那个唱歌的声音很不讨人喜欢，我也就爱听香槟
+
+*****
+
+####  樱冢名月  
+##### 33304#       发表于 2022-10-23 18:39
+
+哇，这啥群，漏油待得下去
+
+*****
+
+####  逃离二次元  
+##### 33305#       发表于 2022-10-23 18:39
+
+撤回是何意呀
+
+*****
+
+####  OVTVO  
+##### 33306#       发表于 2022-10-23 18:40
+
+我是觉得石头人比秘密强，我不信NISHA局局都能这个状态
+
+*****
+
+####  星野航  
+##### 33307#       发表于 2022-10-23 18:40
+
+那感觉还是液体好打一些
+至少如今的zai跟桶都不值得信任，micke是个中庸选手
+
+*****
+
+####  情商  
+##### 33308#         楼主| 发表于 2022-10-23 18:40
+
+熔化打成融化了
+
+*****
+
+####  AIDSL  
+##### 33309#       发表于 2022-10-23 18:40
+
+我昨天刚黑玛尔斯这英雄，今天就这么凶残？崩溃哥第一玛尔斯位置不保了哦。
+
+*****
+
+####  tasuku  
+##### 33310#       发表于 2022-10-23 18:40
+
+a装备不是处长先干的？
+
