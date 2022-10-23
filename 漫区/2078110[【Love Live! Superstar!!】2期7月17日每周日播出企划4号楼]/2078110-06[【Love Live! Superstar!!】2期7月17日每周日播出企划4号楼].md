@@ -12208,3 +12208,14 @@ nako：“我像猫还是兔子？”
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ads147147  
+##### 8606#       发表于 2022-10-23 21:05
+
+payko还蛮适合穿这些花里胡哨的洋服的，算优势吗
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
