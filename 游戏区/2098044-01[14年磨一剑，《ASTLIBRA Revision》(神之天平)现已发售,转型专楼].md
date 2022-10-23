@@ -9396,3 +9396,29 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 第七章有个距离超远的悬崖，该怎么才能跳过去？
 
+
+
+*****
+
+####  lazycat233  
+##### 866#       发表于 2022-10-23 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">通关二周目完美结局了，日后谈感觉少了点，别的都挺好的
+
+*****
+
+####  五块  
+##### 867#       发表于 2022-10-23 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58063919&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-23 20:39</a>
+
+第七章有个距离超远的悬崖，该怎么才能跳过去？</blockquote>
+三段跳加滑翔加空中冲刺。
+
+*****
+
+####  五块  
+##### 868#       发表于 2022-10-23 20:51
+
+拿到神杀剑打九章boss，不愧是老大，和前面的完全不一样，输出窗口少伤害高破防还强，比耐心的时候到了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -10355,3 +10355,14 @@ k
 
 応援しててくりぇ～～～～！！！！</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就知道
 
+
+
+*****
+
+####  rs5621  
+##### 2487#       发表于 2022-10-23 20:44
+
+不过还行，有好好在弄运动会的项目
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
