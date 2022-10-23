@@ -266,3 +266,17 @@
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alucardcz  
+##### 1953#       发表于 2022-10-23 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58052730&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-23 11:59</a>
+
+和美知留救白银的桥段被跳过一样。虽然不爽但是剧情还能勉强看得懂
+
+—— 来自 OnePlus HD1900, A ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是绝望感和震撼度直接少了一半 我有点失望
+

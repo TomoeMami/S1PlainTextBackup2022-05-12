@@ -1518,3 +1518,12 @@ Medic的bloodmage被动感觉是神技，技能消耗用armor取代Evo, 开局�
 
 结局做了坏女人的狗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  105gun  
+##### 82#       发表于 2022-10-23 16:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">只玩了三个半小时，内容比想象中多太多了
+

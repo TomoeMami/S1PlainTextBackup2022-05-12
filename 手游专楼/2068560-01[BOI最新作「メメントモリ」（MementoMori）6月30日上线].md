@@ -664,3 +664,12 @@ PC大屏听歌对味，AA快下池
 
 哎，页游用烂的把戏，只能说全世界人性都一样
 
+
+
+*****
+
+####  Ketestrait  
+##### 77#       发表于 2022-10-23 16:27
+
+日本佬开始学习手（页）游先进国的精髓了，手游正统在中国的进程又迈出了坚实的一步<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
