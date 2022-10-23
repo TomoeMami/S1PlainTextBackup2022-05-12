@@ -9217,3 +9217,26 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 找到了- -，原来在最后存档点
 
+
+
+*****
+
+####  黒長直姫  
+##### 849#       发表于 2022-10-23 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58056109&amp;ptid=2098044" target="_blank">yla 发表于 2022-10-23 15:23</a>
+
+还差最后一个成就，好像就是吃毒面包，这个要怎么解？我在当事人面前用各种姿势吃了感觉都没触发 ...</blockquote>
+喂爱情喂到当事人去酒吧再当面吃（不能大于一个身位）
+
+*****
+
+####  何处分可  
+##### 850#       发表于 2022-10-23 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055917&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-23 15:03</a>
+但是有近路，买东西还是很方便的
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+哪里有近路<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+

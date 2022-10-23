@@ -787,3 +787,395 @@ mi酱为啥ti不能家里有事呢？chu神上不好么
 前面的忘了，中间的忘了，后面的也忘了
 加油啊鳖星
 
+
+
+*****
+
+####  cuisite  
+##### 31603#       发表于 2022-10-23 15:41
+
+内战王八ta来了
+
+*****
+
+####  Rorgen  
+##### 31604#       发表于 2022-10-23 15:41
+
+前面的忘了，中间的忘了，后面的也忘了
+我只想说一句，有无kky核中核粉丝群消息
+
+*****
+
+####  勤练带来力量  
+##### 31605#       发表于 2022-10-23 15:41
+
+听说kky气得把粉丝群解散了
+
+*****
+
+####  Litccc  
+##### 31606#       发表于 2022-10-23 15:42
+
+皮球这个bo3要是输了要被集美嘲讽到退役了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 31607#       发表于 2022-10-23 15:42
+
+丁聪和张成俊最好战绩ti6强  这下瑞典丁聪和瑞典油面也六强了
+
+*****
+
+####  柚上舍人  
+##### 31608#       发表于 2022-10-23 15:42
+
+kky已经沉迷VR世界不可自拔了，ti什么东西
+
+*****
+
+####  憧憬鲨  
+##### 31609#       发表于 2022-10-23 15:42
+
+Kky气得把VR眼镜都砸了
+
+*****
+
+####  啊哈  
+##### 31610#       发表于 2022-10-23 15:42
+
+骄阳还有多久受难
+
+*****
+
+####  Horusddt  
+##### 31611#       发表于 2022-10-23 15:42
+
+ti7的液体要有个mc水平的三啊
+
+*****
+
+####  nowaki  
+##### 31612#       发表于 2022-10-23 15:42
+
+我已经提前原谅了皮球
+
+*****
+
+####  lyjssj  
+##### 31613#       发表于 2022-10-23 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">MAJOR魔咒已经应验！
+
+OG，雪碧已死
+
+*****
+
+####  Rorgen  
+##### 31614#       发表于 2022-10-23 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58056357&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-23 15:42</a>
+丁聪和张成俊最好战绩ti6强  这下瑞典丁聪和瑞典油面也六强了</blockquote>
+没有叫错的外号
+
+*****
+
+####  苏沃雷生  
+##### 31615#       发表于 2022-10-23 15:43
+
+一想到集美要发大水到29号就恶心
+
+*****
+
+####  usoda  
+##### 31616#       发表于 2022-10-23 15:43
+
+桶哥真的励志<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RGm  
+##### 31617#       发表于 2022-10-23 15:43
+
+ru水泡茶它来了。
+
+*****
+
+####  枯风瘦雪02  
+##### 31618#       发表于 2022-10-23 15:43
+
+从干死LGD出发，还是希望ta上去，液体这帮人对上LGD看不到赢的路线
+
+*****
+
+####  无聊的神  
+##### 31619#       发表于 2022-10-23 15:43
+
+面8开血轮眼了呀，抄李逵白牛，抄汤爪白虎，阿茶加油啊
+
+*****
+
+####  莉拉厨  
+##### 31620#       发表于 2022-10-23 15:43
+
+中午没睡快死了，我选择安眠，六点起床给阿茶收尸<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  我爱撩菜  
+##### 31621#       发表于 2022-10-23 15:43
+
+难得的处长也爆种发大力。 今天按死大鞭哥不一定够了。 不过好消息的NTS状态不佳（但NTS打国内熟悉的阿茶，不知道会不会回暖了） 
+
+*****
+
+####  lyjssj  
+##### 31622#       发表于 2022-10-23 15:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">XGVG上上周原来是和TI6强在过招啊 失敬
+
+*****
+
+####  情商  
+##### 31623#         楼主| 发表于 2022-10-23 15:44
+
+【DOTA2 TI11 刀塔档案馆 职业选手印象最深的TI战队和选手 HOHO-哔哩哔哩】 https://b23.tv/rueYp8A
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  勤练带来力量  
+##### 31624#       发表于 2022-10-23 15:44
+
+micke长得有点像撸狗中单
+
+*****
+
+####  izayoi39  
+##### 31625#       发表于 2022-10-23 15:44
+
+桶哥这个赛季真的励志啊
+
+*****
+
+####  ののワ  
+##### 31626#       发表于 2022-10-23 15:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我超，不会TI1乌克兰荣耀NV带ppy夺冠，TI11ppy带乌克兰荣耀鲁迅夺冠吧
+
+*****
+
+####  Rorgen  
+##### 31627#       发表于 2022-10-23 15:44
+
+液体官方直播间的qojgva：不是哥们力中暴力急流勇退能进六强？
+
+*****
+
+####  nowaki  
+##### 31628#       发表于 2022-10-23 15:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超级集美论坛开始装理客中了，不知道要是茶干了lgd，他们还装得下去吗
+
+*****
+
+####  柚上舍人  
+##### 31629#       发表于 2022-10-23 15:44
+
+液体教练穿着西装上来BP，仪式感拉满
+
+*****
+
+####  aruruu  
+##### 31630#       发表于 2022-10-23 15:45
+
+三幻神还是强啊，就是少了vp
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ra2163  
+##### 31631#       发表于 2022-10-23 15:45
+
+为马桶哥而战
+
+*****
+
+####  ArowRocher  
+##### 31632#       发表于 2022-10-23 15:45
+
+我觉得茶赢面大，LGD拿老鹿打的不行，放就是焦阳宰猪。
+
+当然我也准备好了，不管谁赢了之后被淘汰的时候我都会狂喷不如让另一个上。
+
+*****
+
+####  反方向的波  
+##### 31633#       发表于 2022-10-23 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">瑞张你也好意思说，昨天都被鳖星打成突破口了
+
+*****
+
+####  adretyu67  
+##### 31634#       发表于 2022-10-23 15:46
+
+骄阳加油，迈过这一步你就是突破了自己的过去
+
+*****
+
+####  lyjssj  
+##### 31635#       发表于 2022-10-23 15:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">再贷一波，LGD如果真冠了，我就把NGA卸了，看do圈一些喜欢的小主播能收点爱国米也不错
+
+*****
+
+####  nowaki  
+##### 31636#       发表于 2022-10-23 15:47
+
+LGD如果真冠了，后面忘了，我就去看管人
+
+*****
+
+####  dclara1  
+##### 31637#       发表于 2022-10-23 15:47
+
+资瓷全华班
+
+*****
+
+####  IG.430  
+##### 31638#       发表于 2022-10-23 15:47
+
+咋这膝盖就直不起来呢<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rorgen  
+##### 31639#       发表于 2022-10-23 15:47
+
+resolution：最后的独联体人
+
+*****
+
+####  Litccc  
+##### 31640#       发表于 2022-10-23 15:47
+
+哪个冠？
+
+*****
+
+####  thistimeforlife  
+##### 31641#       发表于 2022-10-23 15:47
+
+鳖星 这最后治水的机会，赢不了就要一直被《施舍》下去了，赢下就是老鳖的殿军荣耀，输了只能证明小鳖确实是小鳖了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  迷途lite  
+##### 31642#       发表于 2022-10-23 15:47
+
+哪个冠？
+
+*****
+
+####  坚定的团子党  
+##### 31643#       发表于 2022-10-23 15:48
+
+新冠还差不多
+
+*****
+
+####  IG.430  
+##### 31644#       发表于 2022-10-23 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58056429&amp;ptid=2099454" target="_blank">Rorgen 发表于 2022-10-23 15:47</a>
+resolution：最后的独联体人</blockquote>
+乌克兰不算独联体<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Keynes  
+##### 31645#       发表于 2022-10-23 15:48
+
+给焦阳和皮球攒元气蛋
+
+*****
+
+####  反方向的波  
+##### 31646#       发表于 2022-10-23 15:48
+
+妈的，傻逼doto客户端联通旎站直播间直接把我电脑卡死了
+
+*****
+
+####  Rorgen  
+##### 31647#       发表于 2022-10-23 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58056437&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-23 15:48</a>
+乌克兰不算独联体</blockquote>
+zayac：最后的独联体人
+
+*****
+
+####  Asukalangley33  
+##### 31648#       发表于 2022-10-23 15:49
+
+等一个潘飞GANK水厂所有对手
+
+*****
+
+####  憧憬鲨  
+##### 31649#       发表于 2022-10-23 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是为什么兄弟们拿不了Ti10冠军啊
+
+*****
+
+####  情商  
+##### 31650#         楼主| 发表于 2022-10-23 15:49
+
+余亚军bryant加油
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+
+*****
+
+####  Litccc  
+##### 31651#       发表于 2022-10-23 15:49
+
+dota之神降下神谕暗示烟火烟火该发红包了
+
+*****
+
+####  Rorgen  
+##### 31652#       发表于 2022-10-23 15:49
+
+萌新求问：二哈口中的4个畜牲队友是谁啊
+
+*****
+
+####  反方向的波  
+##### 31653#       发表于 2022-10-23 15:50
+
+批九：最后的半个独联体人
+saksa：其实北马其顿人都是斯拉夫人
+
+*****
+
+####  azccc52  
+##### 31654#       发表于 2022-10-23 15:50
+
+前面忘了，后面也忘了，写在鳖星受难前
+
+打游戏去了，等晚上看结果<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
