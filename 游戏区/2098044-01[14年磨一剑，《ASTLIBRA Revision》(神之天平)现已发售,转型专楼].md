@@ -9197,3 +9197,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yla  
+##### 847#       发表于 2022-10-23 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还差最后一个成就，好像就是吃毒面包，这个要怎么解？我在当事人面前用各种姿势吃了感觉都没触发
+
