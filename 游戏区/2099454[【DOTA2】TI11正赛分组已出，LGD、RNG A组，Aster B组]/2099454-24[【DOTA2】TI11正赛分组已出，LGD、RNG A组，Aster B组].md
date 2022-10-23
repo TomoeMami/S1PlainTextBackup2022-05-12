@@ -9037,3 +9037,221 @@ pgl现在一切为了省钱和你闹呢。
 
 厨子今年dpc2就开练了，但是奈何sea区找不到队
 
+
+
+*****
+
+####  nowaki  
+##### 35617#       发表于 2022-10-24 01:10
+
+厨子现在就是乔丹三连冠之后的状态，觉得没对手
+
+*****
+
+####  Asukalangley33  
+##### 35618#       发表于 2022-10-24 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069815&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 01:07</a>
+
+刚才刷到一条消息把哥们气乐了，pgl和v🐍居然没有给所有队伍包房到ti结束，lgd和ta今天直接上飞机了 ...</blockquote>
+这届本来就是打完回家啊
+
+不像往年可以一轮游混完整个赛程
+
+*****
+
+####  Renko117  
+##### 35619#       发表于 2022-10-24 01:12
+
+撸狗猪把队标遮住硬刚完美转播欧服高分路人局是我看到过节目效果最好的活
+
+*****
+
+####  yyf奇遇记  
+##### 35620#       发表于 2022-10-24 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069856&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-24 01:11</a>
+这届本来就是打完回家啊
+
+不像往年可以一轮游混完整个赛程</blockquote>
+不是兄弟，这意味着后面只能4个队训练了啊，别人eu dpc直接学下面8拒训 不是把你拿捏住了
+
+*****
+
+####  蛭人  
+##### 35621#       发表于 2022-10-24 01:13
+
+看过厨子混好友直播和最早的og纪录片应该知道，厨子是个乐子人，哥们想打感觉打打就赢了，切个假腿还能再赢，不如冒险岛。
+
+*****
+
+####  夜光铃  
+##### 35622#       发表于 2022-10-24 01:13
+
+文爱胖子真不控制下体重么，我觉得他啥时候进医院都没准
+
+*****
+
+####  苏沃雷生  
+##### 35623#       发表于 2022-10-24 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069731&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 01:01</a>
+森哥又不是不知道black来中国打职业是啥下场</blockquote>
+嫪毐最不基德的就是在CIS喷老板以及坑Black，现在都没什么人提
+
+*****
+
+####  nowaki  
+##### 35624#       发表于 2022-10-24 01:14
+
+妮和a畜做队友 暴饮暴食可能是对抗玉玉最后的方法了
+
+*****
+
+####  百世诸侯  
+##### 35625#       发表于 2022-10-24 01:14
+
+西雅图核心群消息：TI后更新一个新英雄，明年更新三个新英雄；明年在西雅图办TI12，justin biber献唱。三个major分别在法兰克福，上海，利雅得，按老major的等级办，有一个贯穿上半年的赛季通行证。A牌二和刀塔霸业二也在明年公布，龙之血第三季（网飞动画）明年上映。TI12本子准备了五个至宝和老至宝不朽复刻。
+
+*****
+
+####  Asukalangley33  
+##### 35626#       发表于 2022-10-24 01:15
+
+就厨子现在这状态，有些“一届比一届打的好”的C都不一定打的出来
+
+早上冒险岛，下午瓦罗兰，抽点空带妹打把DOTA2普通匹配
+
+你骂他菜比，他也不用回答你什么，只用留下你自己想为什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+无敌了好吧
+
+*****
+
+####  蛭人  
+##### 35627#       发表于 2022-10-24 01:15
+
+要不然嫪毐现在还只能蹭别人的热度吃软饭，这个比纯纯不基德的csdx。
+
+*****
+
+####  血狂毘沙门  
+##### 35628#       发表于 2022-10-24 01:16
+
+今年ti游戏里外都挺拉 线下办的有多拉不用复述了  游戏里平衡性也是一坨 好几个英雄要一手ban选 直接废掉几个bp位<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 35629#       发表于 2022-10-24 01:16
+
+一届比一届打的好暗讽ccnc是吧，哦，ccnc是中。
+
+*****
+
+####  六娃  
+##### 35630#       发表于 2022-10-24 01:16
+
+冷知识，每年ti都有很多英雄要一手bp
+
+*****
+
+####  苏沃雷生  
+##### 35631#       发表于 2022-10-24 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069817&amp;ptid=2099454" target="_blank">windhawind2 发表于 2022-10-24 01:08</a>
+至于kaka不会真的还要打吧。。。这赛季中途加盟rng打进ti已经算是大力了 但自己快30岁了 已经阳了2 ...</blockquote>
+以及年年比张睿达女友问题大得多，把卡卡PUA得不成人样
+
+*****
+
+####  六娃  
+##### 35632#       发表于 2022-10-24 01:17
+
+但是ccnc确实是一届打得比一届好，支持奎恩哥就是支持na dota谢谢
+
+*****
+
+####  yyf奇遇记  
+##### 35633#       发表于 2022-10-24 01:17
+
+这定妆照有点ti9 og那组的味道了<img src="https://p.sda1.dev/7/377317c1970e68d410f5d6181cbc4fa9/ed3a9564ca2f44929abe17c641f94de8.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 35634#       发表于 2022-10-24 01:17
+
+我只能说bp到现在有变回了xg版本，你们欠丁聪一声道歉
+
+*****
+
+####  qwas  
+##### 35635#       发表于 2022-10-24 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58068960&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-24 00:18</a>
+茶队能整到皮球这种5也是很离谱，第一次ti就在“他走不了他走不了”“你很肉你很肉”
+
+坐等明年有队抽个正常 ...</blockquote>
+皮球不是从青茶抽上来的吗，茶队算是现在西恩刀塔为数不多认真搞青训队的俱乐部了，可惜其他分部属实不基德
+
+*****
+
+####  walfeds  
+##### 35636#       发表于 2022-10-24 01:18
+
+厨子最无敌的是永远不怕被人说成伤仲永<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">属于把别人一辈子都走不完的路走完了
+
+*****
+
+####  六娃  
+##### 35637#       发表于 2022-10-24 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069908&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 01:17</a>
+这定妆照有点ti9 og那组的味道了</blockquote>
+曾焦阳为什么这么唐
+
+*****
+
+####  OVTVO  
+##### 35638#       发表于 2022-10-24 01:18
+
+艹，骄阳给我看乐了
+
+*****
+
+####  adretyu67  
+##### 35639#       发表于 2022-10-24 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069912&amp;ptid=2099454" target="_blank">qwas 发表于 2022-10-24 01:17</a>
+
+皮球不是从青茶抽上来的吗，茶队算是现在西恩刀塔为数不多认真搞青训队的俱乐部了，可惜其他分部属实不基 ...</blockquote>
+有一说一，搞wow俱乐部争首杀是真的搞笑。
+
+*****
+
+####  StrangerJ  
+##### 35640#       发表于 2022-10-24 01:20
+
+茶队可以在东南亚服跟清茶训练吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+话又说回来，真的会有队在回家以后还认真跟别人训练吗，查理斯那名言犹在耳边
+
+
+
+*****
+
+####  哈曼的YY  
+##### 35641#       发表于 2022-10-24 01:20
+
+现在天梯挺艺术的嘛 想学习下工程师看到1000名内局一把三号位蓝猫一把一号位猛犸
+
+*****
+
+####  walfeds  
+##### 35642#       发表于 2022-10-24 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069908&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 01:17</a>
+
+这定妆照有点ti9 og那组的味道了</blockquote>
+小林再挤挤堪比城之内了
+
