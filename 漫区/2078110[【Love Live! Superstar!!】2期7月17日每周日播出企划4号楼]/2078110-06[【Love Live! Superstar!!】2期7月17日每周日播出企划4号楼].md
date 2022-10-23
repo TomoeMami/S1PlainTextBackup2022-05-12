@@ -12169,3 +12169,31 @@ nako：“我像猫还是兔子？”
 
 2022-10-23 19:03 上传
 
+
+
+*****
+
+####  starring  
+##### 8604#       发表于 2022-10-23 19:50
+
+明年3月单独event，原创歌曲企划，加入DiiCa（似乎是抽卡/照片app
+还有今天event上的翻唱曲目（似乎很喜欢中川翔子
+
+94306.png
+(91.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202210/23/194935owier5mqrem5pp5w.png" referrerpolicy="no-referrer">
+
+94518.png
+(27.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 19:49 上传
+
+<img src="https://img.saraba1st.com/forum/202210/23/194940olrgj6c7jddvaarr.png" referrerpolicy="no-referrer">
+
