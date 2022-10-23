@@ -3281,3 +3281,21 @@ xgp版的更新1.0了么
 
 —— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  zzy516232108  
+##### 320#       发表于 2022-10-23 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在这游戏该怎么玩？
+
+初版玩的是双鸟圣水什么的
+
+*****
+
+####  hello0607  
+##### 321#       发表于 2022-10-23 11:30
+
+现在感觉十字架特别猛 斧子圣水有点弟弟 前期千万别拿六芒星
+
