@@ -12336,3 +12336,16 @@ CW是葛佳慧写的，感觉曲调应该也很适合中文市场，最好来个
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">歌是真的不行
 
+
+
+*****
+
+####  Enakina  
+##### 8616#       发表于 2022-10-24 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067285&amp;ptid=2078110" target="_blank">DarthAka 发表于 2022-10-23 22:58</a>
+灯应该只到会弹个和弦念歌词找调的水平，葛佳慧肯定比灯强，具体不如外野问，泥潭外野老哥当年看过101的 ...</blockquote>
+SMA不舍的让她放下创作型歌手的卖点罢了
+
+—— 来自 HUAWEI HLK-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

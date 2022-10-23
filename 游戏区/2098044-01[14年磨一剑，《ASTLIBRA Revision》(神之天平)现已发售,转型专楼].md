@@ -9749,3 +9749,14 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 二周目主要提升战斗力还是靠武器盘和装备强化。
 
+
+
+*****
+
+####  shimotsuki14  
+##### 899#       发表于 2022-10-24 01:08
+
+前几页发的日文攻略，看到成长树完整的图直接喷了
+
+—— 来自 HUAWEI JEF-AN20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

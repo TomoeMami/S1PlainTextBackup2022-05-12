@@ -1666,3 +1666,12 @@ the world和自带的F时间减速可以叠加，这时候再用那个自身不�
 最多有时候撞墙能 ...</blockquote>
 刚试了下还能用，你按住空格再对着墙跑试试呢，我只装了4倍减速那一个被动，在家也可以穿出去<img src="https://ibb.co/gRr2F5r" id="aimg_uPc9D" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
+
+
+*****
+
+####  空集  
+##### 94#       发表于 2022-10-24 01:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 草 need you这关地图也太大了 而且一开始我完全没搞懂怎么过关 导致以为是要全清 然后我真把敌人全清了 一开始连续不小心被敌人黑客黑死几次 导致后面我只敢开局直奔overlord杀穿 然后代码链条把炮塔和摄像机黑完后pilot一些敌人来打工 有一些强力敌人还挺好用 比如14甲7秒slug  或者能开无人机的 最后终于把包括隐藏boss的敌人全杀了 正面打其实也随便打只是重来代价太高怂了  到最后几个人头直接让肉球上了。这关设计元素也是挺丰富的，敌人全杀完后整个地图了解下来不同的思路过关方式实在是贼多，包括对于键盘人怎么处理。（当然这关我最吃瘪其实是剧情原因不让我用蠕虫了 导致走得太慢）
+

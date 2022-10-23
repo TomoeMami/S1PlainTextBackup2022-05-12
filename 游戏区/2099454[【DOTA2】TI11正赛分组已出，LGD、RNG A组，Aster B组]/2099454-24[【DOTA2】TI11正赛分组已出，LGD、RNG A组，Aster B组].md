@@ -8736,3 +8736,304 @@ ghost 猴爹 jt polon 小天shit
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  百世诸侯  
+##### 35578#       发表于 2022-10-24 01:01
+
+理性痛投：这等比赛的一周哥们摸鱼是玩P5R还是维多利亚3
+
+*****
+
+####  蛭人  
+##### 35579#       发表于 2022-10-24 01:01
+
+处长只会说可以啊也能打ti决赛。
+
+*****
+
+####  nowaki  
+##### 35580#       发表于 2022-10-24 01:01
+
+厨子自从预选回家就没碰过刀塔了 你们真以为下赛季有这人啊？
+
+
+
+*****
+
+####  尖刺外婆  
+##### 35581#       发表于 2022-10-24 01:01
+
+难以想像 skiter一个只会玩四个英雄的carry能混到胜绝
+
+*****
+
+####  OVTVO  
+##### 35582#       发表于 2022-10-24 01:01
+
+汉堡猫这几兄弟打兄弟dota不也挺好，从默默无名到大赛常客，每人也拿了三四十万刀奖金，也算是一个不大不小的dota传奇故事了。
+
+*****
+
+####  yyf奇遇记  
+##### 35583#       发表于 2022-10-24 01:01
+
+哥们建议4+2
+
+*****
+
+####  六娃  
+##### 35584#       发表于 2022-10-24 01:01
+
+森哥又不是不知道black来中国打职业是啥下场
+
+*****
+
+####  walfeds  
+##### 35585#       发表于 2022-10-24 01:02
+
+神之天平还没打完，打完了就开P5R坑
+
+*****
+
+####  windhawind2  
+##### 35586#       发表于 2022-10-24 01:02
+
+邪恶明鞭ti前宣布退役就跟yyf ti前宣布退役一样的ti血崩出局结果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过虽然去年没能拿到首个西恩双冠 但毕竟18岁不到就拿了ti冠军 也算是个萨特了 透支和偿还也算圆满了吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acacaclove  
+##### 35587#       发表于 2022-10-24 01:02
+
+我打守望2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在守望班子人数比我dota班子人都要多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  北条早苗  
+##### 35588#       发表于 2022-10-24 01:02
+
+有没有核中核op说一下乌克兰光头是如何畜化的，今年第一个major还能绝活ta英雄海带队友败者组通关的光头现在已经是不亚于a畜的虚空了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 35589#       发表于 2022-10-24 01:03
+
+overwatch这游戏不谈司马暴雪，幕刃有点太多了，17年就被恶心到afk
+
+*****
+
+####  蛭人  
+##### 35590#       发表于 2022-10-24 01:03
+
+油垃圾那把处级水人是对处长拙劣的模仿，好吧，还是有些经典的。
+
+*****
+
+####  acacaclove  
+##### 35591#       发表于 2022-10-24 01:04
+
+肯定是拉兄弟一起玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一个人肯定是去玩p5r啊
+
+*****
+
+####  walfeds  
+##### 35592#       发表于 2022-10-24 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069741&amp;ptid=2099454" target="_blank">北条早苗 发表于 2022-10-24 01:02</a>
+
+有没有核中核op说一下乌克兰光头是如何畜化的，今年第一个major还能绝活ta英雄海带队友败者组通关的光头现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">别问，问就是我也不懂
+
+*****
+
+####  yyf奇遇记  
+##### 35593#       发表于 2022-10-24 01:04
+
+东野魁梧粉丝是被网暴到锁评论区了吗，我去他微博看了一圈居然没有最近一周的新回复
+
+*****
+
+####  勤练带来力量  
+##### 35594#       发表于 2022-10-24 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069728&amp;ptid=2099454" target="_blank">尖刺外婆 发表于 2022-10-24 01:01</a>
+难以想像 skiter一个只会玩四个英雄的carry能混到胜绝</blockquote>
+他队友33就兽王蜘蛛死灵龙doom现在还是队内大腿呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 35595#       发表于 2022-10-24 01:04
+
+ow apex 瓦洛兰特里的幕刃都特别多 哥们打日服宰猪把把有声音好听的jk
+
+*****
+
+####  OVTVO  
+##### 35596#       发表于 2022-10-24 01:04
+
+karl我一直觉得很厉害，可惜没玩过KUKU，希望他明年能在东南亚关kuku一年。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 35597#       发表于 2022-10-24 01:04
+
+不是，妮懂33的大祭品潮汐吗，力中暴力
+
+*****
+
+####  蛭人  
+##### 35598#       发表于 2022-10-24 01:05
+
+好呀，暴白也开始了是吧。
+
+*****
+
+####  北条早苗  
+##### 35599#       发表于 2022-10-24 01:05
+
+猴爹肯定是和面八绑定的，面八死也是喝ru水的鬼，文爱胖子明年应该要玉玉了，水厂明年找不到能给a畜当纸尿裤的3号位就可以欣赏更多畜生场景了
+
+*****
+
+####  六娃  
+##### 35600#       发表于 2022-10-24 01:06
+
+打鳖星的时候33看到批九先手开车直接毫不犹豫bkbtp，我只能说，这个队很强，强到可以不顾菜逼队友的面子
+
+*****
+
+####  反方向的波  
+##### 35601#       发表于 2022-10-24 01:07
+
+兽王蜘蛛死灵龙doom潮汐够用了
+去年崩溃马尔斯猛犸潮汐末日4个就通关了
+
+*****
+
+####  蛭人  
+##### 35602#       发表于 2022-10-24 01:07
+
+所以很难想象批九这样的中单已经锁定前三了，真行啊。
+
+*****
+
+####  六娃  
+##### 35603#       发表于 2022-10-24 01:07
+
+猴爹已经和邪恶懿萍约好下赛季开混了，只有文爱肥猪还在琢磨怎么讨A畜欢心
+
+*****
+
+####  勤练带来力量  
+##### 35604#       发表于 2022-10-24 01:07
+
+想了想ti8的23457太tm吊了，畜生今年要是拿出那水人的一半功力23458应该直接就小组赛滚蛋了，当年居然能硬生生抗到冠军盾面前<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 35605#       发表于 2022-10-24 01:07
+
+刚才刷到一条消息把哥们气乐了，pgl和v🐍居然没有给所有队伍包房到ti结束，lgd和ta今天直接上飞机了
+
+*****
+
+####  nowaki  
+##### 35606#       发表于 2022-10-24 01:08
+
+很难想象水晶 zai 批九能在前四
+
+*****
+
+####  windhawind2  
+##### 35607#       发表于 2022-10-24 01:08
+
+至于kaka不会真的还要打吧。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这赛季中途加盟rng打进ti已经算是大力了 但自己快30岁了 已经阳了2次 ti表现肉眼可见的糟糕 新冠的后遗症不是很严重吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">万一之后出国比赛再来一次。。。
+
+*****
+
+####  哈曼的YY  
+##### 35608#       发表于 2022-10-24 01:08
+
+这不租个房留下来看个大结局?是怕冠了吗
+
+*****
+
+####  walfeds  
+##### 35609#       发表于 2022-10-24 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069815&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 01:07</a>
+
+刚才刷到一条消息把哥们气乐了，pgl和v🐍居然没有给所有队伍包房到ti结束，lgd和ta今天直接上飞机了 ...</blockquote>
+哦草，那是真的牛逼
+
+*****
+
+####  蛭人  
+##### 35610#       发表于 2022-10-24 01:08
+
+刚才刷到一条消息把哥们气乐了，pgl和v🐍居然没有给所有队伍包房到ti结束，lgd和ta今天直接上飞机了
+
+
+
+*****
+
+####  百世诸侯  
+##### 35611#       发表于 2022-10-24 01:08
+
+文爱肥猪目测有三百斤了吧，不知道哪天速通ICU了
+
+*****
+
+####  北欧王座  
+##### 35612#       发表于 2022-10-24 01:09
+
+厨子**傻逼，能不能认认真真搞一年，每天打工出来献丑不嫌丢人吗。都挣这么多钱了逼脸得要点吧。
+
+*****
+
+####  qwas  
+##### 35613#       发表于 2022-10-24 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58068676&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-24 00:03</a>
+我觉得下一个直播皇帝会在maybe和ame之间出来。到时候想吃这个饭，要么就是王哥要么就是路哥好吧。 ...</blockquote>
+你忘了去年撸狗猪直播盛况辣<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 35614#       发表于 2022-10-24 01:09
+
+pgl现在一切为了省钱和你闹呢。
+
+*****
+
+####  蛭人  
+##### 35615#       发表于 2022-10-24 01:09
+
+这届圈内恶评堪比上海水厂了，国内外水友到选手，这就度假社还装模作业说未来会更好，吐了。
+
+*****
+
+####  adretyu67  
+##### 35616#       发表于 2022-10-24 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069829&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-24 01:09</a>
+
+厨子**傻逼，能不能认认真真搞一年，每天打工出来献丑不嫌丢人吗。都挣这么多钱了逼脸得要点吧。 ...</blockquote>
+不是打不过，只是每队要。
+
+厨子今年dpc2就开练了，但是奈何sea区找不到队
+
