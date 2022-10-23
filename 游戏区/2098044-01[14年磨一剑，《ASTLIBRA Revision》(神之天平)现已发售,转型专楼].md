@@ -9061,3 +9061,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 这初始树枝练满了有啥好处啊,第三章了还只有一半不想用这个刮痧了
 
+
+
+*****
+
+####  lazycat233  
+##### 834#       发表于 2022-10-23 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58052366&amp;ptid=2098044" target="_blank">tmmd 发表于 2022-10-23 11:43</a>
+
+这初始树枝练满了有啥好处啊,第三章了还只有一半不想用这个刮痧了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就给个武器熟练度UP，没啥用，但是要满技能盘没事刷怪的适合切树枝就行
+
