@@ -9650,3 +9650,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 斗技场会长 boss 怎么解锁啊，终章把全部挑战都打完了也没有，必须要新章吗 ...</blockquote>
 对，就算是新章任务也是最后一个。
 
+
+
+*****
+
+####  何处分可  
+##### 890#       发表于 2022-10-24 00:12
+
+第五章带不带白有什么影响吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
