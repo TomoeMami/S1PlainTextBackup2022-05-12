@@ -9021,3 +9021,16 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58050669&amp;ptid=2098044" target="_blank">tgwing 发表于 2022-10-22 19:17</a></blockquote>
 早知道应该开局选荒谬这样随便设置里换任意一档难度，他这个设定就很怪，选的开局难度是你设置里能更改的最高难度就很不合理
 
+
+
+*****
+
+####  Leona_Akari  
+##### 830#       发表于 2022-10-23 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58049277&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-23 06:31</a>
+1费的氧气技能是浅水区有效，所以一人高的地方不扣氧气，再深就扣了。4章有没有那个大幅度提高适应力的技 ...</blockquote>
+1费那个我知道，我就是想问在我什么装备都没有更换的情况下，有时候下水扣氧气，有时候又不扣，是什么原因……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
