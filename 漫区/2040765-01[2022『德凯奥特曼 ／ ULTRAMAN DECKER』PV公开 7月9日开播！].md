@@ -1030,3 +1030,15 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  DARKGRAY  
+##### 704#       发表于 2022-10-23 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58050489&amp;ptid=2040765" target="_blank">待宵 发表于 2022-10-23 10:05</a>
+
+不可能是什么本体啊，奏大的后代怎么就变奥了，总不能基因变异吧</blockquote>
+顺便致敬一下戴拿的人造奥就是了，比如这次是真能在正面意义上让戴拿协助造一个，但也得选对人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
