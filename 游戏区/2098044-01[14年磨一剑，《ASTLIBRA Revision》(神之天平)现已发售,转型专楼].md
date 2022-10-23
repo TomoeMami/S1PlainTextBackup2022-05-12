@@ -8987,3 +8987,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 二周目武器盘属性是叠加的么，一个装备最多几个属性盘
 
+
+
+*****
+
+####  tgwing  
+##### 827#       发表于 2022-10-23 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58049498&amp;ptid=2098044" target="_blank">startea15 发表于 2022-10-23 08:08</a>
+
+朋友不会也是打了普通难度发现差个困难成就但又不想重新新档打一次hard以上的情况吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
