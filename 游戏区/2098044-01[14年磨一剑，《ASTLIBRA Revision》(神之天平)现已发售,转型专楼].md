@@ -9452,3 +9452,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 火山boss也太粪了吧，火球挡着没办法对本体造成伤害不说还会附加流血
 
+
+
+*****
+
+####  御坂MKII  
+##### 872#       发表于 2022-10-23 22:11
+
+金箱子是遇到了就开吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 怎么二阶史莱姆也有金箱子
+

@@ -12239,3 +12239,14 @@ CW是葛佳慧写的，感觉曲调应该也很适合中文市场，最好来个
 
 葛佳慧去日本后除了给鱼写过还有给别人写么，我一开始看资料她应该是创作歌手吧，类似灯？
 
+
+
+*****
+
+####  愛さ実  
+##### 8609#       发表于 2022-10-23 22:11
+
+草，鲤鱼说三单没有特别喜欢的地方，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
