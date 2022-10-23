@@ -9443,3 +9443,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 这个游戏alt+tab回桌面会闪退啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sopp  
+##### 871#       发表于 2022-10-23 21:50
+
+火山boss也太粪了吧，火球挡着没办法对本体造成伤害不说还会附加流血
+

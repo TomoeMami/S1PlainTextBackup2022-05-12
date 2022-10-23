@@ -3655,3 +3655,17 @@ DGG预定2年左右
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这对青少年的影响不可估量
 
+
+
+*****
+
+####  新HGCG  
+##### 358#       发表于 2022-10-23 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58063165&amp;ptid=2018235" target="_blank">子夜微雪 发表于 2022-10-23 20:10</a>
+
+为什么上一集的触手没有传出去，虎之助表示很难受
+
+—— 来自 S1Fun</blockquote>
+虎之助不是美少年
+
