@@ -80,3 +80,12 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  苍蓝之枪  
+##### 43642#       发表于 2022-10-23 23:29
+
+活动期间居然爆体了，看来实在是太咸鱼了......
+

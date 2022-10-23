@@ -590,3 +590,12 @@ Paparazi灬稳健成熟，经验丰富；OldEleven敢打敢拼，曾在Ti7赛季
 即日起，二号位选手Paparazi灬（张成俊）、三号位选 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我的兄弟很强，不用你带
 
+
+
+*****
+
+####  Litccc  
+##### 67#       发表于 2022-10-23 23:22
+
+nowaki❤unhaopytails永远的好朋友
+
