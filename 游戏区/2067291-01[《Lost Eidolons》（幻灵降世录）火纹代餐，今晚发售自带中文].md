@@ -2022,3 +2022,24 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 玩到17章了，什么项羽与刘邦，棒子制作人也这么喜欢中国历史吗？
 
+
+
+*****
+
+####  tand177  
+##### 174#       发表于 2022-10-23 23:22
+
+<img src="https://img.saraba1st.com/forum/202210/23/231413asir18uuqiv8tuqt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (44.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 23:14 上传
+
+总算是顶着BUG打完了项羽，没能做成无死人成就的原因竟然是和加斯帕的那场交手，只能说不愧是秦帝国最后的荣耀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+游玩的下来最大的感想还是，早就应该有以楚汉争霸为背景的游戏了，但以这样的形式确实是出乎意料的
+
+其实我还挺希望制作组魔改一下，比如克拉拉也幻灵附身，自立齐王，三方混战，感受一下IF世界线，不过可能有些过于苛求制作组了
+

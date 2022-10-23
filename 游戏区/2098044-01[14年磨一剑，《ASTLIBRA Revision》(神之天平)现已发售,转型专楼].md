@@ -9591,3 +9591,14 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 第一章剧情拿到的红罐子，使用一下。</blockquote>
 已过，感谢
 
+
+
+*****
+
+####  Leona_Akari  
+##### 884#       发表于 2022-10-23 23:11
+
+调到角度了，感谢楼上几位朋友
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

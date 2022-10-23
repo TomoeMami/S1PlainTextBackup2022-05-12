@@ -576,3 +576,17 @@ Paparazi灬稳健成熟，经验丰富；OldEleven敢打敢拼，曾在Ti7赛季
 
 最后，感谢粉丝们对 LGD 战队以及选手们的喜爱与支持！
 
+
+
+*****
+
+####  jy000129  
+##### 66#       发表于 2022-10-23 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067278&amp;ptid=2101137" target="_blank">灰色的狐狸 发表于 2022-10-23 22:57</a>
+
+【LGD电子竞技俱乐部人员加盟及新赛季阵容变动公告】
+
+即日起，二号位选手Paparazi灬（张成俊）、三号位选 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我的兄弟很强，不用你带
+
