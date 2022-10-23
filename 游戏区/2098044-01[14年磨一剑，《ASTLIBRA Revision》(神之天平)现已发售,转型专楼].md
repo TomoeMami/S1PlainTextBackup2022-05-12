@@ -9422,3 +9422,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 拿到神杀剑打九章boss，不愧是老大，和前面的完全不一样，输出窗口少伤害高破防还强，比耐心的时候到了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔洵千夜  
+##### 869#       发表于 2022-10-23 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58063919&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-23 20:39</a>
+第七章有个距离超远的悬崖，该怎么才能跳过去？</blockquote>
+龙靴+空中跃动=三段跳
+三段跳+弹跳鞋+（空剑+八门引擎+空步）×N连发+伊卡洛斯之翼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

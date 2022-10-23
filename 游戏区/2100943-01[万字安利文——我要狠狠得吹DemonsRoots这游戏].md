@@ -1103,3 +1103,15 @@ steam版的KE下架了是因为6元社的原因，和游戏内容无关<img src=
 能比blackSouls有趣就去试一试</blockquote>
 DR肯定不过blackSouls2，不过也是挺优秀的作品，玩了不亏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布里兰特  
+##### 63#       发表于 2022-10-23 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054962&amp;ptid=2100943" target="_blank">wingzerocos 发表于 2022-10-23 13:54</a>
+
+评价游戏从制作工具下手的话那俄罗斯方块想必也是小众神作。</blockquote>
+但是RM做的游戏看起来就是很廉价啊，怎么还能碰瓷俄罗斯方块的？
+
