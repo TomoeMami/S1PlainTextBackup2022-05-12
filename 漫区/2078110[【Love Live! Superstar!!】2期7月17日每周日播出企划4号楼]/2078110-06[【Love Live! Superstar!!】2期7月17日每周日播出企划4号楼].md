@@ -12282,3 +12282,37 @@ CW是葛佳慧写的，感觉曲调应该也很适合中文市场，最好来个
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8612#       发表于 2022-10-23 22:29
+
+ <blockquote>私ずっっっっっっと出したかったんです。。。！！
+
+やっと世に出せますっ！！！
+
+＼なぎちゃ〜〜〜〜ん🐤🐤🐤／
+
+ﾊｲｯ！ﾊｲｯ！まだヒヨコになってないよ〜ﾊｲｯ！ﾊｲｯ！ふりふりふりﾊﾟｧｰ＼(^o^)／
+
+完全深夜テンションな我々😎🎊
+
+私の笑い声がうるさくてごめんよ～</blockquote>[铃原希実推特小视频2022-10-23 21:19:13](https://www.bilibili.com/video/BV1YG411L7JB)<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/23/222813faxgvtx4on3zgewr.png" referrerpolicy="no-referrer">
+
+<strong>鈴原希実推特小视频2022-10-23 21 19 13 @00-00.00 1666535167290.png</strong> (49.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 22:28 上传
+
+*****
+
+####  优妮可  
+##### 8613#       发表于 2022-10-23 22:30
+
+这会流拍的吗
+
