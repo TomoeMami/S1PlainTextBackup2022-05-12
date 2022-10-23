@@ -9105,3 +9105,19 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 打完第六章寻思回头清清ex没想到第三个就卡住了……好不容易爬过了道中，结果跟龙神对搓一晚上也没打过去昏 ...</blockquote>
 过了石化就换下来呀，开菜单是时停的，同理打崩了也可以换上狂暴，崩完再下掉
 
+
+
+*****
+
+####  何处分可  
+##### 838#       发表于 2022-10-23 13:32
+
+第四章比我想象的要简单一点，上蛇神岛以后一路上就只有开头有商店，后面都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何处分可  
+##### 839#       发表于 2022-10-23 13:33
+
+第四章比我想象的要简单一点，上蛇神岛以后一路上就只有开头有商店，后面都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
