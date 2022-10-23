@@ -9084,3 +9084,12 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 这些神是给一周目打的吗？太吓人了，这飞行道具乱放的，蹭两下就没了</blockquote>
 打完第八章再去就都是白给了。
 
+
+
+*****
+
+####  h33  
+##### 836#       发表于 2022-10-23 12:04
+
+新章打完蛇神出不了地图什么情况，读了打boss前的存档再打一遍也一样<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

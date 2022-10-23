@@ -3299,3 +3299,21 @@ xgp版的更新1.0了么
 
 现在感觉十字架特别猛 斧子圣水有点弟弟 前期千万别拿六芒星
 
+
+
+*****
+
+####  藤井紫  
+##### 322#       发表于 2022-10-23 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58051938&amp;ptid=2052594" target="_blank">zzy516232108 发表于 2022-10-23 11:23</a>
+现在这游戏该怎么玩？
+
+初版玩的是双鸟圣水什么的</blockquote>
+鸟退环境了
+法歌/圣经/蒜拿个保底护身
+然后白书加攻速，拿点大范围武器就好
+后期开放月桂冰枪进化就留两个位置
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
