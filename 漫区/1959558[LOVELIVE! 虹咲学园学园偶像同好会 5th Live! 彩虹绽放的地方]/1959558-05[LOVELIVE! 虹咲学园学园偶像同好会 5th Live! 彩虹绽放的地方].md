@@ -90,3 +90,15 @@ azn的新歌还可以，感觉除了游乐园外一直在试不同的风格
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 6573#       发表于 2022-10-23 19:19
+
+Q4三单
+<img src="https://p.sda1.dev/7/f52edb92e671bff6fc29d4ddd03f7390/CMP_20221023191912940.jpg" referrerpolicy="no-referrer">
+小组live
+<img src="https://p.sda1.dev/7/f0353723156d58aea8980014ba6d924a/CMP_20221023191931415.jpg" referrerpolicy="no-referrer">
+
