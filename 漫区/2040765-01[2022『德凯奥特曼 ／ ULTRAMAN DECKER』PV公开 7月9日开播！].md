@@ -1005,3 +1005,28 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 就是那么狂的话变身奇迹型上去闪现吃技能也太搞了
 
+
+
+*****
+
+####  待宵  
+##### 702#       发表于 2022-10-23 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58048239&amp;ptid=2040765" target="_blank">浅川雏羽 发表于 2022-10-23 00:35</a>
+
+所以是不是可以简单的理解成仁叔是本体型凹凸曼，然后祖宗奏大是他的人间体？
+
+类似于人型乔尼亚斯和光超一 ...</blockquote>
+不可能是什么本体啊，奏大的后代怎么就变奥了，总不能基因变异吧
+
+*****
+
+####  浅川雏羽  
+##### 703#       发表于 2022-10-23 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58050489&amp;ptid=2040765" target="_blank">待宵 发表于 2022-10-23 10:05</a>
+不可能是什么本体啊，奏大的后代怎么就变奥了，总不能基因变异吧</blockquote>
+这有啥不可能的，t的本体跑路之后圆大悟就是t了，甚至他儿子圆翼都能沾光变个十米级的t出来
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
