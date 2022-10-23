@@ -1621,3 +1621,17 @@ Fixed a bug preventing the player from snapping back from an exploded landmine. 
 真的很好奇一直都不死天天接任务把债还完了会怎么样。。</blockquote>
 根据蒸汽上一个游戏80小时写了很长攻略的人的说法 半路换完钱就是有不同的结局但是主线任务会不刷新了 然后最终任务死了加10E存款 。 其实要体验开个档然后让the dog帮你还好像是一样的
 
+
+
+*****
+
+####  Tring  
+##### 91#         楼主| 发表于 2022-10-23 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58066543&amp;ptid=2095187" target="_blank">cherry__ 发表于 2022-10-23 22:26</a>
+
+真的很好奇一直都不死天天接任务把债还完了会怎么样。。</blockquote>
+和让狗子还钱一样。
+
+资本主义吸血鬼才不在乎你还的钱是哪来的呢。
+

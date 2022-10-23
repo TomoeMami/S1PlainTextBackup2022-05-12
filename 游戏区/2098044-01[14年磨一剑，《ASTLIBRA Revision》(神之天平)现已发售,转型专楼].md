@@ -9498,3 +9498,32 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 <img src="https://img.saraba1st.com/forum/202210/23/224820ifxt7uviztizxflu.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  孔祈  
+##### 876#       发表于 2022-10-23 22:59
+
+这里怎么过，根据攻略调角度，射了40多弓箭也点不着<img src="https://p.sda1.dev/7/90730e1a1a5df233d09804feb365c8a5/image.png" referrerpolicy="no-referrer">
+
+*****
+
+####  五块  
+##### 877#       发表于 2022-10-23 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067315&amp;ptid=2098044" target="_blank">孔祈 发表于 2022-10-23 22:59</a>
+
+这里怎么过，根据攻略调角&amp;#x5 ...</blockquote>
+先要淋松脂。
+
+*****
+
+####  五块  
+##### 878#       发表于 2022-10-23 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067057&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-23 22:49</a>
+
+这里用啥解？我试过弓弩还有回旋镖都打不进去。。。</blockquote>
+我没印象卡这，所以弩应该是可以进去的，不行试试前一个台阶跳起来扔飞刀？
+

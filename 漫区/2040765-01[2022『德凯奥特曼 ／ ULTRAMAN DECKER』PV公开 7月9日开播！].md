@@ -1051,3 +1051,14 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我倒觉得是剧本拯救了表演
 
+
+
+*****
+
+####  Case  
+##### 706#       发表于 2022-10-23 22:57
+
+奇迹型闪现接技能.gif 这段感觉要成为德凯经典黑历史了。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太下饭了。
+

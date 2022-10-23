@@ -4361,3 +4361,463 @@ midone或者abed吧。
 —— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 牧师啊，19年还在茶队打
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 35051#       发表于 2022-10-23 22:51
+
+？？？怎么都看不起mushi？
+
+当时少数能跟dendi 430打的中单好吧
+
+*****
+
+####  六娃  
+##### 35052#       发表于 2022-10-23 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067059&amp;ptid=2099454" target="_blank">OVTVO 发表于 2022-10-23 22:49</a>
+去年看到我还不太信，老哥理解确实比我强多了。老哥看好NTS离开AME后焕发活力吗？ ...</blockquote>
+他是最纯正的面八弟子+塞拉亲传，打法保持不上不下的样子肯定可以打很多年的，只不过巅峰会很短
+
+*****
+
+####  星野航  
+##### 35053#       发表于 2022-10-23 22:51
+
+崩溃这老哥太nm真了，复盘打阿茶第一把肉山团，直言布查小胖的巨魔p也没干，我大兽把电棍快打烂了，你巨魔跟上敲两下就死了
+
+这有点审判处长的味儿了
+
+<img src="https://img.saraba1st.com/forum/202210/23/235121enilole1aiz12grr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (318.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 22:51 上传
+
+*****
+
+####  六娃  
+##### 35054#       发表于 2022-10-23 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067103&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-23 22:51</a>
+？？？怎么都看不起mushi？
+
+当时少数能跟dendi 430打的中单好吧</blockquote>
+不是把dondo打出屎？
+
+*****
+
+####  yyf奇遇记  
+##### 35055#       发表于 2022-10-23 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067119&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-23 22:51</a>
+不是把dondo打出屎？</blockquote>
+谦虚一哈
+
+*****
+
+####  sodah  
+##### 35056#       发表于 2022-10-23 22:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还打不打兄弟dota拉
+
+*****
+
+####  walfeds  
+##### 35057#       发表于 2022-10-23 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067107&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-23 22:51</a>
+
+崩溃这老哥太nm真了，复盘打阿茶第一把肉山团，直言布查小胖的巨魔p也没干，我大兽把电棍快打烂了，你巨魔 ...</blockquote>
+青蒜，都可以青蒜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以雪碧啥时候拆队啊
+
+*****
+
+####  nowaki  
+##### 35058#       发表于 2022-10-23 22:52
+
+德张两年力中暴力，就因为这届ti换版本不适应就要背全部的锅，明明除了33这种妖路子没3适应这个版本，但德张就得背全部锅，让人爆笑。
+
+猴爹打nisha之前一直扛着队前进的，被nisha打炸之后失去自信现在也要被清算，不知道未来明年有没有一线队饭吃。
+
+文爱胖子和脑浆y就很懂，打得好不好不重要，保护好哥哥最重要，跟着哥哥三打五送了也是绝望一搏，电棍 tk再力中暴力，有一天输了锅就全是你的。
+
+*****
+
+####  yyf奇遇记  
+##### 35059#       发表于 2022-10-23 22:53
+
+啥时候直播宣布把天赋带到北美啊
+
+*****
+
+####  六娃  
+##### 35060#       发表于 2022-10-23 22:53
+
+毛子队一直都这样，要吵架就当面吵，吵到过于激烈就散伙
+不是谁踢人都跟A畜一样阴阳怪气
+
+*****
+
+####  星野航  
+##### 35061#       发表于 2022-10-23 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067051&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-23 23:48</a>
+
+荔枝讨论，保质期最长的虾之国中单是谁?
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+midone跟mushi吧
+
+有高度，也有长度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 35062#       发表于 2022-10-23 22:53
+
+引用“而这么多数值怪物的版本英雄，人家根本不想理你。
+我只恨这不是一个一号位的版本，数值怪物全tm是2，3号位。”
+ti8不是一号位的版本吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 35063#       发表于 2022-10-23 22:54
+
+牛批，原来外面风向已经是欧尼酱ti11力中暴力23458坑窝giegie了
+卜过好像也没说错，对欧尼酱而言庸庸碌碌已经是力中暴力了
+
+*****
+
+####  adretyu67  
+##### 35064#       发表于 2022-10-23 22:54
+
+问题是国师大半生涯算在do1里啊
+
+*****
+
+####  你可以试试  
+##### 35065#       发表于 2022-10-23 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">大家给尾巴一个面子吧
+
+*****
+
+####  nowaki  
+##### 35066#       发表于 2022-10-23 22:54
+
+然而哥哥连一把丁真水人极限翻盘的局都找不到
+
+*****
+
+####  安斧天高辽  
+##### 35067#       发表于 2022-10-23 22:55
+
+mushi吧，dota1时就出道了，ti5还能打中单呢
+
+*****
+
+####  非建政专用号  
+##### 35068#       发表于 2022-10-23 22:55
+
+马来人肯定有饭吃，打不过nisha还不能碰碰国内中单，实在不行润回虾之国也是唯一虾影
+
+*****
+
+####  walfeds  
+##### 35069#       发表于 2022-10-23 22:55
+
+不过猴爹的职业生涯确实有点堪忧，坏起来说不定要浪迹天涯
+
+*****
+
+####  yyf奇遇记  
+##### 35070#       发表于 2022-10-23 22:55
+
+mushi ti3的发挥已经完爆所有东南亚中单/大哥了
+
+
+
+*****
+
+####  星野航  
+##### 35071#       发表于 2022-10-23 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067136&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-23 23:52</a>
+
+青蒜，都可以青蒜
+
+所以雪碧啥时候拆队啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一个乌克兰小胖爱国之名好吧
+
+（只能说雪碧这帮毛子突出一个说话直来直去，真视界不就是这味儿了
+
+*****
+
+####  walfeds  
+##### 35072#       发表于 2022-10-23 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067189&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-23 22:54</a>
+
+大家给尾巴一个面子吧</blockquote>
+为什么要给尾巴面子？
+
+*****
+
+####  TI三冠王AME  
+##### 35073#       发表于 2022-10-23 22:56
+
+游戏区今天7200回复，TI楼靠复读刷了6000条，莥芘
+
+*****
+
+####  nowaki  
+##### 35074#       发表于 2022-10-23 22:56
+
+中单只要丧失信心很快就捞比了
+
+*****
+
+####  非建政专用号  
+##### 35075#       发表于 2022-10-23 22:56
+
+别尬黑，我没复读过
+
+*****
+
+####  勤练带来力量  
+##### 35076#       发表于 2022-10-23 22:56
+
+我是感觉猴爹的灵性给a畜当了两年的舔狗越打越少了
+
+*****
+
+####  朝游北海  
+##### 35077#       发表于 2022-10-23 22:56
+
+一号位版本ame拿头比k1，到时候就是刷三十分钟暴走局了，回家没把壳揭下来够给面子了。
+
+*****
+
+####  Concrete  
+##### 35078#       发表于 2022-10-23 22:56
+
+今晚这两队打的才叫dota，国内那两只队伍打的什么鬼。过几天等着被血虐😅
+
+*****
+
+####  yyf奇遇记  
+##### 35079#       发表于 2022-10-23 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067197&amp;ptid=2099454" target="_blank">安斧天高辽 发表于 2022-10-23 22:55</a>
+mushi吧，dota1时就出道了，ti5还能打中单呢</blockquote>
+19年还在茶队当唯一大爹呢
+
+*****
+
+####  反方向的波  
+##### 35080#       发表于 2022-10-23 22:57
+
+年代久远，淳印象，卜是a盾风行是不是就是mushit上去打A队了
+当然navi决赛打的比败决要好
+
+*****
+
+####  adretyu67  
+##### 35081#       发表于 2022-10-23 22:57
+
+雪碧拆队等新故事吧。暂时还找不到谁要来加入或者谁要把天赋带到XXX的消息。
+
+VP也就踢了个666
+
+*****
+
+####  米德  
+##### 35082#       发表于 2022-10-23 22:57
+
+游戏区今天7200回复，TI楼靠复读刷了6000条，莥芘
+
+*****
+
+####  Asukalangley33  
+##### 35083#       发表于 2022-10-23 22:57
+
+量子鞭一把斧王 一把熊猫力中暴力带躺
+不到24小时就要被青蒜是吧？
+
+看来艹艹那句不要赛前发退役声明的忠告又可以写一本书了
+
+*****
+
+####  jk9hot  
+##### 35084#       发表于 2022-10-23 22:57
+
+无论是23457的5还是23458的2，虾圈选手离开水厂以后都比较难再起势。灵性都被磨灭完了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  OVTVO  
+##### 35085#       发表于 2022-10-23 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067140&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-23 22:52</a>
+
+德张两年力中暴力，就因为这届ti换版本不适应就要背全部的锅，明明除了33这种妖路子没3适应这个版本，但德 ...</blockquote>
+小明鞭我觉得不是状态问题，我感觉主要还是LGD整体对3号位大祭品的理解有问题，使小明鞭打起来非常难受。我是觉得如果LGD让小明鞭和xinQ采用今天茶队的经济分配方式，他们还是很可能继续前进的。
+
+*****
+
+####  六娃  
+##### 35086#       发表于 2022-10-23 22:58
+
+navi决赛属于是4分C力中暴力了，那炼金真的赏心悦目
+瑞秃的决赛表现其实是接近被碾压的
+
+*****
+
+####  walfeds  
+##### 35087#       发表于 2022-10-23 22:58
+
+量子鞭看来没熟读《情商》
+
+*****
+
+####  非建政专用号  
+##### 35088#       发表于 2022-10-23 22:58
+
+量子鞭躺下也是被清算，站起来也是被清算，为什么不给窝克送个前六?我先清算他去了
+
+*****
+
+####  勤练带来力量  
+##### 35089#       发表于 2022-10-23 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067270&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-23 22:57</a>
+量子鞭一把斧王 一把熊猫力中暴力带躺
+不到24小时就要被青蒜是吧？</blockquote>
+楼友们下午不都统一认为斧王越用力，待会回家了被清算就越狠
+
+*****
+
+####  adretyu67  
+##### 35090#       发表于 2022-10-23 22:58
+
+ 本帖最后由 adretyu67 于 2022-10-23 23:00 编辑 
+
+这很正常啊。你可以用力carry仙贝99把，只要最后1把没兜住，锅就是你的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+阿灵顿major g4张润德够努力了吧，他电棍够顺了吧？指定电棍宰猪三件套假腿bkb刷新都做完了结果还是没了
+
+赛后：这电棍怎么关键团被先手不开bkb？
+
+*****
+
+####  星野航  
+##### 35091#       发表于 2022-10-23 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067253&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-23 23:57</a>
+
+年代久远，淳印象，卜是a盾风行是不是就是mushit上去打A队了
+
+当然navi决赛打的比败决要好 ...</blockquote>
+是啊，那场a队看着，瑞典秃头就已经在准备打橘子了    
+
+*****
+
+####  yyf奇遇记  
+##### 35092#       发表于 2022-10-23 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067270&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-23 22:57</a>
+量子鞭一把斧王 一把熊猫力中暴力带躺
+不到24小时就要被青蒜是吧？</blockquote>
+所以宝儿被点🌿是有道理的啊
+
+*****
+
+####  轮太  
+##### 35093#       发表于 2022-10-23 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58066798&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-23 22:37</a>
+
+哪门子的赛前预测能把OG搞成三幻神的</blockquote>
+OG上个比赛决赛暴揍了茶，因为这个
+
+*****
+
+####  六娃  
+##### 35094#       发表于 2022-10-23 22:59
+
+量子鞭的大鱼和斧王证明了他还是顶尖三号位，只不过曾经英雄海的他现在只有拿老手艺有信心了
+
+*****
+
+####  Asukalangley33  
+##### 35095#       发表于 2022-10-23 22:59
+
+文爱胖子估计是队里《情商》读的最好的
+连续逃过青蒜
+
+明明论犯罪，他也是排的上号的
+
+*****
+
+####  银翼的维罗西  
+##### 35096#       发表于 2022-10-23 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067260&amp;ptid=2099454" target="_blank">米德 发表于 2022-10-23 22:57</a>
+
+游戏区今天7200回复，TI楼靠复读刷了6000条，莥芘</blockquote>
+刀楼四大流量巨星今天登场了三个好吧
+
+*****
+
+####  星野航  
+##### 35097#       发表于 2022-10-23 23:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">有一说一确实，ti3决赛，四爷是第一功臣好吧，无论哪盘，没四爷，秃头这冠军绝壁拿不来
+
+*****
+
+####  acacaclove  
+##### 35098#       发表于 2022-10-23 23:00
+
+文爱胖子天天整点花活不会觉得我看不到吧
+
+*****
+
+####  六娃  
+##### 35099#       发表于 2022-10-23 23:00
+
+文爱胖子一个16岁就进同福吃菜的老油条，真以为他把冠军看得有多重呢
+
+*****
+
+####  逃离二次元  
+##### 35100#       发表于 2022-10-23 23:00
+
+刀楼四大流量巨星今天登场了三个好吧
+
+
+
+*****
+
+####  非建政专用号  
+##### 35101#       发表于 2022-10-23 23:00
+
+哪四大巨星
+
+*****
+
+####  walfeds  
+##### 35102#       发表于 2022-10-23 23:00
+
+og也算是被版本干住了，妮让atm反自己的英雄池然后出怨灵当工具人不是要他的命
+

@@ -3375,3 +3375,24 @@ xgp版的更新1.0了么
 
 刷了一周末 开始拿双枪 时停以后眼睛要闪瞎了
 
+
+
+*****
+
+####  415452356  
+##### 329#       发表于 2022-10-23 23:01
+
+  
+
+<img src="https://img.saraba1st.com/forum/202210/23/230103petfnts9zs0v9trs.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (476.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 23:01 上传
+
+  我还以为会是致敬月下的二阶段德古拉，还是有点小失望。
+
+  
+
