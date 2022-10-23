@@ -1635,3 +1635,20 @@ Fixed a bug preventing the player from snapping back from an exploded landmine. 
 
 资本主义吸血鬼才不在乎你还的钱是哪来的呢。
 
+
+
+*****
+
+####  Tring  
+##### 92#         楼主| 发表于 2022-10-23 23:01
+
+ 本帖最后由 Tring 于 2022-10-23 23:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58063844&amp;ptid=2095187" target="_blank">iellywake 发表于 2022-10-23 20:36</a>
+
+the world和自带的F时间减速可以叠加，这时候再用那个自身不受时间减速影响的技能会出现bug，斜着走能直接 ...</blockquote>
+艹，为啥我这穿不了墙？我还试了装那个slug速度4倍的被动，画面都卡起来了，也穿不了。
+
+最多有时候撞墙能撞到一瞬间有墙后面视野，但是马上又会被弹回墙这边。
+
+是因为你装了什么奇怪被动？还是今天更新已经修复了这BUG？还是在家里触发不了？
+

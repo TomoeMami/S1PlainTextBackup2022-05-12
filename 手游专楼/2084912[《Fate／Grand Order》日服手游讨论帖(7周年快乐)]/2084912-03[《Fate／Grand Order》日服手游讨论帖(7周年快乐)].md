@@ -2729,3 +2729,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 不清楚啊，他那个签到页面只跳了一次，后面再没跳过，第一天的奖励也没发
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3238#       发表于 2022-10-23 23:04
+
+想起要刷狗粮的时候不在家没刷，回家之后58分才想起来，来不及了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

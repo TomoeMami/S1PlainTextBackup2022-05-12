@@ -4821,3 +4821,305 @@ OG上个比赛决赛暴揍了茶，因为这个
 
 og也算是被版本干住了，妮让atm反自己的英雄池然后出怨灵当工具人不是要他的命
 
+
+
+*****
+
+####  勤练带来力量  
+##### 35103#       发表于 2022-10-23 23:00
+
+集美们不是都这样4年了，集美们的脑子里都是自动过滤队友带a畜生躺的局的，但只要你有一把兜不住a畜生犯罪那可就大事来了
+
+*****
+
+####  yyf奇遇记  
+##### 35104#       发表于 2022-10-23 23:01
+
+杜鹏/马桶 骄阳a畜 梅鳖
+
+*****
+
+####  tasuku  
+##### 35105#       发表于 2022-10-23 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067306&amp;ptid=2099454" target="_blank">轮太 发表于 2022-10-23 22:59</a>
+
+OG上个比赛决赛暴揍了茶，因为这个</blockquote>
+你说的那个og是这个og？
+
+*****
+
+####  Asukalangley33  
+##### 35106#       发表于 2022-10-23 23:01
+
+集美再怎么青蒜量子鞭也没用
+
+建议学jk罗琳怼hater，量子鞭直接微博发一个泉水盾牌上ti6自己的名字
+
+*****
+
+####  acacaclove  
+##### 35107#       发表于 2022-10-23 23:01
+
+酶鳖到底打不打
+
+*****
+
+####  yyf奇遇记  
+##### 35108#       发表于 2022-10-23 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067350&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-23 23:00</a>
+og也算是被版本干住了，妮让atm反自己的英雄池然后出怨灵当工具人不是要他的命 ...</blockquote>
+最后2手单车不搬血魔太搞笑了
+
+*****
+
+####  OVTVO  
+##### 35109#       发表于 2022-10-23 23:02
+
+我一直觉得XINQ和AME是差不多水平的选手，靠的就是一手情商。
+
+*****
+
+####  acacaclove  
+##### 35110#       发表于 2022-10-23 23:02
+
+我是张润德我就说“家里盾上有我名字，有你名字吗？”
+
+*****
+
+####  反方向的波  
+##### 35111#       发表于 2022-10-23 23:02
+
+四大流量明星没有克里斯？
+
+*****
+
+####  非建政专用号  
+##### 35112#       发表于 2022-10-23 23:03
+
+为什么四大明星没我克里斯，哭了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 35113#       发表于 2022-10-23 23:03
+
+核中核是maybe真的不打了 不过也可能学普森打预选
+
+*****
+
+####  Troywest  
+##### 35114#       发表于 2022-10-23 23:03
+
+雪碧啥情况，崩溃哥要处刑彩笔队友了么？
+
+*****
+
+####  seki_m  
+##### 35115#       发表于 2022-10-23 23:03
+
+《情商》已经禁了周知
+
+*****
+
+####  逃离二次元  
+##### 35116#       发表于 2022-10-23 23:04
+
+四大流量明星没有克里斯？
+
+*****
+
+####  acacaclove  
+##### 35117#       发表于 2022-10-23 23:04
+
+四大流量明星没有克里斯？
+
+*****
+
+####  勤练带来力量  
+##### 35118#       发表于 2022-10-23 23:04
+
+ 本帖最后由 勤练带来力量 于 2022-10-23 23:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067398&amp;ptid=2099454" target="_blank">acacaclove 发表于 2022-10-23 23:02</a>
+我是张润德我就说“家里盾上有我名字，有你名字吗？”</blockquote>
+老实说我今天看到集美论坛第一搞笑的贴就是《德张是继毒狗明练马船第三个把自己口碑弄崩的ti冠军了吧》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+虽然我也不知道faith bian怎么就口碑崩了，练了这么久健身没一拳把畜生打死在我这里确实口碑崩了
+
+*****
+
+####  adretyu67  
+##### 35119#       发表于 2022-10-23 23:04
+
+ 本帖最后由 adretyu67 于 2022-10-23 23:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067418&amp;ptid=2099454" target="_blank">Troywest 发表于 2022-10-23 23:03</a>
+
+雪碧啥情况，崩溃哥要处刑彩笔队友了么？</blockquote>
+vlog3，赛后夜谈分锅环节。不过是小组赛的。
+
+鉴于他们一轮游回家了估摸下一期就是差不多结束了。
+
+好消息：一轮游回家也是cis最好成绩，另外一个队已经小组赛回家了。
+
+*****
+
+####  六娃  
+##### 35120#       发表于 2022-10-23 23:04
+
+四大流量明星明明是 A畜 克里斯 批九 ni公子
+
+*****
+
+####  walfeds  
+##### 35121#       发表于 2022-10-23 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067385&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-23 23:02</a>
+
+最后2手单车不搬血魔太搞笑了</blockquote>
+现在更玉玉的是作为op心里有预期不会踢人<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">只能希望mi酱自觉调整给chu神让贤吧
+
+还有atm你放开手里的纸老老实实给我练英雄去
+
+*****
+
+####  莉拉厨  
+##### 35122#       发表于 2022-10-23 23:05
+
+克神至少讨论了1000楼好吧
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 35123#       发表于 2022-10-23 23:05
+
+处长 我克 批九 鹏子
+
+*****
+
+####  六娃  
+##### 35124#       发表于 2022-10-23 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067450&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-23 23:04</a>
+现在更玉玉的是作为op心里有预期不会踢人只能希望mi酱自觉调整给chu神让贤吧
+
+还有atm你放开手里的 ...</blockquote>
+atf脑子挺好用的，以后别用了，他还远没到靠脑子吃饭的年龄，那都是老burden干的事
+
+*****
+
+####  zhrs456  
+##### 35125#       发表于 2022-10-23 23:06
+
+克神怎么不是流量明星了 <img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 35126#       发表于 2022-10-23 23:06
+
+窝克这种纯纯彩笔但是他偶尔会显得不那么彩笔，甚至今天还能蓝猫力中暴力 太圈粉了
+
+*****
+
+####  六娃  
+##### 35127#       发表于 2022-10-23 23:07
+
+平时看og的bp，出自atf这么一个17岁小孩的手感觉比16年的张懿萍离谱多了（wings那bp有时候真不行，单纯实力强），而且他还是打核心位的
+
+*****
+
+####  星野航  
+##### 35128#       发表于 2022-10-23 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">atf就算是3号位牛逼的版本，major一样让给干住了啊
+
+只能说带着乌克兰光头这博登还是挺难的  
+
+*****
+
+####  Troywest  
+##### 35129#       发表于 2022-10-23 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067445&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-23 23:04</a>
+
+vlog3，赛后夜谈分锅环节。不过是小组赛的。
+
+鉴于他们一轮游回家了估摸下一期就是差不多结束了。</blockquote>
+这帮B也是搞，小组赛和平行者，盘盘1：1，把把都是开局就在翻盘路上。居然还有心思拍vlog
+
+*****
+
+####  yyf奇遇记  
+##### 35130#       发表于 2022-10-23 23:09
+
+Atf真的该打1，打3纯浪费天赋
+
+
+
+*****
+
+####  lyjssj  
+##### 35131#       发表于 2022-10-23 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58066798&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-23 22:37</a>
+
+哪门子的赛前预测能把OG搞成三幻神的</blockquote>
+major冠军+esl零封阿茶，很够格了
+
+*****
+
+####  天堂蜘蛛  
+##### 35132#       发表于 2022-10-23 23:09
+
+我觉得XINQ四号位的表现绝大多数时候比处长中规中矩
+
+*****
+
+####  nowaki  
+##### 35133#       发表于 2022-10-23 23:09
+
+哥们说了og能留的只有24，atf太瘤打3没前途打1切入和判断太一般
+
+*****
+
+####  walfeds  
+##### 35134#       发表于 2022-10-23 23:10
+
+一年下来确实还是光头让我最玉玉了，蛮好一小伙一路畜化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知道能分多少锅到atf吸血头上
+
+*****
+
+####  johnwick  
+##### 35135#       发表于 2022-10-23 23:10
+
+那是没mi酱的OG，和现在的OG不是一回事
+
+*****
+
+####  星野航  
+##### 35136#       发表于 2022-10-23 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067513&amp;ptid=2099454" target="_blank">Troywest 发表于 2022-10-24 00:08</a>
+
+这帮B也是搞，小组赛和平行者，盘盘1：1，把把都是开局就在翻盘路上。居然还有心思拍vlog ...</blockquote>
+人家去年就拍了一路了，也没影响夺冠啊
+
+再说这vlog基本算是一个架个摄像机复盘，人家这领队挺有招数的
+
+*****
+
+####  zhrs456  
+##### 35137#       发表于 2022-10-23 23:10
+
+WingsTI6BP突出一个敢玩 决赛炸弹人帕吉不说了 酱油水人这个天梯有说法但没火起来的打法 都能拿出来打大战
+
+*****
+
+####  六娃  
+##### 35138#       发表于 2022-10-23 23:10
+
+我仔细回想了一下，应该是独眼龙说A畜是除了yuragi之外最好的C，小光头就完全不正常了
+黎巴嫩人阴阳怪气把自己队里的也咒进去了，笑死
+

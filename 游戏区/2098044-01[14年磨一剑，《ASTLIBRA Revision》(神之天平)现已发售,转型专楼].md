@@ -9527,3 +9527,67 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 这里用啥解？我试过弓弩还有回旋镖都打不进去。。。</blockquote>
 我没印象卡这，所以弩应该是可以进去的，不行试试前一个台阶跳起来扔飞刀？
 
+
+
+*****
+
+####  五块  
+##### 879#       发表于 2022-10-23 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58065720&amp;ptid=2098044" target="_blank">Sopp 发表于 2022-10-23 21:50</a>
+
+火山boss也太粪了吧，火球挡着没办法对本体造成伤害不说还会附加流血</blockquote>
+吃颗流血药基本可以撑到打完。
+
+*****
+
+####  孔祈  
+##### 880#       发表于 2022-10-23 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067057&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-23 22:49</a>
+
+这里用啥解？我试过弓弩还有回旋镖都打不进去。。。</blockquote>
+这个地方就是调角度进去，可以前后走走
+
+*****
+
+####  A1LI  
+##### 881#       发表于 2022-10-23 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067057&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-23 22:49</a>
+
+这里用啥解？我试过弓弩还有回旋镖都打不进去。。。</blockquote>
+弩可以射到的，调整下角度吧。
+
+*****
+
+####  A1LI  
+##### 882#       发表于 2022-10-23 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067315&amp;ptid=2098044" target="_blank">孔祈 发表于 2022-10-23 22:59</a>
+
+这里怎么过，根据攻略调角&amp;#x5 ...</blockquote>
+第一章剧情拿到的红罐子，使用一下。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 孔祈| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  孔祈  
+##### 883#       发表于 2022-10-23 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067431&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-23 23:04</a>
+
+第一章剧情拿到的红罐子，使用一下。</blockquote>
+已过，感谢
+

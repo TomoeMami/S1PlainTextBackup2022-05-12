@@ -331,3 +331,25 @@
 —— 来自 ...</blockquote>
 看不到 慢慢打
 
+
+
+*****
+
+####  poor  
+##### 17131#       发表于 2022-10-23 05:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58041975&amp;ptid=1158205" target="_blank">windlikeman 发表于 2022-10-22 18:28</a>
+看不到 慢慢打</blockquote>
+麻了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">运气不好得多花27张票
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  poor  
+##### 17132#       发表于 2022-10-23 23:09
+
+转世2.0掉落是不是改过？怎么宝箱开出来两个巴铳一个迦楼罗短？我看攻略不是只掉那四个有用的吗？
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
