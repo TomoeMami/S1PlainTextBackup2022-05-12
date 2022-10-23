@@ -4812,3 +4812,54 @@ rng...我的rng...<img src="https://static.saraba1st.com/image/smiley/animal2017
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">集美怎么手速不快了，是不是不舍得哥哥被淘汰
 
+
+
+*****
+
+####  情商  
+##### 29080#         楼主| 发表于 2022-10-23 09:01
+
+红包神还没睡醒吗
+
+*****
+
+####  Jiron.Amos  
+##### 29081#       发表于 2022-10-23 09:01
+
+jiayou a chun yu<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  超人苏坦纳  
+##### 29082#       发表于 2022-10-23 09:02
+
+5555只有2毛
+
+*****
+
+####  情商  
+##### 29083#         楼主| 发表于 2022-10-23 09:04
+
+jiayou， a chu， nyu。
+
+*****
+
+####  我爱撩菜  
+##### 29084#       发表于 2022-10-23 09:07
+
+= =少刷几分钟这楼，又没拿到红包了。
+
+*****
+
+####  星野航  
+##### 29085#       发表于 2022-10-23 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这都让giegie苟到下周，恶心了啊     
+
+*****
+
+####  Kazepollar  
+##### 29086#       发表于 2022-10-23 09:09
+
+今天不敢看比赛了，打一天p5r算了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

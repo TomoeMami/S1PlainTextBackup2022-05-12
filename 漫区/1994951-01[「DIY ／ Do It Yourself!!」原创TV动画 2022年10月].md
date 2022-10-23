@@ -2774,3 +2774,14 @@ job子奶声奶气的好可爱<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kyokofsky  
+##### 224#       发表于 2022-10-23 09:04
+
+这动画的特色是每一集都迫害那只宠物猪吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

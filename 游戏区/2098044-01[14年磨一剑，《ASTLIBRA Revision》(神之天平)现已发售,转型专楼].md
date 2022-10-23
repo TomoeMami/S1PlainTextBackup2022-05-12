@@ -8929,3 +8929,38 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 问下，二周目魔王城带不带白啊
 
+
+
+*****
+
+####  雪落白夜  
+##### 822#       发表于 2022-10-23 09:02
+
+打到第八章，这地图堆怪有点夸张，用空中擒抱拆机甲真爽
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  jy000129  
+##### 823#       发表于 2022-10-23 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58049641&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-10-23 08:33</a>
+刚打完第五章，有些剧情上的疑问
+
+第五章主角将历史改变后，第四章的剧情相当于没发生过，那黑的病在第五章 ...</blockquote>
+改变历史的话之前的事情就不会发生，某人消失了就连事件都不会存在，所以没必要再解一次，另外也可以默认回档也包含主角之前做过的事
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jy000129  
+##### 824#       发表于 2022-10-23 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58049742&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-23 08:51</a>
+问下，二周目魔王城带不带白啊</blockquote>
+二周目带不带都一样
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
