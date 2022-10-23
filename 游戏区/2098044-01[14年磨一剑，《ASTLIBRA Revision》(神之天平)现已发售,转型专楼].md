@@ -9171,3 +9171,29 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 二周目不算武器盘最强的单手剑，双手武器和法杖都是啥
 
+
+
+*****
+
+####  jy000129  
+##### 845#       发表于 2022-10-23 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58054558&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-23 13:33</a>
+第四章比我想象的要简单一点，上蛇神岛以后一路上就只有开头有商店，后面都没有 ...</blockquote>
+但是有近路，买东西还是很方便的
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jy000129  
+##### 846#       发表于 2022-10-23 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055511&amp;ptid=2098044" target="_blank">linc555 发表于 2022-10-23 14:32</a>
+第四章关门放水的房间，顶上有两个开关，但是我走过去没有交互按钮。这是出bug了么
+
+—— 来自 Xiaomi M200 ...</blockquote>
+这个只能用箭射
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

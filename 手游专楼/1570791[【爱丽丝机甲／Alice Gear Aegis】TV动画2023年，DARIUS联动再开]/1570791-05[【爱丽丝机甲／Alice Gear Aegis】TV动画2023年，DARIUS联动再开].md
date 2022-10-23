@@ -154,3 +154,15 @@
 
 顺便提醒一下奶排联动送的10连快到期了，各位自己看着办
 
+
+
+*****
+
+####  LEOKO~  
+##### 7405#       发表于 2022-10-23 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58006171&amp;ptid=1570791" target="_blank">alialex 发表于 2022-10-20 15:44</a>
+
+这次大流士联动符合剧情有改过吗，刚把第一张地图打完，怎么追加角色都露脸几次了 ...</blockquote>
+改了但改得不太好，AIT出场后伊芙丽基本没参与原有剧情，在AN回家时还我还吐槽你是不是忘了谁，结果还好是AIT自爆时在外面看着
+
