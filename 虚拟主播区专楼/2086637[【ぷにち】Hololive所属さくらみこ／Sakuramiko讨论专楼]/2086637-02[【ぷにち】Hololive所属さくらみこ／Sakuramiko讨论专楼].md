@@ -10235,3 +10235,16 @@ sao新剧场版
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 2475#       发表于 2022-10-23 13:55
+
+<blockquote>樱巫女在2022-10-23 13:06:02发表了推文
+午前中から収録だったから
+ねみねみねみみみみみ、みこ( ˘༥˘  )ｽﾔ</blockquote>一觉睡到11点，今晚直播又能鸽了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
