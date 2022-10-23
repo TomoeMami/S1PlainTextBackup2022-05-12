@@ -10366,3 +10366,33 @@ k
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 2488#       发表于 2022-10-23 22:31
+
+ 本帖最后由 rs5621 于 2022-10-23 22:33 编辑 
+
+可恶，光吃瓜忘记发这个了。
+
+35瑟瑟同人本，感兴趣的可以去看看[推特](https://twitter.com/tsuhololi?t=Awd9w_v5z87qVDa4HoOMDw&amp;s=09)
+
+<img src="https://img.saraba1st.com/forum/202210/23/223344zxkrdgegutdxeqqp.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221023_223249_com.twitter.android.png</strong> (182.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 22:33 上传
+
+*****
+
+####  holoan  
+##### 2489#         楼主| 发表于 2022-10-23 22:37
+
+那也不对啊，如果今天只是里作业为什么连下午radio时间也不发推？不合理
+
+要么是下午那时睡觉了要么……
+
