@@ -8895,3 +8895,17 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 求问一下 有时候自动会出现的角色前方白色透明玻璃一样的是啥？ ...</blockquote>
 那个是连击奖励，看右上角或者左上角，白色盾是加防御
 
+
+
+*****
+
+####  startea15  
+##### 819#       发表于 2022-10-23 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58049294&amp;ptid=2098044" target="_blank">tgwing 发表于 2022-10-22 15:47</a>
+
+有打算出new game+不，二周目重刷太肝了
+
+—— 来自 Sony J9110, Android 11上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+朋友不会也是打了普通难度发现差个困难成就但又不想重新新档打一次hard以上的情况吧
+
