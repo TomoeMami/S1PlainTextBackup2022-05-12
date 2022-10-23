@@ -9760,3 +9760,32 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 —— 来自 HUAWEI JEF-AN20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Ashice  
+##### 900#       发表于 2022-10-24 01:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069133&amp;ptid=2098044" target="_blank">ds2008 发表于 2022-10-24 00:27</a>
+带上她，她会死。
+
+不带她，等红毛入队打最后的BOSS时候要回去找她，这样她就能存活下来，在第6章会入队， ...</blockquote>
+带白的选项是在哪里，我刚打到魔王城迷雾外边的小屋，要重打吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  casle  
+##### 901#       发表于 2022-10-24 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069966&amp;ptid=2098044" target="_blank">Ashice 发表于 2022-10-24 01:24</a>
+
+带白的选项是在哪里，我刚打到魔王城迷雾外边的小屋，要重打吗
+
+—— 来自 S1Fun ...</blockquote>
+烧过树根进入魔王城才会有选项，你现在还早
+
