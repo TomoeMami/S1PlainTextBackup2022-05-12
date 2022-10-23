@@ -673,3 +673,15 @@ PC大屏听歌对味，AA快下池
 
 日本佬开始学习手（页）游先进国的精髓了，手游正统在中国的进程又迈出了坚实的一步<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  leina0602  
+##### 78#       发表于 2022-10-23 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58056160&amp;ptid=2068560" target="_blank">elven119 发表于 2022-10-23 15:27</a>
+
+ナガイド最新一起锐评这游戏，还请了剑与远征戏氪了500万服务器第一的人来解释为啥会氪金。那个人说，本来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ナガイド居然活了？好久没关注了，他现在视频质量比炎上之前有提升吗
+
