@@ -9349,3 +9349,41 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 龙卷这个奥义有人开发吗？感觉就防反可以用用</blockquote>
 容易误操作成盾击和飞剑,不是很好用
 
+
+
+*****
+
+####  大暗月  
+##### 861#       发表于 2022-10-23 20:04
+
+第五章的这个水井的钥匙在哪啊，找不到，麻了
+
+*****
+
+####  jy000129  
+##### 862#       发表于 2022-10-23 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58058936&amp;ptid=2098044" target="_blank">白軍浪 发表于 2022-10-23 17:29</a>
+
+龙卷这个奥义有人开发吗？感觉就防反可以用用</blockquote>
+蓄力要时间，不如多普攻涨精力放技能收益高
+
+*****
+
+####  苏西踩到我了  
+##### 863#       发表于 2022-10-23 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062999&amp;ptid=2098044" target="_blank">大暗月 发表于 2022-10-23 20:04</a>
+第五章的这个水井的钥匙在哪啊，找不到，麻了</blockquote>
+在树精头上，跳上去捡
+
+*****
+
+####  大暗月  
+##### 864#       发表于 2022-10-23 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58063021&amp;ptid=2098044" target="_blank">苏西踩到我了 发表于 2022-10-23 20:05</a>
+
+在树精头上，跳上去捡</blockquote>
+草，这么刁钻，我还在想城门的树是哪个树
+

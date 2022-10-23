@@ -3342,3 +3342,25 @@ xgp版的更新1.0了么
 
   五图大教堂的蓝死神要怎么处理
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 326#       发表于 2022-10-23 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062936&amp;ptid=2052594" target="_blank">415452356 发表于 2022-10-23 20:02</a>
+
+五图大教堂的蓝死神要怎么处理</blockquote>
+留个十字架，看到蓝死神来了直接秒
+
+*****
+
+####  415452356  
+##### 327#       发表于 2022-10-23 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062958&amp;ptid=2052594" target="_blank">椎名mahuyo 发表于 2022-10-23 20:03</a>
+
+留个十字架，看到蓝死神来了直接秒</blockquote>
+  OK，谢谢
+
