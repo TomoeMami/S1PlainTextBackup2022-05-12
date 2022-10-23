@@ -9461,3 +9461,40 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 金箱子是遇到了就开吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 怎么二阶史莱姆也有金箱子
 
+
+
+*****
+
+####  linc555  
+##### 873#       发表于 2022-10-23 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58065720&amp;ptid=2098044" target="_blank">Sopp 发表于 2022-10-23 21:50</a>
+火山boss也太粪了吧，火球挡着没办法对本体造成伤害不说还会附加流血</blockquote>
+等他落地用防反突脸打，贴身以后没没伤害的。打差不多了再用防反或者后跳出去吃药
+反复来几次就打死了
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御坂MKII  
+##### 874#       发表于 2022-10-23 22:46
+
+第一章居然是见鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Leona_Akari  
+##### 875#       发表于 2022-10-23 22:49
+
+这里用啥解？我试过弓弩还有回旋镖都打不进去。。。
+
+12.png
+(151.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 22:48 上传
+
+<img src="https://img.saraba1st.com/forum/202210/23/224820ifxt7uviztizxflu.png" referrerpolicy="no-referrer">
+
