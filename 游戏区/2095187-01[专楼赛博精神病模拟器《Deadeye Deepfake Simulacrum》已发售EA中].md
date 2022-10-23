@@ -1527,3 +1527,14 @@ Medic的bloodmage被动感觉是神技，技能消耗用armor取代Evo, 开局�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">只玩了三个半小时，内容比想象中多太多了
 
+
+
+*****
+
+####  Tring  
+##### 83#         楼主| 发表于 2022-10-23 18:42
+
+今天更新了，加了些新玩意，修了不少BUG，骑士大幅强化。
+
+其中一个重要改动是黑客时的视野机制便捷化了。最主观的感受就是spike完一个节点后，graph上周围的节点立即就亮了，不用再像以前那样每次都snap过去了。
+
