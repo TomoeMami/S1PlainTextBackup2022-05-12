@@ -9011,3 +9011,13 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 二周目武器盘属性是叠加的么，一个装备最多几个属性盘</blockquote>
 叠加的，一个装备三个属性盘
 
+
+
+*****
+
+####  startea15  
+##### 829#       发表于 2022-10-23 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58050669&amp;ptid=2098044" target="_blank">tgwing 发表于 2022-10-22 19:17</a></blockquote>
+早知道应该开局选荒谬这样随便设置里换任意一档难度，他这个设定就很怪，选的开局难度是你设置里能更改的最高难度就很不合理
+
