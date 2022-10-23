@@ -8263,3 +8263,463 @@ sszai的谜团，ta的潮汐
 我怀疑你4,5年前那个上回的dota是和我打的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">是
 
+
+
+*****
+
+####  cuisite  
+##### 34005#       发表于 2022-10-23 19:50
+
+支持放出来，线下中山公园白头
+
+*****
+
+####  哈曼的YY  
+##### 34006#       发表于 2022-10-23 19:51
+
+尼玛看了下大红包领取情况 我第一个领的1.21 后面每个人都比我高
+
+*****
+
+####  nowaki  
+##### 34007#       发表于 2022-10-23 19:51
+
+支持内部打，哥们和楼主对打好久了
+
+*****
+
+####  yyf奇遇记  
+##### 34008#       发表于 2022-10-23 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062641&amp;ptid=2099454" target="_blank">真实之影 发表于 2022-10-23 19:50</a>
+
+你们要不想让我管，那我也可以把之前塞的所有人都放了，你们自己内部打 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">所以宝儿什么时候封啊
+
+*****
+
+####  Litccc  
+##### 34009#       发表于 2022-10-23 19:51
+
+这楼里的话我一句也看不懂，我连doto是什么都不资道，我只是单纯的在抢红包，虽然一个也没抢到
+
+*****
+
+####  六娃  
+##### 34010#       发表于 2022-10-23 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062629&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-23 19:50</a>
+狗头人意思这时候要喝水了?</blockquote>
+我们小超人跟着超哥原谅A畜不是天经地义？
+
+*****
+
+####  哈萨维·诺亚  
+##### 34011#       发表于 2022-10-23 19:52
+
+支持楼内自由搏击 版主英明
+
+*****
+
+####  哈曼的YY  
+##### 34012#       发表于 2022-10-23 19:52
+
+内部对打听起来挺刺激的 赞成
+
+*****
+
+####  masterffzhou  
+##### 34013#       发表于 2022-10-23 19:52
+
+这楼里的话我一句也看不懂，我连doto是什么都不资道，我只是单纯的在抢红包，虽然一个也没抢到
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 34014#       发表于 2022-10-23 19:52
+
+管人痴开始了
+
+*****
+
+####  TIZI  
+##### 34015#       发表于 2022-10-23 19:52
+
+觉得抢不到红包认真看了会比赛没逛你楼怎么打起来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  古代人皮克  
+##### 34016#       发表于 2022-10-23 19:52
+
+李逵这选人是大脑过载了吗
+
+*****
+
+####  OVTVO  
+##### 34017#       发表于 2022-10-23 19:52
+
+支持楼内自由搏击 版主英明
+
+*****
+
+####  越动天下  
+##### 34018#       发表于 2022-10-23 19:52
+
+液体这个不好
+
+*****
+
+####  adretyu67  
+##### 34019#       发表于 2022-10-23 19:52
+
+黑暗芒果的火猫我记得也是他的绝活来着？
+
+*****
+
+####  Keynes  
+##### 34020#       发表于 2022-10-23 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062373&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-23 19:40</a>
+ 装有文化，把东野圭吾名字打错被你楼东哥粉丝清蒜了</blockquote>
+哦，牛皮，你楼还有东哥粉丝，有点丢超级推理专楼的脸了
+
+
+
+*****
+
+####  zhrs456  
+##### 34021#       发表于 2022-10-23 19:53
+
+SSZAI拿个蜘蛛挺好的 自己玩+被萨尔D到送两拨 别给SSZAI能决定打团走向的英雄就是液体BP的胜利了
+
+*****
+
+####  非建政专用号  
+##### 34022#       发表于 2022-10-23 19:53
+
+赞成，虽然我上个号不是在你楼封的，但我可以尽力和自己搏击
+
+*****
+
+####  jk9hot  
+##### 34023#       发表于 2022-10-23 19:53
+
+液体这个真的不是想回家吗？
+
+*****
+
+####  aruruu  
+##### 34024#       发表于 2022-10-23 19:53
+
+液体没了呀，回家局选puck的都回家了
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  勤练带来力量  
+##### 34025#       发表于 2022-10-23 19:53
+
+狗头人这时候一波华丽转身，集美们“你们看连最铁血的a黑都承认giegie今年被23458坑了”，不是直接ru水喝饱化身萨特<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏沃雷生  
+##### 34026#       发表于 2022-10-23 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062641&amp;ptid=2099454" target="_blank">真实之影 发表于 2022-10-23 19:50</a>
+你们要不想让我管，那我也可以把之前塞的所有人都放了，你们自己内部打 ...</blockquote>
+赶紧的，巴不得杀几个集美和假赛狗的马祝贺一下
+
+*****
+
+####  六娃  
+##### 34027#       发表于 2022-10-23 19:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062705&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-23 19:52</a>
+黑暗芒果的火猫我记得也是他的绝活来着？</blockquote>
+裹尸布中的裹尸布
+
+*****
+
+####  walfeds  
+##### 34028#       发表于 2022-10-23 19:53
+
+MMA可以啊
+
+*****
+
+####  古代人皮克  
+##### 34029#       发表于 2022-10-23 19:53
+
+秘鲁教练来一句尊重南美哈哈哈哈
+
+*****
+
+####  甩不出去的黄牌  
+##### 34030#       发表于 2022-10-23 19:53
+
+这楼里的话我一句也看不懂，我连doto是什么都不资道，我只是单纯的在抢红包，虽然一个也没抢到，而且还被锁了
+
+*****
+
+####  c88711611  
+##### 34031#       发表于 2022-10-23 19:54
+
+这楼里的话我一句也看不懂，我连doto是什么都不资道，我只是单纯的在抢红包，虽然一个也没抢到，而且还被锁了
+
+*****
+
+####  六娃  
+##### 34032#       发表于 2022-10-23 19:54
+
+主舞台弹幕：嫪毐别秀理解了，快回去给老干鳖哭丧吧
+
+*****
+
+####  yyf奇遇记  
+##### 34033#       发表于 2022-10-23 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062373&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-23 19:40</a>
+
+装有文化，把东野圭吾名字打错被你楼东哥粉丝清蒜了</blockquote>
+别尬黑，窝是清凉院流水铁粉
+
+*****
+
+####  zhrs456  
+##### 34034#       发表于 2022-10-23 19:54
+
+瑞典油面的PUCK是什么成色 这把看看了
+
+*****
+
+####  walfeds  
+##### 34035#       发表于 2022-10-23 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062721&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-23 19:53</a>
+
+狗头人这时候一波华丽转身，集美们“你们看连最铁血的a黑都承认giegie今年被23458坑了”，不是直接ru水喝饱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦草，你不喝这口水可惜了
+
+*****
+
+####  fopinecone  
+##### 34036#       发表于 2022-10-23 19:54
+
+这楼里的话我一句也看不懂，我连doto是什么都不资道，我只是单纯的在抢红包，虽然一个也没抢到，而且还被锁了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  反方向的波  
+##### 34037#       发表于 2022-10-23 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062706&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-23 19:53</a>
+哦，牛皮，你楼还有东哥粉丝，有点丢超级推理专楼的脸了</blockquote>
+人人都卜是东哥粉丝，人人聊到推理都绕不过东哥！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 34038#       发表于 2022-10-23 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062706&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-23 19:53</a>
+
+哦，牛皮，你楼还有东哥粉丝，有点丢超级推理专楼的脸了</blockquote>
+楼主就是东哥粉丝，确实丢脸，懂也不懂早坂吝的含金量
+
+*****
+
+####  FBIwarning  
+##### 34039#       发表于 2022-10-23 19:55
+
+火猫puck
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甩不出去的黄牌  
+##### 34040#       发表于 2022-10-23 19:55
+
+东哥根本不是本格推理！
+
+*****
+
+####  yyf奇遇记  
+##### 34041#       发表于 2022-10-23 19:55
+
+哦牛皮，我一直都是清凉院流水粉丝，彩虹牙刷鳖蹭
+
+*****
+
+####  walfeds  
+##### 34042#       发表于 2022-10-23 19:56
+
+卜太懂推理，东哥跟giegie比如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 34043#       发表于 2022-10-23 19:56
+
+喜欢东哥和觉得zai力中暴力也差不多了
+
+*****
+
+####  弈秋  
+##### 34044#       发表于 2022-10-23 19:56
+
+马桶被谜团保怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 34045#       发表于 2022-10-23 19:56
+
+情商：永远不会原谅打出东野魁吾的余韵Bryant，记住，是永远！
+
+*****
+
+####  无恨  
+##### 34046#       发表于 2022-10-23 19:56
+
+回家局帕克<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 34047#       发表于 2022-10-23 19:57
+
+怎么还聊日式推理的<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 34048#       发表于 2022-10-23 19:57
+
+丁聪本月5号位谜团全部蹭赢了，是我我也迷信
+
+*****
+
+####  zhrs456  
+##### 34049#       发表于 2022-10-23 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062792&amp;ptid=2099454" target="_blank">弈秋 发表于 2022-10-23 19:56</a>
+
+马桶被谜团保怎么想的</blockquote>
+好歹是个远程 让SSZAI拿个谜团 这把还怎么打
+
+*****
+
+####  六娃  
+##### 34050#       发表于 2022-10-23 19:58
+
+我就说一点，pakazs的飞机比杜鹏至少强一档
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 34051#       发表于 2022-10-23 19:58
+
+谜团转5可以的，因为有飞机，打3没那么舒服的
+
+*****
+
+####  walfeds  
+##### 34052#       发表于 2022-10-23 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">瑞典丁聪到底是把桶哥保吐了呀
+
+*****
+
+####  IG.430  
+##### 34053#       发表于 2022-10-23 19:59
+
+谜团惨tmd遭拍拍保啊
+
+*****
+
+####  超人苏坦纳  
+##### 34054#       发表于 2022-10-23 19:59
+
+支持楼内自由搏击 版主英明
+
+*****
+
+####  5678给  
+##### 34055#       发表于 2022-10-23 19:59
+
+bbc又开蹭？<img src="https://p.sda1.dev/7/02e33fbf37ed357dc18c74918b519901/CMP_20221023195922366.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 34056#       发表于 2022-10-23 20:00
+
+瑞典丁聪又惦记他那五号位谜团呢
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 34057#       发表于 2022-10-23 20:00
+
+被谜团保这线都被打炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 34058#       发表于 2022-10-23 20:00
+
+am双子星也行吧，水厂一二代目合体
+
+反正集美也都是小滚滚，遗忘掉自己清算过m就好了
+
+*****
+
+####  zhrs456  
+##### 34059#       发表于 2022-10-23 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58062896&amp;ptid=2099454" target="_blank">弈秋 发表于 2022-10-23 20:00</a>
+
+被谜团保这线都被打炸了</blockquote>
+真的炸了吗 看看潮汐经济
+
+*****
+
+####  六娃  
+##### 34060#       发表于 2022-10-23 20:01
+
+每一把都当芬兰人的最后一把打，然后就也不要怕输
+
+*****
+
+####  lyjssj  
+##### 34061#       发表于 2022-10-23 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刀楼楼主进小黑屋是刀楼不可缺少的一环
+
+*****
+
+####  反方向的波  
+##### 34062#       发表于 2022-10-23 20:01
+
+没事的，欧尼酱和霉鳖两个人都再赖一年，明年亚运会就可以同台表演了
+
+*****
+
+####  恐怖利刃  
+##### 34063#       发表于 2022-10-23 20:01
+
+潮汐打拍拍就是拼酱油，谜团精灵这种啥技能都没的凭什么打得过萨尔小仙女
+

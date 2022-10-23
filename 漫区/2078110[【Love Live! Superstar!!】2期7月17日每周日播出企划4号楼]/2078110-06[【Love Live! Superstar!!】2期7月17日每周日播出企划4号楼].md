@@ -12197,3 +12197,14 @@ nako：“我像猫还是兔子？”
 
 <img src="https://img.saraba1st.com/forum/202210/23/194940olrgj6c7jddvaarr.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 8605#       发表于 2022-10-23 19:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58060600&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-23 18:25:32</a></blockquote>这马尾真好看啊，头发要是能再留长点就好了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
