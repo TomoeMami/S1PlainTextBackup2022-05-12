@@ -9474,3 +9474,58 @@ Lv.12
 
 现在来看Ti6 ehome的打法真的领先版本了，哪会成智障选个蓝胖尸王船长往中路挂人直接把好多中单打不会了，而且成智障那套单独吃垃圾线的打法也影响了后面很多的四号位
 
+
+
+*****
+
+####  OVTVO  
+##### 35668#       发表于 2022-10-24 01:41
+
+ 本帖最后由 OVTVO 于 2022-10-24 01:43 编辑 
+
+银K感觉像低配二冰，小点子可以+压力怪。
+
+*****
+
+####  yyf奇遇记  
+##### 35669#       发表于 2022-10-24 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58070061&amp;ptid=2099454" target="_blank">北条早苗 发表于 2022-10-24 01:38</a>
+5ban到7ban加的都是第二第三轮，阻止不了拿版本强势的
+记得从ti3开始首轮就是2ban2pick，后选连点没变过了 ...</blockquote>
+还是有影响的 
+
+*****
+
+####  yyf奇遇记  
+##### 35670#       发表于 2022-10-24 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58070082&amp;ptid=2099454" target="_blank">OVTVO 发表于 2022-10-24 01:41</a>
+银K感觉像低配二冰，小点子可以+压力怪。</blockquote>
+二冰就是成智障和王八的徒弟啊，他们两dac带出来的
+
+
+
+*****
+
+####  百世诸侯  
+##### 35671#       发表于 2022-10-24 01:44
+
+鲜卑以后除了水人变飞机又多了一个名场面是吧，感觉不如对线被蝙蝠连杀两次…印象深刻
+
+*****
+
+####  百世诸侯  
+##### 35672#       发表于 2022-10-24 01:46
+
+<img src="https://img.saraba1st.com/forum/202210/24/014604fyfzx5pvzzj5lpxx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-10-24-01-45-49-511-edit_tv.danmaku.bili.jpg</strong> (193.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-24 01:46 上传
+
+水厂小编是懂鲜卑的
+
