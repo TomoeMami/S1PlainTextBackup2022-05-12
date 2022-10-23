@@ -12250,3 +12250,35 @@ CW是葛佳慧写的，感觉曲调应该也很适合中文市场，最好来个
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  player3960  
+##### 8610#       发表于 2022-10-23 22:15
+
+大阪场推荐嘉宾菜宝和Nako，两人都是关西人。
+
+名古屋场推荐嘉宾部长和enako，两人都是爱知县出生。
+
+然后除了部长，其他人推荐的东西都上过Liellafmt了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  稀勢のささ  
+##### 8611#       发表于 2022-10-23 22:22
+
+<img src="https://img.saraba1st.com/forum/202210/23/222153rkwodtzyt9dc9ccw.jpg" referrerpolicy="no-referrer">
+
+<strong>rLYcSmh.jpg</strong> (193.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 22:21 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
