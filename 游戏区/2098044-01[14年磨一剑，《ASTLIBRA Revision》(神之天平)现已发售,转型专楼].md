@@ -9659,3 +9659,38 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 第五章带不带白有什么影响吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sannapolis  
+##### 891#       发表于 2022-10-24 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58068829&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-24 00:12</a>
+
+第五章带不带白有什么影响吗</blockquote>
+收益最高的做法是一开始不带，盖乌归队后再回门口跟她对话一次，之后再打boss
+
+*****
+
+####  ds2008  
+##### 892#       发表于 2022-10-24 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58068829&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-24 00:12</a>
+
+第五章带不带白有什么影响吗</blockquote>
+带上她，她会死。
+
+不带她，等红毛入队打最后的BOSS时候要回去找她，这样她就能存活下来，在第6章会入队，并且获得爱情一个。 如果最后打BOSS时没回去找她，打完BOSS主角和红毛就直接传送回去了，白就被遗忘在城门口。
+
+*****
+
+####  何处分可  
+##### 893#       发表于 2022-10-24 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069133&amp;ptid=2098044" target="_blank">ds2008 发表于 2022-10-24 00:27</a>
+带上她，她会死。
+
+不带她，等红毛入队打最后的BOSS时候要回去找她，这样她就能存活下来，在第6章会入队， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">还能遗忘到城门口
+

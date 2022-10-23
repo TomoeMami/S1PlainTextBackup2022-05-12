@@ -2794,3 +2794,17 @@ job子奶声奶气的好可爱<img src="https://static.saraba1st.com/image/smile
 
 这片的人物实在是有点多了……
 
+
+
+*****
+
+####  本间日阳  
+##### 226#       发表于 2022-10-24 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58049850&amp;ptid=1994951" target="_blank">kyokofsky 发表于 2022-10-23 09:04</a>
+这动画的特色是每一集都迫害那只宠物猪吗
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 S1Next-鹅 ...</blockquote>
+<img src="https://p.sda1.dev/7/61d6633486e1ca0b9cca50322cf24e59/CMP_20221024002429642.jpg" referrerpolicy="no-referrer">
+想起这个……
+
