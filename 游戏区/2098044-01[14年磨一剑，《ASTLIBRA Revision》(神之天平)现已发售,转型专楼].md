@@ -9240,3 +9240,22 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 哪里有近路<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yla  
+##### 851#       发表于 2022-10-23 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58056394&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-23 15:44</a>
+
+喂爱情喂到当事人去酒吧再当面吃（不能大于一个身位）</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">我在酒馆里，站重叠了，吃面包也只是跳个中毒倒计时，再吃就直接倒了，什么都没触发
+
+*****
+
+####  M27MD  
+##### 852#       发表于 2022-10-23 15:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">靠宝箱出爱情太智障了
+

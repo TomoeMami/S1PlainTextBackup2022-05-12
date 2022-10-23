@@ -77,3 +77,16 @@ azn的新歌还可以，感觉除了游乐园外一直在试不同的风格
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 <img src="https://dd-static.jd.com/ddimg/jfs/t1/174756/29/30747/208019/63511aa8E6778bc06/1171dd200521ee71.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 6572#       发表于 2022-10-23 15:58
+
+【中字】放学后广播公开录音 特殊限定环节（后续在烤ing） UP主: 非珞也 https://www.bilibili.com/video/BV1Hm4y1w7nS
+
+今天的公录一如既往的精彩w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
