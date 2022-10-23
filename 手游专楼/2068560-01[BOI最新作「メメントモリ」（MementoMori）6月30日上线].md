@@ -685,3 +685,12 @@ PC大屏听歌对味，AA快下池
 ナガイド最新一起锐评这游戏，还请了剑与远征戏氪了500万服务器第一的人来解释为啥会氪金。那个人说，本来 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ナガイド居然活了？好久没关注了，他现在视频质量比炎上之前有提升吗
 
+
+
+*****
+
+####  elven119  
+##### 79#       发表于 2022-10-23 19:38
+
+天啊，我第一次知道，剑与远征，当你成了服务器第一以后，pvp就为你专门开一个竞技场，是全部服务器的第一名在里面对战。太几把吓人了吧。这一般玩家看都看不到的东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
