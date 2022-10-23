@@ -9964,3 +9964,528 @@ baoer这撸狗皮套狗假赛全沾的搁着跳的起劲的很，该找版主vot
 论坛助手,iPad ...</blockquote>
 哟 您是压bc了是怎么了 我啥时候又假赛了呢？ 
 
+
+
+*****
+
+####  蛭人  
+##### 31312#       发表于 2022-10-23 14:20
+
+OG这队就不能指望油垃圾真核荣耀，打个线上，打不过术士zai是吧。
+
+*****
+
+####  越动天下  
+##### 31313#       发表于 2022-10-23 14:21
+
+og这个团战牛逼
+
+*****
+
+####  cuisite  
+##### 31314#       发表于 2022-10-23 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055330&amp;ptid=2099454" target="_blank">宝儿 发表于 2022-10-23 14:19</a>
+
+你们比lgd比赛有意思太多了 就是楼毁的太快了 利亚德大师赛的时候我看你们楼都能吃饱  
+
+不过那 ...</blockquote>
+那么去年bc假赛了么，今年又假赛了么
+
+*****
+
+####  情商  
+##### 31315#         楼主| 发表于 2022-10-23 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055347&amp;ptid=2099454" target="_blank">宝儿 发表于 2022-10-23 14:20</a>
+哟 您是压bc了是怎么了 我啥时候又假赛了呢？</blockquote>
+这才过去一年就忘了自己在黑球群打滚的样子了？
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  我爱撩菜  
+##### 31316#       发表于 2022-10-23 14:21
+
+哇 这老鹿战神
+
+*****
+
+####  蛭人  
+##### 31317#       发表于 2022-10-23 14:21
+
+bzm和atf又站出来了啊。
+
+*****
+
+####  nowaki  
+##### 31318#       发表于 2022-10-23 14:21
+
+og只能玩32345
+
+*****
+
+####  dclara1  
+##### 31319#       发表于 2022-10-23 14:21
+
+Beastcoast manager "I can't begin to explain how frustrating it is that it feels like we're being penalized for being sick when we've abided by all COVID rules for the event. Especially because we're playing against a team that failed to abide by those rules previously in the event."
+
+*****
+
+####  憧憬鲨  
+##### 31320#       发表于 2022-10-23 14:21
+
+本泽马力中暴力了
+
+
+
+*****
+
+####  Rorgen  
+##### 31321#       发表于 2022-10-23 14:22
+
+15太burden了，这把只要sszai不来灵感难了
+
+*****
+
+####  赤星ビスコ  
+##### 31322#       发表于 2022-10-23 14:22
+
+这火女也太辣了
+
+*****
+
+####  非建政专用号  
+##### 31323#       发表于 2022-10-23 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055319&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-23 14:19</a>
+
+才吃完回家...
+
+水厂赢BC好像很曲折？</blockquote>
+窝克要是化身秘鲁张成俊BC就宰了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天堂蜘蛛  
+##### 31324#       发表于 2022-10-23 14:22
+
+miky真的逆天
+
+*****
+
+####  nxmonitor  
+##### 31325#       发表于 2022-10-23 14:22
+
+这是液体错判自己优势了吧，刚才那个开战的位置火女都没来呢，小黑火女这种确实怕人马冲脸……
+
+*****
+
+####  isla  
+##### 31326#       发表于 2022-10-23 14:22
+
+这都被油垃圾打回来了
+
+*****
+
+####  憧憬鲨  
+##### 31327#       发表于 2022-10-23 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055363&amp;ptid=2099454" target="_blank">dclara1 发表于 2022-10-23 14:21</a>
+Beastcoast manager "I can't begin to explain how frustrating it is that it feels like we're being pe ...</blockquote>
+BC是有点怨言的，输了连发了好几条推特
+
+*****
+
+####  cuisite  
+##### 31328#       发表于 2022-10-23 14:23
+
+Beastcoast manager "I can't begin to explain how frustrating it is that it feels like we're being penalized for being sick when we've abided by all COVID rules for the event. Especially because we're playing against a team that failed to abide by those rules previously in the event." 我宣布bc不再是可敬的对手了
+
+*****
+
+####  朝游北海  
+##### 31329#       发表于 2022-10-23 14:23
+
+atf居然会玩人马？不过想想也不奇怪，和大鱼差不要多，会玩是应该的
+
+*****
+
+####  ののワ  
+##### 31330#       发表于 2022-10-23 14:23
+
+这个micke真特娘的是个铁畜生
+
+*****
+
+####  宝儿  
+##### 31331#       发表于 2022-10-23 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055355&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-23 14:21</a>
+
+这才过去一年就忘了自己在黑球群打滚的样子了？
+
+论坛助手,iPad</blockquote>
+啊？ 我在黑球打滚？我被封号是外野建政 你不是记错人了吧
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 反方向的波|-1|帮你长长记性|
+
+查看全部评分
+
+*****
+
+####  蛭人  
+##### 31332#       发表于 2022-10-23 14:23
+
+这一把又打出了瑞典四兄弟笑看马桶最后战役的感觉了，还好张成俊识相出物理了。
+
+*****
+
+####  樱冢名月  
+##### 31333#       发表于 2022-10-23 14:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这结局谁会没有怨言呢，真是司马新冠，司马V社
+
+*****
+
+####  情商  
+##### 31334#         楼主| 发表于 2022-10-23 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055389&amp;ptid=2099454" target="_blank">宝儿 发表于 2022-10-23 14:23</a>
+啊？ 我在黑球打滚？我被封号是外野建政 你不是记错人了吧</blockquote>
+笑死了 黑球群除了苹果不就是一个网络公主？
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  哈曼的YY  
+##### 31335#       发表于 2022-10-23 14:24
+
+不是 dota之神是准备整个大的？能不能今天就把干瘪送走啊
+
+*****
+
+####  Keynes  
+##### 31336#       发表于 2022-10-23 14:24
+
+Beastcoast manager "I can't begin to explain how frustrating it is that it feels like we're being penalized for being sick when we've abided by all COVID rules for the event. Especially because we're playing against a team that failed to abide by those rules previously in the event."
+
+*****
+
+####  Keynes  
+##### 31337#       发表于 2022-10-23 14:24
+
+Beastcoast manager "I can't begin to explain how frustrating it is that it feels like we're being penalized for being sick when we've abided by all COVID rules for the event. Especially because we're playing against a team that failed to abide by those rules previously in the event."
+
+*****
+
+####  反方向的波  
+##### 31338#       发表于 2022-10-23 14:24
+
+你们还是给潭宠太多画面了，肾虚如夜饮潇湘都只在窝们核心群里偷偷笑她的
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 宝儿|-1|小圈子成这样 核心群~|
+
+查看全部评分
+
+*****
+
+####  jk9hot  
+##### 31339#       发表于 2022-10-23 14:24
+
+bc说的没毛病
+
+*****
+
+####  坚定的团子党  
+##### 31340#       发表于 2022-10-23 14:24
+
+这小鱼但凡有点作用，也不至于一点作用都没有
+
+*****
+
+####  IG.430  
+##### 31341#       发表于 2022-10-23 14:24
+
+a team that failed to abide by those rules previously in the event.
+
+*****
+
+####  憧憬鲨  
+##### 31342#       发表于 2022-10-23 14:25
+
+怎么还有人能进夜饮潇湘核心群啊，能不能拉我进去
+
+*****
+
+####  逃离二次元  
+##### 31343#       发表于 2022-10-23 14:25
+
+Beastcoast manager "I can't begin to explain how frustrating it is that it feels like we're being penalized for being sick when we've abided by all COVID rules for the event. Especially because we're playing against a team that failed to abide by those rules previously in the event."
+
+*****
+
+####  非建政专用号  
+##### 31344#       发表于 2022-10-23 14:25
+
+#BC假赛#K1辱华
+
+*****
+
+####  宝儿  
+##### 31345#       发表于 2022-10-23 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055401&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-23 14:24</a>
+
+笑死了 黑球群除了苹果不就是一个网络公主？
+
+论坛助手,iPad</blockquote>
+假赛听着都傻逼 按个集美就差不多得了 别他妈有什么都往别人身上套吧  
+
+*****
+
+####  Keynes  
+##### 31346#       发表于 2022-10-23 14:26
+
+可能这就是“高尚是高尚者的墓志铭，卑鄙是卑鄙者的通行证” 吧
+
+*****
+
+####  wzy200912345  
+##### 31347#       发表于 2022-10-23 14:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">打个状态拉中拉的OG打成这样
+
+*****
+
+####  朝游北海  
+##### 31348#       发表于 2022-10-23 14:26
+
+s1来得晚，怎么本楼这么不喜欢版主，有什么梗么？
+
+*****
+
+####  食粪者  
+##### 31349#       发表于 2022-10-23 14:26
+
+日你吗的投毒队
+
+*****
+
+####  宫藤芳佳  
+##### 31350#       发表于 2022-10-23 14:26
+
+AME是不是除了国内，任何一支队伍都想签下的人。
+
+这种状态简直是顶中顶，丝毫不输给以前。
+
+只要可以我觉得任何队伍都能腾出位置抢下他。
+
+之前看一个比赛的采访组四人顶分的萧瑟都是被秒抢。看来国外是真羡慕萧瑟的能力啊
+
+
+
+*****
+
+####  情商  
+##### 31351#         楼主| 发表于 2022-10-23 14:26
+
+哦牛皮 毕竟群被沈志豪解散了，你是无敌的
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Rorgen  
+##### 31352#       发表于 2022-10-23 14:26
+
+能不能统计一下这把小鱼大期间A出去几刀
+
+*****
+
+####  憧憬鲨  
+##### 31353#       发表于 2022-10-23 14:26
+
+本楼虽然不喜欢版主，但是有很多人偷偷看版主直播
+
+*****
+
+####  IG.430  
+##### 31354#       发表于 2022-10-23 14:27
+
+AME是不是除了国内，任何一支队伍都想签下的人。
+
+这种状态简直是顶中顶，丝毫不输给以前。
+
+只要可以我觉得任何队伍都能腾出位置抢下他。
+之前看一个比赛的采访组四人顶分的萧瑟都是被秒抢。看来国外是真羡慕萧瑟的能力啊
+
+*****
+
+####  宝儿  
+##### 31355#       发表于 2022-10-23 14:27
+
+再发两个回复别一会儿楼主走路上都怀疑我开小车跟着他了吧   太恐怖了
+
+*****
+
+####  nowaki  
+##### 31356#       发表于 2022-10-23 14:27
+
+<img src="https://img.saraba1st.com/forum/202210/23/142723ekrnglwxrnw02a76.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221023142711.png</strong> (16.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 14:27 上传
+
+撸狗司马@宝儿
+
+*****
+
+####  jk9hot  
+##### 31357#       发表于 2022-10-23 14:27
+
+别乱黑，我喜欢看版主女朋友直播手撕闺蜜
+
+*****
+
+####  cuisite  
+##### 31358#       发表于 2022-10-23 14:27
+
+看样子，桶哥能再往前走一轮了
+
+*****
+
+####  情商  
+##### 31359#         楼主| 发表于 2022-10-23 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055435&amp;ptid=2099454" target="_blank">朝游北海 发表于 2022-10-23 14:26</a>
+s1来得晚，怎么本楼这么不喜欢版主，有什么梗么？</blockquote>
+跟你楼切割，然后喝水，加上洗a畜
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  12481632  
+##### 31360#       发表于 2022-10-23 14:27
+
+小团体司马
+
+*****
+
+####  Asukalangley33  
+##### 31361#       发表于 2022-10-23 14:28
+
+SSZAI坐起来了？？？？
+
+*****
+
+####  天堂蜘蛛  
+##### 31362#       发表于 2022-10-23 14:28
+
+OG第一把没了
+
+*****
+
+####  情商  
+##### 31363#         楼主| 发表于 2022-10-23 14:28
+
+这波马桶拉满了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  5678给  
+##### 31364#       发表于 2022-10-23 14:28
+
+这俩队能掉到败者组不是没有原因的，执行力确实比石头人差多了
+
+*****
+
+####  万世创伤伊莫库  
+##### 31365#       发表于 2022-10-23 14:28
+
+油垃圾这小鱼有点喜剧人了
+
+*****
+
+####  蛭人  
+##### 31366#       发表于 2022-10-23 14:29
+
+我不看ZDGY直播的，不喝ru水前装自己最懂游戏的，实际只是一个复读机，喝ru水后彻底杰出化了，蒸鹅心。
+
+*****
+
+####  反方向的波  
+##### 31367#       发表于 2022-10-23 14:29
+
+窝们盒中盒一直都支持暗二天梯薄纱版主得好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isla  
+##### 31368#       发表于 2022-10-23 14:29
+
+如果影魔没有次次暴毙就更好了呢
+
+*****
+
+####  lyjssj  
+##### 31369#       发表于 2022-10-23 14:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">今天打完可以起新楼了吧
+
+*****
+
+####  二宮飛鳥酱  
+##### 31370#       发表于 2022-10-23 14:29
+
+窝们一直都支持暗二天梯薄纱版主得好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 31371#       发表于 2022-10-23 14:30
+
+og已经玩的很丑陋了液体还拉不开经济，服了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 31372#       发表于 2022-10-23 14:30
+
+马桶这一把又是我要吃伤害要打输出还要提供软控制，还好术士zai这把对线油垃圾。
+
+*****
+
+####  adretyu67  
+##### 31373#       发表于 2022-10-23 14:30
+
+光头和本泽马感觉没了，og这队基本完了。
+
+只要米奇和zai不送液体基本随便打了。
+
