@@ -9723,3 +9723,29 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 这游戏本质还是刷子，二周目我快通关时攻击力都7000多了，一看武器才强化了+50，还没什么特别好的武器盘。 ...</blockquote>
 我第九章都快通了，星盘才开到剑舞，后面就不是给我一周目点的是吧……
 
+
+
+*****
+
+####  ds2008  
+##### 897#       发表于 2022-10-24 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069157&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-24 00:28</a>
+
+还能遗忘到城门口</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要往你嘴里塞旧胖次叫你起床
+
+*****
+
+####  A1LI  
+##### 898#       发表于 2022-10-24 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069363&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-24 00:41</a>
+
+我第九章都快通了，星盘才开到剑舞，后面就不是给我一周目点的是吧…… ...</blockquote>
+对，成长树需要消耗的石头量很大，新章快结尾才有可能点完。
+
+但是成长树主要还是解魔法用，后期几个顶级魔法就是游戏里遇见的那几个神（不包含蛇女）
+
+二周目主要提升战斗力还是靠武器盘和装备强化。
+
