@@ -2738,3 +2738,19 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 想起要刷狗粮的时候不在家没刷，回家之后58分才想起来，来不及了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3239#       发表于 2022-10-23 23:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本周的只要刷90++就能完成 悲剧不会再发生了！
+
+*****
+
+####  khxooo  
+##### 3240#       发表于 2022-10-23 23:39
+
+活动期间刷狗粮，YLS脑子有问题。
+
