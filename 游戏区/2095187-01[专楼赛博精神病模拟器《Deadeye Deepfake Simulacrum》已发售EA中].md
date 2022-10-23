@@ -1652,3 +1652,17 @@ the world和自带的F时间减速可以叠加，这时候再用那个自身不�
 
 是因为你装了什么奇怪被动？还是今天更新已经修复了这BUG？还是在家里触发不了？
 
+
+
+*****
+
+####  iellywake  
+##### 93#       发表于 2022-10-24 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067363&amp;ptid=2095187" target="_blank">Tring 发表于 2022-10-23 23:01</a>
+
+艹，为啥我这穿不了墙？我还试了装那个slug速度4倍的被动，画面都卡起来了，也穿不了。
+
+最多有时候撞墙能 ...</blockquote>
+刚试了下还能用，你按住空格再对着墙跑试试呢，我只装了4倍减速那一个被动，在家也可以穿出去<img src="https://ibb.co/gRr2F5r" id="aimg_uPc9D" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+

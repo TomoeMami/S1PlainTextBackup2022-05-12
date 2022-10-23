@@ -9694,3 +9694,32 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 不带她，等红毛入队打最后的BOSS时候要回去找她，这样她就能存活下来，在第6章会入队， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">还能遗忘到城门口
 
+
+
+*****
+
+####  蓝雉  
+##### 894#         楼主| 发表于 2022-10-24 00:34
+
+要是能来个嘉隆老师变回原形的技能就好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  酒瓶止迁  
+##### 895#       发表于 2022-10-24 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069157&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-24 00:28</a>
+
+还能遗忘到城门口</blockquote>
+我想吐槽的是下一章红毛隔了一个大陆也没事，白这里就会被甩下来被抹除，太恶意了……
+
+*****
+
+####  五块  
+##### 896#       发表于 2022-10-24 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067879&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-23 23:25</a>
+
+这游戏本质还是刷子，二周目我快通关时攻击力都7000多了，一看武器才强化了+50，还没什么特别好的武器盘。 ...</blockquote>
+我第九章都快通了，星盘才开到剑舞，后面就不是给我一周目点的是吧……
+
