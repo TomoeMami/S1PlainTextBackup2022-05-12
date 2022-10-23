@@ -9073,3 +9073,14 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 这初始树枝练满了有啥好处啊,第三章了还只有一半不想用这个刮痧了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就给个武器熟练度UP，没啥用，但是要满技能盘没事刷怪的适合切树枝就行
 
+
+
+*****
+
+####  五块  
+##### 835#       发表于 2022-10-23 11:59
+
+<blockquote>有点追求 发表于 2022-10-23 11:39
+这些神是给一周目打的吗？太吓人了，这飞行道具乱放的，蹭两下就没了</blockquote>
+打完第八章再去就都是白给了。
+

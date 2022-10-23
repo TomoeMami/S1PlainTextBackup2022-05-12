@@ -253,3 +253,16 @@
 —— 来自 OnePlus HD1900, Android 13上的 S1Nex ...</blockquote>
 误会了 我说的是自己世界男主角听新闻的那个过程  包括之后男主爆走 发现他力气很大拦都拦不住那段
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1952#       发表于 2022-10-23 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58048945&amp;ptid=1860817" target="_blank">alucardcz 发表于 2022-10-23 02:16</a>
+误会了 我说的是自己世界男主角听新闻的那个过程  包括之后男主爆走 发现他力气很大拦都拦不住那段 ...</blockquote>
+和美知留救白银的桥段被跳过一样。虽然不爽但是剧情还能勉强看得懂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

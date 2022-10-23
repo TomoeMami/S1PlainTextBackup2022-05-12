@@ -11194,3 +11194,15 @@ A上去了，都没有全A，不过也是，这漫画哪天千纱和男主真在
 
 我还是期待着尚海君的反转
 
+
+
+*****
+
+####  diectt  
+##### 1256#       发表于 2022-10-23 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58052483&amp;ptid=1317511" target="_blank">Adam0_0 发表于 2022-10-23 11:49</a>
+
+我还是期待着尚海君的反转</blockquote>
+井上老师固定的秀吉角色，不会反转的，估计尚海最大的作用是考进他们学校，接过潜水部的大旗，然后就可以开开心心完结了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
