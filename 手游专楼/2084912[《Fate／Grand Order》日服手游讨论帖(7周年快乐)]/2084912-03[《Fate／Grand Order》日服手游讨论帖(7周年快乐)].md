@@ -2715,3 +2715,17 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 没断签，连续登陆59天</blockquote>
 那不清楚了，没关注过新人登陆奖励
 
+
+
+*****
+
+####  铁柱子  
+##### 3237#       发表于 2022-10-23 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58040592&amp;ptid=2084912" target="_blank">J-002 发表于 2022-10-22 16:58</a>
+
+新人/回归奖励领完了？
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+不清楚啊，他那个签到页面只跳了一次，后面再没跳过，第一天的奖励也没发
+
