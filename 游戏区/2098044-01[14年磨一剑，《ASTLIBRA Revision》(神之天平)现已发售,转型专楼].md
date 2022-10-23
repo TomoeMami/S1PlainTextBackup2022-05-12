@@ -9121,3 +9121,24 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 第四章比我想象的要简单一点，上蛇神岛以后一路上就只有开头有商店，后面都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lazycat233  
+##### 840#       发表于 2022-10-23 14:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">贤者塔三楼怎么进啊，变身耳环不是剧情里被破坏了吗，怎么拿回来
+
+
+
+*****
+
+####  五块  
+##### 841#       发表于 2022-10-23 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055275&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-10-23 14:15</a>
+
+贤者塔三楼怎么进啊，变身耳环不是剧情里被破坏了吗，怎么拿回来</blockquote>
+老家安眠药不是消耗品。
+

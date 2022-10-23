@@ -9558,3 +9558,409 @@ OG崩成这样。感觉要被液体提了，只剩一手瑞典张成俊乱送
 
 boxi是被sszai从3挤到4的
 
+
+
+*****
+
+####  逃离二次元  
+##### 31267#       发表于 2022-10-23 14:10
+
+生活不如意了
+
+*****
+
+####  Renko117  
+##### 31268#       发表于 2022-10-23 14:11
+
+生活不如意了
+
+*****
+
+####  zyw0  
+##### 31269#       发表于 2022-10-23 14:11
+
+干脆石头人和秘密一起全阳。lgd碾压式举盾，到时候集美们扣也不是不扣也不是
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  越动天下  
+##### 31270#       发表于 2022-10-23 14:11
+
+生活不如意了
+
+*****
+
+####  蛭人  
+##### 31271#       发表于 2022-10-23 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055183&amp;ptid=2099454" target="_blank">宝儿 发表于 2022-10-23 14:08</a>
+
+帽子一扣 你就是集美   
+
+除了贴标签你们还能正常交流么？ lgd小丑走了我也开心因为能看到网友翻 ...</blockquote>
+刚来，请问cndota厉害是指ti6后再无冠军吗？
+
+*****
+
+####  蛭人  
+##### 31272#       发表于 2022-10-23 14:12
+
+真正的胜决 lgd vs boom
+
+真正的决赛 lgd vs bc
+
+*****
+
+####  柚上舍人  
+##### 31273#       发表于 2022-10-23 14:13
+
+zai这是吃了药了，这么猛
+
+*****
+
+####  cuisite  
+##### 31274#       发表于 2022-10-23 14:13
+
+不会被这毒狗后面摸个a杖出来吧
+
+*****
+
+####  Rorgen  
+##### 31275#       发表于 2022-10-23 14:13
+
+太牛了，光头送得sszai像个正常人
+
+*****
+
+####  宝儿  
+##### 31276#       发表于 2022-10-23 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055199&amp;ptid=2099454" target="_blank">cuisite 发表于 2022-10-23 14:10</a>
+
+哈哈，看个dota还要我破大防？是不是又要生活不如意警告了啊</blockquote>
+别捡话啊 你是楼主吗？  要不你也骂个妈  给我们秀一下？
+
+*****
+
+####  cuisite  
+##### 31277#       发表于 2022-10-23 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055250&amp;ptid=2099454" target="_blank">宝儿 发表于 2022-10-23 14:14</a>
+
+别捡话啊 你是楼主吗？  要不你也骂个妈  给我们秀一下？</blockquote>
+为啥要骂你妈啊，你妈怎么样管我屁事，还是你不是你妈亲生的？
+
+*****
+
+####  憧憬鲨  
+##### 31278#       发表于 2022-10-23 14:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们是真的爱搭理打滚的癞皮狗啊
+
+*****
+
+####  jk9hot  
+##### 31279#       发表于 2022-10-23 14:15
+
+打起来！打起来！
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  宝儿  
+##### 31280#       发表于 2022-10-23 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055222&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-23 14:11</a>
+
+刚来，请问cndota厉害是指ti6后再无冠军吗？</blockquote>
+多学学语文 了解一下在表达什么不行么？
+
+*****
+
+####  Renko117  
+##### 31281#       发表于 2022-10-23 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055250&amp;ptid=2099454" target="_blank">宝儿 发表于 2022-10-23 14:14</a>
+
+别捡话啊 你是楼主吗？  要不你也骂个妈  给我们秀一下？</blockquote>
+不要“我们”行不，这个贴目前没见到有站你的
+
+*****
+
+####  情商  
+##### 31282#         楼主| 发表于 2022-10-23 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055259&amp;ptid=2099454" target="_blank">cuisite 发表于 2022-10-23 14:14</a>
+为啥要骂你妈啊，你妈怎么样管我屁事，还是你不是你妈亲生的？</blockquote>
+因为他马刚才被杀了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  ArowRocher  
+##### 31283#       发表于 2022-10-23 14:16
+
+油垃圾真的有那个心态玩小鱼吗
+
+*****
+
+####  Rorgen  
+##### 31284#       发表于 2022-10-23 14:16
+
+这版本看了这么多场终于有一把牛逼的人马了
+当然不是人马牛逼是atf牛逼
+
+*****
+
+####  为了mf注册  
+##### 31285#       发表于 2022-10-23 14:16
+
+哦，牛批，你楼不光有集美潜水，还有撸狗潜水啊
+
+<img src="https://img.saraba1st.com/forum/202210/23/141617el6aaw821o2ua2ol.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2022-10-23 141608.png</strong> (66.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 14:16 上传
+
+<img src="https://img.saraba1st.com/forum/202210/23/141636lfokkzffh4bl4ky5.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图 2022-10-23 141629.png</strong> (31.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-23 14:16 上传
+
+*****
+
+####  宝儿  
+##### 31286#       发表于 2022-10-23 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055259&amp;ptid=2099454" target="_blank">cuisite 发表于 2022-10-23 14:14</a>
+
+为啥要骂你妈啊，你妈怎么样管我屁事，还是你不是你妈亲生的？</blockquote>
+哟呵 也就这两下子 
+
+*****
+
+####  逃离二次元  
+##### 31287#       发表于 2022-10-23 14:17
+
+潜水撸狗nmsl<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 31288#       发表于 2022-10-23 14:17
+
+潜水撸狗**
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  憧憬鲨  
+##### 31289#       发表于 2022-10-23 14:17
+
+他的母亲被送下去陪拆队狗的母亲了，就是不知道是不是子债母偿替他磕一个赔赔罪
+
+*****
+
+####  cuisite  
+##### 31290#       发表于 2022-10-23 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055290&amp;ptid=2099454" target="_blank">宝儿 发表于 2022-10-23 14:17</a>
+
+哟呵 也就这两下子</blockquote>
+一下子两下子能对付你就够了啊，总比你教人做事强吧
+
+
+
+*****
+
+####  情商  
+##### 31291#         楼主| 发表于 2022-10-23 14:18
+
+baoer这撸狗皮套狗假赛全沾的搁着跳的起劲的很，该找版主vote一波了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Rorgen  
+##### 31292#       发表于 2022-10-23 14:18
+
+这是坛宠的惯常手段小号扣鹅望周知
+
+*****
+
+####  nxmonitor  
+##### 31293#       发表于 2022-10-23 14:18
+
+OG打着打着经济就起来了啊，后面小黑火女这种都是很不稳的……
+
+*****
+
+####  莉拉厨  
+##### 31294#       发表于 2022-10-23 14:18
+
+og液体居然打的这么激烈，我还以为液体能碾呢
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  憧憬鲨  
+##### 31295#       发表于 2022-10-23 14:18
+
+人马改了那个回血我还挺喜欢的，点满反伤赖线打野都舒服
+
+*****
+
+####  非建政专用号  
+##### 31296#       发表于 2022-10-23 14:19
+
+马体宰了吧
+
+*****
+
+####  天堂蜘蛛  
+##### 31297#       发表于 2022-10-23 14:19
+
+bzm也尿了
+
+*****
+
+####  Asukalangley33  
+##### 31298#       发表于 2022-10-23 14:19
+
+才吃完回家...
+
+水厂赢BC好像很曲折？
+
+意思是三阳开泰了BC也很猛？<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 31299#       发表于 2022-10-23 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055270&amp;ptid=2099454" target="_blank">宝儿 发表于 2022-10-23 14:15</a>
+
+多学学语文 了解一下在表达什么不行么？</blockquote>
+lgd打得好我也开心看人操作优秀（cndota厉害）   
+
+那你要不来分析下自己说这话是什么意思？暗讽LGD三年无冠？两年背景板？
+
+合着你不仅是六分钟记忆力，结巴，还是一个语言表达有严重问题的病患？
+
+谭宠，你还是早点去看病吧，社会水深。
+
+*****
+
+####  反方向的波  
+##### 31300#       发表于 2022-10-23 14:19
+
+misha这个lich丢大甚至都弹不出去把窝看笑了
+
+*****
+
+####  外挂全家脚气  
+##### 31301#       发表于 2022-10-23 14:19
+
+感觉OG应该是要被碾过去了
+
+*****
+
+####  憧憬鲨  
+##### 31302#       发表于 2022-10-23 14:19
+
+马体估计速宰两把
+
+*****
+
+####  情商  
+##### 31303#         楼主| 发表于 2022-10-23 14:19
+
+去年在qq群跟一群sb共振假赛的时候也是这德行，被我们几个点艹到破防了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  isla  
+##### 31304#       发表于 2022-10-23 14:19
+
+只要你帮楼主加鹅，那你就是好撸狗
+
+*****
+
+####  cuisite  
+##### 31305#       发表于 2022-10-23 14:19
+
+不过这毒狗有点肥，后面会不会出事啊，希望桶哥赢啊
+
+*****
+
+####  宝儿  
+##### 31306#       发表于 2022-10-23 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055262&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-23 14:14</a>
+
+你们是真的爱搭理打滚的癞皮狗啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">  你们比lgd比赛有意思太多了 就是楼毁的太快了 利亚德大师赛的时候我看你们楼都能吃饱  
+
+不过那时候估计也没你们你们不好意思说话 毕竟一有点逆风就只复制粘贴  你们哪儿打逆风局啊
+
+*****
+
+####  Rorgen  
+##### 31307#       发表于 2022-10-23 14:19
+
+yuragi还是找个班上吧，这把输了atf最失败的就是没用人马把他头踩了
+
+*****
+
+####  啊哈  
+##### 31308#       发表于 2022-10-23 14:19
+
+败者组全是lgd 便器，胜者组一个有ppy小水晶，一个有p9，线上还不大行，只能看看瑟瑟三次元来治疗我的精神内耗了
+
+*****
+
+####  憧憬鲨  
+##### 31309#       发表于 2022-10-23 14:20
+
+原来坛宠去年还信假赛啊，那今年岂不是要相信LGD投毒？
+
+*****
+
+####  情商  
+##### 31310#         楼主| 发表于 2022-10-23 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055330&amp;ptid=2099454" target="_blank">宝儿 发表于 2022-10-23 14:19</a>
+你们比lgd比赛有意思太多了 就是楼毁的太快了 利亚德大师赛的时候我看你们楼都能吃饱  
+
+不过那 ...</blockquote>
+谈虫去年跟几个皮套孝子高谈阔论假赛的时候那一副洞悉世间万物的本事正常人学不来啊
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  宝儿  
+##### 31311#       发表于 2022-10-23 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58055304&amp;ptid=2099454" target="_blank">情商 发表于 2022-10-23 14:18</a>
+
+baoer这撸狗皮套狗假赛全沾的搁着跳的起劲的很，该找版主vote一波了
+
+论坛助手,iPad ...</blockquote>
+哟 您是压bc了是怎么了 我啥时候又假赛了呢？ 
+
