@@ -8881,3 +8881,17 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  soranoguiji  
+##### 818#       发表于 2022-10-23 07:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58046410&amp;ptid=2098044" target="_blank">DRAGONBLEAPIECE 发表于 2022-10-22 22:24</a>
+
+刚开始玩
+
+求问一下 有时候自动会出现的角色前方白色透明玻璃一样的是啥？ ...</blockquote>
+那个是连击奖励，看右上角或者左上角，白色盾是加防御
+
