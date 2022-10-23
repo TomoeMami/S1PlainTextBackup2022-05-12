@@ -9259,3 +9259,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">靠宝箱出爱情太智障了
 
+
+
+*****
+
+####  jy000129  
+##### 853#       发表于 2022-10-23 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58056406&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-23 15:45</a>
+
+哪里有近路</blockquote>
+入口地方有2个竖三格的石头可以用炸药炸掉，炸了后面的近路门就能走了
+
