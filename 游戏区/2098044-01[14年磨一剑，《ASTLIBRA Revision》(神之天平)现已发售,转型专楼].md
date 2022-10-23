@@ -9282,3 +9282,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  朔洵千夜  
+##### 855#       发表于 2022-10-23 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58053130&amp;ptid=2098044" target="_blank">白軍浪 发表于 2022-10-23 12:21</a>
+
+过了石化就换下来呀，开菜单是时停的，同理打崩了也可以换上狂暴，崩完再下掉 ...</blockquote>
+昨晚已经打得石乐志了，早上起来又是硬怼了一小时，现在已经放弃进第七章了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

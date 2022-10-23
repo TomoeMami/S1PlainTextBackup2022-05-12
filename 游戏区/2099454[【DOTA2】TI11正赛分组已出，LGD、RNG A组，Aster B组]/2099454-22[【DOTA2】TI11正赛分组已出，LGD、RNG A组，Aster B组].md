@@ -2828,3 +2828,351 @@ GTMD下面八老阴逼
 
 国土果然是蠢了
 
+
+
+*****
+
+####  Avantasi  
+##### 31880#       发表于 2022-10-23 16:31
+
+张志成他妈屎吃多了吧
+
+*****
+
+####  外挂全家脚气  
+##### 31881#       发表于 2022-10-23 16:31
+
+可以敲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuisite  
+##### 31882#       发表于 2022-10-23 16:31
+
+这不点大鱼真的脑浆啊
+
+*****
+
+####  a1370303  
+##### 31883#       发表于 2022-10-23 16:31
+
+敲了吧，折磨<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  枯风瘦雪02  
+##### 31884#       发表于 2022-10-23 16:31
+
+这手sa不敢/不能靠阵容摇摆针对，拿茶就是不配赢的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  火鸡味锅巴  
+##### 31885#       发表于 2022-10-23 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58057451&amp;ptid=2099454" target="_blank">憧憬鲨 发表于 2022-10-23 16:30</a>
+
+火女没打过火猫还是有点失败</blockquote>
+bp上火猫这边随便摇个队友就能把火女控住暴打
+
+*****
+
+####  sepcorvus  
+##### 31886#       发表于 2022-10-23 16:31
+
+茶队又被冲烂了
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  adretyu67  
+##### 31887#       发表于 2022-10-23 16:31
+
+究极长痛局<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">唉，不如短痛了吧
+
+*****
+
+####  阿卵真是牛逼  
+##### 31888#       发表于 2022-10-23 16:32
+
+这就是唯一痔酱吗，看到兽SA火猫点小黑
+
+*****
+
+####  izayoi39  
+##### 31889#       发表于 2022-10-23 16:32
+
+bbk这sb能不要管线上的大哥从线上消失吗，他在线上一露线，自家中路就是天天被搓死
+
+*****
+
+####  Sabbah  
+##### 31890#       发表于 2022-10-23 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明显曾焦阳自己菜的局啊，一个萨尔当他脸T下来灌个瓶就顺便配合火猫把他杀了，纯纯的天梯场景。
+
+
+
+*****
+
+####  苏沃雷生  
+##### 31891#       发表于 2022-10-23 16:32
+
+相信鳖茶的也就比相信菜宜风的好一点
+
+*****
+
+####  Rorgen  
+##### 31892#       发表于 2022-10-23 16:32
+
+dy粉丝群建了拉我一下
+
+*****
+
+####  nowaki  
+##### 31893#       发表于 2022-10-23 16:33
+
+待会要是液体干掉ta 那是真送司马队进决赛日了
+
+*****
+
+####  外挂全家脚气  
+##### 31894#       发表于 2022-10-23 16:33
+
+ORI去年在VG也是6进4的时候被IG的EMO干翻了，换了茶不会还是同样结果吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 31895#       发表于 2022-10-23 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58057479&amp;ptid=2099454" target="_blank">火鸡味锅巴 发表于 2022-10-23 16:31</a>
+bp上火猫这边随便摇个队友就能把火女控住暴打</blockquote>
+火女能压住火猫的话不至于来一次死一次吧
+
+*****
+
+####  wzy200912345  
+##### 31896#       发表于 2022-10-23 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">SA看着队友打完宰猪就是了
+
+*****
+
+####  NaYo丶  
+##### 31897#       发表于 2022-10-23 16:35
+
+李逵打lgd我真的不想再看了 zai÷天天给人送翻盘
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  a1370303  
+##### 31898#       发表于 2022-10-23 16:35
+
+猴爹一打内战就站起来了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  米德  
+##### 31899#       发表于 2022-10-23 16:35
+
+好消息 干鳖脑浆起来了
+
+*****
+
+####  TIZI  
+##### 31900#       发表于 2022-10-23 16:35
+
+润了可还行
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  qty  
+##### 31901#       发表于 2022-10-23 16:35
+
+ntsTM之前三局怎么不这么猛，内战战神是吧
+
+*****
+
+####  坚定的团子党  
+##### 31902#       发表于 2022-10-23 16:35
+
+润了润了
+
+*****
+
+####  黑暗剑qui  
+##### 31903#       发表于 2022-10-23 16:35
+
+撸狗鞭只知道润
+
+*****
+
+####  maju3  
+##### 31904#       发表于 2022-10-23 16:35
+
+润了润了
+
+*****
+
+####  IG.430  
+##### 31905#       发表于 2022-10-23 16:36
+
+别急，这把lgd没有上高的画面，拖个六十分钟也不是不可能
+
+*****
+
+####  反方向的波  
+##### 31906#       发表于 2022-10-23 16:36
+
+窝小地图锁定叶志标走位10分钟了，感觉像诸葛米莎在玩儿
+
+*****
+
+####  cuisite  
+##### 31907#       发表于 2022-10-23 16:36
+
+说实话，老干瘪乱冲的话，鳖茶应该是能打的
+
+*****
+
+####  NaYo丶  
+##### 31908#       发表于 2022-10-23 16:36
+
+茶队遇上猴爹血脉克制了
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rorgen  
+##### 31909#       发表于 2022-10-23 16:37
+
+霉鳖拖60分钟我信，曾焦阳不可能，他打游戏脾气大的很
+
+*****
+
+####  勤练带来力量  
+##### 31910#       发表于 2022-10-23 16:37
+
+我超，骄阳
+
+*****
+
+####  cuisite  
+##### 31911#       发表于 2022-10-23 16:37
+
+猴爹尿了
+
+*****
+
+####  wzy200912345  
+##### 31912#       发表于 2022-10-23 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">虾基因唤醒
+
+*****
+
+####  nowaki  
+##### 31913#       发表于 2022-10-23 16:37
+
+想多了还上不了高 火猫 sa把你酱油杀了 你怎么守
+
+*****
+
+####  qty  
+##### 31914#       发表于 2022-10-23 16:37
+
+这波可以
+
+*****
+
+####  nightmare902015  
+##### 31915#       发表于 2022-10-23 16:37
+
+四号位兽身上就一个天堂肉的跟屎一样。。。四五个人打半天啊
+
+*****
+
+####  AualloniaMK2  
+##### 31916#       发表于 2022-10-23 16:37
+
+好起来了
+
+*****
+
+####  cuisite  
+##### 31917#       发表于 2022-10-23 16:38
+
+不过这小黑还是难活
+
+*****
+
+####  聚散浮云  
+##### 31918#       发表于 2022-10-23 16:39
+
+突围赛双熊能到现在谁能想到啊
+依稀记得漏油门当时疯狂复读：兄弟们来打突围都是有原因的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  wzy200912345  
+##### 31919#       发表于 2022-10-23 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58057676&amp;ptid=2099454" target="_blank">聚散浮云 发表于 2022-10-23 16:39</a>
+
+突围赛双熊能到现在谁能想到啊
+
+依稀记得漏油门当时疯狂复读：兄弟们来打突围都是有原因的</blockquote>
+是有原因，来突围赛进化的<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  cuisite  
+##### 31920#       发表于 2022-10-23 16:40
+
+老干瘪有点散啊
+
+
+
+*****
+
+####  qty  
+##### 31921#       发表于 2022-10-23 16:40
+
+老干瘪开始脑浆了
+
+*****
+
+####  Crazy_Knife  
+##### 31922#       发表于 2022-10-23 16:40
+
+茶队的调整能力还是算了，昨天被打爆以后今天就没指望过茶队，只是又让水厂毒进决赛日了是真的恶心<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  弈秋  
+##### 31923#       发表于 2022-10-23 16:40
+
+力丸都能这么肥吗
+
+*****
+
+####  反方向的波  
+##### 31924#       发表于 2022-10-23 16:40
+
+相信林靖，一定会手贱的呀
+
