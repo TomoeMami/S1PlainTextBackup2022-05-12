@@ -7827,3 +7827,94 @@ miposhka要踢人应该也不会恰起来
 
 就布查小胖今年膨胀的感觉要找个背锅位那肯定是唯一指定菜鸡脑东京好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星野航  
+##### 36861#       发表于 2022-10-24 22:33
+
+咋说，老东京一个团队里最大的蒙古人，面对一个乌克兰00后小胖确实有代沟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我只能说希望yatoro别得意忘了形，今年ti也就cis艹艹没啥锅，其他哥几个就低低头吧
+
+*****
+
+####  jk9hot  
+##### 36862#       发表于 2022-10-24 22:33
+
+雪碧对内再僵硬拉小群，崩溃哥肯定都会是每一个群的群员
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Aeons  
+##### 36863#       发表于 2022-10-24 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不知道雪碧会不会就此一蹶不振了
+
+*****
+
+####  朝游北海  
+##### 36864#       发表于 2022-10-24 22:34
+
+瞎扯，whisper前期不起节奏，我克8分钟就被速通了。
+
+*****
+
+####  walfeds  
+##### 36865#       发表于 2022-10-24 22:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个能躺平任由队友阴阳的人人缘肯定好啊
+
+*****
+
+####  adretyu67  
+##### 36866#       发表于 2022-10-24 22:38
+
+毛区就这样，没成绩后撕逼散伙，重新组队，然后大家继续一起没成绩。无限循环。
+
+*****
+
+####  Avantasi  
+##### 36867#       发表于 2022-10-24 22:38
+
+不是，你吗能不能别脑补了，看漏油这样子有点像看水厂第一天打完比赛集美说内讧的样子
+
+*****
+
+####  枯风瘦雪02  
+##### 36868#       发表于 2022-10-24 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58084342&amp;ptid=2099454" target="_blank">朝游北海 发表于 2022-10-24 22:28</a>
+东京不是雪碧指定菜逼，1可以说不适合版本，3是条懒狗，2属实大部分时间都没眼看，打到一半字突然想到雪碧 ...</blockquote>
+3不是死刷要钱型的，只是在凑齐工作装备之前会保持占线保证timing而已，拿到必须装备后就是让钱带节奏的打法了，要是节奏不顺基本就直接穷到死了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  belldandy_ye  
+##### 36869#       发表于 2022-10-24 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081844&amp;ptid=2099454" target="_blank">zyw0 发表于 2022-10-24 19:43</a>
+
+“bb在训练赛里打的很好，能进胜者组”这句话我能笑到ti22</blockquote>
+BB这个队正式比赛动不动打出巨大优势后被人绝境翻盘，训练赛搞出那么大优势一般就直接结束了.
+
+*****
+
+####  星野航  
+##### 36870#       发表于 2022-10-24 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是等等最后一期vlog，就能看到一轮游之后是什么样子了
+
+
+
+*****
+
+####  nowaki  
+##### 36871#       发表于 2022-10-24 22:42
+
+达吉斯坦艹艹可不是什么善茬，达吉斯坦巴掌大的地方几十个民族，可以说达吉斯坦艹艹天生就是情商达人
+
