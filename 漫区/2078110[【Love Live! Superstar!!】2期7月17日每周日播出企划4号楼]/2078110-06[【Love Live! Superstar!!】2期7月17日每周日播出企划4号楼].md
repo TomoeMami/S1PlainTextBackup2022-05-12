@@ -12363,3 +12363,12 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 表紙は『ラブライブ！スーパースター!!』第４弾、桜小路きな子が表紙に登場します
 <img src="https://p.sda1.dev/7/6e25b8544532e1c67f544eb7b9d1bfe3/20221024_110131.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 8618#       发表于 2022-10-24 11:18
+
+看这封面安排属实很想阴阳怪气，但还是算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

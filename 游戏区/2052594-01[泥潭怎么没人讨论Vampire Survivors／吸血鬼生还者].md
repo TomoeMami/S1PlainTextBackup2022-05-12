@@ -3554,3 +3554,32 @@ xgp版的更新1.0了么
 ——  ...</blockquote>
 我都是看fandom的英文wiki，中文好像没有
 
+
+
+*****
+
+####  evagle  
+##### 345#       发表于 2022-10-24 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56205261&amp;ptid=2052594" target="_blank">oznark 发表于 2022-6-10 12:43</a>
+
+开始页面输入spam 鼠标点开始
+
+选择角**面输入spam 鼠标确认
+
+选关界面输入spam 鼠标确认</blockquote>
+为啥我怎么试都不对。。
+
+类似的攻略试了五六种了
+
+*****
+
+####  saberserker  
+##### 346#       发表于 2022-10-24 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071884&amp;ptid=2052594" target="_blank">星尘的记忆 发表于 2022-10-24 09:28</a>
+求问有没有适合正式版入坑玩家的中文资料或者wiki，百度出来的很多都是老板的，或者只说1.0的新东西
+
+——  ...</blockquote>
+贴吧内容就挺全的，隐藏人物解锁可以去B站找视频
+

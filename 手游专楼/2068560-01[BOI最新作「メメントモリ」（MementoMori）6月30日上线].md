@@ -722,3 +722,15 @@ PC大屏听歌对味，AA快下池
 
 一周就达成了开服一个月流水五亿的预期，日本人还是能氪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  薛定谔的小猫  
+##### 83#       发表于 2022-10-24 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071442&amp;ptid=2068560" target="_blank">Cyau 发表于 2022-10-24 08:56</a>
+
+乐，前几天关了时空洞窟和公会战，今天上线一看，友情池子也关了</blockquote>
+玩了几天了，这游戏啥时候能做到一打开游戏，所有功能都能正常用不在维护中啊，什么废物程序员<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
