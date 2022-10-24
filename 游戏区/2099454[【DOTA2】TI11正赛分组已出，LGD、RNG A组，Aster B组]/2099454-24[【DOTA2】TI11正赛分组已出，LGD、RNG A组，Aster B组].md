@@ -10596,3 +10596,91 @@ Dy脑子还行，除了死留着他那破大树，阵容选择没问题的，就
 
 后期打团肯定是插高台眼的，视野范围大于一切，又不是前期想抓人弄些刁钻眼位别人反不到
 
+
+
+*****
+
+####  adretyu67  
+##### 35795#       发表于 2022-10-24 10:12
+
+鳖星想举盾最实际的办法就是ni公子不幸阳了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+总不可能指望骄阳突然化身去年脑东京，打ni公子就是老子啥都不干，不要经济也要和妮一换一，不把妮打哭？
+
+*****
+
+####  nerugigannte  
+##### 35796#       发表于 2022-10-24 10:14
+
+讲道理，能摸决赛日地板就是化龙了好吧，液体这关肯定不好过啊，zai再畜旁边有boxi呢，现在还能当bp垃圾桶
+
+*****
+
+####  yyf奇遇记  
+##### 35797#       发表于 2022-10-24 10:14
+
+鳖星赢了液体的话，可以cosplay 胜者组冠军哥们bo3用的那套打掉下来的兄弟，但是前提要建立在能赢液体
+
+*****
+
+####  lyjssj  
+##### 35798#       发表于 2022-10-24 10:14
+
+阿茶真没吃多少版本红利，major第三esl第二，他一直就这样的水平
+
+*****
+
+####  六娃  
+##### 35799#       发表于 2022-10-24 10:15
+
+鳖星因为有林靖，基本上什么东西都能写轮眼一下，三号位英雄海就是这样的
+
+*****
+
+####  nowaki  
+##### 35800#       发表于 2022-10-24 10:15
+
+这版本中单兑子不太管用
+
+*****
+
+####  yyf奇遇记  
+##### 35801#       发表于 2022-10-24 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58072571&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-24 10:10</a>
+不可能杰士邦的，跟我说了敢掏出打折杰士邦就永久塔防好吧</blockquote>
+哦牛批还有zei种波
+
+*****
+
+####  7450  
+##### 35802#       发表于 2022-10-24 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58072667&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-24 10:14</a>
+
+讲道理，能摸决赛日地板就是化龙了好吧，液体这关肯定不好过啊，zai再畜旁边有boxi呢，现在还能当bp垃圾桶 ...</blockquote>
+低估zai了，之前胜者组打液体，boxi马西游崩三路还不是被茶2:0了
+
+茶就怕zai坐起来打
+
+*****
+
+####  齐柏林轰炸机  
+##### 35803#       发表于 2022-10-24 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四强没有LGD的TI真好啊
+
+*****
+
+####  人別離苦  
+##### 35804#       发表于 2022-10-24 10:20
+
+四强没有LGD的TI真好啊 突出一个谁赢都开心<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 35805#       发表于 2022-10-24 10:21
+
+四强没有LGD的TI真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
