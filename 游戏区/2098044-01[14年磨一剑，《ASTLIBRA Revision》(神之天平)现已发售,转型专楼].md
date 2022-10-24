@@ -9904,3 +9904,18 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 剧情有三个支线获得三个道具，楼里都有讨论看一下就好，其它在最终章都可以回头，在探索过以后实在想不出解再看攻略体验会好点。
 
+
+
+*****
+
+####  jy000129  
+##### 912#       发表于 2022-10-24 07:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58070131&amp;ptid=2098044" target="_blank">油库里 发表于 2022-10-24 01:48</a>
+完美通关了 耗时70小时 剧情好手感好音乐好养成丰富 满分神作
+
+惊喜不断 每次以为自己打完boss总有惊喜等着  ...</blockquote>
+就是大龙啊
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
