@@ -12919,3 +12919,20 @@ nagi的ins直播时间
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Kfly  
+##### 8668#       发表于 2022-10-24 22:27
+
+[【烤鱼】东海Radio「OH！MY CHANNEL！」Liyuu嘉宾部分](https://www.bilibili.com/video/BV1Qd4y1y7TA)
+
+<img src="https://img.saraba1st.com/forum/202210/24/222714n0d2dcol12s0qib2.png" referrerpolicy="no-referrer">
+
+<strong>【烤鱼】东海Radio「OH！MY CHANNEL！」Liyuu嘉宾部分 @00-00.32 1666621587560.png.png</strong> (98.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 22:27 上传
+
