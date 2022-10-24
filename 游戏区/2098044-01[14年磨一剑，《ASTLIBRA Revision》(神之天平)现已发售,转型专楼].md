@@ -10387,3 +10387,16 @@ LS至少反白下吧</blockquote>
 看评论二周目大约70小时</blockquote>
 看不懂日语啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">等一个好心老哥的攻略。玩jrpg没有攻略老是错过东西好难受
 
+
+
+*****
+
+####  dookiee  
+##### 953#       发表于 2022-10-25 06:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58086646&amp;ptid=2098044" target="_blank">laosai13 发表于 2022-10-25 04:57</a>
+看不懂日语啊等一个好心老哥的攻略。玩jrpg没有攻略老是错过东西好难受 ...</blockquote>
+这游戏几乎没什么能错过的东西，每一章没买没刷的都可以在下一章回头收集，需要注意的点只有第四章，第五章，还有第七（？）章的三个分支事件，如果选错会队友会出事，如果介意的话看一下这方面的攻略就行。还有就是进最终boss前把装备捡捡收集一下，一周目基本就完美了
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
