@@ -11808,3 +11808,167 @@ pom我给你讲，有后手控，有大招（这个不是最需要），能补�
 
 掀背小组赛打GG还是BB选过一次ga，被对面4号位马西打的动不了。
 
+
+
+*****
+
+####  tasuku  
+##### 35929#       发表于 2022-10-24 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073954&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-24 11:21</a>
+
+酱油火女可以吗</blockquote>
+可以啊
+
+*****
+
+####  12481632  
+##### 35930#       发表于 2022-10-24 11:22
+
+拳击手能玩毒瘤5那是因为他是拳击手外加秘密三大哥兜得住，换其他人这么玩早被队友把脑袋按进显示器了
+
+*****
+
+####  yyf奇遇记  
+##### 35931#       发表于 2022-10-24 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073967&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-24 11:21</a>
+掀背小组赛打GG还是BB选过一次ga，被对面4号位马西打的动不了。</blockquote>
+【Ti11小组赛 萧瑟大战BB精彩集锦全收录-哔哩哔哩】 https://b23.tv/mVXgaQZ
+
+还需要玛茜防？自己摇摇乐晕自己秒，单防自己谢谢
+
+*****
+
+####  roxas.sora  
+##### 35932#       发表于 2022-10-24 11:23
+
+你选个na自家三号位都要骂娘了，选个屠夫是想直接打完被队友把头按进去显示器么
+
+*****
+
+####  asd235614  
+##### 35933#       发表于 2022-10-24 11:23
+
+但是酱油火女的话相对pom逃生能力是不是有点差，可能打个信息直接把自己人呢打没了
+
+*****
+
+####  seki_m  
+##### 35934#       发表于 2022-10-24 11:23
+
+酱油火女生存控制都弱于pom吧
+
+*****
+
+####  nightmare902015  
+##### 35935#       发表于 2022-10-24 11:23
+
+所以冰蛙给冰女设计一个+200攻速15级天赋难道是预见了辅助都要去打棒子的一天？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 35936#       发表于 2022-10-24 11:24
+
+pom可以线上射傻狗 妮火女做得到吗
+
+*****
+
+####  fananaf  
+##### 35937#       发表于 2022-10-24 11:24
+
+淘汰赛sf 10赢1，火猫10赢2，希望银k能放过这两个英雄好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别不信邪
+
+*****
+
+####  非建政专用号  
+##### 35938#       发表于 2022-10-24 11:24
+
+往好的想想，说不定酱油火女打信息把自己打肥了原地转1
+
+*****
+
+####  adretyu67  
+##### 35939#       发表于 2022-10-24 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073993&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 11:23</a>
+
+【Ti11小组赛 萧瑟大战BB精彩集锦全收录-哔哩哔哩】 https://b23.tv/mVXgaQZ
+
+还需要玛茜防？自己摇摇乐 ...</blockquote>
+掀背选GA晕自己不是传统保留节目吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最搞笑的是我记得那年他好像想用分身斧秀一会结果分完身还把自己炸了。
+
+*****
+
+####  人別離苦  
+##### 35940#       发表于 2022-10-24 11:25
+
+昨天瑞典丁聪不还玩了个5号位谜团 刷得可开心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉桶哥对线的时候都要吐出来了
+
+
+
+*****
+
+####  ck4pa  
+##### 35941#       发表于 2022-10-24 11:25
+
+看来xg没想象中那么弱，要是45稍微做点人都赢秘密了
+
+*****
+
+####  roxas.sora  
+##### 35942#       发表于 2022-10-24 11:25
+
+可以把pom禁了啊，想不到替代品就ban了呗
+
+*****
+
+####  walfeds  
+##### 35943#       发表于 2022-10-24 11:25
+
+讲道理像pom这样学一级能跳三下这种逃生能力的全dota都没几个好吧
+
+*****
+
+####  tasuku  
+##### 35944#       发表于 2022-10-24 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073982&amp;ptid=2099454" target="_blank">12481632 发表于 2022-10-24 11:22</a>
+拳击手能玩毒瘤5那是因为他是拳击手外加秘密三大哥兜得住，换其他人这么玩早被队友把脑袋按进显示器了 ...</blockquote>
+球爹作为队内天梯最高和唯一大腿，抠店钱怎么了？
+
+*****
+
+####  Avantasi  
+##### 35945#       发表于 2022-10-24 11:27
+
+是时候选出无敌的辅助飞机了
+
+*****
+
+####  tasuku  
+##### 35946#       发表于 2022-10-24 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073999&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-24 11:23</a>
+所以冰蛙给冰女设计一个+200攻速15级天赋难道是预见了辅助都要去打棒子的一天？ ...</blockquote>
+20级谢谢
+
+*****
+
+####  食粪者  
+##### 35947#       发表于 2022-10-24 11:29
+
+撸狗去年半夜鬼叫真的司马，今年也确实司马了
+
+*****
+
+####  seki_m  
+##### 35948#       发表于 2022-10-24 11:29
+
+想看看秘密经济分配和出装，突然发现一个问题：秘密在正赛的四局比赛里一次怨灵之契都没出过
+
+小组赛里也只有鲁迅打蜘蛛之类的3才会去出怨灵
+
+版本答案？版本陷阱！
+

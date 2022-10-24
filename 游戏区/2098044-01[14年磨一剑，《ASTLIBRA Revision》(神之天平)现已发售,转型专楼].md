@@ -10010,3 +10010,27 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  jy000129  
+##### 921#       发表于 2022-10-24 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071075&amp;ptid=2098044" target="_blank">tsubaki 发表于 2022-10-24 08:22</a>
+
+LS至少反白下吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不好意思，手机端没反白功能，已经用电脑端反白了
+
+*****
+
+####  黒長直姫  
+##### 922#       发表于 2022-10-24 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073938&amp;ptid=2098044" target="_blank">格林卡罗尔 发表于 2022-10-24 11:20</a>
+封印城卫兵那死活过不去，风精灵buff上了精力过了400，减缓精力下降和凭依距离增加的嘉隆技也有还是过不去
+ ...</blockquote>
+拿到空中冲刺再来呗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

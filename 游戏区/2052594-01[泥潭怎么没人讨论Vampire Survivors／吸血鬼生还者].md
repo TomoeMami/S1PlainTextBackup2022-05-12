@@ -3583,3 +3583,18 @@ xgp版的更新1.0了么
 ——  ...</blockquote>
 贴吧内容就挺全的，隐藏人物解锁可以去B站找视频
 
+
+
+*****
+
+####  oznark  
+##### 347#       发表于 2022-10-24 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073836&amp;ptid=2052594" target="_blank">evagle 发表于 2022-10-23 20:15</a>
+为啥我怎么试都不对。。
+
+类似的攻略试了五六种了</blockquote>
+考虑到spam是垃圾邮件的意思，埋了个邮件轰炸的梗，可能需要在短时间内完成输入才行，以前旧版本才更新的时候这个同样的操作我试了好几次才成功。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
