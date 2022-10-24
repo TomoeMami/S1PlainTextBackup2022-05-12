@@ -9984,3 +9984,18 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  黒長直姫  
+##### 919#       发表于 2022-10-24 09:28
+
+ 本帖最后由 黒長直姫 于 2022-10-24 09:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071321&amp;ptid=2098044" target="_blank">yongze 发表于 2022-10-24 08:47</a>
+
+这游戏要是能第一时间上ns就好了，游戏的进展方式真适合随手玩一玩，不过有些台词真劲爆啊如果上了ns不知道 ...</blockquote>
+没有newgame+
+
+我们在讨论的二周目实际上只是游戏剧情的二周目，全收集必然是完美结局的
+
