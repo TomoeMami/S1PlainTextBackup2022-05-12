@@ -2039,3 +2039,159 @@ wings夺冠，他们几个还有领队带着女朋友聚会吧，那个直播，
 
 文爱胖子打职业就是想喝水，望周知。
 
+
+
+*****
+
+####  北欧王座  
+##### 36229#       发表于 2022-10-24 13:52
+
+xinQ感觉真有点被打玉玉了。看好明年也被清算。这逼打线水平其实一般。fb线上把炸有他一份功劳的
+
+*****
+
+####  IG.430  
+##### 36230#       发表于 2022-10-24 13:52
+
+部队里处级是分界线，比处级高的多少沾点刻板印象
+
+*****
+
+####  Sabbah  
+##### 36231#       发表于 2022-10-24 13:53
+
+有没有可能是能放技能的新版大黑龙呢
+
+*****
+
+####  12481632  
+##### 36232#       发表于 2022-10-24 13:53
+
+你楼萨特浓度有点高了
+
+*****
+
+####  OVTVO  
+##### 36233#       发表于 2022-10-24 13:54
+
+不过Y当时和那个ABC感觉也就是玩玩吧，被起了个脑浆Y的外号也算挺倒霉了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+SYL：XINQ我一直觉得像4号位AME，只不过情商挺高的，也没啥盘，还知道抱小明鞭大腿，所以给人印象还行。
+
+*****
+
+####  yyf奇遇记  
+##### 36234#       发表于 2022-10-24 13:55
+
+对了，这个余韵不是当时撸狗鞭夺冠时候的女朋友，那个女朋友跟跳刀跳刀的女朋友一样很低调，而且还是萌萌二次元
+
+*****
+
+####  反方向的波  
+##### 36235#       发表于 2022-10-24 13:55
+
+<blockquote>  处级是分界线</blockquote>
+
+*****
+
+####  seki_m  
+##### 36236#       发表于 2022-10-24 13:56
+
+别尬黑，micke昨天也出吹风
+
+*****
+
+####  火鸡味锅巴  
+##### 36237#       发表于 2022-10-24 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076266&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-24 13:49</a>
+
+哇这余韵和她的海军上校父亲也太酷了，完美符合我这么多年和部队里一部分老东西以及他们子女打交道的感受。 ...</blockquote>
+了解之后突然理解了大林子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 36238#       发表于 2022-10-24 13:57
+
+余韵海军上校是什么梗，有出处吗
+
+*****
+
+####  蛭人  
+##### 36239#       发表于 2022-10-24 13:58
+
+文爱胖子这种铁了心要喝水的，是真的牛逼，可能这就是水厂的超能力吧。
+
+*****
+
+####  tasuku  
+##### 36240#       发表于 2022-10-24 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076093&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-24 13:39</a>
+longdd打职业时脾气这么吊，结果蹭burning、yyf，到现在直接化身集美，鉴定为csdx好吧 ...</blockquote>
+撸狗代言人本来就是畜生了啊，还需要2022年才来鉴定？？？
+
+
+
+*****
+
+####  OVTVO  
+##### 36241#       发表于 2022-10-24 13:58
+
+小明鞭现在的女友好像是喜欢写写公众号，明鞭觉得她写的不错，慢慢认识的吧。（当时翻他女友微博时看到的，不太确定。）
+
+*****
+
+####  acacaclove  
+##### 36242#       发表于 2022-10-24 13:58
+
+二毛三高低是个驱逐舰舰长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 36243#       发表于 2022-10-24 14:01
+
+翻到了
+
+<img src="https://p.sda1.dev/7/5cb3db73b22fe405959df25d5371453d/CMP_20221024140108925.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 36244#       发表于 2022-10-24 14:01
+
+文爱肥猪如果真是世界级的实力，就不会在三线队这么多年了，本质还是人脉dota搭了邪恶35的车
+
+森哥，出道就是天之骄子；卡狗，一转会Ehome就MDL夺冠，然后Newbee成绩无数；野王，第一年一线队就DAC2；二冰，出道和老逼们DAC第四，第二年夺冠
+
+他前队友PYW都先出成绩，换了秒男之后VG实力完全没有下滑，在MDL成都，新加坡邀请赛，莱比锡major都是前三
+
+*****
+
+####  火鸡味锅巴  
+##### 36245#       发表于 2022-10-24 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076379&amp;ptid=2099454" target="_blank">acacaclove 发表于 2022-10-24 13:58</a>
+
+二毛三高低是个驱逐舰舰长了条件应该非常好吧</blockquote>
+只能说还好海上有权让人下台。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 36246#       发表于 2022-10-24 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076147&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-24 13:41</a>
+卜是，怎么说都比艹坦克皮套人强一百倍吧</blockquote>
+你看了照片再来说这话
+反正对比起来我宁愿选女装鹏儿
+
+*****
+
+####  roxas.sora  
+##### 36247#       发表于 2022-10-24 14:02
+
+。。。。。。。。。。。这高华女友的味也太冲了，我最恶心就是英语和中文夹着说的
+

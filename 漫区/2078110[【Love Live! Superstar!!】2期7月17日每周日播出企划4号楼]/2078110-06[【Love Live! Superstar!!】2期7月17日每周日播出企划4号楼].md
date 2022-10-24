@@ -12490,3 +12490,14 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">也就是cd可以给你好好修，以前看皮套人的live有的都能给修出电音了
 
+
+
+*****
+
+####  永恒的王牌  
+##### 8631#       发表于 2022-10-24 13:55
+
+人家都说了二期生和老五人差距是看点了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ABR-AL60, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

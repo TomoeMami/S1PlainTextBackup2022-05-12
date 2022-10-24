@@ -378,3 +378,14 @@
 那四个必带ex，其他的就是稀有掉落，我记得老转世也掉的</blockquote>
 发现没说清楚，是2.0新加的蓝武
 
+
+
+*****
+
+####  Mitka  
+##### 17135#       发表于 2022-10-24 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58072458&amp;ptid=1158205" target="_blank">poor 发表于 2022-10-24 10:02</a>
+发现没说清楚，是2.0新加的蓝武</blockquote>
+蓝武是每个区域宝箱出四种，两种门票怪出其中一种，boss出其中两种，没改过。是不是你看的攻略没写清楚
+
