@@ -713,3 +713,12 @@ PC大屏听歌对味，AA快下池
 ナガイド最新一起锐评这游戏，还请了剑与远征戏氪了500万服务器第一的人来解释为啥会氪金。那个人说，本来 ...</blockquote>
 莉莉丝这方面绝对是祖师爷级别的。  很多游戏学，但是学到精髓的很少。
 
+
+
+*****
+
+####  Hukyouwaon  
+##### 82#       发表于 2022-10-24 10:08
+
+一周就达成了开服一个月流水五亿的预期，日本人还是能氪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -366,3 +366,15 @@
 —— 来 ...</blockquote>
 那四个必带ex，其他的就是稀有掉落，我记得老转世也掉的
 
+
+
+*****
+
+####  poor  
+##### 17134#       发表于 2022-10-24 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071501&amp;ptid=1158205" target="_blank">Mitka 发表于 2022-10-24 09:02</a>
+
+那四个必带ex，其他的就是稀有掉落，我记得老转世也掉的</blockquote>
+发现没说清楚，是2.0新加的蓝武
+

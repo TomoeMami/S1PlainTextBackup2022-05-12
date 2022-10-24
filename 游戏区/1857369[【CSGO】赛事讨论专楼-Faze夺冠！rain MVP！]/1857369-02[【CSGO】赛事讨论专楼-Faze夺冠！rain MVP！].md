@@ -110,3 +110,12 @@
 farlig这个可恨的菜逼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打得像头猪
 a队在短短一年内把lucky和farlig这对卧龙凤雏集齐也是不容易，怎么精挑细选出这种货色的
 
+
+
+*****
+
+####  dev2ce  
+##### 2631#       发表于 2022-10-24 10:09
+
+又输给点子代表a队今年最后两个月一场大赛都没得打了，设备回不回来还重要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
