@@ -12481,3 +12481,12 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 “未来可期”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我当然希望她能快速进步，而不是像现在这样就算在精修过的cd里也经常唱得这么出众
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8630#       发表于 2022-10-24 13:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">也就是cd可以给你好好修，以前看皮套人的live有的都能给修出电音了
+

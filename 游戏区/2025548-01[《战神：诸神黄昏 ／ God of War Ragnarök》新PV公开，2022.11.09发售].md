@@ -7123,3 +7123,29 @@ reddit，战神版块
 
 [https://twitter.com/kufrzz](https://twitter.com/kufrzz)  这个图片比较全 （严重剧透）
 
+
+
+*****
+
+####  纱布光环  
+##### 772#       发表于 2022-10-24 13:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HDGDG  
+##### 773#       发表于 2022-10-24 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076185&amp;ptid=2025548" target="_blank">纱布光环 发表于 2022-10-24 13:44</a>
+
+没看出啥剧透的。。。有没有大的</blockquote>
+外网有人说reddit有人把整个剧情泄露出去了，但是我没有找到
+
+*****
+
+####  漫漫来  
+##### 774#       发表于 2022-10-24 13:50
+
+比较关心游戏长度，这么快打完白金是不是说明内容不是很多？我记得法环白金可没有那么快
+
