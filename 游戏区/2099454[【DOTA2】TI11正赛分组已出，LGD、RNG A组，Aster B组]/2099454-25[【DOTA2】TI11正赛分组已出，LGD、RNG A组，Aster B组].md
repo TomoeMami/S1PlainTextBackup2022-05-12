@@ -1348,3 +1348,156 @@ clown king✔
 
 余亚军好歹可能平时喜欢扭着水桶腰打半场球
 
+
+
+*****
+
+####  morwhipppo  
+##### 36159#       发表于 2022-10-24 13:24
+
+29号皮球能不能穿24号紫金战衣上场啊，等不及了，没有曼巴之魂的东西
+
+*****
+
+####  蛭人  
+##### 36160#       发表于 2022-10-24 13:25
+
+有没有想到她可能是个纯蹭子，篮球比赛都没看过几场的，还记得连夜给皮套人girls help girls吗。
+
+*****
+
+####  12481632  
+##### 36161#       发表于 2022-10-24 13:26
+
+女的喜欢焦比，AI，欧文的都不少，喜欢也中的倒是不多
+
+*****
+
+####  哈曼的YY  
+##### 36162#       发表于 2022-10-24 13:27
+
+集美已经钦定ti11的第一C了
+ <blockquote> #45ghostkinght 766740
+
+级别: 砍了就跑声望: 105(lv4)注册: 08-02-03威望: -1(警告1)
+
+​
+
+引用
+
+回复
+
+转发
+
+更多
+
+2022-10-24 10:35    
+
+10​
+
++R by [zhuzheqing1] (2022-10-24 01:56)
+
+啥情况？别人大哥破晓冰女拿出来就赢进ban位，所以才好拿到小强TS。
+
+我觉得这届目前表现第一c是水晶，破晓玩的多好不说了，玩个传统的小黑，也能让Nisha吃最多的资源打真核，中期切入也是冷静的可怕，队友死完了只要Nisha的TS还没死就永远在后面看，对面人都看不见跟毛。
+
+ame这版本身上的资源侧重、BP侧重、英雄功能是有问题的，你LGD中单和三号位不好发挥的很多原因是BP没有为他们足够服务，有时候BP完就进了被针对的垃圾桶。
+
+现在胜者组两支强队，secret中单Nisha真核，Tundra三号位
+
+惊呆了 第一次见到有人吹小水晶的
+
+他血魔大圣绝活还行 别的也能拿出来吹 要是og有秘密的成绩那有垃圾也成第一c了 你说ame1819不如上帝切入 21年输给丫头肉棋差一着 其他他比哪个前面的差吗？斯科特？鹏子？小水晶？桶哥？后面的就不说了，k1？23？帕卡斯？
+
+但凡你上面说的任何一个这一届都能找出不止两三个名场面，包括胜者组的，这种名场面放到ame身上早就爆炸了。
+
+吹秘密可以，吹nisha可以，吹砸牙科可以，甚至你吹鲁迅都可以，吹小水晶我是真没搞明白。。。</blockquote>
+
+*****
+
+####  六娃  
+##### 36163#       发表于 2022-10-24 13:27
+
+ 本帖最后由 六娃 于 2022-10-24 13:31 编辑 
+
+还在uncrowned king，哥们直接链接糊脸
+[https://www.reddit.com/r/DotA2/c ... _made_ame_a_poster/](https://www.reddit.com/r/DotA2/comments/xof777/i_made_ame_a_poster/)
+
+高赞评论如下：
+
+rising inflation of kings in the dota pro scene
+
+Jesus, go wash your face man.
+
+LGD is the best team for 364 days(363* they choked against spirit in the arlington major grand finals too)
+
+Needs some fireworks in the background
+
+The Burning of this generation
+
+The King that never was.
+
+Ame uncrowned king. Fy uncrowned God.
+
+Uncrowned King of Choke
+
+*****
+
+####  yyf奇遇记  
+##### 36164#       发表于 2022-10-24 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075816&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-24 13:19</a>
+李阿姨都跟干瘪合作了，这群切片狗看干瘪滚了敢放半个屁？</blockquote>
+<img src="https://p.sda1.dev/7/9ccc78be0d387aa8370b65c504afaad6/Screenshot_20220810_160922.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  C语言之父谭浩强  
+##### 36165#       发表于 2022-10-24 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075915&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-24 13:27</a>
+集美已经钦定ti11的第一C了</blockquote>
+对的，正确的。ti前4队伍的c都不如我giegie<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 36166#       发表于 2022-10-24 13:30
+
+毕竟喝水你可以获得4090，喝茶，打野你还得自己掏钱。
+
+*****
+
+####  winkle  
+##### 36167#       发表于 2022-10-24 13:30
+
+东野奎吾 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  六娃  
+##### 36168#       发表于 2022-10-24 13:31
+
+白皮是有脑残集美，但真正看了几年比赛的白皮，都无比希望A畜再多坑队友几年
+
+*****
+
+####  勤练带来力量  
+##### 36169#       发表于 2022-10-24 13:31
+
+我错得彻底，我天真的以为老干瘪滚了就清净了看不到集美发大水了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 36170#       发表于 2022-10-24 13:31
+
+白皮是有脑残集美，但真正看了几年比赛的白皮，都无比希望A畜再多坑队友几年
+
+*****
+
+####  yourSwaTer  
+##### 36171#       发表于 2022-10-24 13:32
+
+我也特别欣赏RTZ和EE，巴不得他们打一辈子
+
