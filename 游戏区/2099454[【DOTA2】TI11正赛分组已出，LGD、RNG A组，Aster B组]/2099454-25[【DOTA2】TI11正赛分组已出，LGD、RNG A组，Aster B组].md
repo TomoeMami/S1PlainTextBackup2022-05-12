@@ -7125,3 +7125,158 @@ FY本尊搞这活那也太跌份了</blockquote>
 
 脑东京这是一踢四啦？
 
+
+
+*****
+
+####  nowaki  
+##### 36784#       发表于 2022-10-24 21:23
+
+[https://www.bilibili.com/video/BV1zS4y1X7w8](https://www.bilibili.com/video/BV1zS4y1X7w8)
+
+Maybe演示TI8决赛水人打猴子到底好不好打？
+
+虽然森哥不干这种事，但maybe真的干过
+
+*****
+
+####  越动天下  
+##### 36785#       发表于 2022-10-24 21:25
+
+脑东京真走了吗 自己去证明自己还是被崩溃踢了
+
+*****
+
+####  越动天下  
+##### 36786#       发表于 2022-10-24 21:26
+
+kuku也被踢了吗 真的假的
+
+*****
+
+####  六娃  
+##### 36787#       发表于 2022-10-24 21:26
+
+脑东京明显是跟布查小胖决裂了，他跟34关系都还可以
+
+*****
+
+####  walfeds  
+##### 36788#       发表于 2022-10-24 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083078&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-24 21:05</a>
+
+escore独家消息：Torontotokyo打算和Save以及Nightfall组队
+
+Torontotokyo打算离开TI10冠军队伍，根据escor ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蒙古中单这么自信剩下的两位看得起自己？
+
+*****
+
+####  反方向的波  
+##### 36789#       发表于 2022-10-24 21:28
+
+窝觉得布查小胖子和老京东都要走
+
+*****
+
+####  Keynes  
+##### 36790#       发表于 2022-10-24 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58082969&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-24 20:58</a>
+
+这届TI刀塔之神仿佛存在又没完全存在冠超努力了结果阳了一轮游，大家叹息的时候他来个jiayouachu， ...</blockquote><blockquote>你可以试试
+
+     已绑定手机
+
+0
+
+精华        
+
+95
+
+战斗力        
+
+2587
+
+帖子
+
+火球法师
+
+积分67780
+
+阅读权限80注册时间2014-8-19
+
+发消息
+
+18585#
+
+ 发表于 2022-10-20 15:46 | 只看该作者
+
+我不装了，我就是小超人，把超哥最好的几年绑住的时候开黑的，然后就是wings风波，开着VPGAME还好意思各种推广，假赛论</blockquote>
+
+真的respect兄弟
+
+*****
+
+####  winkle  
+##### 36791#       发表于 2022-10-24 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083394&amp;ptid=2099454" target="_blank">越动天下 发表于 2022-10-24 21:26</a>
+
+kuku也被踢了吗 真的假的</blockquote>
+真的。看 Transfers [https://liquipedia.net/dota2/Main_Page](https://liquipedia.net/dota2/Main_Page)
+
+*****
+
+####  lyjssj  
+##### 36792#       发表于 2022-10-24 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">余亚军能再年轻哪怕三岁就好了，妥妥的西恩dota下一代基石
+
+现在么就看周末了，然后最多再干个2年就去接国土的班了吧
+
+*****
+
+####  Litccc  
+##### 36793#       发表于 2022-10-24 21:30
+
+ 本帖最后由 Litccc 于 2022-10-24 21:32 编辑 
+
+<img src="https://img.saraba1st.com/forum/202210/24/213003jr0xozlrzso5ozmm.png" referrerpolicy="no-referrer">
+
+<strong>8xQoi7m-12xbZ2rT3cShd-qa.png</strong> (100.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 21:30 上传
+
+不用等两年，国土不好好bp明年就得滚蛋好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 36794#       发表于 2022-10-24 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083394&amp;ptid=2099454" target="_blank">越动天下 发表于 2022-10-24 21:26</a>
+
+kuku也被踢了吗 真的假的</blockquote>
+来源页面是脸书，但司马扎克伯格不登录不让看
+
+*****
+
+####  越动天下  
+##### 36795#       发表于 2022-10-24 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083429&amp;ptid=2099454" target="_blank">winkle 发表于 2022-10-24 21:29</a>
+真的。看 Transfers https://liquipedia.net/dota2/Main_Page</blockquote>
+好似好似
+
+*****
+
+####  lmslardar  
+##### 36796#       发表于 2022-10-24 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58082730&amp;ptid=2099454" target="_blank">王宇旻❤潘婕 发表于 2022-10-24 20:42</a></blockquote>
+鉴定为不真，longdidi说的
+

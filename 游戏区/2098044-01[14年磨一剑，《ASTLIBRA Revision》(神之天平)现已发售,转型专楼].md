@@ -10258,3 +10258,15 @@ LS至少反白下吧</blockquote>
 我吐了，砂糖的掉率是多少，我刷了半个小时一个都没见着</blockquote>
 打东京研究所里的盆栽掉率高一点。
 
+
+
+*****
+
+####  黒長直姫  
+##### 941#       发表于 2022-10-24 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58082812&amp;ptid=2098044" target="_blank">苏西踩到我了 发表于 2022-10-24 20:47</a>
+
+我吐了，砂糖的掉率是多少，我刷了半个小时一个都没见着</blockquote>
+去面包店买果酱面包分解 别刷了 蛋疼
+
