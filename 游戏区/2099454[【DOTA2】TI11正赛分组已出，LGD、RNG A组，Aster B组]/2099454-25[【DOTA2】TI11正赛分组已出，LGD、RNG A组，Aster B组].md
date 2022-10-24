@@ -6862,3 +6862,133 @@ BC本来能赢的结果阳了，还让个跳大锤AAAA的畜生仿佛C了一样�
 
 无非就是现在多喷一个小蚂蚁，一轮游大于六强
 
+
+
+*****
+
+####  Litccc  
+##### 36757#       发表于 2022-10-24 21:05
+
+escore独家消息：Torontotokyo打算和Save以及Nightfall组队
+
+Torontotokyo打算离开TI10冠军队伍，根据escore的消息，他打算和Save以及Nightfall组队
+
+在TI11被淘汰后，Mira和Spirit经理Korb3n 没有确定队伍会继续保持不变。
+
+*****
+
+####  恐怖利刃  
+##### 36758#       发表于 2022-10-24 21:05
+
+<img src="https://img.saraba1st.com/forum/202210/24/210553r8eeu34igquwh4og.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>26E23370-A5F6-4FBE-8CBC-7EBD93CFD316.jpeg</strong> (82.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 21:05 上传
+
+*****
+
+####  nowaki  
+##### 36759#       发表于 2022-10-24 21:06
+
+除去这两年被集美污蔑的，你不会以为冠超孝子一直以来不司马吧
+
+*****
+
+####  没钱买手办  
+##### 36760#       发表于 2022-10-24 21:07
+
+当什么集美小蚂蚁
+
+不如和我一起支持余亚军布莱恩特和他一起学习曼巴精神
+
+*****
+
+####  枯风瘦雪02  
+##### 36761#       发表于 2022-10-24 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083078&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-24 21:05</a>
+
+escore独家消息：Torontotokyo打算和Save以及Nightfall组队
+
+Torontotokyo打算离开TI10冠军队伍，根据escor ...</blockquote>
+也好也好，不过我觉得ts下赛季想有点作为还是得把mira踢了，一个四号位打不了先手简直太笑话了
+
+*****
+
+####  nowaki  
+##### 36762#       发表于 2022-10-24 21:08
+
+Nightfall要玉玉了，不是崩溃真带不动脑东京
+
+*****
+
+####  勤练带来力量  
+##### 36763#       发表于 2022-10-24 21:08
+
+余亚军Bryant都不穿科比战衣，鉴定为没有曼巴之魂的东西
+
+*****
+
+####  勤练带来力量  
+##### 36764#       发表于 2022-10-24 21:09
+
+ 本帖最后由 勤练带来力量 于 2022-10-24 21:11 编辑 
+
+nightfull跑路了，不会崩溃跑去给myboy打三吧
+
+*****
+
+####  六娃  
+##### 36765#       发表于 2022-10-24 21:10
+
+我觉得mira换save再找个年轻中单就挺好的
+可惜俄罗斯烧0是collapse的铁好兄弟
+
+*****
+
+####  你可以试试  
+##### 36766#       发表于 2022-10-24 21:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">东京是被踢还是自己出走的啊，这雪碧散了有点可惜，我觉得练练还是有戏的，老东京至少还贡献了一把请神火卡
+
+*****
+
+####  roxas.sora  
+##### 36767#       发表于 2022-10-24 21:11
+
+圣子华炼这个语言表达能力还想去吃教练这碗饭？算了吧，建议他回放自己直播解说比赛说了啥
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yourSwaTer| + 1|哈哈|
+
+查看全部评分
+
+*****
+
+####  roxas.sora  
+##### 36768#       发表于 2022-10-24 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083146&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-24 21:09</a>
+
+nightfull跑路了，不会崩溃跑去给myboy打三吧</blockquote>
+克莱普斯又不会英语...........
+
+*****
+
+####  坚定的团子党  
+##### 36769#       发表于 2022-10-24 21:12
+
+核中核，kuku、xepher被t1踢了，ana和森普留队
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
