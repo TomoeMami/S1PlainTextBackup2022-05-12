@@ -7237,3 +7237,15 @@ boy真的是可操作角色，没让我失望
 
 不是说还要去埃及吗，奎爷死了咋去。。
 
+
+
+*****
+
+####  HDGDG  
+##### 786#       发表于 2022-10-24 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076555&amp;ptid=2025548" target="_blank">lbb3313725 发表于 2022-10-24 14:10</a>
+
+不是说还要去埃及吗，奎爷死了咋去。。</blockquote>
+只是猜测，现在还不确定到底死没死
+

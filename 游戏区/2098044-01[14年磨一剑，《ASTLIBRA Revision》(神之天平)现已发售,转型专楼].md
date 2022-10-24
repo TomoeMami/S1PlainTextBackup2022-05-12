@@ -10143,3 +10143,17 @@ LS至少反白下吧</blockquote>
 这个馅饼不会需要高级合成书吧，普通的合成好像没有</blockquote>
 打竞技场会获得新的合成书
 
+
+
+*****
+
+####  Sannapolis  
+##### 930#       发表于 2022-10-24 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076516&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-24 14:07</a>
+
+这个馅饼不会需要高级合成书吧，普通的合成好像没有</blockquote>
+是要高级合成书
+
+第五章竞技场任务破坏的美学给的
+

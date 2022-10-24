@@ -12510,3 +12510,12 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 阴阳怪气地说，运营觉得五老星的舞台表现太稳了没有养成感，于是加入新人让粉丝好好感受一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 8633#       发表于 2022-10-24 14:13
+
+老实讲，二期的歌我到现在都没怎么听，新发的那张插曲单我至今都没打开过<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

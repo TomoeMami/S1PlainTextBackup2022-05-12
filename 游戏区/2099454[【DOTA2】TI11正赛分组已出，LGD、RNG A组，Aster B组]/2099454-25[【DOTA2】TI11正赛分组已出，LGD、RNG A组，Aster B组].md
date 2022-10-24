@@ -2450,3 +2450,225 @@ yatoro
 
 傻卵二次元带樱花兄弟的是日本队，望周知
 
+
+
+*****
+
+####  六娃  
+##### 36276#       发表于 2022-10-24 14:12
+
+哦牛批，原来脑浆歪去年输了掰手指不只是因为被割割坑了冠军还有被割割日了喜欢的皮套坦克
+
+*****
+
+####  roxas.sora  
+##### 36277#       发表于 2022-10-24 14:13
+
+现在集美的策略已经是开始带本届ti质量低，不如以前，只会乱打，失误多了
+
+*****
+
+####  acacaclove  
+##### 36278#       发表于 2022-10-24 14:13
+
+不过余韵这人和她爹倒是很符合我家里亲戚描述说他去新世纪前后开会遇到的遇到的某些人和我从几个军坛里看到的刻板印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Lamapocos  
+##### 36279#       发表于 2022-10-24 14:13
+
+文爱胖子一比较低调，输了比赛主动出来接锅；二是文爱胖子没有那么多颜值排卵粉，也就是死妈集美群体
+
+*****
+
+####  StrangerJ  
+##### 36280#       发表于 2022-10-24 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076566&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-24 14:10</a>
+ana
+yatoro</blockquote>
+牛的，还都是一号位
+
+*****
+
+####  赤星ビスコ  
+##### 36281#       发表于 2022-10-24 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076477&amp;ptid=2099454" target="_blank">夏溪澪mio 发表于 2022-10-24 14:05</a>
+
+脑浆y最初是什么梗？
+
+—— 来自 Xiaomi Mi 10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+就是sg的说y交了女朋友后脑浆都射出来了
+
+*****
+
+####  OVTVO  
+##### 36282#       发表于 2022-10-24 14:13
+
+不用了就好，我想多了。
+
+SYL：靠DOTA吃饭的铁血集美真没几个，像刀客阿林这种主打MDY的据说根本不靠DOTA视频吃饭，只能说清算也要一步步来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  nightmare902015  
+##### 36283#       发表于 2022-10-24 14:14
+
+厨子那样子跟个高中生一样居然夺冠之前就当爹了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 36284#       发表于 2022-10-24 14:14
+
+脑浆y确实是鸡哥先说的
+
+*****
+
+####  Avantasi  
+##### 36285#       发表于 2022-10-24 14:15
+
+那不是认了A畜当儿子吗…兄弟你在想啥
+
+*****
+
+####  bluebaby  
+##### 36286#       发表于 2022-10-24 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076611&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-24 14:13</a>
+现在集美的策略已经是开始带本届ti质量低，不如以前，只会乱打，失误多了 ...</blockquote>
+每届都是质量最低的一届，但每届质量这么低都没见geigei夺冠啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人別離苦  
+##### 36287#       发表于 2022-10-24 14:15
+
+有没可能 他们的儿子是同个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Mikumiku831  
+##### 36288#       发表于 2022-10-24 14:15
+
+反正我看的Longdd解说 感觉视角基本都是放茶身上 明显偏茶一点
+
+很爽·1
+
+*****
+
+####  百世诸侯  
+##### 36289#       发表于 2022-10-24 14:15
+
+那不是认了A畜当儿子吗…兄弟你在想啥
+
+*****
+
+####  nightmare902015  
+##### 36290#       发表于 2022-10-24 14:16
+
+😫😫哥们还是纯良了点
+
+*****
+
+####  蛭人  
+##### 36291#       发表于 2022-10-24 14:16
+
+有没可能 他们的儿子是同个人
+
+*****
+
+####  walfeds  
+##### 36292#       发表于 2022-10-24 14:16
+
+突然想起来，厨子到底是不是骨科<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 36293#       发表于 2022-10-24 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076656&amp;ptid=2099454" target="_blank">bluebaby 发表于 2022-10-24 14:15</a>
+
+每届都是质量最低的一届，但每届质量这么低都没见geigei夺冠啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">吹的是ti8和9质量高，10是假赛，11是水平太低
+
+*****
+
+####  yyf奇遇记  
+##### 36294#       发表于 2022-10-24 14:16
+
+有没可能 他们的儿子是同个人https
+
+*****
+
+####  StrangerJ  
+##### 36295#       发表于 2022-10-24 14:16
+
+😫😫哥们还是纯良了点
+
+*****
+
+####  bluebaby  
+##### 36296#       发表于 2022-10-24 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076676&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-24 14:16</a>
+吹的是ti8和9质量高，10是假赛，11是水平太低</blockquote>
+记得以前og冠军时候lxo说的明明是水平低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 36297#       发表于 2022-10-24 14:18
+
+鉴定为管人看多了
+
+*****
+
+####  tasuku  
+##### 36298#       发表于 2022-10-24 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076619&amp;ptid=2099454" target="_blank">Lamapocos 发表于 2022-10-24 14:13</a>
+文爱胖子一比较低调，输了比赛主动出来接锅；二是文爱胖子没有那么多颜值排卵粉，也就是死妈集美群体 ...</blockquote>
+不是说男同都喜欢xincute这种吗？
+
+*****
+
+####  Cantha  
+##### 36299#       发表于 2022-10-24 14:18
+
+长的丑还是有好处的
+
+*****
+
+####  roxas.sora  
+##### 36300#       发表于 2022-10-24 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076693&amp;ptid=2099454" target="_blank">bluebaby 发表于 2022-10-24 14:17</a>
+
+记得以前og冠军时候lxo说的明明是水平低</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">现在要带超哥和处长合体的节奏，只能切割现在这批队友了
+
+
+
+*****
+
+####  morwhipppo  
+##### 36301#       发表于 2022-10-24 14:21
+
+IWO和TI都是茶成绩比较好，RU婊要是最后蹭不到亚运会的话，会不会崩溃啊，否则还能拿亚运会金牌来营销
+
+*****
+
+####  adretyu67  
+##### 36302#       发表于 2022-10-24 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076146&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-24 13:41</a>
+
+nts的问题倒不是滚滚，而是他传统中单基本上没一个绝活的。
+
+你一个打中的sf ts 这种基本功型中单都拿不出来 ...</blockquote>
+虾之国中单应该都有一手绝活sf的，很难想象一个sea出身的中单自己不是绝活sf
+
