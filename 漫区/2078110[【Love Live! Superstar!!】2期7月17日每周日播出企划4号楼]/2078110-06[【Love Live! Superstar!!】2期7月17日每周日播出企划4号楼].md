@@ -12808,3 +12808,12 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退一步越想越气，但又不好直接骂
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 8658#       发表于 2022-10-24 20:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回味无穷了属于是，感觉这样下去立本可推要憋出病来了，毕竟现场也见不到鱼clive，属实亏大了
+
