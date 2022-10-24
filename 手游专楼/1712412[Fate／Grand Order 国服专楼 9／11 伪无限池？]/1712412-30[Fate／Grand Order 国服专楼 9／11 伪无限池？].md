@@ -125,3 +125,15 @@
 
 C闪的回收真是感天动地！6怪都很难拯救。
 
+
+
+*****
+
+####  J-002  
+##### 43647#       发表于 2022-10-24 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075757&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-10-24 13:15</a>
+
+C闪的回收真是感天动地！6怪都很难拯救。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">生前过劳死过，上座后宁可挨骂都不加班
+
