@@ -3755,3 +3755,162 @@ ti9那场打lgd的三点金输局就充分暴露了油面终结能力弱的特�
 
 就这种C，23458都能带他躺赢这么多把，只能说到刀塔这游戏还是太温柔了
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 36429#       发表于 2022-10-24 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077956&amp;ptid=2099454" target="_blank">guojiaoqi 发表于 2022-10-24 15:40</a>
+lgd滚一天了还在搬💩，别恶心人了
+然后越发感觉几乎所有人都没客户端了，写的东西突出没玩过游戏， ...</blockquote>
+赢了又赢啊真是，这么喜欢批判怎么不去nga批判，在这虚空输出个什么劲
+
+*****
+
+####  maju3  
+##### 36430#       发表于 2022-10-24 15:54
+
+r畜去年小象回家局bp，提前一天被太监论坛全猜出来了，就这还能吹的
+
+*****
+
+####  樱冢名月  
+##### 36431#       发表于 2022-10-24 15:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不然怎么说A处就是鳖鳖的传承者呢，下一步怕不是鳖王子学老鳖生涯末期的工具人节奏打法了
+
+*****
+
+####  yyf奇遇记  
+##### 36432#       发表于 2022-10-24 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078121&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-24 15:53</a>
+哥哥还有切入能力啊，我永远忘不了那一场DPC，哥哥骷髅王跳刀第一波河道吃了个急速第二时间切入战场，我本 ...</blockquote>
+是不是还闪灵跳河道了一次
+
+*****
+
+####  MiteOra  
+##### 36433#       发表于 2022-10-24 15:54
+
+霉憋 A\ 今年退役还都能算体面的退役 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 组队再来一年 想体面退役可能就没那么容易了
+
+*****
+
+####  六娃  
+##### 36434#       发表于 2022-10-24 15:55
+
+霉鳖如果是真心实意想和A畜再打一年那只能祝愿新冠战胜他了
+
+*****
+
+####  bluebaby  
+##### 36435#       发表于 2022-10-24 15:56
+
+集美这么跳主要还是最后两场缺点世界名画，都是稳定的菜，没有突发奇想的灵感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一那个sa已经挺离谱的了，就缺个弱智名场面，b接对面t这种
+
+*****
+
+####  nowaki  
+##### 36436#       发表于 2022-10-24 15:56
+
+sa作为懦夫救星就得a杖大炮好吧，就是得无限拿对面酱油提款，出个冰眼bkb团战不就是see
+
+*****
+
+####  adretyu67  
+##### 36437#       发表于 2022-10-24 15:57
+
+就一句jia you a chunyu，至于能讨论这么多吗。
+
+水厂现在有更好用还没完全用坏的猴王，泰迪他能回来吗
+
+*****
+
+####  六娃  
+##### 36438#       发表于 2022-10-24 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078184&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-24 15:57</a>
+就一句jia you a chunyu，至于能讨论这么多吗。
+
+水厂现在有更好用还没完全用坏的猴王，泰迪他能回来吗 ...</blockquote>
+猴王现在声望谷底，水厂又不看实力挑人的
+
+*****
+
+####  guojiaoqi  
+##### 36439#       发表于 2022-10-24 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078130&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 15:54</a>
+赢了又赢啊真是，这么喜欢批判怎么不去nga批判，在这虚空输出个什么劲</blockquote>
+那你咋不去lga批判一番？在这楼里不就是因为不想去那边被恶心么？
+
+*****
+
+####  c88711611  
+##### 36440#       发表于 2022-10-24 15:58
+
+sa还出啥散失就是弱智，要输出不都是大炮么
+
+*****
+
+####  nowaki  
+##### 36441#       发表于 2022-10-24 15:58
+
+水厂要是看实力，ti8就把a畜踢了换鹏子了
+
+*****
+
+####  walfeds  
+##### 36442#       发表于 2022-10-24 15:59
+
+<img src="https://img.saraba1st.com/forum/202210/24/155827gnp3vnspovs4tn4x.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20221024155813.png</strong> (133.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 15:58 上传
+
+还是看看giegie这辈子比赛打sa的出装吧，突出一个路径依赖
+
+*****
+
+####  yyf奇遇记  
+##### 36443#       发表于 2022-10-24 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078197&amp;ptid=2099454" target="_blank">guojiaoqi 发表于 2022-10-24 15:58</a>
+那你咋不去lga批判一番？在这楼里不就是因为不想去那边被恶心么？</blockquote>
+所以我们聊什么需要惯着你？
+
+你一个nga跑过来的对我们指指点点干啥啊，莫名其妙的
+
+*****
+
+####  roxas.sora  
+##### 36444#       发表于 2022-10-24 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077871&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 15:34</a>
+
+ppy在ti9的bp也就能赢rotk了，打w33被米波阴我是真的服，ni公子也是米波哥，他跟midone也是可以随时12互换
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">kky能围绕w33最大限度发挥拿个亚军已经是把这套阵容上限打出来了
+
+*****
+
+####  tasuku  
+##### 36445#       发表于 2022-10-24 15:59
+
+盒中盒消息
+茶队根本没想到能进决赛周，物资没带够，现在四处找去新加坡的人帮忙带东西
+
+*****
+
+####  morwhipppo  
+##### 36446#       发表于 2022-10-24 16:00
+
+霉鳖今年退役已经是最好的退场了，明年要是真和A畜组队大概率要被猴爹处刑
+
