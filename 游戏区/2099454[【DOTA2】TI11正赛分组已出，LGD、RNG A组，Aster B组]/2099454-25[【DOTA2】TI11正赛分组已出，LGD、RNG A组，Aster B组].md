@@ -6526,3 +6526,105 @@ Liquid战队的教练Blitz近日在他的个人推特中评论了Liquid和TA的�
 
 支持㶅㴇掀背和泰迪组队，明年以一轮游后，mxo和axo打出狗脑子
 
+
+
+*****
+
+####  masterffzhou  
+##### 36725#       发表于 2022-10-24 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58082049&amp;ptid=2099454" target="_blank">啊哈 发表于 2022-10-24 19:58</a>
+支持㶅㴇掀背和泰迪组队，明年以一轮游后，mxo和axo打出狗脑子</blockquote>
+这两个字是何意啊，有没有说文解字前十来说说
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  seki_m  
+##### 36726#       发表于 2022-10-24 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58082098&amp;ptid=2099454" target="_blank">masterffzhou 发表于 2022-10-24 20:01</a>
+
+这两个字是何意啊，有没有说文解字前十来说说
+
+—— 来自 OnePlus LE2120, Android 13上的 S1Next-鹅版 v ...</blockquote>
+[@夜饮潇湘](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=262737)
+
+*****
+
+####  nowaki  
+##### 36727#       发表于 2022-10-24 20:03
+
+<blockquote>xinQ能打3吗？把iceice拉过来打4怎么样？
+
+跟iceice不和的faith_bian已经走了，iceice水平和创造力我是服的，而且我觉得LGD也需要一个加压的，不能总是哑巴或者理智的声音。
+
+iceice离开职业赛场也很久了，勤练一阵应该可以吧。而且又有xiao8盯着他。</blockquote><blockquote>其实我觉得，莫言和明鞭这次的强势英雄也就两个不会的
+
+分别是这也不会，和那也不会</blockquote><blockquote>万一茶队夺冠，其实BOBOKA埋了一个伏笔的。
+
+第二天新闻就是《嫖客勇夺TI冠军》
+
+电竞选手也算半个公众人物，当时出事了就应该退役的。
+
+我讨厌茶队只有这一个原因，其他什么A装备，burning的啥的，我觉得都还能算游戏内的，都能接受。</blockquote>
+
+*****
+
+####  柚上舍人  
+##### 36728#       发表于 2022-10-24 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081894&amp;ptid=2099454" target="_blank">啊哈 发表于 2022-10-24 19:47</a>
+
+【TI11小冠军殿【刀2西游记】-哔哩哔哩】 https://b23.tv/YJSbwY4</blockquote>
+笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 36729#       发表于 2022-10-24 20:08
+
+<blockquote>TI10周期真的是4赵云吗
+
+怎么看大家都说TI10是4兄弟带躺ame……我差点以为自己没看比赛</blockquote><blockquote>ti10的二号位真不行，虾之国老传统了。</blockquote><blockquote>肯定不是啊 只是输了决赛那不就“赢了一起狂 输了萧瑟抗”了</blockquote><blockquote>他自从被nisha开光了就不行了，胜者组决赛就隐形，决赛就是一把tk，其他时候就一般，今年直接虾毒发作了</blockquote><blockquote>决赛前就是ame拖着队伍走，不管是第一二个major还是ti淘汰赛，也怪不得lgd给ame绝对核心，东南亚的虾哥不配啊</blockquote><blockquote>说lgd打四保一的属实笑了。
+
+莫言对线能力一般，退役神对线就是弱。处长刷钱能力在那里，强行对线针对他也压不死。
+
+去年前期都是2345一起玩，均势就等处长站出来终结，劣势就等团战拉扯指望处长输出翻盘。
+
+为什么lgd是世界上最擅长翻盘的队伍？因为你23对线能力都差，对面中单稍微强一点儿直接炸两路，开局就劣势。
+
+而处长99%都按不死，横竖都能刷到钱，劣势也有经济。给处长选个大核给赵公子选个控，劣势局撕扯开空间就能打。
+
+茶队怎么打赢lgd的？sv大圣水人这种能一打五的核要么ban要么抢，熬过力丸tb的强势期团战随便接。</blockquote>
+
+*****
+
+####  thistimeforlife  
+##### 36730#       发表于 2022-10-24 20:10
+
+ 本帖最后由 thistimeforlife 于 2022-10-24 20:12 编辑 
+
+虽然23457带geigei的成绩确实比23458好点，但2个月前还势不两立的《小蚂蚁》转眼变成满屏的《梅飞瑟舞》，突然又看得起今年从dpc到major到ti都是是lgd儿子的路垚
+
+实在是绷不住，合订本该更新了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  啊哈  
+##### 36731#       发表于 2022-10-24 20:10
+
+<blockquote>masterffzhou 发表于 2022-10-24 20:01
+这两个字是何意啊，有没有说文解字前十来说说
+
+—— 来自 OnePlus LE2120, Android 13上的 S1Next-鹅版 v ...</blockquote>
+㶅㴇吗 发音同xiaoshe，而且水分四溢还是学霸很符合割割的设定
+
+*****
+
+####  银翼的维罗西  
+##### 36732#       发表于 2022-10-24 20:12
+
+爆笑如雷啦，森哥直播复盘哥哥的冰眼SA第一波，打2300血小黑A了5下掉了五百血，输出还不如火猫无影拳，难怪鹏子拉扯的飞起
+
