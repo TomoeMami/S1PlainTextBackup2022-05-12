@@ -8323,3 +8323,74 @@ Maybe演示TI8决赛水人打猴子到底好不好打？</blockquote>
 
 理性讨论，19年大家还觉得K1大神是个刷钱很快很强的南美第一C，后来发现这个比只是非常独而已
 
+
+
+*****
+
+####  你可以试试  
+##### 36918#       发表于 2022-10-25 00:13
+
+电锤电锤丶<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 36919#       发表于 2022-10-25 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58085590&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-25 00:06</a>
+🌿，怎么还有陪练sccc的啊哈哈哈哈哈</blockquote>
+当时是小人sccc和maybe一起测的吧，我就记得小人趁着wtf把水人顶死了好几次
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36920#       发表于 2022-10-25 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58084754&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-24 23:00</a>
+徐老鳖当年不也和韩国车出英雄攻略书了嘛</blockquote>
+当年1500俱乐部工资，奖金3w被俱乐部分的地方
+出本书也正常吧
+09开发卖猪肉饼后面开始带货外设才变新路子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 36921#       发表于 2022-10-25 00:16
+
+口令："当神翼凋落在那ru水老干瘪"后面的歌词 因为超出上限了所以去掉“小”字只留明鞭
+
+看看润德被清算的现状 这句歌词实在是触目惊心 清算集美领了司全家
+
+缅怀
+
+<img src="https://img.saraba1st.com/forum/202210/25/001535dozl9sss9x9s9ewy.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (83.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 00:15 上传
+
+*****
+
+####  你可以试试  
+##### 36922#       发表于 2022-10-25 00:20
+
+说到09，查了下09对战平台，没想到看着还挺滋润的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有4+1死亡随机技能的活，十多天声称封禁外挂一千多人，遗老真的多啊
+
+*****
+
+####  非建政专用号  
+##### 36923#       发表于 2022-10-25 00:21
+
+刀1是张好地图，就是哥们实在是玩不来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 36924#       发表于 2022-10-25 00:21
+
+现在在场的4个队肯定不会跟自己接下来要对战队伍互练的，交叉对练是合理的结果。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
