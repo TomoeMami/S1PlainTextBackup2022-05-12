@@ -7718,3 +7718,28 @@ errrrr，不是录播的吗</blockquote>
 
 敬业先锋
 
+
+
+*****
+
+####  yywzjsw  
+##### 12732#       发表于 2022-10-24 20:10
+
+这不完全没好嘛
+
+*****
+
+####  往世雷书  
+##### 12733#       发表于 2022-10-24 20:15
+
+心疼<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yywzjsw  
+##### 12734#       发表于 2022-10-24 20:18
+
+说ai图了，加ai可以发
+

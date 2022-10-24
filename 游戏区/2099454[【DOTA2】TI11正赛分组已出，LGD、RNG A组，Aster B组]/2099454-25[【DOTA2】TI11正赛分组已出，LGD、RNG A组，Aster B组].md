@@ -6628,3 +6628,38 @@ iceice离开职业赛场也很久了，勤练一阵应该可以吧。而且又�
 
 爆笑如雷啦，森哥直播复盘哥哥的冰眼SA第一波，打2300血小黑A了5下掉了五百血，输出还不如火猫无影拳，难怪鹏子拉扯的飞起
 
+
+
+*****
+
+####  勤练带来力量  
+##### 36733#       发表于 2022-10-24 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58082250&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-24 20:12</a>
+爆笑如雷啦，森哥直播复盘哥哥的冰眼SA第一波，打2300血小黑A了5下掉了五百血，输出还不如火猫无影拳，难怪 ...</blockquote>
+看皮球的毒狗波波团战都能活到最后就知道这个sa有多小丑了
+
+*****
+
+####  Litccc  
+##### 36734#       发表于 2022-10-24 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081894&amp;ptid=2099454" target="_blank">啊哈 发表于 2022-10-24 19:47</a>
+
+【TI11小冠军殿【刀2西游记】-哔哩哔哩】 https://b23.tv/YJSbwY4</blockquote>
+笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isla  
+##### 36735#       发表于 2022-10-24 20:16
+
+我不信二冰复出，可能性小于am重新组队
+
+*****
+
+####  Crazy_Knife  
+##### 36736#       发表于 2022-10-24 20:16
+
+那我可太喜欢看面八复出了，这集美不把他脑浆子都喷出来？比赛被爆杀回家还要被轮着喷，顶级享受了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
