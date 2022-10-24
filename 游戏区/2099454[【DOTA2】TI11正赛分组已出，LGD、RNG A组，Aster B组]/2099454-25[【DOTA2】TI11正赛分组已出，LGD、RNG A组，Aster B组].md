@@ -3551,3 +3551,153 @@ vg最搞的还是老lgd三大哥点金没打过，完全暴露了菜逼本质，
 油面这人也是够悲哀的，12可以摇摆但是打的都不行。人突出一个急了</blockquote>
 cty，rtz型c位，对线强，刷得快，切入烂，打着打着脑子不够用那种，适合a地板的打手型选手
 
+
+
+*****
+
+####  roxas.sora  
+##### 36407#       发表于 2022-10-24 15:33
+
+你看他们这类型的c位擅长的打出成绩的英雄是高度类似的
+
+*****
+
+####  lyjssj  
+##### 36408#       发表于 2022-10-24 15:33
+
+油面先被ti前三打进败者组又被ti前四送回家，某种意义上也算是平了他的历史最好ti第六的战绩<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 36409#       发表于 2022-10-24 15:33
+
+ 本帖最后由 银翼的维罗西 于 2022-10-24 15:35 编辑 
+
+我对曾焦阳的印象是17年他见到noone就被压成狗开始的，后来开始关注他是因为他后面再遇到noone一次比一次打得好，直到18年时遭遇noone完全不虚甚至还能单杀他，可见曾焦阳是学习型的中单，所以这么大年纪还能跟00后们一较高下
+
+*****
+
+####  joker9527  
+##### 36410#       发表于 2022-10-24 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077835&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-24 15:32</a>
+
+cty，rtz型c位，对线强，刷得快，切入烂，打着打着脑子不够用那种，适合a地板的打手型选手 ...</blockquote>
+cty rtz 油面 ame 基本一个水平的，只知道刷钱，打团什么的就是往地上一躺
+
+找队友水平ame &gt; rtz &gt; cty = 油面
+
+让人不禁感叹，可能找队友这事情也看颜值吧
+
+*****
+
+####  六娃  
+##### 36411#       发表于 2022-10-24 15:34
+
+ppy在ti9的bp也就能赢rotk了，打w33被米波阴我是真的服，ni公子也是米波哥，他跟midone也是可以随时12互换
+只能说脑子转的是真没正常人状态的kky快
+
+*****
+
+####  银翼的维罗西  
+##### 36412#       发表于 2022-10-24 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077726&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 15:25</a>
+
+白帆去年只是单纯想诈骗一份合同，不会还有人觉得他2020年开始有执教能力吧 ...</blockquote>
+我觉得TI10是ROTK执教老干鳖能赢，他不会相信A畜的
+
+*****
+
+####  依存香炉  
+##### 36413#       发表于 2022-10-24 15:35
+
+lgd赢了肯定是清算茶队的
+
+就是没想到lgd输了也要清算茶队
+
+永远没人能探到集美的下限
+
+*****
+
+####  六娃  
+##### 36414#       发表于 2022-10-24 15:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077873&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-24 15:34</a>
+我觉得TI10是ROTK执教老干鳖能赢，他不会相信A畜的</blockquote>
+我感觉王八换rotk可能打不过kuku就滚蛋了，当然进决赛另说
+
+*****
+
+####  枯风瘦雪02  
+##### 36415#       发表于 2022-10-24 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077798&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-24 15:29</a>
+
+油面这人也是够悲哀的，12可以摇摆但是打的都不行。人突出一个急了</blockquote>
+在NGA还没那么堕落的时候，关于他的特点总结的还是很生动的，“玩个水人在战场边缘see，挨一点打转一点血，等队友被杀光了发现自己没有输出，赶紧BKBtp然后被人活活打死”
+
+*****
+
+####  zsu222  
+##### 36416#       发表于 2022-10-24 15:36
+
+rtz出道在mlg那个黑鸟暴打dk我觉得好TM吊。打成现在这样真是唏嘘
+
+*****
+
+####  火鸡味锅巴  
+##### 36417#       发表于 2022-10-24 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077691&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 15:23</a>
+
+我感觉霉鳖是真的想跟A畜再打一年</blockquote>
+和处长再打一年我感觉他可能心脏撑不住<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 36418#       发表于 2022-10-24 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077861&amp;ptid=2099454" target="_blank">joker9527 发表于 2022-10-24 15:34</a>
+
+cty rtz 油面 ame 基本一个水平的，只知道刷钱，打团什么的就是往地上一躺
+
+找队友水平ame &gt; rtz &gt; cty =  ...</blockquote>
+ame切入比这几个强，ame是表演欲望太强烈（今年好一点，之前是太行为艺术），你看这几个人玩水人就知道了，rtz是已经不给他拿水人这种大核憋的了，切入不行，a地板或者提速伪核能最大程度发挥他对线强刷得快的优点，哪怕是大核也是tb这种a地板的
+
+*****
+
+####  Asukalangley33  
+##### 36419#       发表于 2022-10-24 15:39
+
+等一个Entity|Faith.Bian
+
+TI12送giegie回家
+
+*****
+
+####  guojiaoqi  
+##### 36420#       发表于 2022-10-24 15:40
+
+lgd滚一天了还在搬💩，别恶心人了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+然后越发感觉几乎所有人都没客户端了，写的东西突出没玩过游戏，脑子里还是几年前甚至10年前那堆东西
+也算是deadgame的一种表现吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  六娃  
+##### 36421#       发表于 2022-10-24 15:40
+
+rtz和cty都是打中的时候像个人样，一转C马上走火入魔
+
+*****
+
+####  nowaki  
+##### 36422#       发表于 2022-10-24 15:41
+
+吹么鳖切入的还得细品一下三十bkb冰眼sa
+

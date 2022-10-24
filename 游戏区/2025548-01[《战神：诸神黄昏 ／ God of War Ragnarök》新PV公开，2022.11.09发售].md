@@ -7302,3 +7302,15 @@ boy真的是可操作角色，没让我失望
 
 好想玩啊😱但是下个月没时间玩，而且朱紫也是下个月，实在抽不出时间了。我记得那个总监否认了关于之前关于时长的爆料，所以现在游戏时长有没有定论。
 
+
+
+*****
+
+####  wgoenitz  
+##### 793#       发表于 2022-10-24 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076389&amp;ptid=2025548" target="_blank">HDGDG 发表于 2022-10-24 13:59</a>
+
+战神4是arpg</blockquote>
+战神是动作冒险吧
+
