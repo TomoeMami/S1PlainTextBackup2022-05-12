@@ -2672,3 +2672,171 @@ nts的问题倒不是滚滚，而是他传统中单基本上没一个绝活的�
 你一个打中的sf ts 这种基本功型中单都拿不出来 ...</blockquote>
 虾之国中单应该都有一手绝活sf的，很难想象一个sea出身的中单自己不是绝活sf
 
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36303#       发表于 2022-10-24 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076624&amp;ptid=2099454" target="_blank">赤星ビスコ 发表于 2022-10-24 14:13</a>
+就是sg的说y交了女朋友后脑浆都射出来了</blockquote>
+oc好像在ehome也那么叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 36304#       发表于 2022-10-24 14:24
+
+话说被淘汰的队伍是不是都走了，那这四个队怎么训练啊
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36305#       发表于 2022-10-24 14:25
+
+话说现在尸王d兵伤害x2，摸4000多出怨灵之契也不是不行吧？
+
+*****
+
+####  walfeds  
+##### 36306#       发表于 2022-10-24 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076751&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-24 14:22</a>
+
+虾之国中单应该都有一手绝活sf的，很难想象一个sea出身的中单自己不是绝活sf ...</blockquote>
+虾影比赛确实不打sf的，比赛十三连败
+
+*****
+
+####  Mikumiku831  
+##### 36307#       发表于 2022-10-24 14:26
+
+茶如果12退役了把A跟M组一起是不是流量爆炸了
+
+*****
+
+####  walfeds  
+##### 36308#       发表于 2022-10-24 14:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">霉鳖如果真脑子不清楚了那只能祝他们百年好合二人幸终好吧
+
+*****
+
+####  adretyu67  
+##### 36309#       发表于 2022-10-24 14:28
+
+哇，晓菲真是冤大头。
+
+4000w买完王蠢鱼还要再花4000w买泰迪。
+
+真当晓菲是石油王啊
+
+*****
+
+####  蛭人  
+##### 36310#       发表于 2022-10-24 14:29
+
+茶队12退了，不是无缝插入厨子普森，毕竟樱花兄弟和厨子哥们，之前还找厨子当枪来着，开个玩笑。
+
+*****
+
+####  反方向的波  
+##### 36311#       发表于 2022-10-24 14:29
+
+杜鹏为什么要退役
+
+*****
+
+####  哈曼的YY  
+##### 36312#       发表于 2022-10-24 14:30
+
+看了下chu的炸弹人 突然意识到这个els云顶是得打啊 major改版后的比赛 珍贵的实战经验
+可惜mi酱签证过了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  adretyu67  
+##### 36313#       发表于 2022-10-24 14:30
+
+鹏子23，掀背25。谁熬死谁还不好说<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 36314#       发表于 2022-10-24 14:31
+
+杜鹏为什么要退役
+
+*****
+
+####  火鸡味锅巴  
+##### 36315#       发表于 2022-10-24 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076745&amp;ptid=2099454" target="_blank">morwhipppo 发表于 2022-10-24 14:21</a>
+
+IWO和TI都是茶成绩比较好，RU婊要是最后蹭不到亚运会的话，会不会崩溃啊，否则还能拿亚运会金牌来营销 ...</blockquote>
+可能性挺大的，猴爹总不能学冰女转天辉吧
+
+*****
+
+####  walfeds  
+##### 36316#       发表于 2022-10-24 14:31
+
+杜鹏为什么要退役
+
+*****
+
+####  两三流浪者  
+##### 36317#       发表于 2022-10-24 14:31
+
+<blockquote> 狗蛋靠bug赢bc：狗蛋和b组第7打个55开  bo3最后一把  bc蝙蝠拉nts老鹿  魔晶sf a老鹿恐惧秒断蝙蝠拉  狗蛋靠bug艰难取胜</blockquote>
+来个客户端前10测试一下
+
+*****
+
+####  12481632  
+##### 36318#       发表于 2022-10-24 14:32
+
+杜鹏为什么要退役，为了转生187出道么
+
+*****
+
+####  nowaki  
+##### 36319#       发表于 2022-10-24 14:32
+
+杜鹏为什么要退役 倒是焦阳确实可能退
+
+*****
+
+####  werecat  
+##### 36320#       发表于 2022-10-24 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076781&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-24 14:24</a>
+
+话说被淘汰的队伍是不是都走了，那这四个队怎么训练啊</blockquote>
+我也想问这个问题
+
+*****
+
+####  Keynes  
+##### 36321#       发表于 2022-10-24 14:32
+
+虽然希望焦阳继续打，但还是今年摸个决赛地板然后退役回去读书留个好名声吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 36322#       发表于 2022-10-24 14:32
+
+<img src="https://img.saraba1st.com/forum/202210/24/143252dqm5kaaqom303kkr.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-10-24-14-32-44-157-edit_com.sina.weibo.jpg</strong> (149.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-24 14:32 上传
+
