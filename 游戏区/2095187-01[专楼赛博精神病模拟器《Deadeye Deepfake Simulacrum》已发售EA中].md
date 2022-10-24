@@ -1693,3 +1693,15 @@ the world和自带的F时间减速可以叠加，这时候再用那个自身不�
 
 草，duvet这名字是不是就是铃音的op
 
+
+
+*****
+
+####  Tring  
+##### 97#         楼主| 发表于 2022-10-24 12:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58074481&amp;ptid=2095187" target="_blank">105gun 发表于 2022-10-24 11:50</a>
+
+草，duvet这名字是不是就是铃音的op</blockquote>
+是的，赛博精神病谁又会不喜欢铃音呢？
+

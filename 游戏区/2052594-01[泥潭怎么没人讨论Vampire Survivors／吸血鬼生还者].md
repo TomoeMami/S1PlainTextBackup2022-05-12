@@ -3628,3 +3628,41 @@ xgp版的更新1.0了么
 
 后面打钱特化一盘几千万上亿都有
 
+
+
+*****
+
+####  Thio  
+##### 350#       发表于 2022-10-24 12:48
+
+更了正式版之后玩了两把简直停不下来啊。现在刚过了第三关不知道下面干什么……
+
+*****
+
+####  藤井紫  
+##### 351#       发表于 2022-10-24 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58074938&amp;ptid=2052594" target="_blank">史莱姆KING 发表于 2022-10-24 12:19</a>
+游戏玩着还不错，就是最开始活着费劲。。。而且每局结束之后，能留下的金币好像很少？
+
+我看游戏界面的商店 ...</blockquote>
+2图，往右边走有个石假面
+效果是获得的金钱加10%/每级
+你可以先把装备拿到辅助格子满再去拿，可以作为第七个道具
+早期钱的主要来源是满级后升级和开箱子
+所以10分钟后箱子留着，不到升超武不开，等满级了拿了石假面升满了再拿，钱会多很多
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  藤井紫  
+##### 352#       发表于 2022-10-24 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075376&amp;ptid=2052594" target="_blank">Thio 发表于 2022-10-24 12:48</a>
+更了正式版之后玩了两把简直停不下来啊。现在刚过了第三关不知道下面干什么…… ...</blockquote>
+看成就，一个个做下去
+要拿特殊道具的地方会在开局有箭头
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
