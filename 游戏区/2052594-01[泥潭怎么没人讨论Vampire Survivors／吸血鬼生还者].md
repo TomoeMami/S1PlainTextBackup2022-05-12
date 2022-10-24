@@ -3473,3 +3473,15 @@ xgp版的更新1.0了么
 那种出1个还是3个还是5个是完全随机的吧？</blockquote>
 受运气和第一个塔罗牌影响
 
+
+
+*****
+
+####  wthall  
+##### 338#       发表于 2022-10-24 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071381&amp;ptid=2052594" target="_blank">otakun 发表于 2022-10-24 08:52</a>
+
+受运气和第一个塔罗牌影响</blockquote>
+塔罗牌是什么东西。。。。
+

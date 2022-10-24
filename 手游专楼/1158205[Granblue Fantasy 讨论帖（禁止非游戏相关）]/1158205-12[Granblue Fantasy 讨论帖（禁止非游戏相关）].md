@@ -353,3 +353,16 @@
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Mitka  
+##### 17133#       发表于 2022-10-24 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58067528&amp;ptid=1158205" target="_blank">poor 发表于 2022-10-23 23:09</a>
+转世2.0掉落是不是改过？怎么宝箱开出来两个巴铳一个迦楼罗短？我看攻略不是只掉那四个有用的吗？
+
+—— 来 ...</blockquote>
+那四个必带ex，其他的就是稀有掉落，我记得老转世也掉的
+

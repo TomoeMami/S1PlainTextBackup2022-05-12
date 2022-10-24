@@ -694,3 +694,22 @@ PC大屏听歌对味，AA快下池
 
 天啊，我第一次知道，剑与远征，当你成了服务器第一以后，pvp就为你专门开一个竞技场，是全部服务器的第一名在里面对战。太几把吓人了吧。这一般玩家看都看不到的东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Cyau  
+##### 80#       发表于 2022-10-24 08:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">乐，前几天关了时空洞窟和公会战，今天上线一看，友情池子也关了
+
+*****
+
+####  CrayS1  
+##### 81#       发表于 2022-10-24 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58056160&amp;ptid=2068560" target="_blank">elven119 发表于 2022-10-23 15:27</a>
+
+ナガイド最新一起锐评这游戏，还请了剑与远征戏氪了500万服务器第一的人来解释为啥会氪金。那个人说，本来 ...</blockquote>
+莉莉丝这方面绝对是祖师爷级别的。  很多游戏学，但是学到精髓的很少。
+
