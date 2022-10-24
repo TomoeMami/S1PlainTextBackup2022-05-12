@@ -3434,3 +3434,12 @@ xgp版的更新1.0了么
 解锁了初始武器是真空刃的那个角色，这真空刃输出有点低</blockquote>
 做个黑鞭可以合体，合完了很强的
 
+
+
+*****
+
+####  wthall  
+##### 334#       发表于 2022-10-24 08:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说开宝箱有加速功能吗？ 每次音乐放完还要转一会太浪费人生了
+

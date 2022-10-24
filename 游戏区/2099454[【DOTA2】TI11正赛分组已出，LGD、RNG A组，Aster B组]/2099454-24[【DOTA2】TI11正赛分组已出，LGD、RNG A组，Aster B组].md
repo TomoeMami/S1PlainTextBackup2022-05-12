@@ -9708,3 +9708,44 @@ mnd，要不是被中单潘飞投毒，超哥稳胜者组的a
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  火鸡味锅巴  
+##### 35694#       发表于 2022-10-24 08:34
+
+现在对bian的青蒜也是够狠的。四赵云日常被卸磨杀驴。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhliiiii  
+##### 35695#       发表于 2022-10-24 08:34
+
+不懂就问，为什么昨天西恩明明没有输过外战 微博和lxo+却到处都是中国刀塔亡了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 35696#       发表于 2022-10-24 08:35
+
+第一次那么恨一个人，废物中单。退役神都难坐起来打2局，这废物真的躺着不动的
+
+你们不会以为只清算撸狗鞭吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 35697#       发表于 2022-10-24 08:38
+
+还有一周，好几把无聊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  恐怖利刃  
+##### 35698#       发表于 2022-10-24 08:39
+
+利雅得不是早就复仇雪碧了吗
+

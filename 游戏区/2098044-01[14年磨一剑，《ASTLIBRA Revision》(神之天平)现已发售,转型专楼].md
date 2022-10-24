@@ -9935,3 +9935,15 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 那个女武神是哪个地图？入口不用告诉我，只说地图就好
 
+
+
+*****
+
+####  黒長直姫  
+##### 915#       发表于 2022-10-24 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071145&amp;ptid=2098044" target="_blank">白軍浪 发表于 2022-10-24 08:30</a>
+
+那个女武神是哪个地图？入口不用告诉我，只说地图就好</blockquote>
+女武神是主线
+
