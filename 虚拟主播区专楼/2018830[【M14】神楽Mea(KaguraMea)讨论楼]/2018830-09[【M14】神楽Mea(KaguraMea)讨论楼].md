@@ -7808,3 +7808,15 @@ ai图加tag发是可以 但是不要未经别人允许用别人的草图来加ai
 
 播瘾犯了这人
 
+
+
+*****
+
+####  卡塔利纳·宅魂  
+##### 12742#       发表于 2022-10-25 07:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58040715&amp;ptid=2018830" target="_blank">07579394 发表于 2022-10-22 17:06</a>
+
+errrrr，不是录播的吗</blockquote>
+考虑到live主体结束后还有简短的线下送别环节，当日应该还是需要集合到一起的？
+
