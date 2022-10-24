@@ -9881,3 +9881,120 @@ Ts lina前十来说一下，熊猫吹风接t跟道具吹风是一个难度吗，
 Ts lina前十来说一下，熊猫吹风接t跟道具吹风是一个难度吗，怎么看见拿这个来清算nts ...</blockquote>
 肯定是吹风简单啊，吹风接T老TS和LINA基本很难失误的，心中默念一二放T就完事了
 
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 35713#       发表于 2022-10-24 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069826&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-24 01:08</a>
+刚才刷到一条消息把哥们气乐了，pgl和v🐍居然没有给所有队伍包房到ti结束，lgd和ta今天直接上飞机了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是挺正常的，上次罗马尼亚也是
+
+*****
+
+####  莉拉厨  
+##### 35714#       发表于 2022-10-24 09:02
+
+吹风接t基本上老火女都能做到在0.3s内接上，接熊猫吹风太离谱了，除非和熊猫沟通自己先t然后让他秒驱散
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  火鸡味锅巴  
+##### 35715#       发表于 2022-10-24 09:03
+
+不懂就问，刺客怎么也出a了
+
+*****
+
+####  yyf奇遇记  
+##### 35716#       发表于 2022-10-24 09:04
+
+静安萨特去年被封一年+永峯了神秘商人这个号还敢玩这个我是服的
+
+*****
+
+####  zhliiiii  
+##### 35717#       发表于 2022-10-24 09:04
+
+[https://video.weibo.com/show?fid=1034:4827878903447556](https://video.weibo.com/show?fid=1034:4827878903447556)
+
+《情商》
+
+*****
+
+####  yyf奇遇记  
+##### 35718#       发表于 2022-10-24 09:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071474&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-24 08:59</a>
+肯定是吹风简单啊，吹风接T老TS和LINA基本很难失误的，心中默念一二放T就完事了 ...</blockquote>
+Lgd吧看到骂nts熊猫吹风空t 我就觉得挺离谱的
+
+*****
+
+####  nightmare902015  
+##### 35719#       发表于 2022-10-24 09:07
+
+除非是开队友共享的风熊猫好吧，不然鬼tm知道你什么时候驱散。
+
+*****
+
+####  Asukalangley33  
+##### 35720#       发表于 2022-10-24 09:07
+
+我总算明白八音盒那句“每把都当最后一把打，然后就也不要怕输”的真谛了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+原来这句话不是拧，而是一句威慑，或者说忠告
+
+跟处长当队友，系列赛前面打什么样根本不重要，只有最后的回家局最重要
+
+想要逃过清算，要么在最后一局力中暴力，让集美无话可说
+
+要么毫无存在感，让看不懂比赛的集美集火更刺眼的队友
+
+小组赛或者胜者组之类不涉及回家的比赛，你打得再叼都没什么用
+
+所以“每把都当最后一把打”翻译过来就是——“你很难猜到哪一把是回家局，所以只能把每一把都当最后一把，争当赵云，带躺阿斗”
+
+“然后就也不要怕输”————“输了以后感觉身体好轻,已经没什么好害怕的了”   然后被无情青蒜
+
+*****
+
+####  反方向的波  
+##### 35721#       发表于 2022-10-24 09:08
+
+欧尼酱回家局全场隐身隐刺和被杜鹏一个飞弹吓出变身的tb被一笔带过，倒是窝汉堡猫好像打进了决赛一样，哭了哭了perudoto亚军doto
+
+*****
+
+####  哈萨维·诺亚  
+##### 35722#       发表于 2022-10-24 09:08
+
+鳖说汉堡猫了 窝要哭哭了来自: iPhone客户端
+
+*****
+
+####  哈萨维·诺亚  
+##### 35723#       发表于 2022-10-24 09:09
+
+汉堡猫上来跟茶队打 能不能打出Ta和liquid打的精彩程度<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 35724#       发表于 2022-10-24 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071305&amp;ptid=2099454" target="_blank">银月术士329 发表于 2022-10-24 08:45</a>
+有一说一能怪运营吧，国内wow头部的圈子风气差到爆炸了，本质都是数据刷子和工作室打手， 时光 吮吸这种 ...</blockquote>
+cheery轴还是赚钱，只能这么说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 35725#       发表于 2022-10-24 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉汉堡猫。。。没TA这么凶猛
+

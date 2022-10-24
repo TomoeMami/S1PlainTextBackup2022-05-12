@@ -3485,3 +3485,25 @@ xgp版的更新1.0了么
 受运气和第一个塔罗牌影响</blockquote>
 塔罗牌是什么东西。。。。
 
+
+
+*****
+
+####  方舟失智博士  
+##### 339#       发表于 2022-10-24 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58070407&amp;ptid=2052594" target="_blank">hello0607 发表于 2022-10-24 03:52</a>
+选个蒜老头 贴着灯柱走 运气不是太差出几个烤鸡肯定死不了 走到头解锁无敌的冰刀月桂超武 ...</blockquote>
+谢谢了 我用加速的人过去了 那个解锁了 但是不是月桂和冰刀的被动也要解锁
+
+*****
+
+####  otakun  
+##### 340#       发表于 2022-10-24 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071395&amp;ptid=2052594" target="_blank">wthall 发表于 2022-10-24 08:53</a>
+塔罗牌是什么东西。。。。</blockquote>
+啊我直接默认人人都是一直更新玩过来…
+好像是某个地图里拿东西后解锁，然后成就里会有些写着用某角色坚持30分钟或者99级的，奖励个塔罗牌，会针对特定武器或者机制强化。开局选一张，然后大概11分钟和21分钟的宝箱开第二第三张选择。
+0号的那张牌效果是角色不再获取经验，经验宝石变成飞弹，宝箱至少出3个道具。
+
