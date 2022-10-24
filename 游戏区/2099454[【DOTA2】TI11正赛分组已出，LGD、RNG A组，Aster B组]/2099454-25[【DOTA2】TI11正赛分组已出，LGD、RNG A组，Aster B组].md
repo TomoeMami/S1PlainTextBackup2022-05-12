@@ -7976,3 +7976,35 @@ escorenews的消息我先信三分好吧，去年mi酱当og队长的消息就这
 —— 来自 Xiaomi 22041216C, And ...</blockquote>
 皮鞋再赖皮混那也是会打DOTA的选手 手活烂了而已 司马KU打个DOTA跟个植物人一样打5也是Burden
 
+
+
+*****
+
+####  belldandy_ye  
+##### 36879#       发表于 2022-10-24 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083240&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-24 21:16</a>
+
+ana今年退步还是很明显的，他再保持一个赛季这种竞技状态的话离泯然众人也没那么遥远的距离了 ...</blockquote>
+纯粹是太懒练的不够多，你看他打水人，尸王、马西天赋还是一眼可见，屠夫、小鱼、虚空出乖露丑明显细节差不熟悉版本改动，留在职业队上正规训练强度能练回来的.
+
+*****
+
+####  zhrs456  
+##### 36880#       发表于 2022-10-24 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58084353&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-24 22:29</a>
+
+年纪轻轻就在给水友出教学视频收大米的都是下头男</blockquote>
+徐老鳖当年不也和韩国车出英雄攻略书了嘛 
+
+*****
+
+####  roxas.sora  
+##### 36881#       发表于 2022-10-24 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083972&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 22:05</a>
+
+那个是混在北美队里打外卡的秘鲁人alone，04年的，可以去踢了克神</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我还以为是东南亚的，我的我的
+
