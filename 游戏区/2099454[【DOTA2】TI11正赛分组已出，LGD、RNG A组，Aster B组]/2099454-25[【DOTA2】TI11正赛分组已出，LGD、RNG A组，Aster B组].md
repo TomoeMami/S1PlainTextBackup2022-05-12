@@ -6811,3 +6811,54 @@ sa这么一个最能低经济嫖输出的敏核一号位打出0.9的输出经济
 
 现在集美们集中青蒜234呢，58因为职业态度表现较好且没在ti以后跟女人出去鬼混所以逃过一劫
 
+
+
+*****
+
+####  勤练带来力量  
+##### 36751#       发表于 2022-10-24 20:53
+
+我来个理客中的评价：只看CN区，今年TI，2345排第一没毛病，1号位萧瑟和鹏子目前还难分高下，茶队进个前二可以力压萧瑟排第一
+
+*****
+
+####  你可以试试  
+##### 36752#       发表于 2022-10-24 20:58
+
+这届TI刀塔之神仿佛存在又没完全存在<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+BC本来能赢的结果阳了，还让个跳大锤AAAA的畜生仿佛C了一样，连狗头人的评论区都说萧瑟真的想赢这次是他抬着四个队友<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 36753#       发表于 2022-10-24 20:59
+
+除去这两年被集美污蔑的，你不会以为冠超孝子一直以来不司马吧
+
+*****
+
+####  masterffzhou  
+##### 36754#       发表于 2022-10-24 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58082969&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-24 20:58</a>
+这届TI刀塔之神仿佛存在又没完全存在冠超努力了结果阳了一轮游，大家叹息的时候他来个jiayouachu， ...</blockquote>
+千言万语汇成一句话，西恩刀塔早该推倒重来了
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  勤练带来力量  
+##### 36755#       发表于 2022-10-24 21:01
+
+冠超不说那句话集美们现在就不排水了吗，感觉楼友跟昨天以为lgd滚了世界就清净了的我一样天真<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 36756#       发表于 2022-10-24 21:02
+
+无非就是现在多喷一个小蚂蚁，一轮游大于六强
+
