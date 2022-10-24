@@ -7558,3 +7558,112 @@ t1不是他自己的队吗
 
 不是说猴区出不了有能力的人，而是猴区凑不出能打的队
 
+
+
+*****
+
+####  六娃  
+##### 36829#       发表于 2022-10-24 22:03
+
+懂了，猴区A盾之后这么多年攒的气运全用在了澳洲人身上
+
+*****
+
+####  walfeds  
+##### 36830#       发表于 2022-10-24 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083821&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 21:56</a>
+
+才发现og周五新招了一个分析师</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这逼但凡有点作用也不至于bp这么逆天
+
+*****
+
+####  roxas.sora  
+##### 36831#       发表于 2022-10-24 22:04
+
+东南亚的话，我记得突围赛有个分身躲很多次对面控制技能影魔，那个选手听说非常年轻，你们看好么
+
+*****
+
+####  六娃  
+##### 36832#       发表于 2022-10-24 22:04
+
+ni公子现在的打法拿盾实在是不符合我的dota2审美
+
+*****
+
+####  六娃  
+##### 36833#       发表于 2022-10-24 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083952&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-24 22:04</a>
+东南亚的话，我记得突围赛有个分身躲很多次对面控制技能影魔，那个选手听说非常年轻，你们看好么 ...</blockquote>
+那个是混在北美队里打外卡的秘鲁人alone，04年的，可以去踢了克神
+
+*****
+
+####  acacaclove  
+##### 36834#       发表于 2022-10-24 22:05
+
+我和同学赌一顿海底捞秘密夺冠呢
+
+秘密别输啊
+
+*****
+
+####  莉拉厨  
+##### 36835#       发表于 2022-10-24 22:06
+
+虾之国像是TI10这种时间点上能凑出 23莫言JTDJOli 这种纸面实力能进六强的队伍，但就是始终没有一只队能进六强
+
+*****
+
+####  nowaki  
+##### 36836#       发表于 2022-10-24 22:06
+
+哥们看好秘密夺亚 ppy的奇思妙想和水晶弟会害死秘密
+
+*****
+
+####  jk9hot  
+##### 36837#       发表于 2022-10-24 22:09
+
+如果秘密只能拿亚的话，我选择让马桶哥最后一舞到最后
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  c88711611  
+##### 36838#       发表于 2022-10-24 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083527&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-24 21:34</a>
+
+我觉得阿超应该会再打的，设身处地想一想，今年这剧情不是老天爷存心搞你，这怎么能服气
+
+但是之前微博写的 ...</blockquote>
+Somnus out，小可 in！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 36839#       发表于 2022-10-24 22:10
+
+秘密亚军石头人季军，everything is written
+
+*****
+
+####  六娃  
+##### 36840#       发表于 2022-10-24 22:10
+
+回想外卡赛，alone感觉确实是ni公子之外最强的中单，队友都是一群七八千分的杂鱼都能打出那种表现
+
+
+
+*****
+
+####  哈曼的YY  
+##### 36841#       发表于 2022-10-24 22:11
+
+哎 ta怎么就没搞过两个欧洲老逼队
+
