@@ -8798,3 +8798,16 @@ ti11就是平平无奇的刷了送，堆最肉的装，挨最狠的打。可能�
 楼主被禁止访问，哈哈哈，犯了啥错了
 <img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离二次元  
+##### 36967#       发表于 2022-10-25 06:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58085904&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-25 00:35</a>
+我上次那个666包自己抢了1块钱
+
+等下100也是这么大？你们平时到底发多少的？我都没抢过你们发的 ...</blockquote>
+休赛期发三位数，没想到没想到
+
