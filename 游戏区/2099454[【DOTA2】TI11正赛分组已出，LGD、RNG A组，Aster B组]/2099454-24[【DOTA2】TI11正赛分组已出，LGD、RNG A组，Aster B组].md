@@ -11103,3 +11103,100 @@ https://nga.178.com/read.php?&amp;tid=33983165&amp;pid=648108890&amp;to=1
 
 桶哥nisha鹏子谁夺冠了我都支持，3/4的概率总不能最后让批九装到了吧
 
+
+
+*****
+
+####  六娃  
+##### 35848#       发表于 2022-10-24 10:43
+
+火猫sa死灵龙都没冲下来鳖星，很难想象这个状态的液体能冲得下来
+
+*****
+
+####  walfeds  
+##### 35849#       发表于 2022-10-24 10:44
+
+<img src="https://img.saraba1st.com/forum/202210/24/104404f20x01txxr3gw1zl.jpg" referrerpolicy="no-referrer">
+
+<strong>下载 (1).jpg</strong> (286.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 10:44 上传
+
+补充小哑巴成分<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 35850#       发表于 2022-10-24 10:44
+
+鹏子过液体没什么问题，应该打不赢秘密
+
+
+
+*****
+
+####  百世诸侯  
+##### 35851#       发表于 2022-10-24 10:44
+
+https://ngabbs.com/read.php?tid=33987836
+
+点击看太监论坛被双修畜骑脸
+
+*****
+
+####  zhrs456  
+##### 35852#       发表于 2022-10-24 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073164&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-24 10:39</a>
+智将银K赶紧找个pom的B方案吧  多解放林皇感觉有的打</blockquote>
+4号位风行呗 比松鼠稳定 也很配马尔斯
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  弈秋  
+##### 35853#       发表于 2022-10-24 10:45
+
+桶哥和zai可以请自己的神啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">请回来就杀穿了
+
+*****
+
+####  adretyu67  
+##### 35854#       发表于 2022-10-24 10:46
+
+瑞典丁聪今年还有希望含泪解说吗
+
+*****
+
+####  夏溪澪mio  
+##### 35855#       发表于 2022-10-24 10:48
+
+懂不懂双修玩家的含金量啊
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  勤练带来力量  
+##### 35856#       发表于 2022-10-24 10:50
+
+太监论坛的双修玩家大概说的是原神和撸双修<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 35857#       发表于 2022-10-24 10:51
+
+液体的命门是13号位的状态把，米奇这几把打下来算顶梁柱了，1号位英雄池问题不大就是容易注意力不集中犯病，zai目前看来不能玩谜团这种要他一锤定音的东西，拿到蜘蛛拉席克这种恶心人的他就会玩了，拉席克双方肯定是激烈争夺的点，ori没了拉席克的话拿什么打米奇才是问题
+
+*****
+
+####  nightmare902015  
+##### 35858#       发表于 2022-10-24 10:51
+
+这届ti打完一年之内感觉都不会有小哑巴这个人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">珍惜当下吧。
+
