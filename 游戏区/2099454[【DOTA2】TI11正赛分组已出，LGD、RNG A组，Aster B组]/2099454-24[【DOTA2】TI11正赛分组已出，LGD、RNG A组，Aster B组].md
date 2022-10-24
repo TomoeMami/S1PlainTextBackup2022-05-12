@@ -10884,3 +10884,222 @@ A畜（挠头）：呃呃呃呃呃呃…
 nowaki小号woc</blockquote>
 不能拿壱百満天原サロメ当头像就是我吧
 
+
+
+*****
+
+####  超法拉  
+##### 35828#       发表于 2022-10-24 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58072500&amp;ptid=2099454" target="_blank">iriyano 发表于 2022-10-24 10:04</a>
+昨天久违地客户端看比赛发现现在这些b队前期是费劲千辛万苦插个眼看个jb点大的地方
+后期脑浆爆炸直接插中军 ...</blockquote>
+前期的眼排起来代价低，我做个不好反的眼优势很大
+后期我直接做高台眼守着眼打，优势了等你来排，劣势了做哪里都是被宝石扫图
+
+*****
+
+####  walfeds  
+##### 35829#       发表于 2022-10-24 10:33
+
+sf肯定是，玛西肯定不是
+
+*****
+
+####  Asukalangley33  
+##### 35830#       发表于 2022-10-24 10:33
+
+鹏子能赢内战白头，靠的是林皇透支啊
+
+等一个SSZAI找回17岁的自己处刑鹏子
+
+*****
+
+####  百世诸侯  
+##### 35831#       发表于 2022-10-24 10:33
+
+那丁聪脑子也不行，场面优势能搞出地图乌漆麻黑的，建议nowaki x unhappytail x 任养胃 锁死三人幸终
+
+*****
+
+####  战栗的小六  
+##### 35832#       发表于 2022-10-24 10:34
+
+有哪里能直观看到本次ti淘汰赛的英雄bp率和胜率吗
+
+*****
+
+####  walfeds  
+##### 35833#       发表于 2022-10-24 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073062&amp;ptid=2099454" target="_blank">战栗的小六 发表于 2022-10-24 10:34</a>
+
+有哪里能直观看到本次ti淘汰赛的英雄bp率和胜率吗</blockquote>
+[https://liquipedia.net/dota2/The ... atistics/Main_Event](https://liquipedia.net/dota2/The_International/2022/Statistics/Main_Event)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 战栗的小六| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  FBIwarning  
+##### 35834#       发表于 2022-10-24 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073062&amp;ptid=2099454" target="_blank">战栗的小六 发表于 2022-10-24 10:34</a>
+
+有哪里能直观看到本次ti淘汰赛的英雄bp率和胜率吗</blockquote>
+[https://liquipedia.net/dota2/The_International/2022/Statistics](https://liquipedia.net/dota2/The_International/2022/Statistics)
+
+main tour 是小组赛+正赛
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 战栗的小六| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  iriyano  
+##### 35835#       发表于 2022-10-24 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073018&amp;ptid=2099454" target="_blank">超法拉 发表于 2022-10-24 11:32</a>
+前期的眼排起来代价低，我做个不好反的眼优势很大
+后期我直接做高台眼守着眼打，优势了等你来排，劣势了 ...</blockquote>
+这样不是优势被翻必然地图黑？
+感觉还是要有些分配调度
+
+*****
+
+####  yyf奇遇记  
+##### 35836#       发表于 2022-10-24 10:36
+
+液体百科 dotabuff  都能看
+
+*****
+
+####  沈经文  
+##### 35837#       发表于 2022-10-24 10:37
+
+愁这就是ame吸粉的另一方面啊，比你有天赋的人还比你努力
+
+他已经快要做到把所有的1号位拿出来都能打决赛的水平了。。
+
+版本有偏重，之前的绝活剑圣，虚空，幽鬼，敌法，小娜迦，不拿就不拿了，反手影魔，斯温，德鲁伊，小狗各个都能上，还有一手逆版本上首ban的大圣
+
+真是有点难受哭
+
+https://nga.178.com/read.php?&amp;tid=33983165&amp;pid=648108890&amp;to=1
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  yyf奇遇记  
+##### 35838#       发表于 2022-10-24 10:37
+
+还阿茶呢，昨天鹏儿就已经是化龙透支状态了，下周六直接被马体2:0送上飞机好吧
+我们败者组的阿茶懂不懂啊
+
+*****
+
+####  百世诸侯  
+##### 35839#       发表于 2022-10-24 10:37
+
+<img src="https://img.saraba1st.com/forum/202210/24/103736z7s837rqjwmjjzi1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-10-24-10-37-26-542-edit_com.sina.weibo.jpg</strong> (224.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-24 10:37 上传
+
+哦，还有这样恶心人的，真是个zai种
+
+*****
+
+####  IG.430  
+##### 35840#       发表于 2022-10-24 10:38
+
+丁聪脑浆归脑浆，有一手绝活，优势往自己家主野区点个眼，专抓装她妈最会发育的采灵芝大哥
+
+*****
+
+####  灰色的狐狸  
+##### 35841#       发表于 2022-10-24 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073062&amp;ptid=2099454" target="_blank">战栗的小六 发表于 2022-10-24 10:34</a>
+
+有哪里能直观看到本次ti淘汰赛的英雄bp率和胜率吗</blockquote>
+[https://liquipedia.net/dota2/The_International/2022/Statistics](https://liquipedia.net/dota2/The_International/2022/Statistics)
+
+*****
+
+####  zsu222  
+##### 35842#       发表于 2022-10-24 10:39
+
+智将银K赶紧找个pom的B方案吧  多解放林皇感觉有的打
+
+*****
+
+####  tasuku  
+##### 35843#       发表于 2022-10-24 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073104&amp;ptid=2099454" target="_blank">iriyano 发表于 2022-10-24 10:36</a>
+
+这样不是优势被翻必然地图黑？
+
+感觉还是要有些分配调度</blockquote>
+后期守着眼打的收益大于一切啊
+
+当然你也可以靠视野英雄开团，眼位还是丢冷门位置
+
+*****
+
+####  超法拉  
+##### 35844#       发表于 2022-10-24 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073104&amp;ptid=2099454" target="_blank">iriyano 发表于 2022-10-24 10:36</a>
+这样不是优势被翻必然地图黑？
+感觉还是要有些分配调度</blockquote>
+你优势肯定是起宝石扫图的，握着视野优势被人翻了那宝石肯定也没了阿。而且还是有做些爬墙眼和犄角旮旯的眼，只能说优势了会开始布高台眼，而不是只做高台眼。
+
+*****
+
+####  六娃  
+##### 35845#       发表于 2022-10-24 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073141&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-24 10:38</a>
+丁聪脑浆归脑浆，有一手绝活，优势往自己家主野区点个眼，专抓装她妈最会发育的采灵芝大哥 ...</blockquote>
+如果不是这两年杨乐乐楼祯打得谨慎，绝对是自己家大哥死得比对面多
+
+*****
+
+####  ml1642879  
+##### 35846#       发表于 2022-10-24 10:41
+
+能不能学学别人家的A杖死灵龙扫图
+
+*****
+
+####  勤练带来力量  
+##### 35847#       发表于 2022-10-24 10:42
+
+桶哥nisha鹏子谁夺冠了我都支持，3/4的概率总不能最后让批九装到了吧
+
