@@ -2840,3 +2840,123 @@ IWO和TI都是茶成绩比较好，RU婊要是最后蹭不到亚运会的话，�
 由手机上传
 2022-10-24 14:32 上传
 
+
+
+*****
+
+####  哈曼的YY  
+##### 36323#       发表于 2022-10-24 14:33
+
+普森什么时候开始学中文？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  acacaclove  
+##### 36324#       发表于 2022-10-24 14:33
+
+杜鹏去当夜饮潇湘后辈是吧
+
+*****
+
+####  二宮飛鳥酱  
+##### 36325#       发表于 2022-10-24 14:33
+
+焦阳退役是去考公务员的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 36326#       发表于 2022-10-24 14:33
+
+杜鹏去当夜饮潇湘后辈是吧
+
+*****
+
+####  acacaclove  
+##### 36327#       发表于 2022-10-24 14:34
+
+骄阳到底毕业了没啊
+
+*****
+
+####  nightmare902015  
+##### 36328#       发表于 2022-10-24 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076908&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-24 14:32</a></blockquote>
+这个的确令人不解，没有谜团lion哈斯卡等等。
+
+*****
+
+####  Cantha  
+##### 36329#       发表于 2022-10-24 14:35
+
+普森的老婆是东南亚人吧
+
+*****
+
+####  六娃  
+##### 36330#       发表于 2022-10-24 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076931&amp;ptid=2099454" target="_blank">acacaclove 发表于 2022-10-24 14:34</a>
+骄阳到底毕业了没啊</blockquote>
+双证拿了
+
+
+
+*****
+
+####  Lamapocos  
+##### 36331#       发表于 2022-10-24 14:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">晓菲9.2wow还弄个冲击世界首杀团队（笑话团队）出来，结果9.2草台班子一样的解散了最后还有人被欠薪
+
+*****
+
+####  nightmare902015  
+##### 36332#       发表于 2022-10-24 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076892&amp;ptid=2099454" target="_blank">两三流浪者 发表于 2022-10-24 14:31</a>
+来个客户端前10测试一下</blockquote>
+不用测，早一帮子人测过了，sf魔晶打蝙蝠拉住的人就是会秒断。只是我觉得g3这不是胜负点。莫言那个老鹿死了就死了我说实话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 36333#       发表于 2022-10-24 14:39
+
+超级假赛论坛居然还有任阳痿的盘，果然只要你喝水，水军始终都有你的一份是吧。
+
+*****
+
+####  hyde_caesar  
+##### 36334#       发表于 2022-10-24 14:39
+
+骄阳今年打完去考公也挺好的吧, 毕竟刀不能打一辈子的, 而且他说实话整个人气息还是挺老干部的, 和樱花双雄里番c应该不是太融入得来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就希望上岸后能海鲜或者阿b偶尔开播吧, 楼里天辉小兵说说有没有什么规定能不能开播之类的啊
+
+*****
+
+####  六娃  
+##### 36335#       发表于 2022-10-24 14:41
+
+懂不懂法皇考公的含金量啊
+
+*****
+
+####  Mikumiku831  
+##### 36336#       发表于 2022-10-24 14:42
+
+骄阳是怎么出道来着 完全忘记了 就记得vg打了好久
+
+*****
+
+####  Hieda  
+##### 36337#       发表于 2022-10-24 14:42
+
+这一周空窗一是担心茶到底还有没有队训练，一是担心这四队被xbb破防
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总而言之gtmd度假社
+

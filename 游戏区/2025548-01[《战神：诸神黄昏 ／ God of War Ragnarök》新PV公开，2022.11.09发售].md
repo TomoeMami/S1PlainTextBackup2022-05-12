@@ -7258,3 +7258,15 @@ boy真的是可操作角色，没让我失望
 
 傻逼索尼，现在一个PS5游戏比两张任亏卷还贵
 
+
+
+*****
+
+####  hotsmile  
+##### 788#       发表于 2022-10-24 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076555&amp;ptid=2025548" target="_blank">lbb3313725 发表于 2022-10-24 14:10</a>
+
+不是说还要去埃及吗，奎爷死了咋去。。</blockquote>
+是去北欧前去过埃及，就算真有埃及篇最多也就是个外传性质
+
