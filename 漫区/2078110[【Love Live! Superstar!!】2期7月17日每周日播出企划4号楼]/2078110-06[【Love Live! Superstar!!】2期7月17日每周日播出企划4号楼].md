@@ -12435,3 +12435,19 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 还是BLT会拍，鲤鱼这套照片好看
 
+
+
+*****
+
+####  cybernetics31  
+##### 8625#       发表于 2022-10-24 12:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">3rd一开就知道谁不行了
+
+*****
+
+####  稀勢のささ  
+##### 8626#       发表于 2022-10-24 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不急 等live
+

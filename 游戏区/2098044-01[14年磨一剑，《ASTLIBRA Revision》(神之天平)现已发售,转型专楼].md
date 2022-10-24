@@ -10094,3 +10094,16 @@ LS至少反白下吧</blockquote>
  ...</blockquote>
 空中冲刺，浮空术，这游戏后期你想从天上掉下来都难……
 
+
+
+*****
+
+####  linc555  
+##### 926#       发表于 2022-10-24 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57938888&amp;ptid=2098044" target="_blank">sahhhh6x 发表于 2022-10-16 16:40</a>
+木棍还是早点练满 后期茫茫多的武器护甲盾牌要练熟练度</blockquote>
+描述是写的武器熟练度啊，盔甲和盾牌也能加速么？
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

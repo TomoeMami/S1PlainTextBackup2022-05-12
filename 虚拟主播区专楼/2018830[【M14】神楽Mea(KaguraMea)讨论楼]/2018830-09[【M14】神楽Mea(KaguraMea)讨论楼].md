@@ -7655,3 +7655,12 @@ errrrr，不是录播的吗</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  十个印地男孩  
+##### 12727#       发表于 2022-10-24 12:25
+
+现在日本经济烂成这样真是<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
