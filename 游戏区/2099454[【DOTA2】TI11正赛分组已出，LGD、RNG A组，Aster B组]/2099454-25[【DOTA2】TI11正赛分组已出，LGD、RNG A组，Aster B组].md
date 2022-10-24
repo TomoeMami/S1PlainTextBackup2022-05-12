@@ -2960,3 +2960,163 @@ IWO和TI都是茶成绩比较好，RU婊要是最后蹭不到亚运会的话，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">总而言之gtmd度假社
 
+
+
+*****
+
+####  勤练带来力量  
+##### 36338#       发表于 2022-10-24 14:42
+
+很符合我对假赛论的受众画像<img src="https://p.sda1.dev/7/f639385169311b338ec50b1021d8d8a1/CMP_20221024144207130.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 36339#       发表于 2022-10-24 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076902&amp;ptid=2099454" target="_blank">Keynes 发表于 2022-10-24 14:32</a>
+虽然希望焦阳继续打，但还是今年摸个决赛地板然后退役回去读书留个好名声吧 ...</blockquote>
+读毛啊，人西南政法直接考公好吧
+
+*****
+
+####  火鸡味锅巴  
+##### 36340#       发表于 2022-10-24 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077016&amp;ptid=2099454" target="_blank">hyde_caesar 发表于 2022-10-24 14:39</a>
+
+骄阳今年打完去考公也挺好的吧, 毕竟刀不能打一辈子的, 而且他说实话整个人气息还是挺老干部的, 和樱花双雄 ...</blockquote>
+讲道理，今年这个成绩，哪怕是第四分到手都是百万级别的了。现在这岁数不至于就退了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 36341#       发表于 2022-10-24 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077050&amp;ptid=2099454" target="_blank">Hieda 发表于 2022-10-24 14:42</a>
+
+这一周空窗一是担心茶到底还有没有队训练，一是担心这四队被xbb破防
+
+总而言之gtmd度假社 ...</blockquote>
+有一说一别的队也没得对练吧。。。
+
+*****
+
+####  nowaki  
+##### 36342#       发表于 2022-10-24 14:43
+
+进天辉开直播收礼物的确是违规的
+
+*****
+
+####  zsu222  
+##### 36343#       发表于 2022-10-24 14:43
+
+骄阳出道在多宝 
+
+*****
+
+####  格雷殿下  
+##### 36344#       发表于 2022-10-24 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077016&amp;ptid=2099454" target="_blank">hyde_caesar 发表于 2022-10-24 14:39</a>
+
+骄阳今年打完去考公也挺好的吧, 毕竟刀不能打一辈子的, 而且他说实话整个人气息还是挺老干部的, 和樱花双雄 ...</blockquote>
+爽鸭都是前天辉大萨特了，说啥呢
+
+*****
+
+####  adretyu67  
+##### 36345#       发表于 2022-10-24 14:43
+
+ 本帖最后由 adretyu67 于 2022-10-24 14:48 编辑 
+
+出道就在duobao。ti6后被rotk相中，VG直接买断duobao全队收编了曾骄阳。
+
+那会我记得看过一盘duobao打别的一个二线队。我记得应该是选了个蓝猫高地上飞进飞出宰猪。另外一个给我相同感触的是还在nby的军体拳，选个卡尔滚键盘
+
+*****
+
+####  tasuku  
+##### 36346#       发表于 2022-10-24 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077016&amp;ptid=2099454" target="_blank">hyde_caesar 发表于 2022-10-24 14:39</a>
+骄阳今年打完去考公也挺好的吧, 毕竟刀不能打一辈子的, 而且他说实话整个人气息还是挺老干部的, 和樱花双雄 ...</blockquote>
+报备加不拿钱就没问题
+
+*****
+
+####  OVTVO  
+##### 36347#       发表于 2022-10-24 14:46
+
+我对骄阳的第一印象就是VG买骄阳附带duobao和四个赠品，还有就是40+输出的绝中绝DP，当时觉得他有点像高配俊豪，一晃骄阳也要退役了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isla  
+##### 36348#       发表于 2022-10-24 14:46
+
+复习了一下今年七月鳖还在逆天，茶第四走了就挺好，不然鳖开香槟好难受
+
+*****
+
+####  nightmare902015  
+##### 36349#       发表于 2022-10-24 14:46
+
+或许可以当个人势管人，只要不被开出来中之人就行。用个莉娜因巴斯皮套
+
+*****
+
+####  Cantha  
+##### 36350#       发表于 2022-10-24 14:47
+
+劝人做管人 
+
+*****
+
+####  isla  
+##### 36351#       发表于 2022-10-24 14:47
+
+贷款管人是吧
+
+*****
+
+####  tasuku  
+##### 36352#       发表于 2022-10-24 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077118&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-24 14:46</a>
+或许可以当个人势管人，只要不被开出来中之人就行。用个莉娜因巴斯皮套</blockquote>
+你猜这种被人举报了是什么性质
+
+*****
+
+####  越动天下  
+##### 36353#       发表于 2022-10-24 14:49
+
+哇 管人痴无缝不入呀
+
+*****
+
+####  樱冢名月  
+##### 36354#       发表于 2022-10-24 14:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">那我可以套个高里皮一起出道捏
+
+*****
+
+####  强袭型抹布  
+##### 36355#       发表于 2022-10-24 14:50
+
+我就草了，今天点开b站首先推荐的居然是吹昨天a畜打的斯文 ，斯文砍人这有什么好吹的？
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fopinecone  
+##### 36356#       发表于 2022-10-24 14:50
+
+爽鸭不是离职之后才找叔叔签的合同吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
