@@ -6014,3 +6014,104 @@ TI11淘汰赛败者组Liquid击败TA进入到败者组半决赛，他们将在10
 
 保加利亚小胖子和德国骚0在一起打了7年居然还没樱花兄弟，邪恶双雄多？<img src="https://p.sda1.dev/7/707c97dad912813ed721fb90bd16f586/CMP_20221024183225177.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六娃  
+##### 36672#       发表于 2022-10-24 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080754&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 18:33</a>
+保加利亚小胖子和德国骚0在一起打了7年居然还没樱花兄弟，邪恶双雄多？</blockquote>
+国内比赛多，场次肯定是占优的
+
+*****
+
+####  IG.430  
+##### 36673#       发表于 2022-10-24 18:33
+
+你不觉得这很酷吗，完全符合我对一个中年大胡子debu的想象
+
+*****
+
+####  walfeds  
+##### 36674#       发表于 2022-10-24 18:34
+
+踢了mira可以把chu神忽悠来好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 36675#       发表于 2022-10-24 18:35
+
+马桶好像认识serral我记得
+serral jerax topson三个冠军都被芬兰女王接见就剩他一个
+
+*****
+
+####  yyf奇遇记  
+##### 36676#       发表于 2022-10-24 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080793&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 18:35</a>
+马桶好像认识serral我记得
+serral jerax topson三个冠军都被芬兰女王接见就剩他一个 ...</blockquote>
+名字卜基德是这样的
+
+*****
+
+####  Cookiekira  
+##### 36677#       发表于 2022-10-24 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076162&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-24 13:43</a>
+遥想2016年那个夏天之前，wings参加别墅杯，没比赛的时候别的白皮都是在玩主机游戏喝饮料，和女人聊 ...</blockquote>
+麻了 看到这个我有些破防了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 36678#       发表于 2022-10-24 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080812&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 18:36</a>
+名字卜基德是这样的</blockquote>
+主要是早了一年，这仨都是18年拿冠军之后被接见的，之前好像没有过电竞选手参加那个活动
+
+*****
+
+####  yyf奇遇记  
+##### 36679#       发表于 2022-10-24 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076213&amp;ptid=2099454" target="_blank">灰色的狐狸 发表于 2022-10-24 13:46</a>
+回想一下17年
+
+7有没有想过自己未来会被清算</blockquote>
+这时候357好像还不是lgd教练？
+
+*****
+
+####  莉拉厨  
+##### 36680#       发表于 2022-10-24 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080820&amp;ptid=2099454" target="_blank">Cookiekira 发表于 2022-10-24 18:36</a>
+麻了 看到这个我有些破防了</blockquote>
+什么失败学<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TI三冠王AME  
+##### 36681#       发表于 2022-10-24 18:42
+
+名字卜基德是这样的
+
+芬兰全国人民也不想在电视上看到首相接待了“matubaman”吧
+
+*****
+
+####  Crazy_Knife  
+##### 36682#       发表于 2022-10-24 18:42
+
+樱花兄弟也打了7年多吧，ti6就和430在一起打预选了，再加上之前dks的经历，这两不算年龄的话也都是老比登了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
