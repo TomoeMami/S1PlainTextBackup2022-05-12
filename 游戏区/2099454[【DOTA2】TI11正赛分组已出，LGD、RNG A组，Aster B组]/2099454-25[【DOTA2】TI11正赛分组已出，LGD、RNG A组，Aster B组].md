@@ -5631,3 +5631,138 @@ t1还想干的话估计就是以厨子为核心了，真要这样教练可能会
 
 决赛不出意外的话，是秘密打马体了，石头人虽然藏了手炸弹人米波，但是不看好能过拳击手这个老阴逼，我已经从小电锤无缝切换到小拳套了
 
+
+
+*****
+
+####  没钱买手办  
+##### 36628#       发表于 2022-10-24 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个叫南瓜团子的清算视频，我看的直想笑
+
+*****
+
+####  星野航  
+##### 36629#       发表于 2022-10-24 17:53
+
+丁聪被干简直意料之中，骄阳ti10打得是不好，但抬进ti骄阳还是付出了的。而且人骄阳好赖是vg最后的明星选手，你丁聪一个被rotk拉上来的小弟装什么大尾巴狼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+今年xg的表现就更搞笑了，xg刚成立打A级的时候，dy还在那儿“这还进不了ti？”，结果就是这么真实，喜欢跟脑11一起，那只能承受这种脑浆四溢的结局
+
+直接退役可以了，不还有锐评跟三国杀么
+
+在这点上丁聪跟喜欢丁聪的夜饮潇湘倒是颇为相似<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 36630#       发表于 2022-10-24 17:55
+
+夜饮潇湘不也喜欢凹人设，实际内涵跟潘寅星这个中专生没什么区别
+
+
+
+*****
+
+####  walfeds  
+##### 36631#       发表于 2022-10-24 17:55
+
+瑞典丁聪都要剑指冠军盾了，是不是该正名一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 36632#       发表于 2022-10-24 17:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿版这个人最大的特点就是，喜欢装他妈最懂的，学了个立体机动防御后嘴比凤凰蛋还硬，难怪找了个碎嘴的八婆当对象，只有攻速够快才能堵住这人的嘴
+
+*****
+
+####  nightmare902015  
+##### 36633#       发表于 2022-10-24 17:56
+
+ 本帖最后由 nightmare902015 于 2022-10-24 17:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079763&amp;ptid=2099454" target="_blank">沈经文 发表于 2022-10-24 17:27</a>
+
+又看了一遍老干瘪回家局，润德谜团两次拉火女一次拉飞机斯文其实还可以</blockquote>
+很多人清算这个谜团的核心思想是，把失败一部分归结于没有速出跳刀放一个好大招。我觉得玩过这版本谜团就会觉得这个说法很搞。谜团这数值脚填的小谜团天赋，好用至极的魔晶，完美适配的大祭品，当之无愧从前期强到后期的召唤流核心。而A帐拉大毁天灭地那套都砍了N回，现在A都成那个逼样子。如果这么强的谜团你都玩到“必须出一个跳刀完美大才能打”的地步，说明你们队伍TM就犯了太多错，就TM该输了。
+
+不知集美们是否记得以前潮汐A帐不出跳的版本，还有TI9的决赛第四局猛犸。你不能说“崩溃这个猛犸真TM菜，出个梅肯魔晶在那颠个毛，早点裸个跳放两极反转早赢了。”这属于是根本就没理解这英雄在目前版本强在哪。
+
+*****
+
+####  feiyu99  
+##### 36634#       发表于 2022-10-24 17:56
+
+阿茶还有希望吗<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 36635#       发表于 2022-10-24 17:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这版本的谜团，被对面打到变成要拉好大翻盘就已经是失败了
+
+*****
+
+####  Litccc  
+##### 36636#       发表于 2022-10-24 17:57
+
+在这点上丁聪跟喜欢丁聪的夜饮潇湘倒是颇为相似
+
+*****
+
+####  yyf奇遇记  
+##### 36637#       发表于 2022-10-24 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080188&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-24 17:53</a>
+丁聪被干简直意料之中，骄阳ti10打得是不好，但抬进ti骄阳还是付出了的。而且人骄阳好赖是vg最后的明星选手 ...</blockquote>
+别说，不是任养胃，丁聪还在a级呢
+
+*****
+
+####  战栗的小六  
+##### 36638#       发表于 2022-10-24 17:59
+
+sa还是得出跳，分身冰眼太异味了，毫无输出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 36639#       发表于 2022-10-24 18:00
+
+在这点上丁聪跟喜欢丁聪的夜饮潇湘倒是颇为相似
+
+*****
+
+####  iriyano  
+##### 36640#       发表于 2022-10-24 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080014&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 18:43</a>
+[讨论] lgd第一把那个sa笑死我了
+
+对线早早出个875想怼狂战</blockquote>
+我艹，想起来昨天和朋友连麦看客户端讨论了半天这个875是什么意思
+我记得出875的时候已经标着三十了
+
+*****
+
+####  反方向的波  
+##### 36641#       发表于 2022-10-24 18:01
+
+丁聪连人设都是偷阿版的
+
+*****
+
+####  哈萨维·诺亚  
+##### 36642#       发表于 2022-10-24 18:01
+
+丁聪女友也是八婆碎嘴子么
+
+*****
+
+####  勤练带来力量  
+##### 36643#       发表于 2022-10-24 18:02
+
+有一说一昨天那把sa换版主上去玩赢了，我相信版主的sa
+

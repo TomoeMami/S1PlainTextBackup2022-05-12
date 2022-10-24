@@ -12718,3 +12718,28 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 一下子从深夜档变成黄金档，令人欣慰
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8651#       发表于 2022-10-24 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079661&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-24 17:21</a>
+
+一开始的追求方向（在我看来）就是歪的，后续动作也不会好到哪儿去，要怎么寄予期待呢
+
+（反正把差距 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">可能是企划初期某个大人蹲坑的时候突然觉得“追いつけ、追い越せー”非常的emo吧，但转头一想又觉得毕竟提前活动那么久要追上不太容易，于是搞了黑暗兵法高强度live，还能爆金币，多赢，但万万没想到最后只橄榄了一个，于是emo失败了
+
+*****
+
+####  ruffian  
+##### 8652#       发表于 2022-10-24 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079774&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-24 17:27:51</a>
+少了条沟是吧，但也挤不出来啊(</blockquote>应该能，我昨天还看见了一个用乳贴在男的背上贴出来深v的视频。
+可能摄影师要的就是鱼这效果<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
