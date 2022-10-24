@@ -8286,3 +8286,40 @@ ame今年哪怕只看淘汰赛也应该是四届发挥最差的一年
 
 【【TI11】难绷！崩溃哥被Saksa卡树，公屏呼救stepbro I'm stuck-哔哩哔哩】 [https://b23.tv/oCpvHsy](https://b23.tv/oCpvHsy)
 
+
+
+*****
+
+####  非建政专用号  
+##### 36914#       发表于 2022-10-25 00:05
+
+理性讨论，窝克在没有请神ti9克里斯的情况下是单等wisper打出来再承担责任的，k1出山不是开宰就是山被对面搬空了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36915#       发表于 2022-10-25 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083337&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-24 21:23</a>
+https://www.bilibili.com/video/BV1zS4y1X7w8
+
+Maybe演示TI8决赛水人打猴子到底好不好打？</blockquote>
+🌿，怎么还有陪练sccc的啊哈哈哈哈哈
+
+*****
+
+####  adretyu67  
+##### 36916#       发表于 2022-10-25 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58085590&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-25 00:06</a>
+
+🌿，怎么还有陪练sccc的啊哈哈哈哈哈</blockquote>
+那个视频本来就是ti8后回来直播时候测试的，sccc也来了。
+
+*****
+
+####  憧憬鲨  
+##### 36917#       发表于 2022-10-25 00:11
+
+理性讨论，19年大家还觉得K1大神是个刷钱很快很强的南美第一C，后来发现这个比只是非常独而已
+
