@@ -10296,3 +10296,36 @@ LS至少反白下吧</blockquote>
 
 雪山重量200哪里只能去猪猪那里买金首饰了吗
 
+
+
+*****
+
+####  白軍浪  
+##### 945#       发表于 2022-10-24 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58084588&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-24 22:48</a>
+
+雪山重量200哪里只能去猪猪那里买金首饰了吗</blockquote>
+雪山入口开始的场景有一个雕像，那个雕像你调查一下
+
+*****
+
+####  laosai13  
+##### 946#       发表于 2022-10-24 23:17
+
+求问一下这个怎么样？流程大概有多长？有没有比较完整的攻略？
+
+*****
+
+####  黒長直姫  
+##### 947#       发表于 2022-10-24 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58084588&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-24 22:48</a>
+
+雪山重量200哪里只能去猪猪那里买金首饰了吗</blockquote>
+最方便的方法就是拿石盾带金锚
+
+穷得买不起可以试试洗掉敏捷，记得把天平的减重卸掉 
+
+但是如果农盘农满了导致洗了还是不够200就只能买金锚了
+
