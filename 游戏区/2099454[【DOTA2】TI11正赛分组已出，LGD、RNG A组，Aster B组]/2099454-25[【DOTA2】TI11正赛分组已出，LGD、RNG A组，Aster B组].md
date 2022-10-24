@@ -4468,3 +4468,133 @@ hao就说过好几次，当年去水厂就三连冠了啊
 即便是notail，也避免不了职业生涯最后一场比赛被人嘲讽ezgame</blockquote>
 脑东京那句话一说是嘲讽ceb。不过打都打出来了，肯定是嘲讽og了。
 
+
+
+*****
+
+####  walfeds  
+##### 36507#       发表于 2022-10-24 16:32
+
+最近稍显体面一些的大概是顺走一major的独眼龙了
+
+*****
+
+####  火鸡味锅巴  
+##### 36508#       发表于 2022-10-24 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078722&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-24 16:29</a>
+
+水厂不想留马来爹的话，马来爹被MUSHI一传销就走了啊
+
+到时候被处刑不是很尴尬 ...</blockquote>
+蔡国师作为面八杏奴，想忽悠莫言还是有点难度的
+
+*****
+
+####  超法拉  
+##### 36509#       发表于 2022-10-24 16:33
+
+其实那阵容到中期就是无限难打
+一般毒狗阵容你不切毒狗是不可能让对面强减员的
+但是对面carry是个双炮台，还是小黑火女这种
+你sa不出暴力输出想在雾里慢慢抠死毒狗简直是做梦
+
+*****
+
+####  seki_m  
+##### 36510#       发表于 2022-10-24 16:34
+
+nts自己ti这表现，水厂不续也怨不了谁
+
+
+
+*****
+
+####  星野航  
+##### 36511#       发表于 2022-10-24 16:34
+
+假如今年阿拳一举夺冠退役，肯定是最体面的之一
+
+但我更乐意看到阿拳再来一年夺冠，延续秘密每次都比上一次好的规律，然后给ti盖上棺材板，有始有终<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">   
+
+*****
+
+####  勤练带来力量  
+##### 36512#       发表于 2022-10-24 16:36
+
+nisha能不能从无亚超一步到位成ti冠军就在今年了
+
+*****
+
+####  roxas.sora  
+##### 36513#       发表于 2022-10-24 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078832&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-24 16:36</a>
+
+nisha能不能从无亚超一步到位成ti冠军就在今年了</blockquote>
+今年是他第二届ti吧，天才少年一般第一届吃瘪后第二届就是化龙的时间点了
+
+*****
+
+####  六娃  
+##### 36514#       发表于 2022-10-24 16:37
+
+是412的第二届
+
+*****
+
+####  adretyu67  
+##### 36515#       发表于 2022-10-24 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078857&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-24 16:37</a>
+
+今年是他第二届ti吧，天才少年一般第一届吃瘪后第二届就是化龙的时间点了 ...</blockquote>
+第三届了，ti9 ti10 ti11。
+
+*****
+
+####  星野航  
+##### 36516#       发表于 2022-10-24 16:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078857&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-24 17:37</a>
+
+今年是他第二届ti吧，天才少年一般第一届吃瘪后第二届就是化龙的时间点了 ...</blockquote>
+第三届叻
+
+*****
+
+####  没钱买手办  
+##### 36517#       发表于 2022-10-24 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到sa那么肥，想到要是狂战大炮，都已经绝望了，打开哥哥装备栏看到30分身bkb冰眼只能说喜笑颜开
+
+*****
+
+####  勤练带来力量  
+##### 36518#       发表于 2022-10-24 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078857&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-24 16:37</a>
+今年是他第二届ti吧，天才少年一般第一届吃瘪后第二届就是化龙的时间点了 ...</blockquote>
+第三届吧，19年ti他就在秘密了，那年第四名
+
+*****
+
+####  越动天下  
+##### 36519#       发表于 2022-10-24 16:39
+
+我刚刚知道nisha是波兰人呀
+
+*****
+
+####  在海岸  
+##### 36520#       发表于 2022-10-24 16:41
+
+明年想看猴爹回虾之国化龙握手处长
+
+*****
+
+####  六娃  
+##### 36521#       发表于 2022-10-24 16:42
+
+秘密夺冠的唯一可能是决赛打tundra，末代欧皇登基
+

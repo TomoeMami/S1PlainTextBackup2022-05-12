@@ -10420,3 +10420,14 @@ k
 
 当然今天不播的可能性也很大
 
+
+
+*****
+
+####  holoan  
+##### 2492#         楼主| 发表于 2022-10-24 16:31
+
+[https://www.youtube.com/watch?v=6TzIJAAZV70](https://www.youtube.com/watch?v=6TzIJAAZV70)
+
+今天早上的切片
+

@@ -12601,3 +12601,33 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 你就是2期之间其实也有差距
 
+
+
+*****
+
+####  优妮可  
+##### 8641#       发表于 2022-10-24 16:34
+
+<img src="https://img.saraba1st.com/forum/202210/24/163436w1rneeerry1etenl.jpg" referrerpolicy="no-referrer">
+
+<strong>20221024_163420.jpg</strong> (543.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 16:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/24/163437cucxbo9oobbdtvub.jpg" referrerpolicy="no-referrer">
+
+<strong>20221024_163418.jpg</strong> (649.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 16:34 上传
+
+*****
+
+####  稀勢のささ  
+##### 8642#       发表于 2022-10-24 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为了保证粉丝感受到企划的良苦用心，对应上可以再细化嘛，总有办法的
+
