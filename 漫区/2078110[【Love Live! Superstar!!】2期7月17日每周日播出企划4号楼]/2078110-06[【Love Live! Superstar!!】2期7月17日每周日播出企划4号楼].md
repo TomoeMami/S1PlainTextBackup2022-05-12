@@ -12898,3 +12898,12 @@ nagi的ins直播时间
 
 我是觉得从一期开始追的人已经对二期非常、非常、非常、非常宽容了。至于还能不能继续宽容下去乃至转变成发自内心的赞扬，三巡见呗，我估计肯定有人危险了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liu461  
+##### 8666#       发表于 2022-10-24 21:44
+
+有没有搞笑，转单推已经是最后的宽容了，就这第二季明皇塑造没给人逼成毒唯就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

@@ -177,3 +177,12 @@
 
 然后，最古怪的情况来了。怎么听到有人传阿嘎又有新联动（我也是听回来的！我也是听回来的！！）。有新联动不奇怪但为什么会是FMP？！<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alialex  
+##### 7407#         楼主| 发表于 2022-10-24 21:49
+
+FMP是什么鬼，穿强弩装甲的小要和M9或者魔剑装甲的泰莎吗
+

@@ -7363,3 +7363,112 @@ ana今年退步还是很明显的，他再保持一个赛季这种竞技状态�
 
 vp什么时候t dm呢
 
+
+
+*****
+
+####  nowaki  
+##### 36807#       发表于 2022-10-24 21:44
+
+md，dm今年打得很硬好吧，666和gpk是真不做人
+
+*****
+
+####  樱冢名月  
+##### 36808#       发表于 2022-10-24 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我比较看好曼巴，这人给我的感觉适合当队长，调节队员心态，也很敢说，应该是CN拧绳哥
+
+*****
+
+####  Yugao  
+##### 36809#       发表于 2022-10-24 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正骄阳殿军已经是可以了，起码我不会奢望更多，这样被始祖鳖清算的时候可以喷回去
+
+*****
+
+####  六娃  
+##### 36810#       发表于 2022-10-24 21:46
+
+gpk绝对是vp最大毒瘤
+
+
+
+*****
+
+####  樱冢名月  
+##### 36811#       发表于 2022-10-24 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年谁敢清算茶那几个人我绝壁喷回去，除了老鳖
+
+*****
+
+####  jk9hot  
+##### 36812#       发表于 2022-10-24 21:47
+
+泰迪跟干部根本没必要退役，即使没办法追🛡在国内呼风唤雨出国旅游肯定没问题的，总比看xm打张成俊好
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  walfeds  
+##### 36813#       发表于 2022-10-24 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">vp今年好意思踢dm吗
+
+*****
+
+####  一品堂官  
+##### 36814#       发表于 2022-10-24 21:48
+
+雪碧这次清算的结果是……
+
+*****
+
+####  adretyu67  
+##### 36815#       发表于 2022-10-24 21:48
+
+cis就是去年透支了，估计cis的下个盾又要等很久。不过在此之前去eu的佣兵应该能打个盾出来
+
+*****
+
+####  蛭人  
+##### 36816#       发表于 2022-10-24 21:48
+
+不是司马ku还觉得自己有市场是吗？
+
+<img src="https://img.saraba1st.com/forum/202210/24/214853wnh6u636rfbij8ne.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 21:48 上传
+
+*****
+
+####  Yugao  
+##### 36817#       发表于 2022-10-24 21:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年该不会拳击手夺冠吧，2冠2亚，而且第二冠是十年后，期间从未缺席ti正赛，这履历可以说是dota届阿萨托斯了吧
+
+*****
+
+####  walfeds  
+##### 36818#       发表于 2022-10-24 21:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">相信刀塔之神不青睐亚军好吧
+
+*****
+
+####  莉拉厨  
+##### 36819#       发表于 2022-10-24 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083738&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-24 21:48</a>
+不是司马ku还觉得自己有市场是吗？</blockquote>
+这b不就是东南雅皮鞋？死皮赖脸地混着呗，实在不行和皮鞋一样转五也行
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
