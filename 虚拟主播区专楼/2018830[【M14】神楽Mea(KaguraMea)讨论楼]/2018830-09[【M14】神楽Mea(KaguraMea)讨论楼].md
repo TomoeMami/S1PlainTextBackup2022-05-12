@@ -7788,3 +7788,14 @@ ai图加tag发是可以 但是不要未经别人允许用别人的草图来加ai
 
 发烧以为自己冠了加延期live.PTSD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  BigLittle1999  
+##### 12740#       发表于 2022-10-25 01:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
