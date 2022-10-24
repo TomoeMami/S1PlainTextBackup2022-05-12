@@ -3706,3 +3706,15 @@ ok
 
 求问戒指和箭头怎么才能比较高效的拿齐，或者有没有啥策略，一直赶路又吃不到啥经验，除了拿到那个吸道具的绿色塔罗牌好像就没拿齐过，但开局选又有点蠢<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wcorvo  
+##### 356#       发表于 2022-10-24 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078674&amp;ptid=2052594" target="_blank">xrxtzz 发表于 2022-10-24 16:26</a>
+
+求问戒指和箭头怎么才能比较高效的拿齐，或者有没有啥策略，一直赶路又吃不到啥经验，除了拿到那个吸道具的 ...</blockquote>
++1，更新了这两个后从来没拿到过，心态爆炸直接删游戏了
+

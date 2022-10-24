@@ -4598,3 +4598,123 @@ nisha能不能从无亚超一步到位成ti冠军就在今年了</blockquote>
 
 秘密夺冠的唯一可能是决赛打tundra，末代欧皇登基
 
+
+
+*****
+
+####  seki_m  
+##### 36522#       发表于 2022-10-24 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078808&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-24 16:34</a>
+假如今年阿拳一举夺冠退役，肯定是最体面的之一
+
+但我更乐意看到阿拳再来一年夺冠，延续秘密每次都比上一次 ...</blockquote>
+拳酱要真把ti带到坟墓里也太tm酷了
+
+*****
+
+####  asd235614  
+##### 36523#       发表于 2022-10-24 16:43
+
+SA这版本大炮是不是不太行了，绝杀秘技和背刺都是敏捷系数伤害了，不吃攻击力
+
+*****
+
+####  yyf奇遇记  
+##### 36524#       发表于 2022-10-24 16:44
+
+Sa这版本要出a
+
+*****
+
+####  morwhipppo  
+##### 36525#       发表于 2022-10-24 16:44
+
+撸狗猪指定冠军了
+
+<img src="https://img.saraba1st.com/forum/202210/24/164422sla1aqoenqn0oirs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4A83C183-55E8-4A41-AF52-EDEF55F565D9.jpeg</strong> (32.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 16:44 上传
+
+*****
+
+####  walfeds  
+##### 36526#       发表于 2022-10-24 16:44
+
+ni公子已经在秘密打满四年了
+
+*****
+
+####  百世诸侯  
+##### 36527#       发表于 2022-10-24 16:45
+
+【ok林仔破音喊出ame的内个称呼；并再次强调直播间规则-哔哩哔哩】 https://b23.tv/a3oFlfH
+
+*****
+
+####  勤练带来力量  
+##### 36528#       发表于 2022-10-24 16:45
+
+查理斯一直是巴不得中国队死的啊
+
+*****
+
+####  nowaki  
+##### 36529#       发表于 2022-10-24 16:45
+
+哪个冠啊
+
+*****
+
+####  adretyu67  
+##### 36530#       发表于 2022-10-24 16:48
+
+请配合撸狗猪去年直播名言一同理解<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 36531#       发表于 2022-10-24 16:49
+
+哪个冠啊？打完水厂吃遗言了是吧
+
+*****
+
+####  反方向的波  
+##### 36532#       发表于 2022-10-24 16:50
+
+撸狗猪：哈哈，德国人跑了，窝就是西恩现役成绩最好的3了
+
+*****
+
+####  walfeds  
+##### 36533#       发表于 2022-10-24 16:50
+
+回虾之国还想化龙，SEA能凑出一支像样的队吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 36534#       发表于 2022-10-24 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猴爹回东南亚怕不是化脓，那环境分分钟把自己打废
+
+*****
+
+####  王宇旻❤潘婕  
+##### 36535#       发表于 2022-10-24 16:50
+
+<img src="https://img.saraba1st.com/forum/202210/24/165039m5dq18zs6348vew4.png" referrerpolicy="no-referrer">
+
+<strong>-eec37732968be41.png</strong> (185.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 16:50 上传
+
+拳击手这老逼登也太阴阳怪气了
+

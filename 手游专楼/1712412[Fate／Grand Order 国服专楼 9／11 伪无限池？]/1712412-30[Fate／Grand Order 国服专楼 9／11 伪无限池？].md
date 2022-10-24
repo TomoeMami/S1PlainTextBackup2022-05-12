@@ -137,3 +137,12 @@ C闪的回收真是感天动地！6怪都很难拯救。
 C闪的回收真是感天动地！6怪都很难拯救。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">生前过劳死过，上座后宁可挨骂都不加班
 
+
+
+*****
+
+####  Blackson  
+##### 43648#       发表于 2022-10-24 16:44
+
+这次活动因为加成李庄太麻烦，干脆早点刷出换满破。结果没有三点数各到20W就满破了。现在只能刷QP等90+出来再继续活动
+
