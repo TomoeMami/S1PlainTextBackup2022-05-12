@@ -4933,3 +4933,211 @@ Ti11赛季看不懂？
 很难想象回家局14k劣势，双酱油阵亡交买的情况下，德张谜团跳大拉住飞机，秒掉飞机居然是战犯</blockquote>
 我也看到这个细节了，明明直接走有机会，哥哥非要A那POM一下，不过这就是哥哥，也正常
 
+
+
+*****
+
+####  六娃  
+##### 36555#       发表于 2022-10-24 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079262&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-24 17:00</a>
+
+我挺想看雪碧和干瘪去年交换猛犸和小小的世界线。
+
+到时候是不是就是这猛犸有屁用啊，线上就被小小打得炸裂 ...</blockquote>
+建议回看去年spirit vp生死局，全场抗压的大哥小小最后切入翻盘
+
+*****
+
+####  反方向的波  
+##### 36556#       发表于 2022-10-24 17:03
+
+可能是欧逆酱把pom看成老陈了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36557#       发表于 2022-10-24 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079275&amp;ptid=2099454" target="_blank">resorry 发表于 2022-10-24 17:00</a>
+这个茶队赞助的追觅，看不到啥联动产品啊，还寻思小小兹瓷一下</blockquote>
+追觅啊，扫地机器人，洗地机
+懂了，漏油都不做家务<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枯风瘦雪02  
+##### 36558#       发表于 2022-10-24 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079245&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 16:59</a>
+鳖星真的比水厂像一支正常的队伍多了
+
+你能想象A畜和队友在赢了比赛后激情相拥吗</blockquote>
+不是被雪碧锐评过“他们看着只是普通同事”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  枯风瘦雪02  
+##### 36559#       发表于 2022-10-24 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079338&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-24 17:04</a>
+追觅啊，扫地机器人，洗地机
+懂了，漏油都不做家务</blockquote>
+“联动”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Litccc  
+##### 36560#       发表于 2022-10-24 17:05
+
+石头不基德请xz代言，只能换追觅的扫地机器人了
+
+*****
+
+####  OVTVO  
+##### 36561#       发表于 2022-10-24 17:05
+
+最有趣的不是集美黑小明鞭玩谜团这种高压英雄摆烂，AME玩废物TB不粘锅吗？这把TB打的怎么样先不讨论，选出TB那一刻我就觉得AME已经不想赢了，这版本TB遇到皮球的SV只能被关中关吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+*****
+
+####  勤练带来力量  
+##### 36562#       发表于 2022-10-24 17:06
+
+处长这一届打得最像人的一把是打四个新冠阳性的加窝克<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 36563#       发表于 2022-10-24 17:06
+
+<img src="https://img.saraba1st.com/forum/202210/24/170555iklaarm9f3pzprnp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (853.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 17:05 上传
+
+大家围了一圈，A畜又被孤立了
+
+*****
+
+####  勤练带来力量  
+##### 36564#       发表于 2022-10-24 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079373&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 17:06</a>
+大家围了一圈，A畜又被孤立了</blockquote>
+我觉得正常人都不会想和一个穿着op战服的站一起
+
+*****
+
+####  c88711611  
+##### 36565#       发表于 2022-10-24 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079223&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-24 16:58</a>
+很难想象回家局14k劣势，双酱油阵亡交买的情况下，德张谜团跳大拉住飞机，秒掉飞机居然是战犯</blockquote>
+力中暴力的tb出装双刀冰眼大隐刀，跟对面按摩呢，偷学ghost出装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 36566#       发表于 2022-10-24 17:08
+
+你是不是刻舟求剑，我把图放在这里你自己品<img src="https://p.sda1.dev/7/67a7da1009d9e11c347173d44ce9e612/CMP_20221024170826443.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yourSwaTer  
+##### 36567#       发表于 2022-10-24 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079221&amp;ptid=2099454" target="_blank">CharlieZ- 发表于 2022-10-24 16:58</a>
+纯凑热闹看ti的问下影魔是不是新人最好上手的，我看前三个技能一模一样，大招还简单暴力，应该挺容易的吧 ...</blockquote>
+虽然现在do2的sf老早不是do1的那个了。但是新入坑还是建议玩大哥。
+
+*****
+
+####  一品堂官  
+##### 36568#       发表于 2022-10-24 17:09
+
+你说我在使用所谓粉圈话术就不成立好吧，一个人不同时间可以跨入同一条河流么？哪里存在用后来的表现洗以前表现的说法呢。你觉得可以这么做只能说明你认同集美的脑残话术了属于是。
+你也别回了说的根本就不是一个东西。
+选手状态不好，打的菜人家观众想喷就喷。承认了问题，下次打回来就得。
+被言语暴力往死里攻击踩上一万只脚，本来就是不至于啊。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  resorry  
+##### 36569#       发表于 2022-10-24 17:09
+
+不是啊，想买的肯定是茶茶联名产品，怎么也要有个鳖星广告才买把
+
+*****
+
+####  walfeds  
+##### 36570#       发表于 2022-10-24 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079338&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-24 17:04</a>
+
+追觅啊，扫地机器人，洗地机
+
+懂了，漏油都不做家务</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还用洗地机的，妮也是中萨特是吧
+
+
+
+*****
+
+####  超法拉  
+##### 36571#       发表于 2022-10-24 17:10
+
+我是真觉得茶干了这个bo3对他们的意义很大
+樱花兄弟这几年或多或少都没从ti7那个bo3出来
+林皇还好，boboka打完上供，你说那个bo3他没记在心里我是不信的
+
+*****
+
+####  morwhipppo  
+##### 36572#       发表于 2022-10-24 17:10
+
+有一说一，这次处长出征就穿着op的战服算不算一开始就戏来了
+
+*****
+
+####  六娃  
+##### 36573#       发表于 2022-10-24 17:11
+
+<img src="https://img.saraba1st.com/forum/202210/24/171101dgqv4yvng7yifnxe.jpg" referrerpolicy="no-referrer">
+
+<strong>FfwrhsmagAInVvi.jpg</strong> (164.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 17:11 上传
+
+量子鞭也是小电锤
+
+*****
+
+####  反方向的波  
+##### 36574#       发表于 2022-10-24 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079223&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-24 16:58</a>
+很难想象回家局14k劣势，双酱油阵亡交买的情况下，德张谜团跳大拉住飞机，秒掉飞机居然是战犯</blockquote>
+这个最好笑的是当时比赛现场的反应，量子鞭拉了两个的时候现场集美已经扣得水声潺潺了，结果欧逆酱只用了几秒钟就维持住了新达城的秩序
+
+*****
+
+####  yyf奇遇记  
+##### 36575#       发表于 2022-10-24 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079424&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-24 17:09</a>
+你说我在使用所谓粉圈话术就不成立好吧，一个人不同时间可以跨入同一条河流么？哪里存在用后来的表现洗以前 ...</blockquote>
+我怼你的点事你说vg双辅助不帮中，你自己脑补成什么了你自己去上面翻下回复？被我截图截出来了就开始套盾？
+
