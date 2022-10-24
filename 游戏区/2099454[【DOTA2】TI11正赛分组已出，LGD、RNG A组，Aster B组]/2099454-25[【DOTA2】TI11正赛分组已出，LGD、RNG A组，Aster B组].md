@@ -7472,3 +7472,89 @@ cis就是去年透支了，估计cis的下个盾又要等很久。不过在此�
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  walfeds  
+##### 36820#       发表于 2022-10-24 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083738&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-24 21:48</a>
+
+不是司马ku还觉得自己有市场是吗？</blockquote>
+tpii混得我司马ku混不得？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 36821#       发表于 2022-10-24 21:53
+
+拳击手夺冠也不是不能接受，ni公子这赛亚人状态配拿
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  反方向的波  
+##### 36822#       发表于 2022-10-24 21:54
+
+猴区是真的卜行，窝之前稍微看了看s级名单，一堆252627的老逼，有些队养老程度比西恩队还严重
+
+*****
+
+####  yyf奇遇记  
+##### 36823#       发表于 2022-10-24 21:54
+
+那来的脸啊？
+
+<img src="https://img.saraba1st.com/forum/202210/24/215429tsp3f2m39fo3zi5m.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221024215556.png</strong> (55.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 21:54 上传
+
+*****
+
+####  yyf奇遇记  
+##### 36824#       发表于 2022-10-24 21:56
+
+才发现og周五新招了一个分析师
+
+<img src="https://img.saraba1st.com/forum/202210/24/215603tt331nq1zq9ivh33.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221024215809.png</strong> (22.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 21:56 上传
+
+*****
+
+####  lyjssj  
+##### 36825#       发表于 2022-10-24 21:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这比不是传说是关系户带资进组的吗
+
+*****
+
+####  nowaki  
+##### 36826#       发表于 2022-10-24 21:57
+
+澳村算猴区的话，411还是出自猴区的。
+
+*****
+
+####  恐怖利刃  
+##### 36827#       发表于 2022-10-24 21:59
+
+t1不是他自己的队吗
+
+*****
+
+####  walfeds  
+##### 36828#       发表于 2022-10-24 22:00
+
+不是说猴区出不了有能力的人，而是猴区凑不出能打的队
+
