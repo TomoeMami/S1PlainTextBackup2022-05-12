@@ -6700,3 +6700,76 @@ lgd回家了，差不多也该到例行的我给XXX选c时间了
 
 2022-10-24 20:30 上传
 
+
+
+*****
+
+####  六娃  
+##### 36740#       发表于 2022-10-24 20:32
+
+这下赌狗队石锤了
+
+*****
+
+####  adretyu67  
+##### 36741#       发表于 2022-10-24 20:33
+
+潘飞你还说你没去过赌场吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 36742#       发表于 2022-10-24 20:34
+
+集美清算润德的时候 可否记得他们上一个版本是社区氛围<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 36743#       发表于 2022-10-24 20:37
+
+<img src="https://img.saraba1st.com/forum/202210/24/203658ps7n5en3n7za8tcz.png" referrerpolicy="no-referrer">
+
+<strong>FYJJJYM12@CR}QKM{`EALFW (1).png</strong> (4.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202210/24/203658d5gzi11dh1izy1vd.png" referrerpolicy="no-referrer">
+
+<strong>FYJJJYM12@CR}QKM{`EALFW (2).png</strong> (4.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 20:36 上传
+
+<img src="https://img.saraba1st.com/forum/202210/24/203658if0u27o220gi220o.png" referrerpolicy="no-referrer">
+
+<strong>FYJJJYM12@CR}QKM{`EALFW.png</strong> (4.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 20:36 上传
+
+*****
+
+####  六娃  
+##### 36744#       发表于 2022-10-24 20:39
+
+sa这么一个最能低经济嫖输出的敏核一号位打出0.9的输出经济比，A畜确实是这项数据的神
+
+*****
+
+####  北欧王座  
+##### 36745#       发表于 2022-10-24 20:40
+
+贱种集美不会觉得打dota的选手还能跟自己有什么情感联系吧。<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">让我见到处长直接大喊一声我超a处
+
+*****
+
+####  北欧王座  
+##### 36746#       发表于 2022-10-24 20:41
+
+小蚂蚁毕竟他们亲爹maybe先跪了，自己不跪太不合时宜了。双手支持集美清算泰迪。眉飞色舞upup
+
