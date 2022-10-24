@@ -116,3 +116,12 @@
 
 1001也能省心三连了，这回活动真舒服啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kazemitoya  
+##### 43646#       发表于 2022-10-24 13:15
+
+C闪的回收真是感天动地！6怪都很难拯救。
+
