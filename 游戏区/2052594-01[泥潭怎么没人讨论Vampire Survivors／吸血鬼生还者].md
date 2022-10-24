@@ -3532,3 +3532,12 @@ xgp版的更新1.0了么
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  方舟失智博士  
+##### 343#       发表于 2022-10-24 09:33
+
+是挺魔怔的 ti淘汰赛开始玩 有时候看比赛玩 现在也30小时了
+

@@ -10251,3 +10251,115 @@ Dy脑子还行，除了死留着他那破大树，阵容选择没问题的，就
 恰恰是盘盘打1:1我才觉得B组真的很 ...</blockquote>
 很遗憾最后是败者组无情Bo1.老实说，雪碧这次Ti，大部分时间都是第一盘被宰，第二盘宰回来。真要打个Bo3，未必不能晋级并且持续进化。可惜没有如果。
 
+
+
+*****
+
+####  jk9hot  
+##### 35755#       发表于 2022-10-24 09:33
+
+要怪只能怪为啥要去败者组第一轮呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lyjssj  
+##### 35756#       发表于 2022-10-24 09:33
+
+这时候又要说了，xg打秘密第二把，xg中期优势的时候被zayac小强一个人摸进来先手干掉了张成俊滚滚还有个谁忘了，堪称本轮bo3转折点
+
+当时丁鱼要是地上有个真眼那不就是2比0送秘密去败者组和马体死磕了
+
+*****
+
+####  勤练带来力量  
+##### 35757#       发表于 2022-10-24 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071970&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-24 09:33</a>
+这时候又要说了，xg打秘密第二把，xg中期优势的时候被zayac小强一个人摸进来先手干掉了张成俊滚滚还有个谁 ...</blockquote>
+脑浆y也干了，打盾不插真眼被小强走进来戳了两个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 35758#       发表于 2022-10-24 09:34
+
+脑11这次应该没人要了吧，实在不想看到这人再出现在赛场上了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 35759#       发表于 2022-10-24 09:34
+
+<img src="https://img.saraba1st.com/forum/202210/24/093247nwnonx8bnqdnw5kd.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20221024093206.png</strong> (73.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 09:32 上传
+
+<img src="https://img.saraba1st.com/forum/202210/24/093246du3om382d428yfzo.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20221024093237.png</strong> (75.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 09:32 上传
+
+<img src="https://img.saraba1st.com/forum/202210/24/093412wpb4nbtubyn3gnng.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20221024093416.png</strong> (70.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 09:34 上传
+
+*****
+
+####  walfeds  
+##### 35760#       发表于 2022-10-24 09:36
+
+在别说了，国内5真的是连眼都做不来了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  反方向的波  
+##### 35761#       发表于 2022-10-24 09:36
+
+那丁聪脑子也不行，场面优势能搞出地图乌漆麻黑的，建议nowaki x unhappytail x 任养胃 锁死三人幸终
+
+*****
+
+####  yyf奇遇记  
+##### 35762#       发表于 2022-10-24 09:37
+
+ 本帖最后由 yyf奇遇记 于 2022-10-24 09:39 编辑 
+
+皮鞋转5才几个月，发挥就完爆了y和丁聪，令人感叹
+
+*****
+
+####  越动天下  
+##### 35763#       发表于 2022-10-24 09:37
+
+那丁聪脑子也不行，场面优势能搞出地图乌漆麻黑的，建议nowaki x unhappytail x 任养胃 锁死三人幸终
+
+*****
+
+####  nightmare902015  
+##### 35764#       发表于 2022-10-24 09:39
+
+那bc第一把lgd打肉山又不插真眼，门口的bc假眼都不反，出来被虚空大三个，集美立刻开始“毕竟有解说爆点”
+视野真的一拖四
+
+*****
+
+####  哈萨维·诺亚  
+##### 35765#       发表于 2022-10-24 09:40
+
+那丁聪脑子也不行，场面优势能搞出地图乌漆麻黑的，建议nowaki x unhappytail x 任养胃 锁死三人幸终
+
