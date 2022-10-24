@@ -7667,3 +7667,62 @@ Somnus out，小可 in！<img src="https://static.saraba1st.com/image/smiley/fac
 
 哎 ta怎么就没搞过两个欧洲老逼队
 
+
+
+*****
+
+####  walfeds  
+##### 36842#       发表于 2022-10-24 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58084053&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 22:10</a>
+
+回想外卡赛，alone感觉确实是ni公子之外最强的中单，队友都是一群七八千分的杂鱼都能打出那种表现 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比之普森如何
+
+*****
+
+####  六娃  
+##### 36843#       发表于 2022-10-24 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58084084&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-24 22:12</a>
+比之普森如何</blockquote>
+我的记忆里普森没打过外卡
+
+*****
+
+####  walfeds  
+##### 36844#       发表于 2022-10-24 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58084091&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 22:12</a>
+
+我的记忆里普森没打过外卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">记忆删除是吧
+
+*****
+
+####  nowaki  
+##### 36845#       发表于 2022-10-24 22:16
+
+alone和红龙的露米 ta的三以前是队友，都在inf
+
+*****
+
+####  -SLSL-  
+##### 36846#       发表于 2022-10-24 22:20
+
+我怎么记得阿龙被xm打爆了
+
+*****
+
+####  哈曼的YY  
+##### 36847#       发表于 2022-10-24 22:20
+
+以后南美夺冠了也能写一篇一切的节点都始于inf是吧
+
+*****
+
+####  人別離苦  
+##### 36848#       发表于 2022-10-24 22:21
+
+结果是窝克是吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
