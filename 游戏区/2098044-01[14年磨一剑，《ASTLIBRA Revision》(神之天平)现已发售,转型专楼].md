@@ -9919,3 +9919,19 @@ v2.5.4</blockquote>多读档赌他少招飞龙吧。召的boss的攻击力也都
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  tsubaki  
+##### 913#       发表于 2022-10-24 08:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">LS至少反白下吧
+
+*****
+
+####  白軍浪  
+##### 914#       发表于 2022-10-24 08:30
+
+那个女武神是哪个地图？入口不用告诉我，只说地图就好
+
