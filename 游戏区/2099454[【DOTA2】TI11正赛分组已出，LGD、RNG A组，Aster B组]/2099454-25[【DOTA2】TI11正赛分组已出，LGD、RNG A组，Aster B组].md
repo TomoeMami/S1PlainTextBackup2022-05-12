@@ -6475,3 +6475,33 @@ xxs马尔斯虽然对线强度跟打团切入时机都不错，但是框放得�
 Liquid战队的教练Blitz近日在他的个人推特中评论了Liquid和TA的比赛。</blockquote>
 什么北欧毛毛鸭
 
+
+
+*****
+
+####  zyw0  
+##### 36720#       发表于 2022-10-24 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081685&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-24 19:32</a>
+
+我超，就不想想雪碧死前那个“我们和夺冠豪门训练，他们是。。。。”的遗言吗，这种训练真有人敢接。[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“bb在训练赛里打的很好，能进胜者组”这句话我能笑到ti22
+
+
+
+*****
+
+####  啊哈  
+##### 36721#       发表于 2022-10-24 19:47
+
+【TI11小冠军殿【刀2西游记】-哔哩哔哩】 https://b23.tv/YJSbwY4
+
+*****
+
+####  攻心为上木之本  
+##### 36722#       发表于 2022-10-24 19:48
+
+不是，茶队去年阳过了，今年好不容易到现在还没阳，怎么还有人想给潘飞找机会的啊，考虑到bc其他南美队也不太能接触吧。
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

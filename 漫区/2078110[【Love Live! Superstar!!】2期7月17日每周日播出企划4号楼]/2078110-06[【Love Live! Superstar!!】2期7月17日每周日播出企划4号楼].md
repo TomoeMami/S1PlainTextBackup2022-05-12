@@ -12790,3 +12790,21 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 好忙，感觉天天有工作似的
 
+
+
+*****
+
+####  ruffian  
+##### 8656#       发表于 2022-10-24 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蚌埠住了，unya怎么到现在还在碎碎念啊……日本人不应该比我们更了解企划德行吗，这是他第一款拉拉？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 8657#       发表于 2022-10-24 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">退一步越想越气，但又不好直接骂
+
