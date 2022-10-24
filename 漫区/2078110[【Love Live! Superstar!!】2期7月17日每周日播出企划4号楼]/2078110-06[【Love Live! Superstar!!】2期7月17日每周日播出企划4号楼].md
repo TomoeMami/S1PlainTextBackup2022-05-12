@@ -12743,3 +12743,16 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 8653#       发表于 2022-10-24 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076615&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-24 14:13</a>
+老实讲，二期的歌我到现在都没怎么听，新发的那张插曲单我至今都没打开过 ...</blockquote>
+是我了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
