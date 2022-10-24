@@ -10116,3 +10116,30 @@ LS至少反白下吧</blockquote>
 
 第五章第二个电梯怎么开，殴打了好几遍都不动
 
+
+
+*****
+
+####  何处分可  
+##### 928#       发表于 2022-10-24 14:07
+
+<img src="https://img.saraba1st.com/forum/202210/24/140714nv22y2fcfz1cel28.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 14:07 上传
+
+这个馅饼不会需要高级合成书吧，普通的合成好像没有
+
+*****
+
+####  ds2008  
+##### 929#       发表于 2022-10-24 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076516&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-24 14:07</a>
+
+这个馅饼不会需要高级合成书吧，普通的合成好像没有</blockquote>
+打竞技场会获得新的合成书
+

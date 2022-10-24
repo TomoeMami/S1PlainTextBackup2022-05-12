@@ -12501,3 +12501,12 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 —— 来自 HUAWEI ABR-AL60, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 8632#       发表于 2022-10-24 14:06
+
+阴阳怪气地说，运营觉得五老星的舞台表现太稳了没有养成感，于是加入新人让粉丝好好感受一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

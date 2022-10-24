@@ -3666,3 +3666,23 @@ xgp版的更新1.0了么
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  史莱姆KING  
+##### 353#       发表于 2022-10-24 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075391&amp;ptid=2052594" target="_blank">藤井紫 发表于 2022-10-24 12:49</a>
+
+2图，往右边走有个石假面
+
+效果是获得的金钱加10%/每级
+
+你可以先把装备拿到辅助格子满再去拿，可以作为第 ...</blockquote>
+ok
+
+我现在用魔法师妹子终于到了第二张图了
+
+假面拿到了。。稍后看看具体怎么整活
+

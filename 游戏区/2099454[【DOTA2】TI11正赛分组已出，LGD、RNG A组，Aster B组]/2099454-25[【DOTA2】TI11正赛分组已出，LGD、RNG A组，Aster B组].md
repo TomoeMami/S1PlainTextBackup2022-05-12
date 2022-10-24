@@ -2195,3 +2195,258 @@ longdd打职业时脾气这么吊，结果蹭burning、yyf，到现在直接化�
 
 。。。。。。。。。。。这高华女友的味也太冲了，我最恶心就是英语和中文夹着说的
 
+
+
+*****
+
+####  六娃  
+##### 36248#       发表于 2022-10-24 14:03
+
+张懿萍的那个穿超短裤露屁沟让他发射脑浆的前女友今年上半年刚结婚，望周知
+
+*****
+
+####  OVTVO  
+##### 36249#       发表于 2022-10-24 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076408&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 14:01</a>
+
+翻到了</blockquote>
+这种正常妹子没必要贴出来吧，万一有几个发疯集美或者节奏狗骚扰人家就不好了。
+
+*****
+
+####  yyf奇遇记  
+##### 36250#       发表于 2022-10-24 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076440&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 14:03</a>
+张懿萍的那个穿超短裤露屁沟让他发射脑浆的前女友今年上半年刚结婚，望周知 ...</blockquote>
+哥们不是早就发过了
+
+*****
+
+####  yyf奇遇记  
+##### 36251#       发表于 2022-10-24 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076443&amp;ptid=2099454" target="_blank">OVTVO 发表于 2022-10-24 14:04</a>
+这种正常妹子没必要贴出来吧，万一有几个发疯集美或者节奏狗骚扰人家就不好了。 ...</blockquote>
+这微博账号早就不用了
+
+*****
+
+####  没钱买手办  
+##### 36252#       发表于 2022-10-24 14:05
+
+我兄弟他爹前两年刚评的少将，颈椎病去我爸那看病和他聊过很多也没有余韵和她的上校爹这样的啊
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  OVTVO  
+##### 36253#       发表于 2022-10-24 14:05
+
+怎么老哥们连职业选手前女友什么时候结婚都知道的，搞得我都不敢回帖怕被盒了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 36254#       发表于 2022-10-24 14:05
+
+<img src="https://p.sda1.dev/7/41a2f41b39588a290e813b057aa3d6f2/1666591519166.jpg" referrerpolicy="no-referrer">
+鉴定为含泪再打一年
+
+*****
+
+####  夏溪澪mio  
+##### 36255#       发表于 2022-10-24 14:05
+
+脑浆y最初是什么梗？
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 36256#       发表于 2022-10-24 14:06
+
+漏油是粪坑侦探部的吧。
+
+*****
+
+####  acacaclove  
+##### 36257#       发表于 2022-10-24 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076471&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-24 14:05</a>
+
+我兄弟他爹前两年刚评的少将，颈椎病去我爸那看病和他聊过很多也没有余韵和她的上校爹这样的啊
+
+—— 来自  ...</blockquote>
+因为这是新时代了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有这样的早被撸下去了
+
+*****
+
+####  沉默之声  
+##### 36258#       发表于 2022-10-24 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076054&amp;ptid=2099454" target="_blank">seki_m 发表于 2022-10-24 13:36</a>
+
+第一把看sdn搁那摁吹真是笑死了</blockquote>
+第二局sdn也是狂洗Tb开变身推塔，我寻思对面也没人守啊，推个塔，开变身干嘛
+
+整场听起来茶队像是五个外国人
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36259#       发表于 2022-10-24 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073999&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-24 11:23</a>
+所以冰蛙给冰女设计一个+200攻速15级天赋难道是预见了辅助都要去打棒子的一天？ ...</blockquote>
+那个不是以前是25级天赋，转大哥用的
+
+*****
+
+####  ののワ  
+##### 36260#       发表于 2022-10-24 14:06
+
+潘飞跳大LGD依然晋级失败是否证明当今版本剧毒确实就是个废物英雄
+
+*****
+
+####  火鸡味锅巴  
+##### 36261#       发表于 2022-10-24 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076471&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-24 14:05</a>
+
+我兄弟他爹前两年刚评的少将，颈椎病去我爸那看病和他聊过很多也没有余韵和她的上校爹这样的啊
+
+—— 来自  ...</blockquote>
+黑龙别逗狗头了，我害怕
+
+*****
+
+####  六娃  
+##### 36262#       发表于 2022-10-24 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076476&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-24 14:05</a>
+鉴定为含泪再打一年</blockquote>
+这个哥们有核中核消息，冠超现在大概是，既觉得憋屈想再打一年，又想回归家庭造小超人
+我估计沈琪淼的态度最后会起决定性作用
+
+*****
+
+####  nightmare902015  
+##### 36263#       发表于 2022-10-24 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076471&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-24 14:05</a>
+我兄弟他爹前两年刚评的少将，颈椎病去我爸那看病和他聊过很多也没有余韵和她的上校爹这样的啊
+
+—— 来自  ...</blockquote>
+俊豪（dota2教练）任上刚评的少将和这帮子人根本不一样。余韵这爹都退休了。
+
+*****
+
+####  lyjssj  
+##### 36264#       发表于 2022-10-24 14:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">xinq好歹让v社给他做了2个漂亮的畜赛特cg呢
+
+反观gege。。
+
+*****
+
+####  六娃  
+##### 36265#       发表于 2022-10-24 14:08
+
+施丹尼现在就是装集美恶心真集美好吧，私下里都笑岔气了
+顺便还能一边解说一边逗AA这傻冒玩
+
+*****
+
+####  acacaclove  
+##### 36266#       发表于 2022-10-24 14:09
+
+sdn直播天天黑geigei
+
+比赛解说就装集美
+
+*****
+
+####  天堂蜘蛛  
+##### 36267#       发表于 2022-10-24 14:09
+
+俊豪（dota2教练）
+
+*****
+
+####  StrangerJ  
+##### 36268#       发表于 2022-10-24 14:09
+
+到现在为止有没有过当了爹再拿ti冠军的
+
+*****
+
+####  灰色的狐狸  
+##### 36269#       发表于 2022-10-24 14:09
+
+茶好不容易恢复的国籍这把又给打没了
+
+*****
+
+####  Renko117  
+##### 36270#       发表于 2022-10-24 14:10
+
+撸狗鞭初中学历还装自己有文化，笑死
+
+
+
+*****
+
+####  tasuku  
+##### 36271#       发表于 2022-10-24 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076548&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-24 14:09</a>
+到现在为止有没有过当了爹再拿ti冠军的</blockquote>
+ana
+yatoro
+
+*****
+
+####  火鸡味锅巴  
+##### 36272#       发表于 2022-10-24 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076529&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 14:08</a>
+
+施丹尼现在就是装集美恶心真集美好吧，私下里都笑岔气了
+
+顺便还能一边解说一边逗AA这傻冒玩 ...</blockquote>
+昨天我记得很清楚，bbc问小人，抛开立场不谈，是不是aster表现更出色，然后狗哥还是谁插了句，aster本来就表现更出色
+
+*****
+
+####  hyde_caesar  
+##### 36273#       发表于 2022-10-24 14:11
+
+我觉得脑浆y才是老干鳖最大的问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+原来润神是个车万二刺螈, 估计是日了脑浆y的abc女友才想着也找个高华的;
+
+然后脑浆y还带a/看皮套人, 看得a/网恋奔现把脑浆y喜欢的主播日了, 直接导致15不合;
+
+谢谢脑浆y<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tasuku  
+##### 36274#       发表于 2022-10-24 14:11
+
+傻卵二次元带樱花兄弟的是日本队，望周知
+
+*****
+
+####  蛭人  
+##### 36275#       发表于 2022-10-24 14:12
+
+傻卵二次元带樱花兄弟的是日本队，望周知
+
