@@ -5817,3 +5817,125 @@ sa还是得出跳，分身冰眼太异味了，毫无输出<img src="https://sta
 
 主要是曾骄阳去年在vg状态大幅下滑是可以预料的。旱道芬在整个周期都在bp和具体对线策略上一直在牺牲曾骄阳，到ti前的时候曾骄阳的状态已经下滑得很厉害了，今年为啥猴爹也不行了就跟去年曾骄阳一样状态在这种长时间得牺牲之下下滑太厉害了
 
+
+
+*****
+
+####  TI三冠王AME  
+##### 36650#       发表于 2022-10-24 18:13
+
+<img src="https://img.saraba1st.com/forum/202210/24/181316g9oci6bdxw4xdiix.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (46.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 18:13 上传
+
+先预祝一波掀背在日增过万的新加坡夺冠好吧
+
+*****
+
+####  yyf奇遇记  
+##### 36651#       发表于 2022-10-24 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080462&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-24 18:13</a>
+先预祝一波掀背在日增过万的新加坡夺冠好吧</blockquote>
+昨天就回国了
+
+*****
+
+####  yyf奇遇记  
+##### 36652#       发表于 2022-10-24 18:16
+
+<img src="https://p.sda1.dev/7/5a1d95f63a5e87883ea4dd02c223b45a/CMP_20221024181554722.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  TI三冠王AME  
+##### 36653#       发表于 2022-10-24 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080483&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 18:15</a>
+
+昨天就回国了</blockquote>
+V社不给订酒店了不代表立刻回国了吧，这楼主发帖时间是今天下午
+
+*****
+
+####  Litccc  
+##### 36654#       发表于 2022-10-24 18:17
+
+脑东京不会要被踢了吧
+
+*****
+
+####  nightmare902015  
+##### 36655#       发表于 2022-10-24 18:17
+
+神tm比赛结束我才想出来怎么对抗尸王，那答案是怎么对抗呢？
+
+*****
+
+####  IG.430  
+##### 36656#       发表于 2022-10-24 18:18
+
+想到？抄2000哥pom的作业！
+
+*****
+
+####  六娃  
+##### 36657#       发表于 2022-10-24 18:19
+
+我看了下录像，sa暴毙那波，aster是没视野的
+xxs跳滚单纯只是想杀大畜，没想到撞出来另一个畜，笑死
+
+*****
+
+####  nowaki  
+##### 36658#       发表于 2022-10-24 18:19
+
+哥们第一个dpc就在喷脑东京菜鸡了，该滚了。
+
+已经有ti和major两个高光了，虽然免不了被骂最菜冠2，但也超过一众亚2。
+
+最好把4一起带走，mira真的纯纯菜鸡。
+
+*****
+
+####  walfeds  
+##### 36659#       发表于 2022-10-24 18:19
+
+<img src="https://p.sda1.dev/7/a7ce55acc5a021dcca93eb377d7a0a38/CMP_20221024181903936.jpg" referrerpolicy="no-referrer">哦牛逼，采阴补阳了是吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yyf奇遇记  
+##### 36660#       发表于 2022-10-24 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080511&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-24 18:16</a>
+V社不给订酒店了不代表立刻回国了吧，这楼主发帖时间是今天下午</blockquote>
+那我就不清楚了，dota2官博发了lgd ta两个队推行李走的的照片
+
+
+
+*****
+
+####  非建政专用号  
+##### 36661#       发表于 2022-10-24 18:20
+
+mira和脑东京滚了，谁给崩溃出三个林肯阿
+
+*****
+
+####  nightmare902015  
+##### 36662#       发表于 2022-10-24 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080544&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 18:19</a>
+
+我看了下录像，sa暴毙那波，aster是没视野的
+
+xxs跳滚单纯只是想杀大畜，没想到撞出来另一个畜，笑死 ...</blockquote>
+至少两波，应该有三波。都是SA隐身茶队无视野，SA被撞。有一次茶队全员没反应过来所以SA幸免遇难
+
