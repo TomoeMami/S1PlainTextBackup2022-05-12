@@ -3914,3 +3914,273 @@ ppy在ti9的bp也就能赢rotk了，打w33被米波阴我是真的服，ni公子
 
 霉鳖今年退役已经是最好的退场了，明年要是真和A畜组队大概率要被猴爹处刑
 
+
+
+*****
+
+####  adretyu67  
+##### 36447#       发表于 2022-10-24 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078214&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-24 15:59</a>
+
+还是看看giegie这辈子比赛打sa的出装吧，突出一个路径依赖</blockquote>
+感觉今年掀背冰眼这玩意是越出越多了。
+
+以前还能玩敏核爆输出被人逮捕先手控死，现在玩啥都想着出肉了。
+
+*****
+
+####  guojiaoqi  
+##### 36448#       发表于 2022-10-24 16:01
+
+我觉得也就是客气一下，超哥心里真能放得下去？
+
+*****
+
+####  izayoi39  
+##### 36449#       发表于 2022-10-24 16:02
+
+猴王还是赶快离开水厂吧，在水厂打了两年工具人中单已经不知道拿中单c该怎么打了
+
+*****
+
+####  反方向的波  
+##### 36450#       发表于 2022-10-24 16:02
+
+一想到猴爹本来因为打不过nidone晚上玉玉中，睡了一觉心情缓解点突然看到外面漫山遍野地支持欧逆酱和霉鳖合体再打一年真的蚌埠住了
+
+
+
+*****
+
+####  walfeds  
+##### 36451#       发表于 2022-10-24 16:03
+
+一想到猴爹本来因为打不过nidone晚上玉玉中，睡了一觉心情缓解点突然看到外面漫山遍野地支持欧逆酱和霉鳖再打一年真的蚌埠住了
+
+*****
+
+####  夜光铃  
+##### 36452#       发表于 2022-10-24 16:03
+
+那两次tb变身还不够经典么
+
+*****
+
+####  樱冢名月  
+##### 36453#       发表于 2022-10-24 16:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来，猴爹离了水厂能去哪里啊？
+
+*****
+
+####  莉拉厨  
+##### 36454#       发表于 2022-10-24 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078219&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-24 15:59</a>
+盒中盒消息
+茶队根本没想到能进决赛周，物资没带够，现在四处找去新加坡的人帮忙带东西 ...</blockquote>
+哦牛逼，不怕xbb的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tasuku  
+##### 36455#       发表于 2022-10-24 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078246&amp;ptid=2099454" target="_blank">guojiaoqi 发表于 2022-10-24 16:01</a>
+我觉得也就是客气一下，超哥心里真能放得下去？</blockquote>
+放不下还去吃饭是吧
+我被这种玩意儿坑过两次绝对一辈子拉黑好吧
+
+*****
+
+####  枯风瘦雪02  
+##### 36456#       发表于 2022-10-24 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078244&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-24 16:01</a>
+
+感觉今年掀背冰眼这玩意是越出越多了。
+
+以前还能玩敏核爆输出被人逮捕先手控死，现在玩啥都想着出肉了。 ...</blockquote>
+讲真，现在dota这么砍后期的物理输出，一场团战主C的平A次数也没几次，除了出大炮也没啥爆输出的出装路线了，人人都出冰眼撒旦某种程度也算是出无可出了
+
+*****
+
+####  adretyu67  
+##### 36457#       发表于 2022-10-24 16:04
+
+水厂不要猴王可以把猴王卖去鳖茶<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+看看骄阳跑路后，猴王会不会把天赋带到aster乱杀西恩<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+嘛，反正都是梦里的，200%不可能
+
+*****
+
+####  六娃  
+##### 36458#       发表于 2022-10-24 16:04
+
+踢猴王的最大阻碍应该是王八，毕竟关门弟子
+不过王八现在在潘婕潘飞面前应该是真没啥话语权了
+
+*****
+
+####  belldandy_ye  
+##### 36459#       发表于 2022-10-24 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077895&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-24 15:36</a>
+
+rtz出道在mlg那个黑鸟暴打dk我觉得好TM吊。打成现在这样真是唏嘘</blockquote>
+EE的战术开发能力在DOTA圈里是顶级，抓RTZ这种操作好但完全没思路的充打手刚好互补.
+
+*****
+
+####  yyf奇遇记  
+##### 36460#       发表于 2022-10-24 16:05
+
+有一说一，之前纯路人怎么喷ghost回家局的tb，就应该加倍喷欧巴的，那两次变身 哥们还以为昨日重现了
+
+*****
+
+####  一品堂官  
+##### 36461#       发表于 2022-10-24 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078294&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-24 16:04</a>
+水厂不要猴王可以把猴王卖去鳖茶
+
+看看骄阳跑路后，猴王会不会把天赋带到aster乱杀西恩
+
+嘛， ...</blockquote>
+人要学会谦逊！
+谦逊警告！
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  ck4pa  
+##### 36462#       发表于 2022-10-24 16:05
+
+骄阳的队友运也不算差吧，18年左右的yang和张成俊实力都不弱啊
+
+*****
+
+####  nowaki  
+##### 36463#       发表于 2022-10-24 16:06
+
+今年没潘飞舍身跳大，搞不好lgd直接败者组一轮游了，潘飞在ruru眼里就是盖世英雄好吧
+
+*****
+
+####  walfeds  
+##### 36464#       发表于 2022-10-24 16:08
+
+猴王在西恩是别想换队了，还是想办法怀五夜欧吧
+
+被尼公子军训还能把水平拉回来
+
+*****
+
+####  ck4pa  
+##### 36465#       发表于 2022-10-24 16:08
+
+我倒是希望ori maybe再切一年假腿，漏油不会真的想看xm大战张成俊吧
+
+*****
+
+####  银月术士329  
+##### 36466#       发表于 2022-10-24 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">不去nga有没有一种可能是因为被娘炮版主叉出来了 我nga账号-2威望全是在狂战版扣的
+
+*****
+
+####  银月术士329  
+##### 36467#       发表于 2022-10-24 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">不去nga有没有一种可能是因为被娘炮版主叉出来了 我nga账号-2威望全是在狂战版扣的
+
+*****
+
+####  guojiaoqi  
+##### 36468#       发表于 2022-10-24 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078285&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-24 16:04</a>
+放不下还去吃饭是吧
+我被这种玩意儿坑过两次绝对一辈子拉黑好吧</blockquote>
+圈里混表面功夫还得做做吧，但是真要回去了我肯定直接开喷
+
+*****
+
+####  六娃  
+##### 36469#       发表于 2022-10-24 16:08
+
+王八去年没能搞出一套既能四保一体现出割割地位又能赢比赛的阵容已经是负罪之身，今年他选阵容确实有点故意帮A畜保枪让张润德吃屎，体现一个不粘锅
+你看现在果然清算他BP的少了很多
+
+*****
+
+####  银翼的维罗西  
+##### 36470#       发表于 2022-10-24 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078294&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-24 16:04</a>
+
+水厂不要猴王可以把猴王卖去鳖茶
+
+看看骄阳跑路后，猴王会不会把天赋带到aster乱杀西恩
+
+嘛， ...</blockquote>
+不是不可能，老干鳖出得起的价格茶肯定也出得起，真要去了那真是集美们的末日
+
+*****
+
+####  一品堂官  
+##### 36471#       发表于 2022-10-24 16:10
+
+别提了 曾焦阳去年ti状态不好被dy和pwy嫌弃被路人骂 今年初我说这事其实真不至于搞那么夸张 结果还被上个楼主还是这个楼主怼了 搁那说我洗地 服了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  VT1996  
+##### 36472#       发表于 2022-10-24 16:11
+
+整个刀圈真的有人能体面退役吗？jerax退役够体面了不也出来又当了一圈小丑
+
+*****
+
+####  c88711611  
+##### 36473#       发表于 2022-10-24 16:11
+
+a畜最喜欢出冰眼了，最记忆犹新的就是ti9的那个幽鬼，最后一个出冰眼打不动人，本来已经是大后期该幽鬼拯救世界了，然后出幽鬼切c半天切不死，被对面玩弄。最后还是靠fy的森哥毒狗救了maybe的飞机，靠飞机把对面打死了，a畜的冰眼幽鬼一点用都没有，玩个后期c，完成这逼样，把幽鬼玩成死肉了。
+
+然后还有一次经典出冰眼输了的比赛，就是在cdec时期，xm那把ta力中暴力，输出全靠他打，然后a畜大圣6神最后一件出了个冰眼，输出根本不够，只靠ta一个人然后输了。赛后lga集美洗地出啥都没用，我真是吐了，出啥都没用那要不你家giegie直接打gg算了，就等着你1号位后期拯救世界，然后出了个挨打装备，还洗地出啥都没用，集美能不能都tm去死一死
+
+*****
+
+####  Lamapocos  
+##### 36474#       发表于 2022-10-24 16:12
+
+真是恶心到了，群里有人聊天聊着聊着连ti8也是假赛都来了，什么死吗东西
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36475#       发表于 2022-10-24 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077741&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-24 15:26</a>
+VG那几年最大的问题是找了张成俊当C。
+
+考虑到油面来之前VG甚至找过丑鬼当C然后火速踢掉，可能是真没什么好 ...</blockquote>
+刘嘉俊不是人咯，rotk好兄弟不用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 36476#       发表于 2022-10-24 16:12
+
+核中核消息，yapzor出院了，昨天还和gorgc连麦解说液体比赛，等一个yapzor含笑解说拳击手回家
+

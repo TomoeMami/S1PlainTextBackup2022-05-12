@@ -12571,3 +12571,12 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8638#       发表于 2022-10-24 16:11
+
+我有一计可以让粉丝纯纯的享受差距的魅力，把大部分歌词都切成两半，一一对应各SOLO一半，多余的C位小百合扔出去给整个几句就差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
