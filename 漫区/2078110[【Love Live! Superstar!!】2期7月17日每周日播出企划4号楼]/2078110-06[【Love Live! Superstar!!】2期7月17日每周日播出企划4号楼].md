@@ -12631,3 +12631,43 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">为了保证粉丝感受到企划的良苦用心，对应上可以再细化嘛，总有办法的
 
+
+
+*****
+
+####  优妮可  
+##### 8643#       发表于 2022-10-24 17:15
+
+<img src="https://img.saraba1st.com/forum/202210/24/171541p2t6sygt6tvt52iv.jpg" referrerpolicy="no-referrer">
+
+<strong>20221024_171315.jpg</strong> (85.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 17:15 上传
+
+<img src="https://img.saraba1st.com/forum/202210/24/171542vy91woc0ow8wc1hh.jpg" referrerpolicy="no-referrer">
+
+<strong>20221024_171314.jpg</strong> (492.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 17:15 上传
+
+*****
+
+####  starring  
+##### 8644#       发表于 2022-10-24 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079525&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-24 17:15</a></blockquote>
+鲤无<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 8645#       发表于 2022-10-24 17:21
+
+一开始的追求方向（在我看来）就是歪的，后续动作也不会好到哪儿去，要怎么寄予期待呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（反正把差距赤裸裸摆出来我是挺不爽的，想到现在所谓的“差距”有相当一部分就是官方刻意造成的就更不爽了，属于是“执果索因”了，你还真敢拿这来说事啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">）
+

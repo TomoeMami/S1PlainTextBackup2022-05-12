@@ -5141,3 +5141,119 @@ Ti11赛季看不懂？
 你说我在使用所谓粉圈话术就不成立好吧，一个人不同时间可以跨入同一条河流么？哪里存在用后来的表现洗以前 ...</blockquote>
 我怼你的点事你说vg双辅助不帮中，你自己脑补成什么了你自己去上面翻下回复？被我截图截出来了就开始套盾？
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 36576#       发表于 2022-10-24 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079410&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 17:08</a>
+你是不是刻舟求剑，我把图放在这里你自己品</blockquote><blockquote>别提了 曾焦阳去年ti状态不好被dy和pwy嫌弃被路人骂 今年初我说这事其实真不至于搞那么夸张 结果还被上个楼主还是这个楼主怼了 搁那说我洗地 服了</blockquote>
+你自己连我怼你的是什么都忘了，还能虚空care我一下，然后反手给我套一个我是脑残，用饭圈话术的帽子，我真是谢谢你哦
+
+*****
+
+####  vlder1994  
+##### 36577#       发表于 2022-10-24 17:14
+
+不是，你们记性都这么好的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36578#       发表于 2022-10-24 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079431&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-24 17:10</a>
+还用洗地机的，妮也是中萨特是吧</blockquote>
+zai别说了，12期分期买了，一共用了4次还是五次，评价是不如扫地机器人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 36579#       发表于 2022-10-24 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079500&amp;ptid=2099454" target="_blank">vlder1994 发表于 2022-10-24 17:14</a>
+不是，你们记性都这么好的嘛
+
+—— 来自 samsung SM-G9700, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+我记性要是差点，今天不就被楼上这兄弟把帽子扣上了？
+
+*****
+
+####  六娃  
+##### 36580#       发表于 2022-10-24 17:15
+
+<img src="https://img.saraba1st.com/forum/202210/24/171455xfchqmcwrfezrrtf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (245.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 17:14 上传
+
+经历过失败的泪水才能真正成长，去努力变得更强吧，pakazs
+
+*****
+
+####  walfeds  
+##### 36581#       发表于 2022-10-24 17:16
+
+好，支持正确记忆
+
+*****
+
+####  Asukalangley33  
+##### 36582#       发表于 2022-10-24 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079275&amp;ptid=2099454" target="_blank">resorry 发表于 2022-10-24 17:00</a>
+
+这个茶队赞助的追觅，看不到啥联动产品啊，还寻思小小兹瓷一下</blockquote>
+吸尘器
+
+我家买了1个这，一个戴森的
+
+除了塑料感比较强以外性能没啥区别，价钱只有一半不到，感觉东西还不错
+
+*****
+
+####  没钱买手办  
+##### 36583#       发表于 2022-10-24 17:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能出点茶队签名套装
+
+*****
+
+####  枯风瘦雪02  
+##### 36584#       发表于 2022-10-24 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079592&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-24 17:18</a>
+
+吸尘器
+
+我家买了1个这，一个戴森的
+
+除了塑料感比较强以外性能没啥区别，价钱只有一半不到，感觉东西还不 ...</blockquote>
+楼友们真是不审题啊，这位想买联名产品，起码得印个茶队logo的才能骗他下手不是
+
+*****
+
+####  莉拉厨  
+##### 36585#       发表于 2022-10-24 17:21
+
+TI10焦阳状态不好是事实，被对面中单正反手打爆显然是对线出了大问题，被四踢一也是情理之中。
+丁聪卜基德的地方在于，在TI开始前就放出消息准备去XG老板的新队，作为队长不想着拧绳而是提前88burden，哪怕TI结束后再跑也不迟，这一点才是今年xg成绩不好后那么多人落井下石的根本原因
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 36586#       发表于 2022-10-24 17:21
+
+[https://www.bilibili.com/video/BV16G4y187TR](https://www.bilibili.com/video/BV16G4y187TR)
+
+【TI11复盘】LGD回家局到底怎么输的？
+
