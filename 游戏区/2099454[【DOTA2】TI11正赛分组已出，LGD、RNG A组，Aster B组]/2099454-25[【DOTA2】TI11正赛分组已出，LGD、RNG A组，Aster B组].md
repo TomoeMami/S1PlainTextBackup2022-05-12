@@ -4718,3 +4718,218 @@ ni公子已经在秘密打满四年了
 
 拳击手这老逼登也太阴阳怪气了
 
+
+
+*****
+
+####  沉默之声  
+##### 36536#       发表于 2022-10-24 16:52
+
+后面这几把外国队的谜团玩的挺好呀，面8的BP每次都还行，别人家大哥打架怎么这么猛
+
+*****
+
+####  一品堂官  
+##### 36537#       发表于 2022-10-24 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078506&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 16:16</a>
+你自己学集美刻舟求剑，用ti11赛季的曾焦阳去洗ti10的，别人还不能说了？</blockquote>
+脑残脑子不好么扣帽子，又不是最近才说的哪来的ti11的结果？
+说了是不至于被喷成那样，你这种无脑盯着喷到死的蠢货和看到bo3第一把输了就喊回家别打了的弹幕云观众有什么区别？
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  反方向的波  
+##### 36538#       发表于 2022-10-24 16:55
+
+面八这届就是不粘锅bp，妮看去年10/17日到÷sight出来前有几个喊王8nb的，上去就是一个为什么卜ban猛犸
+
+*****
+
+####  沉默之声  
+##### 36539#       发表于 2022-10-24 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079179&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-24 16:55</a>
+
+面八这届就是不粘锅bp，妮看去年10/17日到÷sight出来前有几个喊王8nb的，上去就是一个为什么卜ban猛犸 ...</blockquote>
+看到面8ban了7个可以打3的英雄，我就猜到肯定是4保1了，果然船长就来了，笑死
+
+*****
+
+####  yyf奇遇记  
+##### 36540#       发表于 2022-10-24 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079166&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-24 16:54</a>
+脑残脑子不好么扣帽子，又不是最近才说的哪来的ti11的结果？
+说了是不至于被喷成那样，你这种无脑盯着喷 ...</blockquote>
+Ti11赛季看不懂？
+自己说了什么话都不记得回去翻一遍再看看？
+
+
+
+*****
+
+####  璀璨魔女  
+##### 36541#       发表于 2022-10-24 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">yun真是个宝藏女高华
+
+<img src="https://img.saraba1st.com/forum/202210/24/165743ppp22rcipdlepsc0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (189.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 16:57 上传
+
+*****
+
+####  CharlieZ-  
+##### 36542#       发表于 2022-10-24 16:58
+
+纯凑热闹看ti的问下影魔是不是新人最好上手的，我看前三个技能一模一样，大招还简单暴力，应该挺容易的吧
+
+*****
+
+####  nowaki  
+##### 36543#       发表于 2022-10-24 16:58
+
+<img src="https://img.saraba1st.com/forum/202210/24/165300umtr3ytnnmcrhrxp.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221024165220.png</strong> (87.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 16:53 上传
+
+很难想象回家局14k劣势，双酱油阵亡交买的情况下，德张谜团跳大拉住飞机，秒掉飞机居然是战犯
+
+<img src="https://img.saraba1st.com/forum/202210/24/165652lv7pt4xx16flvvkd.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221024165627.png</strong> (72.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 16:56 上传
+
+哥哥变身没了不走，非要追pom被留住暴毙
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这就是力中暴力tb吗
+
+*****
+
+####  一品堂官  
+##### 36544#       发表于 2022-10-24 16:58
+
+就不懂了，曾焦阳这种低调选手，状态下滑风评脑浆都被骂出来了想要退役，路人说一句不至于就要被用粉圈话术拉成洗地，某些人看事情真的和魔怔人一样。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  六娃  
+##### 36545#       发表于 2022-10-24 16:59
+
+ 本帖最后由 六娃 于 2022-10-24 17:01 编辑 
+
+鳖星真的比水厂像一支正常的队伍多了
+
+你能想象A畜和队友在赢了比赛后激情相拥吗
+
+<img src="https://img.saraba1st.com/forum/202210/24/170105acbpr9crdoxmm63c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (238.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 17:01 上传
+
+*****
+
+####  adretyu67  
+##### 36546#       发表于 2022-10-24 17:00
+
+我挺想看雪碧和干瘪去年交换猛犸和小小的世界线。
+
+到时候是不是就是这猛犸有屁用啊，线上就被小小打得炸裂<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+关键团妇科vp小小一个跳刀切入把干瘪拍成团灭。
+
+到时候就是“为什么不抢小小？”的弱智节奏了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 36547#       发表于 2022-10-24 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079221&amp;ptid=2099454" target="_blank">CharlieZ- 发表于 2022-10-24 16:58</a>
+
+纯凑热闹看ti的问下影魔是不是新人最好上手的，我看前三个技能一模一样，大招还简单暴力，应该挺容易的吧 ...</blockquote>
+是，200把影魔经验之谈，影魔只要放好大就等于会了这个英雄
+
+*****
+
+####  yyf奇遇记  
+##### 36548#       发表于 2022-10-24 17:00
+
+就不懂了，楼上这种学集美刻舟求剑来用曾焦阳回踩的好意思说别人是脑残？我说他用曾焦阳ti11赛季发挥来洗曾焦阳ti10赛季，这人上来一个脑残么ti11都没结束直接把我整不会了
+
+叫赛季是个什么词都搞不懂也就别在这刻舟求剑了兄弟
+
+*****
+
+####  resorry  
+##### 36549#       发表于 2022-10-24 17:00
+
+这个茶队赞助的追觅，看不到啥联动产品啊，还寻思小小兹瓷一下
+
+*****
+
+####  walfeds  
+##### 36550#       发表于 2022-10-24 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079245&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 16:59</a>
+
+鳖星真的比水厂像一支正常的队伍多了
+
+你能想象A畜和队友在赢了比赛后激情相拥吗 ...</blockquote>
+妮这图右边我可以当没看见，但是这颜色是不是有点离谱了
+
+*****
+
+####  nowaki  
+##### 36551#       发表于 2022-10-24 17:01
+
+法魔 跳刀吹风bkb真的蛮简单的
+
+*****
+
+####  yyf奇遇记  
+##### 36552#       发表于 2022-10-24 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079275&amp;ptid=2099454" target="_blank">resorry 发表于 2022-10-24 17:00</a>
+这个茶队赞助的追觅，看不到啥联动产品啊，还寻思小小兹瓷一下</blockquote>
+吸尘器好像是
+
+*****
+
+####  nowaki  
+##### 36553#       发表于 2022-10-24 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079275&amp;ptid=2099454" target="_blank">resorry 发表于 2022-10-24 17:00</a>
+
+这个茶队赞助的追觅，看不到啥联动产品啊，还寻思小小兹瓷一下</blockquote>
+家电
+
+*****
+
+####  银翼的维罗西  
+##### 36554#       发表于 2022-10-24 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079223&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-24 16:58</a>
+
+很难想象回家局14k劣势，双酱油阵亡交买的情况下，德张谜团跳大拉住飞机，秒掉飞机居然是战犯</blockquote>
+我也看到这个细节了，明明直接走有机会，哥哥非要A那POM一下，不过这就是哥哥，也正常
+
