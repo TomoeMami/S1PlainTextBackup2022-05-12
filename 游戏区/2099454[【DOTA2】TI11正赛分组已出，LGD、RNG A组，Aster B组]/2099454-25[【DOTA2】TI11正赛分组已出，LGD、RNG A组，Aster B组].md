@@ -8528,3 +8528,94 @@ ti11就是平平无奇的刷了送，堆最肉的装，挨最狠的打。可能�
 
 卡憋已经出现在41yyRpg聚会了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">听声音感觉身体还好
 
+
+
+*****
+
+####  蛭人  
+##### 36939#       发表于 2022-10-25 00:43
+
+为什么领红包的人这么多，楼里面却没几个人说话，集美视奸是吧。
+
+*****
+
+####  恐怖利刃  
+##### 36940#       发表于 2022-10-25 00:45
+
+<img src="https://img.saraba1st.com/forum/202210/25/004502izllr5xqu2l1upnl.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (550.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 00:45 上传
+
+*****
+
+####  百世诸侯  
+##### 36941#       发表于 2022-10-25 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">这白毛懂哥比三个杰畜加起来还恶心
+
+*****
+
+####  米德  
+##### 36942#       发表于 2022-10-25 00:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">因为狗头人是个双修畜生所以我不看他视频 因此错过多少红包 玉玉了
+
+*****
+
+####  Litccc  
+##### 36943#       发表于 2022-10-25 00:47
+
+谢谢漏油的大包，又去听了遍狗头人的越过山丘，现在集美清算的节奏固然让人同情，细想了下wings老队友对他的评价还真没错<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  masterffzhou  
+##### 36944#       发表于 2022-10-25 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58085985&amp;ptid=2099454" target="_blank">米德 发表于 2022-10-25 00:46</a>
+因为狗头人是个双修畜生所以我不看他视频 因此错过多少红包 玉玉了</blockquote>
+艹，居然双修，香槟我都会背了
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Kazepollar  
+##### 36945#       发表于 2022-10-25 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58085938&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-25 00:39</a>
+ 打了一晚上P5R哥们快晕倒了，畅想了一下处长的心之迷宫，大概率是一个鳖壳要塞 ...</blockquote>
+**，什么时候有怪盗给处长发预告信，我要看他跪下来哭着阐述自己的罪行
+
+*****
+
+####  蛭人  
+##### 36946#       发表于 2022-10-25 00:48
+
+夜饮潇湘好像自从喝了水粉丝涨的飞快吧，ti9还装自己黄埔军校铁粉小泰迪，真是csdx。
+
+*****
+
+####  很久就在那边l  
+##### 36947#       发表于 2022-10-25 00:50
+
+有没有狗头人歌词大全.TXT
+
+*****
+
+####  人別離苦  
+##### 36948#       发表于 2022-10-25 00:50
+
+有没有狗头人歌词大全.TXT
+
+*****
+
+####  蛭人  
+##### 36949#       发表于 2022-10-25 00:51
+
+狗头人最恶心的是本质暗黑集美，无非ame坑了他粉的老北京，不过歌确实不错。
+

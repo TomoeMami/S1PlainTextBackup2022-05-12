@@ -2763,3 +2763,15 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 突然想氪点金抽抽卡，发现淘宝的礼品卡都无了，什么时候开始的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3242#       发表于 2022-10-25 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58085924&amp;ptid=2084912" target="_blank">kiralzb 发表于 2022-10-25 00:38</a>
+
+突然想氪点金抽抽卡，发现淘宝的礼品卡都无了，什么时候开始的</blockquote>
+因为现在不能用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
