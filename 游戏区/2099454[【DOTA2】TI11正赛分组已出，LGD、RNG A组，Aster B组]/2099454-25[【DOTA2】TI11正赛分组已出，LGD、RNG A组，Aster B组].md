@@ -1501,3 +1501,300 @@ Uncrowned King of Choke
 
 我也特别欣赏RTZ和EE，巴不得他们打一辈子
 
+
+
+*****
+
+####  恐怖利刃  
+##### 36172#       发表于 2022-10-24 13:32
+
+<img src="https://img.saraba1st.com/forum/202210/24/133045v6avpvytoz0xjhup.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FB2BC009-C984-452A-8916-9ABD0CDA90B4.jpeg</strong> (130 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 13:30 上传
+
+<img src="https://img.saraba1st.com/forum/202210/24/133101joz8z44kjnlr0piy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A9F6A58D-BE28-4E56-931D-E7A6A3C19DDC.jpeg</strong> (76.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 13:31 上传
+
+<img src="https://img.saraba1st.com/forum/202210/24/133206kreow0nnqez7xjex.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BDF4BC9B-F7BD-4BC0-A33D-974CA3BB7674.jpeg</strong> (88.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 13:32 上传
+
+各回各家了
+
+*****
+
+####  usoda  
+##### 36173#       发表于 2022-10-24 13:32
+
+世纪大TM和解的时候个个切片切的飞起 现在不是只能缩壳了吗
+
+*****
+
+####  樱冢名月  
+##### 36174#       发表于 2022-10-24 13:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">东野奎吾也太厉害了点，润德是没见过女人吗，被这种女人骗。
+
+*****
+
+####  nightmare902015  
+##### 36175#       发表于 2022-10-24 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075991&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-24 13:32</a>
+各回各家了</blockquote>
+这么快就能回江苏？现在不要求回国前先自我隔离了吗。
+
+*****
+
+####  沉默之声  
+##### 36176#       发表于 2022-10-24 13:33
+
+看了LGD打茶队的两把录像，解说嘉宾都是LGD粉丝？
+
+*****
+
+####  蛭人  
+##### 36177#       发表于 2022-10-24 13:34
+
+众所周知，LGD水厂是国内圈子里面唯一钦定的中国队，茶队被开除国籍了。
+
+*****
+
+####  勤练带来力量  
+##### 36178#       发表于 2022-10-24 13:34
+
+hanhdy 63384502 级别: 学徒 威望: 1 注册: 21-07-13
+2022-10-24 00:24      
+
+感觉ame最强的地方还是英雄池
+
+从来没有一个版本说ame不会某一个英雄。这不单单是天赋，更是态度。这23要是有ame这个态度也不至于一直吃老本！真的可以说是ame成就了23458，ame从来不做那个让bp为难的人！cn可能以后很难有这个能力的选手了。
+
+*****
+
+####  lyjssj  
+##### 36179#       发表于 2022-10-24 13:35
+
+客观视角就是lgd已经确定是本届西恩最丢人战队
+
+rng得病加血战惜败，阿茶是亲手送走lgd的队伍
+
+集美现在也就骗骗自己了
+
+*****
+
+####  joker9527  
+##### 36180#       发表于 2022-10-24 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076003&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-24 13:33</a>
+
+东野奎吾也太厉害了点，润德是没见过女人吗，被这种女人骗。</blockquote>
+东野圭吾是什么梗？
+
+
+
+*****
+
+####  caupollen  
+##### 36181#       发表于 2022-10-24 13:35
+
+微博主页的地址是常用地址吧
+
+*****
+
+####  yyf奇遇记  
+##### 36182#       发表于 2022-10-24 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075976&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-24 13:31</a>
+我错得彻底，我天真的以为老干瘪滚了就清净了看不到集美发大水了</blockquote>
+你换个角度想想现在如果lgd4强的话会怎么样
+
+*****
+
+####  yyf奇遇记  
+##### 36183#       发表于 2022-10-24 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076043&amp;ptid=2099454" target="_blank">joker9527 发表于 2022-10-24 13:35</a>
+东野圭吾是什么梗？</blockquote>
+https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2088652&amp;page=122
+
+*****
+
+####  seki_m  
+##### 36184#       发表于 2022-10-24 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076008&amp;ptid=2099454" target="_blank">沉默之声 发表于 2022-10-24 13:33</a>
+
+看了LGD打茶队的两把录像，解说嘉宾都是LGD粉丝？</blockquote>
+第一把看sdn搁那摁吹真是笑死了
+
+*****
+
+####  百世诸侯  
+##### 36185#       发表于 2022-10-24 13:36
+
+哦莥芘，真的直飞西欧了是吧
+
+*****
+
+####  勤练带来力量  
+##### 36186#       发表于 2022-10-24 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076054&amp;ptid=2099454" target="_blank">seki_m 发表于 2022-10-24 13:36</a>
+第一把看sdn搁那摁吹真是笑死了</blockquote>
+听说矮子龙dc那边最后一波团直接高喊杀飞机！杀飞机！
+
+*****
+
+####  morwhipppo  
+##### 36187#       发表于 2022-10-24 13:37
+
+说到底A畜今年淘汰赛赢了一个A组加赛才活下来的boom和阳了4个的B组垫底克神，不知道这帮逼怎么说出giegie血carry这种话的，
+
+*****
+
+####  acacaclove  
+##### 36188#       发表于 2022-10-24 13:37
+
+睿达到底是怎么被这个喜欢看尼格拍皮球的新自由主义入脑的高华骗的？
+
+我知道打dota的文化水平都不高，这是不是有点太呆逼了
+
+*****
+
+####  六娃  
+##### 36189#       发表于 2022-10-24 13:38
+
+[杂谈] 相信割割！
+
+打茶的bo3第一把，在双酱油的游中下，猴爹火猫8分钟压了曾焦阳的火女1000并连续击杀茶帮中的酱油，一个本应劣势的对线最后竟变成了单方面的吊打。之后老干瘪顺风顺水打下roshan，然后转折点出现了，队友选择相信割割，让割割带上不朽盾开始参战。之后，老干瘪几乎没打赢过一波团，每波林靖都能精准的用地雷滚滚逼出割割宝贵的bkb，短暂的刀光谍影后，留下的只剩永久隐身。猴爹终究绷不住了，在下路圣坛暴毙，局势开始向茶倾斜，刚才还在开香槟的集美转眼间只能开始相信割割。
+
+然后割割在应当知道对面高台有眼的前提下，很自然的被滚中接箭暴毙了，这突如其来的结局就和他之前的无数次表演一样，让人错愕之余又带着几分忍俊不禁。基地爆炸，割割力中暴力打出0.9的输出经济比，远超他的平均值0.81,操刀的是以经济少输出高着称的一号位sa。
+
+第二把，不知道是觉得刚才猴爹没兜住还是割割主动要求，面八选择了相信割割，选出了一套经典四保畜，保的是割割最招牌的英雄之一恐怖利刃。然后茶24手点出了玛尔斯，一个非常克制远敏单核但是因本身强度堪忧在这个锦标赛公认为陷阱的英雄，他们相信割割。
+
+对线期结束，玛尔斯在死了一次的情况下经济和割割一样。猴爹这把已经不复上把的状态，中路被压，杀火女水和水刀皆空，愣是害死了自家双酱油；张润德面对杜鹏的飞机仿佛想要提前登机，拖家带口的冲向高射火炮却迟迟不能对防御塔造成任何威胁。割割孤注一掷地tp上路，开启魔化，推掉了防御塔，恶魔的身躯在集美和队友的眼中变得异常伟岸，他们相信割割，割割又戴上了不朽盾。但是不朽盾仿佛是从上局sa身上拔下来的一样，割割又一次开始了带盾的永久隐身 。
+
+然后割割用两次变身，葬送了自家中二塔和二代盾，可等他下一次按下变身时，带盾的飞机拱在了割割的脸上，割割只能狼狈的逃跑，却被玛尔斯一矛钉住殴打致死。万事休矣。
+
+回到ti10，相信割割，牙通牙最终只为一份加急送到的血包成就另一个人恐怖利刃的加冕。回到ti9，相信割割是先手后的背锅清算和上高时的自然暴毙。回到ti8，相信割割是让西恩刀塔开始没落的起点。
+
+集美们怪着面八的bp，六强没有真视界，他们可以尽情地落井下石。集美清算张润德，润德看着睿达不朽的名微微一笑，转身离开。集美攻击猴爹，辱骂文丑，固然，猴爹的英雄池在这届有所缺陷，文丑的状态也不甚理想，但他们心知无愧于自己，无愧于割割。集美的攻击只是纯粹的无脑谩骂围魏救赵，但他们相信割割。
+
+剩下的队伍，每一支的c都敢打敢拼，哪怕不要全队的资源倾斜也能打出比割割更多的均伤，更好的经济输出比，更高的kda，但老干鳖相信割割。
+
+对手每把都想尽办法按死张润德和猴爹，哪怕割割再肥，他们也相信割割。
+
+傻狗们自不用提，虽然角度不同，但傻狗永远是最相信割割的。
+
+只是这份信赖让我不禁怀疑，割割代言的杰士邦到底是不是和他一样值得信赖。
+
+*****
+
+####  蛭人  
+##### 36190#       发表于 2022-10-24 13:39
+
+longdd打职业时脾气这么吊，结果蹭burning、yyf，到现在直接化身集美，鉴定为csdx好吧
+
+*****
+
+####  勤练带来力量  
+##### 36191#       发表于 2022-10-24 13:39
+
+最巅峰的我没有遇上最巅峰的你，不知道真森哥看见这句话会不会好不容易稳定的玉玉病情直接加重
+
+*****
+
+####  哈曼的YY  
+##### 36192#       发表于 2022-10-24 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075915&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-24 13:27</a>
+
+集美已经钦定ti11的第一C了</blockquote>
+太典了 我一查发言记录
+
+这个说水晶强的 ti10后明显的看出了雪碧的进化 认可雪碧强
+
+这个说a畜第一c的 ti10后有怀疑假赛开挂那套 也是请你先举报那种
+
+*****
+
+####  walfeds  
+##### 36193#       发表于 2022-10-24 13:40
+
+法国队粉丝开除纯华班国籍属于滑天下之大稽了
+
+*****
+
+####  yyf奇遇记  
+##### 36194#       发表于 2022-10-24 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076076&amp;ptid=2099454" target="_blank">acacaclove 发表于 2022-10-24 13:37</a>
+睿达到底是怎么被这个喜欢看尼格拍皮球的新自由主义入脑的高华骗的？
+
+我知道打dota的文化水平都不高，这是 ...</blockquote>
+你不会以为撸狗鞭多有内涵吧？
+
+你多了解一下这个人就知道他有多会搞人设了
+
+*****
+
+####  yyf奇遇记  
+##### 36195#       发表于 2022-10-24 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076093&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-24 13:39</a>
+longdd打职业时脾气这么吊，结果蹭burning、yyf，到现在直接化身集美，鉴定为csdx好吧 ...</blockquote>
+那天洗剧毒术士的时候，我就已经祝福口腔癌早日战胜他了
+
+*****
+
+####  火鸡味锅巴  
+##### 36196#       发表于 2022-10-24 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076076&amp;ptid=2099454" target="_blank">acacaclove 发表于 2022-10-24 13:37</a>
+
+睿达到底是怎么被这个喜欢看尼格拍皮球的新自由主义入脑的高华骗的？
+
+我知道打dota的文化水平都不高，这是 ...</blockquote>
+bian最不能接受的就是自己被当作普通人看待。之前量子力学什么的都是这样出来的。这样一个自命不凡的人遇到新自由主义者不就一拍即合吗。
+
+*****
+
+####  勤练带来力量  
+##### 36197#       发表于 2022-10-24 13:41
+
+nts的问题倒不是滚滚，而是他传统中单基本上没一个绝活的。
+你一个打中的sf ts 这种基本功型中单都拿不出来，三猫打的也没啥亮点，唯一一个绝活tk常年弱上不了场，等打到ti中后期都是强队的时候就是会成为团队拖后腿的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 36198#       发表于 2022-10-24 13:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076076&amp;ptid=2099454" target="_blank">acacaclove 发表于 2022-10-24 13:37</a>
+
+睿达到底是怎么被这个喜欢看尼格拍皮球的新自由主义入脑的高华骗的？
+
+我知道打dota的文化水平都不高，这是 ...</blockquote>
+卜是，怎么说都比艹坦克皮套人强一百倍吧
+
+*****
+
+####  你气不气  
+##### 36199#       发表于 2022-10-24 13:42
+
+中单光一皮套丑，声音难听，游戏菜，戏多
+

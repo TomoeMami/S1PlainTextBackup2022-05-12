@@ -7086,3 +7086,40 @@ croy自己有娃的 肯定不会做出高尔夫剧情 反正我放一百个心
 
 本来我是想把新泄露图片发到这里的，但想了想还是算了，如果你不想破坏自己亲自玩这游戏的惊喜，还是最好不要去搜索
 
+
+
+*****
+
+####  医生狼多  
+##### 768#       发表于 2022-10-24 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075933&amp;ptid=2025548" target="_blank">HDGDG 发表于 2022-10-24 13:29</a>
+本来我是想把新泄露图片发到这里的，但想了想还是算了，如果你不想破坏自己亲自玩这游戏的惊喜，还是最好不 ...</blockquote>
+麻烦来个链接<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">不怕透
+
+*****
+
+####  HDGDG  
+##### 769#       发表于 2022-10-24 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58076006&amp;ptid=2025548" target="_blank">医生狼多 发表于 2022-10-24 13:33</a>
+
+麻烦来个链接不怕透</blockquote>
+reddit，战神版块
+
+*****
+
+####  HDGDG  
+##### 770#       发表于 2022-10-24 13:36
+
+[https://www.reddit.com/r/GodofWar/](https://www.reddit.com/r/GodofWar/)
+
+[https://www.reddit.com/r/GodofWarRagnarok/](https://www.reddit.com/r/GodofWarRagnarok/)
+
+*****
+
+####  HDGDG  
+##### 771#       发表于 2022-10-24 13:39
+
+[https://twitter.com/kufrzz](https://twitter.com/kufrzz)  这个图片比较全 （严重剧透）
+

@@ -12472,3 +12472,12 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  a92063256  
+##### 8629#       发表于 2022-10-24 13:40
+
+“未来可期”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我当然希望她能快速进步，而不是像现在这样就算在精修过的cd里也经常唱得这么出众
+
