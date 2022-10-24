@@ -3443,3 +3443,33 @@ xgp版的更新1.0了么
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说开宝箱有加速功能吗？ 每次音乐放完还要转一会太浪费人生了
 
+
+
+*****
+
+####  otakun  
+##### 335#       发表于 2022-10-24 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071225&amp;ptid=2052594" target="_blank">wthall 发表于 2022-10-24 08:38</a>
+话说开宝箱有加速功能吗？ 每次音乐放完还要转一会太浪费人生了</blockquote>
+按B可以直接跳结果，但好像开箱爆击的话不能跳过<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wthall  
+##### 336#       发表于 2022-10-24 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071285&amp;ptid=2052594" target="_blank">otakun 发表于 2022-10-24 08:44</a>
+
+按B可以直接跳结果，但好像开箱爆击的话不能跳过</blockquote>
+那种出1个还是3个还是5个是完全随机的吧？
+
+*****
+
+####  otakun  
+##### 337#       发表于 2022-10-24 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071298&amp;ptid=2052594" target="_blank">wthall 发表于 2022-10-24 08:45</a>
+那种出1个还是3个还是5个是完全随机的吧？</blockquote>
+受运气和第一个塔罗牌影响
+

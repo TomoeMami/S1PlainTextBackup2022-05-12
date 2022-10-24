@@ -9749,3 +9749,70 @@ mnd，要不是被中单潘飞投毒，超哥稳胜者组的a
 
 利雅得不是早就复仇雪碧了吗
 
+
+
+*****
+
+####  lyjssj  
+##### 35699#       发表于 2022-10-24 08:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是希望阿茶能至少赢个马体
+
+赢了马体就是前三，超越了始祖鳖的ti成绩
+
+如果再赢一场，至少可以做个畜赛特背景板
+
+*****
+
+####  yourSwaTer  
+##### 35700#       发表于 2022-10-24 08:43
+
+希望阿茶能够摸摸决赛日地板
+
+
+
+*****
+
+####  银月术士329  
+##### 35701#       发表于 2022-10-24 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58069924&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-24 01:19</a>
+
+有一说一，搞wow俱乐部争首杀是真的搞笑。</blockquote>
+有一说一能怪运营吧，国内wow头部的圈子风气差到爆炸了，本质都是数据刷子和工作室打手， 时光 吮吸这种人放国外早踢了还打了2个版本，不过最搞笑的还是erxi指挥。。。
+
+这几天发现一个一直在看的职业领头人现在也是工作室打手还一口一个公司我真是草了。。。
+
+*****
+
+####  yyf奇遇记  
+##### 35702#       发表于 2022-10-24 08:47
+
+这一周只能靠超级清算论坛的典来度过了
+
+*****
+
+####  nerugigannte  
+##### 35703#       发表于 2022-10-24 08:48
+
+所有有没有新楼，用哪个
+
+*****
+
+####  yyf奇遇记  
+##### 35704#       发表于 2022-10-24 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071343&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-24 08:48</a>
+所有有没有新楼，用哪个</blockquote>
+Ti冠军出来了换楼聊转会
+
+*****
+
+####  Sayuki1025  
+##### 35705#       发表于 2022-10-24 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58070537&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-24 05:56</a>
+
+杜鹏B站号也太搞了，动态从上往下分别是原舟asoul，要素拉满了</blockquote>
+杜鹏B站号 叫啥<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
