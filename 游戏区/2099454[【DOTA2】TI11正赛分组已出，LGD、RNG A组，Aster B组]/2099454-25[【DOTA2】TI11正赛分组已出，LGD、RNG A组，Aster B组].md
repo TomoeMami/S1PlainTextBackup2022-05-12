@@ -993,3 +993,256 @@ ZZZZZZZZZZZZ
 
 处长当年确实是被鳖鳖不基德鸽了
 
+
+
+*****
+
+####  六娃  
+##### 36118#       发表于 2022-10-24 13:02
+
+脑海里回荡科比的声音，我顿时湿了眼眶
+
+这种人是有点欠被科比（动词）
+
+*****
+
+####  StrangerJ  
+##### 36119#       发表于 2022-10-24 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075529&amp;ptid=2099454" target="_blank">璀璨魔女 发表于 2022-10-24 12:59</a>
+有的有的
+
+这小作文给我看的笑拉了</blockquote>
+喷了，高华里这么搞笑的都不多见吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 36120#       发表于 2022-10-24 13:04
+
+为什么女权会喜欢科比啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 这是什么思路
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 36121#       发表于 2022-10-24 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075501&amp;ptid=2099454" target="_blank">acacaclove 发表于 2022-10-24 12:57</a>
+哪个贴？</blockquote>
+https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2088652&amp;page=122
+
+*****
+
+####  acacaclove  
+##### 36122#       发表于 2022-10-24 13:04
+
+高华脑子我觉得都卜太正常<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+查资料的时候看到外面那种弱智新闻10个9个是高华写的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 36123#       发表于 2022-10-24 13:04
+
+脑海里回荡科比的声音，我顿时湿了眼眶
+
+*****
+
+####  缺陷电气杨永信  
+##### 36124#       发表于 2022-10-24 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075453&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-24 12:54</a>
+夜饮潇湘是谁，干了啥，求科普</blockquote>
+干了一果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 二宮飛鳥酱|-1|管人痴丨|
+| mrm4B|-1|管人痴丨|
+
+查看全部评分
+
+*****
+
+####  Crazy_Knife  
+##### 36125#       发表于 2022-10-24 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075589&amp;ptid=2099454" target="_blank">Cookiekira 发表于 2022-10-24 13:04</a>
+为什么女权会喜欢科比啊 这是什么思路</blockquote>
+才40来岁你的富豪老公人就没了把遗产全部都留给了你，你开心不开心啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 36126#       发表于 2022-10-24 13:05
+
+心疼睿达
+
+*****
+
+####  12481632  
+##### 36127#       发表于 2022-10-24 13:06
+
+余亚军Bryant什么时候再次身披焦比战袍
+
+*****
+
+####  六娃  
+##### 36128#       发表于 2022-10-24 13:06
+
+@Faith_bian：恶意看完了，看明白事情原委后不禁感叹此人何等之恶，但对这种恶的存在并不感到意外。剧情和细节设置的很巧妙，看的很上瘾。篇幅不长一天就能看完。这本书描写人类心理的样子让我联想到三岛由纪夫，他的书之前读不下去，现在又想读了。
+
+*****
+
+####  百世诸侯  
+##### 36129#       发表于 2022-10-24 13:07
+
+<img src="https://img.saraba1st.com/forum/202210/24/130705itmhhweh08s7mcml.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-10-24-13-06-56-875-edit_com.sina.weibo.jpg</strong> (55.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-24 13:07 上传
+
+*****
+
+####  六娃  
+##### 36130#       发表于 2022-10-24 13:07
+
+两个傻帽凑一起谈恋爱还挺好的，至少不霍霍别人
+
+*****
+
+####  哈萨维·诺亚  
+##### 36131#       发表于 2022-10-24 13:07
+
+哭了哭了 卜哭卜是真科密
+
+*****
+
+####  acacaclove  
+##### 36132#       发表于 2022-10-24 13:07
+
+真有人喜欢东野奎吾写的那堆厕纸啊
+
+*****
+
+####  六娃  
+##### 36133#       发表于 2022-10-24 13:08
+
+三岛由纪夫没打错，我认为张睿达的文化水平比余韵高
+
+*****
+
+####  六娃  
+##### 36134#       发表于 2022-10-24 13:09
+
+话说有没有石油杯那会刷张睿达和余韵甜甜甜的截图
+
+*****
+
+####  Lamapocos  
+##### 36135#       发表于 2022-10-24 13:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能祝福锁死了
+
+*****
+
+####  nowaki  
+##### 36136#       发表于 2022-10-24 13:09
+
+楼主当时是不是暴露了自己喜欢东哥
+
+*****
+
+####  六娃  
+##### 36137#       发表于 2022-10-24 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075645&amp;ptid=2099454" target="_blank">acacaclove 发表于 2022-10-24 13:07</a>
+
+真有人喜欢东野奎吾写的那堆厕纸啊</blockquote>
+楼主是东哥铁粉，马上要来和你白头了
+
+*****
+
+####  反方向的波  
+##### 36138#       发表于 2022-10-24 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075668&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-24 13:09</a>
+楼主当时是不是暴露了自己喜欢东哥</blockquote>
+他喜欢的是京茖
+
+*****
+
+####  少年游不游  
+##### 36139#       发表于 2022-10-24 13:10
+
+真有人喜欢东野奎吾写的那堆厕纸啊
+
+*****
+
+####  tasuku  
+##### 36140#       发表于 2022-10-24 13:11
+
+昨天看狗头人还是森哥在复盘好像当年阿鳖没有鸽哥哥
+感觉ti7就是戏来了
+
+*****
+
+####  lyjssj  
+##### 36141#       发表于 2022-10-24 13:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哎哟，他们是真的不知道他们说话很尬吗
+
+*****
+
+####  acacaclove  
+##### 36142#       发表于 2022-10-24 13:12
+
+感觉东野圭吾在写完放学后和嫌疑人之后就江郎才尽了，后面纯纯赚稿费
+
+*****
+
+####  yyf奇遇记  
+##### 36143#       发表于 2022-10-24 13:12
+
+窝卜是京极东彦粉？
+
+*****
+
+####  璀璨魔女  
+##### 36144#       发表于 2022-10-24 13:12
+
+又去看了下视频
+
+U1S1余韵这个长相我直接PTSD了
+
+*****
+
+####  恐怖利刃  
+##### 36145#       发表于 2022-10-24 13:12
+
+老逼讲讲到底什么情况，说是哥哥本来想读书后来考了二本再去找徐志雷dk已经散了
+
+*****
+
+####  yyf奇遇记  
+##### 36146#       发表于 2022-10-24 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58075673&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-24 13:09</a>
+他喜欢的是京茖</blockquote>
+东哥指，京极东彦，谢谢
+

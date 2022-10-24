@@ -7664,3 +7664,14 @@ errrrr，不是录播的吗</blockquote>
 
 现在日本经济烂成这样真是<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 12728#       发表于 2022-10-24 13:05
+
+没事，她大不了回到2018年的状态：“反正我有拆腻子财布”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
