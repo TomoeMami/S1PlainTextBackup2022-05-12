@@ -10329,3 +10329,61 @@ LS至少反白下吧</blockquote>
 
 但是如果农盘农满了导致洗了还是不够200就只能买金锚了
 
+
+
+*****
+
+####  苏西踩到我了  
+##### 948#       发表于 2022-10-25 01:56
+
+提醒一下，不要卖装备，收集齐全武器和防具会给一周目最强武器
+
+我前期装备武器全卖了，搞得后面还要重新收集
+虽然也就多花了三个小时，但好不爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏西踩到我了  
+##### 949#       发表于 2022-10-25 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58084977&amp;ptid=2098044" target="_blank">laosai13 发表于 2022-10-24 23:17</a>
+求问一下这个怎么样？流程大概有多长？有没有比较完整的攻略？</blockquote>
+很好玩，我刚刚一周目全收集档35小时，实际游玩47小时
+
+看评论二周目大约70小时
+
+暂无完整攻略，有日文wiki但不方便，我强烈建议稍微看一点点攻略，有些要素错过会非常蛋疼，等好心人做攻略出来再玩也挺好的
+
+*****
+
+####  pf67  
+##### 950#       发表于 2022-10-25 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58086384&amp;ptid=2098044" target="_blank">苏西踩到我了 发表于 2022-10-25 01:56</a>
+
+提醒一下，不要卖装备，收集齐全武器和防具会给一周目最强武器</blockquote>
+没搜集齐已经把一周目最终boss干了进入二周目，是不是没机会拿了啊
+
+*****
+
+####  御坂MKII  
+##### 951#       发表于 2022-10-25 03:39
+
+ 本帖最后由 御坂MKII 于 2022-10-25 03:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  原来木棍有熟练度的吗，我还以为那槽是假的
+
+法杖有用吗，每个法杖的施法方向好像都是固定的，打到第三章甚至没几个是朝着正面放法术的
+
+*****
+
+####  laosai13  
+##### 952#       发表于 2022-10-25 04:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58086477&amp;ptid=2098044" target="_blank">苏西踩到我了 发表于 2022-10-25 02:30</a>
+
+很好玩，我刚刚一周目全收集档35小时，实际游玩47小时
+
+看评论二周目大约70小时</blockquote>
+看不懂日语啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">等一个好心老哥的攻略。玩jrpg没有攻略老是错过东西好难受
+

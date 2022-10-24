@@ -8747,3 +8747,54 @@ ti11就是平平无奇的刷了送，堆最肉的装，挨最狠的打。可能�
 
 凉茶打液体不放老鹿、狗、熊德应该问题不大，后面的BO3需要超进化
 
+
+
+*****
+
+####  恐怖利刃  
+##### 36962#       发表于 2022-10-25 02:28
+
+希望能把秘密干了，不想让ppy装到
+
+*****
+
+####  恐怖利刃  
+##### 36963#       发表于 2022-10-25 04:49
+
+<img src="https://img.saraba1st.com/forum/202210/25/044946t8dd8y6k8ogc2nz7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>192EF0CA-906F-48B7-8A90-689F071F9A60.jpeg</strong> (204.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 04:49 上传
+
+*****
+
+####  resorry  
+##### 36964#       发表于 2022-10-25 04:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58085235&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 23:39</a>
+
+这就是峰哥牛逼的地方了
+
+刀塔
+
+351</blockquote>
+这梗不是白妹妹说的么
+
+*****
+
+####  feiyu99  
+##### 36965#       发表于 2022-10-25 05:09
+
+楼主被禁止访问，哈哈哈，犯了啥错了<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  feiyu99  
+##### 36966#       发表于 2022-10-25 05:11
+
+楼主被禁止访问，哈哈哈，犯了啥错了
+<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
