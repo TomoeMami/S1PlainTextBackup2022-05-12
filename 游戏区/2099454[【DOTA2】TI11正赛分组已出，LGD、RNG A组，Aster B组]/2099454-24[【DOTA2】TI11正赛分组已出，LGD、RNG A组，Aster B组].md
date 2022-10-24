@@ -11445,3 +11445,148 @@ zai种现在是一场比赛放个好大就算力中暴力了
 
 对于这个被撸狗反杀马的人，我只能说喜欢绥靖是这样的，早干嘛去了
 
+
+
+*****
+
+####  Cantha  
+##### 35887#       发表于 2022-10-24 11:02
+
+bian发微博了
+
+*****
+
+####  桐道悠  
+##### 35888#       发表于 2022-10-24 11:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话，这次ti中，zai除了打鳖星那两把有点搞，前天的三把谜团有点划，其他局打的还可以了，昨天打ta的G2G3更是力中暴力了。但是按照我对他的了解，他畜力应该是蓄满了，该发力了。
+
+*****
+
+####  tasuku  
+##### 35889#       发表于 2022-10-24 11:02
+
+煤球好歹队友搭舞台也真的能C
+
+国家队只能夺拿到宇宙第一赛事奥运会和第二赛事每周杯那也是国家队太菜
+
+拿哥哥来黑我煤球还是过分了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 35890#       发表于 2022-10-24 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073479&amp;ptid=2099454" target="_blank">seki_m 发表于 2022-10-24 10:56</a>
+pom厉害在可以廉价清理召唤物和棒子吧，风行做不到
+
+这版本四号位蚂蚁还有不有得打？ ...</blockquote>
+体质太差不好刷钱 而且没控不稳定 昨天的POM箭补了很多致死控制 这点就风行能替代
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  反方向的波  
+##### 35891#       发表于 2022-10-24 11:02
+
+ 本帖最后由 反方向的波 于 2022-10-24 11:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073589&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 11:02</a>
+西方dota三大天才少年，苏猴 鸽鸽 zai种没同队打一下真的可惜好吧，很想看是什么样的脑浆横飞画面 ...</blockquote>
+卜是ti7eg？可惜那年zai种是4.5号位
+
+*****
+
+####  adretyu67  
+##### 35892#       发表于 2022-10-24 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073539&amp;ptid=2099454" target="_blank">越动天下 发表于 2022-10-24 10:59</a>
+
+和液体第二把一样 都是急了 高强度的打让两个队都太求胜了</blockquote>
+实际上最后哪怕被灭还是有机会的，黑暗芒果直接卖了秘鲁超人自己跑路找机会断兵线一样能拖到队友复活打守高团。
+
+非得试着去救pakazs把自己也搭上。
+
+*****
+
+####  jk9hot  
+##### 35893#       发表于 2022-10-24 11:03
+
+都对🍵这么不看好的吗？相对于ta手活硬朗来说，打液体是🍵最美好的赛程了。银k对马桶zaippy更熟悉
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  六娃  
+##### 35894#       发表于 2022-10-24 11:03
+
+ 本帖最后由 六娃 于 2022-10-24 11:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073611&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-24 11:02</a>
+卜是ti7eg？可惜哪年zai种是4.5号位</blockquote>
+四号位的zai种很强的，如果zai种不切假腿一直打4，未尝不会没有这边徐林森级别的风评
+因为zai种最大的缺点就是心理素质差，不让他承担三号位的责任是能秀出来的
+
+*****
+
+####  OVTVO  
+##### 35895#       发表于 2022-10-24 11:04
+
+想了想大祭品蚂蚁4好像确实可以，但是只能算POM下位替代，POM跳跃带来的棒子位置优势、后手箭、大招转移感觉都比蚂蚁的强势前期更有用一些。
+
+*****
+
+####  IG.430  
+##### 35896#       发表于 2022-10-24 11:05
+
+风行不行，摸不到像pom一样多的钱的，出不出来大祭品的，而且风行打四跳是刚需，不像pom出什么都没用<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 35897#       发表于 2022-10-24 11:06
+
+我还以为是新微博呢，火星人爬<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 35898#       发表于 2022-10-24 11:07
+
+就是要打ta这种手活硬的，拼肌肉赢了才有冠军相。
+
+打液体都知道zai会送的，上去打那两队遇到手活比你强的就溃败了
+
+*****
+
+####  adretyu67  
+##### 35899#       发表于 2022-10-24 11:08
+
+想举盾，和南美兄弟们拼手活把手打热比较好。
+
+想着超越鳖鳖do2的生涯进个决赛日，打液体比较好。
+
+*****
+
+####  adretyu67  
+##### 35900#       发表于 2022-10-24 11:09
+
+不过感觉今年应该是真看不到小牛了？？？
+
+*****
+
+####  yyf奇遇记  
+##### 35901#       发表于 2022-10-24 11:10
+
+啥玩意小牛，lgd打boom的g2不是玩过了吗
+
+*****
+
+####  nowaki  
+##### 35902#       发表于 2022-10-24 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58073711&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-24 11:09</a>
+
+不过感觉今年应该是真看不到小牛了？？？</blockquote>
+lgd rng 石头人都玩了一把啊
+

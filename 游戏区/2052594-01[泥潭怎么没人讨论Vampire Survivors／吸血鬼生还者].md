@@ -3541,3 +3541,16 @@ xgp版的更新1.0了么
 
 是挺魔怔的 ti淘汰赛开始玩 有时候看比赛玩 现在也30小时了
 
+
+
+*****
+
+####  kyl2001  
+##### 344#       发表于 2022-10-24 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58071884&amp;ptid=2052594" target="_blank">星尘的记忆 发表于 2022-10-24 09:28</a>
+求问有没有适合正式版入坑玩家的中文资料或者wiki，百度出来的很多都是老板的，或者只说1.0的新东西
+
+——  ...</blockquote>
+我都是看fandom的英文wiki，中文好像没有
+
