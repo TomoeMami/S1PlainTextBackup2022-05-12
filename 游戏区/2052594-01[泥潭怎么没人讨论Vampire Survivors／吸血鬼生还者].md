@@ -3743,3 +3743,15 @@ ok
 
 昨天刚解锁女巫，用了一把结果被自己的猫给挠死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mintslime  
+##### 360#       发表于 2022-10-24 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079191&amp;ptid=2052594" target="_blank">hello0607 发表于 2022-10-24 16:55</a>
+
+懒人就是初手选8号卡（吸道具） 觉得自己运气好就中期选 选不到就只能腿着 说实话没8号卡跑路效率都很低  ...</blockquote>
+吸道具+升级圣水基本上就可以愉快afk了，我愿称它为最op塔罗，也就开隐藏的时候不能用这点比较烦
+

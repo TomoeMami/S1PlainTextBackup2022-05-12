@@ -12671,3 +12671,27 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 （反正把差距赤裸裸摆出来我是挺不爽的，想到现在所谓的“差距”有相当一部分就是官方刻意造成的就更不爽了，属于是“执果索因”了，你还真敢拿这来说事啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8646#       发表于 2022-10-24 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079525&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-24 17:15</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这衣服一般不该是这种效果的吧（
+
+*****
+
+####  cybernetics31  
+##### 8647#       发表于 2022-10-24 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">人好看就行
+
+*****
+
+####  优妮可  
+##### 8648#       发表于 2022-10-24 17:27
+
+少了条沟是吧，但也挤不出来啊(
+

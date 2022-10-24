@@ -5257,3 +5257,142 @@ TI10焦阳状态不好是事实，被对面中单正反手打爆显然是对线�
 
 【TI11复盘】LGD回家局到底怎么输的？
 
+
+
+*****
+
+####  tasuku  
+##### 36587#       发表于 2022-10-24 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078550&amp;ptid=2099454" target="_blank">犭央犭茶湖水牛 发表于 2022-10-24 16:19</a>
+
+踏马的，新加坡华人国家缺个毛啊，海南鸡饭吃到饱</blockquote>
+不知道，也没说具体带啥
+
+也有可能是带阿鳖的毛发过去请神吧（指请给对面）
+
+*****
+
+####  Asukalangley33  
+##### 36588#       发表于 2022-10-24 17:24
+
+建议追觅可以学杰士邦来个广告词
+
+“涤尘迎春，不再萧瑟！”
+
+然后配图是XXS滚滚冲烂水厂阵型<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 36589#       发表于 2022-10-24 17:24
+
+带鳖鳖毛发去请神就真的第四了
+
+*****
+
+####  c88711611  
+##### 36590#       发表于 2022-10-24 17:25
+
+开始清算<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 36591#       发表于 2022-10-24 17:26
+
+有没有好哥哥有茶队和ana合影的那个图
+
+*****
+
+####  超法拉  
+##### 36592#       发表于 2022-10-24 17:26
+
+这楼里就有，建议楼友翻到死
+
+*****
+
+####  一品堂官  
+##### 36593#       发表于 2022-10-24 17:26
+
+ 本帖最后由 一品堂官 于 2022-10-24 17:27 编辑 
+
+酱油在中路打不过被游了这种情况下当香港警察，人走了又实现不了线优；
+抢圣水符，结果是两个人打不过别人中单 ，或者一个没抢到，当时互相发育的版本真的很少见。
+你说的帮忙大部分是前者，或者中路被对方酱油游了没及时tp，没救到。不提前蹲只能说这真的不算帮，或者说效果很差。这种情况才是大部分。
+所以我说没人帮没啥问题啊，有什么可怼的。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  沈经文  
+##### 36594#       发表于 2022-10-24 17:27
+
+又看了一遍老干瘪回家局，润德谜团两次拉火女一次拉飞机斯文其实还可以
+
+*****
+
+####  六娃  
+##### 36595#       发表于 2022-10-24 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079748&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-24 17:26</a>
+有没有好哥哥有茶队和ana合影的那个图</blockquote>
+批站搜索你的猛男好哥哥
+
+*****
+
+####  seki_m  
+##### 36596#       发表于 2022-10-24 17:27
+
+厨子的神就别请了吧
+
+*****
+
+####  百世诸侯  
+##### 36597#       发表于 2022-10-24 17:27
+
+o0
+
+*****
+
+####  yyf奇遇记  
+##### 36598#       发表于 2022-10-24 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079755&amp;ptid=2099454" target="_blank">超法拉 发表于 2022-10-24 17:26</a>
+这楼里就有，建议楼友翻到死</blockquote>
+不在这楼，我在major楼发的<img src="https://p.sda1.dev/7/5fb9745de46f25234f7e02b91b5fb04e/CMP_20221024172829085.jpeg" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 没钱买手办| + 1||
+
+查看全部评分
+
+*****
+
+####  超法拉  
+##### 36599#       发表于 2022-10-24 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079765&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 17:27</a>
+批站搜索你的猛男好哥哥</blockquote>
+我还真去搜了下，只有和脑东京的
+
+*****
+
+####  yyf奇遇记  
+##### 36600#       发表于 2022-10-24 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079756&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-24 17:26</a>
+酱油在中路打不过被游了这种情况下当香港警察，人走了又实现不了线优；
+抢圣水符，结果是两个人打不过别人 ...</blockquote>
+行了，打住吧，以后少给我乱扣帽子就行，莫名其妙被你扣了一个脑残黑子的帽子我也是纳闷了，我都没喷过曾焦阳
+
+我只专注输出掀背和emo，但凡其他人被喷了，如果不牵扯场外那么肯定不是我喷的
+
