@@ -8394,3 +8394,61 @@ Maybe演示TI8决赛水人打猴子到底好不好打？</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  尖刺外婆  
+##### 36925#       发表于 2022-10-25 00:22
+
+猴区理论上能排列组合出一套能打的
+1 23
+2 mikoto/nts
+3 jabz
+4 dj
+5 tims
+就是这队到关服也组不起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36926#       发表于 2022-10-25 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58085771&amp;ptid=2099454" target="_blank">尖刺外婆 发表于 2022-10-25 00:22</a>
+猴区理论上能排列组合出一套能打的
+1 23
+2 mikoto/nts</blockquote>
+看哪个马来亲王的儿子喜欢电竞吧
+云顶不是有马来的体育部长出席啥的
+反正也是产油国，偷我们的油
+
+*****
+
+####  逃离二次元  
+##### 36927#       发表于 2022-10-25 00:24
+
+妈的这么大的包只抢了3块钱
+
+*****
+
+####  非建政专用号  
+##### 36928#       发表于 2022-10-25 00:25
+
+无妨，哥们认知里的绝大部分银河战舰(包括但不限于dota，wow)不是暴毙就是成绩一般
+
+*****
+
+####  jk9hot  
+##### 36929#       发表于 2022-10-25 00:31
+
+皇家马德里点个赞
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  TI三冠王AME  
+##### 36930#       发表于 2022-10-25 00:32
+
+哦牛批，这首歌没听过
+
