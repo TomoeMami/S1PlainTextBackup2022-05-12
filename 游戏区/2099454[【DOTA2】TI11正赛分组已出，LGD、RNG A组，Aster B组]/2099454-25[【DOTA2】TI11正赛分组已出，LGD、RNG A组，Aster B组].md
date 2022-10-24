@@ -8857,3 +8857,57 @@ nga看到说fatihbian认识科比还要靠她女朋友？<img src="https://stati
 
 又一次感觉到了代沟，我读书时候，科比这咖位不是每个男生都知道的，哪怕上一代的乔丹也是人尽皆知啊
 
+
+
+*****
+
+####  thistimeforlife  
+##### 36972#       发表于 2022-10-25 07:42
+
+一场不赢平鳖鳖，赢一场平杜鹏儿，赢两场平银k
+赢三场……前面后面我都忘了，怀五夜坡就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  walfeds  
+##### 36973#       发表于 2022-10-25 07:43
+
+一觉起来又错过土豪哥的红包了，哭惹<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lyjssj  
+##### 36974#       发表于 2022-10-25 07:49
+
+赢三场的话，能不能在专楼捡满1000块红包<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恐怖利刃  
+##### 36975#       发表于 2022-10-25 07:50
+
+科比不烤焦炒作一波谁认识
+
+*****
+
+####  yyf奇遇记  
+##### 36976#       发表于 2022-10-25 07:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58086905&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-25 07:39</a>
+nga看到说fatihbian认识科比还要靠她女朋友？
+
+又一次感觉到了代沟，我读书时候，科比这咖位不是每 ...</blockquote>
+所以我一直在说，他没文化装有文化，没内涵装有内涵
+
+*****
+
+####  yyf奇遇记  
+##### 36977#       发表于 2022-10-25 07:51
+
+一场不赢平鳖鳖，赢一场平杜鹏儿，赢两场平银k
+赢三场……前面后面我都忘了，怀五夜坡就是了https
+

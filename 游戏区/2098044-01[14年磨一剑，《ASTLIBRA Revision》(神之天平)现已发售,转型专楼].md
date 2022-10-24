@@ -10400,3 +10400,12 @@ LS至少反白下吧</blockquote>
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  soranoguiji  
+##### 954#       发表于 2022-10-25 07:49
+
+这游戏还是要稍微看点攻略的，比如第四章没刷出几个武器的被动在水里打那太难受了
+

@@ -12956,3 +12956,18 @@ nagi的ins直播时间
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">现在已经对星的歌养胃了，偶尔会翻出一期的歌听听，二期就没动过，除非哪天官方宣布把二期切割从头重置大家的故事可能才会不带偏见去听歌吧
 
+
+
+*****
+
+####  lj205  
+##### 8671#       发表于 2022-10-25 07:48
+
+<img src="https://img.saraba1st.com/forum/202210/25/074806uglhdq7anfnb7dj4.png" referrerpolicy="no-referrer">
+
+<strong>3D42EF7B-7E83-480A-9B2F-E63AA832856E.png</strong> (374.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 07:48 上传
+
