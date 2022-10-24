@@ -5396,3 +5396,131 @@ o0
 
 我只专注输出掀背和emo，但凡其他人被喷了，如果不牵扯场外那么肯定不是我喷的
 
+
+
+*****
+
+####  ffggty  
+##### 36601#       发表于 2022-10-24 17:33
+
+ku狗退了？
+
+*****
+
+####  没钱买手办  
+##### 36602#       发表于 2022-10-24 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079765&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 17:27</a>
+
+批站搜索你的猛男好哥哥</blockquote>
+妈的搜了一下不是原就是永畜塔菲，这人不能处
+
+*****
+
+####  walfeds  
+##### 36603#       发表于 2022-10-24 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请神厨子可以，记得请ti8的
+
+*****
+
+####  憧憬鲨  
+##### 36604#       发表于 2022-10-24 17:35
+
+窝克真是高大威猛啊，一看就是没什么脑子的样子
+
+*****
+
+####  石狮鬼  
+##### 36605#       发表于 2022-10-24 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼鹏子的B博，怎么大中午的卡在电梯里了，难道是真没物资了要出去觅食了？
+
+*****
+
+####  六娃  
+##### 36606#       发表于 2022-10-24 17:36
+
+窝克真是高大威猛啊，一看就是没什么脑子的样子
+
+*****
+
+####  walfeds  
+##### 36607#       发表于 2022-10-24 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079855&amp;ptid=2099454" target="_blank">ffggty 发表于 2022-10-24 17:33</a>
+
+ku狗退了？</blockquote>
+没看到，但是xepher润了
+
+*****
+
+####  12481632  
+##### 36608#       发表于 2022-10-24 17:38
+
+窝克真是高大威猛啊，一看就是没什么脑子的样子
+
+*****
+
+####  adretyu67  
+##### 36609#       发表于 2022-10-24 17:39
+
+xepher老彩笔了，打了这么多年退了也正常
+
+*****
+
+####  nowaki  
+##### 36610#       发表于 2022-10-24 17:40
+
+Kuku Xepher        T1        ⇒        None
+
+两个菜逼都走了
+
+*****
+
+####  反方向的波  
+##### 36611#       发表于 2022-10-24 17:40
+
+窝克真是高大威猛啊，一看就是没什么脑子的样子
+
+领完红包开始清算蜗壳了
+
+*****
+
+####  izayoi39  
+##### 36612#       发表于 2022-10-24 17:41
+
+居然在鹏子的追番记录里看到了知名腐女番
+
+*****
+
+####  Litccc  
+##### 36613#       发表于 2022-10-24 17:41
+
+<img src="https://img.saraba1st.com/forum/202210/24/174052p8rx3bz3mysi3rgu.jpg" referrerpolicy="no-referrer">
+
+<strong>8xQ2q-fl71K1gT1kShs-dc.jpg</strong> (56.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 17:40 上传
+
+*****
+
+####  yyf奇遇记  
+##### 36614#       发表于 2022-10-24 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079979&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-24 17:41</a></blockquote>
+硬盘了
+
+*****
+
+####  yyf奇遇记  
+##### 36615#       发表于 2022-10-24 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58079965&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-24 17:40</a>
+Kuku Xepher        T1        ⇒        None
+
+两个菜逼都走了</blockquote>
+找raven锁死算球
+
