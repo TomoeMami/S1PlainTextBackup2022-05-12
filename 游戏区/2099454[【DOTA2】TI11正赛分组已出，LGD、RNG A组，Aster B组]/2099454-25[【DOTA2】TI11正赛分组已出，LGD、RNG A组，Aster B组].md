@@ -4184,3 +4184,88 @@ VG那几年最大的问题是找了张成俊当C。
 
 核中核消息，yapzor出院了，昨天还和gorgc连麦解说液体比赛，等一个yapzor含笑解说拳击手回家
 
+
+
+*****
+
+####  百世诸侯  
+##### 36477#       发表于 2022-10-24 16:14
+
+只有四个改键是容易出冰眼，多了的按不过来
+
+*****
+
+####  yyf奇遇记  
+##### 36478#       发表于 2022-10-24 16:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078399&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-24 16:10</a>
+别提了 曾焦阳去年ti状态不好被dy和pwy嫌弃被路人骂 今年初我说这事其实真不至于搞那么夸张 结果还被上个楼 ...</blockquote>
+你自己学集美刻舟求剑，用ti11赛季的曾焦阳去洗ti10的，别人还不能说了？
+
+*****
+
+####  樱冢名月  
+##### 36479#       发表于 2022-10-24 16:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大爹我觉得算是体面了吧
+
+*****
+
+####  tasuku  
+##### 36480#       发表于 2022-10-24 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078360&amp;ptid=2099454" target="_blank">guojiaoqi 发表于 2022-10-24 16:08</a>
+
+圈里混表面功夫还得做做吧，但是真要回去了我肯定直接开喷</blockquote>
+做他妈啊
+
+你看波高一代目卵不卵水厂的
+
+你看34卵不卵哥哥的
+
+自己没脾气就别怪人剧毒跳大，都是活该好吧。
+
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36481#       发表于 2022-10-24 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078219&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-24 15:59</a>
+盒中盒消息
+茶队根本没想到能进决赛周，物资没带够，现在四处找去新加坡的人帮忙带东西 ...</blockquote>
+踏马的，新加坡华人国家缺个毛啊，海南鸡饭吃到饱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 36482#       发表于 2022-10-24 16:19
+
+鸟水厂的都是缺钱的好吧
+
+hao就说过好几次，当年去水厂就三连冠了啊
+
+*****
+
+####  北欧王座  
+##### 36483#       发表于 2022-10-24 16:20
+
+处长tb都要先出个冰眼压压惊哈哈哈。莫言一打五送的时候就是因为tb没有bkb导致被xxs隔断，变身只能含泪在坡下see往前拱毫无办法最后打道回府。粘妈眼代言
+
+*****
+
+####  六娃  
+##### 36484#       发表于 2022-10-24 16:21
+
+变成法国队之前，水厂就是妥妥的二线俱乐部，也就霉鳖被绑了这么多年，有点资历地位的谁正眼瞧过水厂
+
+*****
+
+####  六娃  
+##### 36485#       发表于 2022-10-24 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078566&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-24 16:20</a>
+处长tb都要先出个冰眼压压惊哈哈哈。莫言一打五送的时候就是因为tb没有bkb导致被xxs隔断，变身只能含泪在坡 ...</blockquote>
+单刀极限法球转双刀冰眼，撒也不懂
+

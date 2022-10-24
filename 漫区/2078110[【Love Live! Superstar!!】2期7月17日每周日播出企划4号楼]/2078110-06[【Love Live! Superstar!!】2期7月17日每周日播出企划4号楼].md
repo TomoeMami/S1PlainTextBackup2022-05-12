@@ -12580,3 +12580,15 @@ LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月�
 
 我有一计可以让粉丝纯纯的享受差距的魅力，把大部分歌词都切成两半，一一对应各SOLO一半，多余的C位小百合扔出去给整个几句就差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 8639#       发表于 2022-10-24 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078413&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-24 16:11:26</a>
+我有一计可以让粉丝纯纯的享受差距的魅力，</blockquote>直接出solo专吧，想怎么比都行，还能赚钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
