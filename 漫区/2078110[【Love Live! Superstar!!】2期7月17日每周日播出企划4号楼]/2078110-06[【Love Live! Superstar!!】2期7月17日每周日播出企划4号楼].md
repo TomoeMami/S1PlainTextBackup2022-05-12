@@ -12837,3 +12837,14 @@ unya就是单推了才惦记到现在的吧？<img src="https://static.saraba1st
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  D麦林  
+##### 8661#       发表于 2022-10-24 20:49
+
+难道不是越单推越没法和解吗
+如果说转中之人单推那其实等于叫人退坑企划啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+那退坑确实解决一切问题 没什么不对的
+
