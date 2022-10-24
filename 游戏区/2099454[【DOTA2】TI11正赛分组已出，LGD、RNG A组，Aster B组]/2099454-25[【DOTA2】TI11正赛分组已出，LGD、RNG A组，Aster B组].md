@@ -6663,3 +6663,40 @@ iceice离开职业赛场也很久了，勤练一阵应该可以吧。而且又�
 
 那我可太喜欢看面八复出了，这集美不把他脑浆子都喷出来？比赛被爆杀回家还要被轮着喷，顶级享受了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  没钱买手办  
+##### 36737#       发表于 2022-10-24 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58082250&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-24 20:12</a>
+爆笑如雷啦，森哥直播复盘哥哥的冰眼SA第一波，打2300血小黑A了5下掉了五百血，输出还不如火猫无影拳，难怪 ...</blockquote>
+别尬黑，不比96高？
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adretyu67  
+##### 36738#       发表于 2022-10-24 20:29
+
+lgd回家了，差不多也该到例行的我给XXX选c时间了
+
+只不过以前泰迪在的时候给泰迪选c，泰迪走了现在是给仙贝选2345教练。
+
+从这个角度来说仙贝确实比泰迪牛鼻，泰迪顶多是c带不动他，仙贝全得换血<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王宇旻❤潘婕  
+##### 36739#       发表于 2022-10-24 20:30
+
+<img src="https://img.saraba1st.com/forum/202210/24/203046zc3hhn5mh3528fn0.png" referrerpolicy="no-referrer">
+
+<strong>-4588036fae115daf.png</strong> (92.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 20:30 上传
+
