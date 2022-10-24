@@ -6992,3 +6992,136 @@ nightfull跑路了，不会崩溃跑去给myboy打三吧</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  nowaki  
+##### 36770#       发表于 2022-10-24 21:14
+
+有一说一，mira以前是Cascade的
+
+黄潜那时候的4是so bad
+
+*****
+
+####  六娃  
+##### 36771#       发表于 2022-10-24 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083199&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-24 21:14</a>
+有一说一，mira以前是Cascade的
+
+黄潜那时候的4是so bad</blockquote>
+我知道啊，但是找mira来代替so bad就是因为人脉
+
+*****
+
+####  zhrs456  
+##### 36772#       发表于 2022-10-24 21:14
+
+那明年K1淘个吊3SEA随便进正赛啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  roxas.sora  
+##### 36773#       发表于 2022-10-24 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58082250&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-24 20:12</a>
+
+爆笑如雷啦，森哥直播复盘哥哥的冰眼SA第一波，打2300血小黑A了5下掉了五百血，输出还不如火猫无影拳，难怪 ...</blockquote>
+fy还是切片那个
+
+*****
+
+####  枯风瘦雪02  
+##### 36774#       发表于 2022-10-24 21:15
+
+ts那个成员架构，哪怕老东京不走，单换个mira也是有足够竞争力的，不过走了确实更能搏个上限
+
+*****
+
+####  nowaki  
+##### 36775#       发表于 2022-10-24 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083203&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 21:14</a>
+
+我知道啊，但是找mira来代替so bad就是因为人脉</blockquote>
+这个确实
+
+*****
+
+####  枯风瘦雪02  
+##### 36776#       发表于 2022-10-24 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083209&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-24 21:14</a>
+
+那明年K1淘个吊3SEA随便进正赛啊
+
+论坛助手,iPhone</blockquote>
+ana今年退步还是很明显的，他再保持一个赛季这种竞技状态的话离泯然众人也没那么遥远的距离了
+
+*****
+
+####  勤练带来力量  
+##### 36777#       发表于 2022-10-24 21:16
+
+这张图堪比96伤害水人了，二代盾的魔晶给处长一拿果然就不会打团了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/7/f130bba5f6e566fff8ccb16df7997e5f/2210bfefce1b9d166a61e8a0b6deb48f8e5464a7.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 36778#       发表于 2022-10-24 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083220&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-24 21:15</a>
+
+fy还是切片那个</blockquote>
+只可能是B站ti三冠王AME铁粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+FY本尊搞这活那也太跌份了
+
+*****
+
+####  adretyu67  
+##### 36779#       发表于 2022-10-24 21:18
+
+mira换save，脑东京换个潜力中其实还是有希望的。
+
+不过自己怎么调整那就另说。cis区很多这样临时组起来的线上队，到时候出不了成绩还是得解散
+
+*****
+
+####  nowaki  
+##### 36780#       发表于 2022-10-24 21:19
+
+脑东京一走，mira离被踢也不远了。以前团队打先手就是脑东京bkb上去开，脑东京一走就需要mira开团，他马上就会暴露彩笔本质
+
+
+
+*****
+
+####  adretyu67  
+##### 36781#       发表于 2022-10-24 21:20
+
+mira说4号位怎么玩是脑东京教他的，基本上脑东京一走新找的2，mira肯定没法适应他的节奏。
+
+*****
+
+####  没钱买手办  
+##### 36782#       发表于 2022-10-24 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083248&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-24 21:17</a>
+
+只可能是B站ti三冠王AME铁粉啊
+
+FY本尊搞这活那也太跌份了</blockquote>
+严谨一点，人家id是Ti三冠王ame铁粉
+
+*****
+
+####  哈曼的YY  
+##### 36783#       发表于 2022-10-24 21:20
+
+脑东京这是一踢四啦？
+
