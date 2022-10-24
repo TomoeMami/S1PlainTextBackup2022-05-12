@@ -12349,3 +12349,17 @@ SMA不舍的让她放下创作型歌手的卖点罢了
 
 —— 来自 HUAWEI HLK-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Piano-Forest  
+##### 8617#       发表于 2022-10-24 11:02
+
+【表紙初公開】
+
+LoveLive! Days ラブライブ！総合マガジンVol.33は、10月31日（月）発売です！
+
+表紙は『ラブライブ！スーパースター!!』第４弾、桜小路きな子が表紙に登場します
+<img src="https://p.sda1.dev/7/6e25b8544532e1c67f544eb7b9d1bfe3/20221024_110131.jpg" referrerpolicy="no-referrer">
+
