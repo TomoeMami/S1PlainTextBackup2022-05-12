@@ -6363,3 +6363,115 @@ xxs马尔斯虽然对线强度跟打团切入时机都不错，但是框放得�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁他妈和你这被2：0抬走的臭鱼烂虾打训练赛啊
 
+
+
+*****
+
+####  nightmare902015  
+##### 36708#       发表于 2022-10-24 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081665&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-24 19:31</a>
+世纪tm的大和解2.0，nga居然有不少人在问是不是真的</blockquote>
+我超，就不想想雪碧死前那个“我们和夺冠豪门训练，他们是。。。。”的遗言吗，这种训练真有人敢接。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seki_m  
+##### 36709#       发表于 2022-10-24 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">练点好的
+
+*****
+
+####  非建政专用号  
+##### 36710#       发表于 2022-10-24 19:33
+
+你可以不喜欢PSG.LGD，但请你看到PSG.LGD的时候深深鞠一躬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 36711#       发表于 2022-10-24 19:34
+
+深深鞠一躬
+
+*****
+
+####  IG.430  
+##### 36712#       发表于 2022-10-24 19:34
+
+骆非池说冰蛙是个在人堆里谁都会觉得他平平无奇的nerd形象<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  赤星ビスコ  
+##### 36713#       发表于 2022-10-24 19:34
+
+毒瘤冰女打野出大祭品如何？
+
+*****
+
+####  nowaki  
+##### 36714#       发表于 2022-10-24 19:34
+
+<blockquote>​明年是不是major想打出成绩的队伍铁nt？
+
+毕竟major没成绩还可能赌对ti版本，major成绩好一定会被抓着砍</blockquote><blockquote>TI10LGD被砍掉了独门绝技大哥斧王，而且是直接砍没了，望周知</blockquote>论lgd输了之后对国内舆论的影响
+
+1赛制不行，胜者组败了就是优势不够，败者组败了就是劣势太大，拿了major冠军败了就是v社针对，没拿major冠军败了就是藏战术的og司马
+
+2今年打败lgd的队伍开始不基德，黑点逐渐增多，而之前的对手（最好成绩比lgd差）开始逐渐可敬起来
+
+3lgd赢比赛时，现队友远远强于前队友，三年前没有莲花推推，三年后狼人牙通牙。lgd输比赛后，现队友远远不如前队友，张润德 猴子莫言坑我哥哥，超哥 jiayou a chunyu感天动地。
+
+*****
+
+####  adretyu67  
+##### 36715#       发表于 2022-10-24 19:35
+
+啥时候来XXX打得好，我支持XXX还不行吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 36716#       发表于 2022-10-24 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081665&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-24 19:31</a>
+世纪tm的大和解2.0，nga居然有不少人在问是不是真的</blockquote>
+不如花点钱请南美小哥多住两天吃香喝辣然后激情对练好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真练点好的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tasuku  
+##### 36717#       发表于 2022-10-24 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081083&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-24 18:53</a>
+
+马桶哥的id在职业圈里应该算是独一档的存在吧
+
+想象一下一起去见女王</blockquote>
+撸狗代言人长鸡鸡比马桶早了十年吧
+
+*****
+
+####  jk9hot  
+##### 36718#       发表于 2022-10-24 19:40
+
+真想练就跟ta练，就练手活
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zyw0  
+##### 36719#       发表于 2022-10-24 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080732&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 18:31</a>
+
+原来马桶也是暴白啊
+
+Liquid战队的教练Blitz近日在他的个人推特中评论了Liquid和TA的比赛。</blockquote>
+什么北欧毛毛鸭
+
