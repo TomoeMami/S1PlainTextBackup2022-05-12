@@ -2754,3 +2754,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 活动期间刷狗粮，YLS脑子有问题。
 
+
+
+*****
+
+####  kiralzb  
+##### 3241#       发表于 2022-10-25 00:38
+
+突然想氪点金抽抽卡，发现淘宝的礼品卡都无了，什么时候开始的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -8452,3 +8452,79 @@ Maybe演示TI8决赛水人打猴子到底好不好打？</blockquote>
 
 哦牛批，这首歌没听过
 
+
+
+*****
+
+####  哈曼的YY  
+##### 36931#       发表于 2022-10-25 00:35
+
+我上次那个666包自己抢了1块钱<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+等下100也是这么大？你们平时到底发多少的？我都没抢过你们发的
+
+*****
+
+####  哈曼的YY  
+##### 36932#       发表于 2022-10-25 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58085871&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-25 00:32</a>
+
+哦牛批，这首歌没听过</blockquote>
+求佛 感觉是非常被低估的一首好吧
+
+*****
+
+####  Kazepollar  
+##### 36933#       发表于 2022-10-25 00:37
+
+感觉五天时间过去，集美应该能完成把茶和鳖绑定，然后坚决不支持茶队的主张<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 36934#       发表于 2022-10-25 00:39
+
+狗头人的那首《求佛》吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+仙贝今年整活不够大力导致他的退场也变得索然无味，哪怕是已经天赋逐渐淡去的ti10，也仍然贡献了1v3冲脸抠野，水人反向波第二季，血包小小等冥场面<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+ti11就是平平无奇的刷了送，堆最肉的装，挨最狠的打。可能也是逐渐意识到自己只配挨打了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 36935#       发表于 2022-10-25 00:39
+
+打了一晚上P5R哥们快晕倒了，畅想了一下处长的心之迷宫，大概率是一个鳖壳要塞
+
+*****
+
+####  masterffzhou  
+##### 36936#       发表于 2022-10-25 00:41
+
+狗头人在泥潭有号吗
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adretyu67  
+##### 36937#       发表于 2022-10-25 00:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57890819&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-13 15:38</a>
+
+理性预计，rng前8，茶队前6，水厂前4.
+
+理想结局是茶队败者组送走水厂挺进前4</blockquote>
+突然发现自己预言到了剧本<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+只能说一切都已经安排好了
+
+*****
+
+####  windhawind2  
+##### 36938#       发表于 2022-10-25 00:42
+
+卡憋已经出现在41yyRpg聚会了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">听声音感觉身体还好
+
