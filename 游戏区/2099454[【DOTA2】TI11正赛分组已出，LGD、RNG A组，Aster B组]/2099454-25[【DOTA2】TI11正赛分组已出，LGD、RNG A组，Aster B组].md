@@ -6287,3 +6287,79 @@ DOTA2 Ti11 百变Ams 妆容鉴赏 bgm剪辑版放心看！
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 36700#       发表于 2022-10-24 19:26
+
+娟真的穿什么都土，建议下次不穿
+
+*****
+
+####  星野航  
+##### 36701#       发表于 2022-10-24 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080500&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 19:16</a></blockquote>
+就是放假放多了
+
+这lcq都差4，5天就打了，这帮毛子才去马来基地
+
+其实真视界放出来那会儿就应该去集合了，属实是一个major冠军直接顶住了
+
+消极不满更正常了，vlog一览无遗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，脑东京跟miposhka感觉能当场掐起来肉搏 
+
+*****
+
+####  seki_m  
+##### 36702#       发表于 2022-10-24 19:29
+
+看了下英文流的几波highlight，虽然是中国队内战没那么激情但起码能做到一碗水端平：
+
+sdn：这波团输了但火猫打得很好……这波主要sa没有bkb没有操作空间
+
+英文：哇这波茶站位真完美要翻了，xxs这车真的吊，another amazing rolling from xxs
+
+*****
+
+####  火鸡味锅巴  
+##### 36703#       发表于 2022-10-24 19:30
+
+<blockquote>nightmare902015 发表于 2022-10-24 19:21
+首先排除某个ti一把都没上的力量型英雄。</blockquote>
+还有知名地堡
+
+*****
+
+####  yyf奇遇记  
+##### 36704#       发表于 2022-10-24 19:31
+
+还好昨天gohome了
+
+<img src="https://p.sda1.dev/7/2b7b27356e4b98faf3dd1e34e83357f3/CMP_20221024193100037.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 36705#       发表于 2022-10-24 19:31
+
+<img src="https://p.sda1.dev/7/fd4892857718f98d7e1b4d6d9ee3a455/1666611012259.jpg" referrerpolicy="no-referrer">
+
+世纪tm的大和解2.0，nga居然有不少人在问是不是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 36706#       发表于 2022-10-24 19:31
+
+xxs马尔斯虽然对线强度跟打团切入时机都不错，但是框放得远不如collapse
+上路野区团，第一波换collapse可以跳框小小TB船长三个，最后压TB的BKB结束时间应该也能框住
+
+*****
+
+####  没钱买手办  
+##### 36707#       发表于 2022-10-24 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谁他妈和你这被2：0抬走的臭鱼烂虾打训练赛啊
+
