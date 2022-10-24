@@ -8684,3 +8684,37 @@ ti11就是平平无奇的刷了送，堆最肉的装，挨最狠的打。可能�
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  恐怖利刃  
+##### 36955#       发表于 2022-10-25 01:25
+
+之前超哥阳了你楼也说不喷的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 36956#       发表于 2022-10-25 01:28
+
+窝真没喷，但刚输比赛那会儿真有几个疯批像是破防毒狗，骂得比骂A畜还狠
+
+*****
+
+####  adretyu67  
+##### 36957#       发表于 2022-10-25 01:28
+
+我一直都黑他泰迪啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  scg2017  
+##### 36958#       发表于 2022-10-25 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58086251&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-25 01:25</a>
+之前超哥阳了你楼也说不喷的</blockquote>
+也没怎么喷。不过一转眼又和a畜眉来眼去的，只能祝锁死了
+
+—— 来自 Xiaomi Redmi K30 5G Speed, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
