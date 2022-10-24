@@ -6115,3 +6115,28 @@ serral jerax topson三个冠军都被芬兰女王接见就剩他一个 ...</bloc
 
 樱花兄弟也打了7年多吧，ti6就和430在一起打预选了，再加上之前dks的经历，这两不算年龄的话也都是老比登了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  石狮鬼  
+##### 36683#       发表于 2022-10-24 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080890&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-24 18:42</a>
+
+名字卜基德是这样的
+
+芬兰全国人民也不想在电视上看到首相接待了“matubaman”吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">所以一群人从TI7开始整天说马桶憨厚老实人我就想笑，这个比从名字里就透出4chan老巨魔的气息跟老好人基本可以说是背道而驰了
+
+*****
+
+####  夏溪澪mio  
+##### 36684#       发表于 2022-10-24 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078363&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 16:08</a>
+王八去年没能搞出一套既能四保一体现出割割地位又能赢比赛的阵容已经是负罪之身，今年他选阵容确实有点故意 ...</blockquote>
+看出来下面八是想搞鞭酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩了那么多把谜团死灵龙都看不出来他这版本玩不来，前两把酒仙斧王多吊
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
