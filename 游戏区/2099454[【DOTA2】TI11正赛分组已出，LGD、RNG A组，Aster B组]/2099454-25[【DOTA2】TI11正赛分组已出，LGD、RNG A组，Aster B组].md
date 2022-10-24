@@ -6199,3 +6199,91 @@ mc和马桶的id组合确实独一档XD
 Liquid战队的教练Blitz近日在他的个人推特中评论了Liquid和TA的比赛。</blockquote>
 搞了半天是mmy2.0<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jy000129  
+##### 36691#       发表于 2022-10-24 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081051&amp;ptid=2099454" target="_blank">夏溪澪mio 发表于 2022-10-24 18:52</a>
+看出来下面八是想搞鞭酱玩了那么多把谜团死灵龙都看不出来他这版本玩不来，前两把酒仙斧王多吊
+
+ ...</blockquote>
+下面八就是没水平了，但凡还有点水平不至于去拉ROTK这个老混子来当教练
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lyjssj  
+##### 36692#       发表于 2022-10-24 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080820&amp;ptid=2099454" target="_blank">Cookiekira 发表于 2022-10-24 18:36</a>
+
+麻了 看到这个我有些破防了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那时候翅膀队完美符合国内那种小镇学霸的印象。
+
+刚组队打出点名堂没多久，5个小弟弟顶着5个学生头发型，拿着自己打出来的资格，别墅杯跑到白皮老家，一路杀到决赛把notail和OG干了个大比兜，可他妈太酷了
+
+相比现在的明鞭，哪怕理了个文青头娶了个高华老婆也不过是俗人一个，东施效颦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 36693#       发表于 2022-10-24 19:14
+
+[https://www.bilibili.com/video/BV1hm4y1w7i2](https://www.bilibili.com/video/BV1hm4y1w7i2)
+
+DOTA2 Ti11 百变Ams 妆容鉴赏 bgm剪辑版放心看！
+
+*****
+
+####  nowaki  
+##### 36694#       发表于 2022-10-24 19:16
+
+娟真的穿什么都土，建议下次不穿
+
+*****
+
+####  攻心为上木之本  
+##### 36695#       发表于 2022-10-24 19:16
+
+突然有点好奇有哪些公众人物在这栋楼有不实名的特权，是不是只有版主（dota2主播）一个人？其他皮套人比如a÷前对象和asoul那几个的真名和照片楼里也是出现过的。
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 36696#       发表于 2022-10-24 19:16
+
+金木水火娟
+
+*****
+
+####  Litccc  
+##### 36697#       发表于 2022-10-24 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081417&amp;ptid=2099454" target="_blank">攻心为上木之本 发表于 2022-10-24 19:16</a>
+突然有点好奇有哪些公众人物在这栋楼有不实名的特权，是不是只有版主（dota2主播）一个人？其他皮套人比如a ...</blockquote>
+冰蛙<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 36698#       发表于 2022-10-24 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081417&amp;ptid=2099454" target="_blank">攻心为上木之本 发表于 2022-10-24 19:16</a>
+突然有点好奇有哪些公众人物在这栋楼有不实名的特权，是不是只有版主（dota2主播）一个人？其他皮套人比如a ...</blockquote>
+首先排除某个ti一把都没上的力量型英雄。
+
+*****
+
+####  walfeds  
+##### 36699#       发表于 2022-10-24 19:22
+
+娟真的穿什么都土，建议下次不穿
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
