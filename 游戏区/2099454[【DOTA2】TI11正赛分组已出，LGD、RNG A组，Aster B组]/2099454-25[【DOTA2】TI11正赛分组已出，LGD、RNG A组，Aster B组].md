@@ -7918,3 +7918,61 @@ BB这个队正式比赛动不动打出巨大优势后被人绝境翻盘，训练
 
 达吉斯坦艹艹可不是什么善茬，达吉斯坦巴掌大的地方几十个民族，可以说达吉斯坦艹艹天生就是情商达人
 
+
+
+*****
+
+####  你可以试试  
+##### 36872#       发表于 2022-10-24 22:43
+
+秘密2-0干鳖，我支持秘密
+
+*****
+
+####  yyf奇遇记  
+##### 36873#       发表于 2022-10-24 22:43
+
+这种福利姬为什么老喜欢往电竞话题上面蹭？翻了一下这位去年的推特连ti是个啥都不知道<img src="https://p.sda1.dev/7/c2d8ff43e01e426c36a8e69e0ee9e159/CMP_20221024224249265.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 36874#       发表于 2022-10-24 22:44
+
+盲猜一个最后一天队里爆典素材太多，剪不过来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 36875#       发表于 2022-10-24 22:45
+
+福利姬吃爱国饭不寒碜啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 36876#       发表于 2022-10-24 22:45
+
+escorenews的消息我先信三分好吧，去年mi酱当og队长的消息就这里首发的
+
+*****
+
+####  yyf奇遇记  
+##### 36877#       发表于 2022-10-24 22:48
+
+秘密推特下面看到的
+
+<img src="https://p.sda1.dev/7/038d4c2dc9d0df23f4116b9d4f957a4b/CMP_20221024224810451.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  zhrs456  
+##### 36878#       发表于 2022-10-24 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58083770&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-24 21:51</a>
+
+这b不就是东南雅皮鞋？死皮赖脸地混着呗，实在不行和皮鞋一样转五也行
+
+—— 来自 Xiaomi 22041216C, And ...</blockquote>
+皮鞋再赖皮混那也是会打DOTA的选手 手活烂了而已 司马KU打个DOTA跟个植物人一样打5也是Burden
+

@@ -12936,3 +12936,14 @@ nagi的ins直播时间
 
 2022-10-24 22:27 上传
 
+
+
+*****
+
+####  D麦林  
+##### 8669#       发表于 2022-10-24 22:45
+
+<img src="https://p.sda1.dev/7/919382cf2f082b10e714b9bbaf5f10e3/Screenshot_2022-10-24-22-40-04-608-edit_com.twitter.android.jpg" referrerpolicy="no-referrer">
+虽然这主要是在说二次元部分 希望三次元部分别变成这样
+过于辛辣的评价 但也没什么不对
+
