@@ -8008,3 +8008,14 @@ ana今年退步还是很明显的，他再保持一个赛季这种竞技状态�
 那个是混在北美队里打外卡的秘鲁人alone，04年的，可以去踢了克神</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我还以为是东南亚的，我的我的
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 36882#       发表于 2022-10-24 23:08
+
+<img src="https://p.sda1.dev/7/a813df87d6eda4a3bd206950718d94ff/CMP_20221024230744028.jpg" referrerpolicy="no-referrer">
+
+来张你克美照
+
