@@ -6186,3 +6186,16 @@ mc和马桶的id组合确实独一档XD
 
 鹏子你改悔罢那个帖子有没有人收藏了的
 
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 36690#       发表于 2022-10-24 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58080732&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-24 18:31</a>
+原来马桶也是暴白啊
+
+Liquid战队的教练Blitz近日在他的个人推特中评论了Liquid和TA的比赛。</blockquote>
+搞了半天是mmy2.0<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
