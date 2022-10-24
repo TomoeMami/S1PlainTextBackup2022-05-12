@@ -10166,3 +10166,25 @@ LS至少反白下吧</blockquote>
 
 东京的元件宝石在哪？宝物书里面就这个找不到。
 
+
+
+*****
+
+####  黒長直姫  
+##### 932#       发表于 2022-10-24 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078460&amp;ptid=2098044" target="_blank">首领 发表于 2022-10-24 16:13</a>
+
+东京的元件宝石在哪？宝物书里面就这个找不到。</blockquote>
+右侧研究所下层岩浆区电脑房的岩浆上
+
+*****
+
+####  九门惠  
+##### 933#       发表于 2022-10-24 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078460&amp;ptid=2098044" target="_blank">首领 发表于 2022-10-24 16:13</a>
+
+东京的元件宝石在哪？宝物书里面就这个找不到。</blockquote>
+研究所岩浆区域的终端左边
+

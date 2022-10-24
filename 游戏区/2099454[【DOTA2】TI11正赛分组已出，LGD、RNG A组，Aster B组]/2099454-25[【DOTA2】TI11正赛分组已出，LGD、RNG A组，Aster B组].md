@@ -4269,3 +4269,202 @@ hao就说过好几次，当年去水厂就三连冠了啊
 处长tb都要先出个冰眼压压惊哈哈哈。莫言一打五送的时候就是因为tb没有bkb导致被xxs隔断，变身只能含泪在坡 ...</blockquote>
 单刀极限法球转双刀冰眼，撒也不懂
 
+
+
+*****
+
+####  walfeds  
+##### 36486#       发表于 2022-10-24 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078436&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-24 16:12</a>
+
+核中核消息，yapzor出院了，昨天还和gorgc连麦解说液体比赛，等一个yapzor含笑解说拳击手回家 ...</blockquote>
+好好好，可以看下一个受害者来转移痛苦了
+
+*****
+
+####  星野航  
+##### 36487#       发表于 2022-10-24 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078316&amp;ptid=2099454" target="_blank">ck4pa 发表于 2022-10-24 17:05</a>
+
+骄阳的队友运也不算差吧，18年左右的yang和张成俊实力都不弱啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说皮鞋那两年打得还行这没问题
+
+成俊，19年成俊尿了多少回了，他唯一一次全程c下来的赛事是ti9之后的那个李家坡，但那届vg能赢，最大功臣其实是院士。因为刚好是版本初期院士摸透了，把fly都打得要写轮眼了
+
+自那之后，院士，皮鞋，油神那就一路下行进入小象赛道了
+
+*****
+
+####  Avantasi  
+##### 36488#       发表于 2022-10-24 16:23
+
+鸭脖子跟拳击手有矛盾吗，他不是生病不打了吗
+
+*****
+
+####  银翼的维罗西  
+##### 36489#       发表于 2022-10-24 16:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078566&amp;ptid=2099454" target="_blank">北欧王座 发表于 2022-10-24 16:20</a>
+
+处长tb都要先出个冰眼压压惊哈哈哈。莫言一打五送的时候就是因为tb没有bkb导致被xxs隔断，变身只能含泪在坡 ...</blockquote>
+那波是真的搞笑，我看哥哥直接裸冰眼还以为哥哥这把只要A塔就赢了呢，只能说以前确实2345早就杀穿了，哥哥裸个冰眼也能当个拆塔机器人，路径依赖了
+
+*****
+
+####  roxas.sora  
+##### 36490#       发表于 2022-10-24 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078596&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-24 16:22</a>
+
+好好好，可以看下一个受害者来转移痛苦了</blockquote>
+万一看到秘密夺冠会不会当场玉玉
+
+*****
+
+####  天堂蜘蛛  
+##### 36491#       发表于 2022-10-24 16:24
+
+水厂这种能给霉鳖选C的还算二线俱乐部么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 36492#       发表于 2022-10-24 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078611&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-24 16:23</a>
+
+鸭脖子跟拳击手有矛盾吗，他不是生病不打了吗</blockquote>
+跟这么多年应该是没什么矛盾的，只不过替鸭脖子被拳击手吸这么多年血到吸干卜值
+
+*****
+
+####  银翼的维罗西  
+##### 36493#       发表于 2022-10-24 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078607&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-24 16:23</a>
+
+你说皮鞋那两年打得还行这没问题
+
+成俊，19年成俊尿了多少回了，他唯一一次全程c下来的赛事是ti9之 ...</blockquote>
+赞同，俺们老VKU应该都是认同白帆的能力的，毕竟老VG几个人什么上限都看在眼里，真是ROTK让他们发挥了上限，反正我是觉得TI10周期是白院士带队2345能夺冠，那年猴子和量子鞭太屌了，关键要会用
+
+*****
+
+####  walfeds  
+##### 36494#       发表于 2022-10-24 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078623&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-24 16:24</a>
+
+万一看到秘密夺冠会不会当场玉玉</blockquote>
+我不信秘密能夺冠的好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 36495#       发表于 2022-10-24 16:26
+
+昨天那个散失冰眼的sa确实搞笑，皮球玩个毒狗看见处长b上来一刀只扣了不到1/7血应该笑嘻了吧
+
+*****
+
+####  六娃  
+##### 36496#       发表于 2022-10-24 16:26
+
+<img src="https://img.saraba1st.com/forum/202210/24/162637iubv8odv29dvanwy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (122.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-24 16:26 上传
+
+*****
+
+####  jk9hot  
+##### 36497#       发表于 2022-10-24 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58077016&amp;ptid=2099454" target="_blank">hyde_caesar 发表于 2022-10-24 14:39</a>
+骄阳今年打完去考公也挺好的吧, 毕竟刀不能打一辈子的, 而且他说实话整个人气息还是挺老干部的, 和樱花双雄 ...</blockquote>
+直播收益每个月写收入证明写到哭
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yyf奇遇记  
+##### 36498#       发表于 2022-10-24 16:27
+
+鸭脖子真的没被吸血好吧，秘密被吸血的都是三号位
+
+*****
+
+####  星野航  
+##### 36499#       发表于 2022-10-24 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078637&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-24 17:25</a>
+
+跟这么多年应该是没什么矛盾的，只不过替鸭脖子被拳击手吸这么多年血到吸干卜值 ...</blockquote>
+那我觉得这俩瘤子谁也别怨谁，直接去给他俩吸干的瑞典zai妹跟前跪着请罪就完了
+
+要不是zai这天赋，阿拳能放任yapzor打得这么舒坦？  
+
+*****
+
+####  nowaki  
+##### 36500#       发表于 2022-10-24 16:29
+
+哥们老sa了，这种懦夫救星就得a杖大炮无限让对面减员好吧，sa切入已经是有手就行了，处长还能玩得这么逆天，只能说回家不冤
+
+*****
+
+####  Asukalangley33  
+##### 36501#       发表于 2022-10-24 16:29
+
+水厂不想留马来爹的话，马来爹被MUSHI一传销就走了啊
+
+到时候被处刑不是很尴尬
+
+*****
+
+####  yyf奇遇记  
+##### 36502#       发表于 2022-10-24 16:30
+
+那盘我看到sa爆了个智灭，我都感觉茶队要没了，只能说相信掀背
+
+*****
+
+####  VT1996  
+##### 36503#       发表于 2022-10-24 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078522&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-24 16:17</a>
+
+大爹我觉得算是体面了吧</blockquote>
+即便是notail，也避免不了职业生涯最后一场比赛被人嘲讽ezgame
+
+*****
+
+####  六娃  
+##### 36504#       发表于 2022-10-24 16:31
+
+感觉不如葑茖体面
+
+*****
+
+####  c88711611  
+##### 36505#       发表于 2022-10-24 16:31
+
+处长不会把sa当老sa玩了吧，不出大炮出冰眼的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 36506#       发表于 2022-10-24 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078751&amp;ptid=2099454" target="_blank">VT1996 发表于 2022-10-24 16:31</a>
+
+即便是notail，也避免不了职业生涯最后一场比赛被人嘲讽ezgame</blockquote>
+脑东京那句话一说是嘲讽ceb。不过打都打出来了，肯定是嘲讽og了。
+
