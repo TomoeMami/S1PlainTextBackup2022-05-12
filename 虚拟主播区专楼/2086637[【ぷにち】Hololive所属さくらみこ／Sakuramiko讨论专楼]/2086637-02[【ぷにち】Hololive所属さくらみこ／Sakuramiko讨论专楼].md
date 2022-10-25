@@ -10901,3 +10901,14 @@ S1抽风的时候也能备用
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 2540#         楼主| 发表于 2022-10-25 19:40
+
+去年前年的都没看过吗？那建议有时间补习一下
+
+去年EN是全员参加的仅此一届
+

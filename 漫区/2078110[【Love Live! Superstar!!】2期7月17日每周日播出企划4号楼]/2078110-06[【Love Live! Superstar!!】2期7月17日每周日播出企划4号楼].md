@@ -13346,3 +13346,24 @@ solo ed都没有，又没个人回，什么2期？不知道
 
 装作自己努力过了不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">还割裂就不关橙猫猫的事了捏
 
+
+
+*****
+
+####  ViyViy  
+##### 8710#       发表于 2022-10-25 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58097445&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-25 19:34</a>
+
+你没看到上面坛友发的话吗？按头继续夸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">佛了，它感想它*呢，建议让花田京极自己出来嘴硬
+
+*****
+
+####  Kfly  
+##### 8711#       发表于 2022-10-25 19:47
+
+大实话肯定是没法说出来的。
+
+我是希望动画相关能快速过掉，想找补有本事自己出面啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
