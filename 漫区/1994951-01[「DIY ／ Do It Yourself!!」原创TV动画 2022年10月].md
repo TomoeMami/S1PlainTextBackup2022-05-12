@@ -2808,3 +2808,36 @@ job子奶声奶气的好可爱<img src="https://static.saraba1st.com/image/smile
 <img src="https://p.sda1.dev/7/61d6633486e1ca0b9cca50322cf24e59/CMP_20221024002429642.jpg" referrerpolicy="no-referrer">
 想起这个……
 
+
+
+*****
+
+####  Piano-Forest  
+##### 227#         楼主| 发表于 2022-10-25 17:00
+
+【すてっぷ④】ＤＩＹって、どこでも・いごこち・よくなるよ
+
+帰宅したぷりんは、せるふの部屋にジョブ子がいるのを見る。
+
+ぷりんは気が気でなく、せるふの家に行き、ジョブ子を紹介される。
+
+天才少女ジョブ子に興味を持つぷりん。
+
+ジョブ子とぷりんは、最先端の工学話で盛り上がる。
+
+次の朝、ぷりんが自分の部屋で目覚めると、ジョブ子が部屋にいた。
+
+ジョブ子は勝手にセキュリティを解除してぷりんの家にあがりこんでいた。
+
+なんと、今日からぷりんの家に住むのだといい。
+
+ジョブ子は、勝手に屋根裏部屋をＤＩＹで居心地のよい空間に変えようとし、ぷりんもその作業を手伝うはめになるが……。
+
+脚本：筆安一幸
+
+絵コンテ・演出・作画監督：米森雄紀
+<img src="https://p.sda1.dev/8/a8db223c8c0ed6d5310eff3ae20e87f5/20221025_165917.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/c428729023c4a453e2090fed7760f080/20221025_165920.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/f5fd66b31fb5f8f253c525b7c737dd2d/20221025_165923.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0d53fd8e81176ecacbbd3a14050cbaa6/20221025_165925.jpg" referrerpolicy="no-referrer">
+

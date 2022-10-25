@@ -13484,3 +13484,27 @@ jdh后来转5了，ehome为了把wings双雄拉来把他vote了，本来ehome那
 
 71瞎逼乱搞把脑11跟成智障vote了
 
+
+
+*****
+
+####  六娃  
+##### 37480#       发表于 2022-10-25 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094667&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 16:51</a>
+
+jdh后来转5了，ehome为了把wings双雄拉来把他vote了，本来ehome那时候的班底应该是脑11+成智障+jdh的 
+
+7 ...</blockquote>
+脑11不是3月份去老干鳖救火的吗，西北汉子确实在那个ehome赖了很久才被邪恶35踢掉
+
+*****
+
+####  yyf奇遇记  
+##### 37481#       发表于 2022-10-25 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094790&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-25 16:58</a>
+
+脑11不是3月份去老干鳖救火的吗，西北汉子确实在那个ehome赖了很久才被邪恶35踢掉 ...</blockquote>
+你记错了吧这两人16年年末赛垃圾狼人杀事件之后就被71转为替补了，比赛是sen和jdh还是谁代打，后来爆出来 还引发一场关于ehome菠菜的事
+
