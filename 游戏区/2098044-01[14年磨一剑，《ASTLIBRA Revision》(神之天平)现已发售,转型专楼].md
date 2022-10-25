@@ -10469,3 +10469,17 @@ LS至少反白下吧</blockquote>
 法杖有用吗，每个法杖的施法方向好像都是固定的，打到 ...</blockquote>
 不固定的 后面的法杖都有自己的弹道 到新章可以变异被动了以后敲人还能变疼
 
+
+
+*****
+
+####  llysander  
+##### 960#       发表于 2022-10-25 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58017144&amp;ptid=2098044" target="_blank">有点追求 发表于 2022-10-21 02:29</a>
+
+第三关这BOSS设计的太傻了，死了5次才知道它这用飞行道具的时候可以近身打。。
+
+还有既然不给存档点，起码你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
