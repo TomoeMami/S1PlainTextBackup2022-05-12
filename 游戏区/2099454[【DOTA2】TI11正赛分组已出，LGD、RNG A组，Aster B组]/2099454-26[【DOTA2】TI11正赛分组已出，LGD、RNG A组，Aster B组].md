@@ -427,3 +427,178 @@ ponlo哥这么实诚不给人留面子以后道上难混啊。不过自己也说
 你这串名单报出来现在看也太吓人了</blockquote>
 下面三熊弟战术都几年了，干瘪就是这么个奇葩的队伍
 
+
+
+*****
+
+####  zhrs456  
+##### 37551#       发表于 2022-10-25 17:42
+
+但我记得除了弱智鳖粉脑补关系好外 VG的人不是和老鳖没打多久吗 徐林森后面直接主动版88BURDEN了
+
+*****
+
+####  反方向的波  
+##### 37552#       发表于 2022-10-25 17:42
+
+一想到当年面八和日天这种手活去打中了就想笑，果不其然ti3直接被bulba这种彩笔干了
+
+*****
+
+####  zsu222  
+##### 37553#       发表于 2022-10-25 17:44
+
+赛垃圾我觉得最可惜的是ti3 打A队那把。
+
+*****
+
+####  yyf奇遇记  
+##### 37554#       发表于 2022-10-25 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095663&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-25 17:42</a>
+
+但我记得除了弱智鳖粉脑补关系好外 VG的人不是和老鳖没打多久吗 徐林森后面直接主动版88BURDEN了 ...</blockquote>
+后面徐林森拉着vgr的yang 和lgd不要的ddc  替补徐志雷的妖精弄了个vgr  中单叫nono还是啥忘了，反正家里有事
+
+*****
+
+####  bluebaby  
+##### 37555#       发表于 2022-10-25 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fy当年天天被喊太子凭空多个爹你就说能不能忍吧
+
+*****
+
+####  Litccc  
+##### 37556#       发表于 2022-10-25 17:45
+
+“谁是谁爹还不一定呢”
+
+*****
+
+####  adretyu67  
+##### 37557#       发表于 2022-10-25 17:45
+
+谁当谁爹还不好说呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+徐林森如是说
+
+*****
+
+####  zhrs456  
+##### 37558#       发表于 2022-10-25 17:45
+
+塞拉打TI2你让他1踢dream4兄弟是不可能的啊 毕竟纯兄弟DOTA 也没什么办法 
+
+*****
+
+####  六娃  
+##### 37559#       发表于 2022-10-25 17:46
+
+森哥的玉玉症就是16年在vg跟徐老鳖一起得的
+
+*****
+
+####  jk9hot  
+##### 37560#       发表于 2022-10-25 17:47
+
+塞拉也是因为前半生兄弟dota让它后面故事特别多的时候圈子也有人撑他
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 37561#       发表于 2022-10-25 17:47
+
+哪个vg那时候国内也属于是小无敌的状况，直到法兰克福major被ehome破心魔之后就一蹶不振了
+
+*****
+
+####  nowaki  
+##### 37562#       发表于 2022-10-25 17:48
+
+很多集美因为处长两个亚军就看不起赛垃圾，哥们说一句赛垃圾是真的配得上一句冠超的。
+
+而处长带cdec原不算4个burden的阵容在国内遨游，maybe换个鹿乃就游不出预选，真的不配冠字辈。
+
+*****
+
+####  zsu222  
+##### 37563#       发表于 2022-10-25 17:48
+
+ 本帖最后由 zsu222 于 2022-10-25 17:49 编辑 
+
+法兰克福major最后那个一号位doom实在是太搞了
+
+*****
+
+####  百世诸侯  
+##### 37564#       发表于 2022-10-25 17:48
+
+<img src="https://img.saraba1st.com/forum/202210/25/174844z57a5k2c7ds57iz7.jpg" referrerpolicy="no-referrer">
+
+<strong>-638601bbfa32dd6e.jpg</strong> (87.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-25 17:48 上传
+
+*****
+
+####  zhrs456  
+##### 37565#       发表于 2022-10-25 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095708&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 17:44</a>
+
+后面徐林森拉着vgr的yang 和lgd不要的ddc  替补徐志雷的妖精弄了个vgr  中单叫nono还是啥忘了，反正家里 ...</blockquote>
+NONO我记得也是个紧张哥 表现差到能被Mikasa这种老彩笔抢中去打线下 这两年就鳖茶的白学家有他那味道了
+
+*****
+
+####  roxas.sora  
+##### 37566#       发表于 2022-10-25 17:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">理论上赛垃圾遇到最好的中单就是may皇了吧，包子是真打不过mu
+
+*****
+
+####  nowaki  
+##### 37567#       发表于 2022-10-25 17:49
+
+nono最有名的还是家里有事
+
+*****
+
+####  jk9hot  
+##### 37568#       发表于 2022-10-25 17:49
+
+让处长去带谢彬包子下面八盖狗去打ti
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yyf奇遇记  
+##### 37569#       发表于 2022-10-25 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095799&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-25 17:48</a>
+
+NONO我记得也是个紧张哥 表现差到能被Mikasa这种老彩笔抢中去打线下 这两年就鳖茶的白学家有他那味道了 ...</blockquote>
+ti上倒是打的挺正常。。。 我也不知道为什么
+
+*****
+
+####  zhrs456  
+##### 37570#       发表于 2022-10-25 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095819&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-25 17:49</a>
+
+让处长去带谢彬包子下面八盖狗去打ti
+
+论坛助手,iPhone</blockquote>
+？中单是大姚好吗
+
