@@ -13259,3 +13259,33 @@ nagi的ins直播时间
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Kfly  
+##### 8701#       发表于 2022-10-25 19:04
+
+<img src="https://img.saraba1st.com/forum/202210/25/190455ntd8tn2mhbujmcnt.jpg" referrerpolicy="no-referrer">
+
+<strong>Ff5KPauUUAEeOno.jpg</strong> (187.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 19:04 上传
+
+*****
+
+####  稀勢のささ  
+##### 8702#       发表于 2022-10-25 19:06
+
+出演キャストへのメッセージ、TVアニメ2期関连CDの感想に加え
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么12集，真不熟
+
+*****
+
+####  lj205  
+##### 8703#       发表于 2022-10-25 19:08
+
+solo ed都没有，又没个人回，什么2期？不知道
+
