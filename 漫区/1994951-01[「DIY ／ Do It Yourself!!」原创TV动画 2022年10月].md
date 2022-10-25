@@ -2879,3 +2879,17 @@ job子奶声奶气的好可爱<img src="https://static.saraba1st.com/image/smile
 
 2022-10-25 18:03 上传
 
+
+
+*****
+
+####  NZ-333  
+##### 231#       发表于 2022-10-25 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58096099&amp;ptid=1994951" target="_blank">欧派爱欧派 发表于 2022-10-25 18:06</a>
+
+同一个源，我的字幕效果，可以外挂个字幕滤镜，我用的XySubFilter with libass
+
+ ...</blockquote>
+感谢，能正常看了
+

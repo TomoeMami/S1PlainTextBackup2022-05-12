@@ -1095,3 +1095,26 @@ fg决赛给小熊套离子外壳打劣势路刷新了我对DOTA的认知
 hgt式上高确实有意思
 但是那段时间最快乐的场面还是辣味先生中路sf被术士单杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  樱冢名月  
+##### 37629#       发表于 2022-10-25 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58096685&amp;ptid=2099454" target="_blank">bluebaby 发表于 2022-10-25 18:48</a>
+
+hgt式上高确实有意思
+
+但是那段时间最快乐的场面还是辣味先生中路sf被术士单杀 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">辣味先生也是把大家对他的负面期待展现的淋漓尽致
+
+*****
+
+####  nowaki  
+##### 37630#       发表于 2022-10-25 18:54
+
+虚空 大 女王 大  大 大 皆空
+
+肉山团上高团 团团必灭
+
