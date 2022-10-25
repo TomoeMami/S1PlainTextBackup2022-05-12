@@ -11040,3 +11040,42 @@ https://www.bilibili.com/video/BV1bG4y1W7HB
 
 感应式管人痴是吧
 
+
+
+*****
+
+####  lyjssj  
+##### 37211#       发表于 2022-10-25 13:06
+
+马来巨蟒是不是也是伞兵先说的
+
+*****
+
+####  bluebaby  
+##### 37212#       发表于 2022-10-25 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58090835&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-25 13:00</a></blockquote>
+戴着他的拳击手套拿着刀<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 37213#       发表于 2022-10-25 13:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">太哈人了
+
+*****
+
+####  火鸡味锅巴  
+##### 37214#       发表于 2022-10-25 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58090835&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-25 13:00</a></blockquote>
+爱沙尼亚拳击手名不虚传<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 37215#       发表于 2022-10-25 13:12
+
+这不是在yygq么
+

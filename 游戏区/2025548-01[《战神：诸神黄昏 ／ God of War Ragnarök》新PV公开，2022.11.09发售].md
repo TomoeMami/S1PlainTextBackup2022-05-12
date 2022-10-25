@@ -7434,3 +7434,14 @@ boy真的是可操作角色，没让我失望
 
 新作所有内容都多了，很可能箱子也更多了。
 
+
+
+*****
+
+####  chiefshi  
+##### 806#       发表于 2022-10-25 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088752&amp;ptid=2025548" target="_blank">Kazepollar 发表于 2022-10-25 10:30</a>
+我前两个月pdd买的3899双手柄，感觉不亏</blockquote>
+现在贵了200块，勉强能接受
+
