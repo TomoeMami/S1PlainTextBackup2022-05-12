@@ -10751,3 +10751,12 @@ ns版本什么时候上
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  manyin1  
+##### 986#       发表于 2022-10-26 00:07
+
+等一下？二周目70小时？怎么能比一周目多这么多时间？二周目还有很多要素吗？
+
