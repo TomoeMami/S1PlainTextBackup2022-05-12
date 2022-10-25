@@ -13400,3 +13400,36 @@ solo ed都没有，又没个人回，什么2期？不知道
 
 in3首周实体盘14547，这张塞啥了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8715#       发表于 2022-10-25 20:54
+
+3rd北海道抽选吧，这北海道场的debuff不小，碟片的王之力也难做什么加成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 8716#       发表于 2022-10-25 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58098095&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-25 20:16</a>
+可没完，12集的上映会还得再夸一次动画</blockquote>
+那个就交给打铁吧
+
+*****
+
+####  Kfly  
+##### 8717#       发表于 2022-10-25 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58097787&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-10-25 19:52</a></blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/25/210100dybxk9yjbyiu8fpr.jpg" referrerpolicy="no-referrer">
+
+<strong>Ff6rFoQaUAAha4V.jpg</strong> (566.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 21:01 上传
+
