@@ -10870,3 +10870,12 @@ S1抽风的时候也能备用
 
 调整やっていくぞおおおおおおおうおおお！！！！</blockquote>笑死，你再不预热都快忘记运动会的事了。
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2537#       发表于 2022-10-25 18:47
+
+明天开始队内练习啦，有的看咯，比正片精彩。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

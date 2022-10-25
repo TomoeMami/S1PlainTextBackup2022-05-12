@@ -52,16 +52,16 @@
     "title": "[A站虚拟偶像(AVUP)综合讨论楼]",
     "lastedit": 1666688760,
     "category": "虚拟主播区专楼",
-    "active": false,
-    "newtitle": "[]"
+    "active": true,
+    "newtitle": "[A站虚拟偶像(AVUP)综合讨论楼]"
   },
   "2018830": {
     "totalreply": 12745,
     "title": "[【M14】神楽Mea(KaguraMea)讨论楼]",
     "lastedit": 1666654320,
     "category": "虚拟主播区专楼",
-    "active": false,
-    "newtitle": "[]"
+    "active": true,
+    "newtitle": "[【M14】神楽Mea(KaguraMea)讨论楼]"
   },
   "2021563": {
     "totalreply": 2350,
@@ -114,18 +114,18 @@
   "2068028": {
     "totalreply": 1704,
     "title": "[明前奶绿综合讨论楼]",
-    "newtitle": "[]",
+    "newtitle": "[明前奶绿综合讨论楼【装扮发售！！】]",
     "lastedit": 1666612920,
     "category": "虚拟主播区专楼",
-    "active": false
+    "active": true
   },
   "2068895": {
     "totalreply": 5685,
     "title": "[啵啵小狼／玉桂狗不灭 综合讨论楼]",
-    "newtitle": "[]",
+    "newtitle": "[啵啵小狗ww 综合讨论楼]",
     "lastedit": 1666628580,
     "category": "虚拟主播区专楼",
-    "active": false
+    "active": true
   },
   "2073812": {
     "totalreply": 8414,
@@ -136,10 +136,10 @@
     "active": false
   },
   "2074373": {
-    "totalreply": 4352,
+    "totalreply": 4353,
     "title": "[英雄传说 黎之轨迹2确认9.29发售]",
     "newtitle": "[英雄传说 黎之轨迹2确认9.29发售，中文版10.27发售]",
-    "lastedit": 1666693800,
+    "lastedit": 1666695012,
     "category": "游戏区",
     "active": true
   },
@@ -154,10 +154,10 @@
   "2075863": {
     "totalreply": 920,
     "title": "[【海2】七海Nana7mi／海子姐综合讨论楼-(615三周年纪念直播ing)]",
-    "newtitle": "[]",
+    "newtitle": "[【海2】七海Nana7mi／海子姐综合讨论楼]",
     "lastedit": 1666586220,
     "category": "虚拟主播区专楼",
-    "active": false
+    "active": true
   },
   "2075892": {
     "totalreply": 780,
@@ -291,7 +291,7 @@
     "totalreply": 3530,
     "title": "[任天堂病栋之幸运魔剑7号楼，这波先指审判日]",
     "newtitle": "[任天堂病栋之幸运魔剑7号楼，秋直已开！]",
-    "lastedit": 1666694799,
+    "lastedit": 1666693800,
     "category": "游戏区",
     "active": true
   },
@@ -304,10 +304,10 @@
     "active": true
   },
   "2084915": {
-    "totalreply": 12655,
+    "totalreply": 12659,
     "title": "[【E2】乐华虚拟女团EOE组合综合讨论楼]",
     "newtitle": "[【E2】乐华虚拟女团EOE组合综合讨论楼（10-29-1930 露早生日）]",
-    "lastedit": 1666694799,
+    "lastedit": 1666695115,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -360,10 +360,10 @@
     "active": false
   },
   "2086637": {
-    "totalreply": 2536,
+    "totalreply": 2537,
     "title": "[【ぷにち】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
     "newtitle": "[【ホゲチ】Hololive所属さくらみこ／Sakuramiko讨论专楼]",
-    "lastedit": 1666693560,
+    "lastedit": 1666695019,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -424,10 +424,10 @@
     "active": false
   },
   "2089020": {
-    "totalreply": 14714,
+    "totalreply": 14715,
     "title": "[原神（多平台）攻略讨论专楼#6（禁止新开讨论）]",
     "newtitle": "[原神（多平台）攻略讨论专楼#6（禁止新开讨论）]",
-    "lastedit": 1666694537,
+    "lastedit": 1666695019,
     "category": "手游专楼",
     "active": true
   },
@@ -600,10 +600,10 @@
     "active": true
   },
   "2045127": {
-    "totalreply": 59598,
+    "totalreply": 59602,
     "title": "[2022.07 足立慎吾 原创TV动画『Lycoris Recoil ／ 莉可丽丝』]",
     "newtitle": "[2022.07 足立慎吾 原创TV动画『Lycoris Recoil ／ 莉可丽丝』]",
-    "lastedit": 1666694732,
+    "lastedit": 1666695019,
     "category": "漫区",
     "active": true
   },
@@ -616,10 +616,10 @@
     "active": false
   },
   "2026556": {
-    "totalreply": 51373,
+    "totalreply": 51393,
     "title": "[2022.10 新作TV动画『机动战士高达 水星的魔女』专楼]",
     "newtitle": "[2022.10 新作TV动画『机动战士高达 水星的魔女』专楼]",
-    "lastedit": 1666694578,
+    "lastedit": 1666695019,
     "category": "漫区",
     "active": true
   },
@@ -691,7 +691,7 @@
     "totalreply": 4737,
     "title": "[2022.10『电锯人』TV动画 MAPPA制作 9.19主题曲&amp; 新CAST解禁]",
     "newtitle": "[2022.10『电锯人 ／ Chainsaw Man』动画专楼 MAPPA制作]",
-    "lastedit": 1666694556,
+    "lastedit": 1666694340,
     "category": "漫区",
     "active": true
   },
@@ -1176,10 +1176,10 @@
     "active": true
   },
   "1988290": {
-    "totalreply": 8078,
+    "totalreply": 8079,
     "title": "[《Splatoon 3／斯普拉遁3》专楼（全区中文）祭典结果发布]",
     "newtitle": "[《Splatoon 3／斯普拉遁3》专楼（26日更新Ver.1.2.0平衡调整）]",
-    "lastedit": 1666694579,
+    "lastedit": 1666695185,
     "category": "游戏区",
     "active": true
   },
@@ -1299,7 +1299,7 @@
     "totalreply": 1158,
     "title": "[塔防手游无期迷途8月11日公测]",
     "newtitle": "[塔防手游无期迷途8月11日公测]",
-    "lastedit": 1666694799,
+    "lastedit": 1666694340,
     "category": "手游专楼",
     "active": true
   },
@@ -1346,10 +1346,10 @@
   "1986197": {
     "totalreply": 2139,
     "title": "[ブルーアーカイブ／Blue Archive／蔚蓝檔案 日服2021／2／4中午…]",
-    "newtitle": "[]",
+    "newtitle": "[ブルーアーカイブ／Blue Archive／蔚蓝檔案 日服2021／2／4中午…]",
     "lastedit": 1666497300,
     "category": "手游专楼",
-    "active": false
+    "active": true
   },
   "1471785": {
     "totalreply": 25805,
@@ -1386,10 +1386,10 @@
   "2028054": {
     "totalreply": 799,
     "title": "[棒游《未来战／异界事务所》专楼 all you need is sigma]",
-    "newtitle": "[]",
+    "newtitle": "[棒游《未来战／异界事务所》专楼 all you need is sigma]",
     "lastedit": 1666438860,
     "category": "手游专楼",
-    "active": false
+    "active": true
   },
   "1590697": {
     "totalreply": 2073,
@@ -1776,10 +1776,10 @@
     "active": false
   },
   "1556697": {
-    "totalreply": 8896,
+    "totalreply": 8898,
     "title": "[S1机核网真爱楼]",
     "newtitle": "[S1机核网真爱楼]",
-    "lastedit": 1666694607,
+    "lastedit": 1666695038,
     "category": "游戏区",
     "active": true
   },
@@ -2064,10 +2064,10 @@
     "active": true
   },
   "2097577": {
-    "totalreply": 9226,
+    "totalreply": 9227,
     "title": "[10月鹅乌新番专楼#12，又双叒叕的直接塞]",
     "newtitle": "[10月鹅乌新番专楼#12，又双叒叕的直接塞]",
-    "lastedit": 1666694781,
+    "lastedit": 1666695126,
     "category": "外野",
     "active": true
   },
@@ -2144,10 +2144,10 @@
     "active": false
   },
   "2097652": {
-    "totalreply": 9145,
+    "totalreply": 9152,
     "title": "[【A34】A-SOUL综合讨论楼]",
     "newtitle": "[【A34】A-SOUL综合讨论楼]",
-    "lastedit": 1666694611,
+    "lastedit": 1666695127,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -2344,10 +2344,10 @@
     "active": false
   },
   "2077743": {
-    "totalreply": 1235,
+    "totalreply": 1236,
     "title": "[Cygames × P.A.WORKS 原创TV动画「秋叶原冥途战争」2022年10月]",
     "newtitle": "[Cygames × P.A.WORKS 原创TV动画「秋叶原冥途战争」2022年10月]",
-    "lastedit": 1666683960,
+    "lastedit": 1666695042,
     "category": "漫区",
     "active": true
   },
@@ -2563,7 +2563,7 @@
     "totalreply": 968,
     "title": "[『猎天使魔女 3』新PV公开，2022年10月28日发售！]",
     "newtitle": "[『猎天使魔女 3』新PV公开，2022年10月28日发售！]",
-    "lastedit": 1666694620,
+    "lastedit": 1666693980,
     "category": "游戏区",
     "active": true
   },
@@ -3064,10 +3064,10 @@
     "active": false
   },
   "2063018": {
-    "totalreply": 268,
+    "totalreply": 270,
     "title": "[皇家骑士团：重生，11月11日在ns／ps／pc发售，支持中文！]",
     "newtitle": "[皇家骑士团：重生，11月11日在ns／ps／pc发售，支持中文！]",
-    "lastedit": 1666687440,
+    "lastedit": 1666695170,
     "category": "游戏区",
     "active": true
   },
@@ -3515,7 +3515,7 @@
     "totalreply": 541,
     "title": "[推漫《我心里危险的东西（僕の心のヤバイやつ）》]",
     "newtitle": "[推漫《我心里危险的东西（僕の心のヤバイやつ）》]",
-    "lastedit": 1666694643,
+    "lastedit": 1666694160,
     "category": "漫区",
     "active": true
   },
@@ -4280,10 +4280,10 @@
     "active": false
   },
   "2099454": {
-    "totalreply": 37625,
+    "totalreply": 37628,
     "title": "[【DOTA2】TI11正赛分组已出，LGD、RNG A组，Aster B组]",
     "newtitle": "[【DOTA2】ASTER晋级4强，再见了所有的集美]",
-    "lastedit": 1666694785,
+    "lastedit": 1666695055,
     "category": "游戏区",
     "active": true
   },
@@ -4360,10 +4360,10 @@
     "active": false
   },
   "2067291": {
-    "totalreply": 179,
+    "totalreply": 181,
     "title": "[《Lost Eidolons》（幻灵降世录）火纹代餐，今晚发售自带中文]",
     "newtitle": "[《Lost Eidolons》（幻灵降世录）火纹代餐，通关附评测心得]",
-    "lastedit": 1666655160,
+    "lastedit": 1666695191,
     "category": "游戏区",
     "active": true
   },
@@ -4539,7 +4539,7 @@
     "totalreply": 971,
     "title": "[14年磨一剑，《ASTLIBRA Revision》(神之天平)现已发售,转型专楼]",
     "newtitle": "[14年磨一剑，《ASTLIBRA Revision》(神之天平)现已发售,转型专楼]",
-    "lastedit": 1666694746,
+    "lastedit": 1666693860,
     "category": "游戏区",
     "active": true
   },
@@ -5048,10 +5048,10 @@
     "active": false
   },
   "1952573": {
-    "totalreply": 236,
+    "totalreply": 238,
     "title": "[推本单元剧恐怖漫画《灰色兼职：禁止逃亡》]",
     "newtitle": "[推本单元剧恐怖漫画《灰色兼职：禁止逃亡》]",
-    "lastedit": 1666687320,
+    "lastedit": 1666695061,
     "category": "漫区",
     "active": true
   },
@@ -5360,10 +5360,10 @@
     "active": false
   },
   "2100048": {
-    "totalreply": 9266,
+    "totalreply": 9269,
     "title": "[【B65】VUP综合讨论楼]",
     "newtitle": "[【B65】VUP综合讨论楼]",
-    "lastedit": 1666694749,
+    "lastedit": 1666695061,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -5800,10 +5800,10 @@
     "active": true
   },
   "2009757": {
-    "totalreply": 1809,
+    "totalreply": 1810,
     "title": "[乐园的异乡人最终幻想起源／天堂陌生人，dlc2于10.26发售]",
     "newtitle": "[乐园的异乡人最终幻想起源／天堂陌生人，dlc2于10.26发售]",
-    "lastedit": 1666694752,
+    "lastedit": 1666695137,
     "category": "游戏区",
     "active": true
   },
@@ -8003,7 +8003,7 @@
     "totalreply": 165,
     "title": "[金庸周关于“破箭式一剑戳瞎30只眼睛”的争议]",
     "newtitle": "[金庸周关于“破箭式一剑戳瞎30只眼睛”的争议]",
-    "lastedit": 1666694766,
+    "lastedit": 1666694400,
     "category": "外野",
     "active": true
   },
@@ -8091,7 +8091,7 @@
     "totalreply": 231,
     "title": "[明年的旅游业是不是彻底完蛋了？]",
     "newtitle": "[明年的旅游业是不是彻底完蛋了？]",
-    "lastedit": 1666694709,
+    "lastedit": 1666694640,
     "category": "外野",
     "active": true
   },
@@ -8139,7 +8139,7 @@
     "totalreply": 151,
     "title": "[日本小孩“明明日本这么和平 美国却朝日本扔下来核弹”]",
     "newtitle": "[日本小孩“明明日本这么和平 美国却朝日本扔下来核弹”]",
-    "lastedit": 1666694709,
+    "lastedit": 1666694160,
     "category": "外野",
     "active": true
   },
@@ -8187,7 +8187,7 @@
     "totalreply": 158,
     "title": "[认真的在考虑躺平润小城市了，有没有推荐的]",
     "newtitle": "[认真的在考虑躺平润小城市了，有没有推荐的]",
-    "lastedit": 1666694768,
+    "lastedit": 1666694580,
     "category": "外野",
     "active": true
   },
@@ -8240,10 +8240,10 @@
     "active": true
   },
   "2101303": {
-    "totalreply": 152,
+    "totalreply": 154,
     "title": "[印度这种赢法以前人类历史上不常见吧？]",
     "newtitle": "[印度这种赢法以前人类历史上不常见吧？]",
-    "lastedit": 1666693740,
+    "lastedit": 1666695154,
     "category": "外野",
     "active": true
   },
@@ -8264,10 +8264,10 @@
     "active": true
   },
   "2101243": {
-    "totalreply": 76,
+    "totalreply": 77,
     "title": "[分析师：日本玩家正在放弃PS5，转投PC]",
     "newtitle": "[分析师：日本玩家正在放弃PS5，转投PC]",
-    "lastedit": 1666694715,
+    "lastedit": 1666695195,
     "category": "游戏区",
     "active": true
   },
@@ -8291,7 +8291,7 @@
     "totalreply": 90,
     "title": "[魔兽世界巨龙时代前夕内容10月27日开始]",
     "newtitle": "[魔兽世界巨龙时代前夕内容10月27日开始 S1备战群 738776469]",
-    "lastedit": 1666694715,
+    "lastedit": 1666693980,
     "category": "游戏区",
     "active": true
   },
@@ -8344,10 +8344,10 @@
     "active": true
   },
   "2101321": {
-    "totalreply": 104,
+    "totalreply": 106,
     "title": "[今年双十一感觉会很惨淡]",
     "newtitle": "[今年双十一感觉会很惨淡]",
-    "lastedit": 1666694714,
+    "lastedit": 1666695201,
     "category": "外野",
     "active": true
   },
@@ -8355,7 +8355,7 @@
     "totalreply": 268,
     "title": "[大龄二次元又见炸粪坑]",
     "newtitle": "[大龄二次元又见炸粪坑]",
-    "lastedit": 1666694772,
+    "lastedit": 1666694340,
     "category": "外野",
     "active": true
   },
@@ -8379,7 +8379,7 @@
     "totalreply": 83,
     "title": "[B站刷到一个叫世界美食Official的号，仿佛打开了新世界]",
     "newtitle": "[B站刷到一个叫世界美食Official的号，仿佛打开了新世界]",
-    "lastedit": 1666694772,
+    "lastedit": 1666694220,
     "category": "外野",
     "active": true
   },
@@ -8395,7 +8395,7 @@
     "totalreply": 184,
     "title": "[欧美经济都很不妙]",
     "newtitle": "[欧美经济都很不妙]",
-    "lastedit": 1666694771,
+    "lastedit": 1666694700,
     "category": "外野",
     "active": true
   },
@@ -8443,7 +8443,7 @@
     "totalreply": 69,
     "title": "[枪毙砰砰打个不停《维多利亚3》专楼，25日10点解锁，MC 82]",
     "newtitle": "[枪毙砰砰打个不停《维多利亚3》专楼，25日10点解锁，MC 82]",
-    "lastedit": 1666694799,
+    "lastedit": 1666694340,
     "category": "游戏区",
     "active": true
   },
@@ -8456,18 +8456,18 @@
     "active": true
   },
   "2101414": {
-    "totalreply": 167,
+    "totalreply": 170,
     "title": "[李佳琦双11预售首日卖出215亿！！！]",
     "newtitle": "[李佳琦双11预售首日卖出215亿！！！]",
-    "lastedit": 1666694721,
+    "lastedit": 1666695183,
     "category": "外野",
     "active": true
   },
   "2101334": {
-    "totalreply": 84,
+    "totalreply": 85,
     "title": "[作曲家田中秀和猥亵10代女性，已被逮捕]",
     "newtitle": "[作曲家田中秀和猥亵10代女性，已被逮捕]",
-    "lastedit": 1666694722,
+    "lastedit": 1666695109,
     "category": "漫区",
     "active": true
   },
@@ -8507,7 +8507,7 @@
     "totalreply": 79,
     "title": "[可以有个新的P5R专楼吗]",
     "newtitle": "[可以有个新的P5R专楼吗]",
-    "lastedit": 1666694721,
+    "lastedit": 1666694460,
     "category": "游戏区",
     "active": true
   },
@@ -8515,7 +8515,7 @@
     "totalreply": 123,
     "title": "[如果能润的话，你会润吗？]",
     "newtitle": "[如果能润的话，你会润吗？]",
-    "lastedit": 1666694722,
+    "lastedit": 1666694100,
     "category": "外野",
     "active": true
   },
@@ -8533,6 +8533,14 @@
     "newtitle": "[无职转生动画楼 剧透慎入]",
     "lastedit": 1666690380,
     "category": "漫区",
+    "active": true
+  },
+  "2101113": {
+    "totalreply": 62,
+    "title": "[为什么台湾没有比较繁荣的汉化组]",
+    "newtitle": "[为什么台湾没有比较繁荣的汉化组]",
+    "lastedit": 1666695162,
+    "category": "游戏区",
     "active": true
   }
 }

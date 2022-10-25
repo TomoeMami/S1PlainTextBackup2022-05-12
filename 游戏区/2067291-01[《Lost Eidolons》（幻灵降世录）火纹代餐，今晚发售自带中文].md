@@ -2169,3 +2169,30 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 “ 我一直在等待那个一无所有的人出现。”  然后就没了……
 
+
+
+*****
+
+####  bwsusaga  
+##### 180#         楼主| 发表于 2022-10-25 18:47
+
+这游戏的DLC白马到最后我也没见着，
+
+我一直以为十一章开了马棚送的那只什么种马就是（也是白色），后来发现别人就算没DLC也有这只
+
+就很迷。
+
+
+
+*****
+
+####  tand177  
+##### 181#       发表于 2022-10-25 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58096674&amp;ptid=2067291" target="_blank">bwsusaga 发表于 2022-10-25 18:47:32</a>
+这游戏的DLC白马到最后我也没见着，
+
+我一直以为十一章开了马棚送的那只什么种马就是（也是白色），后来发现 ...</blockquote>一共四匹吧？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
