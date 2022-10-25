@@ -10492,3 +10492,16 @@ LS至少反白下吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">目前玩到第七章，游戏还可以，但是非常怀疑这个数值是不是用脚做的
 
+
+
+*****
+
+####  御坂MKII  
+##### 962#       发表于 2022-10-25 12:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088955&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-25 10:40</a>
+不固定的 后面的法杖都有自己的弹道 到新章可以变异被动了以后敲人还能变疼 ...</blockquote>
+方向不固定吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
