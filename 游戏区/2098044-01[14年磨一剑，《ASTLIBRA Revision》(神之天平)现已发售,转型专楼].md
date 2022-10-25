@@ -10674,3 +10674,32 @@ ns版本什么时候上
 想问下效果时间指的是啥？</blockquote>
 吃某些药会持续一段时间的药效。
 
+
+
+*****
+
+####  何处分可  
+##### 979#       发表于 2022-10-25 21:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">飞船有没有逃课的手段
+
+*****
+
+####  五块  
+##### 980#       发表于 2022-10-25 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099502&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-25 21:36</a>
+
+飞船有没有逃课的手段</blockquote>
+飞船不是站在那用脚打吗？所有的技能都可以防啊。
+
+*****
+
+####  五块  
+##### 981#       发表于 2022-10-25 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58098179&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-25 20:20</a>
+
+后面还有更有病的，比如勇者队+男女主+大贤者组团，大贤者还自带禁魔 ...</blockquote>
+这是逼人强化+99用数值碾过去了啊……
+
