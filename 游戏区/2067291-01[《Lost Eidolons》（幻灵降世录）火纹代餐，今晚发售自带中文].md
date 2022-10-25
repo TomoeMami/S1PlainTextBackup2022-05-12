@@ -2214,3 +2214,15 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 请问到目前为止回合数限制取消了吗？
 
+
+
+*****
+
+####  bwsusaga  
+##### 184#         楼主| 发表于 2022-10-25 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100194&amp;ptid=2067291" target="_blank">dudeism 发表于 2022-10-25 22:12</a>
+
+请问到目前为止回合数限制取消了吗？</blockquote>
+没有，不过我感觉回合数完全够。
+
