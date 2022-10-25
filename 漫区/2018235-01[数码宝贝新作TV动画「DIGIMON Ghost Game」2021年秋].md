@@ -3731,3 +3731,15 @@ DGG预定2年左右
 
 第一反应是staff是不是看太多本子塞xp私货，但是后来想到灵感来源会不会其实是新冠时阿三身上长蘑菇<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新HGCG  
+##### 365#       发表于 2022-10-26 07:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58102401&amp;ptid=2018235" target="_blank">黑夜守望者 发表于 2022-10-26 00:19</a>
+
+第一反应是staff是不是看太多本子塞xp私货，但是后来想到灵感来源会不会其实是新冠时阿三身上长蘑菇 ...</blockquote>
+阿三好可怕
+
