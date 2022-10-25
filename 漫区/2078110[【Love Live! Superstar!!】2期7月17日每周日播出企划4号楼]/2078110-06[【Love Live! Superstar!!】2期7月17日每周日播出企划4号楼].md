@@ -13172,3 +13172,30 @@ nagi的ins直播时间
 
 翻了翻漏掉的两天楼，突出一个互相折磨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8694#       发表于 2022-10-25 17:13
+
+ 本帖最后由 稀勢のささ 于 2022-10-25 17:16 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">插3初动1w4，作为对比一期插3初动2w7，是北海道太冷了吗
+
+*****
+
+####  优妮可  
+##### 8695#       发表于 2022-10-25 17:18
+
+人少是不是能打call了
+
+*****
+
+####  Enakina  
+##### 8696#       发表于 2022-10-25 17:18
+
+好事啊，蒸蒸日上
+
+—— 来自 HUAWEI HLK-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
