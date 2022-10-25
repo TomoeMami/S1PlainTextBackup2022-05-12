@@ -2252,3 +2252,15 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 比较迷惑的是那几个像是角色结局的隐藏成就是怎么解的，还有为什么最终关对面没有那个虞姬女游侠
 
+
+
+*****
+
+####  svmkty  
+##### 187#       发表于 2022-10-26 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58103274&amp;ptid=2067291" target="_blank">h1r0 发表于 2022-10-26 02:17</a>
+
+我也通了，感觉70小时有30多小时都是浪费在调配人员上，但回过头看这游戏养成性相当相当低，养不出战神，基 ...</blockquote>
+这内容怎么看着更像是BWS代餐？？<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+

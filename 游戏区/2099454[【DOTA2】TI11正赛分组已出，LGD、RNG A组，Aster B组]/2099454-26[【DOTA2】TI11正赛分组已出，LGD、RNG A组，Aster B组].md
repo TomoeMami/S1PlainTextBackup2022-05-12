@@ -4460,3 +4460,14 @@ cty有什么好吹的，刷钱特化版rtz。你拿EE评价rtz的话套他一点
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 38002#       发表于 2022-10-26 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58101509&amp;ptid=2099454" target="_blank">战狼PTSD 发表于 2022-10-25 23:27</a>
+别几把聊这种没结果的东西&amp;#x4 ...</blockquote>
+？这香肠嘴
+
