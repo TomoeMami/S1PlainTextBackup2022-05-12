@@ -785,3 +785,13 @@ PC大屏听歌对味，AA快下池
 但是这个包装太精美了，还好国内氪金比较麻烦还要买点卡， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">确实，前期真的很有氪金欲望，要不是iOS的充值过于繁琐就直接氪了
 
+
+
+*****
+
+####  KATE  
+##### 87#       发表于 2022-10-25 10:23
+
+公会讨伐进去就崩，但是有红点！
+红点！ 
+

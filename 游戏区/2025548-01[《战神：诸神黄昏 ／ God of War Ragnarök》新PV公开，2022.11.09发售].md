@@ -7381,3 +7381,21 @@ boy真的是可操作角色，没让我失望
 预购ing，这作好像没有进PS会员？？？大法怎么想的？？？？？</blockquote>
 吉姆叔叔都说了，索尼第一方不会首发进订阅制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  chiefshi  
+##### 801#       发表于 2022-10-25 10:28
+
+心痒痒了，现在买ps5直接pdd？还是等双十一官方买？
+
+*****
+
+####  Kazepollar  
+##### 802#       发表于 2022-10-25 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088720&amp;ptid=2025548" target="_blank">chiefshi 发表于 2022-10-25 10:28</a>
+ 心痒痒了，现在买ps5直接pdd？还是等双十一官方买？</blockquote>
+我前两个月pdd买的3899双手柄，感觉不亏
+
