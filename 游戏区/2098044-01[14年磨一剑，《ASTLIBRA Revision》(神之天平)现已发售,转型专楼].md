@@ -10576,3 +10576,19 @@ ns版本什么时候上
 被雪山那双子boss给整麻了</blockquote>
 引到地图一边打，用盾反然后凭依，如果两个一起过来就盾冲到另一边
 
+
+
+*****
+
+####  黒長直姫  
+##### 970#       发表于 2022-10-25 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58090819&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-10-25 12:59</a>
+
+方向不固定吗 手柄哪里是施法方向，弓我也不会调整射的角度
+
+—— 来自 Xiaomi 2203121C,  ...</blockquote>
+每个魔杖魔法弹有一个自己的弹道逻辑 可以通过按上加攻击来改变一下弹道 
+
+但是两种攻击模式下弹道的分布逻辑是分别固定的
+

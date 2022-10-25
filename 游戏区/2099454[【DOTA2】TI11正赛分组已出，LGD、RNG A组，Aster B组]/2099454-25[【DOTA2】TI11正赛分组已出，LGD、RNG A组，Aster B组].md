@@ -12322,3 +12322,201 @@ boboka我就搞不懂他过个生日非得让老板找斋藤飞鸟来给他 ...<
 
 小林靖这种萨特如果分上snh48这种，应该就不是握手会这么简单的东西了吧
 
+
+
+*****
+
+####  六娃  
+##### 37350#       发表于 2022-10-25 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093621&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 16:00</a>
+
+普森和og解约了吧，不过解不解约都无所谓，大爹还能拉下脸卡普森合同么，又不是ruru ...</blockquote>
+国外一直是默认ti打完的休赛期你想走可以随时解约
+
+普森现在还没解约但如果去西欧找到了新队肯定还是会解约的
+
+
+
+*****
+
+####  resorry  
+##### 37351#       发表于 2022-10-25 16:03
+
+想要不那么简单的东西都不至于到小林靖三那种程度，不过这种捕风捉影的东西说起来就很无聊了
+
+*****
+
+####  火鸡味锅巴  
+##### 37352#       发表于 2022-10-25 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093486&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-25 15:53</a>
+
+小学生本名林靖啊。
+
+变成樱花名不就成小林靖三了。
+
+boboka我就搞不懂他过个生日非得让老板找斋藤飞鸟来给他 ...</blockquote>
+bbk不知道呀，晓菲给他的惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 37353#       发表于 2022-10-25 16:04
+
+清茶预选前换人我觉得好蠢
+
+*****
+
+####  Sayuki1025  
+##### 37354#       发表于 2022-10-25 16:04
+
+马桶退役是为了服兵役？
+
+*****
+
+####  roxas.sora  
+##### 37355#       发表于 2022-10-25 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093314&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 15:44</a>
+
+ana xxs bbk这几个人关系这么好，要是当初ana留下来，后面也被鳖鳖挖去茶队，这三人组的上限有点高
+
+只可惜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没尾巴和ceb作为老大哥和团队大脑比茶队强多了吧。。。。。茶队也找不到这种配置
+
+*****
+
+####  反方向的波  
+##### 37356#       发表于 2022-10-25 16:05
+
+不是为了打魔兽世界？
+
+*****
+
+####  zsu222  
+##### 37357#       发表于 2022-10-25 16:06
+
+马桶我记得女装直播过？  
+
+*****
+
+####  StrangerJ  
+##### 37358#       发表于 2022-10-25 16:06
+
+snh前段时间不还爆出过冤大头金主吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sayuki1025  
+##### 37359#       发表于 2022-10-25 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093692&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-25 16:04</a>
+
+清茶预选前换人我觉得好蠢</blockquote>
+TK是被t了吗
+
+*****
+
+####  walfeds  
+##### 37360#       发表于 2022-10-25 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093533&amp;ptid=2099454" target="_blank">迷途lite 发表于 2022-10-25 15:56</a>
+
+音乐无罪，喜欢姬雏的不算管人吃</blockquote>
+哦牛逼，2202年还有看姬雏的老害
+
+*****
+
+####  zsu222  
+##### 37361#       发表于 2022-10-25 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093733&amp;ptid=2099454" target="_blank">Sayuki1025 发表于 2022-10-25 16:06</a>
+
+TK是被t了吗</blockquote>
+不知道是被t了 还是自己走了 预选前换了ponlo
+
+*****
+
+####  adretyu67  
+##### 37362#       发表于 2022-10-25 16:08
+
+马桶真要服兵役应该19年-20年这段时间就去了。
+
+马桶因为要服兵役所以要退役的新闻我记得应该是ti7和ti8那段时间提过，说是最多还有2年的入伍响应期。
+
+结果他19年前脚被kky请吃披萨，打完ti后脚就去了秘密。服兵役这事就没人提了。
+
+*****
+
+####  usoda  
+##### 37363#       发表于 2022-10-25 16:08
+
+马桶要服兵役这话我起码听了有5年了 那么到底要不要去当兵
+
+*****
+
+####  roxas.sora  
+##### 37364#       发表于 2022-10-25 16:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">ana在国内哪有那么好的团队氛围和舆论环境
+
+*****
+
+####  迷途lite  
+##### 37365#       发表于 2022-10-25 16:08
+
+ 本帖最后由 迷途lite 于 2022-10-25 16:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093758&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-25 16:07</a>
+哦牛逼，2202年还有看姬雏的老害</blockquote>
+憋尬黑，我还听术力口
+姬雏的视频没看过，纯听歌
+不行，要实事求是，没怎么看过，但是看过
+
+*****
+
+####  yyf奇遇记  
+##### 37366#       发表于 2022-10-25 16:09
+
+ 本帖最后由 yyf奇遇记 于 2022-10-25 16:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093728&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-25 16:06</a>
+
+马桶我记得女装直播过？</blockquote>
+[https://www.youtube.com/watch?v=GMFTbSIkMHA&amp;t=108s](https://www.youtube.com/watch?v=GMFTbSIkMHA&amp;t=108s)
+
+翻到张叼图
+
+<img src="https://img.saraba1st.com/forum/202210/25/161004ycqpuxj1h5jrqqeq.jpg" referrerpolicy="no-referrer">
+
+<strong>fdd31a01462699b63a59980a1c40808f1e3b963a.png@942w_759h_progressive.jpg</strong> (94.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 16:10 上传
+
+*****
+
+####  adretyu67  
+##### 37367#       发表于 2022-10-25 16:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093728&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-25 16:06</a>
+
+马桶我记得女装直播过？</blockquote>
+对，女装直播过。应该还能搜到截图
+
+*****
+
+####  一品堂官  
+##### 37368#       发表于 2022-10-25 16:10
+
+ti夺冠可以不服兵役嘛 想到他队友1血不死 感觉有玄学在里面
+
+*****
+
+####  星野航  
+##### 37369#       发表于 2022-10-25 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093466&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-25 16:52</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乌克兰小胖跟崩溃还有雪碧领队
+看来老东京跟mira是不是铁离队了
+
