@@ -10760,3 +10760,19 @@ ns版本什么时候上
 
 等一下？二周目70小时？怎么能比一周目多这么多时间？二周目还有很多要素吗？
 
+
+
+*****
+
+####  manyin1  
+##### 987#       发表于 2022-10-26 00:16
+
+居然还有新的合成书，牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孔祈  
+##### 988#       发表于 2022-10-26 00:20
+
+打了一个半小时反复死，终于把龙神刮死了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

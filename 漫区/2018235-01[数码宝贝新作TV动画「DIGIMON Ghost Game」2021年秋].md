@@ -3722,3 +3722,12 @@ DGG预定2年左右
 但是最戳我性癖的还是多目兽这集
 [https://bbs.saraba1st.com/2b/for ... amp;authorid=160060](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2018235&amp;page=12&amp;authorid=160060)
 
+
+
+*****
+
+####  黑夜守望者  
+##### 364#       发表于 2022-10-26 00:19
+
+第一反应是staff是不是看太多本子塞xp私货，但是后来想到灵感来源会不会其实是新冠时阿三身上长蘑菇<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">
+

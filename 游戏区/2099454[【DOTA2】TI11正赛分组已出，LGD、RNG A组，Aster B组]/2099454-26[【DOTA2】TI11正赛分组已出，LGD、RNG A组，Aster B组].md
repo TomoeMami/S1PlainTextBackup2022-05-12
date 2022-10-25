@@ -4076,3 +4076,35 @@ D2换成REBORN后就没了吧，我还记得那时候REBORN要玩家自己测试
 
 约旦a畜打rng第一把绿鞋跳刀哥们还以为这个逼悟了，转头第二把来了个二手电棍，还有回家局自信哈斯卡，bzm和这个逼一起打**造了孽
 
+
+
+*****
+
+####  蛭人  
+##### 37958#       发表于 2022-10-26 00:12
+
+atf没少这么搞，绝地反击就选自己的绝活，信赖队友在他这儿优先级不如自己的绝活，毕竟自己bp。
+
+*****
+
+####  nightmare902015  
+##### 37959#       发表于 2022-10-26 00:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58102022&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-25 23:55</a>
+出大祭品真的有用！</blockquote>
+特别是中低分段如果真没人出，你经济健康搞一个出来的确对面根本看不懂。
+
+*****
+
+####  roxas.sora  
+##### 37960#       发表于 2022-10-26 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">og这几个小伙子只听misha不听那两个老家伙的么
+
+*****
+
+####  蛭人  
+##### 37961#       发表于 2022-10-26 00:20
+
+别尬黑，法国第三世界卡卡西ceb还是有发言权的。
+
