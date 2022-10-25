@@ -10245,3 +10245,133 @@ ta和干瘪拿同一级奖金看着真晦气啊
 有一说一，作为巴迷，我只能说最伟大的作品原唱也是被暴打</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我觉得他一定很爱你和可惜没如果也很有潜力啊，为啥没有人开发呢
 
+
+
+*****
+
+####  jk9hot  
+##### 37119#       发表于 2022-10-25 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089010&amp;ptid=2099454" target="_blank">Bernoulli 发表于 2022-10-25 10:43</a>
+那骄阳还有一手中单兽暴打石头人呢。我不觉得ori在BP上算什么弱点，反倒是英雄海的XXS能不能拿到契合体系 ...</blockquote>
+这也是ori在vg常常面临的局面，中路被放羊保两路打着打着就没了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  walfeds  
+##### 37120#       发表于 2022-10-25 10:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喜剧之王我觉得也可以锤原版
+
+*****
+
+####  yyf奇遇记  
+##### 37121#       发表于 2022-10-25 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089158&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-25 10:52</a>
+
+其实我觉得他一定很爱你和可惜没如果也很有潜力啊，为啥没有人开发呢 ...</blockquote>
+估计是没了，小泰迪已经和集美儿世纪大和解了，狗头人估计不会再攻击掀背了
+
+*****
+
+####  没钱买手办  
+##### 37122#       发表于 2022-10-25 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089154&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-25 10:52</a>
+
+别说了，掀背ti11表演欲望不够强烈，狗头人连新作都没了。
+
+连看未来森哥的助力ti12补水视频的动力也没了[f: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">森哥说可以剪辑，要把7891011分开剪辑复刻，已经在征集BGM了
+
+*****
+
+####  nightmare902015  
+##### 37123#       发表于 2022-10-25 10:56
+
+余亚军真的是科蜜吗我不好说。
+
+*****
+
+####  yyf奇遇记  
+##### 37124#       发表于 2022-10-25 10:57
+
+余亚军铁卜是壳密，一点曼巴精神都没有，每次打团都在em，严重怀疑是学习窝詹叉腰防守
+
+*****
+
+####  Avantasi  
+##### 37125#       发表于 2022-10-25 10:57
+
+余亚军铁卜是壳密，一点曼巴精神都没有，每次打团都在em，严重怀疑是学习窝詹叉腰防守
+
+*****
+
+####  zsu222  
+##### 37126#       发表于 2022-10-25 10:58
+
+余亚军铁卜是壳密，一点曼巴精神都没有，每次打团都在em，严重怀疑是学习窝詹叉腰防守
+
+*****
+
+####  六娃  
+##### 37127#       发表于 2022-10-25 10:58
+
+余亚军铁卜是壳密，一点曼巴精神都没有，每次打团都在em，严重怀疑是学习窝詹叉腰防守
+
+*****
+
+####  Avantasi  
+##### 37128#       发表于 2022-10-25 10:58
+
+余亚军这个逼要是今年20就好了，今年20我相信他铁拿TI，26就卜好说了
+
+*****
+
+####  nowaki  
+##### 37129#       发表于 2022-10-25 10:58
+
+老sa觉得今年的sa比以往的水人小狗还要爆笑一点好吧
+
+毕竟哥们水人小狗还是蛮常暴毙的，先辈水平和我一样说明哥们也能打ti，但这sa是真不如我
+
+*****
+
+####  银翼的维罗西  
+##### 37130#       发表于 2022-10-25 10:59
+
+余亚军铁卜是壳密，一点曼巴精神都没有，每次打团都在em，严重怀疑是学习窝詹叉腰防守
+
+*****
+
+####  Bernoulli  
+##### 37131#       发表于 2022-10-25 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089094&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-25 10:48</a>
+
+算的也是除了大家都能玩的数值怪兽和版本强势英雄以外各自有几手值得对手尊重的选择吧，matu更能当bp垃圾 ...</blockquote>
+银K只要不突然短路，我觉得对马体茶队BP上是不会吃亏的。打成什么样到时要看状态。
+
+老实说对LGD银K会拿出一把1到5号位人手带控的阵容我有点意外的，看得出来对石头人两场总结了很多，思路也更清晰了。
+
+*****
+
+####  nightmare902015  
+##### 37132#       发表于 2022-10-25 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089303&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 10:58</a>
+老sa觉得今年的sa比以往的水人小狗还要爆笑一点好吧
+
+毕竟哥们水人小狗还是蛮常暴毙的，先辈水平和我一样说 ...</blockquote>
+差不多得了一波团吹了五个飞镖，我玩大哥sa从来达不到这样的技能释放和cd管理水平。
+
+*****
+
+####  没钱买手办  
+##### 37133#       发表于 2022-10-25 11:01
+
+余亚军铁卜是壳密，一点曼巴精神都没有，每次打团都在em，严重怀疑是学习窝詹叉腰防守
+
