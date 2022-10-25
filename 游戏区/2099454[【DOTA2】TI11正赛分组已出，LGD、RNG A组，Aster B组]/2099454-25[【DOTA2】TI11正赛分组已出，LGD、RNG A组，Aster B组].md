@@ -10375,3 +10375,167 @@ ta和干瘪拿同一级奖金看着真晦气啊
 
 余亚军铁卜是壳密，一点曼巴精神都没有，每次打团都在em，严重怀疑是学习窝詹叉腰防守
 
+
+
+*****
+
+####  一品堂官  
+##### 37134#       发表于 2022-10-25 11:03
+
+哪有这么好润的，用脚投票也能说投就投，又不是去希腊西班牙有钱可以投资移民。
+
+高华女有德国学位当然随便拿绿卡，德张又不是码农能拿蓝卡不用学德语，短时间想润怕不是要铤而走险找空壳公司的业务签。
+
+*****
+
+####  枯风瘦雪02  
+##### 37135#       发表于 2022-10-25 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089321&amp;ptid=2099454" target="_blank">Bernoulli 发表于 2022-10-25 10:59</a>
+
+银K只要不突然短路，我觉得对马体茶队BP上是不会吃亏的。打成什么样到时要看状态。
+
+老实说对LGD银K会拿出 ...</blockquote>
+是，我举得茶在淘汰LGD的这两局体现出了战术思路和素养上的全面进步，BP上应该不会有什么明显劣势的。
+
+而就看新加坡目前的疫情烈度和这漫长的休赛期，一方面看状态，一方面可能还是看健康了，希望大家都运气好点谨慎点吧
+
+*****
+
+####  nightmare902015  
+##### 37136#       发表于 2022-10-25 11:05
+
+德张难绷
+
+*****
+
+####  Bernoulli  
+##### 37137#       发表于 2022-10-25 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089188&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-25 10:53</a>
+
+这也是ori在vg常常面临的局面，中路被放羊保两路打着打着就没了
+
+论坛助手,iPhone ...</blockquote>
+没办法，哪怕是顶级三号位，在不肥的情况下能打出声音的场面也寥寥无几，大多数情况下3号位穷得当裤子基本就是废物。
+
+不过茶队前期Ori的顺位感觉比鹏子还是要高一些，等小学生关键装到手之后鹏子资源分配才会到第一。
+
+*****
+
+####  王宇旻❤潘婕  
+##### 37138#       发表于 2022-10-25 11:05
+
+<img src="https://img.saraba1st.com/forum/202210/25/110531h0xr2uzlrr35z3l5.jpg" referrerpolicy="no-referrer">
+
+<strong>381a27d98730f183_edit_263113582867141.jpg</strong> (16.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 11:05 上传
+
+<img src="https://img.saraba1st.com/forum/202210/25/110536pgj16c8delgi450i.jpg" referrerpolicy="no-referrer">
+
+<strong>-7aa5f7b0b2d435f1.jpg</strong> (23.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 11:05 上传
+
+*****
+
+####  六娃  
+##### 37139#       发表于 2022-10-25 11:06
+
+给德张整三个展示，还有啥推荐的
+
+*****
+
+####  赤星ビスコ  
+##### 37140#       发表于 2022-10-25 11:08
+
+随便拿个欧盟居留不就行了，又不是一定要在德国拿
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 37141#       发表于 2022-10-25 11:09
+
+小强吧，德张ti6玩的最多的英雄了
+
+*****
+
+####  nowaki  
+##### 37142#       发表于 2022-10-25 11:09
+
+有钱还是很好润德的，你有欧盟户口德国随便呆
+
+*****
+
+####  星野航  
+##### 37143#       发表于 2022-10-25 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089455&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-25 12:06</a>
+
+给德张整三个展示，还有啥推荐的</blockquote>
+力中暴力电魂，抵不过无耻队友偿还
+
+*****
+
+####  星野航  
+##### 37144#       发表于 2022-10-25 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089455&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-25 12:06</a>
+
+给德张整三个展示，还有啥推荐的</blockquote>
+力中暴力电魂，抵不过无耻队友偿还
+
+*****
+
+####  IG.430  
+##### 37145#       发表于 2022-10-25 11:12
+
+死灵飞龙
+
+"""
+哥们润了，你们互害吧<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+"""
+
+*****
+
+####  没钱买手办  
+##### 37146#       发表于 2022-10-25 11:12
+
+德张有没有去中东玩VR投奔德张的说法
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  masterffzhou  
+##### 37147#       发表于 2022-10-25 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088990&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 10:42</a>
+
+我去听听，这歌的编曲听着挺有感觉的</blockquote>
+真不如香槟
+
+*****
+
+####  一品堂官  
+##### 37148#       发表于 2022-10-25 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089521&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 11:09</a>
+
+有钱还是很好润德的，你有欧盟户口德国随便呆</blockquote>
+那肯定还是德国绿卡好呀 保险之类的差别太大了 读书的时候第一年办的AOK被坑惨了
+
+*****
+
+####  zhliiiii  
+##### 37149#       发表于 2022-10-25 11:13
+
+狼人小小没输过啊
+
