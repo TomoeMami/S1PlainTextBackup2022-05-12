@@ -3437,3 +3437,86 @@ ti9别的队把ban zayac的炸弹人，应该是训练赛被zayac打晕了，后
 
 哦尼玛的想起来了0.25倍速看这场可以看7个钟头
 
+
+
+*****
+
+####  izayoi39  
+##### 37886#       发表于 2022-10-25 22:42
+
+当时rng淘汰的时候我也没咋说吴冠超，就是看到吴冠超还有自尊心直接退役才没反驳那些小蚂蚁的话，也就是今天又提起来了才说了两句
+
+*****
+
+####  恐怖利刃  
+##### 37887#       发表于 2022-10-25 22:43
+
+<img src="https://img.saraba1st.com/forum/202210/25/224318zrargcuma4f1fu43.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B7839642-BFBE-43EC-BD70-A0048F44D2F0.jpeg</strong> (152.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 22:43 上传
+
+*****
+
+####  星野航  
+##### 37888#       发表于 2022-10-25 22:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">silent跟miposhka聊了半天，结论是，蔡宜风一手兽王给他俩直接干住了
+
+以及18手的小狗可以不点那么快，换个别的c估计余地更大点 
+
+*****
+
+####  蛭人  
+##### 37889#       发表于 2022-10-25 22:44
+
+自从看过老北京上一个线下赛的帕克保枪，懂的都懂。
+
+*****
+
+####  nowaki  
+##### 37890#       发表于 2022-10-25 22:45
+
+三号位勤学勤练 也只能把更多英雄都练成一个味
+
+
+
+*****
+
+####  roxas.sora  
+##### 37891#       发表于 2022-10-25 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100508&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-25 22:29</a>
+
+boxi真的可以堪称本届ti的414了，液体这战队的前期节奏硬是靠他一个人给盘活了，把液体这么一支怎么看怎么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">虚假的海民王捞9，绝中绝海民bo**
+
+*****
+
+####  恐怖利刃  
+##### 37892#       发表于 2022-10-25 22:48
+
+<img src="https://img.saraba1st.com/forum/202210/25/224752ocn7ek7jbfkf1dfw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (60.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 22:47 上传
+
+ATF:玩召唤物3的都是猴子
+
+*****
+
+####  星野航  
+##### 37893#       发表于 2022-10-25 22:53
+
+雪碧最后一个vlog只有silent跟miposhka复盘了，没有赛后任何即时反馈
+
+倒是看起来这俩人很平静。说了一些心理上的问题，还是输多了没自信+状态稀烂
+
+下赛季再来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
