@@ -13508,3 +13508,70 @@ jdh后来转5了，ehome为了把wings双雄拉来把他vote了，本来ehome那
 脑11不是3月份去老干鳖救火的吗，西北汉子确实在那个ehome赖了很久才被邪恶35踢掉 ...</blockquote>
 你记错了吧这两人16年年末赛垃圾狼人杀事件之后就被71转为替补了，比赛是sen和jdh还是谁代打，后来爆出来 还引发一场关于ehome菠菜的事
 
+
+
+*****
+
+####  roxas.sora  
+##### 37482#       发表于 2022-10-25 17:05
+
+<img src="https://img.nga.178.com/attachments/mon_202210/25/8xQjme-hx5K2jT1kSei-sg.jpg" referrerpolicy="no-referrer">
+
+前20唯一没有冠军的。。。。<img src="https://img.nga.178.com/attachments/mon_202210/25/8xQjme-hx5K2jT1kSei-sg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 37483#       发表于 2022-10-25 17:07
+
+<img src="https://img.nga.178.com/attachments/mon_202210/25/8xQjme-hx5K2jT1kSei-sg.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 37484#       发表于 2022-10-25 17:09
+
+我不是maybe粉，但我我实在是想不明白，为什么会有小超人想要maybe和A畜组队再打的，就算不说后面的清算，ti8和9都坑成什么样子已经忘了吗，就因为老北京打天梯发了句加油A畜？
+
+*****
+
+####  roxas.sora  
+##### 37485#       发表于 2022-10-25 17:09
+
+想发奖金图好像没发出来，前二十就处长没有ti冠军
+
+*****
+
+####  北条早苗  
+##### 37486#       发表于 2022-10-25 17:10
+
+意思是独联体张志成和艹艹两个俄罗斯人联合布查小胖把东京给vote了，蒙古人比乌克兰人还不熟是吧
+
+*****
+
+####  六娃  
+##### 37487#       发表于 2022-10-25 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094856&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 17:01</a>
+
+你记错了吧这两人16年年末赛垃圾狼人杀事件之后就被71转为替补了，比赛是sen和jdh还是谁代打，后来爆出来 ...</blockquote>
+我捋了一下，应该是刘鸡，脑11，张志成，小爱一起被替补的，然后找来的CTY打1 sen打3 罗导打4 jdh打5
+
+后面四月份张志成又出来打比赛了，直到邪恶35入队才被踢掉
+
+整个ti7赛季ehome没有换人的只有一个王志勇
+
+*****
+
+####  反方向的波  
+##### 37488#       发表于 2022-10-25 17:12
+
+荠茖莥芘
+
+*****
+
+####  walfeds  
+##### 37489#       发表于 2022-10-25 17:13
+
+喜欢藕断丝连那就赶紧合体回lxo，我正好一起喷
+
