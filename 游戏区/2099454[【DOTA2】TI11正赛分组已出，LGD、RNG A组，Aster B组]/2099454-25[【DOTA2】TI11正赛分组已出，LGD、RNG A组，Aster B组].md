@@ -11956,3 +11956,177 @@ https://www.bilibili.com/video/BV1ne4y1777D
 
 有位群友在新加坡动物园碰到崩溃和鸭头肉了
 
+
+
+*****
+
+####  nowaki  
+##### 37310#       发表于 2022-10-25 15:44
+
+ana xxs bbk这几个人关系这么好，要是当初ana留下来，后面也被鳖鳖挖去茶队，这三人组的上限有点高
+
+只可惜，没有如果
+
+*****
+
+####  resorry  
+##### 37311#       发表于 2022-10-25 15:45
+
+ 本帖最后由 resorry 于 2022-10-25 15:46 编辑 
+
+鳖，我对皮套人本身可没有任何兴趣，除了复读外我可卜提管人
+
+ana  xxs  bbk这三个比，什么中单能TM玩啊，中国普森？
+
+*****
+
+####  nightmare902015  
+##### 37312#       发表于 2022-10-25 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093288&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-25 15:42</a>
+有位群友在新加坡动物园碰到崩溃和鸭头肉了</blockquote>
+这是去猴山选队友吗。
+
+*****
+
+####  你维阿管不到我  
+##### 37313#       发表于 2022-10-25 15:45
+
+不就是戏精吗。一天天的各种发言给自己加戏，表演欲望真的重。
+
+*****
+
+####  迷途lite  
+##### 37314#       发表于 2022-10-25 15:46
+
+当然是ori啊，不然呢
+
+*****
+
+####  六娃  
+##### 37315#       发表于 2022-10-25 15:46
+
+皮套狗是这样的，跟集美一样滚刀肉
+
+*****
+
+####  强袭型抹布  
+##### 37316#       发表于 2022-10-25 15:47
+
+话说有人科普一下为啥普森离队了？
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 37317#       发表于 2022-10-25 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093314&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 15:44</a>
+ana xxs bbk这几个人关系这么好，要是当初ana留下来，后面也被鳖鳖挖去茶队，这三人组的上限有点高
+
+只可惜 ...</blockquote>
+cn没有同时能 愿意吃厨子做的翔 会和志标桑一起打野 和小林一起二次元嘤嘤嘤的 5
+
+*****
+
+####  哈曼的YY  
+##### 37318#       发表于 2022-10-25 15:48
+
+#雪碧一三密会
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  六娃  
+##### 37319#       发表于 2022-10-25 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093368&amp;ptid=2099454" target="_blank">强袭型抹布 发表于 2022-10-25 15:47</a>
+
+话说有人科普一下为啥普森离队了？
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+普森没有离队啊，他还是OG的inactive状态
+
+*****
+
+####  迷途lite  
+##### 37320#       发表于 2022-10-25 15:49
+
+突然想起来个事情
+冠嫖飞鸟厨也就罢了，其实我一直特别好奇小学生的日本名字怎么来的，因为跟冠嫖绑定太死了？
+隐约记得之前还有个采访林靖自己说的不太喜欢樱花兄弟这种说法
+
+
+
+*****
+
+####  六娃  
+##### 37321#       发表于 2022-10-25 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093395&amp;ptid=2099454" target="_blank">迷途lite 发表于 2022-10-25 15:49</a>
+
+突然想起来个事情
+
+冠嫖飞鸟厨也就罢了，其实我一直特别好奇小学生的日本名字怎么来的，因为跟冠嫖绑定太死 ...</blockquote>
+以前林靖微博天天发傻卵二次元
+
+*****
+
+####  迷途lite  
+##### 37322#       发表于 2022-10-25 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093407&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-25 15:49</a>
+以前林靖微博天天发傻卵二次元</blockquote>
+原来如此
+
+*****
+
+####  resorry  
+##### 37323#       发表于 2022-10-25 15:50
+
+ 本帖最后由 resorry 于 2022-10-25 15:51 编辑 
+
+小林靖三郎头像、动态、游戏ID全是傻卵二次元，反而野王除了飞鸟的梗看不到很多二次元元素，野王的微博和游戏ID味道很像普通键政水友，都是什么“一切责任在夜魇”什么的
+
+*****
+
+####  masterffzhou  
+##### 37324#       发表于 2022-10-25 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093245&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 15:40</a>
+
+玩臭酱油在破雾位挂机的时候总是要听点什么的，以前听黄油歌单现在听完美管人唱歌，可能后面的更心理健康一 ...</blockquote>
+月牙湾那首真不错
+
+*****
+
+####  憧憬鲨  
+##### 37325#       发表于 2022-10-25 15:50
+
+林靖单纯想和过去喜欢二次元的自己切割而已
+
+*****
+
+####  yyf奇遇记  
+##### 37326#       发表于 2022-10-25 15:51
+
+清茶的ponlo离队了
+
+*****
+
+####  morwhipppo  
+##### 37327#       发表于 2022-10-25 15:52
+
+ori天梯这两天8把就赢了一把，但是有个好消息，对面几乎每把有xxs，把ori给吸干了
+
+*****
+
+####  zhliiiii  
+##### 37328#       发表于 2022-10-25 15:52
+
+<img src="https://wx1.sinaimg.cn/mw2000/c040db3dgy1h7hl07lkm3j22c0340b2b.jpg" referrerpolicy="no-referrer">
+
+<img src="https://wx2.sinaimg.cn/mw2000/c040db3dgy1h7hl3g3tujj20v90qognp.jpg" referrerpolicy="no-referrer">
+

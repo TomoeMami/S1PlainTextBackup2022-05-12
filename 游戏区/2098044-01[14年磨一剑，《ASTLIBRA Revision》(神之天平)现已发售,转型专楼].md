@@ -10564,3 +10564,15 @@ ns版本什么时候上
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  pf67  
+##### 969#       发表于 2022-10-25 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088639&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-25 10:24</a>
+
+被雪山那双子boss给整麻了</blockquote>
+引到地图一边打，用盾反然后凭依，如果两个一起过来就盾冲到另一边
+

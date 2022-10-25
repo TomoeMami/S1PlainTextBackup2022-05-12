@@ -4010,3 +4010,15 @@ ok
 
 这游戏研发一下如何达成放置过关还是有必要的
 
+
+
+*****
+
+####  415452356  
+##### 377#       发表于 2022-10-25 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089879&amp;ptid=2052594" target="_blank">椎名mahuyo 发表于 2022-10-25 11:29</a>
+
+解锁西格玛女皇以后完全没动力玩了，有种神功大成的感觉，去哪儿都没有刺激感了 ...</blockquote>
+  西格玛女王不就是证明你已经可以删游戏的标志吗
+
