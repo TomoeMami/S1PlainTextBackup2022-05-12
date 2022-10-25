@@ -10615,3 +10615,15 @@ ns版本什么时候上
 
 草，这后面的竞技场是有病吗光堆怪，狗男女这两个人的技能组太tm难打了。
 
+
+
+*****
+
+####  jy000129  
+##### 973#       发表于 2022-10-25 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58097882&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-25 20:00</a>
+
+草，这后面的竞技场是有病吗光堆怪，狗男女这两个人的技能组太tm难打了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">后面还有更有病的，比如勇者队+男女主+大贤者组团，大贤者还自带禁魔
+

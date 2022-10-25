@@ -10932,3 +10932,20 @@ S1抽风的时候也能备用
 
 今年的直播窗还算少了，去年6个组加上miko一共7个窗每个窗还都是嗡嗡嗡，真地狱
 
+
+
+*****
+
+####  rs5621  
+##### 2543#       发表于 2022-10-25 20:15
+
+<img src="https://img.saraba1st.com/forum/202210/25/201548nz5pr44prr5n5m8r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (61.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 20:15 上传
+
+不倒翁？
+
