@@ -2796,3 +2796,17 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  alucardcz  
+##### 3245#       发表于 2022-10-25 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088732&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-10-25 10:29</a>
+
+苹果也有礼品卡啊（
+
+虽说好像不久之前爆雷出了一堆黑卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几天苹果礼品卡几乎全不存在了 
+
