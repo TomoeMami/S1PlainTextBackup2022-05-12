@@ -13130,3 +13130,22 @@ nagi的ins直播时间
 
 3rd白嫖，我反正不花一分钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8689#       发表于 2022-10-25 16:22
+
+我挺好奇3rd的歌怎么分的，为了安抚某没有c位的元老和某连续挂机的会长的粉丝，4个二期生3个都没给c位，这下你们可没理由卖惨只有你推看不到荧光海了吧？它们真的，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  adw667  
+##### 8690#       发表于 2022-10-25 16:28
+
+烂梗
+大香妈
+
