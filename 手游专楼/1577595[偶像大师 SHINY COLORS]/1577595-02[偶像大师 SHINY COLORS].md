@@ -17,3 +17,18 @@ TL看到的PW08的解释。
 
 最少也能感觉到是在提示シーズ剧情落脚点应该比最初组合介绍的1000カラット更加坚实。
 
+
+
+*****
+
+####  supergilaboy  
+##### 2673#       发表于 2022-10-25 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58017224&amp;ptid=1577595" target="_blank">lhawp 发表于 2022-10-21 03:40</a>
+这个上方修正真是绝了，空青可以荣登有史以来最保值的卡了吧
+
+以及让我们重温一下高山过去的发言</blockquote>
+什么情况，我能拿出我的第一张满凸真乃限定去打gfes了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from OPPO CPH2173, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

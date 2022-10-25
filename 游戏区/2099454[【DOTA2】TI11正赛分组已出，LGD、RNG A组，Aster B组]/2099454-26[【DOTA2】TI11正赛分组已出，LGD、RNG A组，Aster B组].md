@@ -197,3 +197,233 @@ Ponlo这篇自述挺有意思的，清茶还是太年轻了
 
 RNG建立刀2分部相当于把干瘪的后备挖断了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jk9hot  
+##### 37524#       发表于 2022-10-25 17:33
+
+东南亚找出五个只说中文在国内近4年内打比赛的选手不是随便组出来
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yyf奇遇记  
+##### 37525#       发表于 2022-10-25 17:34
+
+妖精也是被俱乐部玩没了的选手之一， 老vkun应该都还知道杨浦强这个名字吧
+
+*****
+
+####  yyf奇遇记  
+##### 37526#       发表于 2022-10-25 17:35
+
+其实这么看下来，中国区卜是没有好苗子好选手，太多天才少年被俱乐部卡合同卡队伍  
+
+卜说了，支持g胖狠狠地拷打俱乐部
+
+*****
+
+####  zsu222  
+##### 37527#       发表于 2022-10-25 17:35
+
+杨浦ti7赛季下滑的太厉害，几次和ig争门票的局发挥都一言难尽
+
+*****
+
+####  nowaki  
+##### 37528#       发表于 2022-10-25 17:36
+
+谢彬是要感谢赛垃圾的，没赛垃圾他连进ob的资格都没，早上下棋都没得下。
+
+很难想象塞拉要拖着 yao 面八 dd ddc打两届ti
+
+*****
+
+####  roxas.sora  
+##### 37529#       发表于 2022-10-25 17:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">赛垃圾只有一个亚军还是很可惜的，但纵观他的生涯，ti2和ti4两次算是机会最大的吧，ti4的配置讲真已经是尽力了，之后遇到的是不成熟的maybe，畜生表现的cty，后来颠沛流离，和nts一起可能是最后的机会，也因为自己实在是状态太差被队友嫌弃踢了换成处长
+
+*****
+
+####  seki_m  
+##### 37530#       发表于 2022-10-25 17:37
+
+nts吊是吊，ti支棱不起来等于0
+
+
+
+*****
+
+####  哈曼的YY  
+##### 37531#       发表于 2022-10-25 17:37
+
+老东京上个MAJOR决赛开启樱花模式选出无人问津的女王暴打老干鳖，彻底打碎集美假赛狗的硬实力说鳖壳，我对他只剩下尊重与感谢
+
+*****
+
+####  蛭人  
+##### 37532#       发表于 2022-10-25 17:38
+
+妖精是真的牛逼，黄金年龄给葬送了大半，可能这就是哑巴选手的宿命，任人宰割。
+
+*****
+
+####  zhrs456  
+##### 37533#       发表于 2022-10-25 17:38
+
+妖精当时说是给谁当“替补"来着？豪？
+
+*****
+
+####  adretyu67  
+##### 37534#       发表于 2022-10-25 17:38
+
+去年ti猴爹够支棱了，打不过ni公子不丢人。
+
+就这样被青蒜的时候还要说他s水刀打假赛。
+
+*****
+
+####  zsu222  
+##### 37535#       发表于 2022-10-25 17:38
+
+给老鳖
+
+*****
+
+####  yyf奇遇记  
+##### 37536#       发表于 2022-10-25 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095585&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-25 17:38</a>
+
+妖精当时说是给谁当“替补"来着？豪？</blockquote>
+徐志雷背后看了半年多
+
+*****
+
+####  roxas.sora  
+##### 37537#       发表于 2022-10-25 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095534&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 17:36</a>
+
+谢彬是要感谢赛垃圾的，没赛垃圾他连进ob的资格都没，早上下棋都没得下。
+
+很难想象塞拉要拖着 yao 面八 dd  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你这串名单报出来现在看也太吓人了
+
+*****
+
+####  哈萨维·诺亚  
+##### 37538#       发表于 2022-10-25 17:39
+
+说s水刀打假赛的分数不超过2000
+
+*****
+
+####  adretyu67  
+##### 37539#       发表于 2022-10-25 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095585&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-25 17:38</a>
+
+妖精当时说是给谁当“替补"来着？豪？</blockquote>
+鳖
+
+*****
+
+####  nowaki  
+##### 37540#       发表于 2022-10-25 17:39
+
+塞拉的职业生涯就是被burden折磨的一生，当他ti10预选在肉山坑里捡不起盾的时候，相信他也发现自己也是个burden了。
+
+*****
+
+####  zhrs456  
+##### 37541#       发表于 2022-10-25 17:39
+
+哦 那就是TI6了 
+
+*****
+
+####  yyf奇遇记  
+##### 37542#       发表于 2022-10-25 17:40
+
+当时ehome不选妖精选了cty也是瞎了眼，让rotk带着妖精回了vg
+
+*****
+
+####  jk9hot  
+##### 37543#       发表于 2022-10-25 17:40
+
+nts还不够雄吗？整个ti10
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yyf奇遇记  
+##### 37544#       发表于 2022-10-25 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095615&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-25 17:39</a>
+
+哦 那就是TI6了</blockquote>
+卜是，是15年9月到16年2月 
+
+*****
+
+####  walfeds  
+##### 37545#       发表于 2022-10-25 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095444&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-25 17:30</a>
+
+https://nga.178.com/read.php?tid=34005147
+
+Ponlo这篇自述挺有意思的，清茶还是太年轻了 ...</blockquote>
+taiga谜团真的可以的，所以这届ti没见taiga拿过谜团我就很蛋疼
+
+ponlo哥这么实诚不给人留面子以后道上难混啊。不过自己也说了作为dota职业选手，在公众场合谈论这些事情对自己的职业生涯没什么好处。
+
+*****
+
+####  zsu222  
+##### 37546#       发表于 2022-10-25 17:41
+
+当时畅想的是妖精1 cty2这个组合
+
+*****
+
+####  roxas.sora  
+##### 37547#       发表于 2022-10-25 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095609&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 17:39</a>
+
+塞拉的职业生涯就是被burden折磨的一生，当他ti10预选在肉山坑里捡不起盾的时候，相信他也发现自己也是个bu ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">他算是没有辜负自己的天赋和能力，打出了自己的上限水平，奈何选队友的能力不行啊
+
+*****
+
+####  IG.430  
+##### 37548#       发表于 2022-10-25 17:41
+
+骆非池讲过无数遍电棍血魔是cty的倾力推荐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 37549#       发表于 2022-10-25 17:41
+
+带着4个burden差点赢了全盛ig非常吓人，所以我说刘鸡是唯一一个当届表现最好却没有拿冠军的C
+
+*****
+
+####  adretyu67  
+##### 37550#       发表于 2022-10-25 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095597&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-25 17:39</a>
+
+你这串名单报出来现在看也太吓人了</blockquote>
+下面三熊弟战术都几年了，干瘪就是这么个奇葩的队伍
+
