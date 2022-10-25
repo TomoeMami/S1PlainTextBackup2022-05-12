@@ -13452,3 +13452,14 @@ in3首周实体盘14547，这张塞啥了
 
 twi：@nimuyaah
 
+
+
+*****
+
+####  player3960  
+##### 8719#       发表于 2022-10-25 22:05
+
+上映会不是都结束了吗？有消息12话还要单开一个上映会？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

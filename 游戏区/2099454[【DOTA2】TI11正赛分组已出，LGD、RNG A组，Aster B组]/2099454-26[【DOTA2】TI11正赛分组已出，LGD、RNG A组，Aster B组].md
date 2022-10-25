@@ -2997,3 +2997,127 @@ atf骂别人猴的时候，他的脑回路显然还没运转到，他所在的�
 
 看了一天的老B回忆录环节，真有种这是最后一届TI的感觉了，再多来点，争取把气氛渲染到周五
 
+
+
+*****
+
+####  百世诸侯  
+##### 37835#       发表于 2022-10-25 22:02
+
+https://ngabbs.com/read.php?tid=34006106
+
+点击看太监打滚
+
+*****
+
+####  六娃  
+##### 37836#       发表于 2022-10-25 22:02
+
+sumail是一个被西方职业圈宠坏的孩子，所以他可以一直活在2015年，用自己最舒适的方式打dota，因为别人都会来迁就他
+
+*****
+
+####  jk9hot  
+##### 37837#       发表于 2022-10-25 22:03
+
+明天就该回退到d1了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  六娃  
+##### 37838#       发表于 2022-10-25 22:04
+
+不管是去og secret还是nigma，sumail都是得到了盛大的礼遇
+
+*****
+
+####  yyf奇遇记  
+##### 37839#       发表于 2022-10-25 22:04
+
+不是所有人都愿意当绿叶的
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  非建政专用号  
+##### 37840#       发表于 2022-10-25 22:06
+
+后天聊war3地图，大后天聊sky，最后完美接盘后两轮比赛
+
+*****
+
+####  roxas.sora  
+##### 37841#       发表于 2022-10-25 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">他和rtz的合作只能说双方都不是最适合对方的，可惜了，他和厅长的英雄池倒是互补的，虽然我觉得打2的厅长才是最强形态，去打1号位是浪费天赋，ngm最大的问题是没有两个厅长可以用
+
+*****
+
+####  JoelBirch  
+##### 37842#       发表于 2022-10-25 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099931&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 21:58</a>
+
+当时谁写了个写了个官渡之战ame 是淳于琼 德张是张颌
+
+论坛助手,iPad</blockquote>
+这样啊，我还以为是“文爱丑逼胖子”的简称<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 37843#       发表于 2022-10-25 22:07
+
+一个中单被打的不敢去中路对线了，也就别谈什么中路天赋了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Litccc  
+##### 37844#       发表于 2022-10-25 22:08
+
+核弹生存力还是强，还以为去年集美大水过后假赛论坛已经没有核核了，没想到现在隐隐有股反扑的趋势
+
+*****
+
+####  lyjssj  
+##### 37845#       发表于 2022-10-25 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正周五是小作文时间，写在阿茶受难的前一天
+
+*****
+
+####  JoelBirch  
+##### 37846#       发表于 2022-10-25 22:10
+
+不过有一说一，张睿达这光速跑路有点意思，居然也不和这几个逼队友一块儿在坡上浪几天，看来是润德之心切矣，感觉真有些内绪，楼友的发散不会是真的叭
+
+*****
+
+####  六娃  
+##### 37847#       发表于 2022-10-25 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100070&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-25 22:06</a>
+后天聊war3地图，大后天聊sky，最后完美接盘后两轮比赛</blockquote>
+我可以一直聊到郭斌，苏昊和孟阳
+
+*****
+
+####  jk9hot  
+##### 37848#       发表于 2022-10-25 22:11
+
+甚至还有一股集美前身是核核的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蛭人  
+##### 37849#       发表于 2022-10-25 22:11
+
+一个中单被打的不敢去中路对线了，也就别谈什么中路天赋了
+
