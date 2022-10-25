@@ -10643,3 +10643,34 @@ ns版本什么时候上
 
 被第六章的飞船折磨疯了
 
+
+
+*****
+
+####  黒長直姫  
+##### 976#       发表于 2022-10-25 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099047&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-25 21:12</a>
+
+有啥效率刷砂糖的地方吗，第八章糖的缺口也忒大了</blockquote>
+商店买果酱面包分解最优解
+
+实在不想花钱可以在研究所中层水晶来回砍盆栽
+
+*****
+
+####  manyin1  
+##### 977#       发表于 2022-10-25 21:27
+
+想问下效果时间指的是啥？
+
+*****
+
+####  A1LI  
+##### 978#       发表于 2022-10-25 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099330&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-25 21:27</a>
+
+想问下效果时间指的是啥？</blockquote>
+吃某些药会持续一段时间的药效。
+

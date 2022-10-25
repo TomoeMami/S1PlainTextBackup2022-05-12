@@ -2565,3 +2565,116 @@ A畜因为余韵找皮套坦克的事跟量子鞭吵架，队内教练队友全�
 
 看来小明鞭虽然得到了刀塔之神的垂青，但是VOTE之神对他降下了神罚。
 
+
+
+*****
+
+####  蛭人  
+##### 37788#       发表于 2022-10-25 21:22
+
+而ATF正在天梯喷人。
+
+<img src="https://img.saraba1st.com/forum/202210/25/212226r7pm4rkq4pala2m4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (59.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 21:22 上传
+
+*****
+
+####  六娃  
+##### 37789#       发表于 2022-10-25 21:22
+
+当年无耻的队友拆队有多嚣张，今天像条狗一样被人撵就有多仓皇
+
+*****
+
+####  银翼的维罗西  
+##### 37790#       发表于 2022-10-25 21:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099109&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 21:16</a>
+
+哦牛批，oc都有人吹，还说自己不是直播粉，溜了溜了</blockquote>
+我不看直播啊，偶尔看下也是看下阿鲷直播东南亚天梯，霉憋这两年就跟OC差不多，看成绩不就知道了，说了无数次了，一个中单如果一直一轮游他就是个铁彩笔，什么理由都没用的
+
+*****
+
+####  六娃  
+##### 37791#       发表于 2022-10-25 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099256&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-25 21:23</a>
+我不看直播啊，偶尔看下也是看下阿鲷直播东南亚天梯，霉憋这两年就跟OC差不多，看成绩不就知道了，说了无 ...</blockquote>
+他跟情商有过节，不是说妮
+
+*****
+
+####  蛭人  
+##### 37792#       发表于 2022-10-25 21:24
+
+他跟情商有过节，不是说妮
+
+*****
+
+####  yyf奇遇记  
+##### 37793#       发表于 2022-10-25 21:25
+
+他跟情商有过节，不是说妮
+
+*****
+
+####  王宇旻❤潘婕  
+##### 37794#       发表于 2022-10-25 21:29
+
+<img src="https://img.saraba1st.com/forum/202210/25/212901igtobpa3bnnoabgp.jpg" referrerpolicy="no-referrer">
+
+<strong>3f1816f0e2d544ff.jpg</strong> (108.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 21:29 上传
+
+*****
+
+####  蛭人  
+##### 37795#       发表于 2022-10-25 21:30
+
+不装了？鞭处
+
+*****
+
+####  lyjssj  
+##### 37796#       发表于 2022-10-25 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这帮比也没看出有什么难过的，老了油了不知耻了
+
+*****
+
+####  12481632  
+##### 37797#       发表于 2022-10-25 21:30
+
+oc你上大号说话
+
+*****
+
+####  nowaki  
+##### 37798#       发表于 2022-10-25 21:32
+
+sg p的越来越没意思了
+
+撸狗鞭还是等明年新的三坑了哥哥，才会被想起来23457也是能带哥哥拿major进决赛的，现在的3是什么cjb
+
+*****
+
+####  adretyu67  
+##### 37799#       发表于 2022-10-25 21:32
+
+ 本帖最后由 adretyu67 于 2022-10-25 21:33 编辑 
+
+35如果是无耻的队友再来一遍分道扬镳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+要是量子鞭真的被45背刺过了就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+嘛，挺好的。
+
