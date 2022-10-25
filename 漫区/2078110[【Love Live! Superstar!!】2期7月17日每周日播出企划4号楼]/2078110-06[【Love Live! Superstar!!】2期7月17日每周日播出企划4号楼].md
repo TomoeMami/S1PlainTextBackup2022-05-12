@@ -13065,3 +13065,19 @@ nagi的ins直播时间
 
 我长这么大，第一次听到这么短的歌，笑死了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8682#       发表于 2022-10-25 13:57
+
+不愧是星，总能在ll里搞出点“突破”来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 8683#       发表于 2022-10-25 13:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">endless，指两分半钟
+
