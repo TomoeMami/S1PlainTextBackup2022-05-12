@@ -7361,3 +7361,23 @@ boy真的是可操作角色，没让我失望
 
 预购ing，这作好像没有进PS会员？？？大法怎么想的？？？？？
 
+
+
+*****
+
+####  ff2077  
+##### 799#       发表于 2022-10-25 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087388&amp;ptid=2025548" target="_blank">alecwong 发表于 2022-10-25 08:53</a>
+预购ing，这作好像没有进PS会员？？？大法怎么想的？？？？？</blockquote>
+吉姆叔叔都说了，索尼第一方不会首发进订阅制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ff2077  
+##### 800#       发表于 2022-10-25 09:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087388&amp;ptid=2025548" target="_blank">alecwong 发表于 2022-10-25 08:53</a>
+预购ing，这作好像没有进PS会员？？？大法怎么想的？？？？？</blockquote>
+吉姆叔叔都说了，索尼第一方不会首发进订阅制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

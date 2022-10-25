@@ -12991,3 +12991,15 @@ nagi的ins直播时间
 
 一巡还有外景比赛预热，这次大家都各忙各的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8674#       发表于 2022-10-25 09:03
+
+感觉除了nako的各位一期生都挺忙的。
+而且二期生外景为什么预热这么久？不论如何快点端上来吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
