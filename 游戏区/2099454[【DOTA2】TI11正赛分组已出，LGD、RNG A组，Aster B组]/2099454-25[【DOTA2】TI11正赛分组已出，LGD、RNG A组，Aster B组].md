@@ -9222,3 +9222,138 @@ p9膏光时刻1：
 
 集美和詹吹越来越像了 比赛是不看的 看一眼数据就来吹逼
 
+
+
+*****
+
+####  樱冢名月  
+##### 37013#       发表于 2022-10-25 09:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">看到有人说曼巴菜的，早饭我都呕出来了
+
+*****
+
+####  勤练带来力量  
+##### 37014#       发表于 2022-10-25 09:53
+
+很简单的道理啊，集美们现在都统一口径这版本就是23号位的版本，四强的carry就没一个比哥哥厉害的
+那可不就只能吹批9和33，反正skiter是绝对不可能比哥哥打得好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  usoda  
+##### 37015#       发表于 2022-10-25 09:54
+
+不看好拳酱 这哥们越到关键局越会给自己上强度 ni公子也顶不住 倒是鹏子能再干一次桶哥的话说不定能创造历史<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 37016#       发表于 2022-10-25 09:55
+
+tundra 也是ta 没毛病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Yugao  
+##### 37017#       发表于 2022-10-25 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在看来杜鹏好像是茶最稳定的那一个
+
+*****
+
+####  walfeds  
+##### 37018#       发表于 2022-10-25 09:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">信我，桶哥鹏子挑一个举盾
+
+*****
+
+####  roxas.sora  
+##### 37019#       发表于 2022-10-25 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088049&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-25 09:53</a>
+
+很简单的道理啊，集美们现在都统一口径这版本就是23号位的版本，四强的carry就没一个比哥哥厉害的
+
+那可不就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">skiter那个混沌配得上41混沌的赞美，打的很赏心悦目，处长这次还没有什么表演吧，斯温a地板不能算的
+
+*****
+
+####  bluebaby  
+##### 37020#       发表于 2022-10-25 09:57
+
+桶基本没机会吧，zai犯病的概率和要命指数远大于ppy
+
+
+
+*****
+
+####  没钱买手办  
+##### 37021#       发表于 2022-10-25 09:58
+
+没办法，B组有TSM TS 两个TA ，石头人和talon也是T开头，秘密也是TS，不怪漏油分不清好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 37022#       发表于 2022-10-25 09:58
+
+茶被秘密2：0吧，尼公子可比nts硬啊
+
+*****
+
+####  roxas.sora  
+##### 37023#       发表于 2022-10-25 09:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">zai和桶不犯病靠米奇c也是有机会的，就看桶打ta用光dota之神的庇护没
+
+*****
+
+####  maju3  
+##### 37024#       发表于 2022-10-25 09:59
+
+那个玩a帐水人不变血魔盯着老鹿变的兄弟还是算了吧
+
+*****
+
+####  iriyano  
+##### 37025#       发表于 2022-10-25 09:59
+
+马桶淘汰赛表现感觉不如鹏子
+
+*****
+
+####  nowaki  
+##### 37026#       发表于 2022-10-25 10:00
+
+要不是处长绝活sa犯病出装，鹏子今天已经在女装流泪了。
+
+很难想象4赵云把小黑莉娜抓烂了，大哥sa在出bkb冰眼刮痧。
+
+*****
+
+####  guojiaoqi  
+##### 37027#       发表于 2022-10-25 10:00
+
+zai和桶哥同时不犯病的概率我觉得挺低的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 37028#       发表于 2022-10-25 10:01
+
+<img src="https://img.saraba1st.com/forum/202210/25/100103fjt1zd5dtcberbtb.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-10-25-10-00-34-757-edit_gov.pianzong.androidnga.jpg</strong> (73.32 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-25 10:01 上传
+
+哥们没太看懂，这又是什么新吹法？
+

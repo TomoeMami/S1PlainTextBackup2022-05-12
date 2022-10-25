@@ -2775,3 +2775,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 突然想氪点金抽抽卡，发现淘宝的礼品卡都无了，什么时候开始的</blockquote>
 因为现在不能用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新吾  
+##### 3243#       发表于 2022-10-25 09:54
+
+礼品卡锁区后基本没人卖了吧
+
