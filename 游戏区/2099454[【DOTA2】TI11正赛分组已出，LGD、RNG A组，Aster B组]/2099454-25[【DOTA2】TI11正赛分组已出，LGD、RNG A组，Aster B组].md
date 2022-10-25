@@ -11208,3 +11208,49 @@ https://www.bilibili.com/video/BV1bG4y1W7HB
 
 刚打完一把看看首页局 就看到鹏子的虚空疯狂犯罪 还是ame式的那种
 
+
+
+*****
+
+####  百世诸侯  
+##### 37231#       发表于 2022-10-25 14:18
+
+<img src="https://img.saraba1st.com/forum/202210/25/141850zks5skscccs353cv.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-10-25-14-18-09-999-edit_gov.pianzong.androidnga.jpg</strong> (148.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-25 14:18 上传
+
+*****
+
+####  星野航  
+##### 37232#       发表于 2022-10-25 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58091692&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-25 15:07</a>
+
+关注久远千岁喵
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那咋也得是关注dustcell的ema小姐
+
+*****
+
+####  这你都能忍  
+##### 37233#       发表于 2022-10-25 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088684&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 10:26</a>
+
+集美清算文爱胖子回家局小小：这小小丢tb，居然不往竞技场外面的船长身上丢，丢在竞技场里面的老奶奶身上， ...</blockquote>
+最后一波跳进马尔斯大想把船长扔回来然后船长纹丝不动 这操作我怀疑赵公子一样不知道有这回事
+
+*****
+
+####  星野航  
+##### 37234#       发表于 2022-10-25 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58091840&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-25 15:18</a></blockquote>
+然后让og收下三冠成为dota2世界唯一，这什么罕见思路
+
