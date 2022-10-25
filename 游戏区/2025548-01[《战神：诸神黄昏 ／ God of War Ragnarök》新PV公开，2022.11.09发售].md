@@ -7676,3 +7676,17 @@ boy真的是可操作角色，没让我失望
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个过路的  
+##### 824#       发表于 2022-10-26 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58101204&amp;ptid=2025548" target="_blank">415452356 发表于 2022-10-25 23:11</a>
+
+不知道具体和黄圈的区别是啥
+
+—— 来自 S1Fun</blockquote>
+这个蓝圈不是敌人被击中时候出现的，这个片段里是敌人在出招，奎秃斯在闲庭信步。这应该跟前作黄圈红圈一样是攻击类型应对警示，不知道是新的应对手段，还是辅助选项里把颜色换了。
+
