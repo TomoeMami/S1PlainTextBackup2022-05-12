@@ -3946,3 +3946,22 @@ ok
 
 我是目前一直用的第二个女魔法师，法杖虽然一般但是她升级比较快。。。我昨天终于用她过了第二个图的30分钟。。。
 
+
+
+*****
+
+####  藤井紫  
+##### 373#       发表于 2022-10-25 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087231&amp;ptid=2052594" target="_blank">史莱姆KING 发表于 2022-10-25 08:33</a>
+我自己倒是不太喜欢默认的辫子哥
+
+他那初始辫子速度太慢而且范围只有那么一小点</blockquote>
+你用蒜头佬可以更省心地2图刷
+起手直接往左跑到白书下面，武器魔杖，圣水，圣经
+要是在10分钟前魔杖满级可以直接白书合超武
+圣经超武出来就可以直接右跑到石面具
+之后就可以挂机了（除了25分的霸体boss
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

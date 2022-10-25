@@ -8994,3 +8994,59 @@ ti1的ehome
 
 批九论躺，确实是独一挡
 
+
+
+*****
+
+####  walfeds  
+##### 36987#       发表于 2022-10-25 09:10
+
+批九确实独一档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 36988#       发表于 2022-10-25 09:15
+
+9独一档<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 36989#       发表于 2022-10-25 09:15
+
+贴吧和超级集美论坛甚至有些qq群的群友都在说捞9是石头人大腿，还不止看到一次，把我震惊的够呛
+
+*****
+
+####  没钱买手办  
+##### 36990#       发表于 2022-10-25 09:19
+
+焦比到底什么梗
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  tengshuo980  
+##### 36991#       发表于 2022-10-25 09:19
+
+一来就错过大包，玉玉了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tengshuo980  
+##### 36992#       发表于 2022-10-25 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087616&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-25 09:19</a>
+焦比到底什么梗
+
+—— 来自 Xiaomi 21121210C, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+科比&gt;飞机失事&gt;糊了&gt;焦比
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
