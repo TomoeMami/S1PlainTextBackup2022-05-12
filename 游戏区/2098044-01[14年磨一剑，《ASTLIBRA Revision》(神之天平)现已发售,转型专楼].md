@@ -10738,3 +10738,16 @@ ns版本什么时候上
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 985#       发表于 2022-10-25 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099330&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-25 21:27</a>
+想问下效果时间指的是啥？</blockquote>
+还有凭依技的buff时长
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

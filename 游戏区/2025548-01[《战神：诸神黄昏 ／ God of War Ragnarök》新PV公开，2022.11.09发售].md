@@ -7648,3 +7648,31 @@ boy真的是可操作角色，没让我失望
 
 很喜欢他们把敌人设计比作设计棋子，符合我对一个有策略的战斗系统的理解
 
+
+
+*****
+
+####  415452356  
+##### 822#       发表于 2022-10-25 23:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">儿子的新近战动作只能说虎父无犬子啊，出身于北欧的斯巴达弓兵
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  415452356  
+##### 823#       发表于 2022-10-25 23:36
+
+<img src="https://img.saraba1st.com/forum/202210/25/233452y2gszizhsmmtf2pe.jpg" referrerpolicy="no-referrer">
+
+<strong>DABD8A93-7B47-46E8-B517-ACAAD96A8BC2.jpg</strong> (266.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 23:34 上传
+
+还在想起身的时候怎么处理堵在上面的敌人，这就看到了攀上去之后的派生攻击还带绊倒，感觉他们已经摸到日式act对于敌人硬直处理的门道了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

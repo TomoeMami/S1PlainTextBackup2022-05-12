@@ -3822,3 +3822,96 @@ gpk确实发大力了 没他vp进ti了
 我思考了一下上一个像gpk这么毒瘤的2，一下子竟然没想起来
 不会是陈天宇吧
 
+
+
+*****
+
+####  莉拉厨  
+##### 37929#       发表于 2022-10-25 23:31
+
+gpk纯纯的超低配emo，撸狗跟着13混了个major冠军，在刀史上罕有的让二追三决赛中留下了自己的名字，gpk毛成绩打不出来就知道狂
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  勤练带来力量  
+##### 37930#       发表于 2022-10-25 23:31
+
+经典匿名，24不行也都是3全锅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/8/c91cc5bc40e335f52d377acff18f36ff/CMP_20221025233129682.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 37931#       发表于 2022-10-25 23:31
+
+666也是个不可多得的人才，很难想象回家局抱着个b露娜在那刮痧。
+
+*****
+
+####  nowaki  
+##### 37932#       发表于 2022-10-25 23:33
+
+哦牛批 陈志豪就nm说一句lgd训练赛总输，能写出这么多字来
+
+*****
+
+####  一品堂官  
+##### 37933#       发表于 2022-10-25 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58101176&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 23:10</a>
+
+a黑果然人均夜宴，连中国话都听不懂，88了小黑子们</blockquote>
+88 记得回来发红包<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 37934#       发表于 2022-10-25 23:34
+
+666毕竟也是典中典，411有三个，牙托落、处长和我，就这哥们还好意思学88burden。
+
+*****
+
+####  恐怖利刃  
+##### 37935#       发表于 2022-10-25 23:35
+
+<img src="https://img.saraba1st.com/forum/202210/25/233513y1bhbblhq1bphu20.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AC01FD2D-8CCD-4F74-8960-6F2B601D01CE.jpeg</strong> (330.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 23:35 上传
+
+还笑，恬不知耻！
+
+*****
+
+####  勤练带来力量  
+##### 37936#       发表于 2022-10-25 23:37
+
+放在去年这不得是假赛铁证据，吃饱饱笑开花
+
+*****
+
+####  nowaki  
+##### 37937#       发表于 2022-10-25 23:38
+
+还红包？给你发白包，臭黑子
+
+*****
+
+####  六娃  
+##### 37938#       发表于 2022-10-25 23:41
+
+gpk对线能力至少是职业上流，其他方面差不多，撸狗还是过于晦气了
+
+*****
+
+####  超法拉  
+##### 37939#       发表于 2022-10-25 23:42
+
+说到核核，今天上线翻了下库存发现我就买过个dk战旗，这下铁核核了
+战旗啥时候不搞了来着，是不是把挂掉落砍掉那时候开始
+
