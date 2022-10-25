@@ -3712,3 +3712,113 @@ OG有misha就不可能会好起来，加上ATF这个比装自己最屌，不学�
 <img src="https://p.sda1.dev/8/50ebfb8dbecd113912e68c4f4aca4350/1666711234943.jpg" referrerpolicy="no-referrer">
 为什么量子鞭总能碰到觉得自己女友耽误事的队友
 
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 37916#       发表于 2022-10-25 23:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100150&amp;ptid=2099454" target="_blank">JoelBirch 发表于 2022-10-25 22:10</a>
+不过有一说一，张睿达这光速跑路有点意思，居然也不和这几个逼队友一块儿在坡上浪几天，看来是润德之心切矣 ...</blockquote>
+女朋友假期不够了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 37917#       发表于 2022-10-25 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">ceb和没尾巴这个刀塔教父居然治不了队里这几个小年轻，atf这不学不练他们是怎么忍下来的
+
+*****
+
+####  古代人皮克  
+##### 37918#       发表于 2022-10-25 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪碧这种纯年轻人队伍中了ti诅咒才是正常的啊，看好崩溃润去欧洲好吧
+
+*****
+
+####  蛭人  
+##### 37919#       发表于 2022-10-25 23:23
+
+二冰已经上升到谈恋爱影响打职业的程度了，望周知。
+
+*****
+
+####  nowaki  
+##### 37920#       发表于 2022-10-25 23:23
+
+哥们外卡在打的时候就钦点了外卡出来的队进决赛日了，小组赛快打完的时候还点了一首b4夺冠，本以为b4是ta想着打脸就不提了，刚刚一看b4是茶
+
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 37921#       发表于 2022-10-25 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100578&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 22:33</a>
+李斯在国内还是能欺负欺负人的 毕竟预选赛对手是脑十一，ti在a组互啄就算了吧 ...</blockquote>
+欺负油面也算么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 37922#       发表于 2022-10-25 23:25
+
+因为队名义上是mi酱组的，没尾巴和独眼龙只是管理层甚至连教练都不算，国外也不兴下面八这种话语权大的教练，不好越俎代庖，除非自己带队打
+所以独眼龙带队打的斯德哥尔摩major，atf的bp就很老实
+
+*****
+
+####  勤练带来力量  
+##### 37923#       发表于 2022-10-25 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100809&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-25 22:48</a>
+ATF:玩召唤物3的都是猴子</blockquote>
+33要是拿个前二不得把atf嘴都气歪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 37924#       发表于 2022-10-25 23:27
+
+查猪在国内还是一手痔将把xg这五个人凑不出一个脑子的队爆了的，ti羊都羊了没啥好聊的，major那个毒瘤3版本是真的现眼
+
+*****
+
+####  战狼PTSD  
+##### 37925#       发表于 2022-10-25 23:27
+
+别几把聊这种没结果的东西了
+
+我宁愿看点八卦
+
+来点坦克图
+<img src="https://img.nga.178.com/attachments/mon_202210/25/8xQjmf-gf7K1gT1kShs-13i.jpg" referrerpolicy="no-referrer"> 
+[https://nga.178.com/read.php?tid=34009205](https://nga.178.com/read.php?tid=34009205&amp;page=2) 润德神女友同学发的图
+<img src="https://img.nga.178.com/attachments/mon_202210/25/8xQjmf-gf7K1gT1kShs-13i.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 37926#       发表于 2022-10-25 23:28
+
+说到中单，今年GPK是真的搞笑，装逼觉得自己今年ti发大力，结果最后纯真Z进了，自己只配看电视。
+
+*****
+
+####  nowaki  
+##### 37927#       发表于 2022-10-25 23:28
+
+gpk确实发大力了 没他vp进ti了
+
+*****
+
+####  六娃  
+##### 37928#       发表于 2022-10-25 23:30
+
+我思考了一下上一个像gpk这么毒瘤的2，一下子竟然没想起来
+不会是陈天宇吧
+
