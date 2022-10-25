@@ -2810,3 +2810,15 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 虽说好像不久之前爆雷出了一堆黑卡</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几天苹果礼品卡几乎全不存在了 
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3246#       发表于 2022-10-25 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100215&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-25 22:14</a>
+
+这几天苹果礼品卡几乎全不存在了</blockquote>
+看了以前买过的店，就剩一家改了品名还在卖的样子，什么鬼
+
