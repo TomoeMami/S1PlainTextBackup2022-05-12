@@ -10954,3 +10954,50 @@ https://www.bilibili.com/video/BV1bG4y1W7HB
 
 虽然大家都在嘲笑老干鳖和掀背的气氛很融洽 但还是请管人痴滚出去
 
+
+
+*****
+
+####  masterffzhou  
+##### 37202#       发表于 2022-10-25 12:44
+
+卡半天刷出来两个复读。流石傻狗论坛
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  masterffzhou  
+##### 37203#       发表于 2022-10-25 12:44
+
+卡半天刷出来两个复读。流石傻狗论坛
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  masterffzhou  
+##### 37204#       发表于 2022-10-25 12:45
+
+卡半天刷出来两个复读。流石傻狗论坛
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  masterffzhou  
+##### 37205#       发表于 2022-10-25 12:45
+
+卡半天刷出来两个复读。流石傻狗论坛
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  没钱买手办  
+##### 37206#       发表于 2022-10-25 12:52
+
+现在四个了
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

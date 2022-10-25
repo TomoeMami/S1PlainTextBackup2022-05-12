@@ -10483,3 +10483,12 @@ LS至少反白下吧</blockquote>
 还有既然不给存档点，起码你 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人畜无害沃特碧  
+##### 961#       发表于 2022-10-25 12:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">目前玩到第七章，游戏还可以，但是非常怀疑这个数值是不是用脚做的
+
