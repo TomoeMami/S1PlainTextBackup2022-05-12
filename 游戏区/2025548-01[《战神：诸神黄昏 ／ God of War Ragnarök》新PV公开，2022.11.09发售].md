@@ -7614,3 +7614,19 @@ boy真的是可操作角色，没让我失望
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ff2077  
+##### 818#       发表于 2022-10-25 23:15
+
+父子一起打空连好喜感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  popchong  
+##### 819#       发表于 2022-10-25 23:17
+
+斧子处决和1代一样很粗犷，链刃处决光精灵和切菜一样丝滑，能不能一锤把敌人的头砸成肉酱啊
+
