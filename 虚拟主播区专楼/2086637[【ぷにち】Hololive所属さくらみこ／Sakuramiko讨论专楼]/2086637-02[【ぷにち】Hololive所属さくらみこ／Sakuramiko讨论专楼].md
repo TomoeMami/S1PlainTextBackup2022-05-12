@@ -10912,3 +10912,14 @@ S1抽风的时候也能备用
 
 去年EN是全员参加的仅此一届
 
+
+
+*****
+
+####  rs5621  
+##### 2541#       发表于 2022-10-25 20:00
+
+那时候还没看直播的习惯，都是看录播或者零散的切片。没能享受一起跟看大型活动聊天的氛围，可惜了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
