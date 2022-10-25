@@ -2729,3 +2729,172 @@ saberlight，这位的队友更是重量级，直邀队直接小组赛滚蛋了
 
 窝上次问世界级一号位，你楼清一色点名佛祖c，令人唏嘘
 
+
+
+*****
+
+####  adretyu67  
+##### 37805#       发表于 2022-10-25 21:43
+
+那没办法，现在剩下4个队的1号位
+
+马桶老态龙钟，鹏子多年成绩不好，小水晶被拳酱玩成了3，skiter....好吧，skiter确实有点黑不动。
+
+*****
+
+####  nowaki  
+##### 37806#       发表于 2022-10-25 21:43
+
+很难想象进入前四的一号位没一个我认为是顶级的c
+
+*****
+
+####  六娃  
+##### 37807#       发表于 2022-10-25 21:43
+
+我从来没点过世界级12，因为大部分时间12的发挥都很不稳定，是跟着全队状态来的
+45的作用又没那么明显，很多国外辅助只能大体上看一下是大腿还是burden
+只有3是最好衡量的
+
+*****
+
+####  六娃  
+##### 37808#       发表于 2022-10-25 21:44
+
+skiter的状态有点像ti6的褚泽宇，不开玩笑
+
+*****
+
+####  IG.430  
+##### 37809#       发表于 2022-10-25 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099051&amp;ptid=2099454" target="_blank">王宇旻❤潘婕 发表于 2022-10-25 21:13</a></blockquote>
+文丑呢，打野去了吗？
+
+*****
+
+####  六娃  
+##### 37810#       发表于 2022-10-25 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099691&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-25 21:45</a>
+文丑呢，打野去了吗？</blockquote>
+拍照的那个，这图就是文丑群里传出来的
+
+*****
+
+####  nowaki  
+##### 37811#       发表于 2022-10-25 21:45
+
+鸭头肉这届ti过于让人失误了，本来以为major让他找回了状态，没想到ti打得越来越处长
+
+不过想想以前ti rtz 处长也能混进前四，释怀了，只是老迹和ana把我口味养叼了，这世界上的一号位大多是burden
+
+*****
+
+####  jk9hot  
+##### 37812#       发表于 2022-10-25 21:46
+
+每一个冠军3都挺多戏，不知道是因为冠军了才有戏还是戏够多才能拿冠军
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  莉拉厨  
+##### 37813#       发表于 2022-10-25 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099654&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-25 21:43</a>
+那没办法，现在剩下4个队的1号位
+
+马桶老态龙钟，鹏子多年成绩不好，小水晶被拳酱玩成了3，skiter....好吧， ...</blockquote>
+skiter英雄勺了，只会三号位英雄+小鱼
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 37814#       发表于 2022-10-25 21:48
+
+打架C很符合我的dota审美，skiter夺冠我能接受，批九不行
+
+*****
+
+####  yyf奇遇记  
+##### 37815#       发表于 2022-10-25 21:48
+
+宇宙哥没啥戏吧
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  朝游北海  
+##### 37816#       发表于 2022-10-25 21:50
+
+这次进前四的三号位除了XXS还剩下等到版本的33，不清楚到底是不是三号位的瑞士鲁迅，以及重量级的zai，不怪漏油钦点不到，属实不太好猜
+
+*****
+
+####  六娃  
+##### 37817#       发表于 2022-10-25 21:50
+
+ 本帖最后由 六娃 于 2022-10-25 21:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099744&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-25 21:48</a>
+skiter英雄勺了，只会三号位英雄+小鱼
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+娜迦混沌狗子小鱼，在33占有巨大bp优势的情况下，其实四手英雄已经够夺冠了
+但肯定还是看批九脸色
+
+*****
+
+####  反方向的波  
+##### 37818#       发表于 2022-10-25 21:51
+
+ 本帖最后由 反方向的波 于 2022-10-25 21:52 编辑 
+
+想了下B组中单排名，发现有几个菜逼淘汰赛连A组游出来的都打不过，搞不好克里斯还不是倒数的
+本来钦定他倒三
+
+*****
+
+####  UnhappyTails  
+##### 37819#       发表于 2022-10-25 21:51
+
+四强两个外卡队一个石头人一个茶确实出人意料啊，赛前和小组赛展现强大的队伍都捞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 37820#       发表于 2022-10-25 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099754&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 21:48</a>
+宇宙哥没啥戏吧
+
+论坛助手,iPad</blockquote>
+宇宙哥标准的勤勤恳恳老黄牛，这么多年从队友到对手都是一致好评
+
+*****
+
+####  lyjssj  
+##### 37821#       发表于 2022-10-25 21:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">妈的，TI6翅膀的手下败将saksa和鲁迅这届都他妈的要冠了，西恩dota透支债还没还完
+
+*****
+
+####  zhrs456  
+##### 37822#       发表于 2022-10-25 21:52
+
+universe也就推特来了个隔空喊话老鳖别退吧 是TI7？
+
+*****
+
+####  六娃  
+##### 37823#       发表于 2022-10-25 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099826&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-25 21:52</a>
+universe也就推特来了个隔空喊话老鳖别退吧 是TI7？</blockquote>
+宇宙哥这种dota1时代开始打的老人，站点鳖孙属性也正常
+
