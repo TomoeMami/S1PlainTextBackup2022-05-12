@@ -10838,3 +10838,16 @@ ns版本什么时候上
 不需要，打完竞技场老板会给你一个道具，装备上的效果是，你目前的装备掉落装备盘几率大幅度上升。 ...</blockquote>
 对饰品没用
 
+
+
+*****
+
+####  黒長直姫  
+##### 995#       发表于 2022-10-26 06:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099876&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-25 21:55</a>
+谢，刷钱比刷糖有盼头多了
+
+我总觉得我少了本掉落图鉴啊，这游戏是真的没有各个区域掉落图鉴吗 ...</blockquote>
+有啊 在竞技场
+
