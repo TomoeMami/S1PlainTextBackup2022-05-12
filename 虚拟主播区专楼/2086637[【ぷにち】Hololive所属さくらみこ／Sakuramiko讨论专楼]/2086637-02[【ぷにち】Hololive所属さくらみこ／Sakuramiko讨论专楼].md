@@ -10752,3 +10752,14 @@ miko是特别想直播的，但身体真不行了
 
 太困了赶紧睡觉,下播时忘记关直播,后续都是吸鼻涕的声音..
 
+
+
+*****
+
+####  qesto  
+##### 2526#       发表于 2022-10-25 15:02
+
+芙宝有没有群啊，方便分享下资源啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+S1抽风的时候也能备用
+
