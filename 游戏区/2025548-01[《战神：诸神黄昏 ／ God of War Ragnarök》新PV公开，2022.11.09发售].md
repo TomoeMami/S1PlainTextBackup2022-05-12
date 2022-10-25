@@ -7690,3 +7690,40 @@ boy真的是可操作角色，没让我失望
 —— 来自 S1Fun</blockquote>
 这个蓝圈不是敌人被击中时候出现的，这个片段里是敌人在出招，奎秃斯在闲庭信步。这应该跟前作黄圈红圈一样是攻击类型应对警示，不知道是新的应对手段，还是辅助选项里把颜色换了。
 
+
+
+*****
+
+####  Fuero  
+##### 825#       发表于 2022-10-26 00:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58092312&amp;ptid=2025548" target="_blank">HDGDG 发表于 2022-10-25 14:48</a>
+
+三心又发新谜语，你们觉得这些图片代表什么意思呢？</blockquote>
+能品出离别和惆怅，希望给奎爷安排一个合理的结局
+
+*****
+
+####  一个过路的  
+##### 826#       发表于 2022-10-26 00:38
+
+这里敌人被击打出了个黄圈，然后又变成红圈被处决，意思是本作区分了敌人血量过多不足以被处决动作秒杀的提示？
+
+TIM截图20221026002538.png
+(38.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 00:36 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/003612wzxo11og08koav0c.png" referrerpolicy="no-referrer">
+
+TIM截图20221026002608.png
+(22.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 00:36 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/003616wm3j49d25s6753qq.png" referrerpolicy="no-referrer">
+

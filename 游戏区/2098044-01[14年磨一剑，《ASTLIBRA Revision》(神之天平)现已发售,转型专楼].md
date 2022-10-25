@@ -10776,3 +10776,12 @@ ns版本什么时候上
 
 打了一个半小时反复死，终于把龙神刮死了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓝雉  
+##### 989#         楼主| 发表于 2022-10-26 00:40
+
+本篇通关率10%还挺高的
+
