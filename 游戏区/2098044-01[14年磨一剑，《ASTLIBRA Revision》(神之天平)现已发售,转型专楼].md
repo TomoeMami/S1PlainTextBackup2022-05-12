@@ -10627,3 +10627,19 @@ ns版本什么时候上
 草，这后面的竞技场是有病吗光堆怪，狗男女这两个人的技能组太tm难打了。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">后面还有更有病的，比如勇者队+男女主+大贤者组团，大贤者还自带禁魔
 
+
+
+*****
+
+####  朔洵千夜  
+##### 974#       发表于 2022-10-25 21:12
+
+有啥效率刷砂糖的地方吗，第八章糖的缺口也忒大了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何处分可  
+##### 975#       发表于 2022-10-25 21:19
+
+被第六章的飞船折磨疯了
+

@@ -11031,3 +11031,21 @@ S1抽风的时候也能备用
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">挂着看了，看这个血压要飙升。
 
+
+
+*****
+
+####  holoan  
+##### 2552#         楼主| 发表于 2022-10-25 21:17
+
+说明那些指令块和复杂的东西确实是运营做的……
+
+*****
+
+####  rs5621  
+##### 2553#       发表于 2022-10-25 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">miko这小脑瓜要算炸了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
