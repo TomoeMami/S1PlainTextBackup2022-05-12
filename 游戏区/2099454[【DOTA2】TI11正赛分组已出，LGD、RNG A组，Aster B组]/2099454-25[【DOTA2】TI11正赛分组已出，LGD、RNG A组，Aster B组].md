@@ -8956,3 +8956,23 @@ ti1的ehome
 
 银K昨天说。可以和胜者组的练
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 36983#       发表于 2022-10-25 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087324&amp;ptid=2099454" target="_blank">guojiaoqi 发表于 2022-10-25 08:45</a>
+兄弟们现在有没有消息茶队这周怎么训练啊？</blockquote>
+跟胜者组的训练
+
+*****
+
+####  yyf奇遇记  
+##### 36984#       发表于 2022-10-25 09:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087324&amp;ptid=2099454" target="_blank">guojiaoqi 发表于 2022-10-25 08:45</a>
+兄弟们现在有没有消息茶队这周怎么训练啊？</blockquote>
+跟胜者组的训练
+
