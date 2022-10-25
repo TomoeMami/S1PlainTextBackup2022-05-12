@@ -10552,3 +10552,15 @@ ns版本什么时候上
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下了DEMO，怎么感觉方向键的上键被卡住了一样……拔了手柄也一样，去玩了下哈迪斯就没有任何问题
 
+
+
+*****
+
+####  lazycat233  
+##### 968#       发表于 2022-10-25 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58091810&amp;ptid=2098044" target="_blank">chondriac 发表于 2022-10-25 14:16:28</a>
+兜帽小女孩的爱情漏拿了会有什么影响吗</blockquote>少一小段剧情少一个爱情，后面地牢多刷一个爱情的事
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
