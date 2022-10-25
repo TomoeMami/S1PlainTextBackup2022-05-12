@@ -3965,3 +3965,23 @@ ok
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  女神アイギス  
+##### 374#       发表于 2022-10-25 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087613&amp;ptid=2052594" target="_blank">藤井紫 发表于 2022-10-25 09:19</a>
+
+你用蒜头佬可以更省心地2图刷
+
+起手直接往左跑到白书下面，武器魔杖，圣水，圣经
+
+要是在10分钟前魔杖满级 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要是没必要一个人物反复刷
+
+毕竟为了成就解锁大部分角色都得来一遍99，反复玩一个角色等于做了很多无用功
+
+也就提升下玩家本人的熟练度
+

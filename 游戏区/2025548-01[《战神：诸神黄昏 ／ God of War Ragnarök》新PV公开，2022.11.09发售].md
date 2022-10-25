@@ -7420,3 +7420,17 @@ boy真的是可操作角色，没让我失望
 辅助系统有一个叫一键敲钟，还可以调节敲钟的限时时长</blockquote>
 舒服了
 
+
+
+*****
+
+####  一个过路的  
+##### 805#       发表于 2022-10-25 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078107&amp;ptid=2025548" target="_blank">asergh0630rx 发表于 2022-10-24 15:51</a>
+
+新战神能取消那些解密吗？或者减少点，上一代解密玩得真难受。</blockquote>
+90%的解谜是为了开箱子，不喜欢可以直接走。
+
+新作所有内容都多了，很可能箱子也更多了。
+
