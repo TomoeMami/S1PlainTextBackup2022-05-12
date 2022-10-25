@@ -2898,3 +2898,102 @@ universe也就推特来了个隔空喊话老鳖别退吧 是TI7？
 universe也就推特来了个隔空喊话老鳖别退吧 是TI7？</blockquote>
 宇宙哥这种dota1时代开始打的老人，站点鳖孙属性也正常
 
+
+
+*****
+
+####  濡鸦之羽_  
+##### 37824#       发表于 2022-10-25 21:53
+
+别最后总决赛液体打秘密吧，dpc毛用没有<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 37825#       发表于 2022-10-25 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099826&amp;ptid=2099454" target="_blank">zhrs456 发表于 2022-10-25 21:52</a>
+universe也就推特来了个隔空喊话老鳖别退吧 是TI7？</blockquote>
+是ti5，祝福老鳖退役
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Litccc  
+##### 37826#       发表于 2022-10-25 21:55
+
+有个问题，为什么叫xinq文丑
+
+*****
+
+####  jk9hot  
+##### 37827#       发表于 2022-10-25 21:56
+
+我的理解是文爱胖子，样貌
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  蛭人  
+##### 37828#       发表于 2022-10-25 21:58
+
+宇宙哥至今还能和2000哥喜笑颜开，充分说明宇宙哥人不错。
+
+*****
+
+####  yyf奇遇记  
+##### 37829#       发表于 2022-10-25 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099886&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-25 21:55</a>
+有个问题，为什么叫xinq文丑</blockquote>
+当时谁写了个写了个官渡之战ame 是淳于琼 德张是张颌
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  反方向的波  
+##### 37830#       发表于 2022-10-25 21:59
+
+StrangeR, Ahilles and 4SV join Virtus.pro Dota 2 department
+
+怎么还没有gpk滚蛋的消息
+
+
+
+*****
+
+####  百世诸侯  
+##### 37831#       发表于 2022-10-25 22:00
+
+-
+
+“鳖鸽了ame让人家差点没学上，要不是小何哥哥出手鳖就毁了一个年轻人的一辈子，万死难辞其咎”[50+赞]
+
+楼主：“我们来罗列一下时间线。burning招揽ame是在……”[0赞]
+
+“我不管，司马鳖孙别想趁机抬头，鳖孙鳖孙鳖孙鳖孙鳖孙”[50+赞]
+
+*****
+
+####  roxas.sora  
+##### 37832#       发表于 2022-10-25 22:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苏皇有一说一离开eg之后的运气不太行，本来去og还可以的，被疫情关了之后的职业规划堪称灾难，把自己的状态打没了，说实话真想看他和厅长还有状态的时候一起打，而不是现在这么遗憾的状态
+
+*****
+
+####  石狮鬼  
+##### 37833#       发表于 2022-10-25 22:01
+
+atf骂别人猴的时候，他的脑回路显然还没运转到，他所在的队伍其实是monkey business，他才是最猴的那一位<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 37834#       发表于 2022-10-25 22:01
+
+看了一天的老B回忆录环节，真有种这是最后一届TI的感觉了，再多来点，争取把气氛渲染到周五
+

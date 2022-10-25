@@ -10703,3 +10703,18 @@ ns版本什么时候上
 后面还有更有病的，比如勇者队+男女主+大贤者组团，大贤者还自带禁魔 ...</blockquote>
 这是逼人强化+99用数值碾过去了啊……
 
+
+
+*****
+
+####  朔洵千夜  
+##### 982#       发表于 2022-10-25 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099266&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-25 21:23</a>
+商店买果酱面包分解最优解
+
+实在不想花钱可以在研究所中层水晶来回砍盆栽 ...</blockquote>
+谢，刷钱比刷糖有盼头多了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+我总觉得我少了本掉落图鉴啊，这游戏是真的没有各个区域掉落图鉴吗
+

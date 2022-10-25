@@ -157,3 +157,14 @@ C闪的回收真是感天动地！6怪都很难拯救。</blockquote>
 
 当然也可能只是我的一厢情愿
 
+
+
+*****
+
+####  Kon-El  
+##### 43650#       发表于 2022-10-25 22:00
+
+点数和商店素材都刷完了，女神与野兽副本凶骨掉落还可以，准备多刷刷<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
