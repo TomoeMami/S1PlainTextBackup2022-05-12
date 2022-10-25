@@ -10923,3 +10923,12 @@ S1抽风的时候也能备用
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 2542#         楼主| 发表于 2022-10-25 20:09
+
+今年的直播窗还算少了，去年6个组加上miko一共7个窗每个窗还都是嗡嗡嗡，真地狱
+

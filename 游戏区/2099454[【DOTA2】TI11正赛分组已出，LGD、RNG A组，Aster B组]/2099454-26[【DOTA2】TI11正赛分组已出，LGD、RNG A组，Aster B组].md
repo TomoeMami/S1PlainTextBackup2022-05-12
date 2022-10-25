@@ -1824,3 +1824,73 @@ axx那直播三句话离不开骗钱骗舰骗sc看的不恶心吗
 这个图吗</blockquote>
 还是有人在支持西恩doto的（）
 
+
+
+*****
+
+####  wzy200912345  
+##### 37702#       发表于 2022-10-25 20:03
+
+ 本帖最后由 wzy200912345 于 2022-10-25 20:04 编辑 
+
+风怒
+
+*****
+
+####  lyjssj  
+##### 37703#       发表于 2022-10-25 20:03
+
+TI2我写的现在还能用，而且三冰还在打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，阿茶加油加油<blockquote>有2个小小的愿望。
+
+1起码有一支中国队能够战到决赛，这样就有动力看到底了，别早早的就全部被淘汰掉
+
+2比赛的时候有哪个队伍能够替天行道弄死装X队zenith，我非常期待狂冰在TI2上被抽脸</blockquote>
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yourSwaTer| + 1||
+
+查看全部评分
+
+*****
+
+####  格雷殿下  
+##### 37704#       发表于 2022-10-25 20:04
+
+AXX当年卜是说打职业的时候涉嫌加赛吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 37705#       发表于 2022-10-25 20:06
+
+客户端前十说下这个怎么弄
+
+<img src="https://img.saraba1st.com/forum/202210/25/200608emgictpzcijpbx2b.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221025200815.png</strong> (12.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 20:06 上传
+
+*****
+
+####  没钱买手办  
+##### 37706#       发表于 2022-10-25 20:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">处长这种最多在印象空间有个小隔间，也配有殿堂吗
+
+*****
+
+####  nightmare902015  
+##### 37707#       发表于 2022-10-25 20:12
+
+殿堂还是得看潘婕这种。
+
