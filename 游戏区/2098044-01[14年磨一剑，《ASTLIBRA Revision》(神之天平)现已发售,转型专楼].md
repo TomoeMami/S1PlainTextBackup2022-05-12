@@ -10785,3 +10785,56 @@ ns版本什么时候上
 
 本篇通关率10%还挺高的
 
+
+
+*****
+
+####  酒瓶止迁  
+##### 990#       发表于 2022-10-26 02:03
+
+问一下，我现在进“终章”了，之前的那一章的武器还能刷吧？
+
+
+
+*****
+
+####  pf67  
+##### 991#       发表于 2022-10-26 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58103222&amp;ptid=2098044" target="_blank">酒瓶止迁 发表于 2022-10-26 02:03</a>
+
+问一下，我现在进“终章”了，之前的那一章的武器还能刷吧？</blockquote>
+能，进入二周目都能刷
+
+*****
+
+####  pf67  
+##### 992#       发表于 2022-10-26 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58102235&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-26 00:07</a>
+
+等一下？二周目70小时？怎么能比一周目多这么多时间？二周目还有很多要素吗？ ...</blockquote>
+其实是追加剧情，并不是new+
+
+不过他说的应该是总时间
+
+*****
+
+####  pf67  
+##### 993#       发表于 2022-10-26 02:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58098179&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-10-25 20:20</a>
+
+后面还有更有病的，比如勇者队+男女主+大贤者组团，大贤者还自带禁魔 ...</blockquote>
+这后面怎么打，男女二人组我就打不过了
+
+*****
+
+####  首领  
+##### 994#       发表于 2022-10-26 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58096442&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-25 18:31</a>
+
+不需要，打完竞技场老板会给你一个道具，装备上的效果是，你目前的装备掉落装备盘几率大幅度上升。 ...</blockquote>
+对饰品没用
+

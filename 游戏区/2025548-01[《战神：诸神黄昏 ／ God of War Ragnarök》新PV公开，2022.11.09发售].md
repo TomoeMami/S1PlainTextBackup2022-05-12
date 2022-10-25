@@ -7754,3 +7754,17 @@ TIM截图20221026011124.png
 
 <img src="https://img.saraba1st.com/forum/202210/26/011148z7fykyv66vfy3epo.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jokertx  
+##### 828#       发表于 2022-10-26 02:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58102968&amp;ptid=2025548" target="_blank">一个过路的 发表于 2022-10-26 01:13</a>
+
+如果属实，这是系列第一次出现复数处决动作吧，以前处决时候手上的武器瞬间换成既定武器。
+
+而且为什么要切 ...</blockquote>
+应该只是为了视觉效果方面的衔接，上一作为了套用都是手撕或者脚踩
+
