@@ -12982,3 +12982,12 @@ nagi的ins直播时间
 
 说起来这段时间感觉就是休息空挡期，真不搞个什么户外活动吗
 
+
+
+*****
+
+####  lj205  
+##### 8673#       发表于 2022-10-25 08:40
+
+一巡还有外景比赛预热，这次大家都各忙各的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
