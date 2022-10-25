@@ -9093,3 +9093,75 @@ ti1的ehome
 今年大概率是秘密夺冠了吧，决赛就是秘密打石头</blockquote>
 石头人召唤物打怨灵还是可以的
 
+
+
+*****
+
+####  朝游北海  
+##### 36998#       发表于 2022-10-25 09:34
+
+你吹吹你傻，吹吹瑞典油面我就认了，吹9神实在忍不住了，吹他什么？正面海民，反面海民，竖起来还是海民？
+
+*****
+
+####  百世诸侯  
+##### 36999#       发表于 2022-10-25 09:36
+
+呃，从零单排创始人都不能吹了是吗？
+
+*****
+
+####  lyjssj  
+##### 37000#       发表于 2022-10-25 09:38
+
+说来惭愧，小组赛阿茶第一把暴虐石头人的时候我还在转楼发帖，鉴定石头人为臭鱼烂虾队伍
+
+结果第二把石头人赢了，然后小组赛第一，淘汰赛又赢了阿茶
+
+*****
+
+####  没钱买手办  
+##### 37001#       发表于 2022-10-25 09:38
+
+今年谁赢秘密谁拿冠军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Litccc  
+##### 37002#       发表于 2022-10-25 09:38
+
+zzwdjs（纯脚打
+
+*****
+
+####  星野航  
+##### 37003#       发表于 2022-10-25 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087698&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-25 10:25</a>
+
+9独一档那脑东京不也得独一档。</blockquote>
+东京确实打出过独一档的赛事表现过
+
+批9可是没有
+
+*****
+
+####  星野航  
+##### 37004#       发表于 2022-10-25 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087698&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-25 10:25</a>
+
+9独一档那脑东京不也得独一档。</blockquote>
+东京确实打出过独一档的赛事表现过
+
+批9可是没有
+
+*****
+
+####  Yugao  
+##### 37005#       发表于 2022-10-25 09:40
+
+我怎么记得淘汰赛茶是被ta干废的
+
