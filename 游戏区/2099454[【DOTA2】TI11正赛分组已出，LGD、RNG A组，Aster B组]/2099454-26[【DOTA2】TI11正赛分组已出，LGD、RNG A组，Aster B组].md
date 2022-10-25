@@ -3520,3 +3520,67 @@ ATF:玩召唤物3的都是猴子
 
 下赛季再来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  roxas.sora  
+##### 37894#       发表于 2022-10-25 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100883&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-25 22:53</a>
+
+雪碧最后一个vlog只有silent跟miposhka复盘了，没有赛后任何即时反馈
+
+倒是看起来这俩人很平静。说了一些心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">假放太久了，练错东西，心态不行，调整能力不如去年
+
+*****
+
+####  星野航  
+##### 37895#       发表于 2022-10-25 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100900&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-25 23:54</a>
+
+假放太久了，练错东西，心态不行，调整能力不如去年</blockquote>
+心理包袱重，miposhka直言，今年大家都觉得是卫冕冠军如何如何
+
+其实看布查小胖就知道，这谁tm戴着去年冠军戒指打比赛，这要是输了心态不炸才怪  
+
+*****
+
+####  反方向的波  
+##### 37896#       发表于 2022-10-25 22:56
+
+当时看完突围赛结束后窝的预测，碧瘪 茶秘 OR 石entity 好像忘在楼里发了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果天降EG直接改变世界线，小组赛恰自己组菜鸡烂分，淘汰赛两个0-2把两个南美哥们儿送进前六和前八
+
+*****
+
+####  roxas.sora  
+##### 37897#       发表于 2022-10-25 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100927&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-25 22:56</a>
+
+心理包袱重，miposhka直言，今年大家都觉得是卫冕冠军如何如何
+
+其实看布查小胖就知道，这谁tm戴着去年冠 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">鸭头肉感觉心态都变了，感觉就是备战不足，和自己觉得是强队练了一圈，结果打小组赛发现好像不对了，战绩不行导致信心崩了，还有冠军包袱，后勤组没有即时做好调整工作
+
+*****
+
+####  nowaki  
+##### 37898#       发表于 2022-10-25 23:00
+
+哥们最初是看好茶的 被楼主点草了
+
+*****
+
+####  星野航  
+##### 37899#       发表于 2022-10-25 23:00
+
+一个他一个老东京好吧，这俩感觉都是打疯了顺，打萎了那就真崩盘
+
+老东京儿直接一个扛着社区舆论，满脑子想着为自己正名，也容易崩盘
+
+其实第一天2比0送走纯真的时候谁能想到第二天开始就萎了
+
