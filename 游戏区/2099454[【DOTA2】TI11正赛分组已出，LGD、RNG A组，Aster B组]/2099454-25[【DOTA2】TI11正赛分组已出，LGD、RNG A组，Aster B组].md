@@ -9973,3 +9973,152 @@ BGM: Helikopter
 骄阳能不能把sf ...</blockquote>
 别影魔了，铁版本陷阱
 
+
+
+*****
+
+####  没钱买手办  
+##### 37090#       发表于 2022-10-25 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小小抛起来的那么高，无视地形和技能暴扣全图很正常吧
+
+*****
+
+####  walfeds  
+##### 37091#       发表于 2022-10-25 10:33
+
+ 本帖最后由 walfeds 于 2022-10-25 10:34 编辑 
+
+也不怪影魔吧，跟一众烂掉的传统核心比起来算好的了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能当版本陷阱至少有人愿意选啊
+
+*****
+
+####  枯风瘦雪02  
+##### 37092#       发表于 2022-10-25 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088719&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 10:28</a>
+
+对了，之前淘汰赛开始之前你楼还有人问这版本沙发是不是最强的版本，我当时说应该是大晕带跳版本厉害，不过 ...</blockquote>
+目前的影魔约等于送A杖的TB吧，所以确实越来越吃切入道具和队友控制了
+
+*****
+
+####  jk9hot  
+##### 37093#       发表于 2022-10-25 10:34
+
+所以小小是科比？被爱人直升机射死也很正常吧？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 37094#       发表于 2022-10-25 10:34
+
+科比几几年退役的不看的嘛，16年，00后粉都不稀奇
+
+*****
+
+####  walfeds  
+##### 37095#       发表于 2022-10-25 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088802&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-25 10:32</a>
+
+小小抛起来的那么高，无视地形和技能暴扣全图很正常吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">暴扣还得是小牛
+
+*****
+
+####  Bernoulli  
+##### 37096#       发表于 2022-10-25 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088474&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-25 10:15</a>
+
+骄阳，严格来说鳖茶的弱点太明显了。
+
+骄阳选不到老鹿火女我甚至想不出骄阳还能玩啥这个版本的数值怪carry ...</blockquote>
+对液体来说不也一样，马图选不到熊德小狗靠他那个拍拍来C吗？
+
+倒是秘密和石头人的破绽要看他们两队之间互相研究看看能不能摸索出点套路来。
+
+*****
+
+####  枯风瘦雪02  
+##### 37097#       发表于 2022-10-25 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088849&amp;ptid=2099454" target="_blank">Bernoulli 发表于 2022-10-25 10:35</a>
+
+对液体来说不也一样，马图选不到熊德小狗靠他那个拍拍来C吗？
+
+倒是秘密和石头人的破绽要看他们两队之间互 ...</blockquote>
+还有个火枪凑合着能C，屠夫更混一点就一个跳咬腐烂，不过能有这么四手活已经足够扛住针对了
+
+*****
+
+####  没钱买手办  
+##### 37098#       发表于 2022-10-25 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088819&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-25 10:34</a>
+
+所以小小是科比？被爱人直升机射死也很正常吧？
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BGM：香槟2
+
+谢谢你矮人飞机，带我认识了科比，顺便还让我有了~~新国籍~~🎵
+
+*****
+
+####  iriyano  
+##### 37099#       发表于 2022-10-25 10:38
+
+漏油们天天版粪我去粪坑瞅了一眼居然搬的还不是最臭的
+
+*****
+
+####  jk9hot  
+##### 37100#       发表于 2022-10-25 10:38
+
+这个版本远核比近核更适合版本对于莫奈特来说是最适合他的版本了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Yugao  
+##### 37101#       发表于 2022-10-25 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">yysy，骄阳之前一直玩中单屠夫，现在这东西拿不出来了吗
+
+*****
+
+####  yyf奇遇记  
+##### 37102#       发表于 2022-10-25 10:39
+
+话说香槟是哪首歌改编的
+
+*****
+
+####  nowaki  
+##### 37103#       发表于 2022-10-25 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088940&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 10:39</a>
+
+话说香槟是哪首歌改编的</blockquote>
+嘉宾
+
+*****
+
+####  roxas.sora  
+##### 37104#       发表于 2022-10-25 10:40
+
+阿桶的英雄池是够用的，给zai选到不会容易送还适合他发挥的英雄难一点，reso能玩pom和玛西，他不行，但多一手蜘蛛
+
+*****
+
+####  masterffzhou  
+##### 37105#       发表于 2022-10-25 10:41
+
+我觉得她蜜直升机的可能性都比蜜我科的可能性大，纯好奇
+

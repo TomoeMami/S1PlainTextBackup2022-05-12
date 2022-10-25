@@ -7399,3 +7399,24 @@ boy真的是可操作角色，没让我失望
  心痒痒了，现在买ps5直接pdd？还是等双十一官方买？</blockquote>
 我前两个月pdd买的3899双手柄，感觉不亏
 
+
+
+*****
+
+####  医生狼多  
+##### 803#       发表于 2022-10-25 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088720&amp;ptid=2025548" target="_blank">chiefshi 发表于 2022-10-25 10:28</a>
+心痒痒了，现在买ps5直接pdd？还是等双十一官方买？</blockquote>
+官方价格不会低于pdd的，建议多多直接买
+
+*****
+
+####  conanoysq  
+##### 804#       发表于 2022-10-25 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58078638&amp;ptid=2025548" target="_blank">hotsmile 发表于 2022-10-24 16:25</a>
+
+辅助系统有一个叫一键敲钟，还可以调节敲钟的限时时长</blockquote>
+舒服了
+

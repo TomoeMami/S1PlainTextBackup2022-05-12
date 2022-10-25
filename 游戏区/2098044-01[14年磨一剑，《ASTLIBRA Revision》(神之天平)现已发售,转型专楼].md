@@ -10455,3 +10455,17 @@ LS至少反白下吧</blockquote>
 
 被雪山那双子boss给整麻了
 
+
+
+*****
+
+####  黒長直姫  
+##### 959#       发表于 2022-10-25 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58086579&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-10-25 03:39</a>
+
+原来木棍有熟练度的吗，我还以为那槽是假的
+
+法杖有用吗，每个法杖的施法方向好像都是固定的，打到 ...</blockquote>
+不固定的 后面的法杖都有自己的弹道 到新章可以变异被动了以后敲人还能变疼
+
