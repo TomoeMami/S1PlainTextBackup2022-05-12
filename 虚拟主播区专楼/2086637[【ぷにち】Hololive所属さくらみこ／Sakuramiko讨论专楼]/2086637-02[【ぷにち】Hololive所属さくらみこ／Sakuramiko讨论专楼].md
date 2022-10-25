@@ -10785,3 +10785,24 @@ S1抽风的时候也能备用
 
 很着急
 
+
+
+*****
+
+####  rs5621  
+##### 2529#       发表于 2022-10-25 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093442&amp;ptid=2086637" target="_blank">holoan 发表于 2022-10-25 15:51</a>
+
+我qq从20年开始就没有登陆过了现在PC端没有装只有手机app万年不启动除了续费
+
+你们不是有一个自己的holo群吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那你平时用什么聊天软件呀
+
+*****
+
+####  holoan  
+##### 2530#         楼主| 发表于 2022-10-25 16:17
+
+我平时不聊天
+
