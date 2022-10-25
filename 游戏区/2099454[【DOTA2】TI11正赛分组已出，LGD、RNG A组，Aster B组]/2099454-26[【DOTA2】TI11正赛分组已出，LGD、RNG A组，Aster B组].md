@@ -4257,3 +4257,69 @@ qojqva stormstormer faithbian tofu fata
 
 真不玩梗。德国三号位应该是kezu吧
 
+
+
+*****
+
+####  dclara1  
+##### 37981#       发表于 2022-10-26 00:53
+
+1        Peru Peru        13 / 100 (13%)        Chris Luck, DarkMago, Gardick, Gōjira, K1, Lumière, Matthew, Pakazs, Pandaboo, Sacred, Stinger, Timado, Vitaly
+
+1        Russia Russia        13 / 100 (13%)        Collapse, Daxak, dyrachyo, Kataomi`, Larl, Miposhka, Misha, Nightfall, Noticed, Pure, RodjER, SoNNeikO, TORONTOTOKYO
+
+3        China China        12 / 100 (12%)        Ame, BoBoKa, Chalice, Faith_bian, kaka, Monet, Ori, Somnus, XinQ, Xxs, y`, 皮球
+
+4        Philippines Philippines        8 / 100 (8%)        Abed, Armel, DJ, Jaunuel, Raven, skem, TIMS, Yopaj
+
+5        Germany Germany        4 / 100 (4%)        Fata, Nine, Stormstormer, tOfu
+
+5        Sweden Sweden        4 / 100 (4%)        Boxi, iNSaNiA, miCKe, zai
+
+5        Ukraine Ukraine        4 / 100 (4%)        Mira, Resolut1on, Yatoro, Yuragi
+
+今年ti德国佬不少，跟瑞典乌克兰并列第五
+
+*****
+
+####  nowaki  
+##### 37982#       发表于 2022-10-26 00:54
+
+<blockquote>反方向的波 发表于 2022-10-26 00:50
+已经组好了
+
+qojqva stormstormer faithbian tofu fata
+
+感觉混不进西欧前四啊</blockquote>
+qojqva不是2么
+
+*****
+
+####  walfeds  
+##### 37983#       发表于 2022-10-26 00:57
+
+[https://liquipedia.net/dota2/Germany](https://liquipedia.net/dota2/Germany)
+
+历年德国国家队，其中有kky、快播哥、fata、khezu、批九、风风
+
+*****
+
+####  nowaki  
+##### 37984#       发表于 2022-10-26 00:58
+
+我觉得批九转一吧 批九跟着局势混还是可以的玩个垃圾桶1等德张带飞，全德班主打一个33355，混个dpc前二没啥问题，没几个人接的住中期一拳。
+
+*****
+
+####  六娃  
+##### 37985#       发表于 2022-10-26 01:00
+
+感觉不如独眼龙锤猪剑客的全法班
+
+*****
+
+####  roxas.sora  
+##### 37986#       发表于 2022-10-26 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">清真dota，best dota吧，全绿班不是更容易么
+
