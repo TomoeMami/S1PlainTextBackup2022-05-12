@@ -1023,3 +1023,51 @@ OB这群撸狗代言人为什么会有盘我一直都很纳闷</blockquote>
 理性讨论，老navi是不是个崩溃哥中单脑东京打C的雪碧！</blockquote>
 dondo铁废物啊，430和mushi打他像捕鱼
 
+
+
+*****
+
+####  c88711611  
+##### 37620#       发表于 2022-10-25 18:32
+
+尿裤卡就是对线水平不行才去打辅助了，记的以前在hgt，打中单把自己打去辅助了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  星野航  
+##### 37621#       发表于 2022-10-25 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58096313&amp;ptid=2099454" target="_blank">bluebaby 发表于 2022-10-25 19:21</a>
+理性讨论，老navi是不是个崩溃哥中单脑东京打C的雪碧！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">miposhka要是有ppy半点的bp艺术，今年雪碧可以进胜者组
+
+*****
+
+####  柚上舍人  
+##### 37622#       发表于 2022-10-25 18:39
+
+卡卡对线梦想，我记得中单只有一个卡尔能拿出手
+
+*****
+
+####  樱冢名月  
+##### 37623#       发表于 2022-10-25 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年的HGT你别说还挺好看的，看僧帽小丑拿个SV上高暴毙也蛮搞的，搞到最后还是没有打上TI，不过我记得好像是被清流给干了？
+
+*****
+
+####  zhliiiii  
+##### 37624#       发表于 2022-10-25 18:43
+
+godc的死人料呢
+
+*****
+
+####  蛭人  
+##### 37625#       发表于 2022-10-25 18:44
+
+fg我只认冷锋sccc。
+
