@@ -732,3 +732,136 @@ MMYTI4+TI5 怎么也努力了两个赛季 我是不说他懒的
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  nightmare902015  
+##### 37586#       发表于 2022-10-25 18:01
+
+连ka猴那个手活也都是打中单的啊。
+
+*****
+
+####  tasuku  
+##### 37587#       发表于 2022-10-25 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095523&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 17:35</a>
+
+其实这么看下来，中国区卜是没有好苗子好选手，太多天才少年被俱乐部卡合同卡队伍  
+
+卜说了，支持g胖狠狠 ...</blockquote>
+这搞崩生态不就是水厂的最大黑点么
+
+*****
+
+####  OVTVO  
+##### 37588#       发表于 2022-10-25 18:04
+
+艹，想起来卡猴有一次直播玩SF，只能说水平不如AMS<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 37589#       发表于 2022-10-25 18:04
+
+<img src="https://img.saraba1st.com/forum/202210/25/180410hyzm7tmixoviuxo8.jpg" referrerpolicy="no-referrer">
+
+<strong>-1052558572.jpg</strong> (134.88 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-25 18:04 上传
+
+查🐷的群也没了？
+
+*****
+
+####  六娃  
+##### 37590#       发表于 2022-10-25 18:05
+
+[https://liquipedia.net/dota2/Bigpoint_Battle/8](https://liquipedia.net/dota2/Bigpoint_Battle/8)
+
+苏猴13岁就拉着四个巴基斯坦路人打奖金2000欧的网吧赛啊，还是被帝国淘汰的
+
+
+
+*****
+
+####  walfeds  
+##### 37591#       发表于 2022-10-25 18:06
+
+天才少年确实是不讲道理的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  枪聆弹语  
+##### 37592#       发表于 2022-10-25 18:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赢
+
+*****
+
+####  莉拉厨  
+##### 37593#       发表于 2022-10-25 18:08
+
+哦牛逼，原友圣经发完就解散了，鉴定查猪为纯纯的OP
+
+*****
+
+####  syndrome2032  
+##### 37594#       发表于 2022-10-25 18:09
+
+撸狗猪准备转主播吗
+
+*****
+
+####  12481632  
+##### 37595#       发表于 2022-10-25 18:09
+
+OP不能处
+
+*****
+
+####  walfeds  
+##### 37596#       发表于 2022-10-25 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58096070&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-25 18:04</a>
+查🐷的群也没了？</blockquote>
+风险要素不会真是椅子吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yyf奇遇记  
+##### 37597#       发表于 2022-10-25 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58096009&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-25 18:00</a>
+小道消息rng即将卖给字节跳动
+
+论坛助手,iPhone</blockquote>
+去年这个时间段就有了
+
+*****
+
+####  nowaki  
+##### 37598#       发表于 2022-10-25 18:10
+
+撸狗猪肯定要继续打的
+
+*****
+
+####  六娃  
+##### 37599#       发表于 2022-10-25 18:11
+
+核中核消息是撸狗猪想转教练管理层不让，只能继续当痔将了
+
+*****
+
+####  王宇旻❤潘婕  
+##### 37600#       发表于 2022-10-25 18:13
+

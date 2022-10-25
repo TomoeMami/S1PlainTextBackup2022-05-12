@@ -32,3 +32,16 @@ TL看到的PW08的解释。
 
 — from OPPO CPH2173, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  宵神乐  
+##### 2674#       发表于 2022-10-25 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58095556&amp;ptid=1577595" target="_blank">supergilaboy 发表于 2022-10-25 17:37</a>
+什么情况，我能拿出我的第一张满凸真乃限定去打gfes了？
+
+— from OPPO CPH2173, Android 12 of S ...</blockquote>
+不能
+

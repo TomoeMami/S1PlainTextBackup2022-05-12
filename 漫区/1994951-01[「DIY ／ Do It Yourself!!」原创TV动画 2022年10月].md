@@ -2859,3 +2859,23 @@ job子奶声奶气的好可爱<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  欧派爱欧派  
+##### 230#       发表于 2022-10-25 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58002729&amp;ptid=1994951" target="_blank">NZ-333 发表于 2022-10-20 13:05</a>
+
+用的这个源，结果字幕成这样了，是我播放器的问题吗…</blockquote>
+同一个源，我的字幕效果，可以外挂个字幕滤镜，我用的[XySubFilter with libass](https://github.com/Masaiki/xy-VSFilter/releases)
+
+<img src="https://img.saraba1st.com/forum/202210/25/180326vumkdkzsvz68u49g.jpg" referrerpolicy="no-referrer">
+
+<strong>[SweetSub&amp;amp;LoliHouse] Do It Yourself!! - 01v2 [WebRip 1080p HEVC-10bit AAC ASSx2].jpg</strong> (155.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 18:03 上传
+
