@@ -10879,3 +10879,14 @@ S1抽风的时候也能备用
 
 明天开始队内练习啦，有的看咯，比正片精彩。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 2538#         楼主| 发表于 2022-10-25 19:29
+
+每年恒例的前菜比主菜好吃的练习部分
+
+不过miko也不会参加练习就是，会不会播也不知道可能就在别人的窗里客串一下
+
