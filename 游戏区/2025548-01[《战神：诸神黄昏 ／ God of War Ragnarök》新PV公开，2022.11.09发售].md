@@ -7727,3 +7727,30 @@ TIM截图20221026002608.png
 
 <img src="https://img.saraba1st.com/forum/202210/26/003616wm3j49d25s6753qq.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个过路的  
+##### 827#       发表于 2022-10-26 01:13
+
+如果属实，这是系列第一次出现复数处决动作吧，以前处决时候手上的武器瞬间换成既定武器。
+
+TIM截图20221026011113.png
+(44.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 01:11 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/011145y04zh4jp5qb00dhd.png" referrerpolicy="no-referrer">
+
+TIM截图20221026011124.png
+(35.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 01:11 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/011148z7fykyv66vfy3epo.png" referrerpolicy="no-referrer">
+
