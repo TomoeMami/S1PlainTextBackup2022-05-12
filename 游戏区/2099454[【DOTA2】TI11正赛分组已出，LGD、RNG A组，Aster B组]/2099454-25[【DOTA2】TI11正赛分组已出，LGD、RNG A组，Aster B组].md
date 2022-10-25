@@ -11310,3 +11310,153 @@ lol连我这种只玩过2次的人都知道现在是中韩对抗赛了
 
 只有本纯良刀狗午休偷偷拿笔记本打一把，博得猴区队友的4个攒，感觉十分不合群了哎。
 
+
+
+*****
+
+####  walfeds  
+##### 37241#       发表于 2022-10-25 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58092006&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-25 14:29</a>
+
+【关于OG队员们的现状】
+
+独眼龙：
+
+我想他们会没事的，他们都以不同的方式在释放自己的情绪。有些人还在自闭 ...</blockquote><blockquote>I think it was good. Some of them were really "turned in," or I don't know how to say it. You know, just listening to music, not really talking, quiet. They are probably reflecting already. Some of them were completely fine, talking about something else. Everybody is different, everybody has different ways of dealing with disappointments. Nothing that's not normal, nothing we haven't seen in the past. Actually, I think they are pretty quick at bouncing back and looking forward, which is really nice. Some people are really slow at that, and I think it's not the case.</blockquote>
+每次这塞翻看的我都有点头晕
+
+*****
+
+####  yyf奇遇记  
+##### 37242#       发表于 2022-10-25 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58091686&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-25 14:07</a></blockquote>
+最便宜这三个字让我蚌埠住了
+
+*****
+
+####  一品堂官  
+##### 37243#       发表于 2022-10-25 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58092006&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-25 14:29</a>
+
+【关于OG队员们的现状】
+
+独眼龙：
+
+我想他们会没事的，他们都以不同的方式在释放自己的情绪。有些人还在自闭 ...</blockquote>
+没人说话要玉玉的时候，atf很快会发现ceb说的那些也不全是屁话。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 37244#       发表于 2022-10-25 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58092037&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-25 14:31</a>
+
+没比赛就管人复读讨论撸，好呀好呀都不装了。
+
+只有本纯良刀狗午休偷偷拿笔记本打一把，博得猴区队友的4个攒 ...</blockquote>
+午休就能开客户端是吧
+
+*****
+
+####  lyjssj  
+##### 37245#       发表于 2022-10-25 14:34
+
+独眼龙这次也没去做教练上场啊，我好像没看到他人
+
+*****
+
+####  walfeds  
+##### 37246#       发表于 2022-10-25 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你楼的撸成分都藏不住了是吧
+
+*****
+
+####  walfeds  
+##### 37247#       发表于 2022-10-25 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58092096&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-25 14:34</a>
+
+独眼龙这次也没去做教练上场啊，我好像没看到他人</blockquote>
+助教，上不了场，但场间外面休息的照片里面有
+
+*****
+
+####  yyf奇遇记  
+##### 37248#       发表于 2022-10-25 14:35
+
+不懂，隔壁是哪个壁是csgo还是军团要塞
+
+*****
+
+####  resorry  
+##### 37249#       发表于 2022-10-25 14:36
+
+我忽然想起来，major结束的时候有个漏油就在发帖预测，水厂小组赛一帆风顺挤进胜者组，然后被当头棒喝调入败者组，苟活几轮后被鳖星淘汰，当时大家还开玩笑说这个最难实现的是鳖星活到败者组第N轮，现在来看简直是大预言家呀！
+
+*****
+
+####  迷途lite  
+##### 37250#       发表于 2022-10-25 14:36
+
+答案是thd和3c
+
+*****
+
+####  反方向的波  
+##### 37251#       发表于 2022-10-25 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58092096&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-25 14:34</a>
+独眼龙这次也没去做教练上场啊，我好像没看到他人</blockquote>
+负责拿外卖了，第一教练是chuvash
+
+*****
+
+####  yyf奇遇记  
+##### 37252#       发表于 2022-10-25 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58092124&amp;ptid=2099454" target="_blank">resorry 发表于 2022-10-25 14:36</a>
+我忽然想起来，major结束的时候有个漏油就在发帖预测，水厂小组赛一帆风顺挤进胜者组，然后被当头棒喝调入 ...</blockquote>
+哥们写的啊，我说今年ti最好的结局就是lgd跌跌撞撞进入败者组然后惨遭rng/aster淘汰
+
+*****
+
+####  nightmare902015  
+##### 37253#       发表于 2022-10-25 14:38
+
+dota2唯一指定隔壁游戏不是农？
+
+*****
+
+####  食粪者  
+##### 37254#       发表于 2022-10-25 14:39
+
+不是吃屎go吗
+
+*****
+
+####  迷途lite  
+##### 37255#       发表于 2022-10-25 14:39
+
+不是自走棋和梦符祭？
+
+*****
+
+####  walfeds  
+##### 37256#       发表于 2022-10-25 14:39
+
+确实是最好结局，哥们赛前真没展望到这一层
+
+不过小组赛打一半就可以展望了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sabbah  
+##### 37257#       发表于 2022-10-25 14:41
+
+想复制下顶楼发现情商进黑屋了，前面的忘了后面的忘了管人痴不得入内
+

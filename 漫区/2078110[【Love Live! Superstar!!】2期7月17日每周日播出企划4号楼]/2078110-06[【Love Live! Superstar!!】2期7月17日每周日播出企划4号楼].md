@@ -13090,3 +13090,15 @@ nagi的ins直播时间
 
 歌还是挺好听，只是两个版本都像中之人唱而不是角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8685#       发表于 2022-10-25 14:34
+
+上次听到这么短的歌还是上次。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这可堇说是捆绑太死，结果到现在正了八经的cp歌就这两分多钟，跟香千完全没法比啊。说实话我觉得小千才是cp捆绑的最大牺牲者
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
