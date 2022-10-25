@@ -4449,3 +4449,14 @@ cty有什么好吹的，刷钱特化版rtz。你拿EE评价rtz的话套他一点
 #(笑眼)#(笑眼)#(笑眼) ...</blockquote>
 经典
 
+
+
+*****
+
+####  lyjssj  
+##### 38001#       发表于 2022-10-26 06:28
+
+【【Dota2】明年语音轮盘没你我不买（西班牙语烫嘴rap解说）-哔哩哔哩】 [https://b23.tv/lVvvrPj](https://b23.tv/lVvvrPj)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
