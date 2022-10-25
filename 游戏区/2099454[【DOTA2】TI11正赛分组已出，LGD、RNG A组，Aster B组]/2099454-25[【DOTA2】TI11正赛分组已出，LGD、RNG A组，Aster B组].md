@@ -10122,3 +10122,126 @@ BGM: Helikopter
 
 我觉得她蜜直升机的可能性都比蜜我科的可能性大，纯好奇
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 37106#       发表于 2022-10-25 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088947&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 10:40</a>
+
+嘉宾</blockquote>
+我去听听，这歌的编曲听着挺有感觉的
+
+*****
+
+####  六娃  
+##### 37107#       发表于 2022-10-25 10:43
+
+97年密焦比怎么了，小学开始看球不是很正常
+这老太监初中开始看球就不允许人小学生比他看得早？
+
+*****
+
+####  Bernoulli  
+##### 37108#       发表于 2022-10-25 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088884&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-25 10:36</a>
+
+还有个火枪凑合着能C，屠夫更混一点就一个跳咬腐烂，不过能有这么四手活已经足够扛住针对了 ...</blockquote>
+那骄阳还有一手中单兽暴打石头人呢。我不觉得ori在BP上算什么弱点，反倒是英雄海的XXS能不能拿到契合体系的英雄更重要，茶队前期Ori被针对，鹏子线炸都还有的补也补得回来，要是XXS前期穷了基本就der了，茶队前期ori抗压，鹏子看天，保小学生刷出关键装和等级，中期他出来带队打架，1、2号位乘机补经济这是比较常见得节奏，骨子里还是个防反打团的队。
+
+*****
+
+####  六娃  
+##### 37109#       发表于 2022-10-25 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088990&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 10:42</a>
+我去听听，这歌的编曲听着挺有感觉的</blockquote>
+原曲唱得甚至不如香槟
+
+*****
+
+####  哈曼的YY  
+##### 37110#       发表于 2022-10-25 10:43
+
+ta和干瘪拿同一级奖金看着真晦气啊
+
+
+
+*****
+
+####  枯风瘦雪02  
+##### 37111#       发表于 2022-10-25 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089010&amp;ptid=2099454" target="_blank">Bernoulli 发表于 2022-10-25 10:43</a>
+
+那骄阳还有一手中单兽暴打石头人呢。我不觉得ori在BP上算什么弱点，反倒是英雄海的XXS能不能拿到契合体系 ...</blockquote>
+算的也是除了大家都能玩的数值怪兽和版本强势英雄以外各自有几手值得对手尊重的选择吧，matu更能当bp垃圾桶，而ori还是需要前两手做保护性选人的，相对来说还是更占下风一些？
+
+不过我自己心里也觉得现在的液体打不过茶，因为从老液体看过来，我对matu稳定C住没啥太强的信心的。液体对位最占优的是四号位，最劣是三号位，而现在三号位能做的事情比四号位可多太多了
+
+*****
+
+####  yyf奇遇记  
+##### 37112#       发表于 2022-10-25 10:48
+
+这嘉宾怎么怪怪的，应该男声唱吧，作词听应该是天狗唱给自己女神的
+
+*****
+
+####  没钱买手办  
+##### 37113#       发表于 2022-10-25 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088940&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 10:39</a>
+
+话说香槟是哪首歌改编的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">香槟和求佛，我都觉得原唱被暴打
+
+*****
+
+####  六娃  
+##### 37114#       发表于 2022-10-25 10:48
+
+余韵Bryant97年，大概率看了什么营销号软文加上自身对尼哥的崇拜心理开始密焦比的
+余亚军Bryant96年，肯定是从小扭着水桶腰在水泥场上打球，中午在食堂一边吃饭一边看24号焦比二连开始密焦比的
+
+*****
+
+####  tasuku  
+##### 37115#       发表于 2022-10-25 10:49
+
+不一定舔狗给女神的
+
+男同女同唱都是有可能的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 37116#       发表于 2022-10-25 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089102&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-25 10:48</a>
+
+香槟和求佛，我都觉得原唱被暴打</blockquote>
+有一说一，作为巴迷，我只能说最伟大的作品原唱也是被暴打
+
+*****
+
+####  adretyu67  
+##### 37117#       发表于 2022-10-25 10:52
+
+别说了，掀背ti11表演欲望不够强烈，狗头人连新作都没了。
+
+连看未来森哥的助力ti12补水视频的动力也没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 37118#       发表于 2022-10-25 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58089130&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 10:50</a>
+
+有一说一，作为巴迷，我只能说最伟大的作品原唱也是被暴打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我觉得他一定很爱你和可惜没如果也很有潜力啊，为啥没有人开发呢
+
