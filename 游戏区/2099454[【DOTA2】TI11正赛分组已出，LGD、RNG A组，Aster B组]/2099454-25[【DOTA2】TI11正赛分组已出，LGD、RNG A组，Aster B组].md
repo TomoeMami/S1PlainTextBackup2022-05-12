@@ -13256,3 +13256,231 @@ Team Thunderhide
 我觉得应该是感染了鸡病毒</blockquote>
 扯犊子了，他第二次打中单的时候在vg就天天被核弹粉杀吗了，那时候老鸡有鸡病毒吗
 
+
+
+*****
+
+####  蛭人  
+##### 37457#       发表于 2022-10-25 16:41
+
+哦，拿皇经典AM还教过徐志雷吧，裸点金黄点狂暴刷，哥们当时用这个套路开号在50006000分局宰猪，老爽了，可惜后来拿是真的把自己搞废了。
+
+*****
+
+####  反方向的波  
+##### 37458#       发表于 2022-10-25 16:41
+
+痘痘哥暴露独联体张志成的本性了，尽管盾上有名字但外号现阶段看还是没起错的
+
+*****
+
+####  zsu222  
+##### 37459#       发表于 2022-10-25 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094443&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 16:40</a>
+
+扯犊子了，他第二次打中单的时候在vg就天天被核弹粉杀吗了，那时候老鸡有鸡病毒吗 ...</blockquote>
+那个vg  我记得预选差点出线吧 结果rotk奉献了一波潮汐跳进萨尔大
+
+*****
+
+####  yyf奇遇记  
+##### 37460#       发表于 2022-10-25 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094460&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-25 16:41</a>
+
+哦，拿皇经典AM还教过徐志雷吧，裸点金黄点狂暴刷，哥们当时用这个套路开号在50006000分局宰猪，老爽了，可 ...</blockquote>
+还有疯脸飞鞋露娜，那套刷的也超爽，gpm经常800+
+
+那时候sg天天都有吹cty的
+
+*****
+
+####  六娃  
+##### 37461#       发表于 2022-10-25 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094443&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 16:40</a>
+
+扯犊子了，他第二次打中单的时候在vg就天天被核弹粉杀吗了，那时候老鸡有鸡病毒吗 ...</blockquote>
+我就是在扯犊子啊
+
+陈天宇当时主要是一个是心态老子天下第一鼻孔看人，队内关系搞得很僵，然后12互换天天钻研刷钱把自己搞到走火入魔了
+
+*****
+
+####  zsu222  
+##### 37462#       发表于 2022-10-25 16:42
+
+拿的那个敌法套路刷起来是真的爽  
+
+*****
+
+####  roxas.sora  
+##### 37463#       发表于 2022-10-25 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094480&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-25 16:41</a>
+
+那个vg  我记得预选差点出线吧 结果rotk奉献了一波潮汐跳进萨尔大</blockquote>
+燃烧军团那次吧，塞拉拿命c，cty那个卡尔和spe看得人血压高，rotk表现都没他那么犯罪
+
+*****
+
+####  walfeds  
+##### 37464#       发表于 2022-10-25 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094423&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 16:39</a>
+
+酒店房间都不给别人续了，全明星就从4支队 20个人里面挑？</blockquote>
+跟去年一样解说里找吧
+
+或者不基德地从观众里把门票钱都没垫的老逼们拉过来，比如大爹和瑞秃
+
+*****
+
+####  yyf奇遇记  
+##### 37465#       发表于 2022-10-25 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094480&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-25 16:41</a>
+
+那个vg  我记得预选差点出线吧 结果rotk奉献了一波潮汐跳进萨尔大</blockquote>
+是差点进外卡
+
+*****
+
+####  六娃  
+##### 37466#       发表于 2022-10-25 16:44
+
+讲道理cty是我见过国内唯一一个天赋接近430级别的中单
+
+*****
+
+####  樱冢名月  
+##### 37467#       发表于 2022-10-25 16:44
+
+说起来燃烧军团那次觉得薅羊毛还可以，结果打着打着就查无此人了。
+
+*****
+
+####  星野航  
+##### 37468#       发表于 2022-10-25 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094431&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-25 17:39</a>
+
+反正我也搞不懂miposhka在搞啥。这种情况下就该给脑东京把选火女。
+
+这是老东京那几个绝活里少数对线不爆 ...</blockquote>
+他后面不是复盘，先点发条，然后为了反克制，一手滚滚，不考虑阵容衔接
+
+然后老东京滚滚一般来说都是10分钟一到落后500到1k，节奏还能起，但后期开车时灵时不灵
+
+这届要说ts状态，老东京miramiposhka这仨是一档最差，然后小胖次之，崩溃维持了水平，silent直接负分，看不出作用
+
+*****
+
+####  adretyu67  
+##### 37469#       发表于 2022-10-25 16:45
+
+hym后面跟随老鸡和cty去eh了，后来引进了邪恶双雄。打到最后一起打GG就查无此人了。
+
+*****
+
+####  lyjssj  
+##### 37470#       发表于 2022-10-25 16:46
+
+丫头肉才是今年是治水冠军好吧，虽然ti11润的太快，但是功劳是忘不掉的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+今年汛期最严重的时候还是阿灵顿major，仙贝左手抱着阿梓，右手拿着小萨王储的奖金，major又是一路以胜者组冠军杀入总决赛
+
+集美和皮套人联军组成了cp粉，汛情一点也不亚于ti10
+
+然后丫头肉就像阿拉贡一样带着绿龙军团把摇摇欲坠的西恩刀塔讨论区救活了
+
+major决赛三把猴子和sven然后崩溃哥的斧王是我印象最深的
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 37471#       发表于 2022-10-25 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094521&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-25 16:43</a>
+
+跟去年一样解说里找吧
+
+或者不基德地从观众里把门票钱都没垫的老逼们拉过来，比如大爹和瑞秃 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那我建议票选掀背和德张，然后德张劣势路拷打掀背
+
+*****
+
+####  roxas.sora  
+##### 37472#       发表于 2022-10-25 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094545&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-25 16:44</a>
+
+说起来燃烧军团那次觉得薅羊毛还可以，结果打着打着就查无此人了。</blockquote>
+撞了新秀墙吧，出道很亮眼被研究之后打不出来了
+
+*****
+
+####  yyf奇遇记  
+##### 37473#       发表于 2022-10-25 16:47
+
+hym和jdg都可惜了，ehome跟vg青训我最看好这两哥们，给wings双雄陪葬了，把人打没了
+
+*****
+
+####  nightmare902015  
+##### 37474#       发表于 2022-10-25 16:47
+
+哥们的二号位对着cty录像学的好吧。一号位跟着ame录像学的。
+
+*****
+
+####  反方向的波  
+##### 37475#       发表于 2022-10-25 16:47
+
+ 本帖最后由 反方向的波 于 2022-10-25 16:50 编辑 
+
+独联体张志成ti10决赛g4就暴露了啊，不然怎么选的出来幽鬼ta斧王这种天才阵容
+
+反观当年瑞秃决赛回家局g4点出个中单夜魔，直接把场面盘活了
+
+*****
+
+####  adretyu67  
+##### 37476#       发表于 2022-10-25 16:48
+
+ti7 8 eh时期配老鸡 技师 邪恶双雄读书，这个4是肯定打不出来的。
+
+所以hym没了。
+
+*****
+
+####  六娃  
+##### 37477#       发表于 2022-10-25 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094587&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 16:47</a>
+
+hym和jdg都可惜了，ehome跟vg青训我最看好这两哥们，给wings双雄陪葬了，把人打没了 ...</blockquote>
+jdh是邪恶35同期生啊，青训队友，他没走留在wings的话，iceice那个位置肯定是他的
+
+*****
+
+####  zsu222  
+##### 37478#       发表于 2022-10-25 16:50
+
+拿当时还教过徐志雷虚灵刀小黑   
+
+*****
+
+####  yyf奇遇记  
+##### 37479#       发表于 2022-10-25 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58094623&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-25 16:48</a>
+
+jdh是邪恶35同期生啊，青训队友，他没走留在wings的话，iceice那个位置肯定是他的 ...</blockquote>
+jdh后来转5了，ehome为了把wings双雄拉来把他vote了，本来ehome那时候的班底应该是脑11+成智障+jdh的 
+
+71瞎逼乱搞把脑11跟成智障vote了
+
