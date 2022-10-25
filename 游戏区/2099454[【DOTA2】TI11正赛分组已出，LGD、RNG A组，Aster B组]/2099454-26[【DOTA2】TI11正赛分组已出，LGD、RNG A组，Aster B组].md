@@ -1563,3 +1563,77 @@ axx舰长多是因为她接活啊，她帮人代打又不是什么小道消息�
 
 管人痴真是司马了 无孔不入
 
+
+
+*****
+
+####  迷途lite  
+##### 37674#       发表于 2022-10-25 19:33
+
+艹艹之前那个商务还有点意思，好像叫江湖什么的，公式化练功塔防，能玩个四五个小时不腻
+
+*****
+
+####  yyf奇遇记  
+##### 37675#       发表于 2022-10-25 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58097396&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-25 19:32</a>
+搜去年专楼的时候看了一下 ti11期间13天3w7k楼  阿灵顿major1w5k楼  eslone+处sight+ti外卡赛2w3k楼
+而去年 ...</blockquote>
+错了吧，第一个楼500多页 有1.7万回复了
+
+*****
+
+####  蛭人  
+##### 37676#       发表于 2022-10-25 19:35
+
+去年楼里那么多集美，哥们都不进来的，太恶心了。
+
+*****
+
+####  yyf奇遇记  
+##### 37677#       发表于 2022-10-25 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58097426&amp;ptid=2099454" target="_blank">迷途lite 发表于 2022-10-25 19:33</a>
+艹艹之前那个商务还有点意思，好像叫江湖什么的，公式化练功塔防，能玩个四五个小时不腻 ...</blockquote>
+守一盘多少分钟啊
+
+*****
+
+####  迷途lite  
+##### 37678#       发表于 2022-10-25 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58097500&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-25 19:37</a>
+守一盘多少分钟啊</blockquote>
+我就打了比较简单的难度，波数少，好像是一个小时左右
+
+*****
+
+####  WDDzzZ  
+##### 37679#       发表于 2022-10-25 19:39
+
+AXX现在还能在顶分局和桶哥对线，DO鳖4K的局都玩不明白，刀狗能赏个两波舰已经算她封处长基德了。
+
+*****
+
+####  银翼的维罗西  
+##### 37680#       发表于 2022-10-25 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58097248&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-25 19:23</a>
+
+axx 802舰
+
+dodo 284舰
+
+物种多样性还挺明显的</blockquote>
+哈，AXX这种肥猪仙女也有这么多舔狗，我真是要呕了
+
+
+
+*****
+
+####  迷途lite  
+##### 37681#       发表于 2022-10-25 19:40
+
+开游戏看了下，40-60分钟吧，打的应该是前两个难度里的一个
+

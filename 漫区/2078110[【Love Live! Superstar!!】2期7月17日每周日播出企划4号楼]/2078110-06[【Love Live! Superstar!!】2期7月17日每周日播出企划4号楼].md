@@ -13314,3 +13314,35 @@ solo ed都没有，又没个人回，什么2期？不知道
 
 岔开坐也正常吧，不然是不是又该有人说什么割裂感强了
 
+
+
+*****
+
+####  ViyViy  
+##### 8707#       发表于 2022-10-25 19:33
+
+它就是不分开也割裂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次应该没有那垃圾动画啥事了，上次都会光速现编了自己多少也知道什么斤两。
+
+能来点小游戏吗？
+
+*****
+
+####  lj205  
+##### 8708#       发表于 2022-10-25 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58097419&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-25 19:33</a>
+
+它就是不分开也割裂这次应该没有那垃圾动画啥事了，上次都会光速现编了自己多少也知道什么斤两。
+
+能 ...</blockquote>
+你没看到上面坛友发的话吗？按头继续夸
+
+*****
+
+####  稀勢のささ  
+##### 8709#       发表于 2022-10-25 19:39
+
+ 本帖最后由 稀勢のささ 于 2022-10-25 19:40 编辑 
+
+装作自己努力过了不是很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">还割裂就不关橙猫猫的事了捏
+

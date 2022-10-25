@@ -10890,3 +10890,14 @@ S1抽风的时候也能备用
 
 不过miko也不会参加练习就是，会不会播也不知道可能就在别人的窗里客串一下
 
+
+
+*****
+
+####  rs5621  
+##### 2539#       发表于 2022-10-25 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">头一次跟运动会的直播，听你们说得我都有点期待了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
