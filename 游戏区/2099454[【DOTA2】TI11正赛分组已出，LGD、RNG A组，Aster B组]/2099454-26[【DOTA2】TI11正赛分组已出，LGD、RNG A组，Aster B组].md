@@ -3942,3 +3942,56 @@ atf感觉约等于gpk
 
 D2换成REBORN后就没了吧，我还记得那时候REBORN要玩家自己测试，玩家根本懒得去测试服，结果我头一天还在网吧打屠夫，第二天去就已经是新版本了
 
+
+
+*****
+
+####  zyw0  
+##### 37943#       发表于 2022-10-25 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58101688&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-25 23:35</a>
+
+还笑，恬不知耻！</blockquote>
+文爱神也和女朋友出去了啊。闹半天不会真的就1和8没女朋友吧
+
+*****
+
+####  哈曼的YY  
+##### 37944#       发表于 2022-10-25 23:55
+
+ 本帖最后由 哈曼的YY 于 2022-10-25 23:56 编辑 
+
+出大祭品真的有用！
+
+<img src="https://img.saraba1st.com/forum/202210/25/235604ii3rrdtf09dj0jer.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 23:56 上传
+
+*****
+
+####  六娃  
+##### 37945#       发表于 2022-10-25 23:55
+
+根据我打探到的最新消息，文爱肥猪提前回国做手术了，所以没留新加坡
+
+*****
+
+####  夏溪澪mio  
+##### 37946#       发表于 2022-10-25 23:59
+
+话说，郑翔怎么不播了
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  迷途lite  
+##### 37947#       发表于 2022-10-26 00:00
+
+666被noone和solo带到了不属于他的高度
+虽然说小伙挺帅的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">是兄弟喜欢的类型
+
