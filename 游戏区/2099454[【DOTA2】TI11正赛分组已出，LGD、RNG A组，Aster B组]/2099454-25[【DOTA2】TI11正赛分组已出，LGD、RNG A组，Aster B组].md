@@ -9592,3 +9592,237 @@ ori化身火女人柱力，然后puppy脑弹了没有针对好，两把火女直
 
 —— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 37053#       发表于 2022-10-25 10:12
+
+秘密你们高估resolution了，但凡TI决赛软脚的一定是个软脚虾，现在是尼公子太屌了掩饰了他的问题，等尼公子被人兑子看好原形毕露
+
+*****
+
+####  roxas.sora  
+##### 37054#       发表于 2022-10-25 10:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">有没有液体赢茶的可能性，我想看桶哥起码追平kky的亚军战绩
+
+*****
+
+####  nowaki  
+##### 37055#       发表于 2022-10-25 10:13
+
+但是当年鲁迅是1
+
+*****
+
+####  tasuku  
+##### 37056#       发表于 2022-10-25 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088216&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-25 10:02</a>
+
+有点煤球王粉丝花式吹的既视感。。。。。。。。。。。。。。。。。。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">我煤球俱乐部荣誉拿到烂，小白傻逼搭舞台也能站出来C
+
+国家队也有宇宙第一的奥运会
+
+你王淳鱼什么玩意儿配碰瓷煤球玉的？
+
+*****
+
+####  yyf奇遇记  
+##### 37057#       发表于 2022-10-25 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087616&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-25 09:19</a>
+
+焦比到底什么梗
+
+—— 来自 Xiaomi 21121210C, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+上次卜是说过了吗，科比坠机烧焦了，简称焦比
+
+*****
+
+####  zhliiiii  
+##### 37058#       发表于 2022-10-25 10:14
+
+不是，煎饭球迷还真觉得一场无关紧要的常规赛 靠对面让球嗯刷的60分很值得骄傲啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 37059#       发表于 2022-10-25 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088409&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-25 10:12</a>
+秘密你们高估resolution了，但凡TI决赛软脚的一定是个软脚虾，现在是尼公子太屌了掩饰了他的问题，等尼公子 ...</blockquote>
+有一个可能哦，石头人把秘密打下去，ppy拷贝4号位出怨灵，自己吸血，结果吸崩水晶哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 37060#       发表于 2022-10-25 10:15
+
+鲁迅出道在帝国打中单就有点抽象了  sl9那个卡尔实在是。。。。
+
+*****
+
+####  bluebaby  
+##### 37061#       发表于 2022-10-25 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088401&amp;ptid=2099454" target="_blank">masterffzhou 发表于 2022-10-25 10:12</a>
+已经默认茶能赢液体了吗
+
+—— 来自 OnePlus LE2120, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+只是考虑茶想冠军的话，赢液体是前提。其实对液体来说也是一样的，就是感觉决赛的秘密和败决的石头人可能相对来说会好打点。
+
+*****
+
+####  哈曼的YY  
+##### 37062#       发表于 2022-10-25 10:15
+
+好快的开
+
+6T7$]U)VI$ON)QFNR4MLTT9.jpg
+(135.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 10:15 上传
+
+<img src="https://img.saraba1st.com/forum/202210/25/101502nx0nv64rj4c6z0nv.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 37063#       发表于 2022-10-25 10:15
+
+ 本帖最后由 adretyu67 于 2022-10-25 10:16 编辑 
+
+骄阳，严格来说鳖茶的弱点太明显了。
+
+骄阳选不到老鹿火女我甚至想不出骄阳还能玩啥这个版本的数值怪carry全队。沙发火枪？
+
+我可不想再见到打石头人第一把那种给骄阳选个工具人电魂等着鹏子c的场面了。
+
+*****
+
+####  没钱买手办  
+##### 37064#       发表于 2022-10-25 10:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那打阳了4个ban了教练的BC嗯刷出来的泰罗值得骄傲吗
+
+*****
+
+####  nightmare902015  
+##### 37065#       发表于 2022-10-25 10:16
+
+一眼全华班bian除外。bian是明确说了自己要去德国吗为啥现在全网都称其为润德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 37066#       发表于 2022-10-25 10:16
+
+🍵过液体说真的机会很大
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yyf奇遇记  
+##### 37067#       发表于 2022-10-25 10:17
+
+有几个问题，关于“谢谢你带我认识科比”
+
+1、一个24岁的喜欢健身的小伙子，居然不是靠周边而是靠女友认识科比？这合理吗？
+
+2、一个认识科比的小伙子，一个崇拜科比的女友，居然没有领会科比那股不服输的狠劲儿，那你在粉什么？
+
+3、科比的最后一战，60分划上完美句号，你的最后一战，0-6梦游谜团，这就是你的无愧无悔？
+
+4、当初说好一起ti7，然后转身《无耻的队友》；这也完全不配一人一城的作风。
+
+我的意思是请不要侮辱科比，谢谢！
+
+*****
+
+####  masterffzhou  
+##### 37068#       发表于 2022-10-25 10:18
+
+有几个问题，关于“谢谢你带我认识科比”
+
+1、一个24岁的喜欢健身的小伙子，居然不是靠周边而是靠女友认识科比？这合理吗？
+
+2、一个认识科比的小伙子，一个崇拜科比的女友，居然没有领会科比那股不服输的狠劲儿，那你在粉什么？
+
+3、科比的最后一战，60分划上完美句号，你的最后一战，0-6梦游谜团，这就是你的无愧无悔？
+
+4、当初说好一起ti7，然后转身《无耻的队友》；这也完全不配一人一城的作风。
+
+我的意思是请不要侮辱科比，谢谢！
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  越动天下  
+##### 37069#       发表于 2022-10-25 10:18
+
+我都不觉得过液体机会大 但是也无所谓了 进决赛日也没问题
+
+*****
+
+####  没钱买手办  
+##### 37070#       发表于 2022-10-25 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果能重启成开赛时候烫嘴的茶还是有希望摸一下决赛地板的，如果放了五天凉了那真的寄了
+
+*****
+
+####  jk9hot  
+##### 37071#       发表于 2022-10-25 10:19
+
+对于zai死一次跟zai送一次我的脑海里已经存在了起码10个g的画面
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  roxas.sora  
+##### 37072#       发表于 2022-10-25 10:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">zai和reso拿到不是一锤定音那种团控3号位，拿恶心人能打输出的伪核还是挺厉害的。。。。
+
+*****
+
+####  adretyu67  
+##### 37073#       发表于 2022-10-25 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088501&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-25 10:16</a>
+
+一眼全华班bian除外。bian是明确说了自己要去德国吗为啥现在全网都称其为润德 ...</blockquote>
+没说过。唯一言论只有真世界后发微博说打完退役。
+
+然后被联系到倪哥排球女友就变成退役后润德国了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+只能说清算的时候一个都跑不掉
+
+*****
+
+####  Keynes  
+##### 37074#       发表于 2022-10-25 10:21
+
+茶茶加油啊，我还惦记着手办哥的红包呢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 37075#       发表于 2022-10-25 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58088501&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-25 10:16</a>
+
+一眼全华班bian除外。bian是明确说了自己要去德国吗为啥现在全网都称其为润德 ...</blockquote>
+之前和女朋友说过要移民的
+
+那时候还是神仙眷侣
+

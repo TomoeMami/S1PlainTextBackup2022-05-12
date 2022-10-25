@@ -10431,3 +10431,18 @@ LS至少反白下吧</blockquote>
 
 打到第七章，敌人的密度突然就高起来了
 
+
+
+*****
+
+####  pf67  
+##### 957#       发表于 2022-10-25 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58087251&amp;ptid=2098044" target="_blank">vidomina 发表于 2022-10-25 08:36</a>
+
+法杖很多场景可以用来逃课吧，毕竟远程，初始的哥布林火球杖后我一直在用，全堆魔力的话，伤害还挺高的。 ...</blockquote>
+
+法杖强的一逼，而且也不需要全堆魔力或者搞什么远程逃课，就和用其他武器一样就行。
+
+我本篇最终boss都是用法杖打的，就上去直接硬砍，精力条攒的比用剑快多了，伤害还不低。
+

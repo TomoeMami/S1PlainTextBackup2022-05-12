@@ -771,3 +771,17 @@ PC大屏听歌对味，AA快下池
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">卧槽了，这简直是精美包装的电子大便啊。
 但是这个包装太精美了，还好国内氪金比较麻烦还要买点卡，不然我就支付宝点一点冲了。
 
+
+
+*****
+
+####  fancykid  
+##### 86#       发表于 2022-10-25 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58086892&amp;ptid=2068560" target="_blank">zzy516232108 发表于 2022-10-25 07:36</a>
+
+卧槽了，这简直是精美包装的电子大便啊。
+
+但是这个包装太精美了，还好国内氪金比较麻烦还要买点卡， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">确实，前期真的很有氪金欲望，要不是iOS的充值过于繁琐就直接氪了
+
