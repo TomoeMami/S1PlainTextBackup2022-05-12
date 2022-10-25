@@ -13391,3 +13391,12 @@ solo ed都没有，又没个人回，什么2期？不知道
 
 可没完，12集的上映会还得再夸一次动画<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DarthAka  
+##### 8714#       发表于 2022-10-25 20:49
+
+in3首周实体盘14547，这张塞啥了
+

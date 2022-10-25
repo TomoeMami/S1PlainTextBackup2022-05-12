@@ -10967,3 +10967,38 @@ S1抽风的时候也能备用
 
 第四关开始难来了啊
 
+
+
+*****
+
+####  rs5621  
+##### 2546#       发表于 2022-10-25 20:41
+
+这mio头、骷髅身太哈人了
+
+*****
+
+####  holoan  
+##### 2547#         楼主| 发表于 2022-10-25 20:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干 完成度太高了
+
+一次性把MC的大部分neta全消耗掉了属于
+
+这确实不给自己留后路了明年要开也没东西做了
+
+*****
+
+####  rs5621  
+##### 2548#       发表于 2022-10-25 20:47
+
+<img src="https://img.saraba1st.com/forum/202210/25/204703qvep6pz6qhv6piwh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-25 20:47 上传
+
+跨部中箭了！
+
