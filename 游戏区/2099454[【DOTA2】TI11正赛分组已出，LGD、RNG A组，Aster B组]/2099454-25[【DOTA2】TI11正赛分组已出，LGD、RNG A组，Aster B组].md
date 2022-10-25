@@ -11701,3 +11701,166 @@ dota2唯一指定隔壁游戏不是农？
 
 <blockquote>另外哥们经常去管人区 </blockquote>
 
+
+
+*****
+
+####  resorry  
+##### 37283#       发表于 2022-10-25 15:23
+
+自爆了
+
+*****
+
+####  逃离二次元  
+##### 37284#       发表于 2022-10-25 15:24
+
+另外哥们经常去管人区
+
+*****
+
+####  nowaki  
+##### 37285#       发表于 2022-10-25 15:24
+
+另外哥们经常去管人区
+
+*****
+
+####  Litccc  
+##### 37286#       发表于 2022-10-25 15:25
+
+另外哥们经常去管人区
+
+*****
+
+####  银翼的维罗西  
+##### 37287#       发表于 2022-10-25 15:26
+
+另外哥们不经常去管人区
+
+*****
+
+####  seki_m  
+##### 37288#       发表于 2022-10-25 15:26
+
+另外哥们经常去管人区
+
+情商
+
+头像被屏蔽
+
+     已绑定手机
+
+0
+
+精华        
+
+21
+
+战斗力        
+
+3185
+
+帖子
+
+禁止发言
+
+*****
+
+####  lyjssj  
+##### 37289#       发表于 2022-10-25 15:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">俺就坦诚点说吧，最大的毒瘤不是我们吗
+
+有刀区不去，在游戏去盖专楼就算了，还去管人区搞了好几个分基地
+
+*****
+
+####  walfeds  
+##### 37290#       发表于 2022-10-25 15:26
+
+另外哥们经常去管人区
+
+
+
+*****
+
+####  古代人皮克  
+##### 37291#       发表于 2022-10-25 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十个人比赛七个韩国人的估计也就lpl赛区还能看的起劲了，ow联赛死掉的原因之一不就是太韩国人了吗
+
+*****
+
+####  seki_m  
+##### 37292#       发表于 2022-10-25 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58092985&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-25 15:26</a>
+
+俺就坦诚点说吧，最大的毒瘤不是我们吗
+
+有刀区不去，在游戏去盖专楼就算了，还去管人区搞了好几个分 ...</blockquote>
+夜饮潇湘全责
+
+*****
+
+####  尖刺外婆  
+##### 37293#       发表于 2022-10-25 15:28
+
+另外哥们经常去管人区
+
+*****
+
+####  tengshuo980  
+##### 37294#       发表于 2022-10-25 15:28
+
+刀楼对皮套人的理念和天辉对**的观念一样
+私底下可以想怎么看就怎么看，但不能在公共场合看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lyjssj  
+##### 37295#       发表于 2022-10-25 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58093005&amp;ptid=2099454" target="_blank">seki_m 发表于 2022-10-25 15:27</a>
+
+夜饮潇湘全责</blockquote>
+ame全责，找什么皮套人女朋友
+
+*****
+
+####  yyf奇遇记  
+##### 37296#       发表于 2022-10-25 15:31
+
+禁管人卜是因为上面哪个 resorry 在外面玩sg黑话被视奸你楼的管人小太监举报了吗。
+
+*****
+
+####  尖刺外婆  
+##### 37297#       发表于 2022-10-25 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58092985&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-25 15:26</a>
+俺就坦诚点说吧，最大的毒瘤不是我们吗
+
+有刀区不去，在游戏去盖专楼就算了，还去管人区搞了好几个分 ...</blockquote>
+撸狗让你反思的时候，你最好在鲨撸狗的马
+
+*****
+
+####  六娃  
+##### 37298#       发表于 2022-10-25 15:32
+
+[https://www.bilibili.com/video/BV15t411p7W7](https://www.bilibili.com/video/BV15t411p7W7)
+[https://www.bilibili.com/video/BV16s411H7x1](https://www.bilibili.com/video/BV16s411H7x1)
+
+厨子在ig替补打的两个比赛，鸟巢杯冠军，G联赛亚军
+
+*****
+
+####  StrangerJ  
+##### 37299#       发表于 2022-10-25 15:32
+
+另外哥们经常去管人区
+

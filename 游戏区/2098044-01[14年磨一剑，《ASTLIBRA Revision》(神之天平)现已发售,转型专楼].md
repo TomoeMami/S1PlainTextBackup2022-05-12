@@ -10543,3 +10543,12 @@ ns版本什么时候上
 
 看了下作者访谈，作者说年纪大了后面会转去做手机游戏，允悲
 
+
+
+*****
+
+####  神知道的sjd  
+##### 967#       发表于 2022-10-25 15:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下了DEMO，怎么感觉方向键的上键被卡住了一样……拔了手柄也一样，去玩了下哈迪斯就没有任何问题
+
