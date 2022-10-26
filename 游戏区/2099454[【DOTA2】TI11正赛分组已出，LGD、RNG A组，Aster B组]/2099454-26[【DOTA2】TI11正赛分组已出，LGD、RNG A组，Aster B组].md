@@ -12484,3 +12484,28 @@ a+m的脑残粉加一起也没巅峰核弹恐怖，巅峰核弹的网暴不是�
 
 核核只是想让鳖鳖夺冠，集美是想让游戏死
 
+
+
+*****
+
+####  星野航  
+##### 38907#       发表于 2022-10-26 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在的鳖鳖对阿茶有啥影响啊，不会是开赛前那顿上万的晚饭吧
+
+*****
+
+####  bluebaby  
+##### 38908#       发表于 2022-10-26 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58118867&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-26 22:45</a>
+今天生活不如意，看完森哥(冲击百大)剪的集锦，不禁感叹今年ti上的表演实在一般，今年最戏剧性的表演我投ma ...</blockquote>
+这就要推荐小组赛打红龙那场虚空了，最后几分钟的表演我觉得凌驾于3打5的ck，充满了小丑气息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 38909#       发表于 2022-10-26 22:59
+
+打eg的ta 3w经济输出不如辅助
+
