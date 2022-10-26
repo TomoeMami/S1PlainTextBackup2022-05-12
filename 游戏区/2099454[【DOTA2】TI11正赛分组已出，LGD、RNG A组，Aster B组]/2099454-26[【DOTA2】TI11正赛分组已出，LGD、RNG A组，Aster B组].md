@@ -12164,3 +12164,17 @@ nmd，ti怎么变成了这个样子
 
 2022-10-26 20:10 上传
 
+
+
+*****
+
+####  我前期那么肥  
+##### 38876#       发表于 2022-10-26 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58116148&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-26 20:10</a>
+
+看了一下就是正常规模的场馆啊
+
+官网还有LXO和林俊杰演唱会的照片</blockquote>
+主要放的这张照片拍得跟殡仪馆一样
+
