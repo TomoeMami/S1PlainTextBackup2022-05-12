@@ -11025,3 +11025,28 @@ syl问一下，风车村进村前那个平原的人声吟唱bgm好耳熟，还�
 
 二周目指读档后的新展开，全继承
 
+
+
+*****
+
+####  jbtc2224052  
+##### 1012#       发表于 2022-10-26 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58111108&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-26 15:29</a>
+
+没有newgame+
+
+二周目指读档后的新展开，全继承</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">那我的白没有了，会影响后期吗，要不要重新读档
+
+*****
+
+####  黒長直姫  
+##### 1013#       发表于 2022-10-26 15:39
+
+ 本帖最后由 黒長直姫 于 2022-10-26 15:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58111205&amp;ptid=2098044" target="_blank">jbtc2224052 发表于 2022-10-26 15:34</a>
+
+那我的白没有了，会影响后期吗，要不要重新读档</blockquote>
+白没有就是少了那段剧情而已 还有一些对话差分 不影响整体剧情走向，为什么玩下去就知道 但是影响你达成真结局需要的时间，因为这段剧情给一个真结局需要的道具，少了这个就得自己刷出一个补回来（新的版本据说掉率很高）
+
