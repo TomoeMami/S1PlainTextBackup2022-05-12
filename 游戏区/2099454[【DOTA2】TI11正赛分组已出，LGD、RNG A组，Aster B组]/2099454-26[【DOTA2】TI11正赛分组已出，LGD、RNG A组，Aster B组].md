@@ -12859,3 +12859,72 @@ ti10决赛g3，孤独摇滚 3-0 电锯人。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 38941#       发表于 2022-10-27 00:23
+
+好呀好呀，管人痴日漫痴轮番发癫，没比赛的刀楼真是欣欣向荣
+
+*****
+
+####  tengshuo980  
+##### 38942#       发表于 2022-10-27 00:24
+
+看隔壁nga好像说有个30gb的大更新<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  一品堂官  
+##### 38943#       发表于 2022-10-27 00:25
+
+这下好了 你楼又出现一派 动漫痴
+
+*****
+
+####  反方向的波  
+##### 38944#       发表于 2022-10-27 00:25
+
+<blockquote> 然后冰眼还加敏捷，sa的技能伤害，都是按敏捷伤害算的。这不仅合理，且科学  </blockquote>
+集美的马被猛犸拱来拱去也是不仅合理，且科学
+
+*****
+
+####  逃离二次元  
+##### 38945#       发表于 2022-10-27 00:25
+
+这下好了 你楼又出现一派 动漫痴
+
+*****
+
+####  walfeds  
+##### 38946#       发表于 2022-10-27 00:25
+
+<blockquote>Valve Software's indev game, NEON PRIME, is likely a DOTA-adjacent Sci-Fi game, made by ICEFROG, taking place in other dementions, such as the Continuum or the Moons of Ultoria. It is likely NOT an FPS, and obviously, unrelated to Half-Life: Citadel, Valve's other indev game.</blockquote>
+冰蛙你在干什么啊冰蛙
+
+*****
+
+####  一品堂官  
+##### 38947#       发表于 2022-10-27 00:28
+
+今晚打了两把天梯 纯辅助、辅助 天怒法师 20-5 17-6 队友和bot一样 一把没赢<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
+想打个洞怎么这么难<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 38948#       发表于 2022-10-27 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58120313&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-27 00:24</a>
+
+看隔壁nga好像说有个30gb的大更新
+
+—— 来自 S1Fun</blockquote>
+超级假赛论坛倒腾点二手屎都能倒腾歪的，不就是测试服更了个版本吗
+
