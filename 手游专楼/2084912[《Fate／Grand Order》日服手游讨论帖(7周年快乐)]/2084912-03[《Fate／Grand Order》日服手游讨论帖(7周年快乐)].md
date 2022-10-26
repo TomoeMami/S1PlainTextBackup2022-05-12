@@ -2991,3 +2991,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 等了半天mc的没更新，直接开谷歌更新了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3265#       发表于 2022-10-26 23:53
+
+还真是国际版没这功能，只能继续忍受弹出广告了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

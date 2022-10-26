@@ -12713,3 +12713,29 @@ E队里有司马管人吃
 
 说起张睿达装有文化最深入骨髓的标志，我当时知道这小孩是车万人的时候就反应过来，他取的这个信仰_彼岸的ID为什么是faith_bian不是Sinnkou_Higan
 
+
+
+*****
+
+####  zhliiiii  
+##### 38930#       发表于 2022-10-26 23:52
+
+艹
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  StrangerJ  
+##### 38931#       发表于 2022-10-26 23:52
+
+不哭不是真核核<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+不过我那个时候是因为伞兵mmy才喜欢那个dk的
+
+*****
+
+####  nowaki  
+##### 38932#       发表于 2022-10-26 23:58
+
+看着撸狗鞭被集美这样清算，我甚至觉得清算的不够狠，到现在还是对撸狗鞭个人家庭的攻击，甚至没否定掉上个major的成绩，只能说水厂下手还是不够狠
+
