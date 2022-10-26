@@ -7838,3 +7838,106 @@ xxs打2能进TI讲道理还是找了霸气救火，而且那年的野王太强�
 全芬凑不齐吧w
 而且看马桶说什么50岁赛车手总让我想到莱科宁
 
+
+
+*****
+
+####  哈曼的YY  
+##### 38391#       发表于 2022-10-26 11:44
+
+不就是管人痴最喜欢的老阿姨么
+
+syl 田中理惠43
+
+*****
+
+####  六娃  
+##### 38392#       发表于 2022-10-26 11:45
+
+莱科宁是芬兰体育goat，拿赛车举例很正常
+
+*****
+
+####  nightmare902015  
+##### 38393#       发表于 2022-10-26 11:45
+
+不喜欢这种一股子4v刻板面相和刻板音调的老阿姨。<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+喜欢那种说话茶的要死，每句话说完都“嗯～”一下的年轻阿姨。
+
+*****
+
+####  walfeds  
+##### 38394#       发表于 2022-10-26 11:45
+
+ 本帖最后由 walfeds 于 2022-10-26 11:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107308&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-26 11:40</a>
+
+全芬凑不齐吧w
+
+而且看马桶说什么50岁赛车手总让我想到莱科宁</blockquote>
+[https://liquipedia.net/dota2/4_Anchors_%2B_Sea_Captain](https://liquipedia.net/dota2/4_Anchors_%2B_Sea_Captain)
+[https://liquipedia.net/dota2/5_Anchors_No_Captain](https://liquipedia.net/dota2/5_Anchors_No_Captain)
+
+全芬班还是组过的，不过几个老菜逼不打了
+
+[https://liquipedia.net/dota2/Wor ... pe/Open_Qualifier/1](https://liquipedia.net/dota2/World_Electronic_Sports_Games/2018/North_Europe/Open_Qualifier/1)
+
+18年有桶哥顶儿子41逃税的国家队还被瑞典佬锤了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 38395#       发表于 2022-10-26 11:46
+
+只爱说日语的老阿姨
+
+*****
+
+####  反方向的波  
+##### 38396#       发表于 2022-10-26 11:47
+
+到这个点上张睿达做什么也没用了，不如往地上一躺怀五夜德
+
+*****
+
+####  星野航  
+##### 38397#       发表于 2022-10-26 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107424&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-26 12:45</a>
+https://liquipedia.net/dota2/4_Anchors_%2B_Sea_Captain
+
+https://liquipedia.net/dota2/5_Anchors_No_C ...</blockquote>
+打出来的就桶跟杰瑞了啊
+看来还是瑞典doto发力更早基数更大
+普森算是挽尊了
+
+*****
+
+####  百世诸侯  
+##### 38398#       发表于 2022-10-26 11:47
+
+只爱40岁赘肉法令纹硅胶奶皱纹白种老阿姨
+
+*****
+
+####  六娃  
+##### 38399#       发表于 2022-10-26 11:48
+
+trixi是芬兰dota教父，当年初代fnc的3，马桶和杰瑞都可以算他带着开始打职业的
+
+*****
+
+####  DarthAka  
+##### 38400#       发表于 2022-10-26 11:49
+
+现在尸王瘤起来跳刀连击刀BKB大晕锤
+
+
+
+*****
+
+####  nightmare902015  
+##### 38401#       发表于 2022-10-26 11:52
+
+感觉连击刀跳刀bkb三号位尸王屁用没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

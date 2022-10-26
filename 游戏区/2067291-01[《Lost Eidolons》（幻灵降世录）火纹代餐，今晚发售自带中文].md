@@ -2307,3 +2307,15 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 大本营探索体验好差，跑的慢，传送分片区，这书页太难找</blockquote>
 我不知道键鼠是哪个键，但是片区是可以在地图上切换的，手柄是肩键
 
+
+
+*****
+
+####  tand177  
+##### 191#       发表于 2022-10-26 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58103274&amp;ptid=2067291" target="_blank">h1r0 发表于 2022-10-26 02:17:55</a>
+我也通了，感觉70小时有30多小时都是浪费在调配人员上，但回过头看这游戏养成性相当相当低，养不出战神，基 ...</blockquote>虞姬四面楚歌的晚上就死了，符合传说啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

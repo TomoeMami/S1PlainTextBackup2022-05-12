@@ -4090,3 +4090,16 @@ ok，感谢
 
 六芒星拿了前期赶紧就要升满，后期就别拿了，不然就是坑你的
 
+
+
+*****
+
+####  415452356  
+##### 384#       发表于 2022-10-26 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58103837&amp;ptid=2052594" target="_blank">女神アイギス 发表于 2022-10-26 08:02</a>
+看了下，1.10把99级成就都改成50级了，那这个方法基本上就退版本了，因为这招是后半升得块前半慢 ...</blockquote>
+  现在这个版本还行吧，基本上拿个皇冠升满正常玩都能100级左右出去，我现在打完福地boss就清成就拿西格玛女王了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

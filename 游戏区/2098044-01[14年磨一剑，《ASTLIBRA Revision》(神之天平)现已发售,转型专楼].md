@@ -10901,3 +10901,29 @@ ns版本什么时候上
 
 今晚星海6和黎轨2就要解锁了，要冲突了
 
+
+
+*****
+
+####  浅羽直之  
+##### 1001#       发表于 2022-10-26 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58101299&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-10-26 00:17</a>
+第三关关底大眼有正确的姿势吗，草按到手疼了</blockquote>
+我是带盾打。开局A手先攒槽招雷宝宝，这boss技能不难躲，平时耐心拆手，手拆了就好打了。也可以找机会用鲸鱼跳进眼珠子那打一套，眼珠子里反而没什么威胁。
+总之有点耐心就能过，再不行多刷刷，我25级打的
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pf67  
+##### 1002#       发表于 2022-10-26 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58099876&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-25 21:55</a>
+
+谢，刷钱比刷糖有盼头多了
+
+我总觉得我少了本掉落图鉴啊，这游戏是真的没有各个区域掉落图鉴吗 ...</blockquote>
+你在8章东京图刷钱的过程中，砂糖就根本不缺了，刷一趟掉几个
+
