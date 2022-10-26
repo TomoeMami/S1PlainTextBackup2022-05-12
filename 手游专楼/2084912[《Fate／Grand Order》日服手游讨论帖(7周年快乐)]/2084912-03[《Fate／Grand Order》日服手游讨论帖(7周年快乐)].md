@@ -2982,3 +2982,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 逼着卸了MUMU模拟器换64位又忘记备份，装好之后怎么连以前的一游戏多开都没了，之前加速被砍已经很不爽了，这个也没的话还要你何用，又或者只是国际版没有这功能？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新吾  
+##### 3264#       发表于 2022-10-26 23:44
+
+等了半天mc的没更新，直接开谷歌更新了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
