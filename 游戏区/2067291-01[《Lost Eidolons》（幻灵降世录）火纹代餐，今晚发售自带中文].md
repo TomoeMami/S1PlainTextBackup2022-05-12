@@ -2295,3 +2295,15 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 等官方实装NEW+二周目模式再开了。
 
+
+
+*****
+
+####  tand177  
+##### 190#       发表于 2022-10-26 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58103916&amp;ptid=2067291" target="_blank">fyzqwzh 发表于 2022-10-26 08:13</a>
+
+大本营探索体验好差，跑的慢，传送分片区，这书页太难找</blockquote>
+我不知道键鼠是哪个键，但是片区是可以在地图上切换的，手柄是肩键
+
