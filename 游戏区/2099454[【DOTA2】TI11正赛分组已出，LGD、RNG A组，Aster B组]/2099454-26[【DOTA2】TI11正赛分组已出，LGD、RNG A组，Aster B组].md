@@ -8008,3 +8008,183 @@ fnc.eu主要是全都是HON转过来的，竞技状态比其他草台班子强�
 
 【【Ti11】LXO魅力时刻-哔哩哔哩】 https://b23.tv/8tamHN5
 
+
+
+*****
+
+####  qq2007ssy  
+##### 38409#       发表于 2022-10-26 12:11
+
+<blockquote>nightmare902015 发表于 2022-10-26 10:19
+老逼都这么想。前段时间我带一个爱玩小狗的老逼复健，被对面女王紫苑到就死。我不停地说“你tm能 ...</blockquote>
+只是被紫苑没啥问题，可以出撒旦啊
+
+*****
+
+####  Keynes  
+##### 38410#       发表于 2022-10-26 12:12
+
+来自潘婕床上
+
+*****
+
+####  yyf奇遇记  
+##### 38411#       发表于 2022-10-26 12:13
+
+回复 @某某某2623 :看了下你的动态，挺可怜的，生活在底层很辛苦吧，看个游戏能花时间花精力去为了喷而喷，真有意思​
+
+*****
+
+####  lyjssj  
+##### 38412#       发表于 2022-10-26 12:13
+
+AME今年最喜感还是阿灵顿进了胜绝，以为能离开龟壳了，微博挂了那个谭雅，面8还在下面帮腔
+
+没想到啊，精准买在最高点<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 38413#       发表于 2022-10-26 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107870&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 12:13</a>
+
+回复 @某某某2623 :看了下你的动态，挺可怜的，生活在底层很辛苦吧，看个游戏能花时间花精力去为了喷而喷， ...</blockquote>
+这老哥不是sg第一挑粪工吗
+
+*****
+
+####  nightmare902015  
+##### 38414#       发表于 2022-10-26 12:16
+
+ 本帖最后由 nightmare902015 于 2022-10-26 12:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107845&amp;ptid=2099454" target="_blank">qq2007ssy 发表于 2022-10-26 12:11</a>
+只是被紫苑没啥问题，可以出撒旦啊</blockquote>
+毕竟对面是女王。十多分钟是紫苑，再等等是b带沉默，再等等就是羊刀来咯。
+撒旦重要还是吸血，用来解紫苑真的相当难用。毕竟一般被紫苑时常常满血。在摸不到女王的时候还得是bkb。
+
+*****
+
+####  六娃  
+##### 38415#       发表于 2022-10-26 12:18
+
+<img src="https://img.saraba1st.com/forum/202210/26/121644mp7wgnpk1yjp71fw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:16 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121652yt5q7c7n50bcphc5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (72.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:16 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121702b6cj6oo6w6wqhpav.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (99.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121712igzl9mhr1p488gkb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121719nbthbyyzbtybuljr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121726f5wddnchh3mzbz5n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121733lmhk4mm7j2f3jp6l.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (104.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121740ugwwjpr76jvrbvw7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (76.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121746ozefmgq1hat0xmem.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (83.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121800nv71s88x7v357r8u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:18 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121815tsnhn411opnic11c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (74.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:18 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/121822ogyhhj4hjj9jmijj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (102.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:18 上传
+
+*****
+
+####  星野航  
+##### 38416#       发表于 2022-10-26 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107718&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-26 13:03</a>
+
+没尾巴我记得就在fnc混过段时间吧</blockquote>
+是，从hon转过来就在fnc，跟fly一起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 38417#       发表于 2022-10-26 12:19
+
+杜鹏大逃亡
+
+*****
+
+####  战狼PTSD  
+##### 38418#       发表于 2022-10-26 12:22
+
+摸奈头浪费时间太多了
+
