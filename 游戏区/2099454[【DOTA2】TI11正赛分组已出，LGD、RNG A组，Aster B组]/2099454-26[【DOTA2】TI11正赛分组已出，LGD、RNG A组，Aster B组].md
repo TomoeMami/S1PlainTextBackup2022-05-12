@@ -6348,3 +6348,162 @@ dodo单口还算能忍
 
 粉色女陪玩一边哭一边夹，鉴定为丁真了但没有完全丁真
 
+
+
+*****
+
+####  nowaki  
+##### 38220#       发表于 2022-10-26 10:12
+
+dodo爆哭切片已经秒杀打dota切片了
+
+
+
+*****
+
+####  没钱买手办  
+##### 38221#       发表于 2022-10-26 10:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105585&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-26 10:10</a>
+不是，你们都不看dodo看比赛吗，RNG基地快爆时急得哭出来，突出一个真情实意好吧 ...</blockquote>
+鉴定为不如爸我难受
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  12481632  
+##### 38222#       发表于 2022-10-26 10:12
+
+当年银川wca最后奖金发了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 38223#       发表于 2022-10-26 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105619&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-26 10:12</a>
+dodo爆哭切片已经秒杀打dota切片了</blockquote>
+特别是她官号发的切片那真的是玩god
+
+*****
+
+####  windhawind2  
+##### 38224#       发表于 2022-10-26 10:13
+
+大妈上次露脸还是世纪大tm和解 贡献了中立yy的梗 结果被ruru借势杀憋 连带自己也被nga骂成憋粉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然我觉得他只是纯乐子人
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  lyjssj  
+##### 38225#       发表于 2022-10-26 10:15
+
+连麦的不是CSGO的官方皮套吗
+
+*****
+
+####  nowaki  
+##### 38226#       发表于 2022-10-26 10:15
+
+鸡煲虽然是撸狗，但是卡尔玩得还有模有样的
+
+*****
+
+####  yyf奇遇记  
+##### 38227#       发表于 2022-10-26 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105669&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-26 10:15</a>
+
+连麦的不是CSGO的官方皮套吗</blockquote>
+哪个就是个撸狗
+
+*****
+
+####  izayoi39  
+##### 38228#       发表于 2022-10-26 10:16
+
+刚才看了几个这届ti的集锦，看到小狗出bkb已经是常态手段了，想起来几年前我看比赛的时候说小狗要出bkb被人喷的时候了
+
+*****
+
+####  yyf奇遇记  
+##### 38229#       发表于 2022-10-26 10:16
+
+小狗出不出bkb无所谓，关键你要能开出来，16年-17年比赛了，徐老鳖也经常小狗出bkb的
+
+*****
+
+####  acg_s1  
+##### 38230#       发表于 2022-10-26 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105280&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-26 09:50</a>
+
+职业解说真的好的是张志诚</blockquote>
+12年银k作为解说出道讲自己精灵小小翻盘橘子的那个视频真是惊为天人，当时直播还没有兴起，还以为职业选手的游戏理解都能这么晓畅流利地讲述出来，没想到这就已经是顶点了
+
+*****
+
+####  12481632  
+##### 38231#       发表于 2022-10-26 10:17
+
+小狗出bkb当然没问题，出个bkb全场不开上高被秒就是畜中大畜了
+
+*****
+
+####  Avantasi  
+##### 38232#       发表于 2022-10-26 10:17
+
+我求求你们不要聊皮套人了，哪怕聊A畜霉畜直肠cp也比皮套人好
+
+*****
+
+####  nowaki  
+##### 38233#       发表于 2022-10-26 10:18
+
+小狗不仅出bkb，马桶小狗还在同样位置被ta拉比克举起秒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nightmare902015  
+##### 38234#       发表于 2022-10-26 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105679&amp;ptid=2099454" target="_blank">izayoi39 发表于 2022-10-26 10:16</a>
+刚才看了几个这届ti的集锦，看到小狗出bkb已经是常态手段了，想起来几年前我看比赛的时候说小狗要出bkb被人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老逼都这么想。前段时间我带一个爱玩小狗的老逼复健，被对面女王紫苑到就死。我不停地说“你tm能不能出个bkb或者分身斧？” 被他辱骂小狗出bkb，力量英雄出分身都是脑瘫
+
+*****
+
+####  哈曼的YY  
+##### 38235#       发表于 2022-10-26 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104827&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-26 09:24</a>
+
+哦牛批 在喝水up视频下面说出小小丢不出竞技场这件事，一觉醒来被集美围着网暴 ...</blockquote>
+有无链接
+
+*****
+
+####  樱冢名月  
+##### 38236#       发表于 2022-10-26 10:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老害已经思维固化了，我三号位风行第一件一直出的梅肯，窝觉得没问题就是没问题！
+
+*****
+
+####  zsu222  
+##### 38237#       发表于 2022-10-26 10:20
+
+银K作为71首席大弟子，最让我难绷得是在VG组织全队看亮剑
+
+*****
+
+####  nowaki  
+##### 38238#       发表于 2022-10-26 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105732&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-26 10:19</a>
+
+有无链接</blockquote>
+[https://www.bilibili.com/video/BV16G4y187TR](https://www.bilibili.com/video/BV16G4y187TR)
+
