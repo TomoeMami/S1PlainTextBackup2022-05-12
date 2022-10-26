@@ -2905,3 +2905,21 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 怎么搞啊
 
+
+
+*****
+
+####  qixinno2  
+##### 3256#       发表于 2022-10-26 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈的 又要重搞引继码 好烦
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3257#       发表于 2022-10-26 17:42
+
+下个月二号2.6回顾，九号新活动到月底，感觉十二月初就要开2.7了
+
+再倒推一下是不是下个月开圣诞
+

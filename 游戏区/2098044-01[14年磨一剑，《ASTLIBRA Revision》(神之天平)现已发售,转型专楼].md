@@ -11066,3 +11066,15 @@ boss本身是没触碰伤害的，只能通过跟boss重合站，攻击眼睛造
 
 到了二阶段就是送的，随便技能清清喷火怪就过了。
 
+
+
+*****
+
+####  A1LI  
+##### 1015#       发表于 2022-10-26 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58103342&amp;ptid=2098044" target="_blank">首领 发表于 2022-10-26 02:48</a>
+
+对饰品没用</blockquote>
+有用的，爱信不信。
+

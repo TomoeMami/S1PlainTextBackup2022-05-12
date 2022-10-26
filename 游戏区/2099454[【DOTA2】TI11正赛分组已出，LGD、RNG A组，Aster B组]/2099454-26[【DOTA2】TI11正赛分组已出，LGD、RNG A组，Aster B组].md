@@ -10501,3 +10501,33 @@ C 盾上的名字有我们的一半，也有徐老鳖的一半
 
 表演赛混进去两个mdy的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 38679#       发表于 2022-10-26 17:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">踢了鲁迅和瑞丁就放这些人上来打？
+
+*****
+
+####  yyf奇遇记  
+##### 38680#       发表于 2022-10-26 17:40
+
+这都是些啥叼毛啊就全明星
+
+*****
+
+####  tasuku  
+##### 38681#       发表于 2022-10-26 17:40
+
+这傻逼表演赛我还不如群里拉10个人开黑好玩
+
+*****
+
+####  没钱买手办  
+##### 38682#       发表于 2022-10-26 17:42
+
+全明星赛上会公布新英雄和女仆马西吗
+
