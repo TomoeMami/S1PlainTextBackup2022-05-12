@@ -186,3 +186,14 @@ C闪打90的杀阶本还是可以的吧
 
 这次什么情况，怎么就没刷到毒苹果礼装满破的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ousia  
+##### 43653#       发表于 2022-10-26 21:16
+
+是不是这次没什么必要挂，到最后发现借的也还是午茶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+自己出一张未满破的点数刷完该搬的也都搬完了
+

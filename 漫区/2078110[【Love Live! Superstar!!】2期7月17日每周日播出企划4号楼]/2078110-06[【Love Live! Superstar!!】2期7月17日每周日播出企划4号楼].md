@@ -13642,3 +13642,15 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8735#       发表于 2022-10-26 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58117026&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-26 20:56</a>
+
+唉，等吧……这期千堇红蓝也都没solo了，可推没话说了吧？等着看三期12个人能不能一人一集solo(突然想起来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明办法都写脸上了，可你就是不说，楼U太温柔了
+

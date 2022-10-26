@@ -25,3 +25,12 @@
 
 别急，11月和12月更烂
 
+
+
+*****
+
+####  因为你不会  
+##### 14425#       发表于 2022-10-26 21:19
+
+绫总12月还要过生日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
