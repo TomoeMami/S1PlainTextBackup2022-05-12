@@ -197,3 +197,12 @@ C闪打90的杀阶本还是可以的吧
 
 自己出一张未满破的点数刷完该搬的也都搬完了
 
+
+
+*****
+
+####  佐塚間桐  
+##### 43654#       发表于 2022-10-27 01:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是不用角色加成了
+
