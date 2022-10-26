@@ -11921,3 +11921,37 @@ x哥皮球能理解，怎么骄阳也是鳖孙啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Ti3还是TI4是hao逼出来安慰来着，叫鳖鳖再来一年
 
+
+
+*****
+
+####  超法拉  
+##### 38848#       发表于 2022-10-26 19:31
+
+所以当年核弹那个盘子有多恐怖可见一斑，哪怕现在鳖鳖翻车了，还有很多人敢说自己是核核
+
+*****
+
+####  一品堂官  
+##### 38849#       发表于 2022-10-26 19:37
+
+野区大了什么波都有<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Mikumiku831  
+##### 38850#       发表于 2022-10-26 19:38
+
+当年核核还敢说买断hao的手现在看集美还挺纯良
+
+
+
+*****
+
+####  morwhipppo  
+##### 38851#       发表于 2022-10-26 19:39
+
+集美不是纯良，而是和主子一样，从里到外的太监
+
