@@ -152,3 +152,40 @@ V社不过了？没买plus本子能白嫖不？</blockquote>
 
 我宣布ti11是有史以来最好的ti
 
+
+
+*****
+
+####  我前期那么肥  
+##### 39017#       发表于 2022-10-27 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121483&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-27 06:27</a>
+商城可以买的至宝除了火女，tb，宙斯，冰女还有哪些？
+
+—— 来自 HONOR LGE-AN00, Android 12上的 S1Next- ...</blockquote>
+剑圣炸弹人pa啥的都可以吧反正不多
+
+*****
+
+####  SEGA  
+##### 39018#       发表于 2022-10-27 07:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106463&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-26 10:59</a>
+
+一般四号位玩玩pom啊尸王啊冰女啊发条啊这类的比较有摸钱能力都可以第一件出怨灵之契，解放队伍三号位而 ...</blockquote>
+我是老萨尔了，之前基本能保持70%不到点的胜率，但是现在输三赢一。
+
+*****
+
+####  火鸡味锅巴  
+##### 39019#       发表于 2022-10-27 07:37
+
+这么垃圾的ti！一个至宝能解决吗！ 还真可以 
+
+*****
+
+####  ArowRocher  
+##### 39020#       发表于 2022-10-27 07:42
+
+我又不缺钱能买到的
+
