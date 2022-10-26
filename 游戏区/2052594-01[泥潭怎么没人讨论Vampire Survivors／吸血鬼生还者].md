@@ -4047,3 +4047,16 @@ ok，感谢
 
 求问一下是否有其他牌的解锁方式？ 只能选一张啊现在。
 
+
+
+*****
+
+####  otakun  
+##### 380#       发表于 2022-10-26 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104143&amp;ptid=2052594" target="_blank">wthall 发表于 2022-10-26 08:39</a>
+昨天解锁第四章地图，也解锁了卡牌系统。
+
+求问一下是否有其他牌的解锁方式？ 只能选一张啊现在。 ...</blockquote>
+牌都是成就里解锁，自己去看看慢慢挑着做。开局都是只能选一张的，除了西格玛女皇，其他角色都是大概11分钟和21分钟的宝箱开出第二第三张的选择
+
