@@ -11386,3 +11386,38 @@ SAO窗又bug了好像
 
 你们什么时候签的
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2591#       发表于 2022-10-26 20:03
+
+ 本帖最后由 ZQXY2002 于 2022-10-26 20:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">都没人直播练习啊，两位主办方着急喊人参加了。
+
+看了下推特kanata 486会来，勉强能玩
+
+*****
+
+####  rs5621  
+##### 2592#       发表于 2022-10-26 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人呢，这下光杆司令了
+
+<img src="https://img.saraba1st.com/forum/202210/26/200811otw8pe87035rh8w0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (34.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 20:08 上传
+
+*****
+
+####  rs5621  
+##### 2593#       发表于 2022-10-26 20:09
+
+61来挽尊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

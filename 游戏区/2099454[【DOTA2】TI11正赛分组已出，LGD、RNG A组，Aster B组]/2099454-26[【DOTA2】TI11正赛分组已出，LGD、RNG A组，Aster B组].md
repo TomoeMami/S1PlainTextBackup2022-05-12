@@ -12098,3 +12098,69 @@ nmd，ti怎么变成了这个样子
 
 哇，他妈看着像个殡仪馆一样，DOTA2葬礼是吧，傻逼度假社
 
+
+
+*****
+
+####  OVTVO  
+##### 38870#       发表于 2022-10-26 20:02
+
+茶队核心粉丝群消息，不保真，明年TI还是来中国办，但是风格会不同于以往的TI，走派对风格，目前投票领先的地点是DK老板送给徐志雷的云南酒吧。
+
+*****
+
+####  樱冢名月  
+##### 38871#       发表于 2022-10-26 20:03
+
+什么别墅杯
+
+*****
+
+####  原装大小姐  
+##### 38872#       发表于 2022-10-26 20:03
+
+消息来源sg
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Mikumiku831  
+##### 38873#       发表于 2022-10-26 20:04
+
+票选第一
+
+*****
+
+####  Mikumiku831  
+##### 38874#       发表于 2022-10-26 20:04
+
+票选第一
+
+*****
+
+####  Asukalangley33  
+##### 38875#       发表于 2022-10-26 20:10
+
+看了一下就是正常规模的场馆啊
+
+官网还有LXO和林俊杰演唱会的照片
+
+感觉还凑合吧
+
+<img src="https://img.saraba1st.com/forum/202210/26/201037uupva4xe4cbaafq9.jpg" referrerpolicy="no-referrer">
+
+<strong>singapore-indoor-stadium_1581077985.jpg</strong> (99.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 20:10 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/201037llp9t9qdql323qll.jpg" referrerpolicy="no-referrer">
+
+<strong>C8ZJ8BrUIAAhJs4.jpg</strong> (855 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 20:10 上传
+
