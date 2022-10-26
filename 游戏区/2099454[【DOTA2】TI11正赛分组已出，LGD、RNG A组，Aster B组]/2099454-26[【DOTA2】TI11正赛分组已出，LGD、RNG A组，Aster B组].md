@@ -6688,3 +6688,181 @@ pc端看不到封面，哥们点开视频直奔评论区看乐子好吧
 
 哦这个就是nowaki吗，关注了。
 
+
+
+*****
+
+####  樱冢名月  
+##### 38261#       发表于 2022-10-26 10:34
+
+不过美大生超美丽3D以后又回去套皮了，倒是没看了。
+
+*****
+
+####  恐怖利刃  
+##### 38262#       发表于 2022-10-26 10:34
+
+<img src="https://img.saraba1st.com/forum/202210/26/103415m9yvrby4z9p64zn6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4848C360-CF3E-4FAB-B2A9-DB7B02E55236.jpeg</strong> (107.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 10:34 上传
+
+*****
+
+####  朝游北海  
+##### 38263#       发表于 2022-10-26 10:34
+
+漏油推荐的暮色独行还有更绝的呢，人家觉得国家的疫情防控过度反应，just flu懂不懂，至于什么喝水和认为ACE消失很可惜和这个比都是小意思。
+
+*****
+
+####  勤练带来力量  
+##### 38264#       发表于 2022-10-26 10:34
+
+森哥剪处长的犯罪表演连慢放都不用的
+
+*****
+
+####  反方向的波  
+##### 38265#       发表于 2022-10-26 10:35
+
+<img src="https://p.sda1.dev/8/c8aeb990f458d18e7a84ae8f509e41e0/CMP_20221026103518115.jpg" referrerpolicy="no-referrer">超级冰眼论坛
+
+*****
+
+####  joker9527  
+##### 38266#       发表于 2022-10-26 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105868&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-26 10:27</a>
+
+仔细想想我今年TI几乎全在皮套人直播间看的， 版主最多，然后是dodo和AXX
+
+去年TI10我还不认识这些 ...</blockquote>
+哪个皮套？
+
+*****
+
+####  银翼的维罗西  
+##### 38267#       发表于 2022-10-26 10:37
+
+哦牛批，空间全是窝不认识的管人
+
+*****
+
+####  usoda  
+##### 38268#       发表于 2022-10-26 10:38
+
+还有个辉耀计划呢 前面哥哥一换六无敌 下一个就是桶哥天命了 请问中间的不复盘吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 38269#       发表于 2022-10-26 10:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三十水人，蝴蝶龙心小狗都能洗，区区冰眼洒洒水啦。
+
+*****
+
+####  yyf奇遇记  
+##### 38270#       发表于 2022-10-26 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105982&amp;ptid=2099454" target="_blank">朝游北海 发表于 2022-10-26 10:34</a>
+
+漏油推荐的暮色独行还有更绝的呢，人家觉得国家的疫情防控过度反应，just flu懂不懂，至于什么喝水和认为AC ...</blockquote>
+哦牛皮，还好我看完解说lgd跟rng的第一个bo3就取消关注了
+
+*****
+
+####  lyjssj  
+##### 38271#       发表于 2022-10-26 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106020&amp;ptid=2099454" target="_blank">joker9527 发表于 2022-10-26 10:36</a>
+
+哪个皮套？</blockquote>
+这三个不都是皮套人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+好吧AXX不算，而且AXX我是早认识的
+
+*****
+
+####  Litccc  
+##### 38272#       发表于 2022-10-26 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105871&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 10:27</a>
+
+不如跟哥们一起在睿站看，大微胖秋冬穿卫衣，比版型更重要的其实是内衣来的实在。 ...</blockquote>
+在超级管人专楼说这个？
+
+*****
+
+####  yyf奇遇记  
+##### 38273#       发表于 2022-10-26 10:40
+
+在超级管人专楼说这个？
+
+*****
+
+####  食粪者  
+##### 38274#       发表于 2022-10-26 10:40
+
+牛逼，我想回那层楼居然被拉黑了捏。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">不得不怀疑是黑化集美
+
+*****
+
+####  六娃  
+##### 38275#       发表于 2022-10-26 10:40
+
+我感觉你们推荐的这个集美大叔那个集美独行还不如谭姓飞柱
+不会有人看比赛真的是为了看解说报点场上发生了什么吧
+
+*****
+
+####  walfeds  
+##### 38276#       发表于 2022-10-26 10:41
+
+在超级管人专楼说这个？
+
+*****
+
+####  yyf奇遇记  
+##### 38277#       发表于 2022-10-26 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105978&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-26 10:34</a></blockquote>
+这是几号发的
+
+*****
+
+####  没钱买手办  
+##### 38278#       发表于 2022-10-26 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以新一届的我帮哥哥选队友，给哥哥选个什么3呢
+
+*****
+
+####  勤练带来力量  
+##### 38279#       发表于 2022-10-26 10:41
+
+看了看楼友说的辉耀计划，不更新7.32不也是雪碧锤了老干瘪吗<img src="https://p.sda1.dev/8/b2b5957aa628e88cc91457b7cbfa7149/CMP_20221026104143983.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 38280#       发表于 2022-10-26 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106097&amp;ptid=2099454" target="_blank">食粪者 发表于 2022-10-26 10:40</a>
+
+牛逼，我想回那层楼居然被拉黑了捏。不得不怀疑是黑化集美</blockquote>
+你被nowaki b站号拉黑了？
+
+
+
+*****
+
+####  nightmare902015  
+##### 38281#       发表于 2022-10-26 10:42
+
+谭姓飞柱到底是啥，谭杉杉吗。
+
