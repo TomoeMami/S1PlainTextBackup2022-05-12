@@ -4022,3 +4022,17 @@ ok
 解锁西格玛女皇以后完全没动力玩了，有种神功大成的感觉，去哪儿都没有刺激感了 ...</blockquote>
   西格玛女王不就是证明你已经可以删游戏的标志吗
 
+
+
+*****
+
+####  女神アイギス  
+##### 378#       发表于 2022-10-26 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58082524&amp;ptid=2052594" target="_blank">415452356 发表于 2022-10-24 20:29</a>
+
+ok，感谢
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了下，1.10把99级成就都改成50级了，那这个方法基本上就退版本了，因为这招是后半升得块前半慢
+
