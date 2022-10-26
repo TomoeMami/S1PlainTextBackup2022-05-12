@@ -109,3 +109,28 @@ V社不过了？没买plus本子能白嫖不？</blockquote>
 
 早上起来发现dota2真快死了，不然抠门胖不会这么大方
 
+
+
+*****
+
+####  lyjssj  
+##### 39012#       发表于 2022-10-27 07:15
+
+回旋了回旋了
+
+*****
+
+####  yyf奇遇记  
+##### 39013#       发表于 2022-10-27 07:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58119059&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-26 22:59</a>
+打eg的ta 3w经济输出不如辅助</blockquote>
+不是qc？
+
+*****
+
+####  格雷殿下  
+##### 39014#       发表于 2022-10-27 07:17
+
+卜急，好像明年再买也可以
+
