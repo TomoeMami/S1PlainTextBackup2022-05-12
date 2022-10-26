@@ -11002,3 +11002,26 @@ syl问一下，风车村进村前那个平原的人声吟唱bgm好耳熟，还�
 
 话说二周目会继承什么东西
 
+
+
+*****
+
+####  孔祈  
+##### 1010#       发表于 2022-10-26 15:26
+
+终章打完BOSS看完剧情手抖没存档，人麻了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  黒長直姫  
+##### 1011#       发表于 2022-10-26 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58110970&amp;ptid=2098044" target="_blank">jbtc2224052 发表于 2022-10-26 15:20</a>
+
+我的白已经没了，还以为后期会回来呢
+
+话说二周目会继承什么东西</blockquote>
+没有newgame+
+
+二周目指读档后的新展开，全继承
+
