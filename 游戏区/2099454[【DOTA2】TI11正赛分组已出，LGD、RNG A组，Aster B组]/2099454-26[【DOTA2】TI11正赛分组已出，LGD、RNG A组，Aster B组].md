@@ -4532,3 +4532,74 @@ cty有什么好吹的，刷钱特化版rtz。你拿EE评价rtz的话套他一点
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说，水厂不死，集美肯定消失不了
 
+
+
+*****
+
+####  白野苍衣  
+##### 38010#       发表于 2022-10-26 08:24
+
+雪碧官推宣布原班人马再战一年
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 38011#       发表于 2022-10-26 08:25
+
+哦牛批，意思是漏油们脑补了两天的内讧，vote没发生
+
+*****
+
+####  反方向的波  
+##### 38012#       发表于 2022-10-26 08:25
+
+涛声依旧
+
+*****
+
+####  syndrome2032  
+##### 38013#       发表于 2022-10-26 08:27
+
+反正横竖到最后是我支持老干瘪是因为ame，我支持让你滚是因为maybe，和其他没什么关系。
+
+对此解决办法是:鳖茶夺冠就好办了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+毕竟成绩是衡量一个选手的最终标准。
+
+*****
+
+####  Avantasi  
+##### 38014#       发表于 2022-10-26 08:27
+
+回归性原理：A黑就是集美
+
+*****
+
+####  yyf奇遇记  
+##### 38015#       发表于 2022-10-26 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104008&amp;ptid=2099454" target="_blank">白野苍衣 发表于 2022-10-26 08:24</a>
+雪碧官推宣布原班人马再战一年</blockquote>
+没看到啊，造垚是吧
+
+*****
+
+####  星野航  
+##### 38016#       发表于 2022-10-26 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104008&amp;ptid=2099454" target="_blank">白野苍衣 发表于 2022-10-26 09:24</a>
+
+雪碧官推宣布原班人马再战一年</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">求个信源？没看到啊
+
+*****
+
+####  tasuku  
+##### 38017#       发表于 2022-10-26 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104032&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-26 08:27</a>
+
+回归性原理：A黑就是集美</blockquote>
+暗黑集美本来就多啊
+
