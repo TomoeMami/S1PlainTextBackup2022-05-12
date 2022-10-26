@@ -6173,3 +6173,178 @@ xxs他大伯才是管事的。
 
 —— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Hieda  
+##### 38199#       发表于 2022-10-26 10:03
+
+国土这届ti bp进步挺大的，以前他肯定不会作出写轮眼4号位pom这种操作的
+
+*****
+
+####  12481632  
+##### 38200#       发表于 2022-10-26 10:03
+
+面八，Rotk还在直播解说的时候都还是不错的，只要别和鳖鳖连麦
+
+*****
+
+####  樱冢名月  
+##### 38201#       发表于 2022-10-26 10:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹艹以前也很专业好吧，只能说打过职业刚退役那段时间，上解说台基本就秒杀所谓的专业解说了。
+
+*****
+
+####  jy000129  
+##### 38202#       发表于 2022-10-26 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58100162&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-25 22:11</a>
+一个中单被打的不敢去中路对线了，也就别谈什么中路天赋了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你说的是曾经在OG的ana吗？
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  resorry  
+##### 38203#       发表于 2022-10-26 10:04
+
+lanm带皮球解说是吧
+
+*****
+
+####  morwhipppo  
+##### 38204#       发表于 2022-10-26 10:04
+
+刚刚回顾了一下老鳖黑屏解说aster 打水厂的最后一把，比赛刚结束就有一个叫徐总的送礼物，老鳖一直在那边说，一个猜想，但我不敢说
+
+*****
+
+####  樱冢名月  
+##### 38205#       发表于 2022-10-26 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以前最喜欢大妈和鳖鳖连麦，毕竟这个人确实真的敢喊鳖鳖的，徐志雷还只敢大妈大妈的回。话说大妈这种性格真特么的雌小鬼
+
+*****
+
+####  jk9hot  
+##### 38206#       发表于 2022-10-26 10:05
+
+皮球银k靖三解说班子，傻狗聚集地
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  tasuku  
+##### 38207#       发表于 2022-10-26 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105495&amp;ptid=2099454" target="_blank">Hieda 发表于 2022-10-26 10:03</a>
+
+国土这届ti bp进步挺大的，以前他肯定不会作出写轮眼4号位pom这种操作的</blockquote>
+有没有可能是球爹按着国土的头选的
+
+*****
+
+####  没钱买手办  
+##### 38208#       发表于 2022-10-26 10:06
+
+皮球喊畜长时候国土一边回头看别人一边笑，肯定是整个基地都在笑呀
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jk9hot  
+##### 38209#       发表于 2022-10-26 10:06
+
+皮球如果今年是20岁我他妈立刻化身皮球铁粉
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  阿卵真是牛逼  
+##### 38210#       发表于 2022-10-26 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104832&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 09:25</a>
+
+TI7那个算是更衣室事故了。大舅哥好像压力爆到直接哭了，然后鳖鳖竟然没有安抚而是黑脸加压，这是我黑鳖鳖 ...</blockquote>
+原来还有这样的故事吗？我就记得17年机枪兵经典火女炸血精各种救鳖鳖，鳖鳖这么搞确实是个初升。
+
+*****
+
+####  adretyu67  
+##### 38211#       发表于 2022-10-26 10:07
+
+黑脸B又不是一年两年了，以前黑，职业生涯末期也黑。
+
+只能说不是队长的样子
+
+*****
+
+####  roxas.sora  
+##### 38212#       发表于 2022-10-26 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">皮球和国土一起bp那张照片看着皮球才是老板。。。。。。
+
+*****
+
+####  Kazepollar  
+##### 38213#       发表于 2022-10-26 10:08
+
+张志成的谈吐水平已经可以秒杀百分之九十九的电竞选手了，我估计等再过几年他能给自己搞一个银川的文娱方面的外参挂职
+
+*****
+
+####  银翼的维罗西  
+##### 38214#       发表于 2022-10-26 10:10
+
+不是，你们都不看dodo看比赛吗，RNG基地快爆时急得哭出来，突出一个真情实意好吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jy000129  
+##### 38215#       发表于 2022-10-26 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105585&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-26 10:10</a>
+不是，你们都不看dodo看比赛吗，RNG基地快爆时急得哭出来，突出一个真情实意好吧 ...</blockquote>
+垫子经济没有女人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  roxas.sora  
+##### 38216#       发表于 2022-10-26 10:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">上班时候看主舞台，静音
+
+*****
+
+####  tasuku  
+##### 38217#       发表于 2022-10-26 10:11
+
+dodo单口还算能忍
+
+非要带几个撸狗农批还夹子音姐妹连麦就真的受不了了
+
+*****
+
+####  nightmare902015  
+##### 38218#       发表于 2022-10-26 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105585&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-26 10:10</a>
+不是，你们都不看dodo看比赛吗，RNG基地快爆时急得哭出来，突出一个真情实意好吧 ...</blockquote>
+感觉那是已经哭出来了。
+
+*****
+
+####  反方向的波  
+##### 38219#       发表于 2022-10-26 10:11
+
+粉色女陪玩一边哭一边夹，鉴定为丁真了但没有完全丁真
+
