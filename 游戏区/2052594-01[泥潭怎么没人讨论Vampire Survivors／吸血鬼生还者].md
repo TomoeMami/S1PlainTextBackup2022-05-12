@@ -4246,3 +4246,17 @@ ok，感谢
 
 福地到底是啥99分钟？
 
+
+
+*****
+
+####  zzydust  
+##### 396#       发表于 2022-10-26 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58110543&amp;ptid=2052594" target="_blank">wcorvo 发表于 2022-10-26 14:54</a>
+
+那个超级糖果盒怎么解锁，收藏里就这一个没有
+
+只能纯看脸宝箱里出吗？ ...</blockquote>
+堆幸运，所有武器和被动升满以后开钱袋箱子有几率出普通糖果盒，出了以后下一次就有几率开出超级糖果盒了，而且我玩的时候感觉如果拿了超过格子上限那种被动就基本出不了糖果盒了，所以道具最好不要乱捡。
+
