@@ -11282,3 +11282,20 @@ hard的研究员三守门打的我欲仙欲死（屏幕都快看不清楚了）
 
 顺便问一下我现在也不知道还缺啥了，哪里有中文版的查漏补缺吗……
 
+
+
+*****
+
+####  pf67  
+##### 1035#       发表于 2022-10-27 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58120771&amp;ptid=2098044" target="_blank">大暗月 发表于 2022-10-27 01:06</a>
+蛇岛的叫蝎子啥啥的
+
+顺便问一下我现在也不知道还缺啥了，哪里有中文版的查漏补缺吗…… ...</blockquote>
+游戏里有个宝物图鉴
+
+wiki看不懂日文可以对着装备数值去找
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
