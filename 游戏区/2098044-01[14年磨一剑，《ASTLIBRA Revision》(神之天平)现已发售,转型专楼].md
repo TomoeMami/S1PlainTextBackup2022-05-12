@@ -10872,3 +10872,14 @@ ns版本什么时候上
 5万块的天平升级有什么用吗？属性加得更高点？</blockquote>
 可以把最低级的白色词条变成最高级的绿色词条
 
+
+
+*****
+
+####  六至九  
+##### 998#       发表于 2022-10-26 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58103268&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-26 02:14</a>
+这后面怎么打，男女二人组我就打不过了</blockquote>
+把武器强化强化，刷点强势的装备盘还是很容易的。
+
