@@ -11197,3 +11197,31 @@ hard的研究员三守门打的我欲仙欲死（屏幕都快看不清楚了）
 
 还没到剧情点用不了
 
+
+
+*****
+
+####  朔洵千夜  
+##### 1027#       发表于 2022-10-26 22:21
+
+现在人在终章无法回头的门前面，包括心天平和神盾都get了，跟大贤者对话还是不给东西，每章设计图我都亮了做出来了，商店货也全清了，雪山的坑爹盾也带走了，到底还会差哪里了呢，本强迫症选手要死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sannapolis  
+##### 1028#       发表于 2022-10-26 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58117527&amp;ptid=2098044" target="_blank">雷比尔 发表于 2022-10-26 21:24</a>
+第一章卡关了，刚到湿地用了佩可奇拉滴露回到过去的村子里，出去用天平只能回城，出城只能去边境，酒馆里的 ...</blockquote>
+应该是遇到bug了
+正常来说佩可奇拉露滴在拿到天枰后会自己消失的
+
+*****
+
+####  Sannapolis  
+##### 1029#       发表于 2022-10-26 22:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58118512&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-26 22:21</a>
+现在人在终章无法回头的门前面，包括心天平和神盾都get了，跟大贤者对话还是不给东西，每章设计图我都亮了 ...</blockquote>
+蛇神岛和魔王城的盔甲拿了吗？
+

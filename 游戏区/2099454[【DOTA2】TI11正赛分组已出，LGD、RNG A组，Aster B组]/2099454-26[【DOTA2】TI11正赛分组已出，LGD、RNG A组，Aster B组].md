@@ -12402,3 +12402,39 @@ a+m的脑残粉加一起也没巅峰核弹恐怖，巅峰核弹的网暴不是�
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  非建政专用号  
+##### 38898#       发表于 2022-10-26 22:24
+
+还是当年打刀刀的人多，现在没客户端的集美比当年有客户端的核核人少，令人嘘嘘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 38899#       发表于 2022-10-26 22:24
+
+主要核核都是上古时期的网民，那时候上网的各种群魔乱舞，线下真人pk不是说笑的
+
+*****
+
+####  Bernoulli  
+##### 38900#       发表于 2022-10-26 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58118337&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-26 22:10</a>
+
+没经历过
+
+看起来比集美有战斗力的样子 毕竟集美没客户端</blockquote>
+记不清是土农民还是谁在评论当年横空出世的奇迹哥时说过感觉就像dota1时代的徐志雷。他巅峰期的手活在职业圈也有不少人推崇吧，只是打得太久越来越彩笔还几次三番切假腿不肯彻底退下去，后面崩盘也是水到渠成。
+
+*****
+
+####  六娃  
+##### 38901#       发表于 2022-10-26 22:32
+
+现在国外对着ni公子的评价是16年的老迹
+不知道会不会有被喊波兰鳖的那天
+
