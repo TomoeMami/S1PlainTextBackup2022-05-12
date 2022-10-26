@@ -13596,3 +13596,19 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 还是那句话，哪把枪好使用哪把，不明生物才不管你是一期生二期生还是水虹<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 8731#       发表于 2022-10-26 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58110518&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-26 14:52</a>
+
+想问下前代团的solo专一般几年后出啊？(以前不太关心这个)
+
+听不到可可的edsolo我要死了.jpg
+
+你还是忘不了未 ...</blockquote>
+水好像是五周年才出的，有的等了，傻偄运营估计还会把这两个edsolo当卖点呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

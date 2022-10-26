@@ -12187,3 +12187,15 @@ nmd，ti怎么变成了这个样子
 
 看这视角是故意拍成这样的吧，这个台阶看着场馆可不小，和航母拍成捕鱼船一个思路了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 38878#       发表于 2022-10-26 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58114573&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-26 18:37</a>
+
+TI11的休息周，Valve安排了媒体见面日，前四名的战队：Secret、Tundra、Aster、Liquid出席会议接受了采访， ...</blockquote>
+鹏子这回答很有开战在即的状态了，曾焦阳答的是个**
+
