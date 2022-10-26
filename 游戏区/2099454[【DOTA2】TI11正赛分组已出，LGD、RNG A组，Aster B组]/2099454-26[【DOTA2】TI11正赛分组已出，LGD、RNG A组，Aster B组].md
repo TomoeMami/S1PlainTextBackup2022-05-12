@@ -9119,3 +9119,72 @@ k1再不济有一手骷髅王选出来能刷能吃伤害能狂砍一条街，我
 当时炒的都要出圈了吧，感觉不如香槟一毛。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉还是7470有意思点，但我低估了集美的实力
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 38521#       发表于 2022-10-26 14:43
+
+给霉鳖新做的哪个，好像几天就80w了吧
+
+*****
+
+####  没钱买手办  
+##### 38522#       发表于 2022-10-26 14:44
+
+香槟，求佛，最伟大的亚军，个人top3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  救死扶伤魔力瞎  
+##### 38523#       发表于 2022-10-26 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58109041&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-26 13:22</a>
+妮们现在随便抱怨，等女仆玛西出来一切都会好起来的</blockquote>
+我比较期待那个对魔忍马西。
+
+—— 来自 OPPO PGCM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  樱冢名月  
+##### 38524#       发表于 2022-10-26 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不考虑唱功我比较喜欢贷在ti前，说起来结巴还有以父之名，爸我回来了，烟花易冷这些符合情景的怎么不做。
+
+*****
+
+####  tasuku  
+##### 38525#       发表于 2022-10-26 14:46
+
+结巴的改变突出一个比原版还听你妈不懂的歌词，还是算了
+
+香槟和求佛好太多
+
+*****
+
+####  樱冢名月  
+##### 38526#       发表于 2022-10-26 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过最近爱听那个不该，只能说甜甜甜
+
+*****
+
+####  resorry  
+##### 38527#       发表于 2022-10-26 14:49
+
+但是最伟大的亚军的歌词太有才了，非常偏爱。
+
+香槟只能说拉满了
+
+*****
+
+####  反方向的波  
+##### 38528#       发表于 2022-10-26 14:51
+
+2007年的今天，DotA6.49版本发布，在此版本中发布了新装备紫苑、臂章、冰甲和标枪。
+今天也是澳大利亚选手 Ana 的生日（1999）。
+

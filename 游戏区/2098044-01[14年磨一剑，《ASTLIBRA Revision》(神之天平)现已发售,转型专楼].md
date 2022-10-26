@@ -10977,3 +10977,17 @@ ns版本什么时候上
 白是不是第五章不能带上岛?带上岛必死吗？</blockquote>
 魔王城别带进去，等遇到盖乌再回去把白带走
 
+
+
+*****
+
+####  大暗月  
+##### 1008#       发表于 2022-10-26 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58108391&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-26 12:46</a>
+
+到终章提示你再往前就无法回头了才会回不去 8章和终章都是随便传回去的</blockquote>
+感谢
+
+syl问一下，风车村进村前那个平原的人声吟唱bgm好耳熟，还在哪个游戏里出现过吗
+
