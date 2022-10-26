@@ -9822,3 +9822,134 @@ ceb 大爹是有一份topaon/安娜使用手册的
 集美天天吹独眼龙拧绳，我一开始就说厨子全靠没尾巴育婴</blockquote>
 把主谓替换下再读一遍，立马就是严父慈母了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  二宮飛鳥酱  
+##### 38600#       发表于 2022-10-26 16:33
+
+xiao8那个微信聊天到底真的假的，今天爆炸式传播<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 38601#       发表于 2022-10-26 16:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58112389&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-26 16:33</a>
+
+xiao8那个微信聊天到底真的假的，今天爆炸式传播</blockquote>
+他自己发在微博上面的
+
+*****
+
+####  六娃  
+##### 38602#       发表于 2022-10-26 16:34
+
+有没有可能聊天截图几天前就出来了，今天传开是因为水费刚到位
+
+*****
+
+####  蛭人  
+##### 38603#       发表于 2022-10-26 16:35
+
+纪录片里不就有一个细节，厨子装自己在打dota2，大爹直播看到都笑了，有一说一，还是notail比ceb懂厨子。
+
+*****
+
+####  憧憬鲨  
+##### 38604#       发表于 2022-10-26 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58112186&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-26 16:23</a>
+孙一峰黄旭东不是刀塔开黑玩的不亦乐乎吗，哪怕TI比赛期间也不看比赛就在哪开黑
+
+这纯度有点高 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几兄弟就是纯粹享受游戏啊，我前几天进客户端看比赛的时候也看到好几个好友在打
+
+*****
+
+####  nowaki  
+##### 38605#       发表于 2022-10-26 16:36
+
+我觉得厨子性格扭曲有他年纪轻轻被ig放弃，然后去og又被网暴的原因，这段经历放不少人身上都应该直接玉玉了。
+
+*****
+
+####  adretyu67  
+##### 38606#       发表于 2022-10-26 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58112389&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-26 16:33</a>
+
+xiao8那个微信聊天到底真的假的，今天爆炸式传播</blockquote>
+前几天就有了。
+
+*****
+
+####  二宮飛鳥酱  
+##### 38607#       发表于 2022-10-26 16:37
+
+微博上没看到啊，删了？
+
+*****
+
+####  六娃  
+##### 38608#       发表于 2022-10-26 16:38
+
+独眼龙拧绳根本就是纯生造出来的
+杰瑞是老将中流砥柱根本不用拧
+厨子他拧不动，全靠没尾巴育婴
+普森更拧不动，普森自述自己决赛完全就是尿裤裆不想打的状态，闭麦听歌，最后一把点个宙斯嗯混只想快点打完回家，谁知道有人送冠军
+独眼龙唯一拧到的，可能就是情绪波动非常大的notail了
+
+*****
+
+####  反方向的波  
+##### 38609#       发表于 2022-10-26 16:38
+
+破案了，一切都圆起来了
+已知：
+独眼龙拧不动厨子
+独眼龙：光头 本泽马 atf是三个厨子
+
+我觉得  ATF：独眼龙的屁话一点都没用  完全没错啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  madawc  
+##### 38610#       发表于 2022-10-26 16:38
+
+og四个人拉扯出一个孝顺儿子，lgd拉扯出一个败家子，人和人是不一样的
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 38611#       发表于 2022-10-26 16:38
+
+那段聊天记录，最开始我记得不是王八发在微博还是哪儿的吗
+
+*****
+
+####  六娃  
+##### 38612#       发表于 2022-10-26 16:40
+
+atf bzm嫌独眼龙唠叨的样子就差没写在脸上了
+不过这俩小孩斯德哥尔摩夺冠的时候也懵住了，手足无措，靠独眼龙带着领完了奖
+
+*****
+
+####  roxas.sora  
+##### 38613#       发表于 2022-10-26 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">刀塔教父没尾巴的育婴手册
+
+*****
+
+####  yyf奇遇记  
+##### 38614#       发表于 2022-10-26 16:42
+
+我靠，这个聊天记录的文章居然全部被公关了，我只在小居这里找到了存档，只能说不愧是水厂啊
+
+[https://dota.shandian.biz/3245.html](https://dota.shandian.biz/3245.html)
+
