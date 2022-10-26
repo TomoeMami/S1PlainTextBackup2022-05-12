@@ -52,3 +52,30 @@
 
 V社不过了？没买plus本子能白嫖不？
 
+
+
+*****
+
+####  aruruu  
+##### 39007#       发表于 2022-10-27 06:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121503&amp;ptid=2099454" target="_blank">高达X魔王 发表于 2022-10-27 06:41</a>
+V社不过了？没买plus本子能白嫖不？</blockquote>
+送一个月plus+一级本子+一款商城至宝
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Avantasi  
+##### 39008#       发表于 2022-10-27 06:46
+
+我宣布ti11是有史以来最好的ti
+
+*****
+
+####  人別離苦  
+##### 39009#       发表于 2022-10-27 06:52
+
+我宣布ti11是有史以来最好的ti
+
