@@ -2347,3 +2347,23 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  bwsusaga  
+##### 194#         楼主| 发表于 2022-10-26 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107538&amp;ptid=2067291" target="_blank">h1r0 发表于 2022-10-26 11:52</a>
+
+虽然我也想过这个路数，但毕竟这个项羽死前身边的人都齐齐整整的，这虞姬临阵自刎也太说不过去了
+
+主要是 ...</blockquote>
+感觉游戏缺了不少个人线的东西，
+
+虞姬这个角色在公布的PV里，是我方角色，演示里还给她换职业装备。
+
+最终战直接没影。
+
+游戏里项羽线的不少角色在前期同阵营时还可以送礼提升好感，但游戏里全集中在最后寄了。
+

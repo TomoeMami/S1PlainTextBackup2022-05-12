@@ -8453,3 +8453,157 @@ jixing这个比是不是打完major被踢了后就没声音了<img src="https://
 
 2022-10-26 12:51 上传
 
+
+
+*****
+
+####  nowaki  
+##### 38448#       发表于 2022-10-26 12:52
+
+在被前队友揍这件事上没人比得上fly
+
+*****
+
+####  二宮飛鳥酱  
+##### 38449#       发表于 2022-10-26 12:52
+
+rock.y，意思是后面假赛被ban了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  夜光铃  
+##### 38450#       发表于 2022-10-26 12:53
+
+所以明年他要真和a处在一起做彼此的宝搞不也挺好么，最好把原班人马拉上，这班人就锁死好了
+
+*****
+
+####  yyf奇遇记  
+##### 38451#       发表于 2022-10-26 12:53
+
+那一整个赛季直到脑十一租借到lgd之前，lgd都被lfy、igv各种狂草，各种梗，最火的就是 黑皮游戏现在才刚刚开始  和严父我研我妍
+
+*****
+
+####  lyjssj  
+##### 38452#       发表于 2022-10-26 12:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">严父确实挺经典的
+
+*****
+
+####  yyf奇遇记  
+##### 38453#       发表于 2022-10-26 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58108501&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-26 12:52</a>
+
+rock.y，意思是后面假赛被ban了</blockquote>
+又开始造垚是吧，别人虽然菜了点，但是不至于这样吧
+
+<img src="https://img.saraba1st.com/forum/202210/26/125409jjfbj113lv189b9p.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026125347.png</strong> (5.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:54 上传
+
+*****
+
+####  nowaki  
+##### 38454#       发表于 2022-10-26 12:54
+
+水厂有不是傻逼 有撸狗鞭背锅就行了 明年国内还是谁也打不过lgd
+
+*****
+
+####  星野航  
+##### 38455#       发表于 2022-10-26 12:54
+
+那还是让我森哥解脱吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 38456#       发表于 2022-10-26 12:54
+
+fy当时打三也突出一个喜感
+
+*****
+
+####  ck4pa  
+##### 38457#       发表于 2022-10-26 12:54
+
+有一说一，处长找队友能力是真的有一手
+
+*****
+
+####  六娃  
+##### 38458#       发表于 2022-10-26 12:55
+
+17年是霉鳖声望谷底，还没有现在集美们有组织的攻击，全靠ti上打回来的
+
+*****
+
+####  二宮飛鳥酱  
+##### 38459#       发表于 2022-10-26 12:55
+
+公司网连不上液体百科，我的我的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  二宮飛鳥酱  
+##### 38460#       发表于 2022-10-26 12:56
+
+那年高考兄弟只看了个TI7，对处长最深的印象是玩个PA在线上空补，突然B到塔下去打MC的NEC被反杀，给兄弟看乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nowaki  
+##### 38461#       发表于 2022-10-26 12:57
+
+人不能两次踏入同一条河流，但是ame可以<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 38462#       发表于 2022-10-26 12:58
+
+ti7虽然把吴冠超的名声打回来了点儿，结果ti刚结束吴冠超就又自己作死被各种暴打，直到lgd刮到了一张来自max的彩票李斯，自己终于放弃刷钱的路数后才解决了当初lgd124都要刷钱，2张地图都不够刷的状况
+
+*****
+
+####  roxas.sora  
+##### 38463#       发表于 2022-10-26 12:59
+
+看了下贴吧发了今年创意工坊宝瓶的作品。。。。。。。。阀门对着出就能赚钱，怎么还有人赚钱都懒的，那么多好看的，真是辣鸡
+
+*****
+
+####  yyf奇遇记  
+##### 38464#       发表于 2022-10-26 12:59
+
+ti前就打回来了 武汉mdl 2-0 major冠军 og，然后鏖战震中杯3-4名lfy 5场夺冠，来高地粉丝直呼lgd是不可战胜的
+
+*****
+
+####  AIDSL  
+##### 38465#       发表于 2022-10-26 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105210&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-26 09:46</a>
+
+@AIDSL 来拷打了</blockquote>
+我已经被他拉黑了<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 38466#       发表于 2022-10-26 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58108666&amp;ptid=2099454" target="_blank">AIDSL 发表于 2022-10-26 13:01</a>
+
+我已经被他拉黑了</blockquote>
+这下子偿还了
+

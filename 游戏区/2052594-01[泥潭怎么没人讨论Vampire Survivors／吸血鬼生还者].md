@@ -4103,3 +4103,20 @@ ok，感谢
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  藤井紫  
+##### 385#       发表于 2022-10-26 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106910&amp;ptid=2052594" target="_blank">椎名mahuyo 发表于 2022-10-26 11:20</a>
+六芒星拿了前期赶紧就要升满，后期就别拿了，不然就是坑你的</blockquote>
+我意见相反
+六芒是不适合前期拿的，反倒是12分后环境适合
+首先前期攻击力低，防御力，回复力等于无，吸经验单位也不行
+这种时候拿六芒还升级，基本上就是浪费一个装备位，进一步降低清怪效率，同时也很难吸到经验。
+相反，12分之后的环境下，圣经超武可以在怪群里乱走走到18分，只要不去碰环箭四守卫。要是圣水搭配的水晶球升满，基本上经验刷打出来就会被吸，六芒的副作用很低。
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
