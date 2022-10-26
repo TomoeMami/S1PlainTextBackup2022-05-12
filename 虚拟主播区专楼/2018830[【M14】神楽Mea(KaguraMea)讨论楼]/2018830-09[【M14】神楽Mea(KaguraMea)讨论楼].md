@@ -7910,3 +7910,21 @@ errrrr，不是录播的吗</blockquote>
 
 中途说今天安排就是打完游戏先打扫，然后后睡了，醒了去一下医院，晚上播一下油管，之后晚上图奇继续rank<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Amibo  
+##### 12752#       发表于 2022-10-26 16:02
+
+竟然玩枪火重生？
+
+*****
+
+####  clvan_  
+##### 12753#       发表于 2022-10-26 16:05
+
+y1s1，这游戏做的还行，对得起价钱。
+
+今天又是两动，疯狂游戏time
+

@@ -11205,3 +11205,14 @@ S1抽风的时候也能备用
 
 完全没有人对运动会的话题有兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 2572#         楼主| 发表于 2022-10-26 16:12
+
+[https://youtu.be/x3VOHzJ23Ls](https://youtu.be/x3VOHzJ23Ls)
+
+mio的窗，miko现在只开了个SAO的案件窗，看上去自己不开窗的可能性比较大
+
