@@ -5970,3 +5970,206 @@ SDN这个逼，没有小飞机那件事，现在应该彻底踹开AA成为解说
 卜是小飞机吧，他前女友是圈外的，小飞机是yc的女朋友</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谢指正，我记错了。
 
+
+
+*****
+
+####  jk9hot  
+##### 38176#       发表于 2022-10-26 09:53
+
+Ti6的时候当时rotk老鳖塞拉的解说专业性是有的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  反方向的波  
+##### 38177#       发表于 2022-10-26 09:53
+
+<blockquote>  x哥13年在斗鱼带妹直播 </blockquote>13年这人才十三四岁吧
+倒戈了倒戈了，不支持小林靖三郎了
+
+*****
+
+####  walfeds  
+##### 38178#       发表于 2022-10-26 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105214&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-26 09:46</a>
+
+那vlog最后，mipishka只说了一句“我们会回来的”这也没说阵容变化啊，怎么脑补这么多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拼接信息出来的就是这样的，一股营销号味
+
+*****
+
+####  樱冢名月  
+##### 38179#       发表于 2022-10-26 09:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TI10我乐完了，然后突然清一色的假赛，我现实最好的哥们还来一本正经的跟我扯，我苦口婆心的劝了半天。今年跟着我一起骂A畜了。
+
+*****
+
+####  IG.430  
+##### 38180#       发表于 2022-10-26 09:54
+
+好好好，十四岁就带妹是吧，梁木了
+
+*****
+
+####  樱冢名月  
+##### 38181#       发表于 2022-10-26 09:55
+
+阳光城王爷怕不是妹子都艹到吐了，虽然是个二次元傻卵
+
+*****
+
+####  nowaki  
+##### 38182#       发表于 2022-10-26 09:55
+
+假赛论扩散的这么快的原因是不是水厂引流司马撸狗女粉？
+
+撸狗假赛过多导致她们默认刀塔也是假赛。
+
+*****
+
+####  roxas.sora  
+##### 38183#       发表于 2022-10-26 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105316&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-26 09:52</a>
+
+当时没来s1，后面回看去年那楼的时候感觉赛后和假赛论白头才是最乐的</blockquote>
+贴吧和nga是假赛论重灾区，s1和sg太了解处长的水**而比较正常，知乎和b站对那些放慢镜制造所谓的假赛证据up主顶礼膜拜封圣跪舔，<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">只能说水厂是真的该死
+
+*****
+
+####  adretyu67  
+##### 38184#       发表于 2022-10-26 09:56
+
+<blockquote>Путь состава Team Spirit по Dota 2 на The International 11 закончен. Miposhka и Silent подводят итоги игры против BOOM в рубрике «Вечерняя аналитика». Спасибо всем болельщикам, что всегда были и остаетесь с нами. Miposhka, Mira, Collapse, Torontotokyo и YATOROGOD вернутся в следующем сезоне.</blockquote><blockquote>国际 11 的 Team Spirit Dota 2 阵容之旅已经结束。 Miposhka 和 Silent 在晚间分析部分总结了与 BOOM 的比赛结果。 感谢所有一直和我们在一起的粉丝。 Miposhka、Mira、Collapse、Torontotokyo 和 YATOROGOD 将在下个赛季回归。</blockquote>
+还是等转会消息吧。毕竟你不可能定阵容前就知道自己要找谁吧
+
+*****
+
+####  Sayuki1025  
+##### 38185#       发表于 2022-10-26 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105205&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 09:46</a>
+
+SDN这个逼，没有小飞机那件事，现在应该彻底踹开AA成为解说一哥了吧 ...</blockquote>
+sdn和小飞机咋了 
+
+现在小飞机还在imba吗
+
+*****
+
+####  resorry  
+##### 38186#       发表于 2022-10-26 09:56
+
+林公子不靠钱包靠dota泡妹才是重点把
+
+*****
+
+####  樱冢名月  
+##### 38187#       发表于 2022-10-26 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105393&amp;ptid=2099454" target="_blank">Sayuki1025 发表于 2022-10-26 09:56</a>
+
+sdn和小飞机咋了 
+
+现在小飞机还在imba吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我把SDN出轨那件事记错了，我记成小飞机是他女友
+
+*****
+
+####  夜光铃  
+##### 38188#       发表于 2022-10-26 09:58
+
+dota还能泡妹？
+
+*****
+
+####  walfeds  
+##### 38189#       发表于 2022-10-26 09:58
+
+好好好，十四岁就带妹是吧，梁木了
+
+*****
+
+####  jk9hot  
+##### 38190#       发表于 2022-10-26 09:59
+
+阳光少爷配晓菲确实是现阶段目前想组什么阵容就组什么阵容的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+
+
+*****
+
+####  樱冢名月  
+##### 38191#       发表于 2022-10-26 09:59
+
+不过我在想，叶智标到底有没有带过太子爷去打野，还是太子爷带的叶智标找的乐子，我看叶智标那胆小的唐样，想不到会去自己打野的。
+
+*****
+
+####  yyf奇遇记  
+##### 38192#       发表于 2022-10-26 09:59
+
+不是引流的皮套狗粉丝太多？ 哥们那时候打开批站10个假赛7个皮套挂件，2个双修弱智，1个脑子不正常的
+
+*****
+
+####  tasuku  
+##### 38193#       发表于 2022-10-26 09:59
+
+有一说一你们刀圈假赛也不少的，特别疫情前那几年，各种表演赛满地飞好吧
+
+不过真的对比起来真的连搞假赛都不如隔壁专业<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+正规电竞是真的正规
+
+*****
+
+####  星野航  
+##### 38194#       发表于 2022-10-26 09:59
+
+17年dac决赛，rotk跟lanm连麦解说过，那专业性确实在线，就是这俩老逼打dota的思路都是一致的，所以对很多其他的思路看不上，这也是限制他们成绩的原因
+
+*****
+
+####  adretyu67  
+##### 38195#       发表于 2022-10-26 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105378&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 09:55</a>
+
+阳光城王爷怕不是妹子都艹到吐了，虽然是个二次元傻卵</blockquote>
+王爷算不上，算个贝勒或者公子应该是真的。
+
+xxs他大伯才是管事的。
+
+*****
+
+####  yyf奇遇记  
+##### 38196#       发表于 2022-10-26 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105441&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-26 09:59</a>
+
+17年dac决赛，rotk跟lanm连麦解说过，那专业性确实在线，就是这俩老逼打dota的思路都是一致的，所以对很多 ...</blockquote>
+王八解说的哪个马尼拉大师赛也不错，分析newbee为啥会输也分析的很到位
+
+*****
+
+####  樱冢名月  
+##### 38197#       发表于 2022-10-26 10:01
+
+毕竟打这么多年了。银K还算是把大哥小小第一个拿到赛场上的？
+
+*****
+
+####  没钱买手办  
+##### 38198#       发表于 2022-10-26 10:01
+
+很想看国土满嘴A畜的解说lgd比赛
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
