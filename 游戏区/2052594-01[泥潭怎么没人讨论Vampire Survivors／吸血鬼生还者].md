@@ -4328,3 +4328,14 @@ switch 上有类似的游戏吗求推荐
 
   蛋和骨头都是没办法超上去的吗？
 
+
+
+*****
+
+####  otakun  
+##### 403#       发表于 2022-10-27 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58118655&amp;ptid=2052594" target="_blank">415452356 发表于 2022-10-26 22:31</a>
+蛋和骨头都是没办法超上去的吗？</blockquote>
+蛋，骨头，推车，柜子，樱桃炸弹等，这些看起来就不正经的武器都没超武的。
+
