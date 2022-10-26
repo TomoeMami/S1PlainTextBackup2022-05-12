@@ -4920,3 +4920,204 @@ TI7期间的鳖鳖还行吧，至少还能看到改变，能跑去玩VS这种纯
 怕啥，明鞭退了后LGD上哪里找同位替代去，等水厂八强多拿几次，集美就死完了。急不得。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就怕DOTA之神不开眼，明年又送个顶级三号位给水厂。
 
+
+
+*****
+
+####  上古TITAN  
+##### 38055#       发表于 2022-10-26 09:02
+
+我不装了，我也是老核核，只是ti4之后就不玩刀了
+
+*****
+
+####  nowaki  
+##### 38056#       发表于 2022-10-26 09:03
+
+比撸狗鞭更顶级的也就崩溃了
+
+*****
+
+####  walfeds  
+##### 38057#       发表于 2022-10-26 09:03
+
+别，水厂八强多拿几次估摸集美还能吹战斗力维持的最好的战队呢，还是直接进不了TI比较好
+
+*****
+
+####  yyf奇遇记  
+##### 38058#       发表于 2022-10-26 09:04
+
+别，水厂八强多拿几次估摸集美还能吹战斗力维持的最好的战队呢，还是直接进不了TI比较好
+
+*****
+
+####  cyberpenk  
+##### 38059#       发表于 2022-10-26 09:05
+
+连宇宙第一赛事dac都卜知道，严重怀疑你楼核核含量
+
+*****
+
+####  walfeds  
+##### 38060#       发表于 2022-10-26 09:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼国外已经在传项羽补位撸狗鞭了，信源是谢斌
+
+*****
+
+####  Gosin  
+##### 38061#       发表于 2022-10-26 09:05
+
+这是在追忆曾经么
+
+我对当年老鳖印象最深的就是
+
+chuan对他的崇拜..............
+
+*****
+
+####  樱冢名月  
+##### 38062#       发表于 2022-10-26 09:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是老IG粉，TI2开始看的。当年鳖鳖和大妈合体然后血崩，但是TI5拿敌法加虚灵飞机啃了秘密一把来着，就释然了。一直到TI7，突然觉得这支IG有戏，结果大舅哥崩了，但是90%也是鳖鳖的锅，作为队里唯一的老大哥，一点用也没有。到现在就基本只看樱花兄弟了。
+
+*****
+
+####  syndrome2032  
+##### 38063#       发表于 2022-10-26 09:05
+
+所以漏油更应该支持清算猴爹，am合体。
+
+看看仙贝单核带队还能贡献多少冥场面
+
+*****
+
+####  zsu222  
+##### 38064#       发表于 2022-10-26 09:07
+
+op最后心态崩了 我记得顶着炼金顶着女王双倍对A
+
+*****
+
+####  nightmare902015  
+##### 38065#       发表于 2022-10-26 09:07
+
+ti进不去？集美该刷版本垃圾，v社故意削弱中国队，去知乎写洋洋洒洒几千字“为什么我对dota2的更新模式痛深恶绝”
+
+*****
+
+####  walfeds  
+##### 38066#       发表于 2022-10-26 09:07
+
+Spirit Korb3n: "I'm glad that Valve runs Dota 2. Our EEU league happened this year only because of them"
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪碧领队熟读了《情商》
+
+*****
+
+####  masterffzhou  
+##### 38067#       发表于 2022-10-26 09:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104379&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-26 08:59</a>
+
+00后现在也22了，穿jk我都嫌过了保质期。
+
+桀桀，我觉得就算茶队血战精彩取胜也会有集美刷决赛不好看，刷版 ...</blockquote>
+22穿jk还是挺香的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  resorry  
+##### 38068#       发表于 2022-10-26 09:08
+
+鳖鳖TI7就和现在在鳖星一样，作为一个有话语权的老人，P用没有，拧不了绳，按不住人，不知道有特么刁用，妥妥的废物。所以我一直支持鳖星把鳖鳖切割了
+
+*****
+
+####  lyjssj  
+##### 38069#       发表于 2022-10-26 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">应变能力也是战队实力的一环，不爽不要玩
+
+*****
+
+####  樱冢名月  
+##### 38070#       发表于 2022-10-26 09:09
+
+应该说掉下败者组就已经崩了，但是鳖鳖不去调整队员心态，反而黑脸怪大舅哥，劳资是真的想一拳搂他脸上，这么多年了，还特么是个老巨婴，当时心里想着是真的活该啊。
+
+
+
+*****
+
+####  tasuku  
+##### 38071#       发表于 2022-10-26 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104326&amp;ptid=2099454" target="_blank">Bernoulli 发表于 2022-10-26 08:55</a>
+
+“居士像佛”
+
+“我看大师似粪”</blockquote>
+对啊，这不就解释了你为啥看不出来解说有倾向性么
+
+谢谢你自问自答
+
+*****
+
+####  Avantasi  
+##### 38072#       发表于 2022-10-26 09:09
+
+真要说版本，我还是觉得6.88最好玩，不是招魂，确实那时候很好玩
+
+*****
+
+####  樱冢名月  
+##### 38073#       发表于 2022-10-26 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">现在我真的很欣赏皮球，认为他是新一代的最强队伍的队长候选。有皮球的队伍，心态应该不会出大问题
+
+*****
+
+####  12481632  
+##### 38074#       发表于 2022-10-26 09:10
+
+讲道理当时看宇宙第一赛事夺冠还是有那么一丝丝感慨的（指把鳖鳖踢了是不是有希望夺冠啊
+
+*****
+
+####  roxas.sora  
+##### 38075#       发表于 2022-10-26 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104496&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-26 09:07</a>
+
+ti进不去？集美该刷版本垃圾，v社故意削弱中国队，去知乎写洋洋洒洒几千字“为什么我对dota2的更新模式痛深 ...</blockquote>
+输了怪版本，赢了就是硬实力，硬实力这个词都被他们搞臭了
+
+*****
+
+####  yyf奇遇记  
+##### 38076#       发表于 2022-10-26 09:11
+
+688版本 哥们就喜欢 选个毒狗当癞皮狗，蹲在大哥后面躺就完事
+
+*****
+
+####  nerugigannte  
+##### 38077#       发表于 2022-10-26 09:12
+
+25穿jk都香啊
+
+*****
+
+####  tasuku  
+##### 38078#       发表于 2022-10-26 09:12
+
+球爹技术不提，心态控制真的填补了阿茶最大的一个短板
+
+精神属性太好了
+
+徐老鳖是真的不行，逆风就心态爆炸，这种精神属性不可能拿TI的
+
+只能拿宇宙第一赛事和第二赛事<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
