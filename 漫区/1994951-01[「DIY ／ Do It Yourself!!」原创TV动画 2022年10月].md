@@ -2963,3 +2963,14 @@ https://www.pixiv.net/artworks/102089158
 https ...</blockquote>
 不符合人设，应该是把脑子直接蒸发掉的微波枪
 
+
+
+*****
+
+####  我特么吹爆  
+##### 238#       发表于 2022-10-26 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58117749&amp;ptid=1994951" target="_blank">豚厨二象性 发表于 2022-10-26 21:34</a>
+不符合人设，应该是把脑子直接蒸发掉的微波枪</blockquote>
+就用你们最喜欢的……这种原始人的工具……<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
