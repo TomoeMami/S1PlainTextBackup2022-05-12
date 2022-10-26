@@ -13631,3 +13631,14 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候有几个可ed的solo专将提前成为典藏版，饥饿营销
 
+
+
+*****
+
+####  ruffian  
+##### 8734#       发表于 2022-10-26 21:07
+
+本来以为二期9个人能一人一次solo，加上一次全员合唱，和一期一样正好10个版本……结果还是突出一个随心所欲<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

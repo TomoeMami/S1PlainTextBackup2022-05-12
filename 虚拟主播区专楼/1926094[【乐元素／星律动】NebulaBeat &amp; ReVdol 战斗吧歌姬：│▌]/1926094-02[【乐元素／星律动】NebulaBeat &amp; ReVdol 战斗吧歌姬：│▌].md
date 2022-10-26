@@ -8953,3 +8953,12 @@ swan哥哥压轴，好
 
 —— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2450#         楼主| 发表于 2022-10-26 21:06
+
+是
+

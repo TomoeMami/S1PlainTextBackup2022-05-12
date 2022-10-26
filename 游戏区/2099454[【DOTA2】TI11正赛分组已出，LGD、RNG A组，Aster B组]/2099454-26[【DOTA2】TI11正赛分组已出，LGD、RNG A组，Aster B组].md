@@ -12234,3 +12234,37 @@ https://www.bilibili.com/video/BV1fD4y1t7pQ
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  zhliiiii  
+##### 38882#       发表于 2022-10-26 21:04
+
+如果能让你们加入以前的任何一支战队，你们会选择哪一支？
+
+Ori、Xxs、皮球：Team DK。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 38883#       发表于 2022-10-26 21:07
+
+错楼编辑
+
+*****
+
+####  resorry  
+##### 38884#       发表于 2022-10-26 21:07
+
+我艹真核核，莫不是zhuzhugua和毛罗本体
+
+*****
+
+####  反方向的波  
+##### 38885#       发表于 2022-10-26 21:09
+
+点进来一个P社还以为自己走错了
+
