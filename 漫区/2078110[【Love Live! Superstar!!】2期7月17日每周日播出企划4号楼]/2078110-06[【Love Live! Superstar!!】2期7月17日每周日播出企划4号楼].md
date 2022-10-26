@@ -13570,3 +13570,20 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么视频啊，攻击性很强吗
 
+
+
+*****
+
+####  kata魂  
+##### 8729#       发表于 2022-10-26 19:58
+
+ 本帖最后由 kata魂 于 2022-10-26 20:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说到双标让我想起那个视频出来后在微博上看到的痛斥一期生粉丝尬黑二期生，心疼二期生的
+
+然后那段文字里一口一个摩天电视塔
+
+一个没出道多久的二期生居然有那么坚固的粉丝，点进去一看，哦，那没事了，二期生现在很适合当某些人的枪子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在我也想明白了，鲤鱼亏就亏在血统上了，哪怕是像菜宝那样一半日本血统的呢
+

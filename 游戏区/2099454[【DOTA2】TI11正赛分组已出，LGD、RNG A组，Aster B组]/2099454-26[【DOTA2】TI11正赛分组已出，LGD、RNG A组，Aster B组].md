@@ -12023,3 +12023,78 @@ nmd，ti怎么变成了这个样子
 
 nmd，ti怎么变成了这个样子
 
+
+
+*****
+
+####  一品堂官  
+##### 38861#       发表于 2022-10-26 19:54
+
+这ti办的比major还省钱
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  adretyu67  
+##### 38862#       发表于 2022-10-26 19:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">含金量最低的一届ti
+
+*****
+
+####  反方向的波  
+##### 38863#       发表于 2022-10-26 19:55
+
+V社司马 G胖司马 PGL司马 水厂司马
+
+*****
+
+####  tengshuo980  
+##### 38864#       发表于 2022-10-26 19:55
+
+太土了吧，cnm的狗比v社
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adretyu67  
+##### 38865#       发表于 2022-10-26 19:56
+
+ti12的地方有造谣吗
+
+*****
+
+####  莉拉厨  
+##### 38866#       发表于 2022-10-26 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58115864&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-26 19:56</a>
+ti12的地方有造谣吗</blockquote>
+好像马克龙表示要去法国的话他欢迎，但不知道懒狗社那边怎么想
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  masterffzhou  
+##### 38867#       发表于 2022-10-26 19:58
+
+nmd，ti怎么变成了这个样子
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈萨维·诺亚  
+##### 38868#       发表于 2022-10-26 20:00
+
+陈娟专场
+
+*****
+
+####  樱冢名月  
+##### 38869#       发表于 2022-10-26 20:00
+
+哇，他妈看着像个殡仪馆一样，DOTA2葬礼是吧，傻逼度假社
+
