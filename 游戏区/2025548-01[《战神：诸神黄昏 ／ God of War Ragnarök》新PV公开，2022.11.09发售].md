@@ -7876,3 +7876,24 @@ Eric刚刚在PS4上第三次通关本作，和前作一样稳定的30帧，但�
 
 战神在老父亲的指点下现在学会近战了吗？北欧弓斗术<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wgoenitz  
+##### 836#       发表于 2022-10-26 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58112492&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-26 16:39</a>
+
+北欧末日什么结局？
+
+奥丁领域那样吗？利弗诗拉希尔？</blockquote>
+北欧末日是正派反派老一辈神怪全死光了，孩子们扛起了大旗。
+
+*****
+
+####  wgoenitz  
+##### 837#       发表于 2022-10-26 18:08
+
+另外看到b站有个剧透建模的视频，不知道真假，成年的boy和奎爷年轻时挺像。
+

@@ -2923,3 +2923,19 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 再倒推一下是不是下个月开圣诞
 
+
+
+*****
+
+####  xunit  
+##### 3258#       发表于 2022-10-26 18:05
+
+更新完了怎么感觉用模拟器玩会比之前卡啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 3259#       发表于 2022-10-26 18:07
+
+新活动需要通2.6，但是有只通序章就可以打的本<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">    什么鬼
+

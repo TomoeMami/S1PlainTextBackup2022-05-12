@@ -11093,3 +11093,20 @@ boss本身是没触碰伤害的，只能通过跟boss重合站，攻击眼睛造
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  LucienLachance  
+##### 1017#       发表于 2022-10-26 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58111205&amp;ptid=2098044" target="_blank">jbtc2224052 发表于 2022-10-26 15:34</a>
+那我的白没有了，会影响后期吗，要不要重新读档</blockquote>
+你不用读档
+
+【剧透注意】二周目强制大团圆，二周目魔王城你选不带白，她还吐槽你难道忍心把萌妹仍在荒郊野外吗，白一定存活并保留记忆。
+
+一周目第五章一开始不带童话少女，盖乌加入后回去找白对话，打完boss得到爱情并存活。其他几个分支剧情有所不同，有空可以都体验下，还挺有意思的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
