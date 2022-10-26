@@ -11808,3 +11808,47 @@ Yuno狂喜，余雄峰要回来了
 
 哦牛逼喜欢请神是吧 预祝鳖星请到了ti4dk
 
+
+
+*****
+
+####  jk9hot  
+##### 38835#       发表于 2022-10-26 19:14
+
+牛逼，🍵自己请ti4的dk是吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yyf奇遇记  
+##### 38836#       发表于 2022-10-26 19:16
+
+别说，这版本挺适合dk那种四核打法的
+
+*****
+
+####  哈曼的YY  
+##### 38837#       发表于 2022-10-26 19:19
+
+网鱼网咖还开到国外了？
+
+*****
+
+####  wzy200912345  
+##### 38838#       发表于 2022-10-26 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58115203&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-26 19:19</a>
+
+网鱼网咖还开到国外了？</blockquote>
+老的店都快5-6年了，有西恩小留的地方就有很大的网咖需求
+
+*****
+
+####  没钱买手办  
+##### 38839#       发表于 2022-10-26 19:22
+
+x哥皮球能理解，怎么骄阳也是鳖孙啊
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

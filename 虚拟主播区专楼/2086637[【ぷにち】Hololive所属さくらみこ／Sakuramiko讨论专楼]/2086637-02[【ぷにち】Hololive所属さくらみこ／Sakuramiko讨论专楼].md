@@ -11314,3 +11314,12 @@ SAO窗又bug了好像
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服了，还在播片，怎么还不开始打！
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2583#       发表于 2022-10-26 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">抽卡才是重点
+
