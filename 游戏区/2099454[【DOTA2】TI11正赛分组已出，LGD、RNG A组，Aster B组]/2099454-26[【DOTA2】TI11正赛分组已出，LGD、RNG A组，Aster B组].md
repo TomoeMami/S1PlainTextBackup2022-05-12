@@ -9057,3 +9057,65 @@ k1再不济有一手骷髅王选出来能刷能吃伤害能狂砍一条街，我
 
 —— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  jk9hot  
+##### 38514#       发表于 2022-10-26 14:33
+
+是不基德的人能说出来的话。我相信了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  樱冢名月  
+##### 38515#       发表于 2022-10-26 14:36
+
+特么真就没人剪我林皇这两盘的战神发挥？呕了，还在那里说没有破坏dota圈子，集美全家去见焦比吧。
+
+*****
+
+####  没钱买手办  
+##### 38516#       发表于 2022-10-26 14:37
+
+谢谢你直升飞机，带我认识了科比，还给我赋予新国籍
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 38517#       发表于 2022-10-26 14:39
+
+谢谢你直升飞机，送走了畜牲TB，把德意志国籍，当回礼
+
+*****
+
+####  lyjssj  
+##### 38518#       发表于 2022-10-26 14:40
+
+ 本帖最后由 lyjssj 于 2022-10-26 14:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">惊了，小辛那个像我这样的人原来都200多万播放了
+
+7470才50万
+
+*****
+
+####  樱冢名月  
+##### 38519#       发表于 2022-10-26 14:42
+
+当时炒的都要出圈了吧，感觉不如香槟一毛。
+
+*****
+
+####  lyjssj  
+##### 38520#       发表于 2022-10-26 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58110353&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 14:42</a>
+
+当时炒的都要出圈了吧，感觉不如香槟一毛。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉还是7470有意思点，但我低估了集美的实力
+
