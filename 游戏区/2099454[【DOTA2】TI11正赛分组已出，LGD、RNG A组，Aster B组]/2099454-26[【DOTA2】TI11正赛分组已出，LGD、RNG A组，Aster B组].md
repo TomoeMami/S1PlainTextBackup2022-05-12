@@ -12199,3 +12199,23 @@ nmd，ti怎么变成了这个样子
 TI11的休息周，Valve安排了媒体见面日，前四名的战队：Secret、Tundra、Aster、Liquid出席会议接受了采访， ...</blockquote>
 鹏子这回答很有开战在即的状态了，曾焦阳答的是个**
 
+
+
+*****
+
+####  格雷殿下  
+##### 38879#       发表于 2022-10-26 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完森哥剪的SV，剪的那波团我看的时候就觉得，SV打着打着，怎么忽然不见， 
+
+原来金典队友打架，我回去收钱
+
+*****
+
+####  六娃  
+##### 38880#       发表于 2022-10-26 20:51
+
+[https://www.bilibili.com/video/BV1fD4y1t7pQ](https://www.bilibili.com/video/BV1fD4y1t7pQ)
+
+25号还能发这种视频也太牛批了
+

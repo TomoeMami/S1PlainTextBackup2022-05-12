@@ -8879,3 +8879,57 @@ kino我是百连时关注的，但完全不了解的话，也不会点进直播�
 
 四夹子音看剑！
 
+
+
+*****
+
+####  一叶丈育  
+##### 2442#       发表于 2022-10-26 20:41
+
+夹子看剑!
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天青月白  
+##### 2443#       发表于 2022-10-26 20:43
+
+凡尔赛那个可以招过来
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黄金鸡屁屁  
+##### 2444#       发表于 2022-10-26 20:43
+
+swan哥哥压轴，好
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  一叶丈育  
+##### 2445#       发表于 2022-10-26 20:44
+
+鸭鸭会不会当场宣布一姐易主啊
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  喜闻乐见  
+##### 2446#         楼主| 发表于 2022-10-26 20:49
+
+亮子<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  一叶丈育  
+##### 2447#       发表于 2022-10-26 20:49
+
+厂里发金条了，你给我回来<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
