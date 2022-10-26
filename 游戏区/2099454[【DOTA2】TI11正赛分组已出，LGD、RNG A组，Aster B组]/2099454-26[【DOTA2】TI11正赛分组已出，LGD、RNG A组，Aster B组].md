@@ -7941,3 +7941,21 @@ trixi是芬兰dota教父，当年初代fnc的3，马桶和杰瑞都可以算他�
 
 感觉连击刀跳刀bkb三号位尸王屁用没有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zsu222  
+##### 38402#       发表于 2022-10-26 11:59
+
+trixi的fnc可是初代欧洲内战王
+
+*****
+
+####  莉拉厨  
+##### 38403#       发表于 2022-10-26 12:01
+
+欧洲fnc<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">太怀念了，虽然是一堆菜逼混在一起
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

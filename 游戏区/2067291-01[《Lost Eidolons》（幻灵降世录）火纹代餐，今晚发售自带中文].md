@@ -2319,3 +2319,31 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  h1r0  
+##### 192#       发表于 2022-10-26 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107457&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-26 11:47</a>
+
+虞姬四面楚歌的晚上就死了，符合传说啊
+
+  -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
+虽然我也想过这个路数，但毕竟这个项羽死前身边的人都齐齐整整的，这虞姬临阵自刎也太说不过去了
+
+主要是我想看看她的死亡台词是什么
+
+*****
+
+####  tand177  
+##### 193#       发表于 2022-10-26 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107538&amp;ptid=2067291" target="_blank">h1r0 发表于 2022-10-26 11:52:24</a>
+虽然我也想过这个路数，但毕竟这个项羽死前身边的人都齐齐整整的，这虞姬临阵自刎也太说不过去了
+
+主要是 ...</blockquote>想要项羽线dlc
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
