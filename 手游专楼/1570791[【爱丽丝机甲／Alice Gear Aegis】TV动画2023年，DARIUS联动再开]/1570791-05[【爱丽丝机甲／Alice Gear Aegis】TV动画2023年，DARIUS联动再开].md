@@ -221,3 +221,26 @@ fmp可以啊.....太傻抽爆
 
 不会有人想抽木头吧（
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 7411#       发表于 2022-10-24 23:34
+
+都是阿金太摸得错。感觉这段时间是我听得最多各种“流言”的时候了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alialex  
+##### 7412#         楼主| 发表于 2022-10-26 14:04
+
+an天狐天 御侠
+
+*****
+
+####  拍不到脑袋  
+##### 7413#       发表于 2022-10-26 16:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">手机要支持手柄操作了，好期待呀
+

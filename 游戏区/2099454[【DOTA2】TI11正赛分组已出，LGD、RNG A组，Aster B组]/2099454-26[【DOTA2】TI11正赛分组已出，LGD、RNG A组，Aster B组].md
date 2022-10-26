@@ -9953,3 +9953,136 @@ atf bzm嫌独眼龙唠叨的样子就差没写在脸上了
 
 [https://dota.shandian.biz/3245.html](https://dota.shandian.biz/3245.html)
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 38615#       发表于 2022-10-26 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58112469&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-26 16:37</a>
+
+微博上没看到啊，删了？</blockquote>
+看我楼上
+
+*****
+
+####  lyjssj  
+##### 38616#       发表于 2022-10-26 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多能对上，我感觉大概是这样的
+
+TI前，LGD一队8个人加剧毒跑到坡县
+
+然后比赛进行的时候，太太团陆续也到了，按照面8的聊天记录，应该是234的女朋友
+
+然后面8不满
+
+但是并没有什么卵用，LGD被回家了，科密小姑娘直接上台去抱明鞭（戏真多），4和女朋友出去玩了，留下125去吃海鲜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+早点解散算了
+
+*****
+
+####  二宮飛鳥酱  
+##### 38617#       发表于 2022-10-26 16:45
+
+我问的不是这个，是xiao8说除了处长其他人都带女朋友来新加坡的微信截图
+
+但是也很感谢漏油了
+
+*****
+
+####  yyf奇遇记  
+##### 38618#       发表于 2022-10-26 16:46
+
+哦 max上面发的，lgd被淘汰就有了  第一个转过来的是eesama
+
+*****
+
+####  Litccc  
+##### 38619#       发表于 2022-10-26 16:46
+
+看了眼闪电战居然还在更新，下面还有评论，太牛了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+*****
+
+####  啊哈  
+##### 38620#       发表于 2022-10-26 16:47
+
+所以处长和滚球兽复合了吗
+
+*****
+
+####  walfeds  
+##### 38621#       发表于 2022-10-26 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别，独眼龙迷弟本泽马就差把孝顺刻在脸上了
+
+反集美犯不着连拧绳一起反吧，mental care的部分真视界又不是没录，属于是把厨子舔舒服了
+
+*****
+
+####  百世诸侯  
+##### 38622#       发表于 2022-10-26 16:49
+
+哦牛批，闪电站还更新啊
+
+*****
+
+####  六娃  
+##### 38623#       发表于 2022-10-26 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58112690&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-26 16:48</a>
+别，独眼龙迷弟本泽马就差把孝顺刻在脸上了
+
+反集美犯不着连拧绳一起反吧，mental care的部分真视界 ...</blockquote>
+集美说的拧绳是说围在一起发表演讲的那种，厨子根本不参与
+
+*****
+
+####  越动天下  
+##### 38624#       发表于 2022-10-26 16:51
+
+哇 还有太太团呀 
+
+*****
+
+####  roxas.sora  
+##### 38625#       发表于 2022-10-26 16:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没尾巴刮出双冠双c和厅长，是不是各位冠军队长里面最会刮彩票的
+
+*****
+
+####  反方向的波  
+##### 38626#       发表于 2022-10-26 16:51
+
+<img src="https://p.sda1.dev/8/345b30c60d0e855614af20cc7713a0a5/Screenshot_2022-10-26-16-51-02-33_439a3fec0400f8974d35eed09a31f914.jpg" referrerpolicy="no-referrer">
+基德基德
+
+*****
+
+####  哈曼的YY  
+##### 38627#       发表于 2022-10-26 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58112557&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 16:42</a>
+
+我靠，这个聊天记录的文章居然全部被公关了，我只在小居这里找到了存档，只能说不愧是水厂啊
+
+https://dota ...</blockquote>
+ 潘家人
+
+2018年9月12日20:28 | #2
+
+回复 | 引用
+
+删ruru的账号原因是ruru不给下面8摸**吧！
+
+*****
+
+####  walfeds  
+##### 38628#       发表于 2022-10-26 16:52
+
+基德基德
+
