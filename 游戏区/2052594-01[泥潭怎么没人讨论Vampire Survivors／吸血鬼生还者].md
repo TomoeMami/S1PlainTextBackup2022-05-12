@@ -4260,3 +4260,25 @@ ok，感谢
 只能纯看脸宝箱里出吗？ ...</blockquote>
 堆幸运，所有武器和被动升满以后开钱袋箱子有几率出普通糖果盒，出了以后下一次就有几率开出超级糖果盒了，而且我玩的时候感觉如果拿了超过格子上限那种被动就基本出不了糖果盒了，所以道具最好不要乱捡。
 
+
+
+*****
+
+####  wcorvo  
+##### 397#       发表于 2022-10-26 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58113717&amp;ptid=2052594" target="_blank">zzydust 发表于 2022-10-26 17:43</a>
+
+堆幸运，所有武器和被动升满以后开钱袋箱子有几率出普通糖果盒，出了以后下一次就有几率开出超级糖果盒了 ...</blockquote>
+就是不能拿箭头和戒指？被动留一格这样？但是感觉这样很难坚持到后期<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzydust  
+##### 398#       发表于 2022-10-26 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58113843&amp;ptid=2052594" target="_blank">wcorvo 发表于 2022-10-26 17:51</a>
+
+就是不能拿箭头和戒指？被动留一格这样？但是感觉这样很难坚持到后期 ...</blockquote>
+不留格子，全部填满才会有钱袋宝箱的，糖果盒应该是在钱袋宝箱里，就是注意不要多拿超出格子的道具，也有可能多拿了一样能抽到，只是我没有抽到过而已，你可以试试。
+
