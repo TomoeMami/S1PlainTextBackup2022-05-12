@@ -9689,3 +9689,136 @@ Ceb协助OG备战了本次TI，最终他们拿到了八强的成绩。而Ana则�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  哈曼的YY  
+##### 38584#       发表于 2022-10-26 16:23
+
+上帝什么意思 不打的最强是吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lyjssj  
+##### 38585#       发表于 2022-10-26 16:23
+
+孙一峰黄旭东不是刀塔开黑玩的不亦乐乎吗，哪怕TI比赛期间也不看比赛就在哪开黑
+
+这纯度有点高
+
+*****
+
+####  樱冢名月  
+##### 38586#       发表于 2022-10-26 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上帝这天赋，特么全是看的是吧，真实脑内训练？
+
+*****
+
+####  Vyvne  
+##### 38587#       发表于 2022-10-26 16:25
+
+那我不得不提一嘴《有点绿》，我觉得这个也卜错
+
+*****
+
+####  六娃  
+##### 38588#       发表于 2022-10-26 16:25
+
+serral颅内训练照样能草翻统治星际20年的棒子，天才是不讲道理的
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 38589#       发表于 2022-10-26 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58111716&amp;ptid=2099454" target="_blank">winkle 发表于 2022-10-26 15:59</a>
+曾几何时30是地狱火的爹</blockquote>
+那不是因为内核是萨满的驱散么
+
+*****
+
+####  iriyano  
+##### 38590#       发表于 2022-10-26 16:26
+
+那我不得不提一嘴《有点绿》，我觉得这个也卜错
+
+我玩马西的时候就听这个GHG
+
+*****
+
+####  六娃  
+##### 38591#       发表于 2022-10-26 16:26
+
+集美天天吹独眼龙拧绳，我一开始就说厨子全靠没尾巴育婴
+
+*****
+
+####  jk9hot  
+##### 38592#       发表于 2022-10-26 16:26
+
+ceb 大爹是有一份topaon/安娜使用手册的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  isla  
+##### 38593#       发表于 2022-10-26 16:26
+
+这么一说油垃圾这么辣也打到八强了，还是比t1强多了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  jk9hot  
+##### 38594#       发表于 2022-10-26 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58112215&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 16:24</a>
+上帝这天赋，特么全是看的是吧，真实脑内训练？</blockquote>
+拿冠军的时候还不懂兵线仇恨的c，有时候天分是可以泯灭汗水的努力的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yyf奇遇记  
+##### 38595#       发表于 2022-10-26 16:27
+
+不是吃了rng羊了的两分，估计就是rng剧本了
+
+*****
+
+####  walfeds  
+##### 38596#       发表于 2022-10-26 16:29
+
+人和人之间是有区别的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 38597#       发表于 2022-10-26 16:29
+
+厨子跟樱花双雄关系好，我猜大部分在于boboka是一个非常擅长处理队内关系的人，当年应该就是野王育婴打替补的厨子
+
+*****
+
+####  yyf奇遇记  
+##### 38598#       发表于 2022-10-26 16:30
+
+其实ti8的og主要是没什么包袱，能海选进ti对他们而言这个赛季就是圆满的，估计他们自己那时候也没想过能夺冠
+
+*****
+
+####  walfeds  
+##### 38599#       发表于 2022-10-26 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58112255&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-26 16:26</a>
+
+集美天天吹独眼龙拧绳，我一开始就说厨子全靠没尾巴育婴</blockquote>
+把主谓替换下再读一遍，立马就是严父慈母了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
