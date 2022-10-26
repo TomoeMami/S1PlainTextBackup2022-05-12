@@ -11110,3 +11110,12 @@ boss本身是没触碰伤害的，只能通过跟boss重合站，攻击眼睛造
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  战术核辣条  
+##### 1018#       发表于 2022-10-26 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打到3章凭依技能还是差一个风属性没有是设计如此吗，感觉成长树点很多了呀，地属性的敌人也见到不少了
+

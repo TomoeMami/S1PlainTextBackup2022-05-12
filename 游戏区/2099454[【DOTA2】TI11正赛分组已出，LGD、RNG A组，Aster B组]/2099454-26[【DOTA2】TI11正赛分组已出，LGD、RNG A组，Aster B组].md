@@ -11539,3 +11539,87 @@ team dk是吧
 
 智标奇遇记：请dk的工作人员联系我我要打职业
 
+
+
+*****
+
+####  柚上舍人  
+##### 38803#       发表于 2022-10-26 18:52
+
+智标奇遇记：隔壁的偶像搬走了，好伤心
+
+*****
+
+####  哈曼的YY  
+##### 38804#       发表于 2022-10-26 18:53
+
+女装c感觉不太好不是个好消息啊
+
+*****
+
+####  公交老司机  
+##### 38805#       发表于 2022-10-26 18:55
+
+据说野王在狂练炸弹人
+
+*****
+
+####  yyf奇遇记  
+##### 38806#       发表于 2022-10-26 18:56
+
+这剑圣戏瘾有点大了
+
+<img src="https://p.sda1.dev/8/db3223bbe3cfdcb95850ce73c200e48d/0EF6404B5A66738D5D6640E406CBF15D.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 38807#       发表于 2022-10-26 18:57
+
+狠狠的吸魂巫术。
+
+*****
+
+####  walfeds  
+##### 38808#       发表于 2022-10-26 18:58
+
+Skiter能活着看到周六的太阳吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈曼的YY  
+##### 38809#       发表于 2022-10-26 18:59
+
+信炸弹 得永生
+
+*****
+
+####  格雷殿下  
+##### 38810#       发表于 2022-10-26 19:01
+
+这版本炸弹真的能用得出手吗
+
+*****
+
+####  百世诸侯  
+##### 38811#       发表于 2022-10-26 19:01
+
+Monet：沉浸过去毫无意义，我只希望能和现在的队友们一起获得成功。
+
+*****
+
+####  morwhipppo  
+##### 38812#       发表于 2022-10-26 19:02
+
+哦我才发现石头人是我朋友赞助的，这就去骂他狗汉奸
+
+<img src="https://img.saraba1st.com/forum/202210/26/190135b6cjz4fcz6rcr14r.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>67C2F23A-E52C-4A63-BF22-29AEFAE4713A.jpeg</strong> (55.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 19:01 上传
+
