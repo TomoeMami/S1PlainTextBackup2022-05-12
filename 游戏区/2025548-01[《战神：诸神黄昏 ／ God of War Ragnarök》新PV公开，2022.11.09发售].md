@@ -7777,3 +7777,22 @@ TIM截图20221026011124.png
 
 请问老PS4能跑1080P 30帧吗？
 
+
+
+*****
+
+####  陈词与芍药  
+##### 830#       发表于 2022-10-26 09:34
+
+<img src="https://img.saraba1st.com/forum/202210/25/203431a8q0fext2hmtexxx.jpg" referrerpolicy="no-referrer">
+
+<strong>2D391A04-F964-4FF2-B034-66E89DC2ABA4.jpg</strong> (528.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 09:34 上传
+
+晚买有优惠还送头像，那早买的我呢，小丑？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

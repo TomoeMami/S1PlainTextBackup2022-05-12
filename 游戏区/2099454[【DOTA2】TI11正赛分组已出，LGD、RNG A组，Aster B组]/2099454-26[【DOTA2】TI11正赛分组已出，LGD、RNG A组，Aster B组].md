@@ -5504,3 +5504,173 @@ TI7那个算是更衣室事故了。大舅哥好像压力爆到直接哭了，�
 
 op后面在sag打三 后面转教练了
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 38125#       发表于 2022-10-26 09:33
+
+拷打一下漏油有事没事喜欢推荐的市级集美大叔
+
+<img src="https://img.saraba1st.com/forum/202210/26/093327wy5w9s4sr8498y91.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026093228.png</strong> (35.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 09:33 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/093328otuppx68b58xxx8t.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026093234.png</strong> (25.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 09:33 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/093328l6x9j8g3nz3lx6xt.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026093241.png</strong> (25.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 09:33 上传
+
+*****
+
+####  tasuku  
+##### 38126#       发表于 2022-10-26 09:34
+
+看是不是卡关键等级啊，比如第一二波有机会反补压等级的，肯定挡了赚
+
+*****
+
+####  nightmare902015  
+##### 38127#       发表于 2022-10-26 09:34
+
+现在的pom你敢挡箭不是至少打掉你一瓶大药。。。
+
+*****
+
+####  tasuku  
+##### 38128#       发表于 2022-10-26 09:36
+
+三好大叔已经算喝得不那么厉害的解说了
+
+虽然去年几个粉头在那儿跳假赛把我恶心得够<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 38129#       发表于 2022-10-26 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104883&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-26 09:27</a>
+
+竞技场到底改成啥样了，我只知道先撞一下然后用往外跳的技能现在是出不去了。被船长水起来的人马尔斯戳还是 ...</blockquote>
+竞技场应该打补丁打到大部分玩意都出不去了吧
+
+*****
+
+####  星野航  
+##### 38130#       发表于 2022-10-26 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104163&amp;ptid=2099454" target="_blank">Bernoulli 发表于 2022-10-26 09:41</a>
+没觉得官方解说有多倾向，除了Axx这种铁血集美外其他解说也鲜有直接表达个人倾向的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你一定是没听过aa的大作 ti8总决赛
+“你气不气”“秀不动了！”“输出在哪里我看不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">”
+
+
+
+*****
+
+####  resorry  
+##### 38131#       发表于 2022-10-26 09:38
+
+不过那个IG也能初步看出xxs要废一个大哥的潜质了，TI7是鳖鳖让了资源，TI8赛季一开始来了杨浦，资源不够机枪兵就爆炸了
+
+*****
+
+####  yyf奇遇记  
+##### 38132#       发表于 2022-10-26 09:38
+
+去年不知道是谁推荐了一个所谓客观中立的 暮色独行，也是个不要脸的东西，在哪解说就是“这就是你ame选的队友”“这就是你maybe选的队友”“这就是你xx选择的队友”
+
+老把场外信息带到游戏解说里面，看的人反胃
+
+*****
+
+####  adretyu67  
+##### 38133#       发表于 2022-10-26 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">aa解说新作应该看看前几天aster大战lgd
+
+*****
+
+####  憧憬鲨  
+##### 38134#       发表于 2022-10-26 09:38
+
+竞技场这个技能的一生就是和dota2z轴战斗的一生
+
+*****
+
+####  yyf奇遇记  
+##### 38135#       发表于 2022-10-26 09:38
+
+**飞机 ！！！**飞机 ！！！**飞机 ！！！**飞机 ！！！
+
+*****
+
+####  zsu222  
+##### 38136#       发表于 2022-10-26 09:40
+
+ig让xxs打中才是真脑浆
+
+*****
+
+####  adretyu67  
+##### 38137#       发表于 2022-10-26 09:40
+
+ti8是xxs自己要去中的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 38138#       发表于 2022-10-26 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少贡献了名梗，成就戏皇
+
+*****
+
+####  lyjssj  
+##### 38139#       发表于 2022-10-26 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">aa解说LGD打茶我早上才品过，感觉还行
+
+主要LGD的颓势早早就显现出来了，在嘴硬只会被打脸
+
+不像TI8910那种带着大优势突然被某人终结
+
+*****
+
+####  qwas  
+##### 38140#       发表于 2022-10-26 09:42
+
+暮色独行就是铁杂种，天天装你妈最客观中立的，然后比赛时经常因为一点破事和水友battle一百个回合，经常在几场大团战时只能听到他絮絮叨叨的battle，不知道漏油推荐他干啥.
+
+*****
+
+####  樱冢名月  
+##### 38141#       发表于 2022-10-26 09:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最畜的不是哔哔吸么，神他妈染指。搞的鳖茶还真不是中国队了？莫名其妙的就全部开除国籍了。
+
+*****
+
+####  tasuku  
+##### 38142#       发表于 2022-10-26 09:42
+
+鳖说了，暮色独行我也看了好几场，记得是年初的几个比赛只有huya还是什么傻逼站有版权，b站就这人在偷偷播
+
+解说质量先不提，这穷酸还爱开摄像头是真的遭不住
+
