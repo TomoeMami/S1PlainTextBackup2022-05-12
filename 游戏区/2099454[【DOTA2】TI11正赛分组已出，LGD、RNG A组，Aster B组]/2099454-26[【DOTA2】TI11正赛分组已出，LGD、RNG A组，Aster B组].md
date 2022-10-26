@@ -4507,3 +4507,28 @@ cty有什么好吹的，刷钱特化版rtz。你拿EE评价rtz的话套他一点
 
 下面一堆弱智就开始共振了
 
+
+
+*****
+
+####  walfeds  
+##### 38007#       发表于 2022-10-26 08:16
+
+补不到水他们的🐴确实送不动了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星野航  
+##### 38008#       发表于 2022-10-26 08:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说，水厂不死，集美肯定消失不了
+
+*****
+
+####  星野航  
+##### 38009#       发表于 2022-10-26 08:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说，水厂不死，集美肯定消失不了
+
