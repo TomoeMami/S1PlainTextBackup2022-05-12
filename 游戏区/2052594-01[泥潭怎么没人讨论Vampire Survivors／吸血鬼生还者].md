@@ -4036,3 +4036,14 @@ ok，感谢
 —— 来自 S1Fun</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了下，1.10把99级成就都改成50级了，那这个方法基本上就退版本了，因为这招是后半升得块前半慢
 
+
+
+*****
+
+####  wthall  
+##### 379#       发表于 2022-10-26 08:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天解锁第四章地图，也解锁了卡牌系统。
+
+求问一下是否有其他牌的解锁方式？ 只能选一张啊现在。
+
