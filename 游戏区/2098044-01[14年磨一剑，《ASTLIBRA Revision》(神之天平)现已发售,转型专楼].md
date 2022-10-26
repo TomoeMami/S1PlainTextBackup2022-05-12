@@ -11342,3 +11342,18 @@ wiki看不懂日文可以对着装备数值去找
 
 另外万圣节魔女的杖也太强了吧……
 
+
+
+*****
+
+####  黒長直姫  
+##### 1040#       发表于 2022-10-27 06:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58118512&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-26 22:21</a>
+现在人在终章无法回头的门前面，包括心天平和神盾都get了，跟大贤者对话还是不给东西，每章设计图我都亮了 ...</blockquote>
+成长盘的宝物都点了吗？里面有武器的
+
+小徽章抽完了吗？有个盾的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
