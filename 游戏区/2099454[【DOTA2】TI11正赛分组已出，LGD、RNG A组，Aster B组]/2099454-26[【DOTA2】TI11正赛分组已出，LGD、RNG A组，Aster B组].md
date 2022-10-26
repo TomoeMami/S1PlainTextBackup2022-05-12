@@ -10863,3 +10863,164 @@ pom不是抄石头人？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">期待曼巴，液体我觉得会上来banSV
 
+
+
+*****
+
+####  上古TITAN  
+##### 38724#       发表于 2022-10-26 18:13
+
+话说应该只有集美才把打野看作什么不可饶恕的大错吧
+
+*****
+
+####  Mikumiku831  
+##### 38725#       发表于 2022-10-26 18:14
+
+要清算打野为什么不先把面八给青蒜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小天鹅啥的不是LGD最先开始的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 38726#       发表于 2022-10-26 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是借口而已，但是叶智标比赛前打野影响队伍算他没有职业道德。确实该喷。
+
+*****
+
+####  syndrome2032  
+##### 38727#       发表于 2022-10-26 18:15
+
+打野只是一杆拿来压鳖茶的枪。
+
+王八自己就是吃喝嫖赌全沾。
+
+*****
+
+####  OVTVO  
+##### 38728#       发表于 2022-10-26 18:16
+
+酱油SV这东西虽然不难，但是我觉得其他三个以5的手活来说，真不好打出皮球这个效果，尤其是对线。
+
+SYL：讲道理，如果茶夺冠了，水厂搞一个打野选手夺冠的热搜，也挺难受的。。。
+
+*****
+
+####  反方向的波  
+##### 38729#       发表于 2022-10-26 18:17
+
+打野本身是小不基德问题
+打野被抓影响整个队打新加坡major就很傻逼了
+
+*****
+
+####  walfeds  
+##### 38730#       发表于 2022-10-26 18:17
+
+哦牛逼，真核核来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  没钱买手办  
+##### 38731#       发表于 2022-10-26 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大哥们，败决都还没进就学集美贷款冠军了吗
+
+*****
+
+####  syndrome2032  
+##### 38732#       发表于 2022-10-26 18:17
+
+其实吧，万一没打野被抓这码事，结果还是major一轮游回家就搞笑了
+
+*****
+
+####  食粪者  
+##### 38733#       发表于 2022-10-26 18:18
+
+cndota你我贷
+
+*****
+
+####  yyf奇遇记  
+##### 38734#       发表于 2022-10-26 18:18
+
+都没进决赛日，就开始贷款夺冠之后被带节奏了吗  
+打好比赛就行了
+
+*****
+
+####  樱冢名月  
+##### 38735#       发表于 2022-10-26 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全村最后的希望！
+
+*****
+
+####  尖刺外婆  
+##### 38736#       发表于 2022-10-26 18:19
+
+败绝问题不大，相信zai畜
+
+*****
+
+####  反方向的波  
+##### 38737#       发表于 2022-10-26 18:20
+
+等一个徐老鳖用直播间众筹到的机票飞过去接叶志标周六回家
+
+*****
+
+####  zsu222  
+##### 38738#       发表于 2022-10-26 18:20
+
+相信曼巴
+
+*****
+
+####  阿垃垃圾历  
+##### 38739#       发表于 2022-10-26 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58109146&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-26 13:29</a>
+我重新去听了一遍ti8intro，非北美本土选手集体欢呼声特别明显的
+
+lgd：fy maybe
+
+newbee：sccc</blockquote>
+兄弟 给个链接
+
+*****
+
+####  樱冢名月  
+##### 38740#       发表于 2022-10-26 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不信，我觉得这几天会调整翻车，希望打我脸。但是对于他们来说最多殿军了。叶智标就是个地雷，鹏子也有软脚属性，林皇是看着其他两个人摆烂，自己跟着摆，胖爹无力回天，希望天降伟人球爹能靠曼巴精神狠狠拧绳。
+
+*****
+
+####  蛭人  
+##### 38741#       发表于 2022-10-26 18:22
+
+真假OG大战
+
+<img src="https://img.saraba1st.com/forum/202210/26/182220eskm9sfpvvdfd8ke.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (66.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 18:22 上传
+
+*****
+
+####  柚上舍人  
+##### 38742#       发表于 2022-10-26 18:22
+
+等一个茶队打进总决赛领先24个人头被翻盘，皮球直呼第二名是最大输家
+

@@ -11254,3 +11254,21 @@ SAO窗又bug了好像
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还不开始玩游戏，隔着炫耀作者是你粉丝是吧
 
+
+
+*****
+
+####  holoan  
+##### 2577#         楼主| 发表于 2022-10-26 18:21
+
+前两个人的直播也是这样
+
+按要求做的宣传部分
+
+*****
+
+####  holoan  
+##### 2578#         楼主| 发表于 2022-10-26 18:21
+
+作者刚才在哪没找到
+
