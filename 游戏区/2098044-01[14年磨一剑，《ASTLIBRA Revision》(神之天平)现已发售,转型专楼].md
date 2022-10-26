@@ -10936,3 +10936,15 @@ ns版本什么时候上
 
 打到哪个地方为止就完全回不去了？我现在在第八章xxxx的前面了
 
+
+
+*****
+
+####  黒長直姫  
+##### 1004#       发表于 2022-10-26 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107777&amp;ptid=2098044" target="_blank">大暗月 发表于 2022-10-26 12:07</a>
+
+打到哪个地方为止就完全回不去了？我现在在第八章xxxx的前面了</blockquote>
+到终章提示你再往前就无法回头了才会回不去 8章和终章都是随便传回去的
+

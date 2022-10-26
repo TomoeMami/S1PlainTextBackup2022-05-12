@@ -8344,3 +8344,112 @@ AME今年最喜感还是阿灵顿进了胜绝，以为能离开龟壳了，微�
 
 面八只是画饼说买断 他画饼的狼哥在kg
 
+
+
+*****
+
+####  六娃  
+##### 38438#       发表于 2022-10-26 12:42
+
+租借的世界线21年ehome阵容monet xm chalice james/fade xnova
+
+那么sccc应该还会留鳖星再打一年
+
+*****
+
+####  二宮飛鳥酱  
+##### 38439#       发表于 2022-10-26 12:43
+
+<img src="https://img.saraba1st.com/forum/202210/26/124236wu8yyauwcywo4z8y.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026124219.png</strong> (44.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:42 上传
+
+当时的LGD是谁来着，处长霉鳖老11菜皇yao日天吗
+
+*****
+
+####  yyf奇遇记  
+##### 38440#       发表于 2022-10-26 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58108331&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-26 12:43</a>
+
+当时的LGD是谁来着，处长霉鳖老11菜皇yao日天吗</blockquote>
+错了，是jixing xz 霉鳖 a出 菜皇
+
+*****
+
+####  六娃  
+##### 38441#       发表于 2022-10-26 12:45
+
+霉鳖选队友的能力还是太牛了，钦点天才少年jixing，钦点好homieA畜
+
+*****
+
+####  二宮飛鳥酱  
+##### 38442#       发表于 2022-10-26 12:46
+
+jixing这个比是不是打完major被踢了后就没声音了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  izayoi39  
+##### 38443#       发表于 2022-10-26 12:47
+
+当时kg还是eh的2线队ehk吧，把狼哥调上去还是有可能的，不过买断鹏子估计还是不可能，也就rng当时有钱才当了冤大头把鹏子解脱了
+
+*****
+
+####  yyf奇遇记  
+##### 38444#       发表于 2022-10-26 12:48
+
+没有啊，被没黄踢了之后去了lfy，然后在lfy胜泰迪一子进了dac。
+
+是证明泰迪队友并不比泰迪差的一个鲜明例子
+
+*****
+
+####  izayoi39  
+##### 38445#       发表于 2022-10-26 12:49
+
+泰迪的经典被前队友暴打的次数恐怕是dota2职业选手里最多了的吧
+
+*****
+
+####  ck4pa  
+##### 38446#       发表于 2022-10-26 12:50
+
+霉鳖给cndota找祸害能力有一手的
+
+*****
+
+####  yyf奇遇记  
+##### 38447#       发表于 2022-10-26 12:51
+
+<img src="https://img.saraba1st.com/forum/202210/26/125058vf14me8sfwaf58e8.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026125047.png</strong> (47.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:50 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/125120bir3trd0p5tkddki.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026125105.png</strong> (5.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:51 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/125123rvklknvldkljjl5k.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026125115.png</strong> (41.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:51 上传
+
