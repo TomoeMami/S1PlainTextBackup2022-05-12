@@ -7959,3 +7959,52 @@ trixi的fnc可是初代欧洲内战王
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  izayoi39  
+##### 38404#       发表于 2022-10-26 12:03
+
+没尾巴我记得就在fnc混过段时间吧
+
+*****
+
+####  六娃  
+##### 38405#       发表于 2022-10-26 12:04
+
+fnc.eu主要是全都是HON转过来的，竞技状态比其他草台班子强很多
+
+*****
+
+####  恐怖利刃  
+##### 38406#       发表于 2022-10-26 12:04
+
+<img src="https://img.saraba1st.com/forum/202210/26/120408pho1sz1spt0thb4j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4003DD95-DFAE-4C71-8387-07AA55A0AD3C.jpeg</strong> (82 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:04 上传
+
+*****
+
+####  恐怖利刃  
+##### 38407#       发表于 2022-10-26 12:05
+
+<img src="https://img.saraba1st.com/forum/202210/26/120456o9rrs0vksucp2c09.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F1495AAE-26B8-4F08-BAC9-97FD9CA806DD.jpeg</strong> (193.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 12:04 上传
+
+*****
+
+####  yyf奇遇记  
+##### 38408#       发表于 2022-10-26 12:10
+
+【【Ti11】LXO魅力时刻-哔哩哔哩】 https://b23.tv/8tamHN5
+
