@@ -3752,3 +3752,17 @@ DGG预定2年左右
 
 画伯的惨叫！
 
+
+
+*****
+
+####  天光逸  
+##### 367#       发表于 2022-10-26 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58081353&amp;ptid=2018235" target="_blank">Mc凉月奏酱 发表于 2022-10-24 19:13</a>
+
+？？所以学长的蘑菇是什么情况
+
+自产自销的场景好怪，有很多不好的联想 ...</blockquote>
+天才的养分对笨蛋是毒药www
+

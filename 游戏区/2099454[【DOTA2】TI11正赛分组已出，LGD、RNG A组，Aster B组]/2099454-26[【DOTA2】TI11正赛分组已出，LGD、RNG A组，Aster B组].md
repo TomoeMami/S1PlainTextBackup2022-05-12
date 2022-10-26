@@ -5674,3 +5674,299 @@ ti8是xxs自己要去中的<img src="https://static.saraba1st.com/image/smiley/f
 
 解说质量先不提，这穷酸还爱开摄像头是真的遭不住
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 38143#       发表于 2022-10-26 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105142&amp;ptid=2099454" target="_blank">qwas 发表于 2022-10-26 09:42</a>
+
+暮色独行就是铁杂种，天天装你妈最客观中立的，然后比赛时经常因为一点破事和水友battle一百个回合，经常在 ...</blockquote>
+就是个出生东西，跟我对线对不过直接把我封了，一股nga太监味道
+
+*****
+
+####  百世诸侯  
+##### 38144#       发表于 2022-10-26 09:44
+
+老王dota2还行，解说LGD打茶队的时候还算中立，但是场间疯狂安慰集美弹幕真的很乐，“别骂选手了，这才第一把，兄弟们别急”
+
+*****
+
+####  jk9hot  
+##### 38145#       发表于 2022-10-26 09:44
+
+Spirit推特公告：
+Spirit战队的TI11之旅到此结束了。Miposhka教练Silent回顾了对阵BOOM战队的比赛细节。感谢粉丝们对我们一如既往的支持。
+视频中两人提到对阵BOOM的失败可能是因为所有人包括队员自己对战队的表现有了过高的期望，大意和轻敌是致命的原因。
+他们也谈到了下个赛季战队将会保持原班人马，Yatoro、TORONTOTOKYO、Collapse、Mira和Miposhka所组成的Spirit会继续新的篇章。
+
+此前，有消息爆料，TORONTOTOKYO意向与Nightfall和Save组建一支新战队，Spirit战队的视频发布让谣言不攻自破。
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nowaki  
+##### 38146#       发表于 2022-10-26 09:44
+
+哥们一般找个前职业的听听思路，除了何雍正这种ru水溢出的我不看以外，其他看看都挺好的。
+
+*****
+
+####  morwhipppo  
+##### 38147#       发表于 2022-10-26 09:45
+
+BBC应该是最不喝水的人了，毕竟和老鳖是同乡，到死都为老鳖说话的，看碧碧戏比赛结束恶心小人的样子就好笑
+
+*****
+
+####  樱冢名月  
+##### 38148#       发表于 2022-10-26 09:45
+
+关注一颗发，谢谢喵
+
+*****
+
+####  星野航  
+##### 38149#       发表于 2022-10-26 09:45
+
+所以sdn这我觉得才是最有趣的
+说了好几年的搭档是铁血集美，疯狂喝水，自己还不能拉下脸来说点真的，只能应着对扯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+然后悄咪咪地找补，说一点什么“现在实际上没优势了”
+
+*****
+
+####  莉拉厨  
+##### 38150#       发表于 2022-10-26 09:45
+
+十年x哥老粉来说一下，x哥13年在斗鱼带妹直播的时候就是打中的，后来去dk打3完全就是因为打卜过陈天宇被赶到劣势路去的。本来18年后那段能打中的日子他还有点开心，后面头都被锤烂了就老老实实滚回3了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  iriyano  
+##### 38151#       发表于 2022-10-26 09:46
+
+srf自己单口的时候有点太无聊了
+有setsu的时候还能看看
+
+*****
+
+####  樱冢名月  
+##### 38152#       发表于 2022-10-26 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105194&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-26 09:45</a>
+
+所以sdn这我觉得才是最有趣的
+
+说了好几年的搭档是铁血集美，疯狂喝水，自己还不能拉下脸来说点真的，只能应 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">SDN这个逼，没有小飞机那件事，现在应该彻底踹开AA成为解说一哥了吧
+
+*****
+
+####  resorry  
+##### 38153#       发表于 2022-10-26 09:46
+
+mdy因为嫪毐不在反而还能看，但是最好OC和熊鳖都在
+
+*****
+
+####  walfeds  
+##### 38154#       发表于 2022-10-26 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105073&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 09:38</a>
+
+去年不知道是谁推荐了一个所谓客观中立的 暮色独行，也是个不要脸的东西，在哪解说就是“这就是你ame选的队 ...</blockquote>
+[@AIDSL](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=101053) 来拷打了
+
+*****
+
+####  星野航  
+##### 38155#       发表于 2022-10-26 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105173&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-26 10:44</a>
+Spirit推特公告：
+Spirit战队的TI11之旅到此结束了。Miposhka教练Silent回顾了对阵BOOM战队的比赛细节。感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那vlog最后，mipishka只说了一句“我们会回来的”这也没说阵容变化啊，怎么脑补这么多
+
+*****
+
+####  jk9hot  
+##### 38156#       发表于 2022-10-26 09:46
+
+所以x哥能玩拉席克吗？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nightmare902015  
+##### 38157#       发表于 2022-10-26 09:46
+
+hyz的声音恁难听。每次听到他的声音出现就心里暗下决心，我以后培养孩子一定先送去发声练习。
+
+*****
+
+####  adretyu67  
+##### 38158#       发表于 2022-10-26 09:47
+
+sdn华山派大弟子劳德诺和你逗呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+aa那就真的是蠢似猪了
+
+*****
+
+####  nowaki  
+##### 38159#       发表于 2022-10-26 09:47
+
+雪碧肯定要散队，这班子急需一个4号位大腿，或者年轻的工具2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 38160#       发表于 2022-10-26 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105200&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-26 09:45</a>
+
+十年x哥老粉来说一下，x哥13年在斗鱼带妹直播的时候就是打中的，后来去dk打3完全就是因为打卜过陈天宇被赶 ...</blockquote>
+打中跟他打三完全不一样，当时我认为他打中是真的浪费天赋，差点转黑。
+
+
+
+*****
+
+####  千千千千鸟  
+##### 38161#       发表于 2022-10-26 09:48
+
+我还蛮喜欢看sccc解说的，可惜没有得播ti。感觉虎牙是不是不行了，要不去批站吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星野航  
+##### 38162#       发表于 2022-10-26 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105205&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 10:46</a>
+SDN这个逼，没有小飞机那件事，现在应该彻底踹开AA成为解说一哥了吧 ...</blockquote>
+我觉得现在也是吧，他们这种解说跟足球里詹俊张嘿嘿那种挺像。一个嘴皮子快主打一个局势评述，另一个看得懂比赛讲比赛本身。
+区别主要是aa不像詹俊，立场还是太明显了
+
+*****
+
+####  yyf奇遇记  
+##### 38163#       发表于 2022-10-26 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105205&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 09:46</a>
+
+SDN这个逼，没有小飞机那件事，现在应该彻底踹开AA成为解说一哥了吧 ...</blockquote>
+卜是小飞机吧，他前女友是圈外的，小飞机是yc的女朋友
+
+*****
+
+####  jk9hot  
+##### 38164#       发表于 2022-10-26 09:49
+
+没到转会期在社交媒体发的公告我都当放屁
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  樱冢名月  
+##### 38165#       发表于 2022-10-26 09:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戏皇在他自己的直播太喜欢搞那男铜人设了，被恶心了几次不去了，而且也爱卡壳。有点唐的。
+
+*****
+
+####  roxas.sora  
+##### 38166#       发表于 2022-10-26 09:49
+
+国内解说哪敢不舔水厂的。。。。。。。不怕被网暴么，s1去年不是雪碧都差点给集美跪下了
+
+*****
+
+####  nowaki  
+##### 38167#       发表于 2022-10-26 09:49
+
+哦牛批，詹马桶立场还不明显，我刺比赛有人倒就是假，不给牌就是合理，给对面牌就是一大串质疑。
+
+詹马桶在我们偏小众的球迷群里声望都是负数的。
+
+*****
+
+####  zsu222  
+##### 38168#       发表于 2022-10-26 09:50
+
+职业解说真的好的是张志诚
+
+*****
+
+####  yyf奇遇记  
+##### 38169#       发表于 2022-10-26 09:50
+
+我澄清一下，是已经下跪了，不过赛后被傻狗们反攻回来了
+
+*****
+
+####  nowaki  
+##### 38170#       发表于 2022-10-26 09:50
+
+解说最牛的还是撸狗猪，能让我忍受zard这是司马玩意看一整个ti10<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 38171#       发表于 2022-10-26 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105280&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-26 09:50</a>
+
+职业解说真的好的是张志诚</blockquote>
+张智成 下面把 rotk这个几个b解说比赛都挺有意思的，但是自己上去banpick 就感觉差点味道
+
+*****
+
+####  madawc  
+##### 38172#       发表于 2022-10-26 09:51
+
+<blockquote>nightmare902015 发表于 2022-10-26 09:27
+竞技场到底改成啥样了，我只知道先撞一下然后用往外跳的技能现在是出不去了。被船长水起来的人马尔斯戳还是 ...</blockquote>
+7.31改成所有z轴移动都出不去了
+
+*****
+
+####  莉拉厨  
+##### 38173#       发表于 2022-10-26 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105215&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-26 09:46</a>
+所以x哥能玩拉席克吗？
+
+论坛助手,iPhone</blockquote>
+不会，他拉席克大部分场次都是15年之前的了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 38174#       发表于 2022-10-26 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105271&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-26 09:49</a>
+国内解说哪敢不舔水厂的。。。。。。。不怕被网暴么，s1去年不是雪碧都差点给集美跪下了 ...</blockquote>
+当时没来s1，后面回看去年那楼的时候感觉赛后和假赛论白头才是最乐的
+
+*****
+
+####  樱冢名月  
+##### 38175#       发表于 2022-10-26 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105256&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 09:48</a>
+
+卜是小飞机吧，他前女友是圈外的，小飞机是yc的女朋友</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谢指正，我记错了。
+
