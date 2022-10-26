@@ -4120,3 +4120,14 @@ ok，感谢
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  415452356  
+##### 386#       发表于 2022-10-26 13:22
+
+我也觉得不要前期捡六芒星，捡的一瞬间就啪一下请屏对前期来说太伤了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
