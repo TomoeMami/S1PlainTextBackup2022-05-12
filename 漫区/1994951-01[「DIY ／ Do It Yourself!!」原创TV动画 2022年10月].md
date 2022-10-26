@@ -2974,3 +2974,19 @@ https ...</blockquote>
 不符合人设，应该是把脑子直接蒸发掉的微波枪</blockquote>
 就用你们最喜欢的……这种原始人的工具……<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  舌怪  
+##### 239#       发表于 2022-10-26 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58117725&amp;ptid=1994951" target="_blank">Skyline_R 发表于 2022-10-26 21:33</a>
+
+第一个像样的二创是病娇布女士什么的，绝对不要啊
+
+https://www.pixiv.net/artworks/102089158
+
+https ...</blockquote>
+看好了，布丁女士就是这么用的<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
+

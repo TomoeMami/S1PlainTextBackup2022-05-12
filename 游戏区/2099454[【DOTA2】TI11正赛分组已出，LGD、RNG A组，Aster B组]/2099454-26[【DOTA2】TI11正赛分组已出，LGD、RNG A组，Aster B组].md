@@ -12347,3 +12347,26 @@ Q都按烂了都没用
 但是tk刷新可以跳走，因为刷新能强行让跳刀有一个tcik可以用
 哥们年轻时还玩得动tk的时候就用这个tips秀了不少次
 
+
+
+*****
+
+####  一品堂官  
+##### 38893#       发表于 2022-10-26 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58117561&amp;ptid=2099454" target="_blank">DarthAka 发表于 2022-10-26 21:25</a>
+当年鳖壳大得可怕，一帮人已经不在乎他是个菜逼，而且这帮人不少还有客户端……这壳只要不是纯傻逼都碎不了 ...</blockquote>
+没经历过
+看起来比集美有战斗力的样子 毕竟集美没客户端
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  yyf奇遇记  
+##### 38894#       发表于 2022-10-26 22:13
+
+当时dk比赛战旗最多多少个来着？
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
