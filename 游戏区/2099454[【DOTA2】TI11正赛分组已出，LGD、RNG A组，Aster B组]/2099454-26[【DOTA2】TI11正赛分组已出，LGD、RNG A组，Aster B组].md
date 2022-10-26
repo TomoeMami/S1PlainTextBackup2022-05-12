@@ -12178,3 +12178,12 @@ nmd，ti怎么变成了这个样子
 官网还有LXO和林俊杰演唱会的照片</blockquote>
 主要放的这张照片拍得跟殡仪馆一样
 
+
+
+*****
+
+####  Crazy_Knife  
+##### 38877#       发表于 2022-10-26 20:28
+
+看这视角是故意拍成这样的吧，这个台阶看着场馆可不小，和航母拍成捕鱼船一个思路了属于是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
