@@ -11024,3 +11024,250 @@ newbee：sccc</blockquote>
 
 等一个茶队打进总决赛领先24个人头被翻盘，皮球直呼第二名是最大输家
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 38743#       发表于 2022-10-26 18:23
+
+我踏马吐了 鳖孙也开始全村的希望+贷款了，能不能关注比赛本身  别搞得跟老干瘪粉丝一样
+
+*****
+
+####  tasuku  
+##### 38744#       发表于 2022-10-26 18:23
+
+核中核消息
+
+茶茶从国内带了鳖鳖的毛发、体液和贴身物品到新加坡，准备比赛的时候请神
+
+请给对面的C
+
+*****
+
+####  nightmare902015  
+##### 38745#       发表于 2022-10-26 18:23
+
+不是，都新时代了，打野真的不行。
+我也觉得这冷却了五天茶队基本没了。当天立刻打下去感觉可以越战越勇，现在火都灭了。
+
+*****
+
+####  tasuku  
+##### 38746#       发表于 2022-10-26 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58114317&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-26 18:23</a>
+
+不是，都新时代了，打野真的不行。
+
+我也觉得这冷却了五天茶队基本没了。当天立刻打下去感觉可以越战越勇， ...</blockquote>
+你如果觉得打野不行的话
+
+我明确的给你说目前所有** doto战队都不行了
+
+*****
+
+####  nowaki  
+##### 38747#       发表于 2022-10-26 18:26
+
+不是 难道淘汰赛茶状态很好吗
+
+*****
+
+####  反方向的波  
+##### 38748#       发表于 2022-10-26 18:26
+
+野王肯定是救不回来的，除非晓菲紧急联系@滨边美波
+
+*****
+
+####  fopinecone  
+##### 38749#       发表于 2022-10-26 18:27
+
+本焦阳fanboi认为休息五天焦阳能回到开赛初状态
+打的更烂了当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nightmare902015  
+##### 38750#       发表于 2022-10-26 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58114361&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-26 18:25</a>
+你如果觉得打野不行的话
+
+我明确的给你说目前所有** doto战队都不行了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是他人品行不行，也跟我看比赛打游戏没一毛钱关系啊。只要不要成为我的家人或者挚友就行，我对此也只是口头批评下。
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 38751#       发表于 2022-10-26 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58114384&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-26 18:26</a>
+野王肯定是救不回来的，除非晓菲紧急联系@滨边美波</blockquote>
+那不是wdc兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 38752#       发表于 2022-10-26 18:27
+
+之前做了个噩梦 棚子请到了ti4的鳖鳖 虚空开大怒敲亚巴顿
+
+*****
+
+####  yyf奇遇记  
+##### 38753#       发表于 2022-10-26 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58114361&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-26 18:25</a>
+你如果觉得打野不行的话
+
+我明确的给你说目前所有** doto战队都不行了</blockquote>
+不是，他说的应该是嫖/娼
+
+*****
+
+####  IG.430  
+##### 38754#       发表于 2022-10-26 18:28
+
+之前做了个噩梦 棚子请到了ti4的鳖鳖 虚空开大怒敲亚巴顿
+
+*****
+
+####  syndrome2032  
+##### 38755#       发表于 2022-10-26 18:28
+
+可是真的没什么好聊的。比赛还有2天
+
+前面的我忘了，中间的我忘了，后面的我也忘了。
+写在鳖茶受难前两天
+
+*****
+
+####  樱冢名月  
+##### 38756#       发表于 2022-10-26 18:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嫖/娼可大可小吧，我是觉得嫖/娼影响自己队伍重要比赛是最傻逼的。其他人品上面的问题不予评价，又不是白嫖或者黄毛别人老婆。
+
+*****
+
+####  OVTVO  
+##### 38757#       发表于 2022-10-26 18:29
+
+ 之前做了个噩梦 棚子请到了ti4的鳖鳖 决赛第五局蚂蚁缩地中箭被秒没买活
+
+*****
+
+####  fopinecone  
+##### 38758#       发表于 2022-10-26 18:29
+
+前面的我忘了，中间的我忘了，后面的我忘了。
+写在鳖茶受难前三天
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tasuku  
+##### 38759#       发表于 2022-10-26 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58114412&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 18:28</a>
+
+不是，他说的应该是嫖/娼</blockquote>
+对啊我知道啊
+
+具体到个人我不好说，宽泛到一个队的话，但就打野这事没一个队是纯洁的好吧
+
+这没啥好拿出来单独说的
+
+*****
+
+####  六娃  
+##### 38760#       发表于 2022-10-26 18:30
+
+有没有可能滚球兽就是A畜嫖娼嫖没的
+
+
+
+*****
+
+####  柚上舍人  
+##### 38761#       发表于 2022-10-26 18:30
+
+说不定马桶哥请到了ti7的自己
+
+*****
+
+####  yyf奇遇记  
+##### 38762#       发表于 2022-10-26 18:31
+
+嫖娼卜是屏蔽词啊
+
+*****
+
+####  反方向的波  
+##### 38763#       发表于 2022-10-26 18:31
+
+今天中午做了个噩梦 杜鹏看了电锯人动画第三集 被mappa气的一拳把掌骨捶骨折了 来自洛杉矶的24号上场打一
+
+*****
+
+####  Mikumiku831  
+##### 38764#       发表于 2022-10-26 18:31
+
+蚂蚁5秒剑 蚂蚁吃满魂大 石油巨子 1级削蓝毒狗 奥运电魂
+
+请到一个就是成功<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  zsu222  
+##### 38765#       发表于 2022-10-26 18:31
+
+ti7太多绿色英雄了
+
+*****
+
+####  bluebaby  
+##### 38766#       发表于 2022-10-26 18:31
+
+真要说冷却，液体才是冷却了就gg
+
+*****
+
+####  jk9hot  
+##### 38767#       发表于 2022-10-26 18:32
+
+刚刷了一遍ti4 nb夺冠历程的视频就进你楼看到请神请到ti4
+12是请的到haomu ti4进身上我大概会开心一年
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一品堂官  
+##### 38768#       发表于 2022-10-26 18:32
+
+从生物学上看男性多巴胺疯狂释放之后 状态自然而然进入低潮期 从反应力到情绪到创造力全面下滑
+ 特别是打野这种 因为换一个甚至几个对象 基因决定身体直接透支
+等待选手的只有偿还
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  OVTVO  
+##### 38769#       发表于 2022-10-26 18:33
+
+说到绿色英雄，当年ROTK选5绿打爆PIS是故意的吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 38770#       发表于 2022-10-26 18:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经梦到叶智标全程软脚，全程负作用，鹏子突然狂一波上去送，林皇谜团拉个好大没人输出，胖爹一崩到底，球爹只能躲树林抽烟，最后一个上去送，无奈打出GG。集美们疯狂卷土重来，水厂各种造势，鳖星胜之不武，老干瘪上去更好的地狱场景。而且极大概率发生，玉玉了。
+
