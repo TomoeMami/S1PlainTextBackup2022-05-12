@@ -11194,3 +11194,14 @@ S1抽风的时候也能备用
 
 才2点来说也不算太晚
 
+
+
+*****
+
+####  holoan  
+##### 2571#         楼主| 发表于 2022-10-26 11:25
+
+过了一眼昨晚直播的切片，跟会场披露有关的切片基本没两个，剩下最多的是高达话题的切片，和SAO剧场版话题的
+
+完全没有人对运动会的话题有兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

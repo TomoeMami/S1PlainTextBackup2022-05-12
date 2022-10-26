@@ -7619,3 +7619,111 @@ ame尽力，没有ame就没有西恩doto
 
 哇还有人在B站写学校信息，无敌了
 
+
+
+*****
+
+####  IG.430  
+##### 38368#       发表于 2022-10-26 11:26
+
+学校信息指的是南京工程学院吗<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 38369#       发表于 2022-10-26 11:26
+
+ 本帖最后由 adretyu67 于 2022-10-26 11:30 编辑 
+
+因为森哥用谭雅稿做了个dota选手缺点总计。观众们纷纷表示这是抄倪哥拍球的，顺带提供了一下模仿对象地址。
+
+跑进去听倪哥拍球的说书也挺有哏的。
+
+寻思了下，这不就是王掀背的一贯作风吗，只是可惜doto舞台还是太小不够掀背表演
+
+*****
+
+####  nowaki  
+##### 38370#       发表于 2022-10-26 11:26
+
+学校信息指的是南京工程学院吗
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 38371#       发表于 2022-10-26 11:26
+
+这里不是南京工程学院校友交流楼吗？
+
+*****
+
+####  nerugigannte  
+##### 38372#       发表于 2022-10-26 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105585&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-26 10:10</a>
+ 不是，你们都不看dodo看比赛吗，RNG基地快爆时急得哭出来，突出一个真情实意好吧 ...</blockquote>
+有切片嘛，我喜欢听妹子哭哭
+
+*****
+
+####  nowaki  
+##### 38373#       发表于 2022-10-26 11:28
+
+<blockquote>nerugigannte 发表于 2022-10-26 11:27
+有切片嘛，我喜欢听妹子哭哭</blockquote>
+【RNG被淘汰后哭出声的dodo-哔哩哔哩】 https://b23.tv/9c9PjfW
+
+*****
+
+####  llconforever  
+##### 38374#       发表于 2022-10-26 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105100&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-26 09:40</a>
+ig让xxs打中才是真脑浆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">林靖打中还能进ti一轮游，反观水厂废太子郭鸿铖
+
+*****
+
+####  roxas.sora  
+##### 38375#       发表于 2022-10-26 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107070&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-26 11:28</a>
+
+【RNG被淘汰后哭出声的dodo-哔哩哔哩】 https://b23.tv/9c9PjfW</blockquote>
+评论区味太冲
+
+*****
+
+####  哈曼的YY  
+##### 38376#       发表于 2022-10-26 11:32
+
+今日(10月25日)的早些时候,Valve组织了一场线上媒体会议，TI前四的队伍出席，回答媒体的提问。
+
+Lasse “Matumbaman” Urpalainen回答了一些关于他的退役的问题，打破了年龄和竞技的迷思，以及他的最后一届TI是否给他带来了压力
+
+记者：你退役后要做的第一件事情是什么？
+
+Matumbaman：退役后第一件要做的事情就是在床上躺几天，放松，不做任何事情。
+
+记者：作为即将要退役的传奇选手，你下赛季DPC会看好哪位新选手吗？
+
+Matumbaman：每次都有人问我一些和我自身和我所在的队伍无关的问题。因为我不用social media，也不关注什么奇怪的东西，所以我不知道。
+
+但我知道Topson从LCQ阶段淘汰了。他是队伍中唯一一位拖着队伍前进的选手，所以他会打出来的，不过他也没那么年轻，也不是新选手了。
+
+记者：你对于随着年龄变大会有影响赛场表现的争论有什么看法？
+
+Matumbaman：这里有一大堆的50岁前职业赛车手的例子，他们的反应力依旧是顶尖的。我觉得这不会怎么影响你，所以这个争论是bullshit。
+
+在某个时间点，你就不会在乎然后玩，或者干脆也不玩了。
+
+记者：大家都知道这是你作为职业选手的最后一届TI了。这给你正常打出高水平的比赛带来了压力了吗？特别是考虑到粉丝的热情期待。
+
+Matumbaman：并没有，因为这有很多方式来应对压力。有些选手可能因为这是最后的比赛怕输而胆怯了。这就能定义我整个职业生涯吗？不能！
+
+但这可能对于有些选手是真的挺可怕。但就对我而言，这真的不是什么大事。
+
+我只是去那里正常地做我该做的事情就好了。就自然而然地准备，自然而然地上场。所以这根本影响不了我。
+
