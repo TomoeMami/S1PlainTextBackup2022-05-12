@@ -168,3 +168,12 @@ C闪的回收真是感天动地！6怪都很难拯救。</blockquote>
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  霄度天  
+##### 43651#       发表于 2022-10-26 16:00
+
+C闪打90的杀阶本还是可以的吧
+

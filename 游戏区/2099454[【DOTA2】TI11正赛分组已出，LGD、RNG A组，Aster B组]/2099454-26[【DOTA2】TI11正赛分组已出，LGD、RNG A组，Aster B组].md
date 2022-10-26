@@ -9482,3 +9482,122 @@ k1再不济有一手骷髅王选出来能刷能吃伤害能狂砍一条街，我
 
 你看孙一峰七把钥匙不也天天在直播间扮小丑，跟着黄旭东一起蹭这蹭那的，其实就是闲的
 
+
+
+*****
+
+####  nightmare902015  
+##### 38562#       发表于 2022-10-26 15:54
+
+三十现在2500块加15敏捷10智力和每次攻击40点物理伤害，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这属性少得让人难绷。
+
+*****
+
+####  12481632  
+##### 38563#       发表于 2022-10-26 15:55
+
+不是很懂你们萨特的生活
+
+*****
+
+####  kalavinka  
+##### 38564#       发表于 2022-10-26 15:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没人发八王那张聊天记录？
+
+<img src="https://img.saraba1st.com/forum/202210/26/155622x2q27nqnbi7su7wb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>WechatIMG14509.jpeg</strong> (67.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 15:56 上传
+
+*****
+
+####  哈曼的YY  
+##### 38565#       发表于 2022-10-26 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58111221&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-26 15:35:28</a>
+卧槽，集美这嘴是真的硬啊</blockquote>子非鱼了这下
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  dyxdyxyy  
+##### 38566#       发表于 2022-10-26 15:57
+
+李晓峰现在是在叔叔那直播嘛？看的人也不多，做公司亏了？
+孙一峰的河景房有杭州的朋友是什么地段
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  没钱买手办  
+##### 38567#       发表于 2022-10-26 15:57
+
+昨天吃海鲜笑的最高兴的不就是A畜吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 38568#       发表于 2022-10-26 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58111679&amp;ptid=2099454" target="_blank">dyxdyxyy 发表于 2022-10-26 15:57</a>
+李晓峰现在是在叔叔那直播嘛？看的人也不多，做公司亏了？
+孙一峰的河景房有杭州的朋友是什么地段</blockquote>
+孙一峰家产肯定是过亿了的，千万的房子全款付钱，当年他家在拱墅那块很多地都拆迁了
+
+*****
+
+####  哈曼的YY  
+##### 38569#       发表于 2022-10-26 15:59
+
+我还有个打dota的朋友外号就叫科比的 当时问他要不要换个他回答不就这样吧
+于是现在还是科比科比的叫
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  winkle  
+##### 38570#       发表于 2022-10-26 15:59
+
+曾几何时30是地狱火的爹
+
+*****
+
+####  nightmare902015  
+##### 38571#       发表于 2022-10-26 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58111716&amp;ptid=2099454" target="_blank">winkle 发表于 2022-10-26 15:59</a>
+曾几何时30是地狱火的爹</blockquote>
+咋不驱散显影之尘呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 38572#       发表于 2022-10-26 16:02
+
+所以那天k1那个散失娜迦淳淳狗屎运了，碰上mybed这种喜剧中单
+
+*****
+
+####  usoda  
+##### 38573#       发表于 2022-10-26 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58111716&amp;ptid=2099454" target="_blank">winkle 发表于 2022-10-26 15:59</a>
+ 曾几何时30是地狱火的爹</blockquote>
+还是斯文蜘蛛的爹
+
+*****
+
+####  六娃  
+##### 38574#       发表于 2022-10-26 16:02
+
+李晓峰大概处于黄旭东这种上海中产和孙一峰这种远古萨特之间，普通财富自由的档次
+
