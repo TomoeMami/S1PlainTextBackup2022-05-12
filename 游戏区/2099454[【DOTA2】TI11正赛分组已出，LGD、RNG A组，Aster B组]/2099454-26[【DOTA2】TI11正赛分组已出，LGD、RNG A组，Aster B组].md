@@ -8988,3 +8988,72 @@ k1再不济有一手骷髅王选出来能刷能吃伤害能狂砍一条街，我
 
 众人欢笑
 
+
+
+*****
+
+####  roxas.sora  
+##### 38507#       发表于 2022-10-26 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58110003&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-26 14:19</a>
+
+[杂谈] Aster队内语音流出
+
+国土：“双炮台能玩吗？奶头你觉得出啥核好”
+
+鹏子：“拿个线上好打的吧，摁死明 ...</blockquote>
+段子吧
+
+*****
+
+####  seki_m  
+##### 38508#       发表于 2022-10-26 14:23
+
+谢谢科比带我认识你
+
+*****
+
+####  yyf奇遇记  
+##### 38509#       发表于 2022-10-26 14:24
+
+谢谢你带我认识科比
+
+*****
+
+####  resorry  
+##### 38510#       发表于 2022-10-26 14:26
+
+谢谢你带我认识科比
+
+*****
+
+####  resorry  
+##### 38511#       发表于 2022-10-26 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58110003&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-26 14:19</a>
+
+[杂谈] Aster队内语音流出
+
+国土：“双炮台能玩吗？奶头你觉得出啥核好”
+
+鹏子：“拿个线上好打的吧，摁死明 ...</blockquote>
+曼巴精神拉满了
+
+*****
+
+####  masterffzhou  
+##### 38512#       发表于 2022-10-26 14:32
+
+焦比：我谢谢你，以后别来了
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  masterffzhou  
+##### 38513#       发表于 2022-10-26 14:32
+
+焦比：我谢谢你，以后别来了
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
