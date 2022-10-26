@@ -8855,3 +8855,55 @@ og：notail
 
 也不知道这是真集美还是只是想蹭ru水的，我要是天天盯着A畜第一视角解说早他妈吐了
 
+
+
+*****
+
+####  roxas.sora  
+##### 38494#       发表于 2022-10-26 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58109298&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 13:38</a>
+
+哥们想起来了，东南亚a畜的经典操作是不是都是ti8这赛季弄得，圣剑换树枝和剑斩莲花 ...</blockquote>
+那个不是raven么
+
+*****
+
+####  六娃  
+##### 38495#       发表于 2022-10-26 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58109298&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 13:38</a>
+
+哥们想起来了，东南亚a畜的经典操作是不是都是ti8这赛季弄得，圣剑换树枝和剑斩莲花 ...</blockquote>
+是的，raven这个赛季出道即巅峰
+
+*****
+
+####  yyf奇遇记  
+##### 38496#       发表于 2022-10-26 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58109381&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-26 13:43</a>
+
+那个不是raven么</blockquote>
+东南亚a畜就是raven
+
+*****
+
+####  roxas.sora  
+##### 38497#       发表于 2022-10-26 13:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58109458&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 13:48</a>
+
+东南亚a畜就是raven</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还以为a开头才算
+
+*****
+
+####  yyf奇遇记  
+##### 38498#       发表于 2022-10-26 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58109474&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-26 13:49</a>
+
+我还以为a开头才算</blockquote>
+666 k1也不是a开头的啊，只是从1号位里面挑世界上另外的掀背罢了
+
