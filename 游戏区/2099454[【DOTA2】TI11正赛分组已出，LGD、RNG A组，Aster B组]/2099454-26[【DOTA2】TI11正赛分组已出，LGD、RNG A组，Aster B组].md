@@ -12219,3 +12219,18 @@ TI11的休息周，Valve安排了媒体见面日，前四名的战队：Secret�
 
 25号还能发这种视频也太牛批了
 
+
+
+*****
+
+####  一品堂官  
+##### 38881#       发表于 2022-10-26 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58116951&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-26 20:51</a>
+https://www.bilibili.com/video/BV1fD4y1t7pQ
+
+25号还能发这种视频也太牛批了</blockquote>
+集美们的套子联名礼盒还能退钱不，投降输一半<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

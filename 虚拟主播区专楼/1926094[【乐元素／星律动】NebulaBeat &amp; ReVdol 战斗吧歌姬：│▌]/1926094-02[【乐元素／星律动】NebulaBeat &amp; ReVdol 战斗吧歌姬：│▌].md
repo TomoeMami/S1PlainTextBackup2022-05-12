@@ -8933,3 +8933,23 @@ swan哥哥压轴，好
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  天青月白  
+##### 2448#       发表于 2022-10-26 20:52
+
+鱼神说粤语可爱的
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  天青月白  
+##### 2449#       发表于 2022-10-26 20:57
+
+这个醋醋是跳舞那个？
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

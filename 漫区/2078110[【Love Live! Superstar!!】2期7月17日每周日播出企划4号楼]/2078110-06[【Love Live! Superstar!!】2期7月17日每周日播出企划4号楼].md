@@ -13612,3 +13612,22 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 你还是忘不了未 ...</blockquote>
 水好像是五周年才出的，有的等了，傻偄运营估计还会把这两个edsolo当卖点呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8732#       发表于 2022-10-26 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58116628&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-10-26 20:34:04</a>
+水好像是五周年才出的，有的等了，傻偄运营估计还会把这两个edsolo当卖点呢 ...</blockquote>唉，等吧……这期千堇红蓝也都没solo了，可推没话说了吧？等着看三期12个人能不能一人一集solo(突然想起来第1集一般没ed，那没事了)
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  甘蓝巧克力  
+##### 8733#       发表于 2022-10-26 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候有几个可ed的solo专将提前成为典藏版，饥饿营销
+
