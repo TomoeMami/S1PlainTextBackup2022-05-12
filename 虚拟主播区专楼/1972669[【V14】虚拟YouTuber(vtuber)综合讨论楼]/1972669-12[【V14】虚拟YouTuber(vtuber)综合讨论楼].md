@@ -83,3 +83,12 @@ hj和fw联动喷喷草
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">翡翠在kun那边的企划够混沌，比虹那边的mc活动要有意思
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17642#       发表于 2022-10-26 18:48
+
+星川这solo配信剪辑禁止后接休息，感觉像是有联系又像是没有的样子
+
