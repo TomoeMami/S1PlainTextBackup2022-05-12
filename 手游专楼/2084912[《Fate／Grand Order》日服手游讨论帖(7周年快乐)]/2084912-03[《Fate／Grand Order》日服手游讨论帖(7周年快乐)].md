@@ -2861,3 +2861,38 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">并没有2。6 但开了虚数
 
+
+
+*****
+
+####  qixinno2  
+##### 3251#       发表于 2022-10-26 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">报错了怎么办
+
+*****
+
+####  alucardcz  
+##### 3252#       发表于 2022-10-26 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我很正常 包错的都是安卓？
+
+*****
+
+####  qixinno2  
+##### 3253#       发表于 2022-10-26 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58113018&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-26 17:05</a>
+
+我很正常 包错的都是安卓？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">估计是
+
+*****
+
+####  壳壳牛  
+##### 3254#       发表于 2022-10-26 17:12
+
+好像MC的包有问题
+
+我直接谷歌商店更新是正常的
+
