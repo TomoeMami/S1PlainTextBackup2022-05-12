@@ -36,3 +36,17 @@
 顺便发下在官博查源图时挖到的重制版高清视觉图，应该是目前全网最高清的。（楼主有空可以更新到1楼）
 <img src="https://img.gejiba.com/images/f669873ea02704c919cdc01b0b587b2b.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rincewind  
+##### 430#       发表于 2022-10-27 02:30
+
+原版全收集强迫症还是要刷的
+掉率0.5%的随机地牢稀有loot跟你开玩笑呢。
+还有陪葬品，刷需要一两个小时
+听起来不多对吧？这游戏一周目总共才几个小时…………
+
+—— 来自 Xiaomi Redmi K30i 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

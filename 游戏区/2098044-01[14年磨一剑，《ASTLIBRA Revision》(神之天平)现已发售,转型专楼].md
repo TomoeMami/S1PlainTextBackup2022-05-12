@@ -11299,3 +11299,46 @@ wiki看不懂日文可以对着装备数值去找
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  五块  
+##### 1036#       发表于 2022-10-27 02:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58120771&amp;ptid=2098044" target="_blank">大暗月 发表于 2022-10-27 01:06</a>
+
+蛇岛的叫蝎子啥啥的
+
+顺便问一下我现在也不知道还缺啥了，哪里有中文版的查漏补缺吗…… ...</blockquote>
+日文wiki上的排列顺序和你装备栏是一样的，对照检查吧。
+
+*****
+
+####  五块  
+##### 1037#       发表于 2022-10-27 02:31
+
+草，今天加了点血能挨三下总算过了狗男女，一路杀到群星这尼玛是人打的？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  pf67  
+##### 1038#       发表于 2022-10-27 03:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121215&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-27 02:31</a>
+草，今天加了点血能挨三下总算过了狗男女，一路杀到群星这尼玛是人打的？ ...</blockquote>
+用的什么武器过的啊？
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  红烧肉  
+##### 1039#       发表于 2022-10-27 05:33
+
+好奇怪，明明我一周目黑的爱情拿了，白也是完美魔王城，面包娘也救了。但是貌似只有2个爱情，也没拿到武器。
+
+还能补救吗？
+
+另外万圣节魔女的杖也太强了吧……
+

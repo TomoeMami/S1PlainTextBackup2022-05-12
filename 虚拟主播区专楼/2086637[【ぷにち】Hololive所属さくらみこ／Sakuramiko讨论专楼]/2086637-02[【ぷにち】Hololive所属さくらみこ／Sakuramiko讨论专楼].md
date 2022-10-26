@@ -11537,3 +11537,23 @@ ai的八字母 </blockquote>
 ai的八字母 </blockquote>
 嗯,我错过了啥?
 
+
+
+*****
+
+####  holoan  
+##### 2605#         楼主| 发表于 2022-10-27 02:18
+
+谁啊这，原神的人物吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rs5621  
+##### 2606#       发表于 2022-10-27 03:09
+
+ 本帖最后由 rs5621 于 2022-10-27 03:10 编辑 
+
+ai画的究极缝合怪八字母<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就瞳色发色还有那个耳朵像之外,其他都不行
+
