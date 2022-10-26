@@ -12370,3 +12370,35 @@ Q都按烂了都没用
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  roxas.sora  
+##### 38895#       发表于 2022-10-26 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58118337&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-26 22:10</a>
+
+没经历过
+
+看起来比集美有战斗力的样子 毕竟集美没客户端</blockquote>
+a+m的脑残粉加一起也没巅峰核弹恐怖，巅峰核弹的网暴不是开玩笑的，既嗜血又残暴，不是rtz在ti前破了dk的金身揭了壳，其他队伍的粉丝屁都不敢放
+
+*****
+
+####  nowaki  
+##### 38896#       发表于 2022-10-26 22:16
+
+核核好歹看点比赛 集美我怀疑就看个赛后kda的
+
+*****
+
+####  一品堂官  
+##### 38897#       发表于 2022-10-26 22:20
+
+网爆加恐吓呗 现在也不敢了吧 
+查猪那个几十万买手的故事 这都是过去时了 除非你粉丝肉身穿墙还有权有势 
+你楼连solo贴都无疾而终<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -11490,3 +11490,14 @@ PVP视觉效果最强
 
 这就完了？
 
+
+
+*****
+
+####  holoan  
+##### 2601#         楼主| 发表于 2022-10-26 22:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在我最怕直播结束前说明天正常有直播
+
+因为最近一个月只要说这句话的基本上第二天没有直播
+
