@@ -10966,3 +10966,14 @@ ns版本什么时候上
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">什么时候才有改难度的CE出来，不想重开档了
 
+
+
+*****
+
+####  何处分可  
+##### 1007#       发表于 2022-10-26 13:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58108778&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-26 13:07</a>
+白是不是第五章不能带上岛?带上岛必死吗？</blockquote>
+魔王城别带进去，等遇到盖乌再回去把白带走
+
