@@ -2939,3 +2939,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 新活动需要通2.6，但是有只通序章就可以打的本<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">    什么鬼
 
+
+
+*****
+
+####  eilot  
+##### 3260#       发表于 2022-10-26 19:03
+
+希望今年圣诞能会像再之前的万圣，先将以前所有圣诞活动角塞在一起大放送，才出新圣诞
+

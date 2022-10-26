@@ -11305,3 +11305,12 @@ SAO窗又bug了好像
 
 都40分了还没开始游戏演示，说明这游戏没东西啊，要么就是开发进程堪忧。
 
+
+
+*****
+
+####  rs5621  
+##### 2582#       发表于 2022-10-26 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">服了，还在播片，怎么还不开始打！
+
