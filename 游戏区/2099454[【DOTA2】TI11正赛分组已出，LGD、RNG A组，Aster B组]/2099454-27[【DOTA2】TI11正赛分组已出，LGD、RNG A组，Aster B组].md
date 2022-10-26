@@ -43,3 +43,12 @@
 
 —— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  高达X魔王  
+##### 39006#       发表于 2022-10-27 06:41
+
+V社不过了？没买plus本子能白嫖不？
+
