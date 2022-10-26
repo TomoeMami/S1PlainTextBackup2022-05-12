@@ -2852,3 +2852,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">Mooncell的更新包点击就报错……
 
+
+
+*****
+
+####  alucardcz  
+##### 3250#       发表于 2022-10-26 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">并没有2。6 但开了虚数
+

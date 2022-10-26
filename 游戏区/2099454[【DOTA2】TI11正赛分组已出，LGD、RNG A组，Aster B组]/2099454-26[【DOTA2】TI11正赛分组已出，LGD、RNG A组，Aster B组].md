@@ -10086,3 +10086,135 @@ https://dota ...</blockquote>
 
 基德基德
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 38629#       发表于 2022-10-26 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58112755&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-26 16:51</a>
+
+没尾巴刮出双冠双c和厅长，是不是各位冠军队长里面最会刮彩票的</blockquote>
+看人识物是一种卓越的能力，下面八自己当打手也好当小领导带队也好都能拿冠军，唯独不会识人，不然TI10赢的就是老干鳖了
+
+*****
+
+####  adretyu67  
+##### 38630#       发表于 2022-10-26 16:53
+
+好无聊，新的风暴是不是要等转会期了
+
+*****
+
+####  OVTVO  
+##### 38631#       发表于 2022-10-26 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">该搞一个天才自闭阴角美少女dota2选手成为TI冠军的动画了，番名就叫孤独DOTA
+
+*****
+
+####  越动天下  
+##### 38632#       发表于 2022-10-26 16:55
+
+我是真想快进到转会 
+
+*****
+
+####  yyf奇遇记  
+##### 38633#       发表于 2022-10-26 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好家伙，ti决赛都不看了是吧
+
+*****
+
+####  没钱买手办  
+##### 38634#       发表于 2022-10-26 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">决赛还没打呢兄弟们
+
+*****
+
+####  二宮飛鳥酱  
+##### 38635#       发表于 2022-10-26 16:56
+
+茶茶能进决赛我就看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 38636#       发表于 2022-10-26 16:57
+
+鉴定为鳖孙不敢看鳖星被虐
+
+*****
+
+####  nowaki  
+##### 38637#       发表于 2022-10-26 16:57
+
+决赛真的还没打呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  二宮飛鳥酱  
+##### 38638#       发表于 2022-10-26 16:57
+
+被漏油戳到了脚后跟，好痛<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 38639#       发表于 2022-10-26 16:58
+
+转会期不是已经开始了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">决赛？那是什么东西
+
+*****
+
+####  OVTVO  
+##### 38640#       发表于 2022-10-26 16:58
+
+本氢氢都不怕核核反攻的，傻狗们不要怕<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  百世诸侯  
+##### 38641#       发表于 2022-10-26 16:58
+
+鉴定为鳖孙不敢看鳖星被虐
+
+*****
+
+####  adretyu67  
+##### 38642#       发表于 2022-10-26 16:59
+
+ 本帖最后由 adretyu67 于 2022-10-26 17:02 编辑 
+
+鳖茶进决赛被虐也不算事啊，他们进决赛能赢才算事。
+
+他们就算进决赛被拳酱打成3:0或者石头人再次零封抬走都没啥好奇怪的。
+
+但是万一举盾就可以正大光明地笑话“成绩全靠LGD”了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 38643#       发表于 2022-10-26 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鳖孙看到樱花兄弟摸到决赛地板怕不是都哭了
+
+*****
+
+####  leia_rolando  
+##### 38644#       发表于 2022-10-26 17:02
+
+茶队算是完成任务了吧，乐观点能过液体。能到决赛赢中赢。
+
+*****
+
+####  六娃  
+##### 38645#       发表于 2022-10-26 17:02
+
+鳖星队内，杜鹏林靖两个尿裤小子，曾焦阳情绪化波动很大，野王这届状态一直不好，感觉确实全靠余亚军啊
+
