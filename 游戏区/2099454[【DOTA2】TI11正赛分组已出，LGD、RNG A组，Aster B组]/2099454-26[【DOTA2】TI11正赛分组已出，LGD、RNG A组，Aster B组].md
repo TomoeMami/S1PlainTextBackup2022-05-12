@@ -8188,3 +8188,110 @@ AME今年最喜感还是阿灵顿进了胜绝，以为能离开龟壳了，微�
 
 摸奈头浪费时间太多了
 
+
+
+*****
+
+####  二宮飛鳥酱  
+##### 38419#       发表于 2022-10-26 12:23
+
+我没记错杜鹏当时和张宁在初代LFY一起打了个major16强，当时都说他是关门弟子，没想到打着打着就离开LGD系再也不回了
+
+张宁去日本旅游还给他带本子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 38420#       发表于 2022-10-26 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58107460&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-26 11:47:45</a>
+只爱40岁赘肉法令纹硅胶奶皱纹白种老阿姨</blockquote>定语有点多了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tasuku  
+##### 38421#       发表于 2022-10-26 12:25
+
+潘婕（LGDVPGAME）
+
+*****
+
+####  zsu222  
+##### 38422#       发表于 2022-10-26 12:25
+
+当时lfy打着打着   小糯米怀孕了 下面八就退役走人了
+
+*****
+
+####  Litccc  
+##### 38423#       发表于 2022-10-26 12:26
+
+鹏子贡献了正规俱乐部的梗
+
+*****
+
+####  jk9hot  
+##### 38424#       发表于 2022-10-26 12:26
+
+要么鳖系要么水系
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yyf奇遇记  
+##### 38425#       发表于 2022-10-26 12:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58108024&amp;ptid=2099454" target="_blank">二宮飛鳥酱 发表于 2022-10-26 12:23</a>
+
+我没记错杜鹏当时和张宁在初代LFY一起打了个major16强，当时都说他是关门弟子，没想到打着打着就离开LGD系 ...</blockquote>
+5-8名把
+
+*****
+
+####  六娃  
+##### 38426#       发表于 2022-10-26 12:28
+
+张宁：“我气得把ruru微信都删了”
+
+潘婕：“我脑溢血了要死了”“我刚从楼梯上摔下去”
+
+*****
+
+####  二宮飛鳥酱  
+##### 38427#       发表于 2022-10-26 12:29
+
+那届major是wings改名random打的最后一届major，我记得大伙成绩都不理想，NB被亚军ATFlied干了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 38428#       发表于 2022-10-26 12:30
+
+那年狼哥去了kg陪oc身怀六甲了 面八画饼的eh最后拉的是鹿乃和天命，后来踢了换大妈和文丑，只能说鹏子要是去了估计已经废了
+
+*****
+
+####  二宮飛鳥酱  
+##### 38429#       发表于 2022-10-26 12:30
+
+想起来，是NB先输然后是LFY，确实是8强，记混了
+
+*****
+
+####  yyf奇遇记  
+##### 38430#       发表于 2022-10-26 12:32
+
+一眼顶针，鉴定为楼上xjb说，wings拆队前最后一个major是 基辅major没有lfy 波士顿major lfy5-8名
+
+
+
+*****
+
+####  walfeds  
+##### 38431#       发表于 2022-10-26 12:33
+
+八师傅对不起 我真卜是傻逼啊
+
