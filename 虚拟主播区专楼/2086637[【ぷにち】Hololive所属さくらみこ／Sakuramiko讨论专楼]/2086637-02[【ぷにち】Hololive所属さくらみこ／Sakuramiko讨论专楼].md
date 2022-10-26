@@ -11501,3 +11501,15 @@ PVP视觉效果最强
 
 因为最近一个月只要说这句话的基本上第二天没有直播
 
+
+
+*****
+
+####  a2276382  
+##### 2602#       发表于 2022-10-26 23:39
+
+ai的八字母 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/6fe0e186e902108a74a99b9466070acd/CMP_20221026233824774.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
