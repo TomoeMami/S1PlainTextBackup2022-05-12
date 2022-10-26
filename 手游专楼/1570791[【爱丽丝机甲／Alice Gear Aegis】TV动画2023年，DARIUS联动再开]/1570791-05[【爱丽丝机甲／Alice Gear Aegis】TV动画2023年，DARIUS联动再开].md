@@ -244,3 +244,12 @@ an天狐天 御侠
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">手机要支持手柄操作了，好期待呀
 
+
+
+*****
+
+####  overmind00  
+##### 7414#       发表于 2022-10-26 22:38
+
+简单试了一下手柄,单从可以触屏侧滑其他用手柄这一点上来说还是挺实用的,当然最大的好处还是可以不用开电脑了
+

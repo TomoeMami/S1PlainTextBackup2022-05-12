@@ -2376,3 +2376,28 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 18章困难难度实在打不过去了，求个大佬支招。
 
+
+
+*****
+
+####  tand177  
+##### 196#       发表于 2022-10-26 22:37
+
+ 本帖最后由 tand177 于 2022-10-26 22:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58116181&amp;ptid=2067291" target="_blank">nage560 发表于 2022-10-26 20:12</a>
+
+18章困难难度实在打不过去了，求个大佬支招。</blockquote>
+这关高难度直捣黄龙打不过的，我是放了奴隶，一群人绕进内城占据城门把城外部队清完再打的内城精英部队，但这样开奴隶那个必死，要么就直接强攻，难打一点，但是多个人，也可以不死人
+
+只要不进内城门槛，三精英就不会动
+
+*****
+
+####  nage560  
+##### 197#       发表于 2022-10-26 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58118738&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-26 22:37</a>
+
+这关高难度直捣黄龙打不过的，我是放了奴隶，一群人绕进内城占据城门把城外部队清完再打的内城精英部队， ...</blockquote>
+谢谢解答，难怪打不过，主要是这关3个高攻高防的BOSS，全部人集火打一个一回合都打不死一个，难打的要命<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
