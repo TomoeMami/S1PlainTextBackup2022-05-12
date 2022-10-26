@@ -11272,3 +11272,27 @@ SAO窗又bug了好像
 
 作者刚才在哪没找到
 
+
+
+*****
+
+####  rs5621  
+##### 2579#       发表于 2022-10-26 18:35
+
+<img src="https://img.saraba1st.com/forum/202210/26/183512zjsqpmjqqos8th6o.jpg" referrerpolicy="no-referrer">
+
+<strong>5O%JPE{$XYFG04]V[3U7.jpg</strong> (12.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 18:35 上传
+
+*****
+
+####  holoan  
+##### 2580#         楼主| 发表于 2022-10-26 18:39
+
+不对吧，还没开始游戏
+
+确实有点废话时间太长了，等会撞polka衣装披露了
+
