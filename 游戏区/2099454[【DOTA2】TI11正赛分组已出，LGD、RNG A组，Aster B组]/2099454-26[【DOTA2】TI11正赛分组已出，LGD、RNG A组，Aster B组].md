@@ -5121,3 +5121,294 @@ ti进不去？集美该刷版本垃圾，v社故意削弱中国队，去知乎�
 
 只能拿宇宙第一赛事和第二赛事<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  樱冢名月  
+##### 38079#       发表于 2022-10-26 09:12
+
+哥们还是喜欢选个POM摆烂射箭，中了牛逼666，不中就往地上一躺，等大哥带飞。
+
+*****
+
+####  上古TITAN  
+##### 38080#       发表于 2022-10-26 09:12
+
+宇宙第一赛事不是我9战9C的SL9？记得当时熬夜看完的
+
+*****
+
+####  nowaki  
+##### 38081#       发表于 2022-10-26 09:12
+
+今年的新口径是输了也好放下负担告别burden来年再战
+
+*****
+
+####  nerugigannte  
+##### 38082#       发表于 2022-10-26 09:13
+
+萌新求问，aster不是全华班吗，我中国人支持全华班不行吗
+
+*****
+
+####  火鸡味锅巴  
+##### 38083#       发表于 2022-10-26 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104545&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 09:10</a>
+
+现在我真的很欣赏皮球，认为他是新一代的最强队伍的队长候选。有皮球的队伍，心态应该不会出大问题 ...</blockquote>
+aster打水厂抽中皮球这个sg人士也算是一种宿命<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 38084#       发表于 2022-10-26 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104590&amp;ptid=2099454" target="_blank">上古TITAN 发表于 2022-10-26 09:12</a>
+
+宇宙第一赛事不是我9战9C的SL9？记得当时熬夜看完的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搓啦，早就更新成DAC2了
+
+*****
+
+####  nightmare902015  
+##### 38085#       发表于 2022-10-26 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104597&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-26 09:13</a>
+萌新求问，aster不是全华班吗，我中国人支持全华班不行吗</blockquote>
+队伍里日本人太多了。
+
+*****
+
+####  walfeds  
+##### 38086#       发表于 2022-10-26 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">皮球除了年纪偏大和不够基德真没什么缺点
+
+*****
+
+####  tasuku  
+##### 38087#       发表于 2022-10-26 09:14
+
+傻卵二次元带2个日本人打的战队，怎么看都是日本队吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Avantasi  
+##### 38088#       发表于 2022-10-26 09:14
+
+dac2有多重要呢，甚至萌萝提欧那个人妖赛后都招魂了
+
+*****
+
+####  yyf奇遇记  
+##### 38089#       发表于 2022-10-26 09:14
+
+6.88版本的pom卜是打中单的么，你能抢到来打野？
+
+*****
+
+####  tasuku  
+##### 38090#       发表于 2022-10-26 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104612&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-26 09:14</a>
+
+皮球除了年纪偏大和不够基德真没什么缺点</blockquote>
+球爹那种不基德不是优点？
+
+*****
+
+####  Bernoulli  
+##### 38091#       发表于 2022-10-26 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104597&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-26 09:13</a>
+
+萌新求问，aster不是全华班吗，我中国人支持全华班不行吗</blockquote>
+集美论坛已经说了，电竞选手是公众人物，嫖娼应该封杀退役的。
+
+*****
+
+####  resorry  
+##### 38092#       发表于 2022-10-26 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104603&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 09:13</a>
+
+搓啦，早就更新成DAC2了</blockquote>
+明明是第一赛事sl9  第二赛事DAC2
+
+*****
+
+####  usoda  
+##### 38093#       发表于 2022-10-26 09:15
+
+吃早饭的时候看到一条睿站评论“哥哥拿了第六已经很好了”<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 38094#       发表于 2022-10-26 09:15
+
+五号位年纪大不算缺点 皮球手活可以的
+
+*****
+
+####  resorry  
+##### 38095#       发表于 2022-10-26 09:15
+
+皮球如果20岁就好了
+
+*****
+
+####  12481632  
+##### 38096#       发表于 2022-10-26 09:16
+
+戳啦，现在的宇宙第一赛事已经更新成利雅得石油杯了
+
+*****
+
+####  莉拉厨  
+##### 38097#       发表于 2022-10-26 09:16
+
+荔枝通透，宇宙第一赛事到底是SL9、DAC2还是animajor或是利雅得石油杯
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IG.430  
+##### 38098#       发表于 2022-10-26 09:16
+
+戳啦，现在的宇宙第一赛事已经更新成利雅得石油杯了
+
+*****
+
+####  usoda  
+##### 38099#       发表于 2022-10-26 09:16
+
+戳啦，现在的宇宙第一赛事已经更新成利雅得石油杯了
+
+*****
+
+####  樱冢名月  
+##### 38100#       发表于 2022-10-26 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104623&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 09:14</a>
+
+6.88版本的pom卜是打中单的么，你能抢到来打野？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我们低分段傻狗是这样的，哥们还有一手绝活三号位摆烂风行，从头到尾屁用没有，只会躺。
+
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 38101#       发表于 2022-10-26 09:17
+
+从头到尾屁用没有，只会躺。<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nerugigannte  
+##### 38102#       发表于 2022-10-26 09:17
+
+有没有哥们上游戏试试，以太51能不能单防谜团啊
+
+*****
+
+####  tasuku  
+##### 38103#       发表于 2022-10-26 09:17
+
+有一说一石油杯那奖金，正经算个年度第二赛事没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 38104#       发表于 2022-10-26 09:17
+
+戳啦，现在的宇宙第一赛事已经更新成利雅得石油杯了
+
+*****
+
+####  resorry  
+##### 38105#       发表于 2022-10-26 09:17
+
+毛罗真是属于戏特别多的
+
+*****
+
+####  反方向的波  
+##### 38106#       发表于 2022-10-26 09:18
+
+搞得干瘪俱乐部里西恩人很多一样，随便一看就找出一个德国人一个马来人一个日本人，还有卜蒜人的
+
+*****
+
+####  walfeds  
+##### 38107#       发表于 2022-10-26 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104628&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-26 09:15</a>
+
+球爹那种不基德不是优点？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">开完口就被3-0还是两次只能说基德基德了呀
+
+*****
+
+####  樱冢名月  
+##### 38108#       发表于 2022-10-26 09:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">您是不是在找LGD.int
+
+*****
+
+####  walfeds  
+##### 38109#       发表于 2022-10-26 09:19
+
+戳啦，现在的宇宙第一赛事已经更新成利雅得石油杯了
+
+*****
+
+####  aruruu  
+##### 38110#       发表于 2022-10-26 09:20
+
+话说机枪兵去哪了，ti7之后就没见过了
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yyf奇遇记  
+##### 38111#       发表于 2022-10-26 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104729&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-26 09:20</a>
+
+话说机枪兵去哪了，ti7之后就没见过了
+
+—— 来自 HONOR LGE-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+在sag当教练好像是 不知道run了没有
+
+*****
+
+####  resorry  
+##### 38112#       发表于 2022-10-26 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104729&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-26 09:20</a>
+
+话说机枪兵去哪了，ti7之后就没见过了
+
+—— 来自 HONOR LGE-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+在SAG当教练啊，后来去SZHL的队了？
+
+*****
+
+####  樱冢名月  
+##### 38113#       发表于 2022-10-26 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58104729&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-26 09:20</a>
+
+话说机枪兵去哪了，ti7之后就没见过了
+
+—— 来自 HONOR LGE-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+我记得好像出来当枪，然后去当了一段时间教练？然后查无此人。TI7以后就基本没听到过消息了。只能说很可惜，在适合他的版本遇到了黑脸鳖鳖。
+
