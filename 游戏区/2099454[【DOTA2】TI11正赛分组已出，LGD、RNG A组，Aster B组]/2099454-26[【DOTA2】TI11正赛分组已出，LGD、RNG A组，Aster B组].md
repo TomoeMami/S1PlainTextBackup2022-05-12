@@ -8688,3 +8688,79 @@ ti前就打回来了 武汉mdl 2-0 major冠军 og，然后鏖战震中杯3-4名l
 
 这集美看了一眼更新根本没试过就在那脑补，SA就该出A杖大炮，敏捷靠系带来找补，草鞋系带奔着a去，现在a杖刷钱快的一比，这英雄系带是完全可以带到双倍时间段的，这套出装的问题是蓝不太跟得上得运小蓝，打两把就知道这套的farm效率相当高而且刷钱装也是战斗装，想打架也不耽误，后期大绿跳开扣1000多红字乱跳。不过这英雄还是太垃圾，推不了塔又容易暴毙，明明自带3段切入没点水平还真玩不转
 
+
+
+*****
+
+####  walfeds  
+##### 38477#       发表于 2022-10-26 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58108625&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-26 12:59</a>
+
+看了下贴吧发了今年创意工坊宝瓶的作品。。。。。。。。阀门对着出就能赚钱，怎么还有人赚钱都懒的，那么多 ...</blockquote>
+只能说哪天懒狗社不想干了直接把创意工坊接口打开完事
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 38478#       发表于 2022-10-26 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58105871&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-26 10:27</a>
+不如跟哥们一起在睿站看，大微胖秋冬穿卫衣，比版型更重要的其实是内衣来的实在。 ...</blockquote>
+不如小红书
+
+*****
+
+####  yyf奇遇记  
+##### 38479#       发表于 2022-10-26 13:15
+
+按理来说明天周四，应该出特惠2了吧，不会今年就摆烂不给奖金池，ti结束后才出？
+
+*****
+
+####  walfeds  
+##### 38480#       发表于 2022-10-26 13:18
+
+ 本帖最后由 walfeds 于 2022-10-26 13:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58108923&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 13:15</a>
+
+按理来说明天周四，应该出特惠2了吧，不会今年就摆烂不给奖金池，ti结束后才出？ ...</blockquote>
+今年铁恰烂钱了，特惠二肯定本子第二部分出的时候才放
+
+特惠一都要到打完ti才截止了
+
+*****
+
+####  yyf奇遇记  
+##### 38481#       发表于 2022-10-26 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58108978&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-26 13:18</a>
+
+今年铁恰烂钱了，特惠二肯定本子第二部分出的时候才放
+
+特惠一都要到打完ti才截止了
+
+ ...</blockquote>
+我看特惠1写的是 30号下线
+
+*****
+
+####  二宮飛鳥酱  
+##### 38482#       发表于 2022-10-26 13:20
+
+V社还画大饼：‘我们的游戏会越来越好哦’ 我好NMLGB<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 38483#       发表于 2022-10-26 13:22
+
+妮们现在随便抱怨，等女仆玛西出来一切都会好起来的
+
+*****
+
+####  12481632  
+##### 38484#       发表于 2022-10-26 13:23
+
+我好NMLGB
+
