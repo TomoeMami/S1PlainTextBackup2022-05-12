@@ -7897,3 +7897,15 @@ Eric刚刚在PS4上第三次通关本作，和前作一样稳定的30帧，但�
 
 另外看到b站有个剧透建模的视频，不知道真假，成年的boy和奎爷年轻时挺像。
 
+
+
+*****
+
+####  葵  
+##### 838#       发表于 2022-10-26 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58114059&amp;ptid=2025548" target="_blank">wgoenitz 发表于 2022-10-26 18:08</a>
+
+另外看到b站有个剧透建模的视频，不知道真假，成年的boy和奎爷年轻时挺像。 ...</blockquote>
+求个链接，之前也看过一个成年boy的建模但是评论说是假的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

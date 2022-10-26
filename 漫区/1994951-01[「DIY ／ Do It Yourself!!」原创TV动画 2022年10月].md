@@ -2936,3 +2936,30 @@ job子奶声奶气的好可爱<img src="https://static.saraba1st.com/image/smile
 这角色好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/091ffc47b9b8d71501e9d0ed36b72746/CMP_20221026150126714.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Skyline_R  
+##### 236#       发表于 2022-10-26 21:33
+
+第一个像样的二创是病娇布女士什么的，绝对不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://www.pixiv.net/artworks/102089158](https://www.pixiv.net/artworks/102089158)
+[https://www.pixiv.net/artworks/102168720](https://www.pixiv.net/artworks/102168720)
+<img src="https://ldbbs.ldmnq.com/bbs/topic/attachment/2022-10/98f78f89-a4ac-4b40-9d5a-8e6051c60bc9.png" referrerpolicy="no-referrer">
+<img src="https://ldbbs.ldmnq.com/bbs/topic/attachment/2022-10/77bfcdd8-bc1c-4f07-999e-a0955b3112dd.png" referrerpolicy="no-referrer">
+
+*****
+
+####  豚厨二象性  
+##### 237#       发表于 2022-10-26 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58117725&amp;ptid=1994951" target="_blank">Skyline_R 发表于 2022-10-26 21:33</a>
+
+第一个像样的二创是病娇布女士什么的，绝对不要啊
+
+https://www.pixiv.net/artworks/102089158
+
+https ...</blockquote>
+不符合人设，应该是把脑子直接蒸发掉的微波枪
+

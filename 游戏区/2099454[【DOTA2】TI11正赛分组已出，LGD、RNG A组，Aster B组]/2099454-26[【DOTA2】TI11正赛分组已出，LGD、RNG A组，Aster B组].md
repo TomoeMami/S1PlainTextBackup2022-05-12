@@ -12321,3 +12321,18 @@ Q都按烂了都没用
 
 是不是这个技能伤害结算比普通的持续伤害技能要快？
 
+
+
+*****
+
+####  yourSwaTer  
+##### 38891#       发表于 2022-10-26 21:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58117696&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-26 21:31</a>
+
+来点游戏本体相关事情
+
+有一个机制不是很懂</blockquote>
+腐烂跳不走
+[https://www.bilibili.com/video/BV1mA411c7XW/](https://www.bilibili.com/video/BV1mA411c7XW/)
+
