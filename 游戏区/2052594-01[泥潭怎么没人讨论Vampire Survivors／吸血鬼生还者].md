@@ -4209,3 +4209,31 @@ ok，感谢
 
 另外，白猫+啥玩意儿能升级超武？
 
+
+
+*****
+
+####  方舟失智博士  
+##### 393#       发表于 2022-10-26 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58113071&amp;ptid=2052594" target="_blank">史莱姆KING 发表于 2022-10-26 17:07</a>
+我倒是感觉那个树林子，适合刚解锁的新角色
+
+我刚解锁的双枪哥，在林子里横着走简直了</blockquote>
+猫加贪婪的那个面具可以合成专武
+一开始不知道那个特效aoe是啥 试了一次 好像是两只猫打架打成一团 那个aoe里伤害很高
+
+*****
+
+####  椎名mahuyo  
+##### 394#       发表于 2022-10-26 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58110543&amp;ptid=2052594" target="_blank">wcorvo 发表于 2022-10-26 14:54</a>
+
+那个超级糖果盒怎么解锁，收藏里就这一个没有
+
+只能纯看脸宝箱里出吗？ ...</blockquote>
+商人初始武器就是糖果盒
+
+解锁方法去moonglow把被动都拿齐并全部升满
+

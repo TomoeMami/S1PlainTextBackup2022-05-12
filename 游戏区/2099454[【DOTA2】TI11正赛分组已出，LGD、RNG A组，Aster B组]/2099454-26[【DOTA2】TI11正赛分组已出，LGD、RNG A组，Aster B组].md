@@ -10317,3 +10317,106 @@ https://dota ...</blockquote>
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  没钱买手办  
+##### 38659#       发表于 2022-10-26 17:12
+
+进总决赛给球_皮一个FMVP不过分吧
+
+*****
+
+####  六娃  
+##### 38660#       发表于 2022-10-26 17:13
+
+ 本帖最后由 六娃 于 2022-10-26 17:17 编辑 
+
+皮球举盾时身披焦比战衣仰天大喊：
+“____________________！”
+A Kobe this is for you！
+B 争做处长的也跌
+C 盾上的名字有我们的一半，也有徐老鳖的一半
+
+*****
+
+####  roxas.sora  
+##### 38661#       发表于 2022-10-26 17:14
+
+<img src="https://img.nga.178.com/attachments/mon_202210/26/8xQjmg-16shKkT1kSf0-bb.webp" referrerpolicy="no-referrer">
+<img src="https://img.nga.178.com/attachments/mon_202210/26/8xQjmg-jxz6ZiT3cSsg-k4.jpg" referrerpolicy="no-referrer">
+
+芬兰小王子到芬兰野人屠夫
+
+观桶哥相貌变化有感
+
+*****
+
+####  jk9hot  
+##### 38662#       发表于 2022-10-26 17:14
+
+鳖星上场举盾时，皮球拿篮球在旁边拍
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  没钱买手办  
+##### 38663#       发表于 2022-10-26 17:15
+
+为什么马桶变化那么大，kimi除了肥了和正常老了就没咋变
+
+*****
+
+####  roxas.sora  
+##### 38664#       发表于 2022-10-26 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">阿桶看来向dota之神献祭了他的颜值了
+
+*****
+
+####  adretyu67  
+##### 38665#       发表于 2022-10-26 17:16
+
+不是芬兰小矮人吗
+
+*****
+
+####  没钱买手办  
+##### 38666#       发表于 2022-10-26 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58113201&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-26 17:13</a>
+
+填空题
+
+皮球举盾时身披焦比战衣仰天大喊：
+
+“____________________！”</blockquote>
+一，一二？一二三四五！
+
+*****
+
+####  lyjssj  
+##### 38667#       发表于 2022-10-26 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">鳖茶拿了冠军反攻集美那也太没志气了
+
+反攻撸狗！
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 38668#       发表于 2022-10-26 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58113000&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 17:04</a>
+建议余亚军bryant组织全队观看蜗壳奥斯卡获奖作【亲爱的篮球】</blockquote>
+那还是乔丹最后一舞吧
+
+*****
+
+####  seki_m  
+##### 38669#       发表于 2022-10-26 17:22
+
+茶要是真举盾了，漏油可以骑在集美头上拉屎到关服吧
+

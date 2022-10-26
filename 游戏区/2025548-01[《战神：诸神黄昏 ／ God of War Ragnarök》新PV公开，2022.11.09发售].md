@@ -7867,3 +7867,12 @@ Eric刚刚在PS4上第三次通关本作，和前作一样稳定的30帧，但�
 
 奥丁领域那样吗？利弗诗拉希尔？
 
+
+
+*****
+
+####  紫沙狐  
+##### 835#       发表于 2022-10-26 17:20
+
+战神在老父亲的指点下现在学会近战了吗？北欧弓斗术<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
