@@ -6866,3 +6866,348 @@ pc端看不到封面，哥们点开视频直奔评论区看乐子好吧
 
 谭姓飞柱到底是啥，谭杉杉吗。
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 38282#       发表于 2022-10-26 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106128&amp;ptid=2099454" target="_blank">nightmare902015 发表于 2022-10-26 10:42</a>
+
+谭姓飞柱到底是啥，谭杉杉吗。</blockquote>
+sg知名恋童癖 tanya
+
+*****
+
+####  usoda  
+##### 38283#       发表于 2022-10-26 10:42
+
+不是谭雅吗
+
+*****
+
+####  哈曼的YY  
+##### 38284#       发表于 2022-10-26 10:43
+
+感觉漏油可以查查互相拉黑情况了
+
+*****
+
+####  walfeds  
+##### 38285#       发表于 2022-10-26 10:43
+
+辉耀计划这种闭着眼睛看图说话的傻逼看过一次就可以拉黑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 38286#       发表于 2022-10-26 10:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哥们上次拉黑是点歌香槟，后面一堆跟着骂我的傻逼集美，你自己想想是不是那次
+
+*****
+
+####  12481632  
+##### 38287#       发表于 2022-10-26 10:44
+
+感觉漏油可以先查一查关注列表和粉丝牌了
+
+*****
+
+####  lyjssj  
+##### 38288#       发表于 2022-10-26 10:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但回看以后邮局港剧，明鞭谜团出一个魔晶也确实落人口实，不知道在想啥
+
+*****
+
+####  tasuku  
+##### 38289#       发表于 2022-10-26 10:44
+
+雅少舔王处那波太坏观感了
+
+就是个暗黑集美，还不如看明牌集美呢
+
+*****
+
+####  roxas.sora  
+##### 38290#       发表于 2022-10-26 10:44
+
+所以说**包是真的厉害，英雄海，硬实力，现代dota，肌肉dota，都快被他们玩坏了
+
+*****
+
+####  zsu222  
+##### 38291#       发表于 2022-10-26 10:44
+
+但明鞭那谜团我觉得也接不了所有锅啊
+
+*****
+
+####  六娃  
+##### 38292#       发表于 2022-10-26 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106171&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-26 10:44</a>
+雅少舔王处那波太坏观感了
+
+就是个暗黑集美，还不如看明牌集美呢</blockquote>
+那次私信是我在直播间带节奏怂恿他的，鉴定为既不聪明也不善良
+
+*****
+
+####  yyf奇遇记  
+##### 38293#       发表于 2022-10-26 10:45
+
+你们看看有没有人在我的黑名单里面
+
+<img src="https://img.saraba1st.com/forum/202210/26/104504bicncd18p8ynicir.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026104357.png</strong> (61.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 10:45 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/104505zm06sf6kvzfcvnkc.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026104410.png</strong> (21.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 10:45 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/104505vfogf1w1ofxdsfoj.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026104420.png</strong> (50.02 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 10:45 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/104506uu8j1nnn55cc1x4f.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026104427.png</strong> (56.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 10:45 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/104506o3ldfd253douudvl.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026104432.png</strong> (22.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 10:45 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/104506a772bh7nlhywlurc.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221026104439.png</strong> (32.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 10:45 上传
+
+QQ截图20221026104404.png
+(59.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-26 10:45 上传
+
+<img src="https://img.saraba1st.com/forum/202210/26/104505y7n99zktlz8mrtit.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 38294#       发表于 2022-10-26 10:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就很想知道集美是怎么能打出这么一大段话来圆的
+
+是真的对自己看不懂比赛自豪还是自我刻奇到一个境界了
+
+*****
+
+####  勤练带来力量  
+##### 38295#       发表于 2022-10-26 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106170&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-26 10:44</a>
+但回看以后邮局港剧，明鞭谜团出一个魔晶也确实落人口实，不知道在想啥 ...</blockquote>
+他当时刚拉完大，也不知道集美们要一个没大的谜团掏把跳刀出来干谁就是了
+
+*****
+
+####  Litccc  
+##### 38296#       发表于 2022-10-26 10:47
+
+东雪莲Official
+
+*****
+
+####  usoda  
+##### 38297#       发表于 2022-10-26 10:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nowaki有关注眠大佐啊 你们果然是仇人
+
+*****
+
+####  nowaki  
+##### 38298#       发表于 2022-10-26 10:47
+
+明鞭那把谜团需要跳刀 bkb 刷新好吧，我不知道钱全给tb刷了的情况下，他怎么摸得出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  食粪者  
+##### 38299#       发表于 2022-10-26 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106127&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-26 10:42</a>
+你被nowaki b站号拉黑了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果真是那个露沉香的话，我在憋站只喷撸狗和集美
+
+*****
+
+####  zsu222  
+##### 38300#       发表于 2022-10-26 10:47
+
+棺材铺滚
+
+*****
+
+####  IG.430  
+##### 38301#       发表于 2022-10-26 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106182&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-26 10:45</a>
+那次私信是我在直播间带节奏怂恿他的，鉴定为既不聪明也不善良</blockquote>
+哦牛批，还有你这种教唆犯
+
+*****
+
+####  walfeds  
+##### 38302#       发表于 2022-10-26 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然是仇人
+
+*****
+
+####  yyf奇遇记  
+##### 38303#       发表于 2022-10-26 10:48
+
+这b冬雪莲又是没事上我首页，烦的不行，直接进去一个拉黑就好多了 
+
+*****
+
+####  12481632  
+##### 38304#       发表于 2022-10-26 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然是仇人
+
+*****
+
+####  nowaki  
+##### 38305#       发表于 2022-10-26 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106236&amp;ptid=2099454" target="_blank">食粪者 发表于 2022-10-26 10:47</a>
+
+如果真是那个露沉香的话，我在憋站只喷撸狗和集美</blockquote>
+报个id哥们看看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 38306#       发表于 2022-10-26 10:48
+
+tanya去年10月17在群里把昵称改成“集美化99%”，望周知
+
+*****
+
+####  勤练带来力量  
+##### 38307#       发表于 2022-10-26 10:49
+
+茶赢老干瘪没几个人敢剪，a处赢个四阳的bc不仅要一帧一帧的剪集锦，我还看见至少有三四个剪《萧瑟逆天翻盘国外解说反应》的，牛的牛的
+
+*****
+
+####  nowaki  
+##### 38308#       发表于 2022-10-26 10:49
+
+拉黑是解决不了b站推荐机制的，哥们拉黑版主和杰出很久了，依旧给我不停推
+
+*****
+
+####  lyjssj  
+##### 38309#       发表于 2022-10-26 10:49
+
+nowaki的这个B站ID，显然整个人已经是红龙战队1号位的形状了
+
+*****
+
+####  哈曼的YY  
+##### 38310#       发表于 2022-10-26 10:50
+
+冬雪莲之战
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 38311#       发表于 2022-10-26 10:51
+
+哥们把夜饮潇湘拉黑过之后就没被推荐过夜饮潇湘，那怕天天在你楼点草中单光一也没被大数据捕捉，望周知
+
+*****
+
+####  百世诸侯  
+##### 38312#       发表于 2022-10-26 10:51
+
+呵呵，窝的dodo编号比nowaki高，赢了
+
+*****
+
+####  越动天下  
+##### 38313#       发表于 2022-10-26 10:51
+
+皮套痴太多了 必须把皮套人一个不留的驱逐出去好吧
+
+*****
+
+####  walfeds  
+##### 38314#       发表于 2022-10-26 10:51
+
+批站的推荐机制就是一坨屎
+
+*****
+
+####  SEGA  
+##### 38315#       发表于 2022-10-26 10:51
+
+上海隔离后已经半年没打DOTA2，看了TI上线打了十多个小时，输赢3:1，太惨了。
+
+*****
+
+####  adretyu67  
+##### 38316#       发表于 2022-10-26 10:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">看口风，集美们终于肯承认以前掀背支付对不起队友，今年没有支付然而已经带不动混子23。
+
+*****
+
+####  食粪者  
+##### 38317#       发表于 2022-10-26 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106256&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-26 10:48</a>
+报个id哥们看看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">骚瑞，原来是那个司马南瓜把我拉黑了，我的错
+
+*****
+
+####  yyf奇遇记  
+##### 38318#       发表于 2022-10-26 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106320&amp;ptid=2099454" target="_blank">SEGA 发表于 2022-10-26 10:51</a>
+
+上海隔离后已经半年没打DOTA2，看了TI上线打了十多个小时，输赢3:1，太惨了。 ...</blockquote>
+多出怨灵之契
+
