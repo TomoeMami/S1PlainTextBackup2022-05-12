@@ -2401,3 +2401,15 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 这关高难度直捣黄龙打不过的，我是放了奴隶，一群人绕进内城占据城门把城外部队清完再打的内城精英部队， ...</blockquote>
 谢谢解答，难怪打不过，主要是这关3个高攻高防的BOSS，全部人集火打一个一回合都打不死一个，难打的要命<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tand177  
+##### 198#       发表于 2022-10-26 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58118804&amp;ptid=2067291" target="_blank">nage560 发表于 2022-10-26 22:41</a>
+
+谢谢解答，难怪打不过，主要是这关3个高攻高防的BOSS，全部人集火打一个一回合都打不死一个，难打的要命[ ...</blockquote>
+奴隶两回合就掉完了，回防距离也短，精英始终会保持减伤BUFF，这关的设计就有问题
+

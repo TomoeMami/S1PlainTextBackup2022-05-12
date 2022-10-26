@@ -11234,3 +11234,14 @@ hard的研究员三守门打的我欲仙欲死（屏幕都快看不清楚了）
 
 一件装备能带三个装备盘，再刷出新的装备盘只能替换第一个装备盘吗？
 
+
+
+*****
+
+####  朔洵千夜  
+##### 1031#       发表于 2022-10-26 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58118637&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-10-26 22:29</a>
+蛇神岛和魔王城的盔甲拿了吗？</blockquote>
+刚关机，45章没啥印象了……我现在100水晶，嘉隆技能还差一个，理论上应该拿到了……？那俩盔甲大概叫啥呢？
+

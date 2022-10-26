@@ -2973,3 +2973,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 再倒推一下是不是下个月开圣诞 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">12月30日才是2.7
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3263#       发表于 2022-10-26 22:48
+
+逼着卸了MUMU模拟器换64位又忘记备份，装好之后怎么连以前的一游戏多开都没了，之前加速被砍已经很不爽了，这个也没的话还要你何用，又或者只是国际版没有这功能？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -12456,3 +12456,31 @@ a+m的脑残粉加一起也没巅峰核弹恐怖，巅峰核弹的网暴不是�
 
 看完上面几楼，突然有种的处长配不上鳖的名号的感觉
 
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 38904#       发表于 2022-10-26 22:42
+
+以前sg很多核弹<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  非建政专用号  
+##### 38905#       发表于 2022-10-26 22:45
+
+今天生活不如意，看完森哥(冲击百大)剪的集锦，不禁感叹今年ti上的表演实在一般，今年最戏剧性的表演我投major上的ck3打5一票
+
+*****
+
+####  火鸡味锅巴  
+##### 38906#       发表于 2022-10-26 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58118800&amp;ptid=2099454" target="_blank">啊哈 发表于 2022-10-26 22:41</a>
+
+看完上面几楼，突然有种的处长配不上鳖的名号的感觉</blockquote>
+集美对游戏本身的破坏力比核核大多了
+
+核核只是想让鳖鳖夺冠，集美是想让游戏死
+
