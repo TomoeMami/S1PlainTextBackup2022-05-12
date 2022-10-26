@@ -8907,3 +8907,22 @@ og：notail
 我还以为a开头才算</blockquote>
 666 k1也不是a开头的啊，只是从1号位里面挑世界上另外的掀背罢了
 
+
+
+*****
+
+####  TI三冠王AME  
+##### 38499#       发表于 2022-10-26 13:52
+
+西欧A畜油垃圾，北美A畜RTZ，南美A畜K1，东南亚K畜raven，东欧A畜是谁
+
+*****
+
+####  nowaki  
+##### 38500#       发表于 2022-10-26 13:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58109533&amp;ptid=2099454" target="_blank">TI三冠王AME 发表于 2022-10-26 13:52</a>
+
+西欧A畜油垃圾，北美A畜RTZ，南美A畜K1，东南亚K畜raven，东欧A畜是谁</blockquote>
+666
+
