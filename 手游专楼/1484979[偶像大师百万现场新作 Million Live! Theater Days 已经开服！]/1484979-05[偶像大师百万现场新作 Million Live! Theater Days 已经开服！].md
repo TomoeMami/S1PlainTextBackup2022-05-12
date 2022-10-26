@@ -11,3 +11,12 @@
 <img src="https://p.sda1.dev/8/14ef9d0aae59eb6e39f4d3f841196943/CMP_20221026150539012.jpg" referrerpolicy="no-referrer">
 可胖剧情里傲傲的声线我挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  花开安菲路  
+##### 7024#       发表于 2022-10-26 15:13
+
+另外多出来1000骰子，没法快速用完吗？不用感觉有点浪费<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

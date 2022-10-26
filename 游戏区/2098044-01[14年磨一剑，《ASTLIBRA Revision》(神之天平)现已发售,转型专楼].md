@@ -10991,3 +10991,14 @@ ns版本什么时候上
 
 syl问一下，风车村进村前那个平原的人声吟唱bgm好耳熟，还在哪个游戏里出现过吗
 
+
+
+*****
+
+####  jbtc2224052  
+##### 1009#       发表于 2022-10-26 15:20
+
+我的白已经没了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">，还以为后期会回来呢
+
+话说二周目会继承什么东西
+
