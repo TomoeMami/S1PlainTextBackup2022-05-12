@@ -11852,3 +11852,72 @@ x哥皮球能理解，怎么骄阳也是鳖孙啊
 
 —— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  walfeds  
+##### 38840#       发表于 2022-10-26 19:23
+
+草，被波玉玉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗头人轮不到去英国，妮是国内的网鱼网咖也就算了
+
+*****
+
+####  樱冢名月  
+##### 38841#       发表于 2022-10-26 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样才能看出老鳖到底有多智障，这么大的盘砸成这个傻逼样
+
+*****
+
+####  lyjssj  
+##### 38842#       发表于 2022-10-26 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终极请神直接请黑曼巴本人附身到球神身上，气场压垮比赛场地
+
+*****
+
+####  莉拉厨  
+##### 38843#       发表于 2022-10-26 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58115256&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-26 19:24</a>
+终极请神直接请黑曼巴本人附身到球神身上，气场压垮比赛场地</blockquote>
+不如决赛2:2时，贾斯丁比伯回国的直升机直接砸到新加坡国家体育馆里导致比赛被迫终止<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Mikumiku831  
+##### 38844#       发表于 2022-10-26 19:28
+
+懂不懂银河战舰的含金量 硬要说应该是dk待遇好 老板有钱 不然也不会有怀5夜云 加上7l教练 豪华独栋别墅
+
+*****
+
+####  IG.430  
+##### 38845#       发表于 2022-10-26 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58115228&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-26 19:22</a>
+x哥皮球能理解，怎么骄阳也是鳖孙啊
+
+—— 来自 Xiaomi 21121210C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+前几年很流行一个rotk怒吼天尊的切片，站在dk后面看的小伙子就是骄阳
+
+*****
+
+####  没钱买手办  
+##### 38846#       发表于 2022-10-26 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58115323&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-26 19:28</a>
+
+前几年很流行一个rotk怒吼天尊的切片，站在dk后面看的小伙子就是骄阳</blockquote>
+打的就是你，上将hao 的那个视频？
+
+*****
+
+####  樱冢名月  
+##### 38847#       发表于 2022-10-26 19:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Ti3还是TI4是hao逼出来安慰来着，叫鳖鳖再来一年
+

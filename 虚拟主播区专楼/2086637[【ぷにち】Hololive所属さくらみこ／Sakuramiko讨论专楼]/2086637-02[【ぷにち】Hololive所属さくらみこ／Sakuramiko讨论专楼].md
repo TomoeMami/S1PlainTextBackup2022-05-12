@@ -11323,3 +11323,19 @@ SAO窗又bug了好像
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">抽卡才是重点
 
+
+
+*****
+
+####  Map-2  
+##### 2584#       发表于 2022-10-26 19:20
+
+感觉不如......<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  神澈  
+##### 2585#       发表于 2022-10-26 19:24
+
+这boss不就一沙包吗？
+

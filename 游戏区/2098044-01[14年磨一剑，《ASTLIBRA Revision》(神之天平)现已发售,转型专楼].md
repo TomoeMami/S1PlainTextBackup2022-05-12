@@ -11119,3 +11119,22 @@ boss本身是没触碰伤害的，只能通过跟boss重合站，攻击眼睛造
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打到3章凭依技能还是差一个风属性没有是设计如此吗，感觉成长树点很多了呀，地属性的敌人也见到不少了
 
+
+
+*****
+
+####  何处分可  
+##### 1019#       发表于 2022-10-26 19:29
+
+打宰相用鲨鱼技能也太爽了，体型巨大直接吃满伤害
+
+*****
+
+####  Sannapolis  
+##### 1020#       发表于 2022-10-26 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58114826&amp;ptid=2098044" target="_blank">战术核辣条 发表于 2022-10-26 18:53</a>
+打到3章凭依技能还是差一个风属性没有是设计如此吗，感觉成长树点很多了呀，地属性的敌人也见到不少 ...</blockquote>
+第一个风属性技能最迟在第二章就可以拿了
+可以检查下成长盘有哪些格子没走
+
