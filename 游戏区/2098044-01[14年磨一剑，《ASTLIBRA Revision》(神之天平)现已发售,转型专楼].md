@@ -10860,3 +10860,15 @@ ns版本什么时候上
 
 5万块的天平升级有什么用吗？属性加得更高点？
 
+
+
+*****
+
+####  zero4166  
+##### 997#       发表于 2022-10-26 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58106364&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-26 10:54</a>
+
+5万块的天平升级有什么用吗？属性加得更高点？</blockquote>
+可以把最低级的白色词条变成最高级的绿色词条
+
