@@ -13812,3 +13812,31 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 8749#       发表于 2022-10-27 17:08
+
+<img src="https://img.saraba1st.com/forum/202210/27/170846adi2gvo2tpznvg3h.jpg" referrerpolicy="no-referrer">
+
+<strong>1d715dfac52688b5f79337bd21f0cf938ed02f17.jpg</strong> (679.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 17:08 上传
+
+*****
+
+####  Kfly  
+##### 8750#       发表于 2022-10-27 17:09
+
+<img src="https://img.saraba1st.com/forum/202210/27/170902ifiddz244p24d9up.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 004 - 推文 _ Twitter - twitter.com.png</strong> (123.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 17:09 上传
+
