@@ -4883,3 +4883,319 @@ ti6后cn不是没冠军了嘛，那不就是亚军队成绩最好</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  六娃  
+##### 39540#       发表于 2022-10-27 14:51
+
+原来抢劳资红包的都是这些杂种啊
+
+
+
+*****
+
+####  nowaki  
+##### 39541#       发表于 2022-10-27 14:51
+
+<img src="https://img.saraba1st.com/forum/202210/27/145149nn39n30bvn0v3wt3.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221027145135.png</strong> (85.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 14:51 上传
+
+*****
+
+####  Litccc  
+##### 39542#       发表于 2022-10-27 14:52
+
+<blockquote>刀楼那几个你团头像的还敢发言嘛</blockquote>
+<blockquote>被隔壁挂了，看来ame真是危险话题</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 39543#       发表于 2022-10-27 14:52
+
+陨星锤魔晶跳刀，除了打团放个大，这世界上的一切都和我树精卫士无关
+
+*****
+
+####  poipanchao  
+##### 39544#       发表于 2022-10-27 14:53
+
+所以看唱了九九八十一的贝拉的管人痴能不能免喷呢
+
+*****
+
+####  我前期那么肥  
+##### 39545#       发表于 2022-10-27 14:53
+
+之前还有个叫 儛进 集美也是在这边抢红包 ，抢了还要说“没有啊我都抢了24了”
+
+写了领了司马都挡不住这种人
+
+<img src="https://img.saraba1st.com/forum/202210/27/145344e7lvpasqbqm7n7wv.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221027145327.png</strong> (67.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 14:53 上传
+
+<img src="https://img.saraba1st.com/forum/202210/27/145345mlcy0vyyee7ey0eg.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221027145336.png</strong> (26.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 14:53 上传
+
+*****
+
+####  lilisipis  
+##### 39546#       发表于 2022-10-27 14:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这不也是说的自己楼的管人痴嘛，我也没锐评你们啊
+
+*****
+
+####  勤练带来力量  
+##### 39547#       发表于 2022-10-27 14:53
+
+ti我在唯一指定a手痴的srf直播间看的，管人痴打过来与我无关
+
+*****
+
+####  希望之花  
+##### 39548#       发表于 2022-10-27 14:54
+
+送的30天plus是直接激活的吗，还是上次送的7天那种可以随时激活的
+
+*****
+
+####  越动天下  
+##### 39549#       发表于 2022-10-27 14:54
+
+管人痴能不能滚 哪有什么免不免的 皮套人滚
+
+*****
+
+####  蛭人  
+##### 39550#       发表于 2022-10-27 14:55
+
+说了啊，司马集美视奸你楼领红包，真的司马。
+
+*****
+
+####  勤练带来力量  
+##### 39551#       发表于 2022-10-27 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128404&amp;ptid=2099454" target="_blank">希望之花 发表于 2022-10-27 14:54</a>
+送的30天plus是直接激活的吗，还是上次送的7天那种可以随时激活的</blockquote>
+直接激活的
+
+*****
+
+####  lyjssj  
+##### 39552#       发表于 2022-10-27 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既然大家都是管人吃，我看dota官方皮套的是不是会比各位高贵一点
+
+*****
+
+####  Litccc  
+##### 39553#       发表于 2022-10-27 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128404&amp;ptid=2099454" target="_blank">希望之花 发表于 2022-10-27 14:54</a>
+
+送的30天plus是直接激活的吗，还是上次送的7天那种可以随时激活的</blockquote>
+直接激活的
+
+*****
+
+####  很久就在那边l  
+##### 39554#       发表于 2022-10-27 14:55
+
+现在我喜欢玩辅助飞机，只用放一个技能而且既没有救人也没有先手所以几乎不可能背锅，还很容易混人头
+
+*****
+
+####  我前期那么肥  
+##### 39555#       发表于 2022-10-27 14:56
+
+lyjssj跟nowaki这两个真是没脸没皮到司马成都了，堪比哪个显示器
+
+*****
+
+####  nowaki  
+##### 39556#       发表于 2022-10-27 14:56
+
+lyjssj跟nowaki这两个真是没脸没皮到司马成都了，堪比哪个显示器
+
+*****
+
+####  银翼的维罗西  
+##### 39557#       发表于 2022-10-27 14:56
+
+原来我们这些集美的敌人发的红包集美真的有脸领，集美脸皮之厚再次突破我的想象
+
+*****
+
+####  哈曼的YY  
+##### 39558#       发表于 2022-10-27 14:56
+
+大家以后红包口令要再花点心思了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  反方向的波  
+##### 39559#       发表于 2022-10-27 14:57
+
+没事兄弟们再忍几天，马上就可以88情商尾巴哥我来了
+
+*****
+
+####  格雷殿下  
+##### 39560#       发表于 2022-10-27 14:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">现在已经抓住到底谁是集美没有？
+
+切割切割!
+
+*****
+
+####  tasuku  
+##### 39561#       发表于 2022-10-27 14:57
+
+你云玩家回来打10把玩普通啊
+
+不打天梯谁喷你
+
+*****
+
+####  nowaki  
+##### 39562#       发表于 2022-10-27 14:57
+
+哥们用狗头人的歌，或者老vkun大百科做密码，集美基本抢不到好吧
+
+就是烟火烟火总是第一个
+
+*****
+
+####  Greyish_Wolf  
+##### 39563#       发表于 2022-10-27 14:58
+
+我还是想问一下看版主算不算管人痴<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 39564#       发表于 2022-10-27 14:58
+
+没事兄弟们再忍几天，马上就可以88情商尾巴哥我来了
+
+*****
+
+####  蛭人  
+##### 39565#       发表于 2022-10-27 14:58
+
+不高兴尾巴试图读懂情商，然而大楼崩塌。
+
+*****
+
+####  nowaki  
+##### 39566#       发表于 2022-10-27 14:58
+
+没事兄弟们再忍几天，马上就可以88情商尾巴哥我来了
+
+*****
+
+####  一品堂官  
+##### 39567#       发表于 2022-10-27 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128232&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-27 14:45</a>
+
+建议玩丁聪三件套 尸王大树巫妖</blockquote>
+尸王被削了 对线上去锤人要点操作容易死 鱼塘建议换成术士 大树 巫妖（沉默）
+
+*****
+
+####  反方向的波  
+##### 39568#       发表于 2022-10-27 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128489&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-27 14:58</a>
+尸王被削了 对线上去锤人要点操作容易死 鱼塘建议换成术士 大树 巫妖（沉默） ...</blockquote>
+妮这个鱼塘已经是五星级的了，我们珍鱼塘墓碑都没人管的
+
+*****
+
+####  莉拉厨  
+##### 39569#       发表于 2022-10-27 14:59
+
+¥只有集美能领
+漏油别领，我看看有多少集美
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  resorry  
+##### 39570#       发表于 2022-10-27 15:00
+
+其实玩个强子可以开大挂机，美其名曰蹲人
+
+就是戳不到人容易大意失亲妈
+
+
+
+*****
+
+####  石狮鬼  
+##### 39571#       发表于 2022-10-27 15:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">领红包前脱掉集美的皮，领完红包立马穿回来，不得不说集美楼友是真的很适合做管人
+
+顺便这版本5号位哪有混子，混子5号位哪个不被大哥敲碎脑壳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+真正的混子位置我推荐拿个pom打4，没事儿就射箭脏钱or流星砸贴你脸的5号位，蓝打光就开see，偶尔吃个符啥的意思一下就行了，反正箭中了我牛逼箭不中我不背锅
+
+*****
+
+####  勤练带来力量  
+##### 39572#       发表于 2022-10-27 15:00
+
+看有人小小统计了一下，集美论坛现在在搞魔女狩猎的一大半都是去年假赛党装死了大半年又出来活动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  二宮飛鳥酱  
+##### 39573#       发表于 2022-10-27 15:01
+
+尾巴哥，你的楼呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 39574#       发表于 2022-10-27 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128523&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-27 14:59</a>
+¥只有集美能领
+漏油别领，我看看有多少集美</blockquote>
+领了 有钱我也可以是集美
+
+*****
+
+####  超法拉  
+##### 39575#       发表于 2022-10-27 15:03
+
+我觉得pom这版本你选出来一定要打先手箭才有意义的局那是这局本身有问题
+就pom现在这双流星和成熟的摸钱出祭品套路，箭摸中了那都不是牛逼，是对面傻逼。
+
