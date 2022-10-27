@@ -2955,3 +2955,83 @@ k1那个虚空残血bkb跳出去再回来大3个的操作是giegie做的集美�
 
 nga真的是。还想请洋大人裁决是吧
 
+
+
+*****
+
+####  我前期那么肥  
+##### 39325#       发表于 2022-10-27 11:52
+
+已点赞
+
+*****
+
+####  Quark  
+##### 39326#       发表于 2022-10-27 11:53
+
+退役神真去外赛区打了洋大人偷着乐都来不及呢
+
+*****
+
+####  IG.430  
+##### 39327#       发表于 2022-10-27 11:54
+
+呃呃，真的是有点急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 39328#       发表于 2022-10-27 11:54
+
+nga还喜欢把红迪上留学生集美吹a处的帖子搬回来吹洋大人也都喜欢扣水呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TIZI  
+##### 39329#       发表于 2022-10-27 11:56
+
+洋带人喜欢ame跟我们喜欢rtz ee不是一个路数嘛
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  thistimeforlife  
+##### 39330#       发表于 2022-10-27 11:57
+
+集美逛reddit 是可以选择性无视那些阴阳和直球黑lgd和ame发言的 习惯就好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  Litccc  
+##### 39331#       发表于 2022-10-27 11:57
+
+去年假赛的时候集美不也往红迪搬过屎，被群嘲之后又灰头土脸地回来哭丧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 39332#       发表于 2022-10-27 11:59
+
+但是xiaobet的名号从北美到东南亚无人不知<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 39333#       发表于 2022-10-27 11:59
+
+原来bug是炸弹至宝的宝石能拆了卖 恶心啊羊毛党 找几百个号无限领了卖是吧 
+
+*****
+
+####  Nemo艇长  
+##### 39334#       发表于 2022-10-27 12:01
+
+都什么年代了，还在搞妲己褒姒这一套<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">。
+
+—— 来自 HUAWEI RTE-AL00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
