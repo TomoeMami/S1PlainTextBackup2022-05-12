@@ -11945,3 +11945,17 @@ wiki看不懂日文可以对着装备数值去找
 
 第七章剧情真的绝赞，纯正的jrpg味，然后再看一遍op确实味道就起来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  manyin1  
+##### 1089#       发表于 2022-10-28 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032918&amp;ptid=2098044" target="_blank">希克苏鲁伯 发表于 2022-10-22 00:12</a>
+
+竞技场有个打罐子的挑战，打完送高级合成书，点狂暴全加攻拿风武器输出就行
+
+后面哪章还有个挑战送更高级 ...</blockquote>
+30级也打不了那个罐子吗，都第六章了
+
