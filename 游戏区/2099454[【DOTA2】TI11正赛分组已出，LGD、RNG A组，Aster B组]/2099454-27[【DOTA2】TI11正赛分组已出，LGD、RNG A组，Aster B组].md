@@ -9013,3 +9013,96 @@ A畜要清算 高华也要清算 这才算健全
 
 这美颜太恐怖了。
 
+
+
+*****
+
+####  dpl451  
+##### 39977#       发表于 2022-10-28 03:12
+
+ti8和ti10都可以说换个c就拿下了，今年敢说换个3就能拿下吗，真是一点逼数没有
+
+*****
+
+####  Senbascira  
+##### 39978#       发表于 2022-10-28 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58138243&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-28 00:39</a>
+纠结了半天把电脑重启一下居然解决了星号的问题，估计是暂时性污染
+
+回国服第一把就遇到随机敌法师出 ...</blockquote>
+这就是dota！不得不品尝好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  希望之花  
+##### 39979#       发表于 2022-10-28 03:29
+
+鸡掰服务器登都登不进去
+
+*****
+
+####  Damocles990609  
+##### 39980#       发表于 2022-10-28 04:00
+
+A畜要清算 高华也要清算 这才算健全
+
+*****
+
+####  qwas  
+##### 39981#       发表于 2022-10-28 04:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58134864&amp;ptid=2099454" target="_blank">Crazy_Knife 发表于 2022-10-27 21:07</a>
+去eg是从一个A处逃到另一个A处吗，育婴有瘾？</blockquote>
+苏美尔不也是忍到美国身份下来才一脚踹飞北美ame<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  woyzeck  
+##### 39982#       发表于 2022-10-28 04:21
+
+刘家俊旁边这女主播挺好看啊。
+
+*****
+
+####  joker9527  
+##### 39983#       发表于 2022-10-28 04:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58138649&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-28 01:26</a></blockquote>
+刘嘉俊这美颜过分了，不说别的 本来黑不溜秋的，这图米黄色的皮肤
+
+*****
+
+####  woyzeck  
+##### 39984#       发表于 2022-10-28 04:58
+
+为什么不能是灯光呢，非要是美颜是吧，给我眼少一点面子。
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 39985#       发表于 2022-10-28 04:58
+
+今年还要再换一个2才能说的有底气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 教练也换了吧，来个bp永远无敌的
+
+*****
+
+####  恐怖利刃  
+##### 39986#       发表于 2022-10-28 05:35
+
+<img src="https://img.saraba1st.com/forum/202210/28/053545jnztntinltydyz88.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>18BBD4DB-C655-4528-B543-328F1B0641F6.jpeg</strong> (77.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 05:35 上传
+
+*****
+
+####  Damocles990609  
+##### 39987#       发表于 2022-10-28 05:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139251&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-28 05:35</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

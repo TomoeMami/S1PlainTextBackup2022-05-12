@@ -11997,3 +11997,14 @@ wiki看不懂日文可以对着装备数值去找
 我把爱情，爱情巧克力，和包装好的爱情巧克力各整了一个，就为了放天平。</blockquote>
 能拿到
 
+
+
+*****
+
+####  大暗月  
+##### 1093#       发表于 2022-10-28 03:18
+
+新章这个刷子要素也拉得太满了吧我有点遭不住了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

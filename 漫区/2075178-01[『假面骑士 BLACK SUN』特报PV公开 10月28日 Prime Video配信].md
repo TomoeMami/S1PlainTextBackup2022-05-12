@@ -955,3 +955,87 @@ magnet:?xt=urn:btih:027b12322434ade126974253448a11d74372b370
 
 看到腰带的货了，感应变身帅炸
 
+
+
+*****
+
+####  泉美  
+##### 78#       发表于 2022-10-28 02:00
+
+看了三集，这隐匿多年的黑日是个人都能找到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+别的不说这动作戏太软绵绵了
+
+*****
+
+####  一个陆仁贾  
+##### 79#       发表于 2022-10-28 02:06
+
+为啥黑日一变身那些怪人就都感应到了？
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  浅川雏羽  
+##### 80#       发表于 2022-10-28 02:33
+
+体术没有隔壁老仁打的好看，但尺度确实上去了，老仁那点掏心飚黑血在这儿都是小儿科
+
+*****
+
+####  DARKGRAY  
+##### 81#       发表于 2022-10-28 02:42
+
+看了前面的，这腰带根本毫无意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江城诀丶  
+##### 82#       发表于 2022-10-28 03:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">黑日和影月的武器都是一次性的？腿都能接回去结果武器还长不回来
+
+*****
+
+####  菲特妹  
+##### 83#       发表于 2022-10-28 03:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这设定太搞笑了吧全共斗改成怪人
+
+*****
+
+####  江城诀丶  
+##### 84#       发表于 2022-10-28 03:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">最后一集竟然还有仓田铁雄唱的原版主题曲
+
+*****
+
+####  forerunner01  
+##### 85#       发表于 2022-10-28 04:12
+
+最后结局，有金刚狼3结局的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zxc4563982  
+##### 86#       发表于 2022-10-28 04:29
+
+感觉……不是很行，整了半天，死了那么多人，最后还是变回有活力的社会团体，前期提出的问题一个没解决
+
+*****
+
+####  最好不说  
+##### 87#       发表于 2022-10-28 05:16
+
+这么帅的皮套却没几场到位的打戏也太浪费了
+
+*****
+
+####  翼宿一  
+##### 88#       发表于 2022-10-28 05:22
+
+连看了八集，这一次放送确实带劲，就是很容易通宵，不过比一周一吊胃口来说还是舒服多了
+
+—— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -3219,3 +3219,44 @@ sweetsub已经出了翻译版本了，翻得也还算准确吧，你去看看
 —— 来自 Xiaomi 2112123AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 这视频做挺好的
 
+
+
+*****
+
+####  Piano-Forest  
+##### 258#         楼主| 发表于 2022-10-28 01:51
+
+这猪是每集都要迫害下吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/Hamha_S/status/1582736507923988482](https://twitter.com/Hamha_S/status/1582736507923988482)
+<img src="https://p.sda1.dev/8/4e53d77b89152a0f8594fc167b10d2e3/20221028_014952.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/icon_315/status/1584526681918025728](https://twitter.com/icon_315/status/1584526681918025728)
+<img src="https://p.sda1.dev/8/53a65303dcfc00a14224e9b40b0bf0f6/20221028_014957.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 259#         楼主| 发表于 2022-10-28 01:53
+
+[https://twitter.com/imoji3/status/1585365101926055936](https://twitter.com/imoji3/status/1585365101926055936)
+<img src="https://p.sda1.dev/8/13a1e14d00bd665a779abdedd58382fc/20221028_015207.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/a7ddb70d2746b77ad91ee3de4caed7ae/20221028_015217.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/aee8a717cd36ea861b7ce6762c2daa39/20221028_015224.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Mc凉月奏酱  
+##### 260#       发表于 2022-10-28 02:07
+
+给布丁女士上上强度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘴瓢王者  
+##### 261#       发表于 2022-10-28 02:08
+
+有哪里可以看到有弹幕的源面
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
