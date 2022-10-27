@@ -14355,3 +14355,75 @@ key visual实在拉跨。。。本来想着出来了隔壁头像就换掉的你�
 
 健叔那个我记得是直播来着，还得赶场吗
 
+
+
+*****
+
+####  Piano-Forest  
+##### 8810#       发表于 2022-10-27 20:44
+
+<img src="https://p.sda1.dev/8/608f5c23adc813c88aaab84caf07c69b/20221027_204419.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/bb8f03d349f8151390df4b209de021da/20221027_204422.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d90f6f5066eed1449b133a27658dfa0f/20221027_204425.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 8811#       发表于 2022-10-27 20:49
+
+<img src="https://img.saraba1st.com/forum/202210/27/204917tzupzmfuny9jbppp.jpg" referrerpolicy="no-referrer">
+
+<strong>FgE6JP6aMAASPax.jpg</strong> (86.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 20:49 上传
+
+twi：@unyanai
+
+*****
+
+####  Piano-Forest  
+##### 8812#       发表于 2022-10-27 20:51
+
+「ラブライブ！スーパースター!! Liella! 3rd LoveLive! Tour ～WE WILL!!～」は12/3より開始です
+
+この度、そのキービジュアルが完成しました
+
+全国7都市14公演にて開催するこの3rdツアーに、是非ご参加ください
+
+ライブツアーの詳細↓
+[https://www.lovelive-anime.jp/yuigaoka/live/sp_3rdlive/](https://www.lovelive-anime.jp/yuigaoka/live/sp_3rdlive/)
+<img src="https://p.sda1.dev/8/fd29e5aefeff3fd1424a29ac245202b1/20221027_204508.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/e07c5f1dc4cef890394ef4707535fcd7/kv _4_.jpg" referrerpolicy="no-referrer">
+
+TVアニメ2期挿入歌
+
+ウィーン・マルガレーテ
+
+「Butterfly Wing / エーデルシュタイン」
+
+11/30（水）発売
+<img src="https://p.sda1.dev/8/a8c074df5db9f5989adb356ecb0e4891/20221027_204515.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d4c2ada61cac63a967628e21909134f1/20221027_204517.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d77ca75a82917380aecdd16dd45bdd40/Amazon.jpeg" referrerpolicy="no-referrer">
+
+TVアニメ「ラブライブ！スーパースター!!」2期のBlu-rayシリーズを展開中です
+
+☑第2巻は明日10/28発売
+
+☑第3巻のジャケットイラストを初公開
+
+☑さらに法人特典イラストも初公開
+
+ぜひチェックしてくださいね&amp;#x1F3B6;
+[https://www.lovelive-anime.jp/yuigaoka/bd/](https://www.lovelive-anime.jp/yuigaoka/bd/)
+<img src="https://p.sda1.dev/8/51dfd5717dc8b05d73d1008b415107dd/20221027_204526.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/22ab4b5c112174011120cef93af498db/bd08.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/8d124d19e5cd32e243dae49ba621ed18/bd08_tenkai.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/02e2de00d61d58fbdf1627bda6d92dc5/20221027_204527.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/ada6d002e6572947bdcb36a4de530bb5/20221027_204529.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/ba805dceb269f08a5db573f5e8e02bad/bd09.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/1ed9577ab7da72fe386817b28550dd63/bd09_tenkai.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d8a55d3a09208f12602fa737cfc33088/20221027_204530.jpg" referrerpolicy="no-referrer">
+

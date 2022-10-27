@@ -11668,3 +11668,12 @@ wiki看不懂日文可以对着装备数值去找
   -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
 三只小猪酒馆跳过去往右边走
 
+
+
+*****
+
+####  何处分可  
+##### 1068#       发表于 2022-10-27 20:51
+
+第七章给我整晕了，原来离了鸟我什么都不是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
