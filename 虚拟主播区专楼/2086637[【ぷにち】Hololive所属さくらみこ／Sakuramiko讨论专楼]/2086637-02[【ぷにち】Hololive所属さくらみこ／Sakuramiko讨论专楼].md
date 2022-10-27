@@ -11832,3 +11832,27 @@ UMB都请来了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于结束了
 
+
+
+*****
+
+####  holoan  
+##### 2635#         楼主| 发表于 2022-10-27 21:38
+
+<img src="https://img.saraba1st.com/forum/202210/27/213845u11cp7llcdbpqcp7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (505.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 21:38 上传
+
+*****
+
+####  rs5621  
+##### 2636#       发表于 2022-10-27 21:39
+
+这个几号开始
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

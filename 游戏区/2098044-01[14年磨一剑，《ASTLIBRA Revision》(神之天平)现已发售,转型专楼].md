@@ -11695,3 +11695,22 @@ wiki看不懂日文可以对着装备数值去找
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">第七章打老婆有没有啥逃课方法
 
+
+
+*****
+
+####  manyin1  
+##### 1071#       发表于 2022-10-27 21:32
+
+实在太缺钱了，打到第五章，天平上了金钱获取和金钱获取强依然穷疯了，有法子刷钱吗？
+
+*****
+
+####  白軍浪  
+##### 1072#       发表于 2022-10-27 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58135302&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-27 21:32</a>
+
+实在太缺钱了，打到第五章，天平上了金钱获取和金钱获取强依然穷疯了，有法子刷钱吗？ ...</blockquote>
+卖宝石
+

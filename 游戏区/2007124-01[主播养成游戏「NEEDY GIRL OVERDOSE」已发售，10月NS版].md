@@ -9034,3 +9034,14 @@ win版凌晨更新
 非常感谢各位耐心的等待</blockquote>
 ns版和steam版内容一样吗？
 
+
+
+*****
+
+####  roxassix  
+##### 764#       发表于 2022-10-27 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58132213&amp;ptid=2007124" target="_blank">harukage 发表于 2022-10-27 18:30</a>
+ns版和steam版内容一样吗？</blockquote>
+win版更新完之后应该是一样？话说我ns版还在路上我不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
