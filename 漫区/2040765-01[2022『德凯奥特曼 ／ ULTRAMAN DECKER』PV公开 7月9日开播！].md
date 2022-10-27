@@ -1169,3 +1169,15 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 好好说话有这么难吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  carrasco21  
+##### 714#       发表于 2022-10-27 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58132631&amp;ptid=2040765" target="_blank">athena_1982 发表于 2022-10-27 19:00</a>
+
+我是看出久弥的问题点在哪了，他的剧本本来节奏就诡异，喜欢跳剧情，再夹杂些看不懂的谜语人，整段戏就直接 ...</blockquote>
+主要是这个人的烂片和其他人的烂片不一样，其他人吧，比如敏鬼写过的烂片，最起码说话的逻辑是正常的，大伙会恶心是因为剧情的走向，而久弥的这个真人影视剧本，最基本的语言这块，用词十分的贫瘠土味儿，逻辑跳脱，感觉不太像正常人说话，像我初中三年级作文里编的对话一样，我十分怀疑他是不是被监禁了五六年再拉出来写剧本了，真的看他脚本的集目每一分钟都是折磨，因为实在不像正常人的对话逻辑，满身鸡皮疙瘩。。。
+

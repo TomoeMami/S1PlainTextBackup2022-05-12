@@ -14013,3 +14013,28 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不良是吧
 
+
+
+*****
+
+####  ViyViy  
+##### 8770#       发表于 2022-10-27 19:14
+
+趁着生放逛推看到了啥？原文好像是在说是gamer特典？
+
+<img src="https://img.saraba1st.com/forum/202210/27/191314f3l2lp07p2p7sz3p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>08F7DE22-6025-444D-BBCD-77654641B02E.jpeg</strong> (157.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 19:13 上传
+
+<img src="https://img.saraba1st.com/forum/202210/27/191437un67yu7hfnhfpnhq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>25828C0E-B8C5-4C15-9F36-B6D373F8300A.jpeg</strong> (40.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 19:14 上传
+

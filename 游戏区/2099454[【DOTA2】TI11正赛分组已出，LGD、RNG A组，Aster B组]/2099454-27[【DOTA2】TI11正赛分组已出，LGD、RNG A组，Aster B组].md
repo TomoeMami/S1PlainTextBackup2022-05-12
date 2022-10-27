@@ -7531,3 +7531,33 @@ A畜和maybe再组队想想就恶心啊
 
 4+2车队哭哭惹
 
+
+
+*****
+
+####  azccc52  
+##### 39821#       发表于 2022-10-27 19:11
+
+我都是自建房打人机的，这样也算云玩家吗？<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">（ps.不算场次，在打加速补齐）
+
+*****
+
+####  反方向的波  
+##### 39822#       发表于 2022-10-27 19:12
+
+哦牛逼，一开快速蓝字了
+
+*****
+
+####  Cookiekira  
+##### 39823#       发表于 2022-10-27 19:17
+
+坏了 9月以来一直打splatoon，dota打不到10把 我成云玩家了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ckming  
+##### 39824#       发表于 2022-10-27 19:19
+
+不是nga全在清算魁梧神，我还是没看懂魁梧神干嘛了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。谁给我复盘一下，我理解处长需要人分担火力，但一开始不是瑞达坑了处长吗，魁梧怎么入场的
+
