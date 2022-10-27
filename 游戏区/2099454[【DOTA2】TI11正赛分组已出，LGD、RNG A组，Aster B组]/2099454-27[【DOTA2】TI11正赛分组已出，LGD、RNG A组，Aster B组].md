@@ -5484,3 +5484,96 @@ zayac都卜玩4号位末日了，鉴定为8行
 可以打五号位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 之前比赛有过，现在养A杖还加强了！
 
+
+
+*****
+
+####  Avantasi  
+##### 39604#       发表于 2022-10-27 15:33
+
+赶紧他妈打完吧，把测试服的30G亮出来看看，赖皮社草泥马
+
+*****
+
+####  Avantasi  
+##### 39605#       发表于 2022-10-27 15:35
+
+哈哈，一淘汰怪队友女朋友的真是符合传统美德，夏朝灭了怪妹喜，商朝灭了怪妲己，西周灭了怪褒姒
+
+*****
+
+####  我前期那么肥  
+##### 39606#       发表于 2022-10-27 15:36
+
+原谅nmlgb，皮套狗就是皮套狗，套了皮就是狗
+
+*****
+
+####  iriyano  
+##### 39607#       发表于 2022-10-27 15:36
+
+我突然发现我每年doto花的钱比给管人花的多，这下不好说了
+
+*****
+
+####  c88711611  
+##### 39608#       发表于 2022-10-27 15:37
+
+我突然发现我每年doto花的钱比给管人花的多，这下不好说了
+
+*****
+
+####  火鸡味锅巴  
+##### 39609#       发表于 2022-10-27 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129180&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-27 15:36</a>
+
+原谅nmlgb，皮套狗就是皮套狗，套了皮就是狗</blockquote>
+dodo警告，等下你号没了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我前期那么肥  
+##### 39610#       发表于 2022-10-27 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129208&amp;ptid=2099454" target="_blank">火鸡味锅巴 发表于 2022-10-27 15:37</a>
+
+dodo警告，等下你号没了</blockquote>
+你也来戏了？
+
+*****
+
+####  蛭人  
+##### 39611#       发表于 2022-10-27 15:38
+
+原谅nmlgb，皮套狗就是皮套狗，套了皮就是狗
+
+*****
+
+####  非建政专用号  
+##### 39612#       发表于 2022-10-27 15:39
+
+笑了，我没给管人打过一分钱，能大声说话吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  二宮飛鳥酱  
+##### 39613#       发表于 2022-10-27 15:40
+
+笑了，我每个月只给管人打138，能大声说话吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 39614#       发表于 2022-10-27 15:40
+
+最新消息润德女友马西联系了og表示可以的话想去og打比赛，最好是帮忙解决户口问题。
+
+og那边正好也想搞个二队，准备拉普森和a厨，再叫2个辅助就成了。
+
+a厨的意思是普森要打的话愿意和普森打
+
+普森还是很想打的，但是考虑到交流问题队友必须要说英语，
+
+目前润德在抓紧学**英语中。
+
