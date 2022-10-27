@@ -11443,3 +11443,22 @@ wiki看不懂日文可以对着装备数值去找
 第七章最后一把红武器死活不掉，刷的脑瓜子疼</blockquote>
 洗点拉满幸运刷呗 然后银箱也能开出传说图纸的 建议都开
 
+
+
+*****
+
+####  Sannapolis  
+##### 1048#       发表于 2022-10-27 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123367&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-27 10:04</a>
+
+第七章最后一把红武器死活不掉，刷的脑瓜子疼</blockquote>
+可以试试将嘉隆被动的“盗贼的XXX”去掉，这个被动技能描述是增加素材的掉率，我怀疑会相应降低宝箱的掉率。单纯为了刷金箱子可能去掉这个技能比较好
+
+*****
+
+####  quanlix  
+##### 1049#       发表于 2022-10-27 10:20
+
+掉过俩金箱子，打开一看属性卡<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

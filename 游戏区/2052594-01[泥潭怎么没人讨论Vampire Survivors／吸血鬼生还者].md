@@ -4374,3 +4374,19 @@ switch 上有类似的游戏吗求推荐
 
 满收藏是131，你应该还差5个才能解锁女王
 
+
+
+*****
+
+####  方舟失智博士  
+##### 406#       发表于 2022-10-27 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121929&amp;ptid=2052594" target="_blank">sfqjsml 发表于 2022-10-27 08:23</a>
+
+想要解锁女皇,玩家需要拥有全部收藏,
+
+(全部收藏“Collection”,而非全部解锁/成就“Unlocks/Achievement” ...</blockquote>
+拿到了 是翻转双子塔罗一的 鸟猫双枪图鉴
+
+但我秘密已经做了7-8个了 一直以为在秘密里面。。。。。。。
+
