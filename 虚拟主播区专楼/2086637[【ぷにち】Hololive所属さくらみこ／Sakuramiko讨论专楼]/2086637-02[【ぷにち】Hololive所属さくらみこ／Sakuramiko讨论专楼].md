@@ -11588,3 +11588,60 @@ ai画的究极缝合怪八字母<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  holoan  
+##### 2610#         楼主| 发表于 2022-10-27 09:51
+
+别硬贴了
+
+盲猜一个下午看到撞车自己挪时间，就这么直接播硬撞的可能性太低了
+
+
+
+*****
+
+####  holoan  
+##### 2611#         楼主| 发表于 2022-10-27 09:54
+
+<img src="https://img.saraba1st.com/forum/202210/27/095356py8hhyq536szh456.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (81.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 09:53 上传
+
+我寻思这个作者也不太谨慎，在案件推特下面聊什么个人直播话题是不是有点
+
+*****
+
+####  a2276382  
+##### 2612#       发表于 2022-10-27 09:56
+
+ 本帖最后由 a2276382 于 2022-10-27 09:58 编辑 
+
+川原会不会把miko 写在最近的新作里 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 2613#         楼主| 发表于 2022-10-27 09:57
+
+上次miko去在nico频道做嘉宾的直播不就是发表新作了吗
+
+然后还有现在上映中的剧场版啊，票房第一
+
+*****
+
+####  Scardy  
+##### 2614#       发表于 2022-10-27 09:59
+
+这就是35p<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

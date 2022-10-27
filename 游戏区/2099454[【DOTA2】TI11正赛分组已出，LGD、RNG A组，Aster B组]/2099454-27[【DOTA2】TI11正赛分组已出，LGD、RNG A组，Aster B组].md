@@ -1587,3 +1587,137 @@ nec为啥上不了，打个性功能三号位感觉还行？
 23458差不多了
 该安排23459了
 
+
+
+*****
+
+####  12481632  
+##### 39173#       发表于 2022-10-27 09:53
+
+把否决删了nec就能上场了吧
+
+*****
+
+####  jk9hot  
+##### 39174#       发表于 2022-10-27 09:53
+
+23459的9是卖猪肉的9吗？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  河水  
+##### 39175#       发表于 2022-10-27 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123202&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-27 09:53</a>
+23457已经没了
+23458差不多了
+该安排23459了</blockquote>
+cn的9有谁啊？还是2009？lgd是09组的，也不是不能清算好吧
+
+*****
+
+####  walfeds  
+##### 39176#       发表于 2022-10-27 09:54
+
+请创世神是吧
+
+*****
+
+####  火鸡味锅巴  
+##### 39177#       发表于 2022-10-27 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123092&amp;ptid=2099454" target="_blank">战场原和纱 发表于 2022-10-27 09:47</a>
+
+冰女这个至宝虽然比原皮好看很多，但马上要出新身心了诶。。。</blockquote>
+不冲突，没事换着玩。身心是条狗。
+
+*****
+
+####  蛭人  
+##### 39178#       发表于 2022-10-27 09:55
+
+bulba你也笑嘻了是吧。
+
+<img src="https://img.saraba1st.com/forum/202210/27/095510qsghul0ynsxo0gts.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (38.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 09:55 上传
+
+*****
+
+####  我前期那么肥  
+##### 39179#       发表于 2022-10-27 09:56
+
+为什么拉比克至宝还涨价了
+
+昨天buff166 今天涨到177然后跌到170
+
+*****
+
+####  tasuku  
+##### 39180#       发表于 2022-10-27 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123144&amp;ptid=2099454" target="_blank">morwhipppo 发表于 2022-10-27 09:50</a>
+
+我觉得清算润德挺好的，不然就要去清算爆点和版本更新了，到时候漏油的血压更高了 ...</blockquote>
+有没有可能漏油想看清算全队最好把潘局送进去
+
+只宰个bian妹很可惜啊
+
+
+
+*****
+
+####  我前期那么肥  
+##### 39181#       发表于 2022-10-27 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123234&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-27 09:55</a>
+
+bulba你也笑嘻了是吧。</blockquote>
+这个剑圣好像是1xbet的代言人，所以穿着石头人的衣服到处打野
+
+*****
+
+####  zhliiiii  
+##### 39182#       发表于 2022-10-27 09:57
+
+这个十把可以快速模式吗
+
+*****
+
+####  一品堂官  
+##### 39183#       发表于 2022-10-27 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123277&amp;ptid=2099454" target="_blank">zhliiiii 发表于 2022-10-27 09:57</a>
+这个十把可以快速模式吗</blockquote>
+可以啊
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  我前期那么肥  
+##### 39184#       发表于 2022-10-27 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123157&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-27 09:50</a>
+
+nec为啥上不了，打个性功能三号位感觉还行？</blockquote>
+不知道，路人也经常看到有人选，但是跟小骷髅一样 cw没人玩
+
+*****
+
+####  walfeds  
+##### 39185#       发表于 2022-10-27 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123270&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-27 09:57</a>
+
+这个剑圣好像是1xbet的代言人，所以穿着石头人的衣服到处打野</blockquote>
+打野和石头人没什么直接关系，就是代言1xbet
+
+今年og也挂1xbet的标，但找不满18岁的og小朋友就不合适了<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
