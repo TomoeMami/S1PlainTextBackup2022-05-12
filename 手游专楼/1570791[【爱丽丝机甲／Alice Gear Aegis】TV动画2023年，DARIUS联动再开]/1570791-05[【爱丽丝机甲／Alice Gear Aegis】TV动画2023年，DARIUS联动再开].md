@@ -262,3 +262,12 @@ an天狐天 御侠
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个an天的sp好喜庆
 
+
+
+*****
+
+####  孫光龍  
+##### 7416#       发表于 2022-10-27 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这些个招数效果是不是以前那些过节的活动里面vice放礼花的那些效果啊.......
+

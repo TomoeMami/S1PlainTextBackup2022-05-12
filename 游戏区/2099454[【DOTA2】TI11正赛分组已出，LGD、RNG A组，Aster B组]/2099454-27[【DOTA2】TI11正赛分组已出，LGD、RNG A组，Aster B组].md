@@ -7406,3 +7406,46 @@ ori这不被微博冲了 郭楠搞隐身
 
 2022-10-27 18:50 上传
 
+
+
+*****
+
+####  tasuku  
+##### 39806#       发表于 2022-10-27 18:54
+
+实测加速也算一把
+
+*****
+
+####  樱冢名月  
+##### 39807#       发表于 2022-10-27 18:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说游戏不同，但是畜生是相同的，世界上a畜太多了
+
+*****
+
+####  acacaclove  
+##### 39808#       发表于 2022-10-27 18:57
+
+为了个至宝，今天组了个5黑输了一下午<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+班子都差点打散了
+
+*****
+
+####  usoda  
+##### 39809#       发表于 2022-10-27 18:57
+
+雪碧这队是真的有意思 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">很难不让人喜欢
+
+ -- 傲娇地来自 Stage1未知客户端
+
+*****
+
+####  NaYo丶  
+##### 39810#       发表于 2022-10-27 18:58
+
+b站现在居然有拼图功能<img src="https://p.sda1.dev/8/5ea84a913f7f21521742d15ffdd5e409/2ea6001beead731d.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

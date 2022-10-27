@@ -1158,3 +1158,14 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 久弥怎么又滚回来了啊……之前说只负责两集原来是骗人的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  athena_1982  
+##### 713#       发表于 2022-10-27 19:00
+
+我是看出久弥的问题点在哪了，他的剧本本来节奏就诡异，喜欢跳剧情，再夹杂些看不懂的谜语人，整段戏就直接支离破碎，就很难受。
+
+好好说话有这么难吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
