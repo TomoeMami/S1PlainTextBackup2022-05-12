@@ -14107,3 +14107,33 @@ woc这是可可吗？这个少年感woc，她还能有这种风格吗woc
 
 好棒的可可，想要……但是不想买这垃圾动画<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 8780#       发表于 2022-10-27 19:33
+
+等煤啦，全卷要两千四还没算运费<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">属实受不起啊，动画烂了一个坏处就是全卷都没法回血，谁想收这种垃圾动画的BD收藏。
+
+*****
+
+####  稀勢のささ  
+##### 8781#       发表于 2022-10-27 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">又念了快40分钟信
+
+*****
+
+####  qty  
+##### 8782#       发表于 2022-10-27 19:39
+
+这就完了啊
+
+*****
+
+####  starring  
+##### 8783#       发表于 2022-10-27 19:42
+
+3rd的主视图，跟2nd比差距简直天与地啊
+

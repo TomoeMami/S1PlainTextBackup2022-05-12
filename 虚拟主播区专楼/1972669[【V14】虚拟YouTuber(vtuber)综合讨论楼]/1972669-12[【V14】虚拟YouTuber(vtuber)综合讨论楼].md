@@ -134,3 +134,24 @@ hj和fw联动喷喷草
 
 <img src="https://img.saraba1st.com/forum/202210/27/184155vox2xep2fcxngsi2.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 17647#       发表于 2022-10-27 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+今月の #ぶいすぽ激ロー は
+10/31(月) 20:00～
+ほぼ100円ショップの再来!?🏪
+VショップNAZUNA 开店です！🥰
+
+MC🎤犬山たまき
+店长💁‍♀️花芽なずな
+
+お客さま🏃‍♀️
+兎咲ミミ、猫汰つな
+神成きゅぴ、白波らむね
+ロボ子さん、常闇トワ（ホロライブ）
+

@@ -7660,3 +7660,99 @@ ANA双冠王又如何，这次TI的表现还不是被青蒜的明明白白。
 
 上线看了下正好打了10把可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lyjssj  
+##### 39832#       发表于 2022-10-27 19:31
+
+所以鞭神现在是肉身润到欧洲去了？
+
+铺盖也不收拾下吗
+
+*****
+
+####  winkle  
+##### 39833#       发表于 2022-10-27 19:34
+
+居然打了9把。常年选技和4+2
+
+*****
+
+####  zhwpjy  
+##### 39834#       发表于 2022-10-27 19:35
+
+<blockquote>lyjssj 发表于 2022-10-27 19:31
+所以鞭神现在是肉身润到欧洲去了？
+
+铺盖也不收拾下吗</blockquote>
+就这环境 还留恋啥
+
+*****
+
+####  AME8年铁粉  
+##### 39835#       发表于 2022-10-27 19:37
+
+<img src="https://img.saraba1st.com/forum/202210/27/193411psl4u9fsssgeg941.png" referrerpolicy="no-referrer">
+
+<strong>K(~N@YL$FY{13V$@W@LI{JE.png</strong> (28.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 19:34 上传
+
+   其实就是为了论证gege不菜
+
+*****
+
+####  莉拉厨  
+##### 39836#       发表于 2022-10-27 19:37
+
+只能说阿灵顿major时集美还在吹余韵布莱恩特和张睿达神仙眷侣的时候，漏油已经挖出了东野贵物的截图并狠狠拷打，同时引发了一股日式推理热潮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Suny08  
+##### 39837#       发表于 2022-10-27 19:39
+
+所以到底是不是真的，那些爆的料
+
+*****
+
+####  AME8年铁粉  
+##### 39838#       发表于 2022-10-27 19:40
+
+其实nga这个论坛最搞笑的是8月量子鞭3号位电棍无敌的时候sg是确实有人造谣他女朋友怎么怎么的 然后是nga天天都是辟谣贴版主还跟疯狗一样禁言封号    结果10月量子鞭坑了gege以后nga太监马上化身疯狗一样造谣换新加坡ip
+
+F$W]0~@OYRP207TCKZR%A_B.jpg
+(172.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 19:40 上传
+
+<img src="https://img.saraba1st.com/forum/202210/27/194000cko0kmw3n336vjqe.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 39839#       发表于 2022-10-27 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133139&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-27 19:31</a>
+所以鞭神现在是肉身润到欧洲去了？
+
+铺盖也不收拾下吗</blockquote>
+飞比利时咯
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  zhjnppy  
+##### 39840#       发表于 2022-10-27 19:40
+
+不动就问 国内服务器全都连不上 延迟最低的是东南亚服 这啥情况 要绑手机吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

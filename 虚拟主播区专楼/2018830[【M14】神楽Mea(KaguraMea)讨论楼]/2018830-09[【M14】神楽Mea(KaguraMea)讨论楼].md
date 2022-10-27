@@ -8068,3 +8068,14 @@ y1s1，这游戏做的还行，对得起价钱。
 
 真觉得狙击影响直接就不播了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 12768#       发表于 2022-10-27 19:39
+
+应该问现官组追看她直播的人有一指之数吗，不过也别急，反正转不转都没几个人看<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
