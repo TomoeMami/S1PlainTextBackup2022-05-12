@@ -11371,3 +11371,18 @@ wiki看不懂日文可以对着装备数值去找
 
 就算是真的少也没事的 新章能刷 量产 爱情可真廉价啊
 
+
+
+*****
+
+####  朔洵千夜  
+##### 1042#       发表于 2022-10-27 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121526&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-27 06:52</a>
+成长盘的宝物都点了吗？里面有武器的
+
+小徽章抽完了吗？有个盾的</blockquote>
+多谢
+
+前面谭友说的大地铠我有印象，估计大概率应该是盘子漏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

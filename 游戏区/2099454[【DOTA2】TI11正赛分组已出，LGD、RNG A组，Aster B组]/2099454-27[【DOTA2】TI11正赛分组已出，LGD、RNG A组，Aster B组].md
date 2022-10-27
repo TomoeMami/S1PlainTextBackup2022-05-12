@@ -568,3 +568,151 @@ DOTA2是我玩过最好的端游，游戏没有任何缺点，三天两头更新
 
 怎么福袋领不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  火鸡味锅巴  
+##### 39061#       发表于 2022-10-27 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121999&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-27 08:31</a>
+
+是有点想选拉比克了，虽然喜欢PA但是至宝两根大刀总觉得怪怪的，比小强的爪子还长也叫刺客
+
+怎么福袋 ...</blockquote>
+打十把比赛才行<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我前期那么肥  
+##### 39062#       发表于 2022-10-27 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121999&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-27 08:31</a>
+是有点想选拉比克了，虽然喜欢PA但是至宝两根大刀总觉得怪怪的，比小强的爪子还长也叫刺客
+
+怎么福袋 ...</blockquote>
+勇士令状持续期间游玩十场，或者是卡了
+
+*****
+
+####  TI三冠王AME  
+##### 39063#       发表于 2022-10-27 08:35
+
+至宝的吸引力好像比想象中的大，群里几个老burden都下客户端去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 39064#       发表于 2022-10-27 08:36
+
+老比做云玩家前就有冰女pa的了，客观的说这两个都很棒啊
+
+冰女基本完全整容，pa砍人手感大幅增强
+
+准备把客户端下回来每天睡前混个1 2把，换个拉比克<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 39065#       发表于 2022-10-27 08:36
+
+卡了，一直提示temporally closed
+
+*****
+
+####  tasuku  
+##### 39066#       发表于 2022-10-27 08:36
+
+傻逼沃尔沃我继续出跳刀沙尼玛
+
+7acd4ef18bb958f0847de11b6100b78.jpg
+(10.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 08:36 上传
+
+<img src="https://img.saraba1st.com/forum/202210/27/083634v224mfpyslle85n2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  中已矣  
+##### 39067#       发表于 2022-10-27 08:37
+
+总有几个人眼睛不好，嘴巴还臭，是不是去做个胃镜看看，说不定救你一命。
+
+说起奖金去年TI不是最高的么，而且去年也是pgl啊，怎么没这么多幺蛾子，是不是合同到期了，憋不住要收割了。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 海原穹乃|-1|傻逼玩意儿以为阿灵顿自己喷的屎没人记得？.|
+
+查看全部评分
+
+*****
+
+####  IG.430  
+##### 39068#       发表于 2022-10-27 08:37
+
+傻逼沃尔沃我继续出跳刀沙尼玛
+
+*****
+
+####  shinra  
+##### 39069#       发表于 2022-10-27 08:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然没有至宝收集控，多一个闪亮的至宝+24级，只需要花十个小时时间，何乐而不为。
+
+PLUS是什么，打了十把照样哥们回云端。
+
+*****
+
+####  ArowRocher  
+##### 39070#       发表于 2022-10-27 08:39
+
+不知道画饼的什么糖果店有没有绝版的兑换
+
+*****
+
+####  我前期那么肥  
+##### 39071#       发表于 2022-10-27 08:40
+
+不懂就问，恁建立的没有畜处➗鳖憋的大同世界是为了谁建立的 ？<img src="https://p.sda1.dev/8/525580869fa7758b5aaff2d70bacc7ba/CMP_20221027083925167.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  千千千千鸟  
+##### 39072#       发表于 2022-10-27 08:40
+
+火女应该是最垃圾的至宝了吧，影魔都比她好。
+换拉比克了，一直觉得自己玩不来没怎么选过，现在不得不选了呀
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 39073#       发表于 2022-10-27 08:41
+
+游戏 Dota 2 现禁止您给其他用户发送物品
+哦牛逼，老至宝不让卖了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jk9hot  
+##### 39074#       发表于 2022-10-27 08:41
+
+火女至宝太早导致质量反而最差了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
