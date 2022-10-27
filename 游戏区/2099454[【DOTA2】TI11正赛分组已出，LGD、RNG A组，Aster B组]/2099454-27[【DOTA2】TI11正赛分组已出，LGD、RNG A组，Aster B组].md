@@ -7920,3 +7920,85 @@ Ti后: 拳狮亩钩 红颜祸水 恶贯满盈 罪不容诛
 
 开5黑，对面水平会明显高这边两节的，再加上开黑不说话的脑浆队友（不交流的，不如纯路人一根毛）
 
+
+
+*****
+
+####  acacaclove  
+##### 39859#       发表于 2022-10-27 20:32
+
+每次输了yy里都是一片死寂<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+在输下去我要去真人快打了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  啊哈  
+##### 39860#       发表于 2022-10-27 20:35
+
+dota比赛真的有休息室吗，我看真世界不是在厕所就是在户外
+
+*****
+
+####  nowaki  
+##### 39861#       发表于 2022-10-27 20:36
+
+哥们输多了就会拿裹尸布sa
+
+*****
+
+####  蛭人  
+##### 39862#       发表于 2022-10-27 20:36
+
+五黑想赢是没有快乐的。
+
+*****
+
+####  walfeds  
+##### 39863#       发表于 2022-10-27 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">五黑该挨打要挨打的，三黑四黑都好很多
+
+*****
+
+####  六娃  
+##### 39864#       发表于 2022-10-27 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58134297&amp;ptid=2099454" target="_blank">啊哈 发表于 2022-10-27 20:35</a>
+dota比赛真的有休息室吗，我看真世界不是在厕所就是在户外</blockquote>
+有休息室，但在玻璃房里面一局打完了选手都想透透气
+
+*****
+
+####  蛭人  
+##### 39865#       发表于 2022-10-27 20:38
+
+好家伙加入RNG谣言是吧？
+
+<img src="https://img.saraba1st.com/forum/202210/27/203807o04ou2q1l4unrj37.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (26.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 20:38 上传
+
+*****
+
+####  六娃  
+##### 39866#       发表于 2022-10-27 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58134343&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-27 20:38</a>
+好家伙加入RNG谣言是吧？</blockquote>
+一眼cosplay，厨子怎么可能还用og队服当头像
+
+*****
+
+####  蛭人  
+##### 39867#       发表于 2022-10-27 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58134367&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-27 20:39</a>
+
+一眼cosplay，厨子怎么可能还用og队服当头像</blockquote>
+确实是cosplay，毕竟超级造谣论坛。
+
