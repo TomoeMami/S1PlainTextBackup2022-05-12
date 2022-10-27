@@ -11838,3 +11838,81 @@ wiki看不懂日文可以对着装备数值去找
 
 —— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  baizhi  
+##### 1083#       发表于 2022-10-28 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58137136&amp;ptid=2098044" target="_blank">baizhi 发表于 2022-10-27 23:20</a>
+
+问一下，那个魔王城的魔王是我打开的方式不对吗？怎么还能召唤之前的boss的，这boss才3万血，召唤物1万血， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">终于过了，但不是正经过的，一直在摸boss卡召唤物的位置。最后发现主角站在王座最右边，boss有概率会把召唤物卡在墙里。
+
+*****
+
+####  红烧肉  
+##### 1084#       发表于 2022-10-28 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58127390&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-27 13:44</a>
+
+那个杖怎么用啊，我感觉不到强度</blockquote>
+加点全加魔力，魔力影响魔杖BIU出去的东西的伤害。
+
+但是回复精力还是需要魔杖本身敲到敌人才行。
+
+这魔杖挥一次能BIU3,4个火球，距离远弹道优秀还会浮空保留。而且还是个单手武器，能配盾。
+
+魔杖火球还会根据你的技能放，比如对空连续挥六次的那个技能，一下就能挥出一堆火球，伤害直接爆表。
+
+关于被动：
+
+被动最后一页有个魔导师还是什么，增加魔杖攻速。
+
+进后日谈之后，有一个被动把“剑气”变成大幅增加魔杖伤害。
+
+后日谈竞技场有个首饰增加魔导释放速度（不知道对魔杖平A有不有影响）
+
+蛇神那一章有个首饰增加间接伤害。
+
+然后首饰之类的堆魔力。
+
+350左右魔力我打家后面的岩石，一个火球500左右。
+
+魔力点到650+，一个火球1200
+
+估计得要很后期物理武器强化特别高，才能超越这把杖了。
+
+我现在刚打完后日谈大魔导师，还不清楚。
+
+*****
+
+####  红烧肉  
+##### 1085#       发表于 2022-10-28 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58135137&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-27 21:23</a>
+
+第七章打老婆有没有啥逃课方法</blockquote>
+后面BOSS有威胁的主要就是各种弹道物
+
+盾冲带反射弹道那个，多堆点格挡。
+
+还有带一个叫“抹除”的嘉隆被动，效果是增加凭依的消耗但是全屏清除弹道物的。
+
+然后带上消耗最低的技能，比如水属性的冷婵。
+
+天平弄上精力增加，和精力回复增加。
+
+感觉扛不住了就放冷婵清全屏弹道。
+
+*****
+
+####  A1LI  
+##### 1086#       发表于 2022-10-28 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58137215&amp;ptid=2098044" target="_blank">后会莫急 发表于 2022-10-27 23:24</a>
+
+因为有两个天平，一周目的力量不够需要付出代价，二周目穿越二合一了 ...</blockquote>
+一样需要付出代价啊，只不过女神替你付了，然后女神挂了。
+

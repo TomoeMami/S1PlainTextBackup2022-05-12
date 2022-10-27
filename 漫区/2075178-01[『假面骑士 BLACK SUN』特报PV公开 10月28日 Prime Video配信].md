@@ -912,3 +912,19 @@ magnet:?xt=urn:btih:027b12322434ade126974253448a11d74372b370
 我趣，这么劲的吗，有没有看的评价一下怎么样</blockquote>
 又扯肠子又扯头的
 
+
+
+*****
+
+####  popchong  
+##### 73#       发表于 2022-10-28 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">庵野秀明新目标：新假质感不被黑日薄纱就算成功
+
+*****
+
+####  硫黄  
+##### 74#       发表于 2022-10-28 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一集我就大受震撼
+
