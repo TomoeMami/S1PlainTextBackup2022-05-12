@@ -4708,3 +4708,22 @@ silent5层的资源打不过a1超级精英就很正常了，都不用去尝试
  还真能天然roll到这样的路线，无法跳过的a1超级精英，第九层</blockquote>
 发个种子
 
+
+
+*****
+
+####  dclara1  
+##### 426#       发表于 2022-10-27 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58127685&amp;ptid=1567869" target="_blank">Kazepollar 发表于 2022-10-27 14:07</a>
+
+发个种子</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/27/141356tsv8vsemvm7swpbf.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 14:13 上传
+
