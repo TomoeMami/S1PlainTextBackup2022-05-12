@@ -4339,3 +4339,15 @@ switch 上有类似的游戏吗求推荐
 蛋和骨头都是没办法超上去的吗？</blockquote>
 蛋，骨头，推车，柜子，樱桃炸弹等，这些看起来就不正经的武器都没超武的。
 
+
+
+*****
+
+####  sfqjsml  
+##### 404#       发表于 2022-10-27 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58113843&amp;ptid=2052594" target="_blank">wcorvo 发表于 2022-10-26 17:51</a>
+
+就是不能拿箭头和戒指？被动留一格这样？但是感觉这样很难坚持到后期 ...</blockquote>
+被动完全不影响糖果盒，超级糖果盒和运气挂钩，但5掉落宝箱必出超级糖果盒
+

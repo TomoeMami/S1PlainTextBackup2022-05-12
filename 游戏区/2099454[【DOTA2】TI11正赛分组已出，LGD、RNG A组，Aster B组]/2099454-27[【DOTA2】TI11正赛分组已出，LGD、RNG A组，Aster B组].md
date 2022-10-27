@@ -425,3 +425,50 @@ A畜这个畜牲没看见LGD铁粉清算？
 
 哈哈A畜粉丝又在吹土豪杯了，我宣布土豪杯超越SL9成为宇宙第一赛事
 
+
+
+*****
+
+####  minysun  
+##### 39044#       发表于 2022-10-27 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121483&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-27 06:27</a>
+
+商城可以买的至宝除了火女，tb，宙斯，冰女还有哪些？
+
+—— 来自 HONOR LGE-AN00, Android 12上的 S1Next- ...</blockquote>
+军团、影魔、炸弹人、幻刺、大圣，至少应该有这些
+
+*****
+
+####  星野航  
+##### 39045#       发表于 2022-10-27 08:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">经典一转女人坑我鞭哥，摘得这么干净是吧
+
+真的是水厂不死，集美太监亡不了咯
+
+*****
+
+####  walfeds  
+##### 39046#       发表于 2022-10-27 08:19
+
+【【TI11短片】工作人员三冰热心的帮秘密队长PPY修耳机-哔哩哔哩】 https://b23.tv/zgRmZwq
+虾哥太搞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  我前期那么肥  
+##### 39047#       发表于 2022-10-27 08:22
+
+检票倒数第二个是hyhy吧？
+
+*****
+
+####  百世诸侯  
+##### 39048#       发表于 2022-10-27 08:22
+
+哈哈A畜粉丝又在吹土豪杯了，我宣布土豪杯超越SL9成为宇宙第一赛事
+
