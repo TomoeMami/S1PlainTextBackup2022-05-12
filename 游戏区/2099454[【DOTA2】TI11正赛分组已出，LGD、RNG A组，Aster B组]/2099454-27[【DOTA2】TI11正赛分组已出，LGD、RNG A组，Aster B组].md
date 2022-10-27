@@ -1352,3 +1352,127 @@ sg造谣部宣布本事与傻狗无关。
 
 到时候尼哥谭把楼一删，到时候又是消息来源S1咯
 
+
+
+*****
+
+####  我前期那么肥  
+##### 39146#       发表于 2022-10-27 09:33
+
+那张“不是lgd粉，关注lgd纯粹为了磕cp。a畜x萧婊梓 量子鞭x余韵brytant”的lgd高赞热评图找不到了，真是可惜
+
+*****
+
+####  walfeds  
+##### 39147#       发表于 2022-10-27 09:34
+
+impaler卡卡粉丝团我是真没在美国贴吧见过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鉴定为小尿布⛵
+
+*****
+
+####  aruruu  
+##### 39148#       发表于 2022-10-27 09:34
+
+想到液体打3，问过zai了吗
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星野航  
+##### 39149#       发表于 2022-10-27 09:35
+
+为了洗白哥哥，集美的功夫太到位了，这就是太监的功力么
+
+*****
+
+####  百世诸侯  
+##### 39150#       发表于 2022-10-27 09:35
+
+量子鞭想和boxi一起打gg
+
+
+
+*****
+
+####  jk9hot  
+##### 39151#       发表于 2022-10-27 09:36
+
+误入此楼
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  RGm  
+##### 39152#       发表于 2022-10-27 09:37
+
+消息来源可靠吗？.jpg
+
+*****
+
+####  莉拉厨  
+##### 39153#       发表于 2022-10-27 09:37
+
+如果是垚言也太无聊了，我巴不得是真的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lyjssj  
+##### 39154#       发表于 2022-10-27 09:38
+
+量子鞭距离加入液体就差一个球神后天处刑zai妹。加油球神
+
+*****
+
+####  勤练带来力量  
+##### 39155#       发表于 2022-10-27 09:39
+
+看到楼友楼上发的集美后续了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+“带着答案去找吧 跟你这种魔怔人没啥好说的 一波团打了几十点伤害的c必须是有问题的？ 这种说法也配来评价dota比赛 又在这打木桩呢 去评价lol比赛吧
+
+你可以永远认为ti8栓狗c就能赢 ame真是太坑了 maybe fy表现完美
+
+我也可以永远认为 最后两把maybe和fy÷中÷ 稍微稳一点早特么赢了 谁也说服不了谁”
+
+*****
+
+####  jk9hot  
+##### 39156#       发表于 2022-10-27 09:39
+
+但是明年马桶跑路了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  syndrome2032  
+##### 39157#       发表于 2022-10-27 09:39
+
+ 本帖最后由 syndrome2032 于 2022-10-27 09:41 编辑 
+
+支持仙贝清算撸狗鞭，马来猴你现在怕了吗。
+
+以后你也是这个风评，来自虾之国的菜逼中单全靠仙贝1拖4才有的ti亚军<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+挺可惜的，按照那个《来lgd多年，仙贝治好了我的精神内耗》，我还以为被踢的应该是赵子星<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一品堂官  
+##### 39158#       发表于 2022-10-27 09:40
+
+百世诸侯又开始了 
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Avantasi  
+##### 39159#       发表于 2022-10-27 09:40
+
+量子鞭是不是TI6之前的别墅杯看见了啥被刺激到了啊
+
