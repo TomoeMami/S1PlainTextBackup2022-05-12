@@ -11614,3 +11614,15 @@ wiki看不懂日文可以对着装备数值去找
 —— 来自 Xiaomi M2012K11AC, Android  ...</blockquote>
 新章里刷装备盘的话，钥匙消耗快的厉害，二十几把根本不够
 
+
+
+*****
+
+####  A1LI  
+##### 1064#       发表于 2022-10-27 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58132413&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-27 18:45</a>
+
+新章里刷装备盘的话，钥匙消耗快的厉害，二十几把根本不够</blockquote>
+不，新章的装备盘里有个新被动，就是用无限钥匙替换嘉隆的鼻子。
+

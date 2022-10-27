@@ -14192,3 +14192,99 @@ woc这是可可吗？这个少年感woc，她还能有这种风格吗woc
 
 成带货直播了
 
+
+
+*****
+
+####  lj205  
+##### 8791#       发表于 2022-10-27 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133422&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-10-27 19:48</a>
+
+其他人两两一起玩，可可打工去了是吧？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+可可这个其实算是之前G店投票第一的专人特典
+
+*****
+
+####  稀勢のささ  
+##### 8792#       发表于 2022-10-27 19:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pay宝你在说啥啊
+
+*****
+
+####  lj205  
+##### 8793#       发表于 2022-10-27 19:55
+
+草，赏味期
+
+*****
+
+####  stygian  
+##### 8794#       发表于 2022-10-27 19:56
+
+key visual实在拉跨。。。本来想着出来了隔壁头像就换掉的你这让我怎么换阿。。。
+
+*****
+
+####  lj205  
+##### 8795#       发表于 2022-10-27 19:57
+
+终于有游戏环节了！！
+
+*****
+
+####  稀勢のささ  
+##### 8796#       发表于 2022-10-27 19:57
+
+终于有玩的了
+
+*****
+
+####  starring  
+##### 8797#       发表于 2022-10-27 19:57
+
+拔刺game和装扮道具，新的传说要开启了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 8798#       发表于 2022-10-27 19:58
+
+草，看到有人说要不把可可图标换成扇贝的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 8799#       发表于 2022-10-27 20:00
+
+鲤鱼刚才笑的，是不是想起了前辈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 8800#       发表于 2022-10-27 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133502&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-27 19:54:09</a>
+可可这个其实算是之前G店投票第一的专人特典</blockquote>看见条幅上的字了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  iuhehc  
+##### 8801#       发表于 2022-10-27 20:02
+
+鲤鱼的抛梗越来越熟练了 装傻役+1
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 8802#       发表于 2022-10-27 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甘　え　ん　な
+
