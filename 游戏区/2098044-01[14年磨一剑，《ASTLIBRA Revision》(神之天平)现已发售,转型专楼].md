@@ -11972,3 +11972,14 @@ wiki看不懂日文可以对着装备数值去找
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  wuliang  
+##### 1091#       发表于 2022-10-28 01:28
+
+去年通了free版，惊为天人。这次没想到还有追加剧情，把之前的坑都填了，花了40小时通了，大满足。真的非常牛逼！
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
