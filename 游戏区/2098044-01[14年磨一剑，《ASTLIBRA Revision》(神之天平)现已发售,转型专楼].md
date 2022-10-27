@@ -11677,3 +11677,12 @@ wiki看不懂日文可以对着装备数值去找
 
 第七章给我整晕了，原来离了鸟我什么都不是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  skyfaker305  
+##### 1069#       发表于 2022-10-27 21:07
+
+白居然是傲娇雌小鬼，该把她狠狠的爆炒了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

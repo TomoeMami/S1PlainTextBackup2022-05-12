@@ -8135,3 +8135,85 @@ dota比赛真的有休息室吗，我看真世界不是在厕所就是在户外<
 
 去eg刚好无缝衔接啊
 
+
+
+*****
+
+####  非建政专用号  
+##### 39883#       发表于 2022-10-27 21:04
+
+看着很真，感觉很假，实际真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+量子鞭这懵逼的眼神是怎么抓拍到的
+
+*****
+
+####  Crazy_Knife  
+##### 39884#       发表于 2022-10-27 21:07
+
+去eg是从一个A处逃到另一个A处吗，育婴有瘾？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 39885#       发表于 2022-10-27 21:08
+
+ateaf一放假回家就一天9把天梯，鉴定为抢giegie人设
+
+*****
+
+####  王宇旻❤潘婕  
+##### 39886#       发表于 2022-10-27 21:09
+
+<img src="https://img.saraba1st.com/forum/202210/27/210856ra443ea26kxytpxb.jpg" referrerpolicy="no-referrer">
+
+<strong>-4a3b426850e930e4.jpg</strong> (28.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 21:08 上传
+
+有没有可能是卡尔马龙的锅
+
+*****
+
+####  莉拉厨  
+##### 39887#       发表于 2022-10-27 21:10
+
+nightfall下一步是回vp和兄弟gpk一起打gg然后代言KFC进不了TI是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 39888#       发表于 2022-10-27 21:11
+
+nightfall想回cis转回一号位，我的评价是，没救了
+
+*****
+
+####  非建政专用号  
+##### 39889#       发表于 2022-10-27 21:11
+
+什么尼哥拍球论坛，哥们只认识烈焰直升机
+
+*****
+
+####  六娃  
+##### 39890#       发表于 2022-10-27 21:12
+
+https://nga.178.com/read.php?tid=34033092
+七闲 39177582 级别: 学徒 威望: 1 注册: 16-10-04
+2022-10-27 20:07 
+简单说说关于余韵的逻辑推理和知识水平
+
+帮朋友代发，楼下发文
+
+*****
+
+####  六娃  
+##### 39891#       发表于 2022-10-27 21:13
+
+看了半天也没有东野魁梧，太监是真不行
+

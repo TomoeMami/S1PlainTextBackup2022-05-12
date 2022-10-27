@@ -14448,3 +14448,14 @@ twi：@unyanai</blockquote>
 <img src="https://p.sda1.dev/8/922177a3ca6296d61aac77268d8bab07/0075ZY3sgy1h7k4e7le4mj30ob0i8tfh.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/0398cc472d3aa01c50b297b3a0089218/QQ截图20221027205319.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8815#       发表于 2022-10-27 21:06
+
+bd3封面和那5张特典都好可爱啊啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
