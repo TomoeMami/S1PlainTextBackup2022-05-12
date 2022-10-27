@@ -3070,3 +3070,25 @@ job子的英语黏黏的好舒服ww
 
 好希望奇点早点到来
 
+
+
+*****
+
+####  Piano-Forest  
+##### 247#         楼主| 发表于 2022-10-27 18:36
+
+すてっぷ３より、背景美術をご紹介
+<img src="https://p.sda1.dev/8/37edfbeb2e1e7c5692f3470ef5034ef7/20221027_182511.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/acc2788f532aa6d4414e5f6ef10db639/20221027_182514.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/956a592f85d7c7fbe80e4a802ccb008a/20221027_182517.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/e27f7c03f8aa5cf738a7e428c04567c0/20221027_182518.jpg" referrerpolicy="no-referrer">
+
+すてっぷ４より、作監修正をご紹介
+<img src="https://p.sda1.dev/8/4cea0660449423077751eb4c4c2093b8/20221027_182522.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d92a9d7697f5b66e92b2856acfbddad4/20221027_182523.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/1bab5ef4f95bfc5b8951004a1b74aeda/20221027_182526.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/5e1b41a383610a413c3263d7601fe399/20221027_182528.jpg" referrerpolicy="no-referrer">
+
+すてっぷ４より、線撮動画をご紹介
+<img src="https://p.sda1.dev/8/4bec6aca443e9102f7a01d4a1a7b6eaa/6EnZgF9sX29qoBQ3.gif" referrerpolicy="no-referrer">
+

@@ -7337,3 +7337,25 @@ BoBoKa在神庙中祈祷
 
 [f:067怎么没有组织队友看科比纪录片学习曼巴精神
 
+
+
+*****
+
+####  wzy200912345  
+##### 39801#       发表于 2022-10-27 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58132153&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-27 18:28</a>
+
+该update了，现在是新西兰</blockquote>
+G胖去年说想搬家也不了了之了，员工也没去TI也没办成
+
+*****
+
+####  lyjssj  
+##### 39802#       发表于 2022-10-27 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58131635&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-27 17:52</a>
+
+【【DOTA2中字】TEAM SPIRIT：TI11国际邀请赛 FINAL VLOG】 https://www.bilibili.com/video/BV1de4y177nU/ ...</blockquote>
+加完油镜头一转直接回家也太可乐了
+
