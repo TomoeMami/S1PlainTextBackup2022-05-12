@@ -1123,3 +1123,232 @@ sg造谣又成真了
 
 4+2的场数算至宝场数吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Avantasi  
+##### 39121#       发表于 2022-10-27 09:21
+
+是奸商扣免费至宝的棱彩出去卖，V社把福袋关了
+
+*****
+
+####  我前期那么肥  
+##### 39122#       发表于 2022-10-27 09:22
+
+今天是ti开赛以来人数峰值最高的一天<img src="https://p.sda1.dev/8/c2e0d92d8d4240ec6cd85cca60a3a47e/CMP_20221027092145004.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 39123#       发表于 2022-10-27 09:22
+
+太监论坛这个帖子里面还有补充1，补充2。太乐了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  莉拉厨  
+##### 39124#       发表于 2022-10-27 09:22
+
+CN冠军三号位的一生是戏来的一生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星野航  
+##### 39125#       发表于 2022-10-27 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58122700&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-27 10:22</a>
+
+太监论坛这个帖子里面还有补充1，补充2。太乐了
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能来点补充，实在是不想看粪坑
+
+*****
+
+####  星野航  
+##### 39126#       发表于 2022-10-27 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58122700&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-27 10:22</a>
+
+太监论坛这个帖子里面还有补充1，补充2。太乐了
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能不能来点补充，实在是不想看粪坑
+
+*****
+
+####  Avantasi  
+##### 39127#       发表于 2022-10-27 09:24
+
+让A畜粉丝承认他们爹是个畜牲看来只能靠偷心了
+
+*****
+
+####  Litccc  
+##### 39128#       发表于 2022-10-27 09:24
+
+<img src="https://p.sda1.dev/8/d4760e7a4655c580ea80745c50029b52/CMP_20221027092428995.jpg" referrerpolicy="no-referrer">
+
+消息来源：lgd休息室的椅子
+
+*****
+
+####  我前期那么肥  
+##### 39129#       发表于 2022-10-27 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58122719&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-27 09:23</a>
+
+能不能来点补充，实在是不想看粪坑</blockquote><blockquote>2022-10-27 02:45    
+
+166​ 匿名
+
+好好好终于有人出来爆料了那哥们也不得不说句话了lucky 这次ti最后一场正好坐在她还有lgd的工作人员后面 能偶尔听见几句他们前面聊天 首先她看不懂dota是一定的(看也仅限能看懂faithbian玩的是个叫死灵龙的英雄)其他的听他们对话真觉得他们完全不懂游戏什么技能放了都看不懂的那种… 其次之前跟生活中认识的妹子朋友讨论过阿梓那个事儿妹子朋友属于平时微博都动不动girls help girls的都说完全没懂俩人网恋分个手有啥好打拳的… 最后想说这位姐是真的太高估自己了…没有faithbian和lgd带来的刀圈流量不会真以为有人看他视频吧汗 哥们周围同学感觉大家都能随便按她那个套路立人设发视频汗 感觉放小红书留学生上这个水准的视频都没人看一眼的汗 最后放张图自证这次ti现场</blockquote>
+
+*****
+
+####  12481632  
+##### 39130#       发表于 2022-10-27 09:26
+
+你们4+2没有自己的至宝吗
+
+*****
+
+####  我前期那么肥  
+##### 39131#       发表于 2022-10-27 09:26
+
+<blockquote>我再补充三点啊啊
+
+1.TI11期间，在LGD输给Aster第一局之后，余韵冲进lgd休息室和选手说你应该怎么怎么打，你这里打得不对，当时选手和教练都惊呆了
+
+2.文中所说的Major给faithbian找队属实，余韵把faitbian弄到德国说的就是让他继续打职业或者做教练
+
+3.今年在lgd接到一些赞助，余韵和选手们说：lgd接了赞助为什么不分给选手一人20%？俱乐部应该给选手们分，让选手去和俱乐部谈。
+
+说是余韵毁了今年的LGD不为过，人啊，找个好女人太重要了
+
+[https://nga.178.com/read.php?&amp;am ... =648814125&amp;to=1](https://nga.178.com/read.php?&amp;tid=34022364&amp;pid=648814125&amp;to=1)</blockquote>
+
+*****
+
+####  shinra  
+##### 39132#       发表于 2022-10-27 09:27
+
+周末的匹配应该会很精彩吧？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 39133#       发表于 2022-10-27 09:27
+
+我们4+2还有dodo呢，关注dodo喵
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  bluebaby  
+##### 39134#       发表于 2022-10-27 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58122730&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-27 09:24</a>
+消息来源：lgd休息室的椅子</blockquote>
+bian的女朋友冲进休息室大骂a/的sa<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+想想这话画面我都想笑，这么蠢不会是真的吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我前期那么肥  
+##### 39135#       发表于 2022-10-27 09:27
+
+半夜气的我睡不着觉反复刷帖，我想买张机票去刀了这个**，他妈的哭
+
+<img src="https://img.saraba1st.com/forum/202210/27/092731zzuyw8a5ajjj5a8z.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221027092722.png</strong> (2.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 09:27 上传
+
+*****
+
+####  walfeds  
+##### 39136#       发表于 2022-10-27 09:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难绷
+
+*****
+
+####  syndrome2032  
+##### 39137#       发表于 2022-10-27 09:28
+
+那么明年能看到liquid.faith_bian吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 39138#       发表于 2022-10-27 09:28
+
+毒狗8的微信聊天记录都可以成真了，这个过一段时间也真了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  c88711611  
+##### 39139#       发表于 2022-10-27 09:29
+
+这造谣的最后不会是sg吧
+
+*****
+
+####  百世诸侯  
+##### 39140#       发表于 2022-10-27 09:29
+
+今年不假赛论了，今年搞魔女狩猎！
+
+*****
+
+####  星野航  
+##### 39141#       发表于 2022-10-27 09:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太经典了实在是，确实是无出其右得臭了
+
+*****
+
+####  OVTVO  
+##### 39142#       发表于 2022-10-27 09:31
+
+如果NGA的小作文不是造谣，那大概率是真的。
+
+如果NGA小作文是傻狗造谣，根据傻狗造谣定律，100%是真的。
+
+结论，就是真的！！！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 39143#       发表于 2022-10-27 09:32
+
+sg造谣部宣布本事与傻狗无关。
+倒不如说傻狗们早就知道会有这么一天了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人別離苦  
+##### 39144#       发表于 2022-10-27 09:32
+
+一眼真<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 39145#       发表于 2022-10-27 09:32
+
+到时候尼哥谭把楼一删，到时候又是消息来源S1咯
+
