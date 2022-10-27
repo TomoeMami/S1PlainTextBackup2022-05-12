@@ -58,3 +58,17 @@
 我记得好像美智留她们也是混住来着</blockquote>
 女武神都是给副司令干私活的直属部队，顺便是预备00单元材料。但是207A这个小队感觉是给**子女延迟兵役的吧，你看隔壁主任15岁就得上战场了，这部分人可以比较安稳的度过18岁，当然最后因为樱花作战太重要，里面有些人也不重要了，而且就你们还算建制完整，就拿你们当消耗品
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1960#       发表于 2022-10-27 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58045919&amp;ptid=1860817" target="_blank">alucardcz 发表于 2022-10-22 22:06</a>
+
+这名场面做的不好啊 为什么要把回去后小麻出事经过删掉 绝望感直接对半砍了 ...</blockquote>
+联动卓明谷：[巴黎贝甜女工卷入搅拌机惨死,公司给她葬礼送来两箱面包](https://bbs.saraba1st.com/2b/thread-2101741-1-1.html)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
