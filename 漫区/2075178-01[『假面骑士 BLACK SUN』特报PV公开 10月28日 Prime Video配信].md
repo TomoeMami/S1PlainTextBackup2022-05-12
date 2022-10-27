@@ -928,3 +928,12 @@ magnet:?xt=urn:btih:027b12322434ade126974253448a11d74372b370
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一集我就大受震撼
 
+
+
+*****
+
+####  sodah  
+##### 75#       发表于 2022-10-28 00:16
+
+这第二集开头就跳到1972年了？
+

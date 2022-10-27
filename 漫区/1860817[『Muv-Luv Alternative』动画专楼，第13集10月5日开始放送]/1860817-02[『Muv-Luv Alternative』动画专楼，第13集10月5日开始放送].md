@@ -72,3 +72,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小松莉奈  
+##### 1961#       发表于 2022-10-28 00:11
+
+纯夏<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">日记的场景每次看都是泪目，从此不管后面遇到再大的恶意我都是坚定的纯夏党，要是这画面能再精致一点就好了
+
