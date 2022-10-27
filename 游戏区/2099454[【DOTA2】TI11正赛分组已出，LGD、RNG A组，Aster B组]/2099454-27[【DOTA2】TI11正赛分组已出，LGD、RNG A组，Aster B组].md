@@ -5756,3 +5756,77 @@ a厨的意思是普森要打的话愿意和普森打
 
 新手入门你能整个五黑班子育婴让新手玩大哥是效果最好的，光看教学视频没用
 
+
+
+*****
+
+####  不羁的傻风  
+##### 39636#       发表于 2022-10-27 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129501&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-27 15:52</a>
+
+地图很久没大改了，搜个一年内的眼位视频都能用。职业的楼上说过了，说点高分路人的。打34，推荐看3721so ...</blockquote>
+感谢告知。确实是打345的，回去琢磨琢磨
+
+*****
+
+####  DarthAka  
+##### 39637#       发表于 2022-10-27 16:01
+
+银川KKY对关键局选混子4都刻DNA了，能出减伤图腾的4这几天应该试一圈了
+
+*****
+
+####  不羁的傻风  
+##### 39638#       发表于 2022-10-27 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129511&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-27 15:53</a>
+
+看直播比较好，现在版本变得太快视频时效性实在不行，虽然经常发攻略的faith_bian和yatoro已经回家了，不 ...</blockquote>
+直播确实不太能看，时间对不上，只能偶尔看看视频。感谢推荐
+
+*****
+
+####  银翼的维罗西  
+##### 39639#       发表于 2022-10-27 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129666&amp;ptid=2099454" target="_blank">DarthAka 发表于 2022-10-27 16:01</a>
+
+银川KKY对关键局选混子4都刻DNA了，能出减伤图腾的4这几天应该试一圈了</blockquote>
+这段话好有说服力，毕竟是《论臂章》的作者
+
+*****
+
+####  resorry  
+##### 39640#       发表于 2022-10-27 16:05
+
+如果POM效果好的话，那小松鼠是不是也有说法，有控有爆发有逃生
+
+*****
+
+####  walfeds  
+##### 39641#       发表于 2022-10-27 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129722&amp;ptid=2099454" target="_blank">resorry 发表于 2022-10-27 16:05</a>
+
+如果POM效果好的话，那小松鼠是不是也有说法，有控有爆发有逃生</blockquote>
+摸钱能力没pom好
+
+*****
+
+####  Litccc  
+##### 39642#       发表于 2022-10-27 16:10
+
+炸弹人出怨灵之契好像还真有搞头，本身打钱不慢也没有装备需求，自爆过去往埋雷放怨灵之契还挺厉害的
+
+*****
+
+####  jk9hot  
+##### 39643#       发表于 2022-10-27 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129722&amp;ptid=2099454" target="_blank">resorry 发表于 2022-10-27 16:05</a>
+如果POM效果好的话，那小松鼠是不是也有说法，有控有爆发有逃生</blockquote>
+松鼠进树林也没有三连跳来的快
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
