@@ -11462,3 +11462,14 @@ wiki看不懂日文可以对着装备数值去找
 
 掉过俩金箱子，打开一看属性卡<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  五块  
+##### 1050#       发表于 2022-10-27 10:57
+
+<blockquote>quanlix 发表于 2022-10-27 10:20
+掉过俩金箱子，打开一看属性卡</blockquote>
+不对，应该是优先出图纸，出完图纸才出这些消耗品。
+
