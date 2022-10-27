@@ -8347,3 +8347,84 @@ ku狗直播信息
 
 nmd我也蓝字了，88刀塔东野魁梧我来了
 
+
+
+*****
+
+####  我前期那么肥  
+##### 39908#       发表于 2022-10-27 21:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58135594&amp;ptid=2099454" target="_blank">woyzeck 发表于 2022-10-27 21:49</a>
+上次破百万是不是还是7.0之前</blockquote>
+不是，自走棋的时候
+
+*****
+
+####  一品堂官  
+##### 39909#       发表于 2022-10-27 21:52
+
+一直红蓝字 哥们洗洗睡了 又是看集美和管人痴笑话的一天 明天见
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  六娃  
+##### 39910#       发表于 2022-10-27 21:52
+
+我排东南亚没有蓝字
+
+*****
+
+####  shinra  
+##### 39911#       发表于 2022-10-27 21:54
+
+大家还是现实，哪怕领了这点玩意儿后面玩不玩不论，就是不能错过这档子好事。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 39912#       发表于 2022-10-27 21:55
+
+没等到三轮车，还是继续打神之天平
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈曼的YY  
+##### 39913#       发表于 2022-10-27 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133265&amp;ptid=2099454" target="_blank">AME8年铁粉 发表于 2022-10-27 19:40:02</a>
+其实nga这个论坛最搞笑的是8月量子鞭3号位电棍无敌的时候sg是确实有人造谣他女朋友怎么怎么的 然后是nga天 ...</blockquote>和去年的面八吃菜 vpgame如出一辙 集美也就这一套了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  你可以试试  
+##### 39914#       发表于 2022-10-27 21:57
+
+有漏油知道进了国服之后文字变星号在哪里改文件整回去吗
+
+特效绿血我倒是知道了：
+
+打开:\Steam\steamapps\common\dota 2 beta\game\dota\cfg 文件夹，找到machine_convars.vcfg这个文件，用记事本打开
+
+将    "violence_ablood"    "false"
+
+    "violence_agibs"    "false"
+
+    "violence_hblood"    "false"
+
+    "violence_hgibs"    "false"
+
+这4行给删掉，保存
+
+*****
+
+####  食粪者  
+##### 39915#       发表于 2022-10-27 21:59
+
+太监论坛已经不适合了，应该叫野种论坛
+
