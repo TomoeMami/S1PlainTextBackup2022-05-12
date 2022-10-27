@@ -6057,3 +6057,226 @@ zai其实是被“透支”最明显的，md只能说遇人不淑，zai要是没
 
 他在现场吗？怎么看的那么清楚的。
 
+
+
+*****
+
+####  樱冢名月  
+##### 39668#       发表于 2022-10-27 16:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58130331&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-27 16:42</a>
+
+小作文最好奇就是量子鞭他女友直接冲进休息室撕逼。
+
+他在现场吗？怎么看的那么清楚的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟造谣一张嘴啊。
+
+*****
+
+####  百世诸侯  
+##### 39669#       发表于 2022-10-27 16:44
+
+战队人员工作卡，ip在美国，水厂在美国那边接待战队的熟人？
+
+*****
+
+####  莉拉厨  
+##### 39670#       发表于 2022-10-27 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58130199&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-27 16:35</a>
+一个从来不玩DOTA的撸狗朋友QQ告诉我今天V社送至宝
+
+是不是说明这个活动很出圈啊？</blockquote>
+撸狗肯定要拿这个拷打拳头的啊，毕竟白送一百多块钱确实不太像正常moba运营能干出来的事
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  usoda  
+##### 39671#       发表于 2022-10-27 16:44
+
+就那一张照片毛都说明不了啊
+
+*****
+
+####  Cantha  
+##### 39672#       发表于 2022-10-27 16:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 你们真TM闲，一下午没上，进来就看不懂新节奏了
+
+*****
+
+####  nowaki  
+##### 39673#       发表于 2022-10-27 16:45
+
+哥们看真视界 选手不就是走到场地旁边抽烟么
+
+*****
+
+####  六娃  
+##### 39674#       发表于 2022-10-27 16:45
+
+太牛批了，这波脑残集**得水厂自爆造谣
+
+*****
+
+####  morwhipppo  
+##### 39675#       发表于 2022-10-27 16:46
+
+集美和隔壁V圈粉丝最像的一点就是切割自己人，风向一不正，该切割的人从来不会手下留情，和giegie踢队友一样，不能带自己躺的队友里马切割
+
+*****
+
+####  樱冢名月  
+##### 39676#       发表于 2022-10-27 16:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超级集美论坛又有“新料“了。最后一句，1想退，周围的人都在劝
+
+*****
+
+####  Litccc  
+##### 39677#       发表于 2022-10-27 16:47
+
+<img src="https://img.saraba1st.com/forum/202210/27/164453jur3k00mtgb0tm0u.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-10-27_16-44-41.png</strong> (79.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 16:44 上传
+
+正文已经把liquid教练改成某国外教练了，乐
+
+*****
+
+####  六娃  
+##### 39678#       发表于 2022-10-27 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58130271&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-27 16:39</a>
+眼位1 天辉插看夜魇主野区眼，夜魇了看肉山</blockquote>
+除了新地形的夜魇肉山通道眼，其他的都是常规上坡眼
+
+*****
+
+####  jk9hot  
+##### 39679#       发表于 2022-10-27 16:47
+
+去年假赛今天女友的最终目的都是他们的giegie不是最菜的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星野航  
+##### 39680#       发表于 2022-10-27 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58130331&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-27 17:42</a>
+
+小作文最好奇就是量子鞭他女友直接冲进休息室撕逼。
+
+他也进干瘪休息室了？怎么看的那么清楚的。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太监做事跟常人是不一样的，现在都玩身份政治这套，给个定性，然后呼吁一下大家一起上踩一脚就完事了
+
+情绪输出，事实重要么
+
+*****
+
+####  usoda  
+##### 39681#       发表于 2022-10-27 16:49
+
+<blockquote>1想退，周围的人都在劝</blockquote>
+这话去年就见过了 编都编不用心
+
+*****
+
+####  百世诸侯  
+##### 39682#       发表于 2022-10-27 16:49
+
+爆料点东西
+
+关注
+
+爆料小号
+
+级别:学徒 威望:1 发帖:1
+
+-
+
+信不信由你们，不信的当个乐子看就行了
+
+1.YY确实进了休息室，没明说你们该怎么打，大概意思就是视野控制力不够。(可以理解为球迷进了NBA更衣室去说你们篮板球保护的不够好)
+
+2.YY给BIAN找队这事，大家都知道。(大家指的的LGD)
+
+3.内讧倒不至于，吵架是真的，吵架原因大概就是资源分布的事。3觉得这版本3号位需要经济，1觉得15分钟3还躲在三角区刷。(队内复盘是3几乎每次线劣，所以要补经济)
+
+打法上尝试过改变，比如4不去中，比如1就给3让经济，但是3每次线劣，中期不做事补经济。补了经济后期站不出来。
+
+4.bian有偶像(或者说明星选手)包袱，觉得发挥不好会掉粉之类的。即使赢了的比赛他没发挥好什么的，复盘的时候也会压力怪。社区对于3有点太惯着了，赢了使劲吹，发挥不好没人喷。
+
+5.azi那事3对1有没有看法不知道，1对3没什么看法。1挺简单的或者说挺傻的，觉得都是兄弟。反正5个人最后一年冲冠军，不想因为场外事情影响队内
+
+6.LGD的3几乎99%确定是项羽，NTS等TI结束会谈。1想退，周围的人都在劝
+
+这人还特意把ip弄成新加坡，鉴定为傻狗编小作文逗太监玩
+
+*****
+
+####  樱冢名月  
+##### 39683#       发表于 2022-10-27 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">geigei太好了，是这个拖后腿的3不知好歹。
+
+*****
+
+####  反方向的波  
+##### 39684#       发表于 2022-10-27 16:50
+
+ 本帖最后由 反方向的波 于 2022-10-27 16:52 编辑 
+
+今年最新潮的还是往中路一塔塔脚下点个眼，最莥芘的是我有一次插这个 赛后看自己录像发现对面还真的中路插了3个假眼来反
+
+*****
+
+####  人別離苦  
+##### 39685#       发表于 2022-10-27 16:51
+
+咋越看越像帆船的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 39686#       发表于 2022-10-27 16:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58130412&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-27 16:47</a>
+除了新地形的夜魇肉山通道眼，其他的都是常规上坡眼</blockquote>
+确实，直接打的时候插高台眼，打完再守着打打不过得了，酱油逛街千里偷个眼把自己偷进去实在是太下头了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 39687#       发表于 2022-10-27 16:51
+
+Ip属地：新加坡
+乐了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  adretyu67  
+##### 39688#       发表于 2022-10-27 16:52
+
+苦一苦仙贝，骂名我来抗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+乘他病要它命，能不能彻底清算一下23
+
+*****
+
+####  六娃  
+##### 39689#       发表于 2022-10-27 16:52
+
+打比赛最好用的还是深处线眼
+不过你只要在对面一塔位置点个眼，丁聪肯定是反不到的
+
