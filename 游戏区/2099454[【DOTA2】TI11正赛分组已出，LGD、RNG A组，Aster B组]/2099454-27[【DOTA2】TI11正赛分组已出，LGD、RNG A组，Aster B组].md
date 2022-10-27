@@ -8884,3 +8884,16 @@ nmd，上午是服务器关了下午是服务器忙，想嫖个至宝恁难呢
 三十bkb冰眼sa绝对是犯罪了，你去斧王岛试试看。再把装备换成a杖大炮</blockquote>
 纯数据的话这俩货加起来收益都不如敏捷大跳
 
+
+
+*****
+
+####  walfeds  
+##### 39964#       发表于 2022-10-28 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58137625&amp;ptid=2099454" target="_blank">AME8年铁粉 发表于 2022-10-27 23:50</a>
+每次输了比赛总感觉队友的老婆不给力</blockquote>
+那赢了比赛会觉得队友的老婆给力吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
