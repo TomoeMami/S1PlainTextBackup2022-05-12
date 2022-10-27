@@ -9004,3 +9004,20 @@ win版凌晨更新
 
 新结局条件有人试出来了吗？
 
+
+
+*****
+
+####  当光停止  
+##### 762#       发表于 2022-10-27 17:24
+
+<img src="https://img.saraba1st.com/forum/202210/27/172347bzkynxkxubxybxlk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (63.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 17:23 上传
+
+中文直播还行。
+
