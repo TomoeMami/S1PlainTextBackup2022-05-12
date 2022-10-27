@@ -7359,3 +7359,50 @@ G胖去年说想搬家也不了了之了，员工也没去TI也没办成
 【【DOTA2中字】TEAM SPIRIT：TI11国际邀请赛 FINAL VLOG】 https://www.bilibili.com/video/BV1de4y177nU/ ...</blockquote>
 加完油镜头一转直接回家也太可乐了
 
+
+
+*****
+
+####  蛭人  
+##### 39803#       发表于 2022-10-27 18:42
+
+司马ku已经说T1基本散了，不过，没明说不搞dota2了，也不知道厨子和普森下一站会去哪儿。
+
+*****
+
+####  NaYo丶  
+##### 39804#       发表于 2022-10-27 18:44
+
+ori这不被微博冲了 郭楠搞隐身
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  TI三冠王AME  
+##### 39805#       发表于 2022-10-27 18:50
+
+<img src="https://img.saraba1st.com/forum/202210/27/184953a2vzzu9lgorvogoo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (109.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 18:49 上传
+
+<img src="https://img.saraba1st.com/forum/202210/27/185000wizwvuiabdbdpgp5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (4.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 18:50 上传
+
+<img src="https://img.saraba1st.com/forum/202210/27/185009rmp2pqnmkpqm9vpv.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 18:50 上传
+

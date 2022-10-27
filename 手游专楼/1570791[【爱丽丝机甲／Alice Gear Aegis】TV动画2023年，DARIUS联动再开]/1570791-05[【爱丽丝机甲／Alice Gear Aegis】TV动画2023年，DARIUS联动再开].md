@@ -253,3 +253,12 @@ an天狐天 御侠
 
 简单试了一下手柄,单从可以触屏侧滑其他用手柄这一点上来说还是挺实用的,当然最大的好处还是可以不用开电脑了
 
+
+
+*****
+
+####  希望之花  
+##### 7415#       发表于 2022-10-27 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个an天的sp好喜庆
+

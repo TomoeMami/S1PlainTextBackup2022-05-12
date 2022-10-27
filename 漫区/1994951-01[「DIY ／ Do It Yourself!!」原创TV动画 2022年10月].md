@@ -3092,3 +3092,50 @@ job子的英语黏黏的好舒服ww
 すてっぷ４より、線撮動画をご紹介
 <img src="https://p.sda1.dev/8/4bec6aca443e9102f7a01d4a1a7b6eaa/6EnZgF9sX29qoBQ3.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 248#       发表于 2022-10-27 18:46
+
+做好树屋后，AI奇点到来准备控制所有人类，少女们通过DIY精神感动AI拯救人类是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 249#         楼主| 发表于 2022-10-27 18:47
+
+[https://twitter.com/plus_plus09/status/1585293323497275392](https://twitter.com/plus_plus09/status/1585293323497275392)
+<img src="https://p.sda1.dev/8/df23ed7c8cef2eb75cb5c85d802e4326/20221027_184344.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/komet_915/status/1585300065534763008](https://twitter.com/komet_915/status/1585300065534763008)
+
+第4話 原画で参加させていただきました。
+
+よろしくお願いしますー
+<img src="https://p.sda1.dev/8/055b1fa99afe955b4207917d18c162c9/20221027_184333.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/k_ekaki/status/1585293927279534082](https://twitter.com/k_ekaki/status/1585293927279534082)
+
+DIY#4ほんの少し原画で参加させていただきました。
+
+幼い二人のやりとり、めちゃ可愛かったです、、！
+<img src="https://p.sda1.dev/8/553da8e14bf92238c1a2042825aa38ac/20221027_184341.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/youjohan_me/status/1585292066157756416](https://twitter.com/youjohan_me/status/1585292066157756416)
+
+Do It Yourself!!
+
+4話も原画で参加しております。
+
+よろしくお願いします！
+<img src="https://p.sda1.dev/8/f2b3e8269243690b892deacd26b5e89f/20221027_184337.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/morinorio/status/1585291851980242946](https://twitter.com/morinorio/status/1585291851980242946)
+
+コンテ・演出・作監やってました
+
+ありがとうございました
+<img src="https://p.sda1.dev/8/e47bad61941302de709f094e1eeadab0/20221027_184409.jpg" referrerpolicy="no-referrer">
+

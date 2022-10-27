@@ -118,3 +118,19 @@ hj和fw联动喷喷草
 
 最近不少人又捡起valo很明显是要开cr了啊
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 17646#       发表于 2022-10-27 18:43
+
+为了庆祝《主播女孩重度依赖》Nintendo Switch版发售以及双平台全球总销量突破60万！
+
+超天酱决定在B站进行中文直播啦！
+
+10月31日 20：00 （UTC+8）官方直播间见！
+[https://live.bilibili.com/26077087](https://live.bilibili.com/26077087)
+
+<img src="https://img.saraba1st.com/forum/202210/27/184155vox2xep2fcxngsi2.png" referrerpolicy="no-referrer">
+

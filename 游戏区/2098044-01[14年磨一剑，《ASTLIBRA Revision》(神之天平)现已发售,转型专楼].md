@@ -11600,3 +11600,17 @@ wiki看不懂日文可以对着装备数值去找
 有个技能就是加杖的挥动速度的，还有加透射物速度的，而且新章就更好用了，敏捷999不是梦，还有各种加杖 ...</blockquote>
 懂了，看来不是现在用的。
 
+
+
+*****
+
+####  六至九  
+##### 1063#       发表于 2022-10-27 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129327&amp;ptid=2098044" target="_blank">格林卡罗尔 发表于 2022-10-27 15:43</a>
+
+出卡也挺好的，我现在是全出钥匙，二十几把估计能用到通关
+
+—— 来自 Xiaomi M2012K11AC, Android  ...</blockquote>
+新章里刷装备盘的话，钥匙消耗快的厉害，二十几把根本不够
+
