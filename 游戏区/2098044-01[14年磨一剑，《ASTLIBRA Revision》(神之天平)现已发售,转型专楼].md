@@ -11763,3 +11763,18 @@ wiki看不懂日文可以对着装备数值去找
 一周目打了48小时，确实多数时间都在收集上了。这游戏真是个充满了惊喜的好游戏，是动作游戏，也是传统的数 ...</blockquote>
 其实到了二周目结尾还会有一把武器，单手的，所以不用在乎什么神之左手了。
 
+
+
+*****
+
+####  蓝雉  
+##### 1077#         楼主| 发表于 2022-10-27 22:27
+
+打新章中,首先我是主角的话一定要用天平回去再打一遍梦神,cnm又让老子走八年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便
+
+一周目主角:能改变过去的神器太危险了我们决不能滥用<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+二周目主角:淦老子就是要用爆,老子就是要不付出任何代价拯救所有人<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+

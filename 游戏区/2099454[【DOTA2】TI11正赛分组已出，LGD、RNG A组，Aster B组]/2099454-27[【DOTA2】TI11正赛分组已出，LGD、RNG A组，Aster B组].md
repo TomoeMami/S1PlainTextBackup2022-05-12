@@ -8496,3 +8496,27 @@ nmd我也蓝字了，88刀塔东野魁梧我来了
 
 今年会出两个新英雄吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Avantasi  
+##### 39924#       发表于 2022-10-27 22:29
+
+今年期待一波卡登
+
+*****
+
+####  aruruu  
+##### 39925#       发表于 2022-10-27 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58135735&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-27 21:57</a>
+有漏油知道进了国服之后文字变星号在哪里改文件整回去吗
+
+特效绿血我倒是知道了：
+
+打开:\Steam\steamapps\co ...</blockquote>
+没效果怎么办，模型是未和谐的，但是血魔大是绿色，pa暴击喷石油
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
