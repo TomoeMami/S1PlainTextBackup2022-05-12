@@ -8570,3 +8570,19 @@ nmd我也蓝字了，88刀塔东野魁梧我来了
 
 —— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  solmyrli  
+##### 39931#       发表于 2022-10-27 22:43
+
+今天上线本来想打两把，结果进了加速模式都是两边互推的拿至宝的……<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+*****
+
+####  VT1996  
+##### 39932#       发表于 2022-10-27 22:43
+
+鱼塘感觉最强的还是中单畜，到处游泳。
+

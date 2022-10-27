@@ -9045,3 +9045,21 @@ ns版和steam版内容一样吗？
 ns版和steam版内容一样吗？</blockquote>
 win版更新完之后应该是一样？话说我ns版还在路上我不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qwerasdfzxcv101  
+##### 765#       发表于 2022-10-27 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56736765&amp;ptid=2007124" target="_blank">nagitoY 发表于 2022-7-21 16:43</a>
+
+想问一下
+
+轻国翻译的[にゃるら]承认欲求女子图鉴～社交媒体上的问题女孩～epub版 在哪下载？</blockquote>
+以前是有的。
+
+[https://pan.baidu.com/s/17ug7OLbCz_dkqrCdDx2gYQ](https://pan.baidu.com/s/17ug7OLbCz_dkqrCdDx2gYQ)
+
+1111
+

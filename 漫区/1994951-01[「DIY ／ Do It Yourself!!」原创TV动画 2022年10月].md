@@ -3157,3 +3157,18 @@ Do It Yourself!!
 
 最后自行车那段谁画的 好叼啊
 
+
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 252#       发表于 2022-10-27 22:44
+
+ 本帖最后由 嘴上名作粉碎锤 于 2022-10-27 22:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123614&amp;ptid=1994951" target="_blank">バーチャルS1er 发表于 2022-10-27 10:20</a>
+
+这次NC-Raws的CR源怎么没中文字幕了？中间布丁和乔布斯讨论机器人意识还有电池那里有点听不懂了 ...</blockquote>
+CR源的中文一般是阿B港澳台那边扒过来的……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">CR本身就是英文站啊
+
+sweetsub已经出了翻译版本了，翻得也还算准确吧，你去看看
+

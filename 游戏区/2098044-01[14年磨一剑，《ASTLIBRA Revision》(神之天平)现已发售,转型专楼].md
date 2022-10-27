@@ -11778,3 +11778,14 @@ wiki看不懂日文可以对着装备数值去找
 
 二周目主角:淦老子就是要用爆,老子就是要不付出任何代价拯救所有人<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六至九  
+##### 1078#       发表于 2022-10-27 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133654&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-27 20:02</a>
+不，新章的装备盘里有个新被动，就是用无限钥匙替换嘉隆的鼻子。</blockquote>
+这我知道，只是想说后面要开的箱子太多了
+
