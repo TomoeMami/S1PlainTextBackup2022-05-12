@@ -227,3 +227,12 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 原来每个职阶找个50单体自充打手都那么困难......
 
+
+
+*****
+
+####  qixinno2  
+##### 43657#       发表于 2022-10-27 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">毕竟也就这两年才几乎五星人手一个自充 
+

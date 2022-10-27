@@ -892,3 +892,12 @@ PC大屏听歌对味，AA快下池
 
 另外佛爷蛮王风枪这几个强力输出跟水风拐都随便搭配，也不需要光来组属性
 
+
+
+*****
+
+####  qyc96  
+##### 97#       发表于 2022-10-27 21:46
+
+这游戏氪金上限太离谱了吧，一个sr就那么贵了居然还能升上ur和lr<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">真的离谱
+

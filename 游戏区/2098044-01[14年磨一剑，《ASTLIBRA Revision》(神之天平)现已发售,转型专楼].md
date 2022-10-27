@@ -11714,3 +11714,17 @@ wiki看不懂日文可以对着装备数值去找
 实在太缺钱了，打到第五章，天平上了金钱获取和金钱获取强依然穷疯了，有法子刷钱吗？ ...</blockquote>
 卖宝石
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 1073#       发表于 2022-10-27 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58135302&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-27 21:32</a>
+
+实在太缺钱了，打到第五章，天平上了金钱获取和金钱获取强依然穷疯了，有法子刷钱吗？ ...</blockquote>
+为啥会缺钱，感觉像是刷得不够多
+
+实在不行把家院子里那块石头打了吧，10w血量
+
