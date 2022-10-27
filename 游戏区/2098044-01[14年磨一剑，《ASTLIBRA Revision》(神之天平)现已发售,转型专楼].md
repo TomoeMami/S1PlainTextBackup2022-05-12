@@ -11473,3 +11473,25 @@ wiki看不懂日文可以对着装备数值去找
 掉过俩金箱子，打开一看属性卡</blockquote>
 不对，应该是优先出图纸，出完图纸才出这些消耗品。
 
+
+
+*****
+
+####  walfeds  
+##### 1051#       发表于 2022-10-27 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124283&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-27 10:57</a>
+
+不对，应该是优先出图纸，出完图纸才出这些消耗品。</blockquote>
+出完图纸前会出卡的
+
+*****
+
+####  Sannapolis  
+##### 1052#       发表于 2022-10-27 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124283&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-27 10:57</a>
+
+不对，应该是优先出图纸，出完图纸才出这些消耗品。</blockquote>
+不是一定出图纸，我第六章刷到还差最后一把传武设计图（雷神锤妙尔尼尔）时，就试过金箱子开出属性卡。
+

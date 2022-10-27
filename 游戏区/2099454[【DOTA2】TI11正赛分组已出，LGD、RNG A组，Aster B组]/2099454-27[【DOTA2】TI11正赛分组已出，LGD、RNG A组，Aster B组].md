@@ -2542,3 +2542,140 @@ nga那贴跟小作文有啥区别。直接写成pua monster，完美顺应刻板
 处长今年的表演被og的yuragi给碾压了。 那把虚空打出来ame梦寐以求的高度。</blockquote>
 仙贝dpc也有一把罩大队友的虚空
 
+
+
+*****
+
+####  北条早苗  
+##### 39282#       发表于 2022-10-27 11:12
+
+只能说今年的舞台不够大，a畜今年打红龙的虚空都没油垃圾的那个虚空含畜度高
+a畜是被发条戏耍，油垃圾那是少放个大招og都赢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ck4pa  
+##### 39283#       发表于 2022-10-27 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124427&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-27 11:04</a>
+
+第二年混个季军要说是真吃版本红利的
+
+ti9赛季前半水厂突出一个划，要么fy手术要么眉笔结婚，出去打比赛成 ...</blockquote>
+但查猪不是说ti9反而夺冠希望比ti8高？说当时lgd训练赛乱杀og,那一年不是fy玉玉回家局三连送拉比克，说不定还真能带处长又夺一亚
+
+*****
+
+####  火鸡味锅巴  
+##### 39284#       发表于 2022-10-27 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124597&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-27 11:11</a>
+
+仙贝dpc也有一把罩大队友的虚空</blockquote>
+dpc集美日常说成施舍与整活
+
+*****
+
+####  勤练带来力量  
+##### 39285#       发表于 2022-10-27 11:13
+
+赶紧踢了猴爹，曾焦阳今年打完退役茶正愁找不到中单呢，集美们还真以为是处长在c<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 39286#       发表于 2022-10-27 11:13
+
+假赛缩壳 奥运小黑 上山虚空 施舍两把 主打三观 皮套炒作 OP营业 点赞清算 孤胆CK 绝活小鱼 粘妈隐刺 以前还能在西恩刀塔的葬礼上用唢呐吹出屁声，今年在通往最大舞台得路上就已经婊演不动了
+
+*****
+
+####  北欧王座  
+##### 39287#       发表于 2022-10-27 11:13
+
+ 本帖最后由 北欧王座 于 2022-10-27 11:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">最后找半天说lgd备战就不行，结合八王截图，说明四个人早尼玛无心备战了，好似喵。跟哥哥打开摆就完事了。打到最后这畜生直接送，你有啥办法？白忙活。不如享受生活。对一切跟哥哥打最后玉玉的兄弟表示理解和支持。千言万语化成一句话，别搞那么厉害，跟别人一样神一把鬼一把，让畜牲老龟拖着你们走
+
+*****
+
+####  我前期那么肥  
+##### 39288#       发表于 2022-10-27 11:14
+
+假赛缩壳 奥运小黑 上山虚空 施舍两把 主打三观 皮套炒作 OP营业 点赞清算 孤胆CK 绝活小鱼 粘妈隐刺 以前还能在西恩刀塔的葬礼上用唢呐吹出屁声，今年在通往最大的舞台得路上就已经婊演不动了
+
+*****
+
+####  nowaki  
+##### 39289#       发表于 2022-10-27 11:14
+
+越想越觉得今年雪碧太可惜了，悟到4号位pom就能走很远，只要队里有人能出怨灵之契解放崩溃，他们团战能力强这一点就能无限发挥，真的缺一个面八这样的痔将好吧。
+
+*****
+
+####  tasuku  
+##### 39290#       发表于 2022-10-27 11:14
+
+清算有啥啊，洗什么
+
+都是喝ru水的老干瘪杂毛
+
+统统都该清算！
+
+*****
+
+####  bluebaby  
+##### 39291#       发表于 2022-10-27 11:15
+
+和红龙那场的虚空真的不比t锅tb差，什么逃到一半突然采灵芝还想tp被断，对面上高我去采灵芝还把虚空大交一个能买活的发条，然后和发条斗智斗勇那段真的精彩，发条以为geigei要回家，在远古旁边放齿轮想断一下，结果geigei不走了搁那打远古了没弹到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还点缀有死活不卖魔棒买出冰眼，跳进去开疯脸一秒倒，各种切镜头看队友守高然后继续打钱，真的很草
+
+*****
+
+####  我前期那么肥  
+##### 39292#       发表于 2022-10-27 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124660&amp;ptid=2099454" target="_blank">bluebaby 发表于 2022-10-27 11:15</a>
+
+和红龙那场的虚空真的不比t锅tb差，什么逃到一半突然采灵芝还想tp被断，对面上高我去采灵芝还把虚空大交一 ...</blockquote>
+他不大发条的话那波有百分之60概率被杀，我没记错的话是没有bkb的，宙斯给他一个雷云他就要被发条弄死了
+
+*****
+
+####  星野航  
+##### 39293#       发表于 2022-10-27 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124607&amp;ptid=2099454" target="_blank">ck4pa 发表于 2022-10-27 12:12</a>
+
+但查猪不是说ti9反而夺冠希望比ti8高？说当时lgd训练赛乱杀og,那一年不是fy玉玉回家局三连送拉比克，说不 ...</blockquote>
+ti9当时是查猪坐起来打+霉憋状态很好的时间，而赢了他们不少次的vg当时是被砍了中单核推进体系一套的。打起来的时候我就感觉vg不好打。
+
+但打李逵回家局也不好全怪林森吧，仙贝那把不是犯罪虚空么
+
+*****
+
+####  seki_m  
+##### 39294#       发表于 2022-10-27 11:17
+
+快进到掀背《无耻的队友》
+
+*****
+
+####  bluebaby  
+##### 39295#       发表于 2022-10-27 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124702&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-27 11:16</a>
+他不大发条的话那波有百分之60概率被杀，我没记错的话是没有bkb的，宙斯给他一个雷云他就要被发条弄死了
+
+ ...</blockquote>
+是他跳上去找发条开大的，他直接跳走发条未必先手到他的
+
+*****
+
+####  我前期那么肥  
+##### 39296#       发表于 2022-10-27 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124729&amp;ptid=2099454" target="_blank">bluebaby 发表于 2022-10-27 11:18</a>
+
+是他跳上去找发条开大的，他直接跳走发条未必先手到他的</blockquote>
+那就卜清楚了，导播切过去的时候刚好看他放了个大 然后边上有宙斯雷云
+
