@@ -4351,3 +4351,26 @@ switch 上有类似的游戏吗求推荐
 就是不能拿箭头和戒指？被动留一格这样？但是感觉这样很难坚持到后期 ...</blockquote>
 被动完全不影响糖果盒，超级糖果盒和运气挂钩，但5掉落宝箱必出超级糖果盒
 
+
+
+*****
+
+####  sfqjsml  
+##### 405#       发表于 2022-10-27 08:23
+
+ 本帖最后由 sfqjsml 于 2022-10-27 08:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58115487&amp;ptid=2052594" target="_blank">方舟失智博士 发表于 2022-10-26 19:36</a>
+
+我战绩里面就差女王了
+
+我看图鉴收藏里是121/126 我知道的有一个是圣文字➕魔盒合成的超武里面 圣文字没有  ...</blockquote>
+想要解锁女皇,玩家需要拥有全部收藏,
+
+(全部收藏“Collection”,而非全部解锁/成就“Unlocks/Achievement”),
+
+但是,不需要拥有女皇本身的初始武器“胜利之剑”和它的进化版本“唯一解/Sole Solution”,以及进化的糖果盒“超级糖果盒/Super Candybox II Turbo” ,阿瓦达的初始武器“恶咒火焰/Flames of Misspell”和它的进化“穆斯佩尔的骨灰/Ashes of Muspell”
+
+(这五个收藏,只有当它们被玩家发现后,才会加入收藏,并直接显示为已解锁)
+
+满收藏是131，你应该还差5个才能解锁女王
+

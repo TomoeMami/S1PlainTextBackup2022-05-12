@@ -11357,3 +11357,17 @@ wiki看不懂日文可以对着装备数值去找
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  黒長直姫  
+##### 1041#       发表于 2022-10-27 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121437&amp;ptid=2098044" target="_blank">红烧肉 发表于 2022-10-27 05:33</a>
+
+好奇怪，明明我一周目黑的爱情拿了，白也是完美魔王城，面包娘也救了。但是貌似只有2个爱情，也没拿到武器 ...</blockquote>
+傻孩子一定是把爱情合成礼物放天平了吧
+
+就算是真的少也没事的 新章能刷 量产 爱情可真廉价啊
+
