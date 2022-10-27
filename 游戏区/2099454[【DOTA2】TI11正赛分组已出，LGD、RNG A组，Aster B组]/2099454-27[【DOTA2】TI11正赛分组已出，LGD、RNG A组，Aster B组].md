@@ -3207,3 +3207,111 @@ au还没切割？
 
 双畜狂喜
 
+
+
+*****
+
+####  DDWarrior  
+##### 39355#       发表于 2022-10-27 12:33
+
+有没有lxo界前十来说一下，这周末水厂的线下观赛还办不办，要怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  isla  
+##### 39356#       发表于 2022-10-27 12:33
+
+这下管人痴了
+
+*****
+
+####  上古TITAN  
+##### 39357#       发表于 2022-10-27 12:33
+
+话说除了你楼和sg还有能讨论的地方么，感觉其它地方味儿都太冲了
+
+*****
+
+####  反方向的波  
+##### 39358#       发表于 2022-10-27 12:34
+
+asoul三圣毕业 老干瘪3号位退役
+
+*****
+
+####  poipanchao  
+##### 39359#       发表于 2022-10-27 12:34
+
+这下管人痴能说话了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格雷殿下  
+##### 39360#       发表于 2022-10-27 12:37
+
+双畜狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+感觉这些CSDX越来越像手游里的双畜了
+
+
+
+*****
+
+####  我前期那么肥  
+##### 39361#       发表于 2022-10-27 12:38
+
+经典sg都不黑a畜了
+
+<img src="https://img.saraba1st.com/forum/202210/24/002557zpov2zupeo2wki5j.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 39362#       发表于 2022-10-27 12:39
+
+nowaki b站头像装扮就是嘉然，估计已经下单了
+
+*****
+
+####  反方向的波  
+##### 39363#       发表于 2022-10-27 12:40
+
+是时候让余韵知道社区真正的力量了
+关注
+多闻广目天尊
+级别:学徒 威望:1 发帖:610
+-
+她无非就是想在白人那边塑造一个拳殖一体的形象
+把fb当跳板进入所谓的白人圈子
+与其说她图谋fb的钱，我更觉得她是借dota的影响力想做点什么
+这个时候能给她致命一击的只有她自爆过的真实内容
+然后毁了他在白鬼那边的印象
+白鬼最忌惮什么不用我说了吧
+2分钟前
+点赞3
+
+*****
+
+####  Quark  
+##### 39364#       发表于 2022-10-27 12:41
+
+zsn0624
+级别:学徒威望:1发帖:291
+-
+所以大赛前ame主动分手那是真的有点东西
+2022-10-27 12:09
+
+*****
+
+####  Litccc  
+##### 39365#       发表于 2022-10-27 12:41
+
+想去asoul专楼找找乐子，一进去就看到你楼被截图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 39366#       发表于 2022-10-27 12:41
+
+想去asoul专楼找找乐子，一进去就看到你楼被截图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
