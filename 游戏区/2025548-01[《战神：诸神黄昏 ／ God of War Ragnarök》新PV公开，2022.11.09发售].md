@@ -7909,3 +7909,12 @@ Eric刚刚在PS4上第三次通关本作，和前作一样稳定的30帧，但�
 另外看到b站有个剧透建模的视频，不知道真假，成年的boy和奎爷年轻时挺像。 ...</blockquote>
 求个链接，之前也看过一个成年boy的建模但是评论说是假的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古凌锋  
+##### 839#       发表于 2022-10-27 16:53
+
+话说这游戏是11月9日几点发售啊？
+
