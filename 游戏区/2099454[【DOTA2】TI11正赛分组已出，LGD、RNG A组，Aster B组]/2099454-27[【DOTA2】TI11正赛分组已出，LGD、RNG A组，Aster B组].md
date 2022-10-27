@@ -7561,3 +7561,102 @@ A畜和maybe再组队想想就恶心啊
 
 不是nga全在清算魁梧神，我还是没看懂魁梧神干嘛了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。谁给我复盘一下，我理解处长需要人分担火力，但一开始不是瑞达坑了处长吗，魁梧怎么入场的
 
+
+
+*****
+
+####  nowaki  
+##### 39825#       发表于 2022-10-27 19:22
+
+ 本帖最后由 nowaki 于 2022-10-27 19:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58132916&amp;ptid=2099454" target="_blank">ckming 发表于 2022-10-27 19:19</a>
+
+不是nga全在清算魁梧神，我还是没看懂魁梧神干嘛了啊。谁给我复盘一下，我理解处长需要人分担火力， ...</blockquote>
+[https://tieba.baidu.com/p/8105873026](https://tieba.baidu.com/p/8105873026)
+
+[https://tieba.baidu.com/p/8105997142](https://tieba.baidu.com/p/8105997142)
+https://nga.178.com/read.php?tid=34009290
+
+*****
+
+####  acacaclove  
+##### 39826#       发表于 2022-10-27 19:25
+
+青蒜高华还用问干什么了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ckming  
+##### 39827#       发表于 2022-10-27 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58132973&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-27 12:22</a>
+
+https://tieba.baidu.com/p/8105873026
+
+https://tieba.baidu.com/p/8105997142</blockquote>
+不是怎么感觉像nga自娱自乐啊。。。lgd打aster时冲进休息室真像nga小作文那味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 感觉集美是没活可整了
+
+*****
+
+####  nowaki  
+##### 39828#       发表于 2022-10-27 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133043&amp;ptid=2099454" target="_blank">ckming 发表于 2022-10-27 19:26</a>
+
+不是怎么感觉像nga自娱自乐啊。。。lgd打aster时冲进休息室真像nga小作文那味 感觉集美是没活可整 ...</blockquote>
+不是很简单的水厂断后路么
+
+把脏水往德张身上泼，现在你要是半年后去欧洲找队，那就是坐实卖国贼坑哥哥，你要是装死退役，等明年哥哥输了还能让集美怀念你一下。
+
+*****
+
+####  ckming  
+##### 39829#       发表于 2022-10-27 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133027&amp;ptid=2099454" target="_blank">acacaclove 发表于 2022-10-27 12:25</a>
+
+青蒜高华还用问干什么了吗</blockquote>
+这跟去年“清算vpgame需要理由吗”没区别，本质上是为了给处长分担火力拉出来的。faithbian那女朋友谈多久了，vpgame也收多久菜了，平时带处长赢了就岁月静好，输了拉出来清算，恶心至极
+
+*****
+
+####  nowaki  
+##### 39830#       发表于 2022-10-27 19:30
+
+<blockquote>​不是，这么简单的道理，谁菜青蒜谁啊。
+
+哭笑我一个铁血AME黑，这次LGD我都不想多说AME了，因为这次TI AME发挥是真的尽力了。
+
+XINQ发挥也中规中矩，还有亮点。
+
+莫言一直就是这样的发挥，这次稍微拉点下限，
+
+青蒜的对象无非就是35,5的视野是真的拉胯中的拉胯。
+
+唯一能够青蒜的为什么变成3了呢？
+
+厨中厨的表现，加上那么多场外的戏，以及退役发言。
+
+如果这次三号位力中暴力，像AME那样，能够拯救队伍，谁没事带上他和那个拳女，都只会说大鞭哥退役才是正常的，一堆A黑，包括我来青蒜AME。
+
+问题是，这次三号位连做个人的表现都没了，对比其他队伍的三号位表现，就这种发挥，还有脸润德，还有脸发退役宣言？
+
+脸都不要了，不青蒜你青蒜谁？
+
+所有选手的被青蒜，都是发挥不好。
+
+ANA双冠王又如何，这次TI的表现还不是被青蒜的明明白白。
+
+就算有招魂的WINGS护体，这种表现，加上这么多破事，不青蒜你大鞭哥和你的拳女友，青蒜谁呢？
+
+或者说，本来很多人早就看不惯了，但是你大鞭哥一路扛着队伍走，哪怕来一出CEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEB的发挥，大家都会过去了，替你不值。
+
+说白了，电子竞技，菜是原罪。</blockquote>
+
+*****
+
+####  Cookiekira  
+##### 39831#       发表于 2022-10-27 19:30
+
+上线看了下正好打了10把可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

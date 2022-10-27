@@ -14038,3 +14038,72 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 2022-10-27 19:14 上传
 
+
+
+*****
+
+####  ruffian  
+##### 8771#       发表于 2022-10-27 19:20
+
+woc这是可可吗？这个少年感woc，她还能有这种风格吗woc
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  stygian  
+##### 8772#       发表于 2022-10-27 19:20
+
+录歌时候死都不告知后面剧情，这是在diss运营吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 8773#       发表于 2022-10-27 19:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">藏机票是吧
+
+*****
+
+####  qty  
+##### 8774#       发表于 2022-10-27 19:22
+
+看惯了茶发色，突然换回黑发还真有点不习惯
+
+*****
+
+####  甘蓝巧克力  
+##### 8775#       发表于 2022-10-27 19:24
+
+这个特典的可可好清爽，给我一个这样的可c啊kora
+
+*****
+
+####  stygian  
+##### 8776#       发表于 2022-10-27 19:24
+
+笑死，一堆不会念的
+
+*****
+
+####  lj205  
+##### 8777#       发表于 2022-10-27 19:25
+
+现场装风扇
+
+草，又让她念超长信<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 8778#       发表于 2022-10-27 19:26
+
+告知了歌就录不下去（
+
+*****
+
+####  lj205  
+##### 8779#       发表于 2022-10-27 19:27
+
+好棒的可可，想要……但是不想买这垃圾动画<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
