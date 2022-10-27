@@ -82,3 +82,20 @@ elisa邀请赛有ence老鼠fnc，说不定还会有g2，加上设备的a队也�
 
 至于实力，A队想好好出成绩那几个新人和设备都不是主要问题，X9什么时候走才是关键
 
+
+
+*****
+
+####  rrtyui  
+##### 2639#       发表于 2022-10-27 20:25
+
+设备远离赛场这么久了居然一点爆料都没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+最靠谱的传闻居然是被nip管理层绿了就很离谱<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  liva  
+##### 2640#       发表于 2022-10-27 20:27
+
+。。、帖子顶上来我以为在说这次的荣呢，原来只是设备回家了
+
