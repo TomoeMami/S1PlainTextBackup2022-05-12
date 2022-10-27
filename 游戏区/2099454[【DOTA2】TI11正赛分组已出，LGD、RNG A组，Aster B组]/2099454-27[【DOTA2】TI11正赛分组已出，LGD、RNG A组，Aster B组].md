@@ -3163,3 +3163,47 @@ au还没切割？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">集美这太监味儿是真的愈发浓厚了
 
+
+
+*****
+
+####  walfeds  
+##### 39349#       发表于 2022-10-27 12:23
+
+双畜狂喜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 39350#       发表于 2022-10-27 12:25
+
+意思是lgd也要变4人团
+
+*****
+
+####  nowaki  
+##### 39351#       发表于 2022-10-27 12:25
+
+双畜狂喜
+
+*****
+
+####  人別離苦  
+##### 39352#       发表于 2022-10-27 12:26
+
+3号位好滚<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 39353#       发表于 2022-10-27 12:29
+
+双畜狂喜
+
+*****
+
+####  越动天下  
+##### 39354#       发表于 2022-10-27 12:32
+
+双畜狂喜
+

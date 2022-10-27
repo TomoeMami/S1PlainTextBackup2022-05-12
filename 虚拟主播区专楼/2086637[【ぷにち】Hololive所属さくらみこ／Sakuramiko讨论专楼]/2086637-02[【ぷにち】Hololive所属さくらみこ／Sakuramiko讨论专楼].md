@@ -11672,3 +11672,17 @@ ai画的究极缝合怪八字母<img src="https://static.saraba1st.com/image/smi
 
 这个比不会吧，一般涂装就算了战损都喜欢，这下真的掉进大坑了
 
+
+
+*****
+
+####  rs5621  
+##### 2618#       发表于 2022-10-27 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123135&amp;ptid=2086637" target="_blank">Scardy 发表于 2022-10-27 09:49</a>
+跟别人撞✘
+跟peko贴贴✔</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">起飞！
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

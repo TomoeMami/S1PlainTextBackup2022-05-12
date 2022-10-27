@@ -11515,3 +11515,21 @@ wiki看不懂日文可以对着装备数值去找
 
 幸运低的话就会没出图纸先出卡 体感50点数幸运加上农完当前盘的幸运话就必出图纸了
 
+
+
+*****
+
+####  Sannapolis  
+##### 1055#       发表于 2022-10-27 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124949&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-27 11:29</a>
+啊，那看来是我幸运点得高？我都是出完图纸才出其它的。</blockquote>
+推图时我都是尽量幸运拉满的，第六章面板幸运没低过400，但金银箱子出率很低（剧情推到拿到四颗石头可以开门了才拿到一张图纸）而且还有金箱子不出图纸出属性卡的情况，当时我都怀疑是不是游戏出bug导致箱子和图纸出率特别低了
+
+*****
+
+####  quanlix  
+##### 1056#       发表于 2022-10-27 12:29
+
+我幸运加点40，饰品20，该不出还是不出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

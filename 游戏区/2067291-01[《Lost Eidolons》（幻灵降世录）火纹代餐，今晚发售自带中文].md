@@ -2476,3 +2476,17 @@ LE剧情很简单，秦末楚汉的中世纪换皮，但玩起来很有趣，主
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  inf91  
+##### 204#       发表于 2022-10-27 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123327&amp;ptid=2067291" target="_blank">tand177 发表于 2022-10-27 10:01</a>
+
+这确实没意识到，那那些出城兵是会追着那一个人跑还是回救啊
+
+  -- 来自 能看大图的 Stage1官方 Android客 ...</blockquote>
+我打的时候是只有三个人去追，剩下的都去正门找大部队了
+
