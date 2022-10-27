@@ -807,3 +807,23 @@ Amazon Prime Video 有七天试用，一次播完的话白嫖应该就够用了 
 
 —— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Piano-Forest  
+##### 63#         楼主| 发表于 2022-10-27 21:23
+
+[https://m.weibo.cn/1622008051/4829249717148507](https://m.weibo.cn/1622008051/4829249717148507)
+
+万代《假面骑士 BlackSun》 「CSM 世纪王Sun Driver」（CSM 変身ベルト 世紀王サンドライバー）腰带宣传片，搭载CSM史上第一款完全自动变形玩法，售价44000日元，预计2023年3月发售
+
+「CSM 変身ベルト 世紀王サンドライバー」商品PV（ショートver.）公開
+
+自動変形ギミックにご注目ください
+
+▼YouTubeでは西島秀俊さんもご登場するロングver.も公開中！
+[https://youtu.be/nJcgKe7f4zA](https://youtu.be/nJcgKe7f4zA)
+<img src="https://p.sda1.dev/8/d8e3012feefb445c5665c50e0af3febf/20221027_211644.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/afff7b24c252aaf82891f8ec4cb9aba2/20221027_211703.jpg" referrerpolicy="no-referrer">
+
