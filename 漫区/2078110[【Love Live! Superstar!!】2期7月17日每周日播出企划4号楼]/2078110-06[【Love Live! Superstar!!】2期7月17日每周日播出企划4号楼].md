@@ -14288,3 +14288,30 @@ key visual实在拉跨。。。本来想着出来了隔壁头像就换掉的你�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">甘　え　ん　な
 
+
+
+*****
+
+####  stygian  
+##### 8803#       发表于 2022-10-27 20:05
+
+她 们 急 了
+
+*****
+
+####  ViyViy  
+##### 8804#       发表于 2022-10-27 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我在担心会不会G店这个专人特典把看板娘手办代替了，有……这个可能吗？毕竟现在都没消息。
+
+*****
+
+####  lj205  
+##### 8805#       发表于 2022-10-27 20:07
+
+ 本帖最后由 lj205 于 2022-10-27 20:12 编辑 
+
+合鲤这爆表的默契度
+
+但是我想看鲤鱼被整啊<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+

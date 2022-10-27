@@ -7834,3 +7834,13 @@ Ti后: 拳狮亩钩 红颜祸水 恶贯满盈 罪不容诛
 
 现在不用破费沃德了，直接复制一个steam快捷方式改成蒸汽平台专门启动国服，另一个快捷方式用来启动外服和其他游戏
 
+
+
+*****
+
+####  ckming  
+##### 39848#       发表于 2022-10-27 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133111&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-27 12:30</a></blockquote>
+感觉就是处长送少了啊，要是打bc那把斧王处长多送几次输了，明辨就是站着死了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
