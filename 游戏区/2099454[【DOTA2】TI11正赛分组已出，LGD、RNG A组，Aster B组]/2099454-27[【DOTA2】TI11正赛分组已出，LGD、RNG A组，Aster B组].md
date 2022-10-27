@@ -836,3 +836,104 @@ PA至宝的烂点在占了武器位
 
 哇，QQ群里全是清算女人了，好他妈傻逼啊
 
+
+
+*****
+
+####  火鸡味锅巴  
+##### 39090#       发表于 2022-10-27 08:53
+
+疯狂星期四，不需要50，doto至宝带回家！快说，谢谢g胖。
+
+
+
+*****
+
+####  Litccc  
+##### 39091#       发表于 2022-10-27 08:54
+
+ 本帖最后由 Litccc 于 2022-10-27 08:55 编辑 
+
+真就疯狂星期四<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宙斯和拉比克至宝比较好，这两个一个贵一个特效多，nga那个清算贴都1k+赞了
+
+*****
+
+####  nowaki  
+##### 39092#       发表于 2022-10-27 08:54
+
+最好的ti！
+
+*****
+
+####  acg_s1  
+##### 39093#       发表于 2022-10-27 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121999&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-27 08:31</a>
+
+是有点想选拉比克了，虽然喜欢PA但是至宝两根大刀总觉得怪怪的，比小强的爪子还长也叫刺客
+
+怎么福袋 ...</blockquote>
+好像有个bug，送的地精和tb的至宝里的宝石可以提出来卖，在修复中
+
+*****
+
+####  中已矣  
+##### 39094#       发表于 2022-10-27 08:55
+
+我说错了么？阿灵顿rng1号位和其他队友脱节，打天梯匹配也就算了，比赛打哑巴dota真不如不打。
+
+反正有些人惯常会贴标签嘴在他们自己身上随便他们。怎么没把读博那几句也一起放着呢，不是还队形了么。
+
+另外阿灵顿也是PGL怎么没这么拉。
+
+*****
+
+####  lyjssj  
+##### 39095#       发表于 2022-10-27 08:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴吧扒到两张图
+
+上帝能带妹打ti，我鞭哥为啥不行
+
+<img src="https://img.saraba1st.com/forum/202210/27/085708q2x50xzu165qx55x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5B47303E-7449-420D-99AC-0584254382C0.jpeg</strong> (78.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 08:57 上传
+
+<img src="https://img.saraba1st.com/forum/202210/27/085708onbygnsusdf2dnf4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>806775C3-B506-4C62-AEDA-4D5F828DFAE5.jpeg</strong> (190.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 08:57 上传
+
+*****
+
+####  我前期那么肥  
+##### 39096#       发表于 2022-10-27 09:00
+
+还得是你这种敢做不敢当的a畜儿子丢人现眼，不知道还以为喷这个楼不支持lgd都是不爱国的是别人
+
+*****
+
+####  TI三冠王AME  
+##### 39097#       发表于 2022-10-27 09:00
+
+卜懂就问，nowaki旁边的是他的男朋友吗
+
+*****
+
+####  walfeds  
+##### 39098#       发表于 2022-10-27 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58122305&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-27 08:58</a>
+
+贴吧扒到两张图
+
+上帝能带妹打ti，我鞭哥为啥不行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次就问了，厨子是不是真骨科
+

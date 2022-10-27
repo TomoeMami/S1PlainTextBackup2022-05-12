@@ -11386,3 +11386,17 @@ wiki看不懂日文可以对着装备数值去找
 
 前面谭友说的大地铠我有印象，估计大概率应该是盘子漏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 1043#       发表于 2022-10-27 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58122001&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-27 08:31</a>
+
+多谢
+
+前面谭友说的大地铠我有印象，估计大概率应该是盘子漏了</blockquote>
+对着wiki旧版的装备图鉴找吧 不用管名字直接看数值就行 没什么变动的
+
