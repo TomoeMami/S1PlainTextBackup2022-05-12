@@ -8428,3 +8428,71 @@ nmd我也蓝字了，88刀塔东野魁梧我来了
 
 太监论坛已经不适合了，应该叫野种论坛
 
+
+
+*****
+
+####  nightmare902015  
+##### 39916#       发表于 2022-10-27 22:02
+
+一想到ti打完冰女又要被狂削，我的心就绞痛。
+
+*****
+
+####  勤练带来力量  
+##### 39917#       发表于 2022-10-27 22:03
+
+有本事再砍冰女10点基础移速<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 39918#       发表于 2022-10-27 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58135479&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-27 21:41</a>
+
+原来智畜已经打完丹畜了，小畜生主系列动画什么时候死啊</blockquote>
+不是才刚一换一吗
+
+*****
+
+####  nowaki  
+##### 39919#       发表于 2022-10-27 22:04
+
+一想到玛西大畜会被削的妈都认不得，我就很开心
+
+*****
+
+####  Asukalangley33  
+##### 39920#       发表于 2022-10-27 22:05
+
+冲在线人数可以，能不能先和兄弟们商量一下啊？
+
+这蓝字我玩NM，在线也瞬间掉20W<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  acacaclove  
+##### 39921#       发表于 2022-10-27 22:06
+
+马西真的是出生啊
+
+我就25分钟扣了个bkb，能抓这对面大哥提<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+这还是我第一把马西
+
+*****
+
+####  反方向的波  
+##### 39922#       发表于 2022-10-27 22:07
+
+所以趁这几天要多玩儿谷爱凌
+当然要削弱冰女最核心的还是把两个技能施法距离爆砍
+
+*****
+
+####  tengshuo980  
+##### 39923#       发表于 2022-10-27 22:08
+
+今年会出两个新英雄吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
