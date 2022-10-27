@@ -8520,3 +8520,53 @@ nmd我也蓝字了，88刀塔东野魁梧我来了
 
 —— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  哈曼的YY  
+##### 39926#       发表于 2022-10-27 22:32
+
+昨天也被马西大锤打爆了 这两玩意咋对策啊
+
+*****
+
+####  你可以试试  
+##### 39927#       发表于 2022-10-27 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58136296&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-27 22:30</a>
+
+没效果怎么办，模型是未和谐的，但是血魔大是绿色，pa暴击喷石油
+
+—— 来自 HONOR LGE-AN00, Android 12 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">忘了说了，这方法只有国际服有效，现在要用这东西是因为一旦登过国服它就会在文件里给你打标记，就算切回国际服也还是和谐的模型和特效
+
+我现在的问题是切回国际服也一堆星号但不知道改哪里了
+
+*****
+
+####  六娃  
+##### 39928#       发表于 2022-10-27 22:37
+
+老逼都知道反和谐只要没有外星人码就只能打mod了
+
+*****
+
+####  IG.430  
+##### 39929#       发表于 2022-10-27 22:39
+
+ 本帖最后由 IG.430 于 2022-10-27 22:40 编辑 
+
+以前的各种正规反和谐码在国际服应该都有用吧
+
+*****
+
+####  aruruu  
+##### 39930#       发表于 2022-10-27 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58136366&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-27 22:33</a>
+忘了说了，这方法只有国际服有效，现在要用这东西是因为一旦登过国服它就会在文件里给你打标记， ...</blockquote>
+我现在就在国际服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，删4行代码，删lv文件夹都没用
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
