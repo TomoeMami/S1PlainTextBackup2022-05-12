@@ -937,3 +937,83 @@ PA至宝的烂点在占了武器位
 上帝能带妹打ti，我鞭哥为啥不行</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次就问了，厨子是不是真骨科
 
+
+
+*****
+
+####  一品堂官  
+##### 39099#       发表于 2022-10-27 09:03
+
+说拉比克宙斯好的是不是都有pa冰女至宝的萨特
+或者是gay<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+妈的想玩c就选pa影魔tb！<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  反方向的波  
+##### 39100#       发表于 2022-10-27 09:03
+
+<blockquote>   再别说了 第三把不是fy47分钟那波 带着队友强追猴子 lgd已经3比1冠军了
+
+我刚看了那把比赛 所有解说都说水人这把不好打 ame讲道理还是发挥挺好的了 lgd数次能拿下比赛 锅谁都有 就像前几天李逵破3路被翻盘一样 事后诸葛亮谁都会做 但是真要分锅 5个人谁都有犯罪镜头 </blockquote>
+
+*****
+
+####  nowaki  
+##### 39101#       发表于 2022-10-27 09:04
+
+厨子女朋友韩国的
+
+*****
+
+####  二宮飛鳥酱  
+##### 39102#       发表于 2022-10-27 09:04
+
+哦牛的，要不是这水人XJB出装会打到47分钟<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  我前期那么肥  
+##### 39103#       发表于 2022-10-27 09:07
+
+WG的carry Yamsun离队了
+
+*****
+
+####  银翼的维罗西  
+##### 39104#       发表于 2022-10-27 09:07
+
+集美是受了什么刺激，一大早急着来送吗
+
+*****
+
+####  夏溪澪mio  
+##### 39105#       发表于 2022-10-27 09:09
+
+ti决赛前不黑v社
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 39106#       发表于 2022-10-27 09:10
+
+哦牛批超级脑残论坛那帖都1300赞了，期待一个查出来发现是sg小作文的可能性<img src="https://p.sda1.dev/8/c004a1141eec2a9e9f1e6cc99df5ea9c/091733tecblqbvvvvbc2mv.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 39107#       发表于 2022-10-27 09:12
+
+今年能不能决赛前公布点大的，类似DOTA2世界观新游戏那种
+
+*****
+
+####  resorry  
+##### 39108#       发表于 2022-10-27 09:12
+
+dota2版碧蓝档案是吧
+
