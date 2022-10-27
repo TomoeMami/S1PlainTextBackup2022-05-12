@@ -5912,3 +5912,148 @@ misha和bzm最好锁一辈子
 
 黑帮指头2.0版本
 
+
+
+*****
+
+####  星野航  
+##### 39654#       发表于 2022-10-27 16:31
+
+我倒想真看看李逵经理怎么个说法，太监写小作文有一手的，突出一个我先占领舆论高地的作派，倒是跟他们舔的giegie的作风非常一致
+
+*****
+
+####  樱冢名月  
+##### 39655#       发表于 2022-10-27 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">zai看下来也神畜二象性的。只能期待偿还了。
+
+*****
+
+####  walfeds  
+##### 39656#       发表于 2022-10-27 16:31
+
+造垚被揭穿纯属好似
+
+*****
+
+####  usoda  
+##### 39657#       发表于 2022-10-27 16:32
+
+zai没有持久性的 超过30分钟的局基本就自动变成第六人了
+
+*****
+
+####  walfeds  
+##### 39658#       发表于 2022-10-27 16:33
+
+nowaki和不开心尾巴也最好锁一辈子
+
+*****
+
+####  Asukalangley33  
+##### 39659#       发表于 2022-10-27 16:35
+
+一个从来不玩DOTA的撸狗朋友QQ告诉我今天V社送至宝
+
+是不是说明这个活动很出圈啊？
+
+他不跟我说我都不知道这事，DOTA项目组怕是请了新的市场负责人
+
+以前那群CSDX打死也不可能这么大方<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 39660#       发表于 2022-10-27 16:35
+
+walfeds和不开心尾巴也最好锁一辈子
+
+
+
+*****
+
+####  jk9hot  
+##### 39661#       发表于 2022-10-27 16:35
+
+3贴太监后面补的是战队成员工作牌，森哥辛苦了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  星野航  
+##### 39662#       发表于 2022-10-27 16:35
+
+zai其实是被“透支”最明显的，md只能说遇人不淑，zai要是没有那么早信了ppd的话跑去eg蹉跎两年，跟着og吃喝说不定更早的时间就冠了 
+
+*****
+
+####  IG.430  
+##### 39663#       发表于 2022-10-27 16:39
+
+<[img src="https://s1.ax1x.com/2022/10/27/xfL0PS.jpg" referrerpolicy="no-referrer">
+
+眼位1 天辉插看夜魇主野区眼，夜魇了看肉山
+
+<[img src="https://s1.ax1x.com/2022/10/27/xfLD2Q.jpg" referrerpolicy="no-referrer">
+
+眼位2 看TI看到的。虽然只能看到一个野点，但真的很隐蔽。
+
+<[img src="https://s1.ax1x.com/2022/10/27/xfOrFK.jpg" referrerpolicy="no-referrer">
+
+眼位4 三角区眼，最早是看丁聪直播学的
+
+<[img src="https://s1.ax1x.com/2022/10/27/xfXE01.jpg" referrerpolicy="no-referrer">
+
+眼位5 跟眼位4类似思路
+
+<[img src="https://s1.ax1x.com/2022/10/27/xfOfeI.jpg" referrerpolicy="no-referrer">
+
+眼位6 这个眼我20年就在用，至今仍然能活很久...
+
+<[img src="https://s1.ax1x.com/2022/10/27/xfXQ6H.jpg" referrerpolicy="no-referrer">
+
+眼位7 徐林森直播喜欢出门放个高台眼，插这比插在兵线大野高台难反，还能杀鸡，控野区也够用。
+
+<[img src="https://s1.ax1x.com/2022/10/27/xfXhjJ.jpg" referrerpolicy="no-referrer">
+
+眼位8 上高眼，但最近这个眼没前两个月好活了
+
+综上，高台眼，我劝你多插，花里胡哨的屁用没有。
+
+*****
+
+####  反方向的波  
+##### 39664#       发表于 2022-10-27 16:40
+
+好呀好呀，都不上班的是吧
+
+*****
+
+####  nowaki  
+##### 39665#       发表于 2022-10-27 16:41
+
+<blockquote>我觉得小王人都麻了呀
+
+今年力中暴力换了个个人历史最差名次，人家也不是没有过女朋友。对比余韵这个作精，陆老师当年合影的时候还欠身回谢粉丝真的太好了。我给你们保证faithbian肯定会被甩了，这种精致的利己主义者发现你无法给她带来好处的时候会立马切割。第一天LGD发挥不好的时候，她直接什么都没说退了faithbian的群。希望八师傅好好劝小王，想打就组个能拼的班子。小王要是真的累了，退役也行</blockquote>
+
+*****
+
+####  樱冢名月  
+##### 39666#       发表于 2022-10-27 16:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草了，都滚蛋了，怎么还有这么多水厂节奏的，烂成这样了还不装死，还在找场外因素，这司马集美真是按都按不住，明年是不是仙贝90%高烧一身性病，十几种病毒在身都坚持打比赛，太努力了，呜呜呜，真的在侮辱本届因为新冠导致遗憾的选手们。
+
+*****
+
+####  adretyu67  
+##### 39667#       发表于 2022-10-27 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58130127&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-27 16:31</a>
+
+我倒想真看看李逵经理怎么个说法，太监写小作文有一手的，突出一个我先占领舆论高地的作派，倒是跟他们舔的 ...</blockquote>
+小作文最好奇就是量子鞭他女友直接冲进休息室撕逼。
+
+他在现场吗？怎么看的那么清楚的。
+
