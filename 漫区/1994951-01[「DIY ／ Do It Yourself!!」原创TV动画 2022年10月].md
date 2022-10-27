@@ -3206,3 +3206,16 @@ sweetsub已经出了翻译版本了，翻得也还算准确吧，你去看看
 
 别再deep learning了
 
+
+
+*****
+
+####  三杉酸宁碱  
+##### 257#       发表于 2022-10-28 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58138182&amp;ptid=1994951" target="_blank">亚瑟邓特 发表于 2022-10-28 00:34</a>
+三牛老师的拉片http://b23.tv/zx2LeBQ
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+这视频做挺好的
+
