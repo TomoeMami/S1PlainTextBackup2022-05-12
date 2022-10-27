@@ -3041,3 +3041,12 @@ https ...</blockquote>
 
 这次NC-Raws的CR源怎么没中文字幕了？中间布丁和乔布斯讨论机器人意识还有电池那里有点听不懂了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NZ-333  
+##### 244#       发表于 2022-10-27 13:32
+
+job子的英语黏黏的好舒服ww
+
