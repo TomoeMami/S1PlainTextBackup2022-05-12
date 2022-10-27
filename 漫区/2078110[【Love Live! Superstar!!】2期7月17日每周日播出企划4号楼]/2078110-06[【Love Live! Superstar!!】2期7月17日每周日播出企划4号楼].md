@@ -13799,3 +13799,16 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">黑发真的好美，像夜空中的星星一样
 
+
+
+*****
+
+####  ads147147  
+##### 8748#       发表于 2022-10-27 14:50
+
+单纯的人身体不适吧。之前还说青山是小百合的backup，结果实际上倒过来了。
+
+但是不就有可香了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
