@@ -1913,3 +1913,112 @@ hkdoll怎么不来支持下哥哥
 
 情商还在小黑屋坐牢，宝儿已经开始发帖了，这就是s1
 
+
+
+*****
+
+####  星野航  
+##### 39209#       发表于 2022-10-27 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123647&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-27 11:21</a>
+
+https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2096246&amp;page=25&amp;authorid=537503
+
+这个？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对啊，上来什么女方可以走啊
+
+什么女性觉得阿梓跟萧瑟这帅一男的谈了不亏，太弱智了
+
+*****
+
+####  恐怖利刃  
+##### 39210#       发表于 2022-10-27 10:23
+
+PENTAX-DA        禁止发言        2022-11-25 01:21        2022-10-26 01:21        爱聊原神 [https://bbs.saraba1st.com/2b/for ... 40&amp;pid=58099772](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2101440&amp;pid=58099772)
+
+
+
+*****
+
+####  百世诸侯  
+##### 39211#       发表于 2022-10-27 10:24
+
+但女性这边大多认为能跟萧瑟这么帅的男人谈一段恋爱，阿梓被甩了也不亏
+
+*****
+
+####  OVTVO  
+##### 39212#       发表于 2022-10-27 10:24
+
+我已经迫不及待的想看到今年中国队长夺冠，明年小明鞭为了替女友出头，在[A]队组织银河战舰，勇夺TI冠军，集美被两位中国队长刺激后疯狂举办DOTO2，最终引爆Steam<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 39213#       发表于 2022-10-27 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦草，还有这种角度
+
+*****
+
+####  johnwick  
+##### 39214#       发表于 2022-10-27 10:25
+
+多少有点逆天了
+
+*****
+
+####  jk9hot  
+##### 39215#       发表于 2022-10-27 10:26
+
+去液体还不如去踢望，为🐒区带来第一冠
+顺便泡走ana的妹妹
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  我前期那么肥  
+##### 39216#       发表于 2022-10-27 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123750&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-27 10:26</a>
+
+去液体还不如去踢望，为🐒区带来第一冠
+
+顺便泡走ana的妹妹
+
+论坛助手,iPhone</blockquote>
+为啥你回复我这边就收到提醒，我另外一个号也是这样
+
+*****
+
+####  12481632  
+##### 39217#       发表于 2022-10-27 10:29
+
+可惜皮套坦克切割的早而且很彻底，不然青蒜的比润德狠多了
+
+*****
+
+####  adretyu67  
+##### 39218#       发表于 2022-10-27 10:31
+
+至今无法理解真的有人会对皮套人动情吗？
+
+*****
+
+####  反方向的波  
+##### 39219#       发表于 2022-10-27 10:31
+
+我觉得小王人都麻了呀
+关注
+还想再睡一夏
+级别:警告等级1 威望:-1 发帖:1798
+
+今年力中暴力换了个个人历史最差名次，人家也不是没有过女朋友。对比余韵这个作精，陆老师当年合影的时候还欠身回谢粉丝真的太好了。我给你们保证faithbian肯定会被甩了，这种精致的利己主义者发现你无法给她带来好处的时候会立马切割。第一天LGD发挥不好的时候，她直接什么都没说退了faithbian的群。希望八师傅好好劝小王，想打就组个能拼的班子。小王要是真的累了，退役也行。
+
+*****
+
+####  Litccc  
+##### 39220#       发表于 2022-10-27 10:32
+
+ 至今无法理解真的有人会对皮套人动情吗？
+
