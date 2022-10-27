@@ -5708,3 +5708,51 @@ a厨的意思是普森要打的话愿意和普森打
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Litccc  
+##### 39631#       发表于 2022-10-27 15:53
+
+ 本帖最后由 Litccc 于 2022-10-27 15:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129343&amp;ptid=2099454" target="_blank">不羁的傻风 发表于 2022-10-27 15:44</a>
+
+问个问题，7 8年没开客户端的臭傻逼现在回坑，想补一下现有版本眼还有一些思路的知识，问一下有啥推荐的视 ...</blockquote>
+看直播比较好，现在版本变得太快视频时效性实在不行，虽然经常发攻略的faith_bian和yatoro已经回家了，不过他俩的英雄攻略还是可以看看的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  憧憬鲨  
+##### 39632#       发表于 2022-10-27 15:54
+
+顺便一问有没有适合新手入门的育婴教程，我目前是想收集一个cty打钱攻略合集拿来**新入坑的朋友
+
+*****
+
+####  jk9hot  
+##### 39633#       发表于 2022-10-27 15:59
+
+乐了，太监论坛爆料的小号在原贴下午喷翻译去美国贴吧的脑瘫
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  不羁的傻风  
+##### 39634#       发表于 2022-10-27 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129473&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-27 15:50</a>
+
+地图实际上很久没有大改了，很多2020年的眼位现在还能用  
+
+练英雄可以看一下b站量子鞭和sccc的视频，yato ...</blockquote>
+感谢告知。
+
+*****
+
+####  勤练带来力量  
+##### 39635#       发表于 2022-10-27 16:00
+
+新手入门你能整个五黑班子育婴让新手玩大哥是效果最好的，光看教学视频没用
+
