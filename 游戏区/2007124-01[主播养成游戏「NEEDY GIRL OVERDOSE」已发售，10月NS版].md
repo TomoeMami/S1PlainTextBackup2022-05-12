@@ -9021,3 +9021,16 @@ win版凌晨更新
 
 中文直播还行。
 
+
+
+*****
+
+####  harukage  
+##### 763#       发表于 2022-10-27 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58127640&amp;ptid=2007124" target="_blank">roxassix 发表于 2022-10-27 14:04</a>
+win版凌晨更新
+
+非常感谢各位耐心的等待</blockquote>
+ns版和steam版内容一样吗？
+

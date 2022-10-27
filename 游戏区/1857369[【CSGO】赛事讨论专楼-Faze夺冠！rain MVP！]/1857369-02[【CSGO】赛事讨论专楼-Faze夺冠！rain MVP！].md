@@ -56,3 +56,18 @@ IEM北京，取消了
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  iam_hcl  
+##### 2637#       发表于 2022-10-27 18:20
+
+<blockquote>朔方原的星 发表于 2022-10-27 16:28
+不知道showdown有没有阵容锁定来着
+
+反正这回是只能明年干回来了
+
+哦不对，还可以打个A级邀请赛练练 ...</blockquote>
+elisa邀请赛有ence老鼠fnc，说不定还会有g2，加上设备的a队也不敢说稳赢这些
+

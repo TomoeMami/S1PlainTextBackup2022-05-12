@@ -7269,3 +7269,71 @@ ti8ig虽然成绩不好，但是boboka那时候前期节奏很好。
 
 能当GA肯定水淹蚂蚁洞啊，儿时的快乐加上大人的快乐，想想都高兴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  walfeds  
+##### 39793#       发表于 2022-10-27 18:23
+
+Whitemon也润了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wzy200912345  
+##### 39794#       发表于 2022-10-27 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58131921&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-27 18:13</a>
+
+近日，Spirit战队的经理Korb3n接受了采访，他谈到了对V社目前运营DOTA2的态度，并对下赛季东欧联赛可能被取 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">懒狗社只要别核弹扔到西雅图和夏威夷这种事他都懒得管
+
+*****
+
+####  TI三冠王AME  
+##### 39795#       发表于 2022-10-27 18:26
+
+BoBoKa在神庙中祈祷
+ <blockquote>科林斯卫城上的雄伟神庙是供奉阿芙罗狄忒。根据大多数资料，神庙内奉养了超过一千名庙妓，因此后世的基督徒都指科林斯是一个非常堕落的地方。该城以它爱神庙的**而闻名，为居住和旅行该城的富裕商人和有权势的官员提供服务。</blockquote>
+
+*****
+
+####  我前期那么肥  
+##### 39796#       发表于 2022-10-27 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58132116&amp;ptid=2099454" target="_blank">wzy200912345 发表于 2022-10-27 18:24</a>
+懒狗社只要别核弹扔到西雅图和夏威夷这种事他都懒得管</blockquote>
+该update了，现在是新西兰
+
+*****
+
+####  哈萨维·诺亚  
+##### 39797#       发表于 2022-10-27 18:28
+
+鳖神庙
+
+*****
+
+####  反方向的波  
+##### 39798#       发表于 2022-10-27 18:28
+
+鳖神庙
+
+*****
+
+####  walfeds  
+##### 39799#       发表于 2022-10-27 18:28
+
+神女是吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  没钱买手办  
+##### 39800#       发表于 2022-10-27 18:28
+
+[f:067怎么没有组织队友看科比纪录片学习曼巴精神
+
