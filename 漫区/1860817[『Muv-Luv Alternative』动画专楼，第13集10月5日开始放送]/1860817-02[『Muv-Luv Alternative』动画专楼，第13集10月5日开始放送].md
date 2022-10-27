@@ -24,3 +24,14 @@
 
 看完三集电锯人之后更加深刻地认识到这边声优的换代可以算是平稳落地了
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1957#       发表于 2022-10-27 15:15
+
+基本和上周预测的节奏差不多。以开车结束本集。猜想下一集会不会直接把闯大学实验室偷电的情节跳过，开头就是白银穿越回去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
