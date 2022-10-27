@@ -2809,3 +2809,79 @@ ti9就算过了液体真能打过og吗，我感觉不用厨子出手，前期普
 
 想多了，集美永远能找放屁角度，去年假赛大水的时候不就看过了？
 
+
+
+*****
+
+####  roxas.sora  
+##### 39311#       发表于 2022-10-27 11:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">所以说切入这活是天赋。。。。。。。。。真的练不出来的，不会对线可以去双人路让辅助帮，不会切入就只能玩a地板的英雄，选择会很受限
+
+*****
+
+####  苏沃雷生  
+##### 39312#       发表于 2022-10-27 11:34
+
+核弹们当年撑死了也就队友不给力窃听风云内战王什么的，集美们能整出这么多花活清算到这一环，属实是青出于蓝了
+
+*****
+
+####  我前期那么肥  
+##### 39313#       发表于 2022-10-27 11:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+小组赛最后一天经济输出比刷到0.8几了，淘汰赛一开始又跌到0.73 而且从第三晋级到了第一，真牛啊
+
+<img src="https://img.saraba1st.com/forum/202210/27/113605exuotbtto0se2b0z.jpg" referrerpolicy="no-referrer">
+
+<strong>da51bd9fff240abbb7dfd236893f69e543336874.jpg</strong> (69.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 11:36 上传
+
+*****
+
+####  勤练带来力量  
+##### 39314#       发表于 2022-10-27 11:37
+
+ 本帖最后由 勤练带来力量 于 2022-10-27 11:42 编辑 
+
+今天nga集美不是表演过了吗，六神大哥一波团打96点伤害无伤大雅，但是队友不带粉是÷中÷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我一直觉得这就是集美清算生涯的缩影，处长考30分是哥哥已经尽力了，队友考90那为什么不多考10分不就满分了呢铁出生坑我哥哥
+
+*****
+
+####  我前期那么肥  
+##### 39315#       发表于 2022-10-27 11:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124981&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-27 11:31</a>
+
+想多了，集美永远能找放屁角度，去年假赛大水的时候不就看过了？</blockquote>
+来了来了。看录像bug发现没显示小精灵的过载，然后：
+
+<img src="https://img.saraba1st.com/forum/202210/27/114125zqv7wzpvtiiitqrt.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221027114019.png</strong> (10.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 11:41 上传
+
+*****
+
+####  usoda  
+##### 39316#       发表于 2022-10-27 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124906&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-27 11:27:08</a>
+其实仔细看完补水视频里仙贝虚空表演有个共通性。
+
+仙贝很喜欢单罩大提酱油。
+
+其实这就是仙贝一生的写照， ...</blockquote>还有喜欢瞎几把跳 太监论坛还有吹仙贝是用虚空魔晶用得最好的人 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 之前跳死在小林的滚滚手上那次没把我笑死
+
+ -- 傲娇地来自 Stage1未知客户端
+
