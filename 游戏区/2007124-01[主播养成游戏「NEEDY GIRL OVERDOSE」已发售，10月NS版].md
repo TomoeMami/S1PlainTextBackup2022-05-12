@@ -9063,3 +9063,14 @@ win版更新完之后应该是一样？话说我ns版还在路上我不到啊<im
 
 1111
 
+
+
+*****
+
+####  harukage  
+##### 766#       发表于 2022-10-28 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58135497&amp;ptid=2007124" target="_blank">roxassix 发表于 2022-10-27 21:42</a>
+win版更新完之后应该是一样？话说我ns版还在路上我不到啊</blockquote>
+PV里没提到独占内容，游戏本体应该是一样的，不同的地方可能是实体有特典吧
+

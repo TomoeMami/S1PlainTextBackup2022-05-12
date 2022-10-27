@@ -8930,3 +8930,33 @@ A畜要清算 高华也要清算 这才算健全
 
 回国服第一把就遇到随机敌法师出先锋祭品、中单主烧屠夫狂送TA、第五手PA出大毒雷锤说我辅助，我玩NM<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  seki_m  
+##### 39968#       发表于 2022-10-28 00:43
+
+集美们就选择性无视那把a杖末日和暴毙小鱼是吧
+
+*****
+
+####  非建政专用号  
+##### 39969#       发表于 2022-10-28 00:45
+
+哥们淹死在东南亚大泥潭了，看不懂英语也不知道国际友人在骂什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 39970#       发表于 2022-10-28 00:48
+
+之前发条a杖刷新技能，哥们用这个有中路在东南亚掌控雷电，说实话东南亚整蛊也挺厉害的，一喷队友就开始猴叫。
+
+*****
+
+####  为了mf注册  
+##### 39971#       发表于 2022-10-28 00:50
+
+晚上连输四把，我玩nm啊！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

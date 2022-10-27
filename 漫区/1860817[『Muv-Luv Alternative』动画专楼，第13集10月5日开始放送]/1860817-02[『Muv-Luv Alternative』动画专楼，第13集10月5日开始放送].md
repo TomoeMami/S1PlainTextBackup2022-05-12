@@ -81,3 +81,12 @@
 
 纯夏<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">日记的场景每次看都是泪目，从此不管后面遇到再大的恶意我都是坚定的纯夏党，要是这画面能再精致一点就好了
 
+
+
+*****
+
+####  镜hinata  
+##### 1962#       发表于 2022-10-28 00:46
+
+这日记部分好像ef<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
