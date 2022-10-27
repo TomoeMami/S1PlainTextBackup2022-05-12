@@ -11645,3 +11645,19 @@ ai画的究极缝合怪八字母<img src="https://static.saraba1st.com/image/smi
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  holoan  
+##### 2615#         楼主| 发表于 2022-10-27 10:00
+
+公众人物也不注意一点形象<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 2616#         楼主| 发表于 2022-10-27 10:04
+
+你硬要说有关联的话就是剧场版里面亚丝娜那个唐突的にぇ了
+
