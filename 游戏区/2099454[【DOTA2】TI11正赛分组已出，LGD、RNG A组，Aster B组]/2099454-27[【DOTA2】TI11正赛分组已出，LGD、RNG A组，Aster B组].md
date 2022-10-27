@@ -8960,3 +8960,15 @@ A畜要清算 高华也要清算 这才算健全
 
 晚上连输四把，我玩nm啊！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  苏沃雷生  
+##### 39972#       发表于 2022-10-28 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58137165&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-27 23:21</a>
+突然发现，现在集美这套“我是老a黑”的话术真的跟一些梅西粉丝帆船的那套“皇马球迷留”太像了
+不 ...</blockquote>
+首先我不是保安
+

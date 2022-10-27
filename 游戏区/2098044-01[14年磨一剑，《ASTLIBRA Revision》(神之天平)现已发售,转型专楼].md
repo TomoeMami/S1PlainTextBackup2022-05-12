@@ -11959,3 +11959,16 @@ wiki看不懂日文可以对着装备数值去找
 后面哪章还有个挑战送更高级 ...</blockquote>
 30级也打不了那个罐子吗，都第六章了
 
+
+
+*****
+
+####  redsouris  
+##### 1090#       发表于 2022-10-28 01:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58138360&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-28 00:52</a>
+30级也打不了那个罐子吗，都第六章了</blockquote>
+开狂暴打啊，狂暴都打不动你攻击就该堆一下了
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
