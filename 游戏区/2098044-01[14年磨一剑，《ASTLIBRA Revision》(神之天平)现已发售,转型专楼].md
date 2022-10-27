@@ -11789,3 +11789,26 @@ wiki看不懂日文可以对着装备数值去找
 不，新章的装备盘里有个新被动，就是用无限钥匙替换嘉隆的鼻子。</blockquote>
 这我知道，只是想说后面要开的箱子太多了
 
+
+
+*****
+
+####  五块  
+##### 1079#       发表于 2022-10-27 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58136054&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-27 22:15</a>
+
+我也过了，靠的是大精灵法杖，无限把他们打浮空。。
+
+然后在打木桶那卡了，输出不够
+
+ ...</blockquote>
+木桶还能输出不够吗？狂暴烈火风精灵施十秒一个啊……
+
+*****
+
+####  baizhi  
+##### 1080#       发表于 2022-10-27 23:20
+
+问一下，那个魔王城的魔王是我打开的方式不对吗？怎么还能召唤之前的boss的，这boss才3万血，召唤物1万血，怎么打得完。。。打到后面怪越来越多，用凭借技的无敌都挡不住。。。<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+

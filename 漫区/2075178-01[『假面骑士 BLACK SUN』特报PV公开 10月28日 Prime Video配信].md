@@ -838,3 +838,39 @@ Amazon Prime Video 有七天试用，一次播完的话白嫖应该就够用了 
 
 —— 来自 Xiaomi 22021211RC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  高斯与格林  
+##### 65#       发表于 2022-10-27 23:18
+
+nyaa有人放了第一集
+
+—— 来自 Xiaomi POCO F2 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ichthys  
+##### 66#       发表于 2022-10-27 23:19
+
+居然是剧集，我还以为是电影
+
+*****
+
+####  Piano-Forest  
+##### 67#         楼主| 发表于 2022-10-27 23:20
+
+全10集已上线
+<img src="https://p.sda1.dev/8/a0cd297614771d8437d2cf71c38751e8/20221027_231639.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/84361ef23de982512391e6699db3dc2c/20221027_231641.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 68#         楼主| 发表于 2022-10-27 23:20
+
+[MagicStar] Kamen Rider Black Sun EP01 [WEBDL] [1080p] [AMZN] [ENG_CHT_SUB]
+
+magnet:?xt=urn:btih:027b12322434ade126974253448a11d74372b370
+

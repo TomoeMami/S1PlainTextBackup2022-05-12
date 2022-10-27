@@ -8625,3 +8625,32 @@ nmd我也蓝字了，88刀塔东野魁梧我来了
 
 现在的规则是国服码覆盖优先级最高（不清楚和外星人码哪个高），只要进过国服就是终生和谐
 
+
+
+*****
+
+####  恐怖利刃  
+##### 39935#       发表于 2022-10-27 23:17
+
+<img src="https://img.saraba1st.com/forum/202210/27/231750dash7gh7r7y2gaaa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A0A79426-C6B4-40A9-88E0-446EA70A6D92.jpeg</strong> (353.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 23:17 上传
+
+*****
+
+####  lyjssj  
+##### 39936#       发表于 2022-10-27 23:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然是中午的新闻，但是已经过时了
+
+*****
+
+####  你可以试试  
+##### 39937#       发表于 2022-10-27 23:20
+
+呃呃，管人恶心恶心，管人吃司个马
+
