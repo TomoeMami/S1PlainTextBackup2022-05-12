@@ -4424,3 +4424,16 @@ switch 上有类似的游戏吗求推荐
 
 这角色有超武吗？
 
+
+
+*****
+
+####  otakun  
+##### 410#       发表于 2022-10-27 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58127281&amp;ptid=2052594" target="_blank">thest 发表于 2022-10-27 13:38</a>
+感谢
+
+这角色有超武吗？</blockquote>
+有，跟西格玛女皇一样练满武器之后跟盒子一起进化超武
+

@@ -4566,3 +4566,140 @@ a畜是这样的，早上来一个a畜也是这样，锐评了半天被我点出
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">我就Ti会看比赛，平时都在玩走廊娱乐图，Ti6后客户端都没有了，我为什么被挂都不知道啊，你们挂人也得点评两句吧，我真不知道现在刀塔生态是咋样的
 
+
+
+*****
+
+####  IG.430  
+##### 39504#       发表于 2022-10-27 14:33
+
+想体验边睡觉边打dota的感觉的话我建议你手io呢
+
+*****
+
+####  我前期那么肥  
+##### 39505#       发表于 2022-10-27 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128022&amp;ptid=2099454" target="_blank">lilisipis 发表于 2022-10-27 14:32</a>
+
+我就Ti会看比赛，平时都在玩走廊娱乐图，Ti6后客户端都没有了，我为什么被挂都不知道啊，你们挂人也 ...</blockquote>
+你不知道锐评个什么东西？ 云比赛还洗a畜被挂不正常？
+
+ <blockquote>chunyu可能是ti6后成绩最好的cn选手了，不知道为什么这么恨 要说小狗不开魔免水人反向波送掉冠军 ，那换个人也不一定能打到决赛局不是，总感觉亚军比一轮游还可恨的心态不太对</blockquote>
+
+*****
+
+####  星野航  
+##### 39506#       发表于 2022-10-27 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128022&amp;ptid=2099454" target="_blank">lilisipis 发表于 2022-10-27 15:32</a>
+
+我就Ti会看比赛，平时都在玩走廊娱乐图，Ti6后客户端都没有了，我为什么被挂都不知道啊，你们挂人也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不懂比赛为何如此自信锐评
+
+上来就萧瑟cn第一了，何出此言啊
+
+*****
+
+####  二宮飛鳥酱  
+##### 39507#       发表于 2022-10-27 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128022&amp;ptid=2099454" target="_blank">lilisipis 发表于 2022-10-27 14:32</a>
+
+我就Ti会看比赛，平时都在玩走廊娱乐图，Ti6后客户端都没有了，我为什么被挂都不知道啊，你们挂人也 ...</blockquote>
+你不知道锐评个什么东西？ 云比赛还洗a畜被挂不正常？
+
+*****
+
+####  哈曼的YY  
+##### 39508#       发表于 2022-10-27 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128022&amp;ptid=2099454" target="_blank">lilisipis 发表于 2022-10-27 14:32:56</a>
+我就Ti会看比赛，平时都在玩走廊娱乐图，Ti6后客户端都没有了，我为什么被挂都不知道啊，你们挂人也得点评 ...</blockquote>莫言这届打的差我是真不懂你什么意思啊
+
+【YLG必看！10分钟带你了解阿梓分手事件中的男方Ame的风评在刀圈为何如此特殊？-哔哩哔哩】 [https://b23.tv/dH2Nu82](https://b23.tv/dH2Nu82)
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nowaki  
+##### 39509#       发表于 2022-10-27 14:38
+
+论ti的话，王蠢鱼还有8个队友成绩和他一样都是亚军呢，以及ti7newbee还有5个亚军，
+
+论major，老vg ig 老lgd 新lgd都有冠军，王蠢鱼成绩不比别人好，云就挨打
+
+*****
+
+####  星野航  
+##### 39510#       发表于 2022-10-27 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128012&amp;ptid=2099454" target="_blank">银翼的维罗西 发表于 2022-10-27 15:32</a>
+
+理性讨论，管人痴楼要清算刀狗楼算不算敌我同源狗咬狗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">清算之日直接打出大阪拒绝者信者的身份就好了
+
+
+
+*****
+
+####  bluebaby  
+##### 39511#       发表于 2022-10-27 14:38
+
+给楼友一个我感觉很能混的新选择，术士。
+两级就钻树林念剧变，近战c遇到了很恶心
+
+*****
+
+####  银翼的维罗西  
+##### 39512#       发表于 2022-10-27 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58128022&amp;ptid=2099454" target="_blank">lilisipis 发表于 2022-10-27 14:32</a>
+
+我就Ti会看比赛，平时都在玩走廊娱乐图，Ti6后客户端都没有了，我为什么被挂都不知道啊，你们挂人也 ...</blockquote>
+有外野那个被扣千鹅的不懂刑法又锐评货拉拉案的滚刀带律师那味了
+
+*****
+
+####  lilisipis  
+##### 39513#       发表于 2022-10-27 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ti6后cn不是没冠军了嘛，那不就是亚军队成绩最好
+
+*****
+
+####  morwhipppo  
+##### 39514#       发表于 2022-10-27 14:39
+
+看不懂比赛没关系，多买两个键盘支持一下giegie，到时候giegie上你推的皮套tank时也算你出了份力
+
+*****
+
+####  星野航  
+##### 39515#       发表于 2022-10-27 14:39
+
+<img src="https://img.saraba1st.com/forum/202210/27/153925bwdp0kscwprrlxde.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (85.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 14:39 上传
+
+何意啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  我前期那么肥  
+##### 39516#       发表于 2022-10-27 14:39
+
+亚军有14个，然后挑一个最菜的出来 成绩最好，还得是你啊
+
+*****
+
+####  银翼的维罗西  
+##### 39517#       发表于 2022-10-27 14:40
+
+Nowaki率先下跪，管人痴们快快跟进
+
