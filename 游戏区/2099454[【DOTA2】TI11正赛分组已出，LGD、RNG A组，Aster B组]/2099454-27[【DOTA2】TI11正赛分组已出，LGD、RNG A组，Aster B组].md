@@ -2885,3 +2885,73 @@ ti9就算过了液体真能打过og吗，我感觉不用厨子出手，前期普
 
  -- 傲娇地来自 Stage1未知客户端
 
+
+
+*****
+
+####  勤练带来力量  
+##### 39317#       发表于 2022-10-27 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58125173&amp;ptid=2099454" target="_blank">usoda 发表于 2022-10-27 11:42</a>
+还有喜欢瞎几把跳 太监论坛还有吹仙贝是用虚空魔晶用得最好的人  之前跳死在小林的滚滚手上那次没把 ...</blockquote>
+k1大神阳了第一把打老干瘪都有虚空被动先手跳出去再魔晶跳回来原地大三个的场面
+
+*****
+
+####  反方向的波  
+##### 39318#       发表于 2022-10-27 11:46
+
+魔女狩猎2000赞了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  OVTVO  
+##### 39319#       发表于 2022-10-27 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58125086&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-27 11:36</a>
+
+小组赛最后一天经济输出比刷到0.8几了，淘汰赛一开始又跌到0.73 而且从第三晋级到了第一，真牛啊
+
+ ...</blockquote>
+Puppey给我看乐了
+
+*****
+
+####  IG.430  
+##### 39320#       发表于 2022-10-27 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58125173&amp;ptid=2099454" target="_blank">usoda 发表于 2022-10-27 11:42</a>
+还有喜欢瞎几把跳 太监论坛还有吹仙贝是用虚空魔晶用得最好的人  之前跳死在小林的滚滚手上那次没把 ...</blockquote>
+yatoro小组赛也干了，跳高台反眼被秒控然后上山<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  TIZI  
+##### 39321#       发表于 2022-10-27 11:49
+
+k1那个虚空残血bkb跳出去再回来大3个的操作是giegie做的集美估计又要扣到发炎
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tasuku  
+##### 39322#       发表于 2022-10-27 11:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">k1那个是割割做出来的操作能吹到dota2关服好吧
+
+*****
+
+####  反方向的波  
+##### 39323#       发表于 2022-10-27 11:50
+
+<img src="https://p.sda1.dev/8/627d3a79e07e2ca0a3b8bb0d9e77eb5d/CMP_20221027115029336.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 39324#       发表于 2022-10-27 11:51
+
+nga真的是。还想请洋大人裁决是吧
+

@@ -13728,3 +13728,15 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 不是新冠最好，梅开二度的话得long covid的概率直线上升……
 
+
+
+*****
+
+####  ruffian  
+##### 8742#       发表于 2022-10-27 11:49
+
+希望只是单纯的身体不适吧，感冒什么的也挺麻烦……
+人有时候就事是会好好的突然没来由的病一场，硬要说什么病怎么病的也查不出来，但就是难受得很（大前天刚经历过<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
