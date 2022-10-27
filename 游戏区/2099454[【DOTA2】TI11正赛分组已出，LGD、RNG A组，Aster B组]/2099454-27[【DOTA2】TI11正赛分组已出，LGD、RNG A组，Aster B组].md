@@ -7135,3 +7135,28 @@ rng全员转阴了</blockquote>是不是也要在新加坡过年了
 
 核心是silent跟miposhka这俩就没想好自己的组合搭配，一手狗把自己选歪，对面一抢兽王直接到点    
 
+
+
+*****
+
+####  morwhipppo  
+##### 39781#       发表于 2022-10-27 18:06
+
+A畜最近和面八又是赌场又是海鲜都没阳，是不是更能证明rng是被潘飞投毒了
+
+*****
+
+####  sodah  
+##### 39782#       发表于 2022-10-27 18:08
+
+意思是RNG这就不玩了？A畜和泰迪再次组队那可太有乐子了。
+
+*****
+
+####  walfeds  
+##### 39783#       发表于 2022-10-27 18:09
+
+上班摸鱼一整周没比赛看真的无聊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">垃圾赛程
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

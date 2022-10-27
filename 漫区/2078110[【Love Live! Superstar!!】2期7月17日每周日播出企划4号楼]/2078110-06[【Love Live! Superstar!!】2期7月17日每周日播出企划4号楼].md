@@ -13887,3 +13887,32 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">就算读信应该也跟动画本身关系不那么大了吧，这几期广播多少有点折磨的
 
+
+
+*****
+
+####  优妮可  
+##### 8756#       发表于 2022-10-27 18:03
+
+<img src="https://img.saraba1st.com/forum/202210/27/180343q99945561vg4gck8.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221027_180217_com.twitter.android_edit_24884826260785.jpg</strong> (62.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 18:03 上传
+
+*****
+
+####  优妮可  
+##### 8757#       发表于 2022-10-27 18:04
+
+不知道是什么新情报
+
+*****
+
+####  稀勢のささ  
+##### 8758#       发表于 2022-10-27 18:05
+
+希望能整点团建小视频看看
+

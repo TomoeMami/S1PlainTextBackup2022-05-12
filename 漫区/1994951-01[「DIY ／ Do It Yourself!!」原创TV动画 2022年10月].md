@@ -3050,3 +3050,12 @@ https ...</blockquote>
 
 job子的英语黏黏的好舒服ww
 
+
+
+*****
+
+####  CharlieZ-  
+##### 245#       发表于 2022-10-27 18:10
+
+感觉diy的演出和孤独摇滚是两个极端，但观感都出奇的好，不过坏处就是讨论度差点意思<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

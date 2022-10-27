@@ -1149,3 +1149,12 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 久弥直树阴魂不散<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  memo2  
+##### 712#       发表于 2022-10-27 18:12
+
+久弥怎么又滚回来了啊……之前说只负责两集原来是骗人的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
