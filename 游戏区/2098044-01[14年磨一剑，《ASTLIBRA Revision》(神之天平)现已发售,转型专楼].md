@@ -11812,3 +11812,17 @@ wiki看不懂日文可以对着装备数值去找
 
 问一下，那个魔王城的魔王是我打开的方式不对吗？怎么还能召唤之前的boss的，这boss才3万血，召唤物1万血，怎么打得完。。。打到后面怪越来越多，用凭借技的无敌都挡不住。。。<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  后会莫急  
+##### 1081#       发表于 2022-10-27 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58136237&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-27 22:27</a>
+
+打新章中,首先我是主角的话一定要用天平回去再打一遍梦神,cnm又让老子走八年
+
+顺便</blockquote>
+因为有两个天平，一周目的力量不够需要付出代价，二周目穿越二合一了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

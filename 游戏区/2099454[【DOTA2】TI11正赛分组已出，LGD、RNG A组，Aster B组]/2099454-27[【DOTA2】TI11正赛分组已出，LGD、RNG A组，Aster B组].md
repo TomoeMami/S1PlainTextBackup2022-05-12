@@ -8654,3 +8654,68 @@ nmd我也蓝字了，88刀塔东野魁梧我来了
 
 呃呃，管人恶心恶心，管人吃司个马
 
+
+
+*****
+
+####  星野航  
+##### 39938#       发表于 2022-10-27 23:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然发现，现在集美这套“我是老a黑”的话术真的跟一些梅西粉丝帆船的那套“皇马球迷留”太像了
+不得不说两年前就发现这俩群体的共性实在是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 39939#       发表于 2022-10-27 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58135479&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-27 21:41</a>
+原来智畜已经打完丹畜了，小畜生主系列动画什么时候死啊</blockquote>
+打完个锤子，我估计丹畜大概率要苦战四周不敌草台班子了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  非建政专用号  
+##### 39940#       发表于 2022-10-27 23:26
+
+我澄清一下，现在串子是互联网粉丝群体必备技能，起手纯路人，中间虽然但是，最后不得不承认
+
+*****
+
+####  nowaki  
+##### 39941#       发表于 2022-10-27 23:27
+
+双畜狂喜
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 39942#       发表于 2022-10-27 23:30
+
+包皮能不能滚回宝楼啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AME8年铁粉  
+##### 39943#       发表于 2022-10-27 23:31
+
+牛的 太监论坛lgd被淘汰第4天已经开吹lgd了 今年来得早了一点 ti都还没打完呢
+
+image.png
+(213.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 23:30 上传
+
+<img src="https://img.saraba1st.com/forum/202210/27/233053lcslbi9gir1ybgbk.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朝游北海  
+##### 39944#       发表于 2022-10-27 23:31
+
+“就lgd 这状态，游离在版本之外的英雄和体系。 纯靠硬实力，拿了个并列第五，我觉已经很强了”那宇宙第一赛事肯定是石油杯，集美真有意思。
+
