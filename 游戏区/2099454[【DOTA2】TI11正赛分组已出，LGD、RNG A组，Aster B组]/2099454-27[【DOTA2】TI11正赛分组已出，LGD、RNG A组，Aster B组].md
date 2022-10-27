@@ -2679,3 +2679,133 @@ ti9当时是查猪坐起来打+霉憋状态很好的时间，而赢了他们不�
 是他跳上去找发条开大的，他直接跳走发条未必先手到他的</blockquote>
 那就卜清楚了，导播切过去的时候刚好看他放了个大 然后边上有宙斯雷云
 
+
+
+*****
+
+####  北条早苗  
+##### 39297#       发表于 2022-10-27 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124760&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-27 11:19</a>
+那就卜清楚了，导播切过去的时候刚好看他放了个大 然后边上有宙斯雷云</blockquote>
+是发条先踩眼的，a畜想走早就可以走了，他第一反应是跳上去罩大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 39298#       发表于 2022-10-27 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124760&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-27 11:19</a>
+那就卜清楚了，导播切过去的时候刚好看他放了个大 然后边上有宙斯雷云</blockquote>
+看过森哥视频就知道好吧，仙贝在坡下阴影处，发条在圣坛右边的野点，那里有lgd的眼，仙贝见其落单直接跳上去一个大单杀
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星野航  
+##### 39299#       发表于 2022-10-27 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124654&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-27 12:14</a>
+越想越觉得今年雪碧太可惜了，悟到4号位pom就能走很远，只要队里有人能出怨灵之契解放崩溃，他们团战能力强 ...</blockquote>
+我猜测今年雪碧赛训时间太短，导致上来接训练是按自己的印象，挑了水厂，og，ett，rng这几个，然后其他人的训练估计没接或者练了不多，压根没悟到版本，直接就萎了
+只能说还是大意了
+
+*****
+
+####  bluebaby  
+##### 39300#       发表于 2022-10-27 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124760&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-27 11:19</a>
+那就卜清楚了，导播切过去的时候刚好看他放了个大 然后边上有宙斯雷云
+
+你这么一说，这盘虚空那就是畜中大 ...</blockquote>
+那波是他主动跳上去先手发条的，雷云都是他在大里a了几下才放的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  zsu222  
+##### 39301#       发表于 2022-10-27 11:23
+
+ti9就算过了液体真能打过og吗，我感觉不用厨子出手，前期普森就能给你打崩了。
+
+*****
+
+####  我前期那么肥  
+##### 39302#       发表于 2022-10-27 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124807&amp;ptid=2099454" target="_blank">北条早苗 发表于 2022-10-27 11:22</a>
+
+是发条先踩眼的，a畜想走早就可以走了，他第一反应是跳上去罩大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">哥们还以为是被发条黏上要单杀了才放大的，原来是错怪鲜卑了，真是死了吗了
+
+*****
+
+####  seki_m  
+##### 39303#       发表于 2022-10-27 11:23
+
+越想越觉得今年lgd太可惜了，悟到4号位pom就能走很远，只要队里有人能出怨灵之契解放明鞭，他们团战能力强这一点就能无限发挥，真的缺一个2000这样的痔将好吧。
+
+*****
+
+####  我前期那么肥  
+##### 39304#       发表于 2022-10-27 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124815&amp;ptid=2099454" target="_blank">bluebaby 发表于 2022-10-27 11:22</a>
+
+那波是他主动跳上去先手发条的，雷云都是他在大里a了几下才放的</blockquote>
+那这盘虚空比打eg的小鱼还畜牲了，我还以为是被迫交大的
+
+*****
+
+####  银翼的维罗西  
+##### 39305#       发表于 2022-10-27 11:24
+
+哥哥红龙那场的虚空最后几波的操作没有一秒是正确的，遮住ID没人能想得到这是职业选手能打出来的，真的比假赛还浮夸
+
+*****
+
+####  星野航  
+##### 39306#       发表于 2022-10-27 11:26
+
+只能说这是小组赛了，这要是淘汰赛回家局，我看集美现在一个屁都放不出来
+
+*****
+
+####  adretyu67  
+##### 39307#       发表于 2022-10-27 11:27
+
+其实仔细看完补水视频里仙贝虚空表演有个共通性。
+
+仙贝很喜欢单罩大提酱油。
+
+其实这就是仙贝一生的写照，打出一身神装然后几刀切死对面几千经济的酱油<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 39308#       发表于 2022-10-27 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58124906&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-27 12:27</a>
+其实仔细看完补水视频里仙贝虚空表演有个共通性。
+
+仙贝很喜欢单罩大提酱油。</blockquote>
+仙贝是没有大局观的人，体现出来的就是迷幻的切入跟无意义的单打
+在他看来，造成一个“减员”是对团队最大的帮助，这在理解上就已经负分了
+
+*****
+
+####  zsu222  
+##### 39309#       发表于 2022-10-27 11:30
+
+这就不得不提先辈水人团战怒切陈的含金量
+
+*****
+
+####  反方向的波  
+##### 39310#       发表于 2022-10-27 11:31
+
+想多了，集美永远能找放屁角度，去年假赛大水的时候不就看过了？
+
