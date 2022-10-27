@@ -827,3 +827,14 @@ Amazon Prime Video 有七天试用，一次播完的话白嫖应该就够用了 
 <img src="https://p.sda1.dev/8/d8e3012feefb445c5665c50e0af3febf/20221027_211644.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/afff7b24c252aaf82891f8ec4cb9aba2/20221027_211703.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  炯Ⅺ  
+##### 64#       发表于 2022-10-27 22:15
+
+微博看到有字幕组说23点就发布第一集
+
+—— 来自 Xiaomi 22021211RC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

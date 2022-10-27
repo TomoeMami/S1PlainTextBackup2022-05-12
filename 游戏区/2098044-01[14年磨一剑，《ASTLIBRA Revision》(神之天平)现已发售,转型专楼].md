@@ -11739,3 +11739,27 @@ wiki看不懂日文可以对着装备数值去找
 第七章打老婆有没有啥逃课方法</blockquote>
 一周目打任何boss，我都推荐堆格挡条带叠返。
 
+
+
+*****
+
+####  pf67  
+##### 1075#       发表于 2022-10-27 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58122927&amp;ptid=2098044" target="_blank">五块 发表于 2022-10-27 09:36</a>
+
+一周目大贤者给的那把剑，加到了30没石板，衣服穿的起源那件。
+
+关键还是血量，能扛三下比只能扛两下，容 ...</blockquote>
+我也过了，靠的是大精灵法杖，无限把他们打浮空。。
+
+*****
+
+####  A1LI  
+##### 1076#       发表于 2022-10-27 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133861&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-27 20:13</a>
+
+一周目打了48小时，确实多数时间都在收集上了。这游戏真是个充满了惊喜的好游戏，是动作游戏，也是传统的数 ...</blockquote>
+其实到了二周目结尾还会有一把武器，单手的，所以不用在乎什么神之左手了。
+
