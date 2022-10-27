@@ -11983,3 +11983,17 @@ wiki看不懂日文可以对着装备数值去找
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  pf67  
+##### 1092#       发表于 2022-10-28 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58137936&amp;ptid=2098044" target="_blank">红烧肉 发表于 2022-10-28 00:12</a>
+
+这么一说，确实……
+
+我把爱情，爱情巧克力，和包装好的爱情巧克力各整了一个，就为了放天平。</blockquote>
+能拿到
+
