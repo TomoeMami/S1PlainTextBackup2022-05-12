@@ -8977,3 +8977,21 @@ https://internetangel.shop/
 
 NS版今天发售了，不知道什么时候能到<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  roxassix  
+##### 760#       发表于 2022-10-27 14:04
+
+win版凌晨更新
+
+非常感谢各位耐心的等待
+我们将于10月28日00:00（JST）进行大规模的更新。
+更新内容如下：
+・追加结局
+・追加杠精发言的文本
+・追加从糖糖那获得的表情包
+・将动作大幅减轻
+今后也请继续支持NEEDY GIRL OVERDOSE！
+
