@@ -14427,3 +14427,24 @@ TVアニメ「ラブライブ！スーパースター!!」2期のBlu-rayシリ�
 <img src="https://p.sda1.dev/8/1ed9577ab7da72fe386817b28550dd63/bd09_tenkai.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/d8a55d3a09208f12602fa737cfc33088/20221027_204530.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 8813#       发表于 2022-10-27 21:00
+
+<blockquote>Kfly 发表于 2022-10-27 20:49
+twi：@unyanai</blockquote>
+卧槽，画的那么快
+
+*****
+
+####  starring  
+##### 8814#       发表于 2022-10-27 21:01
+
+原来是SMA传统技艺
+<img src="https://p.sda1.dev/8/8cc0eacf5b1b7e3fe18f242ae8592656/20221027203345.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/922177a3ca6296d61aac77268d8bab07/0075ZY3sgy1h7k4e7le4mj30ob0i8tfh.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0398cc472d3aa01c50b297b3a0089218/QQ截图20221027205319.png" referrerpolicy="no-referrer">
+

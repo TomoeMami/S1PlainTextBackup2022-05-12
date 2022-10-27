@@ -8086,3 +8086,52 @@ dota比赛真的有休息室吗，我看真世界不是在厕所就是在户外<
 
 猴爹恨不得立马和水厂续约呢。再说了，不让他往哪跑？
 
+
+
+*****
+
+####  星野航  
+##### 39878#       发表于 2022-10-27 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58134568&amp;ptid=2099454" target="_blank">RGm 发表于 2022-10-27 21:50</a>
+
+猴爹恨不得立马和水厂续约呢。再说了，不让他往哪跑？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">骄阳今年歇了去茶队啊
+
+*****
+
+####  woyzeck  
+##### 39879#       发表于 2022-10-27 20:53
+
+猴爹猴脑被人撬了吃了，只能心甘情愿在水厂做黑奴。
+
+*****
+
+####  六娃  
+##### 39880#       发表于 2022-10-27 20:57
+
+国内给的工资太高，猴爹不会跑的
+
+*****
+
+####  非建政专用号  
+##### 39881#       发表于 2022-10-27 20:58
+
+看这么多小号和炸鱼，合理怀疑哥们当年在国服被暴打一天的凶手藏在你楼<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  王宇旻❤潘婕  
+##### 39882#       发表于 2022-10-27 21:00
+
+<img src="https://img.saraba1st.com/forum/202210/27/205955doeaggdr5zgkkgag.jpg" referrerpolicy="no-referrer">
+
+<strong>forum(61).jpg</strong> (98.46 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-27 20:59 上传
+
+去eg刚好无缝衔接啊
+
