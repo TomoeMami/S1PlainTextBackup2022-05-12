@@ -8586,3 +8586,42 @@ nmd我也蓝字了，88刀塔东野魁梧我来了
 
 鱼塘感觉最强的还是中单畜，到处游泳。
 
+
+
+*****
+
+####  你可以试试  
+##### 39933#       发表于 2022-10-27 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58136485&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-27 22:39</a>
+
+我现在就在国际服，删4行代码，删lv文件夹都没用
+
+—— 来自 HONOR LGE-AN00, Android 12上的 S1N ...</blockquote>
+我是好的，你要不看清楚自己动的文件名还有保存好没有。
+
+现在的机制很谷，不管你是萨特还是野怪，只要在天辉就一定要吃蟹，还会被洗礼标记，就算回夜魇也是看到蟹。但如果你驱散掉洗礼，当夜魇人就能恢复世界本来的颜色。如果不行再试试这个
+
+打开\dota 2 beta\game\dota\gameinfo.gi，此操作可以通过在steam游戏库里右击Dota 2选择“属性”-&gt;“本地文件”-&gt;“浏览本地文件”的方式完成。用任意文本编辑器打开此文件，搜索以下字段：Game_LowViolence，找到此行后在行首添加//符号。操作完成后看起来是这个样子：
+
+   ....blablabla....
+
+   //Game_LowViolence        dota_lv
+
+不过这个星号我还是没弄懂怎么搞
+
+<img src="https://img.saraba1st.com/forum/202210/27/224649toddu7gdnu6ug1ig.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221005171048.png</strong> (169.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 22:46 上传
+
+*****
+
+####  六娃  
+##### 39934#       发表于 2022-10-27 22:55
+
+现在的规则是国服码覆盖优先级最高（不清楚和外星人码哪个高），只要进过国服就是终生和谐
+
