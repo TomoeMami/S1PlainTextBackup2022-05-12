@@ -1017,3 +1017,109 @@ ti决赛前不黑v社
 
 dota2版碧蓝档案是吧
 
+
+
+*****
+
+####  苏沃雷生  
+##### 39109#       发表于 2022-10-27 09:14
+
+余韵是个烧饼，但量子鞭打得也没有对不起giegie啊
+
+*****
+
+####  jk9hot  
+##### 39110#       发表于 2022-10-27 09:14
+
+地图肯定会改的吧？肯定的吧？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nowaki  
+##### 39111#       发表于 2022-10-27 09:14
+
+和管人联动出签名身心
+
+*****
+
+####  Litccc  
+##### 39112#       发表于 2022-10-27 09:14
+
+<blockquote>Major期间有天晚上碰见Liquid教练，他看起来很开心。问怎么回事。哦，原来是余韵之前在给faithbian找欧洲队。余韵的原话是“I’m in Europe so he has to play in Europe”
+
+    have (got) to do sth：
+        to need to or be forced 
+        必须，不得不
+    翻译：我在欧洲所以他必须来欧洲队。
+
+我就想问问你的高知脑袋，问问你那个口口声声自己在利雅得大师赛加了一句“CN Dota Best Dota”的脑袋，问问你那个说“要给社区带来光”的脑袋：你知道Fade吗？
+哦，你可能不知道，因为你根本没看过社区，因为这个人 在TI结束以后 给自己找中国队 已经被喷的换ID了。
+你既然说自己这么聪明，我就好奇你自己能不能搞清楚，在Ti还没开始之前 给自己男朋友找欧洲队，是个什么后果。
+所以这可能是bian哥在润德的究极压力之下想留下最后的体面，不如直接退役算了。</blockquote>
+仔细看了下全文，原来集美突然发大水是因为这段话，另外fade不是ti期间找队么，怎么就变成ti后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 39113#       发表于 2022-10-27 09:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到唯一正版刀塔传奇
+
+*****
+
+####  我前期那么肥  
+##### 39114#       发表于 2022-10-27 09:16
+
+哈人，真的把天赋带到德国去了
+
+sg造谣又成真了
+
+*****
+
+####  nowaki  
+##### 39115#       发表于 2022-10-27 09:17
+
+撸狗鞭真去欧洲区宰畜 我一辈子不黑他了好吧
+
+*****
+
+####  TI三冠王AME  
+##### 39116#       发表于 2022-10-27 09:17
+
+现在我最想看的剧本变成了哥哥TI12再战一年然后淘汰赛被润德送走
+
+*****
+
+####  星野航  
+##### 39117#       发表于 2022-10-27 09:18
+
+这除非当事人出来实锤，捕风捉影的事儿实在是干得太多了
+
+*****
+
+####  夏溪澪mio  
+##### 39118#       发表于 2022-10-27 09:19
+
+完了，感觉最近匹配要腥风血雨了
+就比那边云玩家少了
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jk9hot  
+##### 39119#       发表于 2022-10-27 09:19
+
+兄弟们，四号位蓝胖子来咯
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  战栗的小六  
+##### 39120#       发表于 2022-10-27 09:19
+
+4+2的场数算至宝场数吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
