@@ -3018,3 +3018,26 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 噩梦再临，虚数大海战这活动是真的屑，主线各种固定阵容，推图各种卡机制，真就是除了剧情一无是处，好在是最后一回了，捏着鼻子先把石头拿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 3268#       发表于 2022-10-27 17:45
+
+虚数、第一及准备开的第二特异点池，但相关角色还是没有新强化及幕间...
+
+刚登入发现直接送了灵脉石，主线应该快来了，活动就再延迟吧
+
+*****
+
+####  日蚀之阳  
+##### 3269#       发表于 2022-10-27 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58113173&amp;ptid=2084912" target="_blank">壳壳牛 发表于 2022-10-26 17:12</a>
+
+好像MC的包有问题
+
+我直接谷歌&amp; ...</blockquote>
+我昨天整Google的配置整到一点多，然后一觉醒来他们告诉我uu加速器就能更（
+

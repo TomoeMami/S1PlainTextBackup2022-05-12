@@ -82,3 +82,16 @@ WING以外其他模式都没解开，光用STEP也能进行手头最强的育成
 
 查看全部评分
 
+
+
+*****
+
+####  shadowof  
+##### 2677#         楼主| 发表于 2022-10-27 17:45
+
+[https://www.youtube.com/watch?v=dYNQHVAUYZM](https://www.youtube.com/watch?v=dYNQHVAUYZM)
+
+小林私 × ダ・ヴィンチ・恐山－「“樋口円香”というアイドルとは？」
+
+问题很尖锐，算是基本情报全掌握下的情况下的对谈了。
+

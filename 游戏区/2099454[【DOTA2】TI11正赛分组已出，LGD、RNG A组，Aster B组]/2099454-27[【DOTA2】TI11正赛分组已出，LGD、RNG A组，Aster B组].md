@@ -6933,3 +6933,147 @@ a畜是怕没了大腿暴露自己废物本质吗？没事，a畜再怎么菜也
 
 没水厂替他打掩护，他是准备再技术扶贫XXX一年？
 
+
+
+*****
+
+####  樱冢名月  
+##### 39759#       发表于 2022-10-27 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王八也是啊畜的**啊，什么都要问的
+
+*****
+
+####  walfeds  
+##### 39760#       发表于 2022-10-27 17:43
+
+暴力炸鱼不可取
+
+*****
+
+####  我前期那么肥  
+##### 39761#       发表于 2022-10-27 17:43
+
+<img src="https://img.saraba1st.com/forum/202210/27/174331t55qczs0fu7dnzzj.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221027174302.jpg</strong> (81.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 17:43 上传
+
+*****
+
+####  asd235614  
+##### 39762#       发表于 2022-10-27 17:44
+
+<img src="https://img.saraba1st.com/forum/202210/27/174325scg39a8figf9fr9g.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221027174314.jpg</strong> (20.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 17:43 上传
+
+爆笑如雷了兄弟们
+
+*****
+
+####  jk9hot  
+##### 39763#       发表于 2022-10-27 17:44
+
+都2023年了还有冤大头出钱组班子吗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  adretyu67  
+##### 39764#       发表于 2022-10-27 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58131486&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-27 17:42</a>
+
+王八也是啊畜的**啊，什么都要问的</blockquote>
+王八总感觉色厉内荏，明明是冠军队长却有种不敢接锅的魄力。
+
+*****
+
+####  zsu222  
+##### 39765#       发表于 2022-10-27 17:45
+
+项羽要不想办法从水厂润了吧
+
+*****
+
+####  c88711611  
+##### 39766#       发表于 2022-10-27 17:45
+
+ 本帖最后由 c88711611 于 2022-10-27 17:50 编辑 
+
+a畜在cdec什么水平又不是没见过，只有集美还在那里吹什么ame力中暴力，抬着cdec走，比赛不看，眼神也不好使的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+被查猪打1，老11打3的lgd手都握断了，集美还tm在吹
+
+*****
+
+####  walfeds  
+##### 39767#       发表于 2022-10-27 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">项羽去干瘪这事前天都传外网了，消息来源谢斌
+
+*****
+
+####  adretyu67  
+##### 39768#       发表于 2022-10-27 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58131517&amp;ptid=2099454" target="_blank">jk9hot 发表于 2022-10-27 17:44</a>
+
+都2023年了还有冤大头出钱组班子吗
+
+论坛助手,iPhone</blockquote>
+超级集美论坛说字节入场，收了rng的班子，准备花钱搞新队
+
+*****
+
+####  樱冢名月  
+##### 39769#       发表于 2022-10-27 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58131540&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-27 17:45</a>
+ 王八总感觉色厉内荏，明明是冠军队长却有种不敢接锅的魄力。</blockquote>
+说不定ru婊下了死命令，一定要让啊畜看起来力中暴力
+
+*****
+
+####  zsu222  
+##### 39770#       发表于 2022-10-27 17:46
+
+rng全员转阴了
+
+*****
+
+####  IG.430  
+##### 39771#       发表于 2022-10-27 17:47
+
+张一鸣又卜是傻逼
+
+*****
+
+####  夜光铃  
+##### 39772#       发表于 2022-10-27 17:49
+
+这次的赛制好tm蠢，歇一周感觉观赛热情都没了
+
+*****
+
+####  六娃  
+##### 39773#       发表于 2022-10-27 17:50
+
+孙润发直播对A畜就没好话，哪怕边上高振雄一直在狂舔，妮猜为什么
+
+*****
+
+####  一品堂官  
+##### 39774#       发表于 2022-10-27 17:52
+
+【【DOTA2中字】TEAM SPIRIT：TI11国际邀请赛 FINAL VLOG】 [https://www.bilibili.com/video/B ... 06679cce52e39839a85](https://www.bilibili.com/video/BV1de4y177nU/?share_source=copy_web&amp;vd_source=7d37c52b644cd06679cce52e39839a85) 雪碧真视界！bp第一手就把崩溃哥关了输了不冤 最后一手会酒仙其实可以打一打 比黑鸟好
+

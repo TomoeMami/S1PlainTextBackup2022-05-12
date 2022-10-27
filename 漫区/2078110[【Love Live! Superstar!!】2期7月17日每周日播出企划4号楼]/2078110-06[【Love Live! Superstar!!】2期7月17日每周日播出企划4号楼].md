@@ -13871,3 +13871,19 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 发的图还是在中间，虽然pay的座位没照进去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 8754#       发表于 2022-10-27 17:47
+
+我要看鱼DD朱茵！
+
+*****
+
+####  稀勢のささ  
+##### 8755#       发表于 2022-10-27 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">就算读信应该也跟动画本身关系不那么大了吧，这几期广播多少有点折磨的
+
