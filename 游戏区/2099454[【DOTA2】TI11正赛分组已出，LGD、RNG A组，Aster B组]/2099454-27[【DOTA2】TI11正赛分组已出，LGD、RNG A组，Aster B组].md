@@ -8897,3 +8897,36 @@ nmd，上午是服务器关了下午是服务器忙，想嫖个至宝恁难呢
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  璀璨魔女  
+##### 39965#       发表于 2022-10-28 00:34
+
+全面青蒜了
+
+<img src="https://img.saraba1st.com/forum/202210/28/003408sy7kl8nsu2b23vfn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (122.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 00:34 上传
+
+*****
+
+####  米德  
+##### 39966#       发表于 2022-10-28 00:39
+
+A畜要清算 高华也要清算 这才算健全
+
+*****
+
+####  你可以试试  
+##### 39967#       发表于 2022-10-28 00:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">纠结了半天把电脑重启一下居然解决了星号的问题，估计是暂时性污染
+
+回国服第一把就遇到随机敌法师出先锋祭品、中单主烧屠夫狂送TA、第五手PA出大毒雷锤说我辅助，我玩NM<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

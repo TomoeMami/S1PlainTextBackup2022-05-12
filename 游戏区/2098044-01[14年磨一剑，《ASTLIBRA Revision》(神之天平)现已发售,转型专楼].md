@@ -11936,3 +11936,12 @@ wiki看不懂日文可以对着装备数值去找
 
 如果新章拿不到了，要不要回头读档？
 
+
+
+*****
+
+####  何处分可  
+##### 1088#       发表于 2022-10-28 00:34
+
+第七章剧情真的绝赞，纯正的jrpg味，然后再看一遍op确实味道就起来了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
