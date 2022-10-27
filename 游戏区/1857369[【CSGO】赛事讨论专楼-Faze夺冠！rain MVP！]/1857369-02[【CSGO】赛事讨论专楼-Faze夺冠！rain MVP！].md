@@ -43,3 +43,16 @@
 
 major过后就只有blast秋决和总决了吗，我记得不是还有个Iem 的s级比赛
 
+
+
+*****
+
+####  雨中曲  
+##### 2636#       发表于 2022-10-27 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58130375&amp;ptid=1857369" target="_blank">Suny08 发表于 2022-10-27 16:45</a>
+major过后就只有blast秋决和总决了吗，我记得不是还有个Iem 的s级比赛</blockquote>
+IEM北京，取消了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

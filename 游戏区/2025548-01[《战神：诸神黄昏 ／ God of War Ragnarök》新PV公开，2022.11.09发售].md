@@ -7918,3 +7918,15 @@ Eric刚刚在PS4上第三次通关本作，和前作一样稳定的30帧，但�
 
 话说这游戏是11月9日几点发售啊？
 
+
+
+*****
+
+####  hotsmile  
+##### 840#       发表于 2022-10-27 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58130555&amp;ptid=2025548" target="_blank">古凌锋 发表于 2022-10-27 16:53</a>
+
+话说这游戏是11月9日几点发售啊？</blockquote>
+0
+

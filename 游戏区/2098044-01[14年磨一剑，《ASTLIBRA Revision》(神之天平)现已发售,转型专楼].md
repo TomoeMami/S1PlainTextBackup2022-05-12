@@ -11565,3 +11565,14 @@ wiki看不懂日文可以对着装备数值去找
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  vidomina  
+##### 1060#       发表于 2022-10-27 17:17
+
+<blockquote>pf67 发表于 2022-10-27 13:44
+那个杖怎么用啊，我感觉不到强度</blockquote>
+同不觉得好用，主要是500多重量不加敏捷能玩？我已经想办法减重了还是超重。
+
