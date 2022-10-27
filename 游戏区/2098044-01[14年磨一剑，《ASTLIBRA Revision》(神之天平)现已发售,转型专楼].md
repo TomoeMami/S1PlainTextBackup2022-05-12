@@ -12023,3 +12023,17 @@ wiki看不懂日文可以对着装备数值去找
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  woodcoin  
+##### 1095#       发表于 2022-10-28 07:41
+
+好像遇到有个bug 
+双手武器装备盾牌的
+嘉隆记录套装把练好的盾牌一起记录
+然后装一个双手武器 再读取套装
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
