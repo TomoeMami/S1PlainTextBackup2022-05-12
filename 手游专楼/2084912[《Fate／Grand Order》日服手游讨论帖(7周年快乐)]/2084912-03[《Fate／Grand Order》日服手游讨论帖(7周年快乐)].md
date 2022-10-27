@@ -3000,3 +3000,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 还真是国际版没这功能，只能继续忍受弹出广告了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 3266#       发表于 2022-10-27 08:49
+
+感觉11月的新圣诞没有新五星的概率大幅度提高了，而且大概五星是复刻一些会做菜的家伙或者是本土的家伙？
+
