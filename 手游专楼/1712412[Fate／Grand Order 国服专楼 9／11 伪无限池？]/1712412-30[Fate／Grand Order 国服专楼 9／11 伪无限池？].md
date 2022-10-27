@@ -206,3 +206,15 @@ C闪打90的杀阶本还是可以的吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是不用角色加成了
 
+
+
+*****
+
+####  日蚀之阳  
+##### 43655#       发表于 2022-10-27 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58111735&amp;ptid=1712412" target="_blank">霄度天 发表于 2022-10-26 16:00</a>
+
+C闪打90的杀阶本还是可以的吧</blockquote>
+满破五十np倍卡一宝就够，双c呆加换人五十充任意拐
+

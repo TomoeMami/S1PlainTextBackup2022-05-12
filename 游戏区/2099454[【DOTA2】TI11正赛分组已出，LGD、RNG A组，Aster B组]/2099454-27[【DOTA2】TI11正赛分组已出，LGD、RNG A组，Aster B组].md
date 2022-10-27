@@ -7077,3 +7077,61 @@ rng全员转阴了
 
 【【DOTA2中字】TEAM SPIRIT：TI11国际邀请赛 FINAL VLOG】 [https://www.bilibili.com/video/B ... 06679cce52e39839a85](https://www.bilibili.com/video/BV1de4y177nU/?share_source=copy_web&amp;vd_source=7d37c52b644cd06679cce52e39839a85) 雪碧真视界！bp第一手就把崩溃哥关了输了不冤 最后一手会酒仙其实可以打一打 比黑鸟好
 
+
+
+*****
+
+####  莉拉厨  
+##### 39775#       发表于 2022-10-27 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58131572&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-27 17:47</a>
+张一鸣又卜是傻逼</blockquote>
+但是张一鸣真的是傻逼
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  没钱买手办  
+##### 39776#       发表于 2022-10-27 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">求佛确实预言了德张的结局
+
+*****
+
+####  jk9hot  
+##### 39777#       发表于 2022-10-27 17:59
+
+那张一鸣搞游戏**是全世界皆知的，投了这么多钱水花都没冒
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  一品堂官  
+##### 39778#       发表于 2022-10-27 17:59
+
+脑东京这表情，谁不想赢不用说了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 39779#       发表于 2022-10-27 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58131563&amp;ptid=2099454" target="_blank">zsu222 发表于 2022-10-27 17:46:32</a>
+rng全员转阴了</blockquote>是不是也要在新加坡过年了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  星野航  
+##### 39780#       发表于 2022-10-27 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58131635&amp;ptid=2099454" target="_blank">一品堂官 发表于 2022-10-27 18:52</a>
+
+【【DOTA2中字】TEAM SPIRIT：TI11国际邀请赛 FINAL VLOG】 https://www.bilibili.com/video/BV1de4y177nU/ ...</blockquote>
+那天发在油管的时候就在你楼聊过一次
+
+核心是silent跟miposhka这俩就没想好自己的组合搭配，一手狗把自己选歪，对面一抢兽王直接到点    
+
