@@ -11732,3 +11732,19 @@ UMB都请来了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">miko不会读英文，可以不用勉强
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2623#       发表于 2022-10-27 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">吵死了，什么噪音直播间。
+
+*****
+
+####  rs5621  
+##### 2624#       发表于 2022-10-27 20:19
+
+耳膜杀手 SakuraMkio
+

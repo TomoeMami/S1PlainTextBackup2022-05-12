@@ -7844,3 +7844,21 @@ Ti后: 拳狮亩钩 红颜祸水 恶贯满盈 罪不容诛
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133111&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-27 12:30</a></blockquote>
 感觉就是处长送少了啊，要是打bc那把斧王处长多送几次输了，明辨就是站着死了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ckming  
+##### 39849#       发表于 2022-10-27 20:11
+
+而且看完nga的节奏，我放句话在这里，处长明年铁定继续打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+就凭水厂现在还把他当宝贝，舆论层面出动水军帮他狂洗，就知道明年还是lgd的绝对核心。要是退役现在早就被青蒜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lyjssj  
+##### 39850#       发表于 2022-10-27 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">处长铁定会打啊，这次他又不是首锅
+
