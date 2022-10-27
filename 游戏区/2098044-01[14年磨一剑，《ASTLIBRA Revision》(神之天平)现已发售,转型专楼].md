@@ -11826,3 +11826,15 @@ wiki看不懂日文可以对着装备数值去找
 顺便</blockquote>
 因为有两个天平，一周目的力量不够需要付出代价，二周目穿越二合一了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  孔祈  
+##### 1082#       发表于 2022-10-27 23:38
+
+发现一个刷爱情的bug？
+二周目带队友拿完爱情不喂给阿努莉斯，等到打完剧情提示存档存个档，片尾职员表结束后主菜单读档回去队友的好感空了可以重新刷好感拿爱情，包里的爱情道具不会少，可以再喂给阿努莉斯改变结局。一周目3个，二周目两轮10个爱情，再刷2个爱情就够了。
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
