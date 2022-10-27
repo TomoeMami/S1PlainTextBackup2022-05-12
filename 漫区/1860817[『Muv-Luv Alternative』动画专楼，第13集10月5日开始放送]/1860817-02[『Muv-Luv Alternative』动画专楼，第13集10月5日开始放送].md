@@ -35,3 +35,26 @@
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1958#       发表于 2022-10-27 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58121104&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-10-27 01:57</a>
+直观看到家门口被冥夜铲平笑出声  cg太夸张反而没什么实感</blockquote>
+至少方圆10公里的住户都搬走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  最后的法芙娜  
+##### 1959#       发表于 2022-10-27 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57908459&amp;ptid=1860817" target="_blank">创始’’’天翔 发表于 2022-10-14 18:24</a>
+
+我记得好像美智留她们也是混住来着</blockquote>
+女武神都是给副司令干私活的直属部队，顺便是预备00单元材料。但是207A这个小队感觉是给**子女延迟兵役的吧，你看隔壁主任15岁就得上战场了，这部分人可以比较安稳的度过18岁，当然最后因为樱花作战太重要，里面有些人也不重要了，而且就你们还算建制完整，就拿你们当消耗品
+

@@ -5414,3 +5414,73 @@ zayac都卜玩4号位末日了，鉴定为8行
 
 为什么四号位炸弹人不能大祭品，不要太狭隘了！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  樱冢名月  
+##### 39596#       发表于 2022-10-27 15:26
+
+一想到发的红包，贱畜集美还来抢，真的是生活不如意，令人作呕。以后口令都是A畜见焦比，贱畜集美户口本只有一页了。
+
+不过我给贝拉上过舰，管人痴清算的时候，能不能轻点。
+
+*****
+
+####  jk9hot  
+##### 39597#       发表于 2022-10-27 15:27
+
+我就不一样，四号位tk
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  walfeds  
+##### 39598#       发表于 2022-10-27 15:27
+
+主要是末日没钱那后面打团作用真就剩一个大了
+
+*****
+
+####  樱冢名月  
+##### 39599#       发表于 2022-10-27 15:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">期待叶智标来摇摆一手世界第二大牲把自己打回家好吧
+
+*****
+
+####  银翼的维罗西  
+##### 39600#       发表于 2022-10-27 15:29
+
+不过我给贝拉上过舰，管人痴清算的时候，能不能轻点。
+
+
+
+*****
+
+####  bishbashbosh  
+##### 39601#       发表于 2022-10-27 15:29
+
+不过我给贝拉上过舰，管人痴清算的时候，能不能轻点。
+
+*****
+
+####  火鸡味锅巴  
+##### 39602#       发表于 2022-10-27 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58129094&amp;ptid=2099454" target="_blank">bishbashbosh 发表于 2022-10-27 15:29</a>
+
+不过我给贝拉上过舰，管人痴清算的时候，能不能轻点。</blockquote>
+清歌铁血刀斯林，可以原谅
+
+*****
+
+####  iriyano  
+##### 39603#       发表于 2022-10-27 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58127971&amp;ptid=2099454" target="_blank">VT1996 发表于 2022-10-27 15:28</a>
+问一下有客户端的现在养A流炼金还能玩吗？用不用先憋个大祭品？想划水混两把 ...</blockquote>
+可以打五号位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+之前比赛有过，现在养A杖还加强了！
+

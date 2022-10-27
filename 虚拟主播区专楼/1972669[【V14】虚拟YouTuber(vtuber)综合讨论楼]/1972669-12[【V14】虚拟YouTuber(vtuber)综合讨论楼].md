@@ -101,3 +101,20 @@ hj和fw联动喷喷草
 
 主要是星川歇之前刚跟郡郡深度聊了一次，郡道还转了星川的推帮她说话，就联想到axis好像也是ドブJUMP之后歇了然后郡郡声援，所谓人以群分，好担心我郡搞失踪惹...syl，感觉我郡一时间直播内容全是工商，日本塔防*1和国产二游*2，感觉越来越往五元那种工商吃饱方面转了，也不营业媚粉，我的每周奥数魔刃<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 17644#       发表于 2022-10-27 15:20
+
+怎么又又又来了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/22ca0ce20e738ad835a04a947fee3dc1/CMP_20221027152018422.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17645#       发表于 2022-10-27 15:22
+
+最近不少人又捡起valo很明显是要开cr了啊
+
