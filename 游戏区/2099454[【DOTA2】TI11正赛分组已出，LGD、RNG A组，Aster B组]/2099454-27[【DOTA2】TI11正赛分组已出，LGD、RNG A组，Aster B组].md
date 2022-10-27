@@ -7756,3 +7756,63 @@ F$W]0~@OYRP207TCKZR%A_B.jpg
 
 不动就问 国内服务器全都连不上 延迟最低的是东南亚服 这啥情况 要绑手机吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IG.430  
+##### 39841#       发表于 2022-10-27 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133277&amp;ptid=2099454" target="_blank">zhjnppy 发表于 2022-10-27 19:40</a>
+不动就问 国内服务器全都连不上 延迟最低的是东南亚服 这啥情况 要绑手机吗 ...</blockquote>
+-perfectworld
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zhjnppy| + 1|谢谢|
+
+查看全部评分
+
+*****
+
+####  woyzeck  
+##### 39842#       发表于 2022-10-27 19:41
+
+量子鞭和他女友挺配的，俩人都爱这样高知
+
+*****
+
+####  莉拉厨  
+##### 39843#       发表于 2022-10-27 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58133277&amp;ptid=2099454" target="_blank">zhjnppy 发表于 2022-10-27 19:40</a>
+不懂就问 国内服务器全都连不上 延迟最低的是东南亚服 这啥情况 要绑手机吗 ...</blockquote>
+现在国服天梯必须绑手机号才能打了，要在东南雅打十把也行，延迟才80ms
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  我前期那么肥  
+##### 39844#       发表于 2022-10-27 19:44
+
+Ti前: 温文尔雅 落落大方 优雅知性 小刘亦菲
+
+Ti后: 拳狮亩钩 红颜祸水 恶贯满盈 罪不容诛
+
+*****
+
+####  一品堂官  
+##### 39845#       发表于 2022-10-27 19:50
+
+【OK林仔直播间精华弹幕Ⅰ-哔哩哔哩】 https://b23.tv/QAC8Ijh 
+还是肯尼迪的那个有意思
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

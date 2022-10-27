@@ -14137,3 +14137,58 @@ woc这是可可吗？这个少年感woc，她还能有这种风格吗woc
 
 3rd的主视图，跟2nd比差距简直天与地啊
 
+
+
+*****
+
+####  lj205  
+##### 8784#       发表于 2022-10-27 19:44
+
+可可的站位又回去了？
+
+*****
+
+####  ads147147  
+##### 8785#       发表于 2022-10-27 19:47
+
+鲤鱼玩西部呀卡农真的玩上瘾了www
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ruffian  
+##### 8786#       发表于 2022-10-27 19:48
+
+其他人两两一起玩，可可打工去了是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 8787#       发表于 2022-10-27 19:49
+
+开车创死花田
+
+*****
+
+####  lj205  
+##### 8788#       发表于 2022-10-27 19:49
+
+毕竟G店店长啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 8789#       发表于 2022-10-27 19:50
+
+这立牌原来是组合的，怪不得那么贵，而且好像没有网上通贩<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 8790#       发表于 2022-10-27 19:52
+
+成带货直播了
+
