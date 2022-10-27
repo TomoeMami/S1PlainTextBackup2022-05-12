@@ -7449,3 +7449,85 @@ b站现在居然有拼图功能<img src="https://p.sda1.dev/8/5ea84a913f7f215217
 
 —— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Litccc  
+##### 39811#       发表于 2022-10-27 19:01
+
+看了下大号之前打人机做任务的局数居然也算，至宝喜+1<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 39812#       发表于 2022-10-27 19:02
+
+等会上号看看还差几把
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  我前期那么肥  
+##### 39813#       发表于 2022-10-27 19:02
+
+天地星有人来吗，小号白嫖一个女人至宝
+
+*****
+
+####  没钱买手办  
+##### 39814#       发表于 2022-10-27 19:03
+
+A畜和maybe再组队想想就恶心啊
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 39815#       发表于 2022-10-27 19:05
+
+ 本帖最后由 反方向的波 于 2022-10-27 19:09 编辑 
+
+人机速推了一把，局数没涨啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小号倒是直接+1 可我饰品又不在这里
+
+*****
+
+####  yourSwaTer  
+##### 39816#       发表于 2022-10-27 19:06
+
+匹配人机和快速模式能够拿福袋么
+
+*****
+
+####  Litccc  
+##### 39817#       发表于 2022-10-27 19:06
+
+别打人机了，今天活动出来之后的人机都不算场次，快速和omg可以<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  12481632  
+##### 39818#       发表于 2022-10-27 19:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是上号直接领的都可以实锤云玩家了
+
+*****
+
+####  walfeds  
+##### 39819#       发表于 2022-10-27 19:08
+
+想起来图方便人机都是没绑国服的steam号打的，血亏<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 39820#       发表于 2022-10-27 19:09
+
+4+2车队哭哭惹
+
