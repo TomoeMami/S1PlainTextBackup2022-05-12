@@ -11554,3 +11554,14 @@ wiki看不懂日文可以对着装备数值去找
 
 刷的少了.jpg
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 1059#       发表于 2022-10-27 15:43
+
+出卡也挺好的，我现在是全出钥匙，二十几把估计能用到通关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
