@@ -8798,3 +8798,71 @@ TI1胜者组绝赛：蜚语陷我于深渊，我仍散发胜利之光！PSG.LGD 
 
 三十bkb冰眼sa绝对是犯罪了，你去斧王岛试试看。再把装备换成a杖大炮
 
+
+
+*****
+
+####  非建政专用号  
+##### 39955#       发表于 2022-10-27 23:41
+
+量子鞭其罪一，没把舞台搭起来，其罪二，断窝克飞升之路
+
+*****
+
+####  lyjssj  
+##### 39956#       发表于 2022-10-27 23:42
+
+明天就能 写在星辰战队受难的前一天了
+
+这一个礼拜终于要结束了
+
+*****
+
+####  星野航  
+##### 39957#       发表于 2022-10-27 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58137434&amp;ptid=2099454" target="_blank">很久就在那边l 发表于 2022-10-28 00:38</a>
+淘汰赛几场的ame确实正常得有点不正常了，至少没有负作用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满共打了四个bo3
+打秘密输了
+打个被下面压制的国师
+打bc已经开是表演了
+打茶那确实是犯罪了好吧
+当然，你只能说今年的罪犯得不如前几年花哨，但犯罪这一事实洗不动好吧
+
+*****
+
+####  acalephs  
+##### 39958#       发表于 2022-10-27 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123215&amp;ptid=2099454" target="_blank">河水 发表于 2022-10-26 17:54</a>
+cn的9有谁啊？还是2009？lgd是09组的，也不是不能清算好吧</blockquote>
+DPG.F91
+
+—— 来自 samsung SM-X700, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  你可以试试  
+##### 39959#       发表于 2022-10-27 23:47
+
+淘汰赛确实不如小组赛精彩，论精彩还得看B站森哥剪的《Ti11小组赛第一日 萧瑟精彩表演top7》，这个基本是精华中的精华，还有小组赛上对阵一个队伍的总剪辑。
+
+ti11补水总辑反倒太长了质量不够高
+
+*****
+
+####  nowaki  
+##### 39960#       发表于 2022-10-27 23:48
+
+窝克一个没脑子的带四个病人ban了教练罚了时间都能和lgd打三把，我不知道硬实力哪里来的，rng四个病人后一场都没赢
+
+
+
+*****
+
+####  AME8年铁粉  
+##### 39961#       发表于 2022-10-27 23:50
+
+每次输了比赛总感觉队友的老婆不给力 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
