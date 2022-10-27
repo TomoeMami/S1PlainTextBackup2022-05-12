@@ -2022,3 +2022,102 @@ PENTAX-DA        禁止发言        2022-11-25 01:21        2022-10
 
  至今无法理解真的有人会对皮套人动情吗？
 
+
+
+*****
+
+####  莉拉厨  
+##### 39221#       发表于 2022-10-27 10:32
+
+至今无法理解真的有人会对皮套人动情吗？
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adretyu67  
+##### 39222#       发表于 2022-10-27 10:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">仙贝千万别退役，我还等着明年干瘪被二线队关在国内打的剧情
+
+*****
+
+####  星野航  
+##### 39223#       发表于 2022-10-27 10:34
+
+论精致利己，仙贝跟余韵不是正好捏一对了，一个在外攻城略地，一个对内缩头乌龟，配合完美
+
+*****
+
+####  恐怖利刃  
+##### 39224#       发表于 2022-10-27 10:36
+
+余韵就是为了靠近先辈才跟小明辨好的
+
+*****
+
+####  adretyu67  
+##### 39225#       发表于 2022-10-27 10:36
+
+SG评论是说量子鞭和余韵都是精致利己主义者。
+
+不过脑浆歪和王蠢鱼估摸也没差。
+
+*****
+
+####  我前期那么肥  
+##### 39226#       发表于 2022-10-27 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58115729&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-26 19:49</a>
+
+哦牛逼，什么十八线县城会展中心
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+这张装修完的看起来就正常多了
+
+<img src="https://img.saraba1st.com/forum/202210/27/103644n9jji6akp11ddzud.jpg" referrerpolicy="no-referrer">
+
+<strong>8xQrfdg-cyhwK1xT3cSqo-db.jpg</strong> (90.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-27 10:36 上传
+
+*****
+
+####  火鸡味锅巴  
+##### 39227#       发表于 2022-10-27 10:37
+
+讲道理，出轨也是分境界的，国土笑而不语<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Moodyblue  
+##### 39228#       发表于 2022-10-27 10:39
+
+感觉水厂又开始操作了，各种下面8朋友，加截图，味太冲了
+
+*****
+
+####  OVTVO  
+##### 39229#       发表于 2022-10-27 10:40
+
+NGA那个长文别的我不确认，但是说余韵不懂DOTA是纯扯淡，我很久以前就在susuq粉丝群里见过余韵在群里聊天，明显是看过TI2的。她最喜欢的选手是YYF（不是带节奏，原话），但是为什么不加YYF粉丝群，而在susuq粉丝群，我就不太懂了。
+
+*****
+
+####  火鸡味锅巴  
+##### 39230#       发表于 2022-10-27 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58123950&amp;ptid=2099454" target="_blank">Moodyblue 发表于 2022-10-27 10:39</a>
+
+感觉水厂又开始操作了，各种下面8朋友，加截图，味太冲了</blockquote>
+超级集美论坛现在集中力量输出23，2都建议要t掉了，更何况3
+
+*****
+
+####  usoda  
+##### 39231#       发表于 2022-10-27 10:41
+
+为什么都确定量子鞭还能再战 这胖友马上手术一做钢板一拆指不定后遗症一辈子了，正好跟着科蜜融入白皮环境。电竞什么东西 碰都不碰了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

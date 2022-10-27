@@ -13677,3 +13677,12 @@ liella之歌这封面小千看着真可怜，只有她单挂<img src="https://st
 
 可喜可贺，可喜可贺。
 
+
+
+*****
+
+####  adw667  
+##### 8737#       发表于 2022-10-27 10:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">电锯人粉丝在嚎什么我完全无法共情，这不是还有70%吗
+
