@@ -9106,3 +9106,13 @@ A畜要清算 高华也要清算 这才算健全
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139251&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-28 05:35</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星野航  
+##### 39988#       发表于 2022-10-28 06:06
+
+搞这种青蒜实在没什么意义
+只能说太监是这样的，双面人当多了
+
