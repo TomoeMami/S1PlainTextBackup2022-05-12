@@ -1757,3 +1757,23 @@ kiva什么时候被拿到和后面两者并列了</blockquote>
 这片固然不怎么行，但是皮套人打架时长绝对不能作为评判皮套人打架的标准，不然你让老7的美特隆回、r1回、 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文戏评价不行 自然就要从特摄打戏找回场子 可black sun特摄打戏也拉了 如果文戏好 自然也不会纠结
 
+
+
+*****
+
+####  橘空太  
+##### 159#       发表于 2022-10-28 23:23
+
+有一说一 这剧情是不是在映射日本赤军那帮子事啊 
+
+*****
+
+####  米列希安  
+##### 160#       发表于 2022-10-28 23:26
+
+ 本帖最后由 米列希安 于 2022-10-28 23:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这片要有7的单元剧剧情水平没人会说什么，而且7是24分钟一集的TV，他可干不出45分钟打个个位数这么离谱的事情，而且像美特隆星人那集的打架分镜和演出都是下功夫研究的
+
+这片子一集45分钟，实际表现出来的讲故事水平远没25分钟一集的奥特曼单元剧强，而且片子里面表现的东西水平好的奥特曼单元剧也都讲过，25分钟一集就能讲明白讲得好，但他能水的又难看又闷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
