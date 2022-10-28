@@ -1369,3 +1369,32 @@ the系列还是算了吧，《水知道答案》的内容都能一本正经地�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">BYD我以为那个警察是好人，还以为警察局有啥线，结果这比是真的不干人事，莫名其妙就被杀了
 
+
+
+*****
+
+####  翼宿一  
+##### 122#       发表于 2022-10-28 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58147472&amp;ptid=2075178" target="_blank">Lorraine_Kinney 发表于 2022-10-28 16:55</a>
+BYD我以为那个警察是好人，还以为警察局有啥线，结果这比是真的不干人事，莫名其妙就被杀了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 连着几次游行都拉偏架，不能因为他放走过一次麻雀就认为他是好人啊，不帮助弱势方其实说明他屁股还是在人类这边的，就是给他的便当确实很随便
+
+—— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Booorunestud  
+##### 123#       发表于 2022-10-28 17:31
+
+意思是不好看？昨晚熬夜看了两集就感觉战斗太少，意思是一直都少？
+
+*****
+
+####  budong  
+##### 124#       发表于 2022-10-28 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148325&amp;ptid=2075178" target="_blank">Booorunestud 发表于 2022-10-28 17:31</a>
+意思是不好看？昨晚熬夜看了两集就感觉战斗太少，意思是一直都少？</blockquote>
+确实很少
+

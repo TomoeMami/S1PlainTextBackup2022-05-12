@@ -841,3 +841,86 @@ misery都算好的了，形象变化不大
 
 只能说一个活该了
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 40600#       发表于 2022-10-28 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148115&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-28 17:22</a>
+
+布狗小胖子，老鼠台曾经的一哥也忘了吗。</blockquote>
+这司马东西跟kuku一样在我这已经跟屎一样了，看到了我当没看到
+
+*****
+
+####  yyf奇遇记  
+##### 40601#       发表于 2022-10-28 17:24
+
+米色瑞跟6年前比起来就是胡子多了点，其他的没什么变化的
+
+*****
+
+####  蛭人  
+##### 40602#       发表于 2022-10-28 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148151&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-28 17:23</a>
+
+这司马东西跟kuku一样在我这已经跟屎一样了，看到了我当没看到</blockquote>
+还是你狠啊。
+
+*****
+
+####  蛭人  
+##### 40603#       发表于 2022-10-28 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148138&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-28 17:23</a>
+
+这哪位漏油？
+
+https://yuba.douyu.com/p/332172831666706200</blockquote>
+好呀好呀，你楼是鸡鳖忠实粉丝楼是吧。
+
+*****
+
+####  蛭人  
+##### 40604#       发表于 2022-10-28 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148134&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-28 17:22</a>
+
+misery都算好的了，形象变化不大
+
+试试发个moo的，从类似弩哥的造型，健身减肥剃头成了型男w
+
+估计九成不认 ...</blockquote>
+这哥们，没几个人记得了吧，大家只记得他曾经的队友批九。
+
+*****
+
+####  星野航  
+##### 40605#       发表于 2022-10-28 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148224&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-28 18:26</a>
+
+这哥们，没几个人记得了吧，大家只记得他曾经的队友批九。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只亮眼了一届比赛是这样的
+
+ti6那手伐木机干掉eg还是历史留名的
+
+就是北美doto就这操行了，没办法
+
+*****
+
+####  yyf奇遇记  
+##### 40606#       发表于 2022-10-28 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">ti6只要伐木机 虚空 小黑 pom这几个玩的好的队伍，成绩都不会差好吧
+
+*****
+
+####  IG.430  
+##### 40607#       发表于 2022-10-28 17:30
+
+白完人就硬舔老南京吧
+
