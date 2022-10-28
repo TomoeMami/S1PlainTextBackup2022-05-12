@@ -665,3 +665,179 @@ by蜗壳
 
 只能说某些泰迪粉蒸鹅心，看见处长回家不是欢欣雀跃，而是那年ti8泰迪烟火花，说白来狗老北京到头来玩游戏还是没玩过术士八代表的LGD水厂。
 
+
+
+*****
+
+####  roxas.sora  
+##### 40582#       发表于 2022-10-28 17:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">老北京的粉丝为什么会原谅处长的，思路理解不了
+
+*****
+
+####  星野航  
+##### 40583#       发表于 2022-10-28 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146573&amp;ptid=2099454" target="_blank">DarthAka 发表于 2022-10-28 17:01</a>
+
+这哥们上海生、广州长，国籍销没销不敢说</blockquote>
+18年在vgjs参赛的时候写得就是加拿大了
+
+*****
+
+####  nowaki  
+##### 40584#       发表于 2022-10-28 17:11
+
+根据我多年对泥哥拍皮球论坛的观察，一般隔空对比有一种方法叫c龟值，值两个队带威少在季后赛前进的距离。
+
+泰迪+森哥和撸狗鞭+猴爹可以比较一下c畜值了
+
+*****
+
+####  蛭人  
+##### 40585#       发表于 2022-10-28 17:14
+
+不过仔细想想也是，官方解说不喝水厂就把人关了，斗鱼OB大本营和MDY乡下求水和尚，B站坐拥OB第二个家以及杰出ZDGY辉耀计划切片等一众水军，等于说国内平台你哪儿都躲不掉集美。
+
+*****
+
+####  12481632  
+##### 40586#       发表于 2022-10-28 17:14
+
+众所周知，亚军降历史地位
+
+*****
+
+####  星野航  
+##### 40587#       发表于 2022-10-28 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58147847&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-28 18:11</a>
+
+老北京的粉丝为什么会原谅处长的，思路理解不了</blockquote>
+他们只是羡慕水厂推giegie的力度罢了，毕竟冠超是营销一代目，这是一种循环啊  
+
+*****
+
+####  哈曼的YY  
+##### 40588#       发表于 2022-10-28 17:16
+
+鸡鳖明天敢不敢把队标id一遮播一下亚服高分红包局
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  TI三冠王AME  
+##### 40589#       发表于 2022-10-28 17:17
+
+真正的胜决lgd vs boom，真正的决赛lgd vs bc
+
+*****
+
+####  蛭人  
+##### 40590#       发表于 2022-10-28 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58147847&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-28 17:11</a>
+
+老北京的粉丝为什么会原谅处长的，思路理解不了</blockquote>
+老北京很多粉丝本来就是当年水厂给补水补进来的，这帮人也就在泰迪中单C的时候跳一下，等泰迪没了，就开始倒向处长了，像谭畜，谭雅这样号称自己铁血小泰迪的，ti89对处长攻势还没后来暴力呢（RNG厨子来打工那阵儿谭畜是真能喷）。
+
+
+
+*****
+
+####  蛭人  
+##### 40591#       发表于 2022-10-28 17:19
+
+你楼上次不还有发合影里面认不出来米色瑞的吗，亚军是这样的啊，你得有硬实力才比冠军牛。
+
+*****
+
+####  蛭人  
+##### 40592#       发表于 2022-10-28 17:20
+
+杂谈 在傻狗们心中鳖鳖拿的DAC算什么水平 
+
+1.  利雅得大师赛水平 不配碰瓷major        
+
+2.  准Major 没有官方认证        
+
+3.  就是major水平的赛事        
+
+4.  重要大赛 超越major        
+
+5.  绿色通道
+
+*****
+
+####  yyf奇遇记  
+##### 40593#       发表于 2022-10-28 17:20
+
+有一说一，你让我现在去认a队除了秃头和4爷以外，navi除了dondo和ppy以外的 我也认不出
+
+*****
+
+####  蛭人  
+##### 40594#       发表于 2022-10-28 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148084&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-28 17:20</a>
+
+有一说一，你让我现在去认a队除了秃头和4爷以外，navi除了dondo和ppy以外的 我也认不出 ...</blockquote>
+布狗小胖子，老鼠台曾经的一哥也忘了吗。
+
+*****
+
+####  非建政专用号  
+##### 40595#       发表于 2022-10-28 17:22
+
+我澄清一下，我真不认识那光头，不是认不出<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  河水  
+##### 40596#       发表于 2022-10-28 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58147966&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-28 17:16</a>
+鸡鳖明天敢不敢把队标id一遮播一下亚服高分红包局
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+不能，v社ban斗鱼就是ban的鸡爪文化，鸡哥被盯着
+
+*****
+
+####  星野航  
+##### 40597#       发表于 2022-10-28 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148032&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-28 18:19</a>
+
+你楼上次不还有发合影里面认不出来米色瑞的吗，亚军是这样的啊，你得有硬实力才比冠军牛。 ...</blockquote>
+misery都算好的了，形象变化不大
+
+试试发个moo的，从类似弩哥的造型，健身减肥剃头成了型男w
+
+估计九成不认得     
+
+*****
+
+####  哈曼的YY  
+##### 40598#       发表于 2022-10-28 17:23
+
+这哪位漏油？
+
+[https://yuba.douyu.com/p/332172831666706200](https://yuba.douyu.com/p/332172831666706200)
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  tasuku  
+##### 40599#       发表于 2022-10-28 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58147847&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-28 17:11</a>
+
+老北京的粉丝为什么会原谅处长的，思路理解不了</blockquote>
+霉鳖自己都jiayouchunyu了
+
+只能说一个活该了
+
