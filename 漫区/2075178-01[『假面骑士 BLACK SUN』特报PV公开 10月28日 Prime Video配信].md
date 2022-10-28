@@ -1634,3 +1634,15 @@ revice再烂也有打架有乐子，这片只有闷，冲着看乐子都比看�
 这算啥，当年KIVA，KABUTO和DECADE这三被当成大粪批斗到臭不可闻的时候不也是这套话术，太阳底下没 ...</blockquote>
 kiva什么时候被拿到和后面两者并列了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  米列希安  
+##### 148#       发表于 2022-10-28 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58153865&amp;ptid=2075178" target="_blank">浅川雏羽 发表于 2022-10-28 22:41</a>
+
+kiva什么时候被拿到和后面两者并列了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">KIVA开播的时候同期有个虚渊玄小林当编剧的黑深残变身英雄动画，当时的特摄痴都在嘲讽KIVA是和KABUTO一样的大粪臭不可闻，那动画片才是08年的假面骑士，到了DECADE之后漫区有人问要看骑士看什么有人直接回“别看照相机和小提琴”
+

@@ -2362,3 +2362,19 @@ tl这么写的</blockquote>
 
 还不能排<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">完美sb
 
+
+
+*****
+
+####  DarthAka  
+##### 40764#       发表于 2022-10-28 22:49
+
+剑圣突围赛赢过两把
+
+*****
+
+####  DarthAka  
+##### 40765#       发表于 2022-10-28 22:51
+
+蛋总直播间日常辱剑圣，记得很清楚
+
