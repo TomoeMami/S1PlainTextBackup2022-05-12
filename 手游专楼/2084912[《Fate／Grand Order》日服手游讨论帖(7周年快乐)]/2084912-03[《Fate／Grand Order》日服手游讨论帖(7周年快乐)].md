@@ -3221,3 +3221,12 @@ C呆、妖精高文都復刻抽过，奥伯隆应该也快吧，留了500多石�
 
 今天又更版本了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  blue321  
+##### 3288#       发表于 2022-10-29 06:53
+
+这次2.61几个常用的更新站都没放更新包……再不放就要断签了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
