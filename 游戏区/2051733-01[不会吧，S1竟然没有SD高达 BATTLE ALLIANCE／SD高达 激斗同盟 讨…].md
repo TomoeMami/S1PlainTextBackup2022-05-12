@@ -25,3 +25,14 @@ DLC3今天放出来了，这游戏算是告一段落了吧，周末再细品一�
 
 为什么能天R4一个近战机子格斗做成这幅吊样啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  920619lqy  
+##### 795#       发表于 2022-10-28 12:21
+
+<blockquote>丹德里恩 发表于 2022-10-27 19:17
+为什么能天R4一个近战机子格斗做成这幅吊样啊</blockquote>
+把三红放到SUB2完全看不懂
+
