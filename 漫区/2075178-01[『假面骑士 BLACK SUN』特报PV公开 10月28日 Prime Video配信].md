@@ -1913,3 +1913,32 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 看了两集感觉真不行，还不如粽子，剪辑水平太差了，刚开始我还没反应过来是双时间线叙事，搞得混乱不堪，真要双时间线叙事还不如像kiva那样切换时间线的时候有明确过场<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  米列希安  
+##### 174#       发表于 2022-10-29 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58155987&amp;ptid=2075178" target="_blank">11116等 发表于 2022-10-29 01:08</a>
+
+那你看01去
+
+—— 来自 OPPO PCAM10, Android 11上的 S1Next-鹅版 v2.5.3</blockquote>
+01我能对着伊兹打胶，这片你会对着那个女拳斗士女主打胶么？
+
+这片唯一值得打胶的女角色只有被猴怪人咬掉耳朵的拍卖会女主持，可惜就是个路人
+
+*****
+
+####  米列希安  
+##### 175#       发表于 2022-10-29 07:20
+
+ 本帖最后由 米列希安 于 2022-10-29 07:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154940&amp;ptid=2075178" target="_blank">浅川雏羽 发表于 2022-10-28 23:41</a>
+
+45分钟打个位数啊，你要找的是不是凹凸赛文35周年进化五部曲其二『perfect world』 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">日本观众用行动说话把EVOLUTION这玩意打成了狗尾续貂，顺便相比起国内人喜欢尬吹平成赛文，日本那边对平成赛文的态度还挺不冷不热的，被国人吹到爆的农马尔特使者续集日本那边也很不感冒觉得破坏了留白的意境，
+
+而我也是觉得平成赛文除了少部分优秀剧集外大部分都是闷片的人
+
