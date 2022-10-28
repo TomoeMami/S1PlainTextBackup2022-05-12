@@ -924,3 +924,44 @@ ti6那手伐木机干掉eg还是历史留名的
 
 白完人就硬舔老南京吧
 
+
+
+*****
+
+####  六娃  
+##### 40608#       发表于 2022-10-28 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148084&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-28 17:20</a>
+有一说一，你让我现在去认a队除了秃头和4爷以外，navi除了dondo和ppy以外的 我也认不出 ...</blockquote>
+初代烧0akke还是很好认的
+
+*****
+
+####  zsu222  
+##### 40609#       发表于 2022-10-28 17:35
+
+ti6 玩好pom就行
+
+*****
+
+####  lyjssj  
+##### 40610#       发表于 2022-10-28 17:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有人记得米色瑞和wings打决赛1:2结束的时候，米色瑞脸红耳赤的向队友怒吼吗
+
+当时我就像着第四把基本也是白给了
+
+*****
+
+####  syndrome2032  
+##### 40611#       发表于 2022-10-28 17:38
+
+ti6如果不是拳酱迷信rtz，踢了misery和w33换成zai和rtz。秘密成绩会好些吗
+
+*****
+
+####  Mikumiku831  
+##### 40612#       发表于 2022-10-28 17:40
+
+4才是绿色通道 漏油有点不专业了
+
