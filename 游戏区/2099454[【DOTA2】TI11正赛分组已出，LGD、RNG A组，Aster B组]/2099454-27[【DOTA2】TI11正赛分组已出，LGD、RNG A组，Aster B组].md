@@ -9302,3 +9302,114 @@ NGA的集美为啥对清算这么大的热情，小作文阴谋论要素拉满�
 腾讯的皮肤不可交易，发皮肤也没见崩啊，都发钱等于没发是阴阳怪气你还真信啊，钱印没印都清楚，发到谁手 ...</blockquote>
 俺是太监论坛复制的
 
+
+
+*****
+
+####  沉默之声  
+##### 40007#       发表于 2022-10-28 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139576&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-28 08:04</a>
+
+输了: bp不行 辅助没出辅助装 队友带女朋友去赛场  假赛 寡头财阀巨擘克格勃 v🐍做局 王八掀背眼角有泪 
+
+ ...</blockquote>
+NGA的集美估计都是看主舞台的，活在幻想里
+
+10分钟前：萧瑟需要输出环境不然打不了，小小把人丢在Tb脸上输出
+
+三分钟前：小小把TB往回丢，换血没换出来
+
+现在：恭喜星辰战队小翻盘
+
+得出结论：小小坑我家哥哥
+
+*****
+
+####  星野航  
+##### 40008#       发表于 2022-10-28 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139536&amp;ptid=2099454" target="_blank">沉默之声 发表于 2022-10-28 08:59</a>
+
+要是男的…为了洗哥哥菜逼而甩锅前队友老婆，就相当作呕了，直面现实的勇气都没有吗 ...</blockquote>
+要真有那胆直面现实，去年就没有什么沙俄富豪之子，什么kgb枪指头，什么假赛了
+
+到了阿灵顿也不会有什么小蚂蚁，哪怕阿灵顿决赛输了还是：去年肯定假赛
+
+更别提前几年什么猫鼠游戏
+
+说了，太监跟giegie那作风是一路人，giegie有出来直面过现实么？跟阿梓的感情问题全是阿梓出来说的，自己跑杰出清算23457的视频下留言支持是吧
+
+而且说不好听的，这骂女人误事不是老传统了，也不奇怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 40009#       发表于 2022-10-28 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139536&amp;ptid=2099454" target="_blank">沉默之声 发表于 2022-10-28 08:59</a>
+
+要是男的…为了洗哥哥菜逼而甩锅前队友老婆，就相当作呕了，直面现实的勇气都没有吗 ...</blockquote>
+要真有那胆直面现实，去年就没有什么沙俄富豪之子，什么kgb枪指头，什么假赛了
+
+到了阿灵顿也不会有什么小蚂蚁，哪怕阿灵顿决赛输了还是：去年肯定假赛
+
+更别提前几年什么猫鼠游戏
+
+说了，太监跟giegie那作风是一路人，giegie有出来直面过现实么？跟阿梓的感情问题全是阿梓出来说的，自己跑杰出清算23457的视频下留言支持是吧
+
+而且说不好听的，这骂女人误事不是老传统了，也不奇怪吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  聚散浮云  
+##### 40010#       发表于 2022-10-28 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139436&amp;ptid=2099454" target="_blank">Moodyblue 发表于 2022-10-28 07:39</a>
+
+​每个人都送至宝等于没送
+
+以前时候国外发钱都把经济整成啥样了还不明白了，发钱是下下策的经济学原理懂 ...</blockquote>
+看出来你既不懂经济也不懂饰品了
+
+*****
+
+####  聚散浮云  
+##### 40011#       发表于 2022-10-28 08:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139606&amp;ptid=2099454" target="_blank">Moodyblue 发表于 2022-10-28 08:10</a>
+
+俺是太监论坛复制的</blockquote>
+草，被钓了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Moodyblue  
+##### 40012#       发表于 2022-10-28 08:14
+
+​lgd这两年是不是在faith bian和莫言的英雄池上吃了很大的亏
+
+ame这两年大圣还有其他英雄基本能稳吃1-2个ban位，faith bian今年玩不好谜团、40龙，去年玩不好马尔斯，莫言这两年ts没练好，滚滚中看不中用，回家局就选一个船长
+
+你再阴阳怪气，也改变不了ti10决赛，3把lgd这边都是1号位吃前两个ban位，自己这边则没把都要ban对面3号位玛尔斯的事实。
+
+纵观两队bp，就是萧瑟大圣和崩溃哥玛尔斯稳定各吃一个ban位。
+
+ame稳定吃ban位，但是自己也没打好，被对面不吃ban位的C乱爆是事实。
+
+而己方三号位不用吃ban位，表现还被对面稳定吃ban位的三号位爆中乱爆，不是事实？
+
+*****
+
+####  Moodyblue  
+##### 40013#       发表于 2022-10-28 08:16
+
+集美论坛最新消息，bian不会马尔斯
+
+*****
+
+####  我前期那么肥  
+##### 40014#       发表于 2022-10-28 08:17
+
+确实不会，以前lgd马尔斯都是中单玩的，他那个矛命中率堪比皮鞋
+
