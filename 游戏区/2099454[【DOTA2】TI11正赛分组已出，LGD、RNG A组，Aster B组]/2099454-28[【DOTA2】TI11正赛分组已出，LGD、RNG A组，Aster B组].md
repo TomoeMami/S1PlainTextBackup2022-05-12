@@ -2339,3 +2339,26 @@ tl这么写的</blockquote>
 
 前面忘了，中间也忘了，写在aster受难前一晚
 
+
+
+*****
+
+####  winkle  
+##### 40761#       发表于 2022-10-28 22:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">嘻嘻哈哈的快速岩洞
+
+*****
+
+####  ml1642879  
+##### 40762#       发表于 2022-10-28 22:42
+
+我怎么觉得是sa呢
+
+*****
+
+####  反方向的波  
+##### 40763#       发表于 2022-10-28 22:43
+
+还不能排<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">完美sb
+

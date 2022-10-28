@@ -1613,3 +1613,24 @@ revice再烂也有打架有乐子，这片只有闷，冲着看乐子都比看�
 
 特摄痴本质抖M，吞粪然后自我催眠粪很香是常态
 
+
+
+*****
+
+####  WoLodEstt  
+##### 146#       发表于 2022-10-28 22:33
+
+娘的，皮套是真好看，但剧情逻辑越细想越觉得千疮百孔<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+还是看剪辑多看看皮套得了
+
+*****
+
+####  浅川雏羽  
+##### 147#       发表于 2022-10-28 22:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58153622&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-10-28 22:27</a>
+
+这算啥，当年KIVA，KABUTO和DECADE这三被当成大粪批斗到臭不可闻的时候不也是这套话术，太阳底下没 ...</blockquote>
+kiva什么时候被拿到和后面两者并列了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

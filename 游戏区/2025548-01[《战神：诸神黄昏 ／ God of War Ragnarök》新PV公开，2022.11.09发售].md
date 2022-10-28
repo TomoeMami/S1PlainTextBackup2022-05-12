@@ -8159,3 +8159,15 @@ a9那边说47h白金的，并怒骂ign菜鸡<img src="https://static.saraba1st.c
 不，日版没中文，而且日配仍然是日版独占</blockquote>
 有吧，商店里写的是简体字 中国语啥的
 
+
+
+*****
+
+####  JudgmentEye  
+##### 862#       发表于 2022-10-28 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58153673&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-28 22:30</a>
+
+有吧，商店里写的是简体字 中国语啥的</blockquote>
+网页版没有，是实机页面？
+
