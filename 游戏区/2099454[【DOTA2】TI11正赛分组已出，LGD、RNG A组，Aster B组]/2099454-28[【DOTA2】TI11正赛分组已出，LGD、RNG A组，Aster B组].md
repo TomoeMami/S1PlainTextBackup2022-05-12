@@ -1487,3 +1487,48 @@ wqy890716 35858722 级别: 学徒 威望: 1 注册: 15-05-28
 
 石油杯难道卜是宇宙第一赛事？
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 40670#       发表于 2022-10-28 19:46
+
+50多岁的上校早转业或者退役了吧
+
+*****
+
+####  没钱买手办  
+##### 40671#       发表于 2022-10-28 19:47
+
+阿罗拉连道馆都没有，major都比不上，最多算是个华理八角亭杯冠军吧
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 40672#       发表于 2022-10-28 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58150669&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-28 19:47</a>
+阿罗拉连道馆都没有，major都比不上，最多算是个华理八角亭杯冠军吧
+
+—— 来自 Xiaomi 21121210C, Android ...</blockquote>
+浩方黄金联赛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 40673#       发表于 2022-10-28 19:50
+
+海选靠乱战先锋晋级的比赛，我认为其含金量不仅不如石油杯，顶天是个浩方黄金联赛的水平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  二宮飛鳥酱  
+##### 40674#       发表于 2022-10-28 19:50
+
+那谁是神兽男<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

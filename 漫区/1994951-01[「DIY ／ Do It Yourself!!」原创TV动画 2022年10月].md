@@ -3279,3 +3279,29 @@ sweetsub已经出了翻译版本了，翻得也还算准确吧，你去看看
 秋アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第4話放送後インタビュー：しー役 高橋花林さん&amp;#xD7;ジョブ子役 大森日雅さん｜似た者同士のジョブ子とぷりん、二人が印象に残った台詞は？
 [https://www.animatetimes.com/news/details.php?id=1666852454](https://www.animatetimes.com/news/details.php?id=1666852454)
 
+
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 264#       发表于 2022-10-28 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58138875&amp;ptid=1994951" target="_blank">嘴瓢王者 发表于 2022-10-28 02:08</a>
+
+有哪里可以看到有弹幕的源面
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+只有弹弹play有零丁可数的弹幕，其他就没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟没有一家中文视频门户购买了播放版权啊
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 265#       发表于 2022-10-28 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58138790&amp;ptid=1994951" target="_blank">Piano-Forest 发表于 2022-10-28 01:51</a>
+
+这猪是每集都要迫害下吗
+
+htt ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">猪猪受迫害场景是这部动画的必备环节，不得不品……倒是这只猪猪似乎能听得懂人话似的
+
