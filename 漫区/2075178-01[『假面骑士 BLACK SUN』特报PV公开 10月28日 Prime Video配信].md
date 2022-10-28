@@ -1581,3 +1581,16 @@ revice再烂也有打架有乐子，这片只有闷，冲着看乐子都比看�
 
 成人向在东映眼中只剩番茄酱一些弱智的正字隐喻和黑深残滤镜，拍不明白了已经<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上的说得好，平成年初的来打才是真的成人向
 
+
+
+*****
+
+####  浅川雏羽  
+##### 144#       发表于 2022-10-28 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58153196&amp;ptid=2075178" target="_blank">恶意之刃 发表于 2022-10-28 22:02</a>
+成人向在东映眼中只剩番茄酱一些弱智的正字隐喻和黑深残滤镜，拍不明白了已经楼上的说得好，平成年 ...</blockquote>
+平成年初的幪面超人不是因为前作画面太黑所以直接子供向拉满的blackrx嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

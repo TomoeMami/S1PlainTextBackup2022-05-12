@@ -12047,3 +12047,21 @@ miko什么时候播夸的黄油很急
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下哇哇叫了
 
+
+
+*****
+
+####  holoan  
+##### 2656#         楼主| 发表于 2022-10-28 22:07
+
+通关了
+
+这速度还行了最少没熬夜
+
+*****
+
+####  holoan  
+##### 2657#         楼主| 发表于 2022-10-28 22:10
+
+明晚好像是要去工作室现场直播的所以应该只有FC一动了
+
