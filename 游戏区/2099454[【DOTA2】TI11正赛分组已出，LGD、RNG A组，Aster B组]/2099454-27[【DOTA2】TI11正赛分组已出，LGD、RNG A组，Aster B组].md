@@ -11839,3 +11839,165 @@ Esports Awards 这是恶心人还是单纯不懂？
 
 虽然是优势组合吧
 
+
+
+*****
+
+####  nowaki  
+##### 40273#       发表于 2022-10-28 11:17
+
+Esports Awards也是护鞭宝，玉玉了
+
+*****
+
+####  bluebaby  
+##### 40274#       发表于 2022-10-28 11:17
+
+ame最经典的场面有三种。
+一是所有人都觉得要开团的时候，甚至队友看上去已经要去先手了的时候，他可能开着影刀跑去八百里开外收线了。
+二是是看到了对面全员失踪，然后有个单杀不了他的人在他眼前，他选择继续打钱甚至冲上去对打。
+三是团战已经打不了大家都要散开了，但他突然就回头冲向某个有莫名仇恨值的。
+想了下核心思路可能是，我有钱了我就无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 40275#       发表于 2022-10-28 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58142230&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-28 11:03</a>
+
+Q：这次TI给你们最大惊喜的队伍是谁？无论是正面反面的惊喜都行。
+
+Zayac：对我来说是Entity，西欧预选后一 ...</blockquote>
+难受，宁愿狗仗人势的是我
+
+*****
+
+####  roxas.sora  
+##### 40276#       发表于 2022-10-28 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58142419&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-28 11:11</a>
+
+还是不太一样，大概类似给卡瓦尼剪吐饼，因为巅峰梅西可干不出这么多“亮眼”
+
+萧瑟的技术亮点就是刷钱确 ...</blockquote>
+刷钱是他点满的技能点，比rtz切入好，对线差，刷钱半斤八两，选队友能力比rtz强，这类型的c都是差不多的
+
+*****
+
+####  Litccc  
+##### 40277#       发表于 2022-10-28 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58142475&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-28 11:15</a>
+
+你进楼先虚空画个靶，被AOE到的人回来点草你，你就“哇哇哇熟人社会欺负我”，中间还夹杂着管人痴特有的自 ...</blockquote>
+那倒不一定，我记得在sg见过这位熊弟的头像，鉴定为看asoul的傻狗
+
+*****
+
+####  百世诸侯  
+##### 40278#       发表于 2022-10-28 11:18
+
+<blockquote>roxas.sora 发表于 2022-10-28 11:14
+1.对线一线c水平，主要优势路还得看辅助和英雄，一般来说很少出现他对线就被打崩的局面，比较经常看到他 ...</blockquote>
+随便思考了一下就想到了第一天被红龙对线杀穿的TB，石油巨子斯温，还有哪一把小黑也是直接穿，这对线水平真的一线了吗？
+
+*****
+
+####  nowaki  
+##### 40279#       发表于 2022-10-28 11:18
+
+ame的切入
+
+A脸上最近的
+
+B钢背的屁股
+
+C陈
+
+*****
+
+####  我前期那么肥  
+##### 40280#       发表于 2022-10-28 11:18
+
+别尬黑，ti9又没有 脑浆y ti10确实统治周海洋宇宙了啊， cn周海洋 eu 周海洋 cis 周海洋 sea周海洋 最后碰到cis艹艹被潮汐lion 打拍拍IO打的生活不能自理
+
+*****
+
+####  wzy200912345  
+##### 40281#       发表于 2022-10-28 11:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">一点进楼里就是围绕楼宠特有的内讧骂战
+
+*****
+
+####  ml1642879  
+##### 40282#       发表于 2022-10-28 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58142506&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-28 11:18</a>
+那倒不一定，我记得在sg见过这位熊弟的头像，鉴定为看asoul的傻狗</blockquote>
+别整虚空记忆，我在sg是经典discuz默认头像
+
+*****
+
+####  ml1642879  
+##### 40283#       发表于 2022-10-28 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58142506&amp;ptid=2099454" target="_blank">Litccc 发表于 2022-10-28 11:18</a>
+那倒不一定，我记得在sg见过这位熊弟的头像，鉴定为看asoul的傻狗</blockquote>
+别整虚空记忆，我在sg是经典discuz默认头像
+
+*****
+
+####  roxas.sora  
+##### 40284#       发表于 2022-10-28 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58142519&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-28 11:18</a>
+
+随便思考了一下就想到了第一天被红龙对线杀穿的TB，石油巨子斯温，还有哪一把小黑也是直接穿，这对线水平 ...</blockquote>
+双人路不能只看他的啊，还要看选的啥和队友是啥，大部分情况他对线都不是短板
+
+*****
+
+####  IG.430  
+##### 40285#       发表于 2022-10-28 11:20
+
+你让丁聪保giegie一个试试<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 40286#       发表于 2022-10-28 11:20
+
+你让丁聪保giegie一个试试<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 40287#       发表于 2022-10-28 11:21
+
+感觉不如看现场破防集美发vlog
+【Ti11决赛周末 场馆外观布置现场及周边 V社赠送礼品 我是不会支持茶队的-哔哩哔哩】 https://b23.tv/QhCCs1k
+
+*****
+
+####  六娃  
+##### 40288#       发表于 2022-10-28 11:21
+
+感觉不如看现场破防集美发vlog
+【Ti11决赛周末 场馆外观布置现场及周边 V社赠送礼品 我是不会支持茶队的-哔哩哔哩】 https://b23.tv/QhCCs1k
+
+*****
+
+####  iriyano  
+##### 40289#       发表于 2022-10-28 11:22
+
+赶来给nga来的弱智扣鹅
+
+*****
+
+####  六娃  
+##### 40290#       发表于 2022-10-28 11:22
+
+说A畜对线不是短板的应该是比赛看少了，没有大量双人路排列组合的信息，看上一年dpc+major就不会有这种误判
+
