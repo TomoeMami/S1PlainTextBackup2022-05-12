@@ -232,3 +232,12 @@ hnn这次主催的ow2自定义是暴雪日区运营赞助的啊，不错<img src
 
 这下叛逆期小太妹了<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  winda  
+##### 17655#       发表于 2022-10-28 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">vox这诊断为注意力缺陷障碍，还很可能有PTSD，虹不利于精神健康说再次上浮
+

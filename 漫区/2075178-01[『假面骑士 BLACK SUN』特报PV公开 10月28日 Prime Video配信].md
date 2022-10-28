@@ -1563,3 +1563,21 @@ revice再烂也有打架有乐子，这片只有闷，冲着看乐子都比看�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  最好不说  
+##### 142#       发表于 2022-10-28 21:55
+
+服了，如果说前六集是节奏稀碎看得头痛，后四集完全是不知所谓啊。
+
+所有人物的转变都毫无征兆生硬的一批，最后黑日硬是要去找影月决斗也是弱智到家了，为啥非要送石头和自己上门，就为了拍女主捅死他的那一幕吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评价为纯纯的一坨屎
+
+*****
+
+####  恶意之刃  
+##### 143#       发表于 2022-10-28 22:02
+
+成人向在东映眼中只剩番茄酱一些弱智的正字隐喻和黑深残滤镜，拍不明白了已经<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼上的说得好，平成年初的来打才是真的成人向
+
