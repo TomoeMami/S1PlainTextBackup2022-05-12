@@ -14686,3 +14686,21 @@ pay
 CelticWhite
 <img src="https://p.sda1.dev/8/d2a8792a84a5ca59746e1fb021a39e60/1999686515.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  名津流  
+##### 8830#       发表于 2022-10-28 16:44
+
+[https://www.internationalsaimoe.com/statistics/nominations/](https://www.internationalsaimoe.com/statistics/nominations/)
+
+据说世萌最后一届，今晚可可参战
+
+*****
+
+####  ViyViy  
+##### 8831#       发表于 2022-10-28 16:50
+
+这最后一届不是说解禁往届冠军限制吗，看到这个消息的时候就觉得没啥值得关注的了，轮不到可可的，让那些冠军去磨灭大道吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

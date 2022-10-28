@@ -8176,3 +8176,14 @@ y1s1，这游戏做的还行，对得起价钱。
 
 只想要那张塔罗牌
 
+
+
+*****
+
+####  往世雷书  
+##### 12778#       发表于 2022-10-28 16:47
+
+庄司的装备我买了好几套，老冤种了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，这个买一套就得了，有多余的钱买排骨吃不香吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

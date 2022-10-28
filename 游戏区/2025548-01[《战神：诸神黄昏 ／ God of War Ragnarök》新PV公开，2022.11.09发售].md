@@ -7970,3 +7970,18 @@ IGN的QA节目上一个人说他们已经玩了70小时，目前还没有100%，
 
 还有2周就开始偷跑了啊
 
+
+
+*****
+
+####  名字已被吃  
+##### 845#       发表于 2022-10-28 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58145119&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-28 14:29</a>
+https://www.bilibili.com/video/B ... 01&amp;unique_k=TOZX0Gx
+
+美版有偷跑，核心大概是全区中文，别的没啥。 ...</blockquote>
+那我订的收藏版里面附的游戏码更好卖出去了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

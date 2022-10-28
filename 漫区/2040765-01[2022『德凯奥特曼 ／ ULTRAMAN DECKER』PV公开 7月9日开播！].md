@@ -1201,3 +1201,15 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146695&amp;ptid=2040765" target="_blank">Piano-Forest 发表于 2022-10-28 16:11</a></blockquote>
 什么猫和老鼠
 
+
+
+*****
+
+####  游蜓  
+##### 717#       发表于 2022-10-28 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58132631&amp;ptid=2040765" target="_blank">athena_1982 发表于 2022-10-27 19:00</a>
+
+我是看出久弥的问题点在哪了，他的剧本本来节奏就诡异，喜欢跳剧情，再夹杂些看不懂的谜语人，整段戏就直接 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看他拍的就像看闪回一样，支离破碎
+
