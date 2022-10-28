@@ -4737,3 +4737,15 @@ silent5层的资源打不过a1超级精英就很正常了，都不用去尝试
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58127766&amp;ptid=1567869" target="_blank">dclara1 发表于 2022-10-27 14:13</a></blockquote>
 可以帮忙复制一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，在历史记录里C+V就行，我输入好多次都不对
 
+
+
+*****
+
+####  dclara1  
+##### 428#       发表于 2022-10-28 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140130&amp;ptid=1567869" target="_blank">Kazepollar 发表于 2022-10-28 09:01</a>
+
+可以帮忙复制一下吗，在历史记录里C+V就行，我输入好多次都不对</blockquote>
+1TFJPM91S6AY5
+
