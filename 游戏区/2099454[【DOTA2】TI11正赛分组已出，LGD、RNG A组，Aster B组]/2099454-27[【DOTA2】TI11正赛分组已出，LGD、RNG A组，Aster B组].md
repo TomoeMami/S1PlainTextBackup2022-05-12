@@ -9471,3 +9471,68 @@ ame这两年大圣还有其他英雄基本能稳吃1-2个b ...</blockquote>
 
 没有nts'那把tinker水厂估计0-3被抬走了吧
 
+
+
+*****
+
+####  walfeds  
+##### 40020#       发表于 2022-10-28 08:33
+
+只能说集美的转口风速度令人感慨
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  星野航  
+##### 40021#       发表于 2022-10-28 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139742&amp;ptid=2099454" target="_blank">沉默之声 发表于 2022-10-28 09:27</a>
+
+比赛印象，Ame的传统1 美杜莎幽鬼炼金小小小鱼小娜迦TB 飞机 血魔 Pa玩的都没啥亮眼之处啊
+
+给人印象比较 ...</blockquote>
+你列举的这些个，美杜莎打得很少不说了
+
+其他几个不是都表演过的，特别是小鱼小小tbnaga，简直是小丑
+
+水人那就不说了好吧，顶级小丑
+
+giegie算得上正常一点的确实就是一手大圣。但也不是靠绝活上ban的，ts去年90%的对局都ban大圣，跟giegei有个啥关系
+
+*****
+
+####  沉默之声  
+##### 40022#       发表于 2022-10-28 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139652&amp;ptid=2099454" target="_blank">Moodyblue 发表于 2022-10-28 08:16</a>
+
+集美论坛最新消息，bian不会马尔斯</blockquote>
+很明显了，感觉这个版本三号位可以选的TS，马西，死灵龙，末日，兽，都比马尔斯更有赢面，面8ban了7个可以打3号位的英雄保TB，给XXS换个滚滚或者谜团说不定一样把TB关了
+
+*****
+
+####  夏溪澪mio  
+##### 40023#       发表于 2022-10-28 08:37
+
+楼友这不是反串“所有人都发钱等于不发钱”言论吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 40024#       发表于 2022-10-28 08:38
+
+<img src="https://img.saraba1st.com/forum/202210/28/083822daqydqet8tqon7jd.png" referrerpolicy="no-referrer">
+
+<strong>D853CC7E-47F8-480C-9775-D8A0D03C289F.png</strong> (722.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 08:38 上传
+
+雪碧ban一号位比较多的34把反而输了
+
