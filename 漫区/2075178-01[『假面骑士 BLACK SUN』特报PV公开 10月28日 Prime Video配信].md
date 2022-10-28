@@ -1039,3 +1039,12 @@ magnet:?xt=urn:btih:027b12322434ade126974253448a11d74372b370
 
 —— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  宵十一狼  
+##### 89#       发表于 2022-10-28 08:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">看完的说一下RX复刻还有戏么？
+
