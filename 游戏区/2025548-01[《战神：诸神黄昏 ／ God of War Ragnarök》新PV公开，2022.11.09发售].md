@@ -7998,3 +7998,23 @@ https://www.bilibili.com/video/B ... 01&amp;unique_k=TOZX0Gx
 
 当然还有什么收集品啥的
 
+
+
+*****
+
+####  HDGDG  
+##### 847#       发表于 2022-10-28 19:13
+
+怎么又开始争论战神诸神黄昏是不是DLC了？这个话题真无聊
+
+*****
+
+####  415452356  
+##### 848#       发表于 2022-10-28 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58150154&amp;ptid=2025548" target="_blank">HDGDG 发表于 2022-10-28 19:13</a>
+怎么又开始争论战神诸神黄昏是不是DLC了？这个话题真无聊</blockquote>
+  你放心，泥潭那些一直不肯给我发群号有钱一起赚的过阵子就出来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

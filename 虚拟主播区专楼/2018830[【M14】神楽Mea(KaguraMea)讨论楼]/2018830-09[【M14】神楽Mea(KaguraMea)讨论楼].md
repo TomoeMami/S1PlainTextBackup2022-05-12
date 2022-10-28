@@ -8216,3 +8216,14 @@ y1s1，这游戏做的还行，对得起价钱。
 
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  pei23333  
+##### 12782#       发表于 2022-10-28 19:10
+
+动态的还行，话说这人还没醒？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

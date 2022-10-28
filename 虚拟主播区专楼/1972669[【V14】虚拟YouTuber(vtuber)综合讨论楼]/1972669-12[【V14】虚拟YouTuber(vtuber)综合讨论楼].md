@@ -199,3 +199,14 @@ MC🎤犬山たまき
 
 崩批好似<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 17652#       发表于 2022-10-28 19:10
+
+ 本帖最后由 FCCHua 于 2022-10-28 19:12 编辑 
+
+hnn这次主催的ow2自定义是暴雪日区运营赞助的啊，不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

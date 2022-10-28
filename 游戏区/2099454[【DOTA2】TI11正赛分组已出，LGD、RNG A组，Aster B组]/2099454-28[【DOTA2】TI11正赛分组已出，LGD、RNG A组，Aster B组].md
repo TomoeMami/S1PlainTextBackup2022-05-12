@@ -1370,3 +1370,21 @@ dota之神已经给仙贝足够多的机会了。
 
 —— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  masterffzhou  
+##### 40657#       发表于 2022-10-28 19:14
+
+超级小畜生论坛
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  朝游北海  
+##### 40658#       发表于 2022-10-28 19:20
+
+理性讨论，比卡丘打完比赛后会不会说输了比赛总感觉队友不给力，来年一踢五。
+
