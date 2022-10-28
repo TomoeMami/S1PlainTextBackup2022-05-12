@@ -12107,3 +12107,24 @@ wiki看不懂日文可以对着装备数值去找
 
 干上去2级才把高洁之剑刷出来，顺手把6个exboss都端了，目前60级可以愉快的去推第八章了
 
+
+
+*****
+
+####  孔祈  
+##### 1102#       发表于 2022-10-28 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58141133&amp;ptid=2098044" target="_blank">skyfaker305 发表于 2022-10-28 10:05</a>
+这个新章有讲，涉及剧透，继续玩就知道了</blockquote>
+已经完美结局通关了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没看到他的剧情才来问问
+
+*****
+
+####  黒長直姫  
+##### 1103#       发表于 2022-10-28 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58141581&amp;ptid=2098044" target="_blank">孔祈 发表于 2022-10-28 10:30</a>
+
+已经完美结局通关了没看到他的剧情才来问问</blockquote>
+没看到还行 新章凯出来以后的回忆 因为你拿天平乱搞这个时间线上没有这个人了
+
