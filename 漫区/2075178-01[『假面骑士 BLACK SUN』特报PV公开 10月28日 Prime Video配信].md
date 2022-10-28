@@ -1790,3 +1790,15 @@ kiva什么时候被拿到和后面两者并列了</blockquote>
 有一说一 这剧情是不是在映射日本赤军那帮子事啊</blockquote>
 毫无疑问是 年份都对上了  情节上就没怎么对应了
 
+
+
+*****
+
+####  浅川雏羽  
+##### 162#       发表于 2022-10-28 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154666&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-10-28 23:26</a>
+
+这片要有7的单元剧剧情水平没人会说什么，而且7是24分钟一集的TV，他可干不出45分钟打个个位数这么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">45分钟打个位数啊，你要找的是不是凹凸赛文35周年进化五部曲其二『perfect world』
+
