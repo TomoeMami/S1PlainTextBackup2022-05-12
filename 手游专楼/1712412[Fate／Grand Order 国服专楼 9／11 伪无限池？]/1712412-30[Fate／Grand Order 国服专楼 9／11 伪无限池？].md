@@ -277,3 +277,12 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 你确定？双修表示这点狗粮几下就吃完了</blockquote>
 确定，要升120的之前已经升完了，也没力气升第二个了...
 
+
+
+*****
+
+####  艾尔特翔  
+##### 43662#       发表于 2022-10-28 16:11
+
+120都不想，我还有好多L1的4星和3星还不够喂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
