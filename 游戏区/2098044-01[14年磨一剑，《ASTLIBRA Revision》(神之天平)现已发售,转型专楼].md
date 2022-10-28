@@ -12128,3 +12128,35 @@ wiki看不懂日文可以对着装备数值去找
 已经完美结局通关了没看到他的剧情才来问问</blockquote>
 没看到还行 新章凯出来以后的回忆 因为你拿天平乱搞这个时间线上没有这个人了
 
+
+
+*****
+
+####  skyfaker305  
+##### 1104#       发表于 2022-10-28 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58141581&amp;ptid=2098044" target="_blank">孔祈 发表于 2022-10-28 10:30</a>
+
+已经完美结局通关了没看到他的剧情才来问问</blockquote>
+剧透新章凯的回忆里不就是酒吧的男人吗，他和凯都是从其他时空来的，然后因为主角改变过去，所以这个男人就从未来消失了我记得这还是主要剧情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孔祈  
+##### 1105#       发表于 2022-10-28 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58141648&amp;ptid=2098044" target="_blank">黒長直姫 发表于 2022-10-28 10:33</a>
+
+没看到还行 新章凯出来以后的回忆——因为你拿天平乱搞这个时间线上没有这个人了 ...</blockquote>
+原来凯回忆中的那个人是他，酒馆门口那个人没怎么和他对话，没认出来
+
+*****
+
+####  孔祈  
+##### 1106#       发表于 2022-10-28 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58141736&amp;ptid=2098044" target="_blank">skyfaker305 发表于 2022-10-28 10:38</a>
+
+剧透新章凯的回忆里不就是酒吧的男人吗，他和凯都是从其他时空来的，然后因为主角改变过去，所以这个男人 ...</blockquote>
+没认出来，尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
