@@ -1438,3 +1438,15 @@ BYD我以为那个警察是好人，还以为警察局有啥线，结果这比�
 
 —— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 129#       发表于 2022-10-28 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58149686&amp;ptid=2075178" target="_blank">yyf奇遇记 发表于 2022-10-28 18:45</a>
+
+挺群里面的群友说烂的批爆？各种无意义剧情？</blockquote>
+打架的目的挺无意义的…………
+
