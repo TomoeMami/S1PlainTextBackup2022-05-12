@@ -1180,3 +1180,21 @@ the系列还是算了吧，《水知道答案》的内容都能一本正经地�
 
 —— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  泥潭办证先锋  
+##### 103#       发表于 2022-10-28 13:59
+
+ 本帖最后由 泥潭办证先锋 于 2022-10-28 14:02 编辑 
+
+看到第六集了，感觉很一般……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+也不是剧情有多大硬伤、有多大逻辑问题。
+
+它就是无聊，看到前面猜到后面的无聊，情绪渲染、人物塑造白开水一样。初变身那次本来是个爆点，但是来得太晚了……但感觉还差一口气，对不起前面磨磨唧唧推进剧情所浪费的时间。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+而且最烦的是双线叙事瞎几把乱剪，处理得乱七八糟，让我不得不拉回进度条再认真看一次……
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
