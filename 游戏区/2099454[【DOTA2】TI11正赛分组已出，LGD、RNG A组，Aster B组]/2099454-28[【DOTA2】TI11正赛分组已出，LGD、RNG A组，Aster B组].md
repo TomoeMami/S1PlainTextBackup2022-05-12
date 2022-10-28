@@ -1141,3 +1141,59 @@ ti6有一点好，自此拳酱认清了鳖鳖野父的本质。rtz你永远不�
 
 四支队伍我都欢迎好吧
 
+
+
+*****
+
+####  没钱买手办  
+##### 40633#       发表于 2022-10-28 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理性通透一下智畜拿了皮神，mega卢卡里奥,z技能和极巨耿鬼这四赵云都打不过丹迪的话该怎么青蒜
+
+1 忘了
+
+2 没编
+
+3 塞雷娜跑去选美大赛影响了哥哥心情
+
+*****
+
+####  哈萨维·诺亚  
+##### 40634#       发表于 2022-10-28 18:16
+
+四支队伍我都欢迎好吧，没有lgd的ti才是最棒的ti
+
+*****
+
+####  yyf奇遇记  
+##### 40635#       发表于 2022-10-28 18:16
+
+前面的忘了，尿了，跑步
+
+*****
+
+####  逃离二次元  
+##### 40636#       发表于 2022-10-28 18:16
+
+前面的忘了，尿了，跑步
+
+*****
+
+####  越动天下  
+##### 40637#       发表于 2022-10-28 18:17
+
+yysy 最不喜欢的都是焦比 不过无所谓了 谁拿冠军都行
+
+*****
+
+####  莉拉厨  
+##### 40638#       发表于 2022-10-28 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58149102&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-28 18:15</a>
+理性通透一下智畜拿了皮神，mega卢卡里奥,z技能和极巨耿鬼这四赵云都打不过丹迪的话该怎么青蒜
+
+1 忘 ...</blockquote>
+哦牛逼，瑟畜没去现场也要被清算<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
