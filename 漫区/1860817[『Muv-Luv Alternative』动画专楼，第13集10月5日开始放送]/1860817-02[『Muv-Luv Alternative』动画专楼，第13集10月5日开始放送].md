@@ -90,3 +90,14 @@
 
 这日记部分好像ef<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1963#       发表于 2022-10-29 01:36
+
+看漫区女主人气想起来，本作搞过人气投票（坛内）吗？
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
