@@ -965,3 +965,107 @@ ti6如果不是拳酱迷信rtz，踢了misery和w33换成zai和rtz。秘密成�
 
 4才是绿色通道 漏油有点不专业了
 
+
+
+*****
+
+####  反方向的波  
+##### 40613#       发表于 2022-10-28 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148473&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-28 17:38</a>
+ti6如果不是拳酱迷信rtz，踢了misery和w33换成zai和rtz。秘密成绩会好些吗</blockquote>
+没zai种吧，我记得是ee myboy bulba pieliedie 拳
+现在回头看真是个令人捧腹大笑的阵容
+
+*****
+
+####  蛭人  
+##### 40614#       发表于 2022-10-28 17:45
+
+zai是ti5的阵容，其实ti5也蛮搞的，全明星阵容。
+
+*****
+
+####  roxas.sora  
+##### 40615#       发表于 2022-10-28 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148565&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-28 17:43</a>
+
+没zai种吧，我记得是ee myboy bulba pieliedie 拳
+
+现在回头看真是个令人捧腹大笑的阵容 ...</blockquote>
+ee在冬季特锦赛打出了职业生涯最好的dota了，也算闪耀过，当时圣剑火猫的表演真是赏心悦目
+
+*****
+
+####  蛭人  
+##### 40616#       发表于 2022-10-28 17:47
+
+圣剑火猫运BKB验货，毛永仁的紧张。
+
+*****
+
+####  roxas.sora  
+##### 40617#       发表于 2022-10-28 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148588&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-28 17:45</a>
+
+zai是ti5的阵容，其实ti5也蛮搞的，全明星阵容。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">s4和rtz轮流犯病谁能想到啊
+
+*****
+
+####  yyf奇遇记  
+##### 40618#       发表于 2022-10-28 17:47
+
+zai卜是在eg混了个 季军吗
+
+*****
+
+####  勤练带来力量  
+##### 40619#       发表于 2022-10-28 17:48
+
+明天就开打了漏油们能不能说说看好谁夺冠，这几天突出一个秘密拳击手会整活石头人有批九液体有sszai<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我是选择相信ni公子了
+
+*****
+
+####  bluebaby  
+##### 40620#       发表于 2022-10-28 17:49
+
+nisha不尿的话秘密中单上的优势太大
+
+
+
+*****
+
+####  lyjssj  
+##### 40621#       发表于 2022-10-28 17:50
+
+ti5是秘密队出场的时候全员墨镜装逼
+
+然后被干死
+
+*****
+
+####  蛭人  
+##### 40622#       发表于 2022-10-28 17:51
+
+术士zai三个季军都换不来一个亚军，不是吗？
+
+希望马桶最后的战役是站着死的。
+
+*****
+
+####  非建政专用号  
+##### 40623#       发表于 2022-10-28 17:51
+
+拳酱能憋住戏瘾和吸瘾什么都好说
+
+*****
+
+####  yyf奇遇记  
+##### 40624#       发表于 2022-10-28 17:51
+
+去国外看了一圈，大部分看好秘密被石头人薄纱
+
