@@ -1324,3 +1324,12 @@ the系列还是算了吧，《水知道答案》的内容都能一本正经地�
 
 还没看，按楼里的反应看样子可以准备开分锅大会了
 
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 117#       发表于 2022-10-28 16:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得这剧的最大亮点是把日军人体实验给加了进去，创世王是战俘变得，这近年来真的少见
+
