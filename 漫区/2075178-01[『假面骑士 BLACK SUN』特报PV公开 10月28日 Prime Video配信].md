@@ -1351,3 +1351,21 @@ the系列还是算了吧，《水知道答案》的内容都能一本正经地�
 
 呃呃了，真的不想看养女儿
 
+
+
+*****
+
+####  kuglv  
+##### 120#       发表于 2022-10-28 16:53
+
+看到I can't breathe我真的气笑了，已经懒得去骂这部片了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 121#       发表于 2022-10-28 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">BYD我以为那个警察是好人，还以为警察局有啥线，结果这比是真的不干人事，莫名其妙就被杀了
+

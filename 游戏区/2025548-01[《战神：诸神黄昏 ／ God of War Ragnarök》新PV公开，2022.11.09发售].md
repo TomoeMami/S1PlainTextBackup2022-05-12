@@ -7985,3 +7985,16 @@ https://www.bilibili.com/video/B ... 01&amp;unique_k=TOZX0Gx
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  clover293  
+##### 846#       发表于 2022-10-28 16:53
+
+媒体没有攻略要自己探索的，所以一般会时间长。
+
+现在大部分玩家基本上几次卡关基本就会去找攻略了吧
+
+当然还有什么收集品啥的
+

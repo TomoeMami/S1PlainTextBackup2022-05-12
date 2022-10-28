@@ -286,3 +286,13 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 120都不想，我还有好多L1的4星和3星还不够喂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tttabc1  
+##### 43663#       发表于 2022-10-28 16:50
+
+不升120还行，够用了。
+芙芙缺得不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
