@@ -3212,3 +3212,12 @@ fgo一直能直连的你们为什么要用加速器<img src="https://static.sara
 
 C呆、妖精高文都復刻抽过，奥伯隆应该也快吧，留了500多石准备
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3287#       发表于 2022-10-28 22:53
+
+今天又更版本了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

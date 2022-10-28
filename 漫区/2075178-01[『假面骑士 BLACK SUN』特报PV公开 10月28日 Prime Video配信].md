@@ -1646,3 +1646,22 @@ kiva什么时候被拿到和后面两者并列了<img src="https://static.saraba
 kiva什么时候被拿到和后面两者并列了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">KIVA开播的时候同期有个虚渊玄小林当编剧的黑深残变身英雄动画，当时的特摄痴都在嘲讽KIVA是和KABUTO一样的大粪臭不可闻，那动画片才是08年的假面骑士，到了DECADE之后漫区有人问要看骑士看什么有人直接回“别看照相机和小提琴”
 
+
+
+*****
+
+####  永恒的王牌  
+##### 149#       发表于 2022-10-28 22:52
+
+还没看，所以可以评价为很有经费的粽子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ashero  
+##### 150#       发表于 2022-10-28 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154036&amp;ptid=2075178" target="_blank">永恒的王牌 发表于 2022-10-28 22:52</a>
+
+还没看，所以可以评价为很有经费的粽子吗</blockquote>
+40分钟*10左右的时长的片 你去批站找一下战斗合集剪辑 再有能耐的顶天给你剪出了三十分钟....
+
