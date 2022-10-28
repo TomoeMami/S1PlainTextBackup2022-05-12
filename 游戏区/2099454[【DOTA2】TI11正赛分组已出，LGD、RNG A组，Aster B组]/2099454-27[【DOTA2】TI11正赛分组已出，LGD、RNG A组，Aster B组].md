@@ -13739,3 +13739,111 @@ ti9的精灵现在看来不就是纯无脑不需要任何切入操作，为什�
 
 卜过转念一想，集美们连掀背都可以吹，为什么卜可以吹批九？
 
+
+
+*****
+
+####  蛭人  
+##### 40490#       发表于 2022-10-28 15:33
+
+哦，集美现在已经开始脑补xxs和boboka成为处长下一任队友了吧，真的牛逼。
+
+*****
+
+####  lyjssj  
+##### 40491#       发表于 2022-10-28 15:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10%夺冠差不多吧
+
+单抽出sr的概率
+
+*****
+
+####  morwhipppo  
+##### 40492#       发表于 2022-10-28 15:34
+
+卧槽！全套排水套装
+
+<img src="https://img.saraba1st.com/forum/202210/28/153428f9aaw0h0jpj0ij9a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A43BF6AA-5F29-4806-83AF-6A4AC5F23C90.jpeg</strong> (226.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 15:34 上传
+
+*****
+
+####  恐怖利刃  
+##### 40493#       发表于 2022-10-28 15:35
+
+psglgd获得dota2年度最佳战队奖
+
+<img src="https://img.saraba1st.com/forum/202210/28/153419wkh7o1733zp2353w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9F59E06E-B98A-4321-8859-4F6249492678.jpeg</strong> (63.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 15:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/28/153419wf9q95fskb0t60z0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>5A6606C1-96A5-4987-A465-011A8E693C24.jpeg</strong> (62.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 15:34 上传
+
+*****
+
+####  qwas  
+##### 40494#       发表于 2022-10-28 15:37
+
+问题来了，假如ti9也有5天休息时间，厅长到底能不能练成io<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 40495#       发表于 2022-10-28 15:37
+
+怎么还没到明天，感觉身上有编织者在爬
+
+*****
+
+####  yyf奇遇记  
+##### 40496#       发表于 2022-10-28 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146167&amp;ptid=2099454" target="_blank">morwhipppo 发表于 2022-10-28 15:34</a>
+
+卧槽！全套排水套装</blockquote>
+？怎么还有双头龙的
+
+*****
+
+####  winkle  
+##### 40497#       发表于 2022-10-28 15:37
+
+没比赛泥楼，淘屎工泛滥
+
+*****
+
+####  百世诸侯  
+##### 40498#       发表于 2022-10-28 15:38
+
+怎么还没到明天，感觉身上有余韵在爬
+
+*****
+
+####  zsu222  
+##### 40499#       发表于 2022-10-28 15:38
+
+我感觉阿奇练不出来    
+
+*****
+
+####  六娃  
+##### 40500#       发表于 2022-10-28 15:39
+
+人均时传祥
+
