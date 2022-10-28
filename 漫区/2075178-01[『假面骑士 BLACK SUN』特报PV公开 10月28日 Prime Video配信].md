@@ -1802,3 +1802,31 @@ kiva什么时候被拿到和后面两者并列了</blockquote>
 这片要有7的单元剧剧情水平没人会说什么，而且7是24分钟一集的TV，他可干不出45分钟打个个位数这么 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">45分钟打个位数啊，你要找的是不是凹凸赛文35周年进化五部曲其二『perfect world』
 
+
+
+*****
+
+####  電子器官依存  
+##### 163#       发表于 2022-10-28 23:53
+
+看了四集，感想是有点可惜，不拘泥于致敬的话打戏的穿插节奏应该会更好
+
+*****
+
+####  翼宿一  
+##### 164#       发表于 2022-10-29 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154036&amp;ptid=2075178" target="_blank">永恒的王牌 发表于 2022-10-28 22:52</a>
+还没看，所以可以评价为很有经费的粽子吗</blockquote>
+有地方是粽子 plus，但也有地方完成度不如粽子，忽视那些完成度不足的部分应该还是这几年能看得比较爽的骑士作品了。
+有更高的预算，武戏却少了；有更大的格局，但细节填充更差了；更多角色的群像剧，但人物塑造参差不齐，剪辑不分主次让不少角色的转变很是突兀；除去细节的完成度很差、剪辑零碎和后期剧情开火箭的话，优点还是足够多的，ED 的插入很有粽子 ED 那醍醐味，喜欢粽子的话这部是值得推荐的。
+
+—— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  毒菇  
+##### 165#       发表于 2022-10-29 00:02
+
+腰带好看
+
