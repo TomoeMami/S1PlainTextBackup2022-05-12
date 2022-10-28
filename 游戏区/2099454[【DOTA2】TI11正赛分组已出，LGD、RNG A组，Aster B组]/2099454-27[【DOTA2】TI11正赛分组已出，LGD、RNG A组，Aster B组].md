@@ -9232,3 +9232,73 @@ NGA的集美为啥对清算这么大的热情，小作文阴谋论要素拉满�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">野种们就硬无视呗
 
+
+
+*****
+
+####  sadllk  
+##### 40000#       发表于 2022-10-28 08:01
+
+所以说这两天这游戏还能玩吗，卡的批爆
+
+*****
+
+####  ckming  
+##### 40001#       发表于 2022-10-28 08:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139436&amp;ptid=2099454" target="_blank">Moodyblue 发表于 2022-10-28 00:39</a>
+​每个人都送至宝等于没送
+
+以前时候国外发钱都把经济整成啥样了还不明白了，发钱是下下策的经济学原理懂 ...</blockquote>
+你自己算算v🐍多久没出商店卖的至宝了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 有没有可能以后都没了
+
+*****
+
+####  我前期那么肥  
+##### 40002#       发表于 2022-10-28 08:04
+
+输了: bp不行 辅助没出辅助装 队友带女朋友去赛场  假赛 寡头财阀巨擘克格勃 v🐍做局 王八掀背眼角有泪 
+
+这一些话术的最终目的都是把每次扫黄都在场的a畜无罪化
+
+本质上还是顾左右而言他的洗地手段，核心论点是:你怎么不带掀背躺赢啊？
+
+*****
+
+####  我前期那么肥  
+##### 40003#       发表于 2022-10-28 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139558&amp;ptid=2099454" target="_blank">sadllk 发表于 2022-10-28 08:01</a>
+所以说这两天这游戏还能玩吗，卡的批爆</blockquote>
+国服不太行，东南亚可以，国服要么匹配不到人 要么红蓝字 玩一把很难受
+
+*****
+
+####  沉默之声  
+##### 40004#       发表于 2022-10-28 08:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139547&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-28 08:00</a>
+
+发至宝对v社来说不就是一段代码吗，但是玩家回流可是实打实得帮v社完成kpi（v社有kpi吗
+
+玩家市场反 ...</blockquote>
+他的意思是消灭了至宝潜在的购买买家，影响二手价格了，根本想不到这些人不发至宝本来就不会花钱买，就这至宝出的速度，想买的早就买了哪里还等现在
+
+*****
+
+####  tasuku  
+##### 40005#       发表于 2022-10-28 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139251&amp;ptid=2099454" target="_blank">恐怖利刃 发表于 2022-10-28 05:35</a></blockquote>
+但是的地得用对了，起码领先95%的网民了
+
+*****
+
+####  Moodyblue  
+##### 40006#       发表于 2022-10-28 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139519&amp;ptid=2099454" target="_blank">沉默之声 发表于 2022-10-28 07:56</a>
+
+腾讯的皮肤不可交易，发皮肤也没见崩啊，都发钱等于没发是阴阳怪气你还真信啊，钱印没印都清楚，发到谁手 ...</blockquote>
+俺是太监论坛复制的
+
