@@ -3121,3 +3121,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 2.0 完结同步关服好不好</blockquote>
 建议直接学死亡爱丽丝，终章打完就不能登录游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3278#       发表于 2022-10-28 12:48
+
+关了就可以安心玩单机了，倒也不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
