@@ -3130,3 +3130,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 关了就可以安心玩单机了，倒也不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  廖化  
+##### 3279#       发表于 2022-10-28 16:39
+
+今天Ourplay一直网络错误，完全登不上日服……没有爱抚奇偶刷我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
