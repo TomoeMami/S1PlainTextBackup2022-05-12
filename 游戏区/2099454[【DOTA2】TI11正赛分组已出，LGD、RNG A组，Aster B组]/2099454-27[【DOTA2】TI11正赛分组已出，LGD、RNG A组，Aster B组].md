@@ -9705,3 +9705,144 @@ tb这鲨乱英雄变身真空期有快2分钟了，刷到无解肥对面也有�
 
 反正职业哥还爱玩v社就敢躺平呗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nowaki  
+##### 40040#       发表于 2022-10-28 09:03
+
+别尬黑，有a杖小变身在
+
+*****
+
+####  沉默之声  
+##### 40041#       发表于 2022-10-28 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140010&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-28 08:52</a>
+
+Nts</blockquote>
+看了下最新的，莫言东南亚第4，ame东南亚 39
+
+油面25，emo 29 这个两个…
+
+莫奈特59 笑嘻了
+
+*****
+
+####  Avantasi  
+##### 40042#       发表于 2022-10-28 09:05
+
+SG疯狂开盒鞭酱女友，还诅咒人家飞机出事，真是恶臭
+
+*****
+
+####  IG.430  
+##### 40043#       发表于 2022-10-28 09:06
+
+SG疯狂开盒鞭酱女友，还诅咒人家飞机出事，真是恶臭
+
+*****
+
+####  我前期那么肥  
+##### 40044#       发表于 2022-10-28 09:06
+
+这卜是典型的自我意识过剩吗
+
+<img src="https://img.saraba1st.com/forum/202210/28/090615toi20lrury5s0urr.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221028090538.png</strong> (209.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 09:06 上传
+
+<img src="https://img.saraba1st.com/forum/202210/28/090616c5or9ifyz95qkjm1.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221028090550.png</strong> (99.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 09:06 上传
+
+*****
+
+####  Gosin  
+##### 40045#       发表于 2022-10-28 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139722&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-28 08:24</a>
+
+论对位处刑和ban位资源 我觉得是ti8的ana和ame</blockquote>
+想了想
+
+确实
+
+TI5决赛两边差距其实太大了，不止两仪落一个问题
+
+而TI8第四把的水人真心是震古烁今的表演<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+ANA这么牛逼的决赛表演霸气奇迹也不差
+
+ame这个一般人真跟不上
+
+*****
+
+####  novoland  
+##### 40046#       发表于 2022-10-28 09:07
+
+ 本帖最后由 novoland 于 2022-10-28 09:08 编辑 
+
+非洗地的说一句，围bian救A虽然是水厂的毒计……但是do圈太太团人设崩盘真不是常态么？说她们人均戏精都说轻了，好多深追下去都是社会性死亡甚至进局子的……集美只不过借题发挥而已。
+
+甚至do1时代的drama就已经够劲爆了，远的不说，820的pink（do圈第一至理名言”伟乌生，莫比净“的发言背景不知道还有没有人记得233），zsmj的”蛇发女妖“，2009的（miko还是niko来着？）诈骗20万的”白小纯“233
+
+至于到了do2直播时代那还用说吗，哪个圈内有点名的太太/女友/绯闻CP没点崩盘破事儿，邬梦娜kikko王婉茹狐狸妈lily赵洁……这名单还可以无限延长<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+圈子离这些”女友“，不说全部吧，至少相当一部分就是冲着职业选手的光环来的。所以不让她们露脸，享受成就感和关注度，蹭职业选手的光环，是不可能的。所以出什么幺蛾子也很正常，而且说实话，因为圈子和学历的原因，都是混社会出身，人品和智商真的让人怀疑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……
+
+*****
+
+####  沉默之声  
+##### 40047#       发表于 2022-10-28 09:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140199&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-28 09:05</a>
+
+SG疯狂开盒鞭酱女友，还诅咒人家飞机出事，真是恶臭</blockquote>
+呃呃呃，点进sgamer看了下这不还是全在黑哥哥吗，你说的是不是Nga
+
+*****
+
+####  nowaki  
+##### 40048#       发表于 2022-10-28 09:09
+
+反正过两个月就是sg黑子帆船的了
+
+*****
+
+####  我前期那么肥  
+##### 40049#       发表于 2022-10-28 09:11
+
+sg真的恶臭啊，去年lgd输了造谣王八下菠菜，lgd全队被克格勃威胁，潘婕开盘口，本来以为只是一群赌/狗。今年lgd输了之后直接开合余韵，还诅咒量子鞭去德国的飞机坠机，这生活也太不如意了吧
+
+*****
+
+####  沉默之声  
+##### 40050#       发表于 2022-10-28 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140233&amp;ptid=2099454" target="_blank">novoland 发表于 2022-10-28 09:07</a>
+
+非洗地的说一句，围bian救A虽然是水厂的毒计……但是do圈太太团人设崩盘真不是常态么？说她们人均戏精都说 ...</blockquote>
+爆富+内向+文化低 几乎是必然吸引这种女性吧，就没几个同甘共苦走过来的
+
+
+
+*****
+
+####  walfeds  
+##### 40051#       发表于 2022-10-28 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140220&amp;ptid=2099454" target="_blank">我前期那么肥 发表于 2022-10-28 09:06</a>
+
+这卜是典型的自我意识过剩吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自我感动就完事了，怎么还当回事的
+
