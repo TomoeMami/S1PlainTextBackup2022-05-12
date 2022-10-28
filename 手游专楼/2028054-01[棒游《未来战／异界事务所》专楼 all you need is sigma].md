@@ -19,3 +19,14 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rgauss  
+##### 802#         楼主| 发表于 2022-10-28 19:35
+
+<img src="https://p.sda1.dev/8/5d9c8eb165247f3b5a11038dfa04cfbe/CMP_20221028193526640.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
