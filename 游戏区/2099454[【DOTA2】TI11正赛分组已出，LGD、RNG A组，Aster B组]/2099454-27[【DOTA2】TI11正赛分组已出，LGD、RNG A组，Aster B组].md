@@ -10393,3 +10393,140 @@ doom和血魔魔晶 老鹿的恶魔赦令，其他的都不怎么适合这版本
 
 代入思考了下，感觉aster就算夺冠了nga太监还是不会缩壳的，他们会“输给冠军不丢人”“虽败犹荣”，漏油们还是不要期待aster能打肿集美的脸了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 40111#       发表于 2022-10-28 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139742&amp;ptid=2099454" target="_blank">沉默之声 发表于 2022-10-28 08:27</a>
+比赛印象，Ame的传统1 美杜莎幽鬼炼金小小小鱼小娜迦TB 飞机 血魔 Pa玩的都没啥亮眼之处啊
+
+给人印象比较 ...</blockquote>
+他最能吃ban不是animajor的斧王么
+
+*****
+
+####  bluebaby  
+##### 40112#       发表于 2022-10-28 10:04
+
+相信zai好吧，相信zai<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 40113#       发表于 2022-10-28 10:04
+
+这DOTA2也要学csgo 荣了是吧
+
+*****
+
+####  12481632  
+##### 40114#       发表于 2022-10-28 10:04
+
+前面忘了，后面也忘了，写在鳖星尿裤和受难前一天
+
+*****
+
+####  六娃  
+##### 40115#       发表于 2022-10-28 10:04
+
+荔枝分析量子鞭的结局
+刀塔
+1539
+昨天 13:55
+
+1. 执教欧洲 上帝之鞭 (Ti1冠军3号位选项)
+
+2. 三曰断情 葑茖莥芘 (Ti2冠军3号位选项)
+
+3. 声援ku狗 狂言出口 (Ti3冠军3号位选项)
+
+4. 妻离子散 婚礼不断 (Ti4冠军3号位选项)
+
+5. 遨游鱼队 心力交瘁 (Ti5冠军3号位选项)
+
+6. ___________________ (Ti6冠军3号位选项)
+
+7. 初生队友 二哈怒吼 (Ti7冠军3号位选项)
+
+8. 移民西欧 冠军小偷 (Ti8冠军3号位选项)
+
+9. 破防喷脏 废话演讲 (Ti9冠军3号位选项)
+
+10. 衣锦还乡 红杏出墙 (Ti10冠军3号位选项)
+
+*****
+
+####  usoda  
+##### 40116#       发表于 2022-10-28 10:07
+
+我记得有漏油说过真正最完美的结局得是会师决赛然后干瘪被茶暴揍 这样才能彻底治水
+
+*****
+
+####  nowaki  
+##### 40117#       发表于 2022-10-28 10:08
+
+最完美的结局是lgd进不去ti
+
+*****
+
+####  百世诸侯  
+##### 40118#       发表于 2022-10-28 10:10
+
+相信茶茶还是干得掉zai畜的，写在憋星尿裤和受难的前两天
+
+*****
+
+####  百世诸侯  
+##### 40119#       发表于 2022-10-28 10:10
+
+相信茶茶还是干得掉zai畜的，写在憋星尿裤和受难的前两天
+
+*****
+
+####  walfeds  
+##### 40120#       发表于 2022-10-28 10:11
+
+<blockquote>Swag bag is worth so much for us iranian dota2 players!
+
+Personal
+
+Dota 2 was blocked for over a month in my country!
+
+My brothers and sisters getting killed in the streets...
+
+No freedom no economy no internet...
+
+After a long "forced" break, you return to your favorite thing in this shit world and lord gaben has blessed you with over 40$+ worth of free cosmetics. almost 3 weeks of my salary!... i know it doesnt change my life but it sure did change my day!
+
+Ty Gaben and ty valve janitor!:)</blockquote><blockquote>Patosaurio23
+
+·
+
+19 hr. ago
+
+We all third world country people are very happy. In argentina you have to pay the price plus +75% in taxes because you pay it in dollars
+
+RisingLands
+
+·
+
+9 hr. ago
+
+·
+
+edited 9 hr. ago
+
+The tax is 90% now, and if you spend more than 300 dollars it goes up to 115%</blockquote>
+第三世界迫真水深火热
+
+*****
+
+####  ml1642879  
+##### 40121#       发表于 2022-10-28 10:12
+
+你楼大便哥的风评就因为a畜还能这样翻转的吗，今年五个都是畜为啥要护其中某一个，就因为他是冠军三号位吗，那脑浆y的视野你们为什么又要青蒜，该青蒜的可不可以不要搞特殊对待，玩谜团表面态度，玩斧王证明实力，我是不觉得这次比赛a畜哪里对不起这个大便神了
+

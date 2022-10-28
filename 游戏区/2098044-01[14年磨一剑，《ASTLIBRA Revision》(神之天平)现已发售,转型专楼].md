@@ -12072,3 +12072,29 @@ wiki看不懂日文可以对着装备数值去找
 
 —— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  skyfaker305  
+##### 1099#       发表于 2022-10-28 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140700&amp;ptid=2098044" target="_blank">孔祈 发表于 2022-10-28 09:35</a>
+
+有一个疑问，一周目三只小猪公会酒馆一直坐在门口喝酒哪个人去哪了？对话有村民说坐在门口的人会消失，那个 ...</blockquote>
+这个新章有讲，涉及剧透，继续玩就知道了
+
+*****
+
+####  skyfaker305  
+##### 1100#       发表于 2022-10-28 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140808&amp;ptid=2098044" target="_blank">linc555 发表于 2022-10-28 09:41</a>
+
+我的重置药剂在商店里显示持有1
+
+背包里看不到
+
+难受啊</blockquote>
+应该是放在天平上了，所以显示1
+

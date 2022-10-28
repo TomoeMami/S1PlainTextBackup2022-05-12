@@ -41,3 +41,16 @@
 
 2022-10-27 18:46 上传
 
+
+
+*****
+
+####  慕容断月  
+##### 724#       发表于 2022-10-28 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58132512&amp;ptid=2037739" target="_blank">Xenor 发表于 2022-10-27 18:52</a>
+八个结局都达成了，但CG竟然还是不全……</blockquote>
+这游戏但凡有sky的热量管理和force开始的fc，也不会这么麻烦了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+戏画偷懒是真偷懒，就替换文本，不把游戏移植续作框架上
+
