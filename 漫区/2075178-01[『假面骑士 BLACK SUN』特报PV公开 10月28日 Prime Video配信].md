@@ -1095,3 +1095,16 @@ magnet:?xt=urn:btih:027b12322434ade126974253448a11d74372b370
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  fangJmin  
+##### 95#       发表于 2022-10-28 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">痞子就没看过几集假面骑士啊就原教旨粉。
+
+他拍的新系列路数就是披着皮辱骂日本政治，发泄自己那点中二情怀。
+
+也别说黑日这个看起来东映花了功夫搞得作品。痞子先看能不能拍得比the系列好吧。
+
