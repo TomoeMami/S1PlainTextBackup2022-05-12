@@ -1230,3 +1230,21 @@ the系列还是算了吧，《水知道答案》的内容都能一本正经地�
 the系列还是算了吧，《水知道答案》的内容都能一本正经地在作品里面引用，不要因为冷门就当没人看过啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有没有一种可能，the first拍得时候《水知道答案》还是知名科普书+心灵鸡汤，而且这段内容也就是拿来解释本乡猛怎么摆脱**和主线联系不大。
 
+
+
+*****
+
+####  抹茶瓜  
+##### 107#       发表于 2022-10-28 14:36
+
+ 本帖最后由 抹茶瓜 于 2022-10-28 14:41 编辑 
+
+比较急的大致看完了一遍 比我预想的好  至少是还可以水平，几个复刻BLACK的经典桥段还是能get下 最后集出OP太妙了 草 不过要我挑刺还是能挑一大堆出来 而且很多东西没有一个解释 感觉还能憋出第二季 凑合看水平把<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HATENA  
+##### 108#       发表于 2022-10-28 14:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用这么豪华的阵容跟经费拍出这种玩意，不知道该说什么好
+
