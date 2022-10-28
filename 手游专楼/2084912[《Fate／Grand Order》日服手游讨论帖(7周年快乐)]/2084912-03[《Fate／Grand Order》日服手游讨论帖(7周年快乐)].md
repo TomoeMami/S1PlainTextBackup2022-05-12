@@ -3175,3 +3175,24 @@ fgo一直能直连的你们为什么要用加速器<img src="https://static.sara
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这次虚数各种打个两三次就黑屏卡死 好烦啊
 
+
+
+*****
+
+####  廖化  
+##### 3283#       发表于 2022-10-28 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58152542&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-10-28 21:26</a>
+
+我以前也一直用ourplay玩FGO，但上周有一天不知道为啥，用ourplay一进游戏就闪退（开不开加速都一样）。
+
+ ...</blockquote>
+裸连有时会连不上就一直用Our了，就是要保存好引继码，上次没找到吓出一身汗<img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">
+
+*****
+
+####  johnkamsar  
+##### 3284#       发表于 2022-10-28 22:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说奥伯龙该来一波复刻了吧？或者复刻杀狐也行，我日服就差这俩形成体系了。。。。。。。。
+

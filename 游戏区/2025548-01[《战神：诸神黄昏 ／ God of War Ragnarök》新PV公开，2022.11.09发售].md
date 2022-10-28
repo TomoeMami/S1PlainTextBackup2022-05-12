@@ -8119,3 +8119,24 @@ https://www.bilibili.com/video/B ... 01&amp;unique_k=TOZX0Gx
 
 垃圾港服贵的要死
 
+
+
+*****
+
+####  clover293  
+##### 858#       发表于 2022-10-28 22:11
+
+a9那边说47h白金的，并怒骂ign菜鸡<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JudgmentEye  
+##### 859#       发表于 2022-10-28 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58150762&amp;ptid=2025548" target="_blank">maiyunfei 发表于 2022-10-28 19:53</a>
+
+莫非索尼已经认识到错误了？以后都是全区中文
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2. ...</blockquote>
+不，日版没中文，而且日配仍然是日版独占
+
