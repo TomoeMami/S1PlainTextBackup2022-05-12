@@ -2821,3 +2821,14 @@ ti8那会，大概是因为干瘪和观众十分狂妄看不起对手，我脑�
 
 刀门。
 
+
+
+*****
+
+####  a1370303  
+##### 40797#       发表于 2022-10-29 00:56
+
+前面忘了，中间也忘了，写在茶茶受难当天<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
