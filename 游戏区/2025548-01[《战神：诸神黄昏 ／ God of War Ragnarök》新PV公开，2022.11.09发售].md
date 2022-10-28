@@ -8049,3 +8049,12 @@ https://www.bilibili.com/video/B ... 01&amp;unique_k=TOZX0Gx
 
 —— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  rainsheep  
+##### 852#       发表于 2022-10-28 20:09
+
+希望以后能保持，美区点卡可比港服便宜多了
+
