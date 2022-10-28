@@ -265,3 +265,15 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 再也不用去打狗粮，也不用活动换狗粮了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你确定？双修表示这点狗粮几下就吃完了
 
+
+
+*****
+
+####  體育老師  
+##### 43661#       发表于 2022-10-28 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58141232&amp;ptid=1712412" target="_blank">johnkamsar 发表于 2022-10-28 10:11</a>
+
+你确定？双修表示这点狗粮几下就吃完了</blockquote>
+确定，要升120的之前已经升完了，也没力气升第二个了...
+
