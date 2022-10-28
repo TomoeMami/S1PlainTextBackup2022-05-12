@@ -8171,3 +8171,29 @@ a9那边说47h白金的，并怒骂ign菜鸡<img src="https://static.saraba1st.c
 有吧，商店里写的是简体字 中国语啥的</blockquote>
 网页版没有，是实机页面？
 
+
+
+*****
+
+####  clover293  
+##### 863#       发表于 2022-10-28 23:08
+
+<blockquote>JudgmentEye 发表于 2022-10-28 22:34
+网页版没有，是实机页面？</blockquote>
+是的，我今天也没上，我看nga那边的图
+
+<img src="https://img.saraba1st.com/forum/202210/28/230812j4azhkktdbhdppqz.jpg" referrerpolicy="no-referrer">
+
+<strong>620e6824479c0a09.jpg</strong> (254.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 23:08 上传
+
+*****
+
+####  JudgmentEye  
+##### 864#       发表于 2022-10-28 23:10
+
+看来我可以把预定的港版退了只留日版
+

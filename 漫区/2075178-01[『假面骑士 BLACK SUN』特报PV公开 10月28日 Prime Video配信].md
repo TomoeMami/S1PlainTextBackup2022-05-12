@@ -1665,3 +1665,58 @@ kiva什么时候被拿到和后面两者并列了</blockquote>
 还没看，所以可以评价为很有经费的粽子吗</blockquote>
 40分钟*10左右的时长的片 你去批站找一下战斗合集剪辑 再有能耐的顶天给你剪出了三十分钟....
 
+
+
+*****
+
+####  拆骨羊肉2  
+##### 151#       发表于 2022-10-28 23:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154036&amp;ptid=2075178" target="_blank">永恒的王牌 发表于 2022-10-28 22:52</a>
+还没看，所以可以评价为很有经费的粽子吗</blockquote>
+特效都没多少
+打斗就是地上打滚，撒点人造血浆
+没了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+音乐也是一个旋律用几十遍
+最后一集全程都是那个旋律，人都麻了
+最好看的我觉得是第十集的black op复刻版<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  永恒的王牌  
+##### 152#       发表于 2022-10-28 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154114&amp;ptid=2075178" target="_blank">ashero 发表于 2022-10-28 22:56</a>
+
+40分钟*10左右的时长的片 你去批站找一下战斗合集剪辑 再有能耐的顶天给你剪出了三十分钟.... ...</blockquote>
+战斗占比不到十分之一，那他们是对自己的文戏很自信吗，看反响好评也不是很多啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  永恒的王牌  
+##### 153#       发表于 2022-10-28 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154240&amp;ptid=2075178" target="_blank">拆骨羊肉2 发表于 2022-10-28 23:03</a>
+
+特效都没多少
+
+打斗就是地上打滚，撒点人造血浆
+
+没了</blockquote>
+你们对bgm的评价让我想起粽2千翼老是哼的那首歌了，哼得不好听还老是哼
+
+战斗看过扯肠子的片段，但现在看你们讨论战斗都没多少，这点R18G更像是吸睛的噱头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米列希安  
+##### 154#       发表于 2022-10-28 23:11
+
+这片你要剪30分钟的战斗合集可不容易，很多画面得从穿着怪人头套的演员被人单方面殴打、带着怪人头套的演员一招砍头秒了其他演员里剪
+
+而这些，本质上还是文戏不是正经皮套打架，嘻嘻。
+
+还有就是一群带着动物头套身上穿着各种人类服装的“怪人”扭捏打架，或者套着动物头套的怪人cos弗洛伊德，400分钟的皮套人打架片给我玩这套，真的牛
+
