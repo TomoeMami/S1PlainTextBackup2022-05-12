@@ -8038,3 +8038,14 @@ https://www.bilibili.com/video/B ... 01&amp;unique_k=TOZX0Gx
 有没有说评分什么时候开始解禁</blockquote>
 11.4
 
+
+
+*****
+
+####  maiyunfei  
+##### 851#       发表于 2022-10-28 19:53
+
+莫非索尼已经认识到错误了？以后都是全区中文
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

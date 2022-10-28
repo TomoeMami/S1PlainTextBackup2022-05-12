@@ -210,3 +210,14 @@ MC🎤犬山たまき
 
 hnn这次主催的ow2自定义是暴雪日区运营赞助的啊，不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 17653#       发表于 2022-10-28 19:55
+
+这阵容也太不vspo了
+
+不过从虹里抢下第一个OW大型赛事的宣称
+

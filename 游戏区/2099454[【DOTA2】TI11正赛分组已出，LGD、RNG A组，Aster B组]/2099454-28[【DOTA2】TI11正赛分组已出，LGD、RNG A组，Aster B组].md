@@ -1532,3 +1532,23 @@ wqy890716 35858722 级别: 学徒 威望: 1 注册: 15-05-28
 
 那谁是神兽男<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莉拉厨  
+##### 40675#       发表于 2022-10-28 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58150711&amp;ptid=2099454" target="_blank">二宫飞鸟酱 发表于 2022-10-28 19:50</a>
+那谁是神兽男</blockquote>
+ti9ana。io就是神兽，明摆着硬实力差距，赢不了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  你可以试试  
+##### 40676#       发表于 2022-10-28 19:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">那年的IO真的挺离谱的，一出就融化了，打钱autowin
+
