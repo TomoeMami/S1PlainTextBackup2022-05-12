@@ -2946,3 +2946,14 @@ ti8那会，大概是因为干瘪和观众十分狂妄看不起对手，我脑�
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  dclara1  
+##### 40811#       发表于 2022-10-29 06:26
+
+忘了，写在aster受难前3小时
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
