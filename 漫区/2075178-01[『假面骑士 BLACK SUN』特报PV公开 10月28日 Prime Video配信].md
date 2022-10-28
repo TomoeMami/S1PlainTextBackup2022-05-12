@@ -1888,3 +1888,28 @@ revice再烂也有打架有乐子，这片只有闷，冲着看乐子都比看�
 
 —— 来自 OPPO PCAM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  菲泽k  
+##### 171#       发表于 2022-10-29 02:15
+
+一堆演讲屁用没有是因为这部片最多只能讽刺啊，你要真正地解决问题只有革命吧。但是这样恐怕就过不了审。
+
+*****
+
+####  剑布衣  
+##### 172#       发表于 2022-10-29 04:32
+
+ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻！黑日牛逼！” 我只觉得这tm都甩脸上了还能叫隐喻？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+不过抛开这些，比较烦的是设定都不讲清楚，鞋都不穿就想跑马拉松了？真无聊，我只想看尸山血海.JPG
+
+*****
+
+####  培根芝士蛋堡XD  
+##### 173#       发表于 2022-10-29 05:03
+
+看了两集感觉真不行，还不如粽子，剪辑水平太差了，刚开始我还没反应过来是双时间线叙事，搞得混乱不堪，真要双时间线叙事还不如像kiva那样切换时间线的时候有明确过场<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

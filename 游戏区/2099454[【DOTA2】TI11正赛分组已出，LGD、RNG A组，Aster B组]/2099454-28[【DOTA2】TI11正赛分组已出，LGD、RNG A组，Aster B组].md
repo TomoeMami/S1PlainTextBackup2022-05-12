@@ -2885,3 +2885,64 @@ ti8那会，大概是因为干瘪和观众十分狂妄看不起对手，我脑�
 
 匿名模式加没有消息进入，天梯也可以是人机
 
+
+
+*****
+
+####  银翼的维罗西  
+##### 40804#       发表于 2022-10-29 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58156280&amp;ptid=2099454" target="_blank">holyblood 发表于 2022-10-29 01:45</a>
+
+要打十次对人机玩家挺不友好的。为了至宝去匹配感觉对不隹队友</blockquote>
+迈出第一步你就会发现大家和你一样菜
+
+*****
+
+####  Damocles990609  
+##### 40805#       发表于 2022-10-29 02:04
+
+现实点讲，茶队大概率能赢马体，打tundra就要被暴打了
+
+*****
+
+####  蛭人  
+##### 40806#       发表于 2022-10-29 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58156123&amp;ptid=2099454" target="_blank">woyzeck 发表于 2022-10-29 01:23</a>
+
+哪儿写的，那意思是430把巅峰上帝压在了替补席上，哈哈。</blockquote>
+之前monkey business show，ceb问厨子的peak是什么时候，他说是在OG之前，问是在IG的时候吧，答是的，16岁出道即巅峰，real了。
+
+*****
+
+####  聚散浮云  
+##### 40807#       发表于 2022-10-29 02:36
+
+前面忘了，中间忘了，写在Aster受难的当天
+
+*****
+
+####  恐怖利刃  
+##### 40808#       发表于 2022-10-29 03:15
+
+液体之前是头铁选了两把影魔，不玩这个版本陷阱之后不知道能不能跟aster碰一碰
+
+*****
+
+####  lyjssj  
+##### 40809#       发表于 2022-10-29 05:26
+
+写在aster受难前6小时
+
+*****
+
+####  嘴瓢王者  
+##### 40810#       发表于 2022-10-29 05:52
+
+加油啊，aster。
+
+注入元气<img src="https://static.saraba1st.com/image/smiley/face2017/197.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

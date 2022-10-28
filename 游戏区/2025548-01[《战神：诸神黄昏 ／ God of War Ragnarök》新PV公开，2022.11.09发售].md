@@ -8197,3 +8197,52 @@ a9那边说47h白金的，并怒骂ign菜鸡<img src="https://static.saraba1st.c
 
 看来我可以把预定的港版退了只留日版
 
+
+
+*****
+
+####  一个过路的  
+##### 865#       发表于 2022-10-29 04:49
+
+ 本帖最后由 一个过路的 于 2022-10-29 05:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58153626&amp;ptid=2025548" target="_blank">nage560 发表于 2022-10-28 22:27</a>
+
+价格升10刀，流程长度不变，场景人物素材大量复用是吧。</blockquote>
+对，这游戏可垃圾了。外网的消息都不可信，我建议你上S1论坛，看看这位中国玩家的真知灼见。
+
+TIM截图20221029044824.png
+(41.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 04:49 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/044935bsesqlqxjexvxnj8.png" referrerpolicy="no-referrer">
+
+TIM截图20221029044831.png
+(28.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 04:49 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/044938tsbozwu0k5w64ofd.png" referrerpolicy="no-referrer">
+
+TIM截图20221029044839.png
+(17.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 04:49 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/044940yhnql25pplg2oj8p.png" referrerpolicy="no-referrer">
+
+TIM截图20221029044856.png
+(17.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 04:49 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/044942a1uky1rgm8xt8xtz.png" referrerpolicy="no-referrer">
+

@@ -120,3 +120,18 @@ PS2上还有一款EXE，玩了个开头，感觉没有BBE的机甲美型，看�
 PS2上还有一款EXE，玩了个开头，感觉没有BB ...</blockquote>
 force开始都是赛博朋克的网络世界了，bullet是现实世界，电脑前坐不住属实没招，force以后就没出过主机版了
 
+
+
+*****
+
+####  Xenor  
+##### 728#       发表于 2022-10-29 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58151756&amp;ptid=2037739" target="_blank">慕容断月 发表于 2022-10-28 20:45</a>
+
+force开始都是赛博朋克的网络世界了，bullet是现实世界，电脑前坐不住属实没招，force以后就没出过主机版 ...</blockquote>
+怪不得，觉得bfe有点怪怪的，比起机甲更像义肢…但人设比起前作外表看着更分明
+
+据说exagear可以安卓模拟pc端游戏，不知sky可不可行，主要sky有点大2CD+特典有十几G呢，怕hold不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://eccdn.geo-online.co.jp/ec_media_images/0014881-01.jpg" referrerpolicy="no-referrer">
+
