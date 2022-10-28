@@ -8991,3 +8991,14 @@ swan哥哥压轴，好
 
 —— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  天青月白  
+##### 2454#       发表于 2022-10-28 20:25
+
+鸭鸭竟然唱了这首歌，是我小时候去网吧的时代听的
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
