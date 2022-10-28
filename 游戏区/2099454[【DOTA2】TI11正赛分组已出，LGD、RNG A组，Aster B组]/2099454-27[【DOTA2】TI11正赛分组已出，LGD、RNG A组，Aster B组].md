@@ -10087,3 +10087,134 @@ Ti9简直小丑，不过这对感情还挺不错的，应该是真爱
 非洗地的说一句，围bian救A虽然是水厂的毒计……但是do圈太太团人设崩盘真不是常态么？说她们人均戏精都说 ...</blockquote>
 电竞圈出了名的人傻钱多，除了不好挤进来简直是职业太太团的第一目标。
 
+
+
+*****
+
+####  lyjssj  
+##### 40075#       发表于 2022-10-28 09:31
+
+年龄大了以后，老婆生了小孩的基本上都比较安定，精力都花在搞娃身上了
+
+20出头找的女朋友就是屁事最多的时候
+
+啊鞭是个聪明人，等十年以后变成油腻中年人了肯定会后悔为啥找了科比小迷妹的吧，嘻嘻
+
+*****
+
+####  勤练带来力量  
+##### 40076#       发表于 2022-10-28 09:32
+
+鳖茶还没淘汰呢集美论坛就忍不住了？<img src="https://p.sda1.dev/8/773f30f5e74d12774d45dfbd0c7a4ea3/CMP_20221028093153295.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Avantasi  
+##### 40077#       发表于 2022-10-28 09:32
+
+好像A畜前前女友跟超哥老婆还有炼子哥的女友可以
+
+*****
+
+####  Avantasi  
+##### 40078#       发表于 2022-10-28 09:32
+
+好像A畜前前女友跟超哥老婆还有炼子哥的女友可以
+
+*****
+
+####  nowaki  
+##### 40079#       发表于 2022-10-28 09:32
+
+什么时候去nga传森哥视频不被锁帖，集美再说自由吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  azccc52  
+##### 40080#       发表于 2022-10-28 09:34
+
+漏油们喜欢捡垃圾能不能丢管人区萧瑟真爱楼<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  cherry__  
+##### 40081#       发表于 2022-10-28 09:34
+
+这周的任务纯粹伤害，除了小鹿还有谁有呀
+
+*****
+
+####  novoland  
+##### 40082#       发表于 2022-10-28 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140474&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-28 09:21</a>
+
+那死亡先知小鸽子有什么破事吗
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+讲道理的话没什么场外drama，但是从永远占着采访位，这么多年也没什么长进就很让人不爽了（说真的，不是她rtz女友的身份早就换人了，以前lgd那个rabbit业务能力秒杀她好几倍，起码那位是真的玩dota而且懂do2社区）。至于ti9那些灾难性的赛后采访，反而都没那么刺眼了……
+
+*****
+
+####  zsu222  
+##### 40083#       发表于 2022-10-28 09:35
+
+血魔？
+
+*****
+
+####  莉拉厨  
+##### 40084#       发表于 2022-10-28 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140500&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-28 09:23</a>
+在战队自己的特色节目Monkey Business Show中，除了N0tail、Ceb、经理JMR Luna外，OG还邀请到了队长Misha和 ...</blockquote>
+哦，所以回家局想了半天所有人都决定玩绝活是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 40085#       发表于 2022-10-28 09:35
+
+连击刀
+
+*****
+
+####  沉默之声  
+##### 40086#       发表于 2022-10-28 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140677&amp;ptid=2099454" target="_blank">cherry__ 发表于 2022-10-28 09:34</a>
+
+这周的任务纯粹伤害，除了小鹿还有谁有呀</blockquote>
+发母鸡
+
+*****
+
+####  lyjssj  
+##### 40087#       发表于 2022-10-28 09:37
+
+<blockquote>勤练带来力量 发表于 2022-10-28 09:32
+鳖茶还没淘汰呢集美论坛就忍不住了？</blockquote>
+周五才开始反攻阿茶已经算节奏慢了，感谢余韵
+
+*****
+
+####  格雷殿下  
+##### 40088#       发表于 2022-10-28 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">小鸽子啥的，业务水平真的有问题，
+
+这么多年了，上进点阿
+
+*****
+
+####  tasuku  
+##### 40089#       发表于 2022-10-28 09:40
+
+有一说一感谢赛制
+
+不然就是星期天阿茶被液体淘汰一直清算阿茶了
+

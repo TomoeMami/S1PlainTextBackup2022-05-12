@@ -3088,3 +3088,12 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 你游看来3.0要么换游戏app要么就寄了，现在各种催促玩家打主线感觉是想同步完结
 
+
+
+*****
+
+####  areklose  
+##### 3275#       发表于 2022-10-28 09:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2.0 完结同步关服好不好
+

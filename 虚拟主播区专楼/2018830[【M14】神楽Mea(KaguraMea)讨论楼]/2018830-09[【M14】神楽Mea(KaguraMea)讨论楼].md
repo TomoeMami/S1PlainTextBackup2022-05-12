@@ -8140,3 +8140,12 @@ y1s1，这游戏做的还行，对得起价钱。
 
 感觉现在官组就没几个活着的人，体感就一个fafa在干活，否则你mea和其他人都联动这么多次了就没有能烤的？或许真该学自学日语自给自足了……<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 12774#       发表于 2022-10-28 09:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">现在官组组长是不是房导那个人啊，
+
