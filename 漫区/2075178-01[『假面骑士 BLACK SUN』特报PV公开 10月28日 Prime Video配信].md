@@ -1425,3 +1425,16 @@ BYD我以为那个警察是好人，还以为警察局有啥线，结果这比�
 
 挺群里面的群友说烂的批爆？各种无意义剧情？
 
+
+
+*****
+
+####  翼宿一  
+##### 128#       发表于 2022-10-28 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58148325&amp;ptid=2075178" target="_blank">Booorunestud 发表于 2022-10-28 17:31</a>
+意思是不好看？昨晚熬夜看了两集就感觉战斗太少，意思是一直都少？</blockquote>
+大部分时候都少，而且因为是群像剧所以摊给主角的更少了，后面有几集会稍微多一点但相对假面骑士作品来说还是少，很多时候爆点都是用文戏做的
+
+—— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

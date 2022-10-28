@@ -1343,3 +1343,30 @@ dota之神已经给仙贝足够多的机会了。
 
 主要是两次都是2比3 就非常戏剧化了 作为二次元老嗨的仙贝不知道会不会有种传说中的宿命感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 40654#       发表于 2022-10-28 18:51
+
+掀背充其量是个啡舍引流狗
+
+*****
+
+####  morwhipppo  
+##### 40655#       发表于 2022-10-28 18:52
+
+有一说一，最像A畜应该是快龙了吧，初代准神人气高，次次白给，这次决赛打新准神多龙大概率又要白给
+
+*****
+
+####  没钱买手办  
+##### 40656#       发表于 2022-10-28 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58149829&amp;ptid=2099454" target="_blank">morwhipppo 发表于 2022-10-28 18:52</a>
+有一说一，最像A畜应该是快龙了吧，初代准神人气高，次次白给，这次决赛打新准神多龙大概率又要白给 ...</blockquote>
+别尬黑，把多龙换了自己残血没死
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
