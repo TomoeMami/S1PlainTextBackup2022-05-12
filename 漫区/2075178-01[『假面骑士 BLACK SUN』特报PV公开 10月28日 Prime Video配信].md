@@ -1830,3 +1830,14 @@ kiva什么时候被拿到和后面两者并列了</blockquote>
 
 腰带好看
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 166#       发表于 2022-10-29 00:29
+
+看了一下结尾的黑日是红眼，胸口还有符号，到时候SHF又能再出一版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
