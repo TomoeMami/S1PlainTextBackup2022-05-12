@@ -1594,3 +1594,22 @@ revice再烂也有打架有乐子，这片只有闷，冲着看乐子都比看�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  米列希安  
+##### 145#       发表于 2022-10-28 22:27
+
+ 本帖最后由 米列希安 于 2022-10-28 22:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58152887&amp;ptid=2075178" target="_blank">浅川雏羽 发表于 2022-10-28 21:44</a>
+
+怎么这里还有礼拜四厨那套话术啊
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这算啥，当年KIVA，KABUTO和DECADE这三被当成大粪批斗到臭不可闻的时候不也是这套话术，太阳底下没有新鲜事啊
+
+至于明明很烂但因为童年滤镜被一群人吹上神坛的铠甲勇士拿瓦那就更有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+特摄痴本质抖M，吞粪然后自我催眠粪很香是常态
+

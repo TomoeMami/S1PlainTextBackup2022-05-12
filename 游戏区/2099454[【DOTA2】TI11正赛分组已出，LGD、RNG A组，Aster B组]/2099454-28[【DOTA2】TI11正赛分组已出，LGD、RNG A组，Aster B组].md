@@ -2210,3 +2210,132 @@ pa是真垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/058.p
 
 电🐶咋可能无ban无选，ett玩了那么多把
 
+
+
+*****
+
+####  nowaki  
+##### 40747#       发表于 2022-10-28 22:22
+
+ett玩了好几把电 🐶啊
+
+*****
+
+####  acalephs  
+##### 40748#       发表于 2022-10-28 22:22
+
+tl这么写的
+<img src="https://p.sda1.dev/8/f299c1d8cfb122ed11fc91dd7ecc9157/CMP_20221028072244519.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-X700, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 40749#       发表于 2022-10-28 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58153560&amp;ptid=2099454" target="_blank">acalephs 发表于 2022-10-28 22:22</a>
+tl这么写的</blockquote>
+这是正赛数据
+
+*****
+
+####  反方向的波  
+##### 40750#       发表于 2022-10-28 22:25
+
+卧槽，我还以为是我的问题，原来真的红字了
+
+*****
+
+####  nightmare902015  
+##### 40751#       发表于 2022-10-28 22:25
+
+ 本帖最后由 nightmare902015 于 2022-10-28 22:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58153560&amp;ptid=2099454" target="_blank">acalephs 发表于 2022-10-28 22:22</a>
+tl这么写的</blockquote>
+这怕并不是今年的，一眼过去全是错，unpick沙王酒仙，unban冰女都来了。
+就算正赛，淘汰赛沙王酒仙都出了的。
+
+*****
+
+####  acalephs  
+##### 40752#       发表于 2022-10-28 22:26
+
+草，我点歪了，这是突围赛的统计<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-X700, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  樱冢名月  
+##### 40753#       发表于 2022-10-28 22:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">哥们喷喷坐牢一晚上，闭上眼全是A畜队友
+
+*****
+
+####  trackerList  
+##### 40754#       发表于 2022-10-28 22:27
+
+等班子打完等了半个小时，一进队就来个当前时间无法进入匹配队列，老子真是草了
+
+*****
+
+####  蛭人  
+##### 40755#       发表于 2022-10-28 22:28
+
+俊豪包子已经不行了，望周知。
+
+<img src="https://img.saraba1st.com/forum/202210/28/222759tbbk3n002tz8b0bk.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (73.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 22:27 上传
+
+*****
+
+####  acalephs  
+##### 40756#       发表于 2022-10-28 22:28
+
+正赛只有骨弓没选过，pa剑圣力丸没赢过
+
+—— 来自 samsung SM-X700, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IG.430  
+##### 40757#       发表于 2022-10-28 22:29
+
+幸好哥们机智早早上线爽了两把
+
+*****
+
+####  Mikumiku831  
+##### 40758#       发表于 2022-10-28 22:30
+
+好像是排不了了
+
+*****
+
+####  很久就在那边l  
+##### 40759#       发表于 2022-10-28 22:31
+
+领本子显示未知错误，点匹配又显示无法进入匹配队列
+
+*****
+
+####  Litccc  
+##### 40760#       发表于 2022-10-28 22:32
+
+<img src="https://img.saraba1st.com/forum/202210/28/223232skh008ezarkdo2r8.jpg" referrerpolicy="no-referrer">
+
+<strong>8xQ185-k6vzK2fT1kScw-iy.jpg</strong> (90.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 22:32 上传
+
+前面忘了，中间也忘了，写在aster受难前一晚
+

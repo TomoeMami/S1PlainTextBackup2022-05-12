@@ -8140,3 +8140,22 @@ a9那边说47h白金的，并怒骂ign菜鸡<img src="https://static.saraba1st.c
 —— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2. ...</blockquote>
 不，日版没中文，而且日配仍然是日版独占
 
+
+
+*****
+
+####  nage560  
+##### 860#       发表于 2022-10-28 22:27
+
+价格升10刀，流程长度不变，场景人物素材大量复用是吧。
+
+*****
+
+####  clover293  
+##### 861#       发表于 2022-10-28 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58153476&amp;ptid=2025548" target="_blank">JudgmentEye 发表于 2022-10-28 22:18</a>
+
+不，日版没中文，而且日配仍然是日版独占</blockquote>
+有吧，商店里写的是简体字 中国语啥的
+
