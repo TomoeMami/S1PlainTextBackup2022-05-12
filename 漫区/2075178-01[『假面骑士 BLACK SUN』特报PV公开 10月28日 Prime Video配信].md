@@ -1489,3 +1489,12 @@ BYD我以为那个警察是好人，还以为警察局有啥线，结果这比�
 
 觉得失望的坛友们可以换换口味，来看今年下半年刚完结的假面骑士revice，剧情不重要，看完就觉得黑日好看了
 
+
+
+*****
+
+####  恶意之刃  
+##### 134#       发表于 2022-10-28 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">R   18相关的部分只能说。。。莫名其妙
+
