@@ -1077,3 +1077,21 @@ magnet:?xt=urn:btih:027b12322434ade126974253448a11d74372b370
 
 看到第三集，没想到把日本当代史融进去了，改宪那绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kal_008  
+##### 93#       发表于 2022-10-28 10:46
+
+和预想之中差不多的无聊，痞子作为原教旨骑士粉拍的新假面骑士怎么都可以薄纱这部吧
+
+*****
+
+####  浅川雏羽  
+##### 94#       发表于 2022-10-28 10:54
+
+看了两话一觉睡醒成粪作了？
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
