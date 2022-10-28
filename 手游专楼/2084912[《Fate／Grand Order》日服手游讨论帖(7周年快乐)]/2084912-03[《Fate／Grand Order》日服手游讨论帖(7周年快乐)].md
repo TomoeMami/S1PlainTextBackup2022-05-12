@@ -3139,3 +3139,23 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 今天Ourplay一直网络错误，完全登不上日服……没有爱抚奇偶刷我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3280#       发表于 2022-10-28 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58147159&amp;ptid=2084912" target="_blank">廖化 发表于 2022-10-28 16:39</a>
+
+今天Ourplay一直网络错误，完全登不上日服……没有爱抚奇偶刷我要死了 ...</blockquote>
+我以前也一直用ourplay玩FGO，但上周有一天不知道为啥，用ourplay一进游戏就闪退（开不开加速都一样）。
+
+我怀疑是自己手机的问题，就下了个安装包直接安上（之前是在ourplay模拟器里安的），结果能登录。
+
+于是我就翻出来好几周前留的引继码，先代充了一笔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再顺手引继回游戏本体。
+
+目前裸连就能玩，随遇而安了。总比模拟器出了故障进不去、都没法抢救要强。
+
+（ourplay有时候自己也会出问题，比如进不了主页，还是有点不安全...总之记得随手留一个能用的引继码，关键时刻能抢救一下。）
+
