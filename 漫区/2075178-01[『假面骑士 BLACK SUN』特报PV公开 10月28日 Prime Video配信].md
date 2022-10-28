@@ -1108,3 +1108,23 @@ magnet:?xt=urn:btih:027b12322434ade126974253448a11d74372b370
 
 也别说黑日这个看起来东映花了功夫搞得作品。痞子先看能不能拍得比the系列好吧。
 
+
+
+*****
+
+####  久保由利香  
+##### 96#       发表于 2022-10-28 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58142606&amp;ptid=2075178" target="_blank">fangJmin 发表于 2022-10-28 11:23</a>
+痞子就没看过几集假面骑士啊就原教旨粉。
+
+他拍的新系列路数就是披着皮辱骂日本政治，发泄自己那点中 ...</blockquote>
+the系列还是算了吧，《水知道答案》的内容都能一本正经地在作品里面引用，不要因为冷门就当没人看过啊
+
+*****
+
+####  Racyjackman  
+##### 97#       发表于 2022-10-28 11:39
+
+原来假面骑士是个有严肃科学背景的硬科幻系列啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

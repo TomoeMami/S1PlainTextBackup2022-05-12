@@ -12171,3 +12171,17 @@ wiki看不懂日文可以对着装备数值去找
 
 晚上把神杀剑拿了开新章去
 
+
+
+*****
+
+####  pf67  
+##### 1108#       发表于 2022-10-28 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58142664&amp;ptid=2098044" target="_blank">tsubaki 发表于 2022-10-28 11:28</a>
+
+几个神还是龙王的即死二连最麻烦，其余的基本磨时间就够了（邪神你个弹幕不停的玩意）
+
+晚上把神杀剑拿了开 ...</blockquote>
+龙王那个堆石化抗性就基本无伤，最麻烦的是连吐火球连着来5轮，盾扛不住，不跑远点基本就挂了
+
