@@ -16,3 +16,181 @@
 
 就这R畜还能说三板斧，明年干回来。
 
+
+
+*****
+
+####  nowaki  
+##### 40503#       发表于 2022-10-28 15:42
+
+老迹玩不来io的，天梯玩了被宰之后就没见他碰过。
+
+其实液体是能打io的，打秘密就用了米波陈老鹿 27分钟通关，就是抓你15级a杖之前的空窗期干翻你。
+
+*****
+
+####  walfeds  
+##### 40504#       发表于 2022-10-28 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146210&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-28 15:37</a>
+
+？怎么还有双头龙的</blockquote>
+卜是，双头龙不是这个吧
+
+*****
+
+####  希望之花  
+##### 40505#       发表于 2022-10-28 15:44
+
+后悔选拉比克至宝了，40场胜利wdnmd
+
+*****
+
+####  yyf奇遇记  
+##### 40506#       发表于 2022-10-28 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146288&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-28 15:42</a>
+
+卜是，双头龙不是这个吧</blockquote>
+那这是撒
+
+*****
+
+####  syndrome2032  
+##### 40507#       发表于 2022-10-28 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146282&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-28 15:42</a>
+老迹玩不来io的，天梯玩了被宰之后就没见他碰过。
+
+其实液体是能打io的，打秘密就用了米波陈老鹿 27分钟通关 ...</blockquote>
+米波炼金全没了
+
+*****
+
+####  nowaki  
+##### 40508#       发表于 2022-10-28 15:45
+
+那个小的是吸豆豆的
+
+*****
+
+####  蛭人  
+##### 40509#       发表于 2022-10-28 15:45
+
+w33中单能力被普森爆中爆，而且米波还被ban了，只能说2、3把液体被干爆后，心态崩了。
+
+*****
+
+####  lyjssj  
+##### 40510#       发表于 2022-10-28 15:46
+
+这lgd队服旁边摆着一个双头龙也太逗了吧
+
+*****
+
+####  nowaki  
+##### 40511#       发表于 2022-10-28 15:47
+
+杰士邦的东西除了便宜没有任何优点
+
+*****
+
+####  tasuku  
+##### 40512#       发表于 2022-10-28 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146282&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-28 15:42</a>
+
+老迹玩不来io的，天梯玩了被宰之后就没见他碰过。
+
+其实液体是能打io的，打秘密就用了米波陈老鹿 27分钟通关 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">实际上液体也差点做到了
+
+*****
+
+####  walfeds  
+##### 40513#       发表于 2022-10-28 15:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146325&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-28 15:45</a>
+
+那这是撒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">不好描述，反正这同向分叉是有用的
+
+*****
+
+####  蛭人  
+##### 40514#       发表于 2022-10-28 15:48
+
+漏油怎么对女性快乐玩具特别懂的？
+
+*****
+
+####  IG.430  
+##### 40515#       发表于 2022-10-28 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146323&amp;ptid=2099454" target="_blank">希望之花 发表于 2022-10-28 15:44</a>
+后悔选拉比克至宝了，40场胜利wdnmd</blockquote>
+拉比克玩不腻啊
+
+*****
+
+####  yyf奇遇记  
+##### 40516#       发表于 2022-10-28 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146369&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-28 15:47</a>
+
+不好描述，反正这同向分叉是有用的</blockquote>
+太棒了，我逐渐理解了一切
+
+*****
+
+####  yyf奇遇记  
+##### 40517#       发表于 2022-10-28 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146386&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-28 15:48</a>
+
+漏油怎么对女性快乐玩具特别懂的？</blockquote>
+你敢假定漏油性别？
+
+*****
+
+####  很久就在那边l  
+##### 40518#       发表于 2022-10-28 15:50
+
+没吃过猪肉还没见过猪跑？
+
+*****
+
+####  DDWarrior  
+##### 40519#       发表于 2022-10-28 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">差不多得了，NGA的屎还不够臭吗，非要搬知乎那坨更臭的过来
+
+*****
+
+####  DDWarrior  
+##### 40520#       发表于 2022-10-28 15:51
+
+连击刀
+
+*****
+
+####  zsu222  
+##### 40521#       发表于 2022-10-28 15:51
+
+妹妹恰个V，哥哥不是坏人
+
+*****
+
+####  walfeds  
+##### 40522#       发表于 2022-10-28 15:51
+
+没见过三次元猪还是见过二次元猪跑的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 40523#       发表于 2022-10-28 15:52
+
+nigma也油了。
+每日查询kky和厂公退役进度。
+
