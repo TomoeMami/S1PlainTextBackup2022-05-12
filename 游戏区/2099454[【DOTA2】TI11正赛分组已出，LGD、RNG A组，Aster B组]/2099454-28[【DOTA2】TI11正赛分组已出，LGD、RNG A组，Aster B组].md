@@ -1305,3 +1305,41 @@ dota之神已经给仙贝足够多的机会了。
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  没钱买手办  
+##### 40650#       发表于 2022-10-28 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58149590&amp;ptid=2099454" target="_blank">a1370303 发表于 2022-10-28 18:39</a>
+四赵云里的大路哥已经倒了，据火箭队消息说是赛后准备润卡洛斯，只能说可以提前青蒜可尔妮了
+
+— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对面开挂泉水钩把大路哥换上来用阴间藏战术的火放给秒了，肥胖四号位拼命换死了对面的大哥，残局怎么打
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  你可以试试  
+##### 40651#       发表于 2022-10-28 18:48
+
+毕竟不断施舍的人是你，献孝心送冠军
+
+*****
+
+####  nowaki  
+##### 40652#       发表于 2022-10-28 18:49
+
+我克已经是ti11亚军了，知足了。
+
+*****
+
+####  usoda  
+##### 40653#       发表于 2022-10-28 18:50
+
+主要是两次都是2比3 就非常戏剧化了 作为二次元老嗨的仙贝不知道会不会有种传说中的宿命感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
