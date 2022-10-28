@@ -9413,3 +9413,61 @@ ame稳定吃ban位，但是自己也没打好，被对面不吃ban位的C乱爆�
 
 确实不会，以前lgd马尔斯都是中单玩的，他那个矛命中率堪比皮鞋
 
+
+
+*****
+
+####  nowaki  
+##### 40015#       发表于 2022-10-28 08:24
+
+论对位处刑和ban位资源 我觉得是ti8的ana和ame
+
+*****
+
+####  沉默之声  
+##### 40016#       发表于 2022-10-28 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139644&amp;ptid=2099454" target="_blank">Moodyblue 发表于 2022-10-28 08:14</a>
+
+​lgd这两年是不是在faith bian和莫言的英雄池上吃了很大的亏
+
+ame这两年大圣还有其他英雄基本能稳吃1-2个b ...</blockquote>
+比赛印象，Ame的传统1 美杜莎幽鬼炼金小小小鱼小娜迦TB 飞机 血魔 Pa玩的都没啥亮眼之处啊
+
+给人印象比较深的就是 水人和大圣 玩的还可以，英雄勺算不上，但是英雄海差的远了
+
+改版之前，就是沙特杯的时候…NGA还一堆的LGD要以3号位为核心假3真1的帖子呢…
+
+虽然我那时候就觉得3玩的也一般吧…24当时倒一直发挥还比较稳定
+
+*****
+
+####  火鸡味锅巴  
+##### 40017#       发表于 2022-10-28 08:27
+
+集美对着lgd房间就是一喷子，打出的子弹没有一粒会到处长身上的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 40018#       发表于 2022-10-28 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139641&amp;ptid=2099454" target="_blank">聚散浮云 发表于 2022-10-28 08:14</a>
+草，被钓了</blockquote>
+当漏油发一段太监味的文字时，可以理性怀疑是搬屎，但不标出处默认真情实感也没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  星野航  
+##### 40019#       发表于 2022-10-28 08:30
+
+说fb'ti10被爆中乱爆这就是岁月史书2.0了
+
+看来真视界发了也没吊用，很明显fb的猛犸雪碧更没有对策<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+更别说fb去年一路打上来的潮汐狼人，去年还是牙通牙今年就爆中乱爆了？
+
+没有nts'那把tinker水厂估计0-3被抬走了吧
+
