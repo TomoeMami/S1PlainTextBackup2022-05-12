@@ -1681,3 +1681,33 @@ ti9ana。io就是神兽，明摆着硬实力差距，赢不了
 
 —— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  没钱买手办  
+##### 40690#       发表于 2022-10-28 21:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">智畜属于一路畜过来的类似A畜，丹畜是新兴之畜，类似油扒鸡的虚空吧感觉
+
+*****
+
+####  woyzeck  
+##### 40691#       发表于 2022-10-28 21:06
+
+为什么都是畜？这俩人干了啥？
+
+*****
+
+####  反方向的波  
+##### 40692#       发表于 2022-10-28 21:07
+
+莥芘，红字来了
+
+*****
+
+####  没钱买手办  
+##### 40693#       发表于 2022-10-28 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真说畜还有个狗豪呢
+

@@ -1498,3 +1498,12 @@ BYD我以为那个警察是好人，还以为警察局有啥线，结果这比�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">R   18相关的部分只能说。。。莫名其妙
 
+
+
+*****
+
+####  double8  
+##### 135#       发表于 2022-10-28 21:09
+
+感觉还是有个好的框架的，可惜细节方面把控太差了……怎么说呢，就好像太吾1.0给人的感觉那样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
