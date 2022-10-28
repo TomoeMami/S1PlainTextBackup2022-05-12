@@ -14704,3 +14704,12 @@ CelticWhite
 
 这最后一届不是说解禁往届冠军限制吗，看到这个消息的时候就觉得没啥值得关注的了，轮不到可可的，让那些冠军去磨灭大道吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 8832#       发表于 2022-10-28 18:28
+
+草，今天的初广播是鲤鱼学单词吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+

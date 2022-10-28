@@ -54,3 +54,19 @@
 
 戏画偷懒是真偷懒，就替换文本，不把游戏移植续作框架上
 
+
+
+*****
+
+####  Xenor  
+##### 725#       发表于 2022-10-28 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58141097&amp;ptid=2037739" target="_blank">慕容断月 发表于 2022-10-28 10:02</a>
+
+这游戏但凡有sky的热量管理和force开始的fc，也不会这么麻烦了
+
+戏画偷懒是真偷懒，就替换文本， ...</blockquote>
+可惜都没有碰过，就只玩过这款BB，还是以前台湾汉化的<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+PS2上还有一款EXE，玩了个开头，感觉没有BBE的机甲美型，看评价最好的就是sky吧然则电脑前又坐不住<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
