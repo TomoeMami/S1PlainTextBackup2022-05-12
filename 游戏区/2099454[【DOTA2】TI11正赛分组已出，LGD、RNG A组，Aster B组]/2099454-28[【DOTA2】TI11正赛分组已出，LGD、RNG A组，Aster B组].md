@@ -1920,3 +1920,24 @@ ti9ana。io就是神兽，明摆着硬实力差距，赢不了
 
 这几首应该能体现 老人民艺术家，完美张韶涵，迪士尼在逃小娜迦的含金量了。
 
+
+
+*****
+
+####  thistimeforlife  
+##### 40711#       发表于 2022-10-28 21:31
+
+打开虎牙就是鳖鳖被小林乱秀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 40712#       发表于 2022-10-28 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58152607&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-28 21:30</a>
+
+https://www.bilibili.com/video/BV1CG4y18793
+
+红玫瑰</blockquote>
+我象征性的问下，已经看过了，我可不是管人痴啊。
+

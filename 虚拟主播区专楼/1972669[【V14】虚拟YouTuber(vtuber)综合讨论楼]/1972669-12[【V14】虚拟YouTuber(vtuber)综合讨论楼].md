@@ -221,3 +221,14 @@ hnn这次主催的ow2自定义是暴雪日区运营赞助的啊，不错<img src
 
 不过从虹里抢下第一个OW大型赛事的宣称
 
+
+
+*****
+
+####  Ketestrait  
+##### 17654#       发表于 2022-10-28 21:35
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1h7lbw8t1ndj20xx0j2gpc.jpg" referrerpolicy="no-referrer">
+
+这下叛逆期小太妹了<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer"> 
+

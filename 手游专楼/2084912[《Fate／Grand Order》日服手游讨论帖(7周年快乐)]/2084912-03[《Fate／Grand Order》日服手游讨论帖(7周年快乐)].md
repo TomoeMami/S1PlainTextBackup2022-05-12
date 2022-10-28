@@ -3159,3 +3159,19 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 （ourplay有时候自己也会出问题，比如进不了主页，还是有点不安全...总之记得随手留一个能用的引继码，关键时刻能抢救一下。）
 
+
+
+*****
+
+####  alucardcz  
+##### 3281#       发表于 2022-10-28 21:34
+
+fgo一直能直连的你们为什么要用加速器<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3282#       发表于 2022-10-28 21:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这次虚数各种打个两三次就黑屏卡死 好烦啊
+
