@@ -8251,3 +8251,14 @@ y1s1，这游戏做的还行，对得起价钱。
 
 mea小姐在意狙击行为本身这种事情仿佛刚上网的娃娃没直播过不了解lol圈环境。反正现在也已经黄金1 12点了，只能说上分失败找那么多借口干嘛。最后还不是回私人号打匹配。
 
+
+
+*****
+
+####  时间在我手中  
+##### 12785#       发表于 2022-10-29 00:18
+
+只能说幸好我从来不看打撸画面<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">反正bu能不能看到转播我也不关心，无所谓。
+
+主播玩了块十年了还是没什么本质上的变化只能说作为游戏玩家来说肯定是欠缺了什么的，尽管作为观众来说这种事一般没必要管也管不到，但主播上不去白金然后狂暴自闭也是种再放送罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
