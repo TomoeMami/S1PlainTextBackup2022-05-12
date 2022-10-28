@@ -3269,3 +3269,13 @@ sweetsub已经出了翻译版本了，翻得也还算准确吧，你去看看
 
 <img src="https://static.saraba1st.com/image/smiley/carton2017/281.png" referrerpolicy="no-referrer">布丁女士太够味儿了，加大力度
 
+
+
+*****
+
+####  千恋万花  
+##### 263#       发表于 2022-10-28 17:03
+
+秋アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第4話放送後インタビュー：しー役 高橋花林さん&amp;#xD7;ジョブ子役 大森日雅さん｜似た者同士のジョブ子とぷりん、二人が印象に残った台詞は？
+[https://www.animatetimes.com/news/details.php?id=1666852454](https://www.animatetimes.com/news/details.php?id=1666852454)
+
