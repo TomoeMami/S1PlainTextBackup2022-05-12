@@ -12526,3 +12526,33 @@ sg还有版主是吧，真是卜基德啊
 狂三啥时候再直播一次lol，我想再杀一次他的吗</blockquote>
 那你恐怕下次看见的是更下贱的lolm了，搓玻璃+撸狗
 
+
+
+*****
+
+####  tengshuo980  
+##### 40350#       发表于 2022-10-28 12:01
+
+为啥我领取puls和等级的时候老显示未知错误 （错误7），至宝到是领到了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  我前期那么肥  
+##### 40351#       发表于 2022-10-28 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58143126&amp;ptid=2099454" target="_blank">ml1642879 发表于 2022-10-28 11:57</a>
+
+那你恐怕下次看见的是更下贱的lolm了，搓玻璃+撸狗</blockquote>
+那真是户口本都物理灭绝了
+
+*****
+
+####  tasuku  
+##### 40352#       发表于 2022-10-28 12:03
+
+漏油内讧又开始了
+
+支持正义清算水厂全队！
+
