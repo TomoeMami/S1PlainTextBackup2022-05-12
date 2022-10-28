@@ -1248,3 +1248,19 @@ the系列还是算了吧，《水知道答案》的内容都能一本正经地�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用这么豪华的阵容跟经费拍出这种玩意，不知道该说什么好
 
+
+
+*****
+
+####  zxc4563982  
+##### 109#       发表于 2022-10-28 14:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">别的不说，皮套跟腰带是真的性感，好涩
+
+*****
+
+####  MaskedBlade  
+##### 110#       发表于 2022-10-28 14:58
+
+看过the和amazon都不太喜欢，黑日准备看。我感觉假骑对成人向的理解很肤浅，就是增加画面尺度和敏感话题，但情节和演出又绷不住，不知黑日是否还是这样。其实只要像平成前4那样把人物写的人情世故就行了，怎么就想不明白呢
+
