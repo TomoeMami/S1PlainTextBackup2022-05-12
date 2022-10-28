@@ -9997,3 +9997,93 @@ OG是怎样的做BP的
 —— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">把myboy吸干了，还有业务能力不太行吧，经常有吐槽她采访问的问题不行
 
+
+
+*****
+
+####  zsu222  
+##### 40066#       发表于 2022-10-28 09:23
+
+og这四个人bp。不得打起来？
+
+*****
+
+####  我前期那么肥  
+##### 40067#       发表于 2022-10-28 09:24
+
+项羽这个头像，不会真的想跟泰迪处长一起打gg吧
+
+<img src="https://img.saraba1st.com/forum/202210/28/092426abh0b750ftcbc95a.jpg" referrerpolicy="no-referrer">
+
+<strong>241923c79f3df8dc4d08cc508811728b46102814.jpg</strong> (122.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 09:24 上传
+
+<img src="https://img.saraba1st.com/forum/202210/28/092427t0s8m13wwnnwn1el.jpg" referrerpolicy="no-referrer">
+
+<strong>9dc1673e6709c93de8c74d36da3df8dcd0005414.jpg</strong> (135 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 09:24 上传
+
+*****
+
+####  nowaki  
+##### 40068#       发表于 2022-10-28 09:25
+
+OGbp其实还行，就是三号位不学不练这里尬尴了点
+
+不过那把虚空真的顶级发挥，仅次于波高水人了
+
+*****
+
+####  沉默之声  
+##### 40069#       发表于 2022-10-28 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140502&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-28 09:23</a>
+
+把myboy吸干了，还有业务能力不太行吧，经常有吐槽她采访问的问题不行 ...</blockquote>
+Ti9简直小丑，不过这对感情还挺不错的，应该是真爱
+
+*****
+
+####  llconforever  
+##### 40070#       发表于 2022-10-28 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140341&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-28 09:13</a>
+北美比赛场次暴增56%</blockquote>
+盲猜全是jajaja
+
+*****
+
+####  iriyano  
+##### 40071#       发表于 2022-10-28 09:26
+
+才发现dota历史档案馆又更新了
+
+*****
+
+####  nowaki  
+##### 40072#       发表于 2022-10-28 09:26
+
+小团体司马
+
+*****
+
+####  我前期那么肥  
+##### 40073#       发表于 2022-10-28 09:26
+
+太太团比较做人的，想了一下就只有大王tara了，本来就是做主持人的，情商在线，现在也基本跟刀圈没关系了
+
+*****
+
+####  重名的mufasa  
+##### 40074#       发表于 2022-10-28 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140233&amp;ptid=2099454" target="_blank">novoland 发表于 2022-10-28 09:07</a>
+非洗地的说一句，围bian救A虽然是水厂的毒计……但是do圈太太团人设崩盘真不是常态么？说她们人均戏精都说 ...</blockquote>
+电竞圈出了名的人傻钱多，除了不好挤进来简直是职业太太团的第一目标。
+

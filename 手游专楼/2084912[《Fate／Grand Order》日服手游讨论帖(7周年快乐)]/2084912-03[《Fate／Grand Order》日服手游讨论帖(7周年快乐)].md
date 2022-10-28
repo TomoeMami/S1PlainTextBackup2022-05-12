@@ -3070,3 +3070,21 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 缺点是有时候更新会慢一点...不过好过没有。
 
+
+
+*****
+
+####  khxooo  
+##### 3273#       发表于 2022-10-28 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58131765&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-27 18:02</a>
+这灵脉石和茶壶就不能直接无限期吗</blockquote>
+福 利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  新吾  
+##### 3274#       发表于 2022-10-28 09:25
+
+你游看来3.0要么换游戏app要么就寄了，现在各种催促玩家打主线感觉是想同步完结
+
