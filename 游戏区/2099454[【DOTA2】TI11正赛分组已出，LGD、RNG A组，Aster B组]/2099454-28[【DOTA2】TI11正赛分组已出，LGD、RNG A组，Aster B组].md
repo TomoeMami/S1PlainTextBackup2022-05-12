@@ -2860,3 +2860,28 @@ ti8那会，大概是因为干瘪和观众十分狂妄看不起对手，我脑�
 
 前面忘了，中间忘了，写在Aster受难的当天
 
+
+
+*****
+
+####  holyblood  
+##### 40801#       发表于 2022-10-29 01:45
+
+要打十次对人机玩家挺不友好的。为了至宝去匹配感觉对不隹队友<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 40802#       发表于 2022-10-29 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58156280&amp;ptid=2099454" target="_blank">holyblood 发表于 2022-10-29 01:45</a>
+要打十次对人机玩家挺不友好的。为了至宝去匹配感觉对不隹队友</blockquote>
+加速<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  恐怖利刃  
+##### 40803#       发表于 2022-10-29 01:51
+
+匿名模式加没有消息进入，天梯也可以是人机
+
