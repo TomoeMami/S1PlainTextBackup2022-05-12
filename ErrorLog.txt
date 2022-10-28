@@ -1,41 +1,47 @@
 
+'NoneType' object has no attribute 'group'
+!!error:id=2101073
 list index out of range
-!!error:id=2069884
+!!error:id=2051733
 list index out of range
-!!error:id=2001539
+!!error:id=1910828
 list index out of range
-!!error:id=2073604
+!!error:id=2098044
 list index out of range
-!!error:id=1991297
-list index out of range
-!!error:id=1754522
-list index out of range
-!!error:id=1930717
-list index out of range
-!!error:id=2099847
+!!error:id=2101233
 list index out of range
 !!error:id=2101112
 list index out of range
-!!error:id=2101143
+!!error:id=2006089
 list index out of range
-!!error:id=2101134
+!!error:id=2101635
 list index out of range
-!!error:id=2101643
+!!error:id=2068921
 list index out of range
-!!error:id=2101690
+!!error:id=2072339
 list index out of range
-!!error:id=2029938
+!!error:id=2101847
 list index out of range
-!!error:id=2067758
+!!error:id=2028054
 list index out of range
-!!error:id=2081905
+!!error:id=2068176
 list index out of range
-!!error:id=2075863
+!!error:id=2018030
 list index out of range
-!!error:id=1334731
+!!error:id=2071223
 list index out of range
-!!error:id=2100581
+!!error:id=2100048
 list index out of range
-!!error:id=2101593
-'NoneType' object has no attribute 'group'
-!!error:id=2101073
+!!error:id=2101240
+list index out of range
+!!error:id=2100848
+list index out of range
+!!error:id=2101674
+list index out of range
+!!error:id=2101510
+list index out of range
+!!error:id=2101533
+list index out of range
+!!error:id=2095704
+list index out of range
+!!error:id=2088581

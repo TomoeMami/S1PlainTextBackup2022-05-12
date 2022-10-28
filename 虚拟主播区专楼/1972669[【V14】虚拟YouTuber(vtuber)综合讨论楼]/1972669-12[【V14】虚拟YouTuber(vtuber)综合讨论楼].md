@@ -168,3 +168,12 @@ MC🎤犬山たまき
 
 12月还有跟riot合作的特别版，要线下bo3，所以这个应该是不带V的吧
 
+
+
+*****
+
+####  winda  
+##### 17649#       发表于 2022-10-28 11:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">king不参加11月的cr杯 valo，最近ow2玩太多了吧
+
