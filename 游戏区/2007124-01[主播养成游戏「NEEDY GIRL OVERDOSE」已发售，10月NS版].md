@@ -9098,3 +9098,12 @@ DARK ANGEL结局：达成100万粉后，不举办100万粉直播（这点存疑�
 Milky Way Train结局：完成都市传说5直播后，在白天使用魔法香烟/魔法邮票，晚上选择出门选项就会有一个银河车站地点，选择即触发本结局。
 THE INTERNET ANGEL Be INVOKED结局：粉丝数达到9999999（1000万）触发，暂时不确定是否有时间限制，新开个档从头运营的话大概22天左右就能达成。
 
+
+
+*****
+
+####  fuochai  
+##### 769#       发表于 2022-10-28 09:13
+
+b站热搜第二 这是买了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

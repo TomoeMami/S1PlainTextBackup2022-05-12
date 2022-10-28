@@ -9846,3 +9846,154 @@ sg真的恶臭啊，去年lgd输了造谣王八下菠菜，lgd全队被克格勃
 这卜是典型的自我意识过剩吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自我感动就完事了，怎么还当回事的
 
+
+
+*****
+
+####  tengshuo980  
+##### 40052#       发表于 2022-10-28 09:12
+
+之前不消费的都是些一毛钱不花的人吧，现在有了免费至宝后难免会买些小件，至宝 。也算是促进饰品市场了
+
+正所谓 不怕你赢，就怕你不来
+
+*****
+
+####  jk9hot  
+##### 40053#       发表于 2022-10-28 09:12
+
+简单点，钓凯子
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  我前期那么肥  
+##### 40054#       发表于 2022-10-28 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140307&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-28 09:12</a>
+
+之前不消费的都是些一毛钱不花的人吧，现在有了免费至宝后难免会买些小件，至宝 。也算是促进饰品市场了
+
+正 ...</blockquote>
+是的，看宙斯跟大圣的金不朽就知道了
+
+*****
+
+####  walfeds  
+##### 40055#       发表于 2022-10-28 09:13
+
+<img src="https://img.saraba1st.com/forum/202210/28/091327r22z2vgs5222vjuv.png" referrerpolicy="no-referrer">
+
+<strong>8eqfrgrxfew91.png</strong> (336.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 09:13 上传
+
+北美比赛场次暴增56%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 40056#       发表于 2022-10-28 09:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让我想起了乡下公主，话说到底是不是马甲脸，卡鳖口味这么重的。
+
+*****
+
+####  我前期那么肥  
+##### 40057#       发表于 2022-10-28 09:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">昨天380收了一个附魔行者，刚才去看已经500，这不比炒股来钱快？
+
+*****
+
+####  莉拉厨  
+##### 40058#       发表于 2022-10-28 09:17
+
+sg真的恶臭啊，去年lgd输了造谣王八下菠菜，lgd全队被克格勃威胁，潘婕开盘口，本来以为只是一群赌/狗。今年lgd输了之后直接开合余韵，还诅咒量子鞭去德国的飞机坠机，这生活也太不如意了吧
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  百世诸侯  
+##### 40059#       发表于 2022-10-28 09:19
+
+像葑茖这样的大哥也被媛莉法杖弄过，刀圈名媛确实不行
+
+*****
+
+####  百世诸侯  
+##### 40060#       发表于 2022-10-28 09:21
+
+<img src="https://img.saraba1st.com/forum/202210/28/092111uvudddudi7ug0r6c.jpg" referrerpolicy="no-referrer">
+
+<strong>-832726888.jpg</strong> (120.77 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-28 09:21 上传
+
+*****
+
+####  zsu222  
+##### 40061#       发表于 2022-10-28 09:21
+
+说实话 文卡卡是真的像被年年PUA
+
+*****
+
+####  沉默之声  
+##### 40062#       发表于 2022-10-28 09:21
+
+sg真的恶臭啊，去年lgd输了造谣王八下菠菜，lgd全队被克格勃威胁，潘婕开盘口，本来以为只是一群赌/狗。今年lgd输了之后直接开合余韵，还诅咒量子鞭去德国的飞机坠机，这生活也太不如意了吧
+
+*****
+
+####  walfeds  
+##### 40063#       发表于 2022-10-28 09:21
+
+那死亡先知小鸽子有什么破事吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  walfeds  
+##### 40064#       发表于 2022-10-28 09:23
+
+在战队自己的特色节目Monkey Business Show中，除了N0tail、Ceb、经理JMR Luna外，OG还邀请到了队长Misha和主持人Slacks。这期节目里Misha谈到了队伍在TI11的收获和具体的BP过程。
+
+这次TI的收获
+
+我收获了一段很棒的体验。虽然从工作人员那里得到了很多帮助，但遗憾的是我们的准备工作还是遭遇了失败，没能打出自己的风格。现在我有了比以往多十倍的经验，我们经历了困难时刻，也收获过一些美妙片段，这是我们共同经历的一段伟大旅程，我们也将以更强大的姿态回归。
+
+￼
+
+OG是怎样的做BP的
+
+我们有四个人负责BP，我、Chu、ATF和Ceb，我们会分成天辉夜魇两队，其中一队会站在对手的角度思考。我们会一直模拟下去，知道绘制出一幅BP全景。其中不仅包含你想在第一阶段开局做出的选人，也囊括了对第二、第三阶段的准备。
+
+通常情况下，你几乎可以预测BP中的所有内容，这需要花费很长的时间。有些人会喜欢模拟BP的成果，有些则不尽然，然后你就得重新开始，决定你最终到底想选哪几个英雄。
+
+本次TI也是这赛季Misha作为OG队员参加的第二个线下大赛（另一个是利雅得大师赛），最终他们拿到八强的成绩，和TI10的持平。
+
+四个人bp你们真没打起来吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  roxas.sora  
+##### 40065#       发表于 2022-10-28 09:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140474&amp;ptid=2099454" target="_blank">walfeds 发表于 2022-10-28 09:21</a>
+
+那死亡先知小鸽子有什么破事吗
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">把myboy吸干了，还有业务能力不太行吧，经常有吐槽她采访问的问题不行
+

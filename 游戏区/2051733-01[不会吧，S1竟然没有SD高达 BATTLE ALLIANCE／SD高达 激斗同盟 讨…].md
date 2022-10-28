@@ -16,3 +16,12 @@ DLC3今天放出来了，这游戏算是告一段落了吧，周末再细品一�
 
 这游戏解锁难度真是打到吐
 
+
+
+*****
+
+####  丹德里恩  
+##### 794#       发表于 2022-10-28 09:17
+
+为什么能天R4一个近战机子格斗做成这幅吊样啊<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
