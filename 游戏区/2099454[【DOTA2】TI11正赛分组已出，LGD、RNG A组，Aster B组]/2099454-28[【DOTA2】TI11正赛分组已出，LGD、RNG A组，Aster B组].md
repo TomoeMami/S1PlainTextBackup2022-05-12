@@ -1253,3 +1253,55 @@ dota之神已经给仙贝足够多的机会了。
 
 然而仙贝却在采访里狂妄地宣称dota之神不存在，打比赛全靠本事。
 
+
+
+*****
+
+####  没钱买手办  
+##### 40645#       发表于 2022-10-28 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58149333&amp;ptid=2099454" target="_blank">syndrome2032 发表于 2022-10-28 18:28</a>
+
+dota之神已经给仙贝足够多的机会了。
+
+然而仙贝却在采访里狂妄地宣称dota之神不存在，打比赛全靠本事。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">掀背大度让了7891011五个盾，掀背自己觉得自己就是dota之神
+
+*****
+
+####  yyf奇遇记  
+##### 40646#       发表于 2022-10-28 18:32
+
+dota之神已经给仙贝足够多的机会了。
+
+然而仙贝却在采访里狂妄地宣称dota之神不存在，打比赛全靠本事。
+
+*****
+
+####  jk9hot  
+##### 40647#       发表于 2022-10-28 18:32
+
+能两次手摸到总决赛又两次送走盾的选手你也很难在未来找到第二个
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  反方向的波  
+##### 40648#       发表于 2022-10-28 18:33
+
+以前克里斯打法真的不好看，闷头送十次队友扛着走，一旦拆电锤速度比不上wisper发力速度这把就有了，这2年节奏快了很多，克里斯也确实改变风格积极参战边打边刷，奈何以前扛着他的队友全中了剧毒大变成他扛着队友直到扛不动了哭笑 ti11决赛lgd打bc就是最明显的。哭笑只是今年版本原因彻底放大了另外2条路的重要性成为了压死骆驼最后一根艹哭笑
+
+*****
+
+####  a1370303  
+##### 40649#       发表于 2022-10-28 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58149102&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-28 18:15</a>
+理性通透一下智畜拿了皮神，mega卢卡里奥,z技能和极巨耿鬼这四赵云都打不过丹迪的话该怎么青蒜
+
+1 皮 ...</blockquote>
+四赵云里的大路哥已经倒了，据火箭队消息说是赛后准备润卡洛斯，只能说可以提前青蒜可尔妮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

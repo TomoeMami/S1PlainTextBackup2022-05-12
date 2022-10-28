@@ -70,3 +70,40 @@
 
 PS2上还有一款EXE，玩了个开头，感觉没有BBE的机甲美型，看评价最好的就是sky吧然则电脑前又坐不住<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Xenor  
+##### 726#       发表于 2022-10-28 18:33
+
+发现地狱模式可以刷六位女角色的好感度，达到100%后就能得到一张CG，应该对应后面这六个框吧
+
+前面第一页的那张CG可能是某个小剧情没有触发
+
+<img src="https://img.saraba1st.com/forum/202210/28/181956rinsj00assgfmeas.jpg" referrerpolicy="no-referrer">
+
+<strong>1.JPG</strong> (90.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 18:19 上传
+
+同时到达SS级别了，总算又进了一步……
+
+(还发现如果调难度，clear就会变成银色，只有最难通过才是金黄色，各种逼死强迫症
+
+<img src="https://img.saraba1st.com/forum/202210/28/181957girin4jzr8dz4zsj.jpg" referrerpolicy="no-referrer">
+
+<strong>2.JPG</strong> (106.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 18:19 上传
+
+自己只玩过这作，感觉机甲战还是很爽的，不同于高达战争：[https://www.bilibili.com/video/BV1314y1L735](https://www.bilibili.com/video/BV1314y1L735)
+
+几分钟一局，时间也刚刚好，后续作应该会更好玩，期待<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+五战五败的绝对无理：[https://www.bilibili.com/video/BV1ue4y1v7PR/](https://www.bilibili.com/video/BV1ue4y1v7PR/) (审核中)
+
