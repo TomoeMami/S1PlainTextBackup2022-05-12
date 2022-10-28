@@ -1856,3 +1856,35 @@ kiva什么时候被拿到和后面两者并列了</blockquote>
 
 战斗方面至少没爆火花还有那些便宜的闪电特效加爆炸物，但也没有什么新花样，感觉变不变身都一样
 
+
+
+*****
+
+####  菲特妹  
+##### 168#       发表于 2022-10-29 01:04
+
+还有麻雀演技有够烂的，关键那声音真的很让人烦躁，倒是很符合麻雀
+
+*****
+
+####  11116等  
+##### 169#       发表于 2022-10-29 01:08
+
+ 本帖最后由 11116等 于 2022-10-29 01:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58152622&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-10-28 21:30</a>
+revice再烂也有打架有乐子，这片只有闷，冲着看乐子都比看这玩意强呢</blockquote>
+那你看01去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCAM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  11116等  
+##### 170#       发表于 2022-10-29 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58155929&amp;ptid=2075178" target="_blank">菲特妹 发表于 2022-10-29 01:04</a>
+还有麻雀演技有够烂的，关键那声音真的很让人烦躁，倒是很符合麻雀</blockquote>
+麻雀声音好尖，听起来很突出也很不爽，最不爽的就是影月在组织去打戈尔戈姆之前那次众人回“嗯”
+
+—— 来自 OPPO PCAM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
