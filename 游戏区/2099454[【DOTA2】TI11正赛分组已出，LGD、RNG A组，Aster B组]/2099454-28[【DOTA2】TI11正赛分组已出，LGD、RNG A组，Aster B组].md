@@ -2832,3 +2832,22 @@ ti8那会，大概是因为干瘪和观众十分狂妄看不起对手，我脑�
 
 —— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  蛭人  
+##### 40798#       发表于 2022-10-29 01:20
+
+去翻了下资料，原来厨子觉得自己巅峰居然是在IG，看来厨子确实挺满意IG的队友，也无外乎合影笑嘻了。
+
+*****
+
+####  woyzeck  
+##### 40799#       发表于 2022-10-29 01:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58156092&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-29 01:20</a>
+
+去翻了下资料，原来厨子觉得自己巅峰居然是在IG，看来厨子确实挺满意IG的队友，也无外乎合影笑嘻了。 ...</blockquote>
+哪儿写的，那意思是430把巅峰上帝压在了替补席上，哈哈。
+
