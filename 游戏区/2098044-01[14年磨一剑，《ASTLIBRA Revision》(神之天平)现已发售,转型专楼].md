@@ -12207,3 +12207,27 @@ wiki看不懂日文可以对着装备数值去找
 
 真快刷疯了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  A1LI  
+##### 1111#       发表于 2022-10-28 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58143555&amp;ptid=2098044" target="_blank">雪落白夜 发表于 2022-10-28 12:34</a>
+
+昨晚拿了杀神剑开新章，这装备盘系统肝疼
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+先不要肝，先推剧情，然后先不搞装备盘，先找个最喜欢的武器，用商店的强化系统先强化个50级，然后你攻击力够高的时候去打竞技场，通关竞技场之后，会给一个身上穿的装备掉盘率增加的饰品，还会获得一个宝箱中装备盘掉率提升的物品，这俩饰品都有之后，再刷装备盘就快多了。
+
+*****
+
+####  雪落白夜  
+##### 1112#       发表于 2022-10-28 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58144274&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-10-28 13:35</a>
+
+先不要肝，先推剧情，然后先不搞装备盘，先找个最喜欢的武器，用商店的强化系统先强化个50级，然后你攻击 ...</blockquote>
+懂了，今晚回去+50<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
