@@ -8227,3 +8227,12 @@ y1s1，这游戏做的还行，对得起价钱。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  thisisaspider  
+##### 12783#       发表于 2022-10-28 21:10
+
+这下理智消费了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

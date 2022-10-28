@@ -1507,3 +1507,28 @@ BYD我以为那个警察是好人，还以为警察局有啥线，结果这比�
 
 感觉还是有个好的框架的，可惜细节方面把控太差了……怎么说呢，就好像太吾1.0给人的感觉那样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  菲泽k  
+##### 136#       发表于 2022-10-28 21:12
+
+草，这剑圣好弱啊。撒旦军刀是什么破铜烂铁，原作可是black用来打败创世王的武器吧。
+
+*****
+
+####  江城诀丶  
+##### 137#       发表于 2022-10-28 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58152280&amp;ptid=2075178" target="_blank">菲泽k 发表于 2022-10-28 21:12</a>
+草，这剑圣好弱啊。撒旦军刀是什么破铜烂铁，原作可是black用来打败创世王的武器吧。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">这作不也是拿来捅死创世王的武器
+
+*****
+
+####  ashero  
+##### 138#       发表于 2022-10-28 21:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这玩意不要把他当成战斗片来期待其实还挺好看的 感觉阴阳了很多东西 
+
