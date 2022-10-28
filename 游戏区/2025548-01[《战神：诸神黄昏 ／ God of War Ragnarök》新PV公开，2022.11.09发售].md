@@ -8246,3 +8246,12 @@ TIM截图20221029044856.png
 
 <img src="https://img.saraba1st.com/forum/202210/29/044942a1uky1rgm8xt8xtz.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SergeGlenn  
+##### 866#       发表于 2022-10-29 06:06
+
+Reddit上又一个有评测版游戏的人说他目前游戏时间是76小时，大部分区域已经100%
+
