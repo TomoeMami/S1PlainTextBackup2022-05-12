@@ -9162,3 +9162,73 @@ A畜要清算 高华也要清算 这才算健全
 
 NGA的集美为啥对清算这么大的热情，小作文阴谋论要素拉满了，要都是女的，这饭圈女围攻拳师岂不是大水冲了龙王庙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星野航  
+##### 39993#       发表于 2022-10-28 07:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139489&amp;ptid=2099454" target="_blank">沉默之声 发表于 2022-10-28 08:52</a>
+NGA的集美为啥对清算这么大的热情，小作文阴谋论要素拉满了，要都是女的，这饭圈女围攻拳师岂不是大水冲了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能么
+这随风飘过来的太监味是独一档的，至于为啥这么大热情，那青蒜了这么多年了，还看不出来么
+
+*****
+
+####  lyjssj  
+##### 39994#       发表于 2022-10-28 07:56
+
+ 本帖最后由 lyjssj 于 2022-10-28 07:58 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">nga一直这鸟样，论坛人一多平均智商就会急剧下降，因为一个nt发帖10个nt附和，正常人就不敢说话/不齿与之为伍
+
+*****
+
+####  沉默之声  
+##### 39995#       发表于 2022-10-28 07:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139436&amp;ptid=2099454" target="_blank">Moodyblue 发表于 2022-10-28 07:39</a>
+
+​每个人都送至宝等于没送
+
+以前时候国外发钱都把经济整成啥样了还不明白了，发钱是下下策的经济学原理懂 ...</blockquote>
+腾讯的皮肤不可交易，发皮肤也没见崩啊，都发钱等于没发是阴阳怪气你还真信啊，钱印没印都清楚，发到谁手里的区别而已
+
+*****
+
+####  沉默之声  
+##### 39996#       发表于 2022-10-28 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139502&amp;ptid=2099454" target="_blank">星野航 发表于 2022-10-28 07:54</a>
+
+可能么
+
+这随风飘过来的太监味是独一档的，至于为啥这么大热情，那青蒜了这么多年了，还看不出来么 ...</blockquote>
+要是男的…为了洗哥哥菜逼而甩锅前队友老婆，就相当作呕了，直面现实的勇气都没有吗
+
+*****
+
+####  我前期那么肥  
+##### 39997#       发表于 2022-10-28 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58139489&amp;ptid=2099454" target="_blank">沉默之声 发表于 2022-10-28 07:52</a>
+NGA的集美为啥对清算这么大的热情，小作文阴谋论要素拉满了，要都是女的，这饭圈女围攻拳师岂不是大水冲了 ...</blockquote>
+说简单点就是每次扫黄都有a畜，肯定要想方设法把a畜摘出来，把队友塑造成无耻的队友印象，这样才可以把自己的欧尼酱凸显的光正伟，然后证明自己粉人很有眼光
+
+*****
+
+####  lyjssj  
+##### 39998#       发表于 2022-10-28 08:00
+
+发至宝对v社来说不就是一段代码吗，但是玩家回流可是实打实得帮v社完成kpi（v社有kpi吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+玩家市场反正也是玩家自己倒卖，v社根本懒得理吧
+
+*****
+
+####  食粪者  
+##### 39999#       发表于 2022-10-28 08:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">野种们就硬无视呗
+
