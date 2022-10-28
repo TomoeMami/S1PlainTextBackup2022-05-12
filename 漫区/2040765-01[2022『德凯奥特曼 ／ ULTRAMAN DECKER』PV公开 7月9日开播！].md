@@ -1213,3 +1213,15 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 我是看出久弥的问题点在哪了，他的剧本本来节奏就诡异，喜欢跳剧情，再夹杂些看不懂的谜语人，整段戏就直接 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看他拍的就像看闪回一样，支离破碎
 
+
+
+*****
+
+####  athena_1982  
+##### 718#       发表于 2022-10-28 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58147295&amp;ptid=2040765" target="_blank">游蜓 发表于 2022-10-28 16:47</a>
+
+看他拍的就像看闪回一样，支离破碎</blockquote>
+还有半个月邪神回归，颤抖了么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

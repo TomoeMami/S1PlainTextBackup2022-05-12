@@ -3305,3 +3305,16 @@ sweetsub已经出了翻译版本了，翻得也还算准确吧，你去看看
 htt ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">猪猪受迫害场景是这部动画的必备环节，不得不品……倒是这只猪猪似乎能听得懂人话似的
 
+
+
+*****
+
+####  Totokei  
+##### 266#       发表于 2022-10-28 23:13
+
+这一集真的绝了，除了喜闻乐见的bu女士同款分镜，整集下来布丁形象转变的气氛渲染上也太到位了
+
+还有各自都记得的小时候的约定（？）配上小予自行车那几格看得悸动
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">这一季萌豚动画算上隔壁的摇滚和登山美好得以后再也不会重现一样，明明才在放第四集就开始惆怅结束了
+

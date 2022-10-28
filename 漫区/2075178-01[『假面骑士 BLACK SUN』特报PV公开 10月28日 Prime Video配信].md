@@ -1720,3 +1720,40 @@ kiva什么时候被拿到和后面两者并列了</blockquote>
 
 还有就是一群带着动物头套身上穿着各种人类服装的“怪人”扭捏打架，或者套着动物头套的怪人cos弗洛伊德，400分钟的皮套人打架片给我玩这套，真的牛
 
+
+
+*****
+
+####  浅川雏羽  
+##### 155#       发表于 2022-10-28 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154334&amp;ptid=2075178" target="_blank">永恒的王牌 发表于 2022-10-28 23:08</a>
+
+你们对bgm的评价让我想起粽2千翼老是哼的那首歌了，哼得不好听还老是哼
+
+战斗看过扯肠子的片段，但现在看 ...</blockquote>
+这片主旋律还可以，比阿妈爽s2里那个迷之曲目强多了
+
+*****
+
+####  奥F特  
+##### 156#       发表于 2022-10-28 23:18
+
+新奥剧情虽然也不咋地 但毕竟够王道传统 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更关键的是 俩小时不到的时间特摄打斗都比black sun多
+
+*****
+
+####  浅川雏羽  
+##### 157#       发表于 2022-10-28 23:18
+
+这片固然不怎么行，但是皮套人打架时长绝对不能作为评判皮套人打架的标准，不然你让老7的美特隆回、r1回、圆盘回和整个7x情何以堪
+
+*****
+
+####  奥F特  
+##### 158#       发表于 2022-10-28 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154514&amp;ptid=2075178" target="_blank">浅川雏羽 发表于 2022-10-28 23:18</a>
+这片固然不怎么行，但是皮套人打架时长绝对不能作为评判皮套人打架的标准，不然你让老7的美特隆回、r1回、 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">文戏评价不行 自然就要从特摄打戏找回场子 可black sun特摄打戏也拉了 如果文戏好 自然也不会纠结
+
