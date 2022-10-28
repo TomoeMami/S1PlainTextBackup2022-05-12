@@ -8149,3 +8149,12 @@ y1s1，这游戏做的还行，对得起价钱。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">现在官组组长是不是房导那个人啊，
 
+
+
+*****
+
+####  やト  
+##### 12775#       发表于 2022-10-28 12:58
+
+ 收到装扮的优惠券9折，但其他几个人完全不喜欢，不想买
+
