@@ -107,3 +107,16 @@ PS2上还有一款EXE，玩了个开头，感觉没有BBE的机甲美型，看�
 
 五战五败的绝对无理：[https://www.bilibili.com/video/BV1ue4y1v7PR/](https://www.bilibili.com/video/BV1ue4y1v7PR/) (审核中)
 
+
+
+*****
+
+####  慕容断月  
+##### 727#       发表于 2022-10-28 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58149300&amp;ptid=2037739" target="_blank">Xenor 发表于 2022-10-28 18:27</a>
+可惜都没有碰过，就只玩过这款BB，还是以前台湾汉化的
+
+PS2上还有一款EXE，玩了个开头，感觉没有BB ...</blockquote>
+force开始都是赛博朋克的网络世界了，bullet是现实世界，电脑前坐不住属实没招，force以后就没出过主机版了
+
