@@ -3059,3 +3059,14 @@ bx难借多了  刷好友太麻烦了所以我回去借奥师傅</blockquote>
 
 这灵脉石和茶壶就不能直接无限期吗 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3272#       发表于 2022-10-28 09:03
+
+我更新FGO用的是ourplay推荐的GamesToday，非常简洁明了的手游下载更新软件，也没广告。
+
+缺点是有时候更新会慢一点...不过好过没有。
+

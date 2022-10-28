@@ -9605,3 +9605,103 @@ giegie算得上正常一点的确实就是一手大圣。但也不是靠绝活�
 
 所以明天开始是全平台都能播放吗
 
+
+
+*****
+
+####  我前期那么肥  
+##### 40031#       发表于 2022-10-28 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140003&amp;ptid=2099454" target="_blank">沉默之声 发表于 2022-10-28 08:51</a>
+你不说我只有偶尔在B站首页刷到集美切片视频，都不知道么么鳖掉出前百了…那LGD现在排名最前的不会是面8 ...</blockquote>
+Nts
+
+*****
+
+####  我前期那么肥  
+##### 40032#       发表于 2022-10-28 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140009&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-28 08:52</a>
+所以明天开始是全平台都能播放吗</blockquote>
+斗鱼虎牙好像被v蛇点名关了
+
+*****
+
+####  沉默之声  
+##### 40033#       发表于 2022-10-28 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58140009&amp;ptid=2099454" target="_blank">lyjssj 发表于 2022-10-28 08:52</a>
+
+所以明天开始是全平台都能播放吗</blockquote>
+斗鱼虎牙钦点的不可以，淘汰赛早就全平台了吧，抖音都可以播
+
+*****
+
+####  Bernoulli  
+##### 40034#       发表于 2022-10-28 08:55
+
+全民发钱和全民发米发油是不一样的。
+
+*****
+
+####  火鸡味锅巴  
+##### 40035#       发表于 2022-10-28 08:56
+
+ame最屌的是那么多年了，还是不会玩tb。嗯是把把选。
+
+别人的tb，捏着大招残血都让人紧张。随时会换血反杀。ame的tb，就没有换血这个技能。
+
+*****
+
+####  nowaki  
+##### 40036#       发表于 2022-10-28 08:58
+
+尬黑了，我记得ti8胜决ame的tb力中暴力，但是最后被jerax牛头高地扣篮被极限翻盘了。
+
+*****
+
+####  zhwpjy  
+##### 40037#       发表于 2022-10-28 09:00
+
+nga主要赢区关了 有些外溢出来 刚好碰上高华这个词就高潮了 至于这波人有没有客户端都不好说
+
+*****
+
+####  nowaki  
+##### 40038#       发表于 2022-10-28 09:01
+
+<img src="https://img.saraba1st.com/forum/202210/28/090020n9bzdza0aobbrb59.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221028085940.png</strong> (113.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 09:00 上传
+
+<img src="https://img.saraba1st.com/forum/202210/28/090024shz5sjjyasj2foyj.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221028085955.png</strong> (95.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 09:00 上传
+
+<img src="https://img.saraba1st.com/forum/202210/28/090027aq80jqikry8jj8ai.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221028090005.png</strong> (54.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 09:00 上传
+
+正义存档下，集美看到有人只喜欢lgd不喜欢茶队的嘴脸
+
+*****
+
+####  lyjssj  
+##### 40039#       发表于 2022-10-28 09:02
+
+tb这鲨乱英雄变身真空期有快2分钟了，刷到无解肥对面也有办法打timing
+
+反正职业哥还爱玩v社就敢躺平呗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
