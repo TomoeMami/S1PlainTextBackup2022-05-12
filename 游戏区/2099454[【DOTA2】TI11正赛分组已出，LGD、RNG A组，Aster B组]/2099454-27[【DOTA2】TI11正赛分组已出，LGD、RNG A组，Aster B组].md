@@ -12842,3 +12842,44 @@ kkp
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  roxas.sora  
+##### 40387#       发表于 2022-10-28 14:23
+
+老液体的命门是mc。。。他玩的舒服的版本才行，124其实英雄池挺广的，阿桶和厅长常年12摇摆倒是一个不会打大核一个对线水平下滑，但英雄池是够用的
+
+*****
+
+####  DarthAka  
+##### 40388#       发表于 2022-10-28 14:25
+
+跳刀sama打得多了，毛病也曝得差不多了，对线养怪物，场上梦游，艺术出装
+
+像回家那两把，最后一手出sa，不信没讨论出A跟火猫飞的想法，结果散失分身BKB冰眼保枪；A竞技场、推塔交变身、树林交变身
+
+*****
+
+####  DDWarrior  
+##### 40389#       发表于 2022-10-28 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58144523&amp;ptid=2099454" target="_blank">没钱买手办 发表于 2022-10-28 13:52</a>
+突然想起来，集美们吹的掀背裤裆掏钱，是不是偷隔壁F1的AMG裤裆掏圈速刘一圈 ...</blockquote>
+刘一圈冲击拔罐王呢（没戏），仙贝是什么冠军，利雅得大师赛吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 40390#       发表于 2022-10-28 14:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58145112&amp;ptid=2099454" target="_blank">DDWarrior 发表于 2022-10-28 14:28</a>
+
+刘一圈冲击拔罐王呢（没戏），仙贝是什么冠军，利雅得大师赛吗</blockquote>
+ti8 Bo3冠军
+
+ti10 bo7冠军
+
+别的忘了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

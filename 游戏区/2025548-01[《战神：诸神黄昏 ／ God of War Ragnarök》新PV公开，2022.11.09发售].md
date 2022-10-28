@@ -7930,3 +7930,16 @@ Eric刚刚在PS4上第三次通关本作，和前作一样稳定的30帧，但�
 话说这游戏是11月9日几点发售啊？</blockquote>
 0
 
+
+
+*****
+
+####  clover293  
+##### 841#       发表于 2022-10-28 14:29
+
+ 本帖最后由 clover293 于 2022-10-28 14:30 编辑 
+
+[https://www.bilibili.com/video/B ... 01&amp;unique_k=TOZX0Gx](https://www.bilibili.com/video/BV1Tt4y1M7tW/?is_story_h5=false&amp;p=1&amp;share_from=ugc&amp;share_medium=iphone&amp;share_plat=ios&amp;share_session_id=15F0E035-61D5-4B84-9381-BD5723F10D5B&amp;share_source=COPY&amp;share_tag=s_i&amp;timestamp=1666936001&amp;unique_k=TOZX0Gx)
+
+美版有偷跑，核心大概是全区中文，别的没啥。有一丢丢的剧透
+
