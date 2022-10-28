@@ -14731,3 +14731,12 @@ CelticWhite
 
 这广播SP还是提前收录的吧，凌晨两三点作息太不健康<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 8835#       发表于 2022-10-28 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">CD终于开始发货了，感觉这两个月要收一堆东西
+
