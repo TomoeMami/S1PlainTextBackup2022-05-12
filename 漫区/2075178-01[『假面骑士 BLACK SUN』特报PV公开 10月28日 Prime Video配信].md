@@ -1777,3 +1777,16 @@ kiva什么时候被拿到和后面两者并列了</blockquote>
 
 这片子一集45分钟，实际表现出来的讲故事水平远没25分钟一集的奥特曼单元剧强，而且片子里面表现的东西水平好的奥特曼单元剧也都讲过，25分钟一集就能讲明白讲得好，但他能水的又难看又闷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ashero  
+##### 161#       发表于 2022-10-28 23:36
+
+ 本帖最后由 ashero 于 2022-10-28 23:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154611&amp;ptid=2075178" target="_blank">橘空太 发表于 2022-10-28 23:23</a>
+
+有一说一 这剧情是不是在映射日本赤军那帮子事啊</blockquote>
+毫无疑问是 年份都对上了  情节上就没怎么对应了
+

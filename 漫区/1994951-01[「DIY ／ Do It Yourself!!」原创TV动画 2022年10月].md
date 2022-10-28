@@ -3318,3 +3318,41 @@ htt ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">这一季萌豚动画算上隔壁的摇滚和登山美好得以后再也不会重现一样，明明才在放第四集就开始惆怅结束了
 
+
+
+*****
+
+####  RainbowSealife  
+##### 267#       发表于 2022-10-28 23:40
+
+<img src="https://img.saraba1st.com/forum/202210/28/230442rij4ay2u9kyc39i9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (175.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 23:04 上传
+
+不觉得很酷吗？作为一个理科男，我觉得这太酷了，很符合我对未来生活的想象，科技并带着些趣味😎
+
+<img src="https://img.saraba1st.com/forum/202210/28/231958xpvv4rnik7zotqr7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (177.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 23:19 上传
+
+<img src="https://img.saraba1st.com/forum/202210/28/231039xfitvzo15w1at1q5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (261.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-28 23:10 上传
+
+不觉得很挺吗？作为一个河豚，我觉得这太挺了，很符合我对败犬青梅的想象，傲娇并带着些不甘😎
+<img src="https://tva3.sinaimg.cn/large/beb44592ly1h7lffueikag20dc07iqv5.gif" referrerpolicy="no-referrer">
+
+现在输输输，将来赢赢赢！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
