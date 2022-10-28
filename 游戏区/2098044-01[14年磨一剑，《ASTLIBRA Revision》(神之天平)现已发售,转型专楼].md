@@ -12196,3 +12196,14 @@ wiki看不懂日文可以对着装备数值去找
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Ashice  
+##### 1110#       发表于 2022-10-28 13:01
+
+就没有什么掉率翻十倍的修改器吗
+
+真快刷疯了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
