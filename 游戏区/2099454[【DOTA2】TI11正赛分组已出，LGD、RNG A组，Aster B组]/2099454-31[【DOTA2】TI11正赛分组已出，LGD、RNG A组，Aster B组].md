@@ -2102,3 +2102,169 @@ skiter的小娜迦远不如处长那把肥，畜长那把还有个戴泽保他�
 
 鳖说了 skiter的娜迦处长这辈子玩的出来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  石狮鬼  
+##### 45244#       发表于 2022-10-29 23:31
+
+哥们看到zayac辣么屌，跟朋友开黑果断拿出一个小强，发现打低端局这机体还真是强的对面看不懂，对线回血超高，隐身逛街先手简单有效，低端局喜欢一拥而上，找个好站位打反手可以各种戳三四个力中暴力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 45245#       发表于 2022-10-29 23:31
+
+不是，集美每年来一次不累么<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 45246#       发表于 2022-10-29 23:32
+
+几点开始狼人杀啊，今年有没有警察归票
+
+*****
+
+####  yyf奇遇记  
+##### 45247#       发表于 2022-10-29 23:32
+
+几点开始狼人杀啊，今年有没有警察归票
+
+*****
+
+####  eu4reka  
+##### 45248#       发表于 2022-10-29 23:32
+
+ 本帖最后由 eu4reka 于 2022-10-29 23:35 编辑 
+<blockquote>级别: 学徒威望: 1注册: 21-10-19属地: 湖北
+
+2022-10-29 23:25      
+
+​看了胜决纵观三个中国站队只有三个人能跟上这个强度啊，超哥 x哥 阿么
+
+45号位你们觉得谁能行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">组队了
+
+*****
+
+####  smlszh  
+##### 45249#       发表于 2022-10-29 23:33
+
+a/的小naga就是正面硬钢 出各种挂上装备刷了送 正面打  又打不过 也打不出拉扯来
+
+人家这大招开的真是赏心悦目 太极拳
+
+*****
+
+####  zyw0  
+##### 45250#       发表于 2022-10-29 23:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174741&amp;ptid=2099454" target="_blank">勤练带来力量 发表于 2022-10-29 23:27</a>
+
+老号被盗了 64638182 级别: 学徒 威望: 1 注册: 22-10-20
+
+2022-10-29 22:52      
+
+9​很久没看BBC这么凶相 ...</blockquote>
+搞得我真的去找了视频看了眼，唯一感想是bbc脸上的油可以炒菜了
+
+*****
+
+####  IG.430  
+##### 45251#       发表于 2022-10-29 23:33
+
+你给这仨再给一个地图你看够不够刷吧
+
+今天茶队回家局兽王两次站在天辉主野区奇怪位置被秒也是蛮畜的好吧
+
+*****
+
+####  roxas.sora  
+##### 45252#       发表于 2022-10-29 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174817&amp;ptid=2099454" target="_blank">eu4reka 发表于 2022-10-29 23:32</a>
+
+级别: 学徒威望: 1注册: 21-10-19属地: 湖北
+
+2022-10-29 23:25      
+
+ ​看了胜决纵观三个中国站队只有三个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">林皇这个铁核弹还能和处长一队？不膈应么
+
+*****
+
+####  希望之花  
+##### 45253#       发表于 2022-10-29 23:34
+
+反正选谁都打不过，我建议选用天地星ai，输了可以方便甩锅
+
+*****
+
+####  nowaki  
+##### 45254#       发表于 2022-10-29 23:34
+
+畜长小娜迦是不敢走入猴阵的 雪碧开了猴阵他就不进去打正面，导致一堆正面装没有任何发挥好吧。skiter的小娜迦多少次走进猴阵去操作
+
+*****
+
+####  非建政专用号  
+##### 45255#       发表于 2022-10-29 23:35
+
+那45组dy和pyw吧，3大哥分头在全黑的地图里刷钱，想想就酸爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 45256#       发表于 2022-10-29 23:36
+
+集美不一定嘴的过天地星ai，望周知<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 45257#       发表于 2022-10-29 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174866&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-29 23:34</a>
+
+畜长小娜迦是不敢走入猴阵的 雪碧开了猴阵他就不进去打正面，导致一堆正面装没有任何发挥好吧。skiter的小 ...</blockquote>
+处长本身就不是细腻操作型选手，你让他多操幻象的时候脑子里分一部分线程出来太难为他了
+
+*****
+
+####  nowaki  
+##### 45258#       发表于 2022-10-29 23:36
+
+我是想不出有什么三腿粗到能带动a畜，明年猴爹状态回不来，大胆预测处长去不了ti
+
+*****
+
+####  walfeds  
+##### 45259#       发表于 2022-10-29 23:36
+
+<img src="https://img.saraba1st.com/forum/202210/29/233631mxhmsocx7vhhfr9j.png" referrerpolicy="no-referrer">
+
+<strong>unknown (2).png</strong> (29.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 23:36 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">石头人危
+
+*****
+
+####  IG.430  
+##### 45260#       发表于 2022-10-29 23:39
+
+这位才是真正的国外土娟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+一出来twitch弹幕全是shutup
+
+*****
+
+####  nowaki  
+##### 45261#       发表于 2022-10-29 23:40
+
+石头人和秘密这么精彩的比赛 赛后都在清算处长队友，偶尔几个帖子还在吹海民，我只能说这种赛区不配冠军
+

@@ -9348,3 +9348,16 @@ hhh 对第二个生日的执念XD 有的人过了三个 有的就....
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  天青月白  
+##### 2491#       发表于 2022-10-29 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174596&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-10-29 23:18</a>
+有人把厂长名字都漏出来了(虽然大家可能早就知道
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+我不知道，哪漏的
+

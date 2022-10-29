@@ -8291,3 +8291,27 @@ mea小姐在意狙击行为本身这种事情仿佛刚上网的娃娃没直播�
 
 打块也受虐 mea虐是世界的终点<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rubinliu  
+##### 12789#       发表于 2022-10-29 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58136727&amp;ptid=2018830" target="_blank">离心 发表于 2022-10-27 22:53</a>
+
+感觉现在官组就没几个活着的人，体感就一个fafa在干活，否则你mea和其他人都联动这么多次了就没有能烤的？ ...</blockquote>
+[https://www.youtube.com/watch?v=R1KalejgPys](https://www.youtube.com/watch?v=R1KalejgPys)
+
+刷油管时突然(久违地)给我推了你咩姐的切片
+
+明明我平时油管都不太看管人相关的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+看完了感觉还是有你咩姐当年五分功力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+于是心血来潮看一下同样久违的阿B官号
+
+完全不意外地没有这期的切片呢
+
+你咩姐官组还真是跟你咩姐一样这几年完全没变呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
