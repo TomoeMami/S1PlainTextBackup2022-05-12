@@ -9266,3 +9266,25 @@ hhh 对第二个生日的执念XD 有的人过了三个 有的就....
 
 —— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  天青月白  
+##### 2483#       发表于 2022-10-29 20:57
+
+询问以后想看什么游戏，看来以后主打轮椅直播了
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dreamenory  
+##### 2484#       发表于 2022-10-29 20:58
+
+咋说呢..厂子搬家..
+
+动捕棚得租了场所重新搭吧..
+
+所以至少得轮椅一阵子..
+

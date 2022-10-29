@@ -9525,3 +9525,281 @@ lgd能不能找法务处理这些事情，毕竟这个算是员工在工作中�
 秘密研究一下，明天干回来</blockquote>
 给nisha买尿布吧...今天尿了一地了
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 44773#       发表于 2022-10-29 20:53
+
+<img src="https://img.saraba1st.com/forum/202210/29/205312bsasaazo6xvvulbl.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221029205509.png</strong> (12.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 20:53 上传
+
+懂ni大师
+
+*****
+
+####  六娃  
+##### 44774#       发表于 2022-10-29 20:53
+
+只能说踢fata踢的好，saksa怎么说也是亚军辅助
+
+*****
+
+####  Horusddt  
+##### 44775#       发表于 2022-10-29 20:53
+
+有混子的前提是对面也有混子，但是决赛日三队还真都有
+
+*****
+
+####  Vicarious  
+##### 44776#       发表于 2022-10-29 20:53
+
+说实话感觉秘密今天打得稍微有点随意了。
+不过回过头来想想石头人输的G2也是有点没看得起小强，这俩队确实是本届里相对于其他队伍有明显水平压制的，而且风格迥异颇有种一正一奇的味道。
+
+还是希望明天总决两边队伍都能打得更加严谨一点，让我们看看究竟哪种DOTA才是best DOTA
+
+—— 来自 Sony XQ-AT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  roxas.sora  
+##### 44777#       发表于 2022-10-29 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171354&amp;ptid=2099454" target="_blank">ml1642879 发表于 2022-10-29 20:51</a>
+
+如果tundra夺冠会有人说纯纯版本红利没有含金量吗</blockquote>
+说的哪个ti冠军不是版本队那样，短时间找到版本最优解，合适的团队，合适的打法，这就是冠军团队的实力，适应不了版本也配说自己硬实力？
+
+*****
+
+####  一品堂官  
+##### 44778#       发表于 2022-10-29 20:54
+
+啥情况，秘密这队伍还有这么多粉丝。
+
+只有我想看桶哥决赛的告别表演嘛。<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 44779#       发表于 2022-10-29 20:54
+
+这几年决赛都有混子啊 ame mira 批九 
+
+*****
+
+####  六娃  
+##### 44780#       发表于 2022-10-29 20:54
+
+瑞聪瑞俊zai种三人组进决赛确实有点难以接受
+
+*****
+
+####  非建政专用号  
+##### 44781#       发表于 2022-10-29 20:55
+
+第一步，认清自己是给废物
+
+第二步，找爹，认爹，爱爹
+
+第三步，考虑举盾
+
+*****
+
+####  nowaki  
+##### 44782#       发表于 2022-10-29 20:55
+
+不是哥们不相信马桶 实在是看不下去micke和zai
+
+*****
+
+####  Horusddt  
+##### 44783#       发表于 2022-10-29 20:55
+
+不是哥们不相信马桶 实在是看不下去micke和zai
+
+*****
+
+####  a1370303  
+##### 44784#       发表于 2022-10-29 20:55
+
+ni公子要是真的杀回决赛输了，就真的成西欧吴冠超了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 44785#       发表于 2022-10-29 20:56
+
+脑东京就是major之后飘了 一天到晚点金飞鞋 老老实实抱着你崩溃爹也能混个决赛日
+
+*****
+
+####  战栗的小六  
+##### 44786#       发表于 2022-10-29 20:56
+
+秘密自己不出大祭品，拿阵容也不考虑对面的大祭品感觉是个问题啊
+
+*****
+
+####  非建政专用号  
+##### 44787#       发表于 2022-10-29 20:57
+
+micke，zai神能进前三，我只能说boxi要偿还了
+
+*****
+
+####  roxas.sora  
+##### 44788#       发表于 2022-10-29 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">混子要有自知之明，不要觉得队伍靠他c
+
+*****
+
+####  六娃  
+##### 44789#       发表于 2022-10-29 20:58
+
+秘密的3要发育，4要带节奏（被吸血），已经窘迫到5出大祭品了
+
+*****
+
+####  roxas.sora  
+##### 44790#       发表于 2022-10-29 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171511&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-29 20:57</a>
+
+micke，zai神能进前三，我只能说boxi要偿还了</blockquote>
+boxi，saksa，zotk这三个感觉都很优秀，很难说谁更厉害，还得是看自家3c
+
+
+
+*****
+
+####  反方向的波  
+##### 44791#       发表于 2022-10-29 20:58
+
+相信马桶，相信bo哥
+
+*****
+
+####  jk9hot  
+##### 44792#       发表于 2022-10-29 20:58
+
+不单单是怨灵之契，石头人战鼓双战鼓都爱出。
+
+*****
+
+####  nowaki  
+##### 44793#       发表于 2022-10-29 20:58
+
+哥们觉得ti8的普森和ti9的ceb也蛮混的，一个打到后面自暴自弃一个大哥的光环怪
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 44794#       发表于 2022-10-29 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171554&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-29 20:58</a>
+哥们觉得ti8的普森和ti9的ceb也蛮混的，一个打到后面自暴自弃一个大哥的光环怪 ...</blockquote>
+ti9奶推么不是
+
+*****
+
+####  qty  
+##### 44795#       发表于 2022-10-29 20:59
+
+还是支持马桶吧，毕竟一路打过来戏剧性太强了，要真能夺冠也是一大美谈了
+
+*****
+
+####  jk9hot  
+##### 44796#       发表于 2022-10-29 20:59
+
+三个C风格差异项都挺大的
+
+*****
+
+####  roxas.sora  
+##### 44797#       发表于 2022-10-29 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171554&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-29 20:58</a>
+
+哥们觉得ti8的普森和ti9的ceb也蛮混的，一个打到后面自暴自弃一个大哥的光环怪 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">混子打出挂件的价值少送对面人头抱紧爹的大腿不拖后腿就行了
+
+*****
+
+####  六娃  
+##### 44798#       发表于 2022-10-29 20:59
+
+ti8普森决赛是有点划，鉴定为被徐林森跟杨沈仪恶心吐了
+
+*****
+
+####  roxas.sora  
+##### 44799#       发表于 2022-10-29 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171583&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-29 20:59</a>
+
+ti8普森决赛是有点划，鉴定为被徐林森跟杨沈仪恶心吐了</blockquote>
+他选人经常被吴冠超后手克制，很难玩的，徐林森还时不时过来抓他
+
+*****
+
+####  战栗的小六  
+##### 44800#       发表于 2022-10-29 21:00
+
+第三局这冰女拖了个大祭品下来把我看乐了
+
+*****
+
+####  Litccc  
+##### 44801#       发表于 2022-10-29 21:00
+
+石头人确实喜欢出战鼓，后面合成大绿鞋之后团战拉扯确实厉害
+
+*****
+
+####  sodah  
+##### 44802#       发表于 2022-10-29 21:00
+
+我觉得还是boxi独一档，因为术士zai的关系。
+
+*****
+
+####  lanlv  
+##### 44803#       发表于 2022-10-29 21:02
+
+感觉只有石头人特别看重战鼓，隐藏的版本的精髓
+
+*****
+
+####  yyf奇遇记  
+##### 44804#       发表于 2022-10-29 21:02
+
+ti9的普森证明了自己并不比斜鄂泰迪差
+
+*****
+
+####  roxas.sora  
+##### 44805#       发表于 2022-10-29 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171613&amp;ptid=2099454" target="_blank">sodah 发表于 2022-10-29 21:00</a>
+
+我觉得还是boxi独一档，因为术士zai的关系。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">boxi的海民，zotk的na，saksa的小小/pom，都有很亮眼的发挥，本职工作是到位的，但这版本还是要靠3c终结比赛的
+
+*****
+
+####  jk9hot  
+##### 44806#       发表于 2022-10-29 21:03
+
+boxi带着zai，确实独一挡
+
