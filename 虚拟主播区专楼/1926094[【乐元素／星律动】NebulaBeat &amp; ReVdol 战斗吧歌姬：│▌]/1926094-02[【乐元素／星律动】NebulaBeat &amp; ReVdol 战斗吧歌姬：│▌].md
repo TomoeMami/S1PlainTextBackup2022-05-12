@@ -9118,3 +9118,26 @@ hhh 对第二个生日的执念XD 有的人过了三个 有的就....
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  不智法师  
+##### 2467#       发表于 2022-10-29 20:02
+
+在国内的只有咩了，但咩貌似不大感兴趣的样子
+
+*****
+
+####  ladiesman802  
+##### 2468#       发表于 2022-10-29 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58169237&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-10-29 19:45</a>
+
+说还有一个朋友，希望是熟人
+
+  -- 来自 能搜索的 Stage1官方 iOS客户端</blockquote>
+鱼宝说了，你们以为是她，但不是她
+
+不会真的是卷卷吧？
+

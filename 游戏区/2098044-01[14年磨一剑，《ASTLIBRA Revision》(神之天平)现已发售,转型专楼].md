@@ -12573,3 +12573,16 @@ wiki看不懂日文可以对着装备数值去找
 后面就好多了，如果什么攻略都没看第一个boss打七分钟差不多是正常情况吧，因为第一章啥靠谱技能都还没点 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是忘记第三章魔王也是折磨怪
 
+
+
+*****
+
+####  朔洵千夜  
+##### 1145#       发表于 2022-10-29 20:08
+
+ 本帖最后由 朔洵千夜 于 2022-10-29 20:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58167802&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-29 18:40</a>
+是不是忘记第三章魔王也是折磨怪</blockquote>
+第三章是不是眼球的？长柄武器够不到第一时间掏出雷杖安逸修脚了感觉还行<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+我的话，由于打的中等难度，过了第一章武器强迫症就发动起来了，不收全不摸boss的，所以除了过早去摸龙王被折磨了，其他boss还真没，毕竟无敌判定的办法太多了嘛，尤其终章刷完爱情后现在都快变成无双割草了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
