@@ -3410,3 +3410,31 @@ htt ...</blockquote>
 
 太可惜了，op都骑脸了布女士还怎么输，环境比隔壁步女士好多了，起码不会被后辈狐狸精和热血笨蛋轮流偷家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  renkan119  
+##### 272#       发表于 2022-10-29 18:56
+
+ 本帖最后由 renkan119 于 2022-10-29 18:58 编辑 
+
+BD特典 木制收纳盒 螺丝刀 绘画版 劳保这DIY的BD送的特典是木箱子 螺丝刀 绘画版和劳保手套 确实很diy
+
+<img src="https://img.saraba1st.com/forum/202210/29/185725xsdv6avvkuhv1ua0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9F7AD590-3D71-4A2E-AAB2-24283BF630BE.jpeg</strong> (184.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 18:57 上传
+
+73E76DBE-D979-4A46-80B1-4FC51332B701.jpeg
+(365.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 18:57 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/185724wkqkdxstqtedsaxk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
