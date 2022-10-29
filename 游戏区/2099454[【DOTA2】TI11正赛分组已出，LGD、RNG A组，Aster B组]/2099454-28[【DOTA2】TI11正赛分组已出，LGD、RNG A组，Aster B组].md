@@ -3036,3 +3036,19 @@ October 30, 2022
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  nowaki  
+##### 40819#       发表于 2022-10-29 08:04
+
+梦到焦阳脚踏七彩祥云去举盾
+
+*****
+
+####  lyjssj  
+##### 40820#       发表于 2022-10-29 08:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">不装了，写在液体受难前4小时，tundra受难前28小时，秘密受难前32小时
+

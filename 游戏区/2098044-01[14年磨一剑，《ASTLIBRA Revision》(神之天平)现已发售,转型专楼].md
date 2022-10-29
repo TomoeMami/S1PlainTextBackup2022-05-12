@@ -12263,3 +12263,16 @@ wiki看不懂日文可以对着装备数值去找
 
 元件宝石去哪里强化啊
 
+
+
+*****
+
+####  jy000129  
+##### 1116#       发表于 2022-10-29 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58156641&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-29 03:24</a>
+元件宝石去哪里强化啊</blockquote>
+和武器强化在一起
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
