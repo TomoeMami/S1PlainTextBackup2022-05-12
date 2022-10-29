@@ -320,3 +320,12 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 可算升到108了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET  
+##### 43666#       发表于 2022-10-29 12:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">好消息是不用打狗粮了，坏消息是没QB强化于是只好让狗粮塞满我的仓库
+
