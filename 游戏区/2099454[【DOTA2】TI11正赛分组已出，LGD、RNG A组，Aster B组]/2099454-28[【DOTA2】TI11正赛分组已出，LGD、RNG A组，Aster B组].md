@@ -3955,3 +3955,78 @@ rotk真是退役早了
 
 上次我楼里看到说这次不拍畜sight了啊
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 40925#       发表于 2022-10-29 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58158859&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-29 11:12</a>
+
+上次我楼里看到说这次不拍畜sight了啊</blockquote>
+拍的，后面有一次采访说过，但是决赛日才放
+
+*****
+
+####  战狼PTSD  
+##### 40926#       发表于 2022-10-29 11:14
+
+V社出来澄清说拍了，好歹更新下信息
+
+这现场真的垃圾啊，坐等个激光笔精神小伙
+
+*****
+
+####  yyf奇遇记  
+##### 40927#       发表于 2022-10-29 11:15
+
+[@Litccc](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=500945)  到场馆了吗，帮我找许培祥要一张蔡宜风的签名照
+
+*****
+
+####  战狼PTSD  
+##### 40928#       发表于 2022-10-29 11:17
+
+[@Litccc](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=500945)  到场馆了吗，帮我找许培祥要一张蔡宜风的签名照
+
+*****
+
+####  逃离二次元  
+##### 40929#       发表于 2022-10-29 11:18
+
+@Litccc  到场馆了吗，帮我找许培祥要一张蔡宜风的签名照
+
+*****
+
+####  端木恋心  
+##### 40930#       发表于 2022-10-29 11:19
+
+意思是决赛还是没有隔音棚啊。真的牛啊这一次。
+
+总感觉茶队会输不知道为什么。
+
+*****
+
+####  阿卵真是牛逼  
+##### 40931#       发表于 2022-10-29 11:19
+
+我就问你满不满足！<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 40932#       发表于 2022-10-29 11:22
+
+大牛和獣好像有恶性bug
+[https://www.bilibili.com/video/B ... ef9979d19e881884b1b](https://www.bilibili.com/video/BV1Ag411v71s/?is_story_h5=false&amp;p=1&amp;share_from=ugc&amp;share_medium=android&amp;share_plat=android&amp;share_session_id=f6dc3d9f-184d-4b4e-bc5b-3ab93307653e&amp;share_source=QQ&amp;share_tag=s_i&amp;timestamp=1667013458&amp;unique_k=4PGMCD8&amp;vd_source=b7b63df8e1239ef9979d19e881884b1b)
+
+*****
+
+####  masterffzhou  
+##### 40933#       发表于 2022-10-29 11:22
+
+@盖布牛尾儿 到场馆了吗，帮我找许培祥要一张蔡宜风的签名照
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
