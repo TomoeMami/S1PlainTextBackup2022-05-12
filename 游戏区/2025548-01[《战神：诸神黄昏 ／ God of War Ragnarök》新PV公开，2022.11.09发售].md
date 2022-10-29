@@ -8504,3 +8504,12 @@ Reddit上又一个有评测版游戏的人说他目前游戏时间是76小时，
 这人打了9-9.5，缺点剧情有点拖和解密
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  东方定助  
+##### 892#       发表于 2022-10-29 12:50
+
+不可能没有锤子吧，感觉富哥和UP在骗啊
+
