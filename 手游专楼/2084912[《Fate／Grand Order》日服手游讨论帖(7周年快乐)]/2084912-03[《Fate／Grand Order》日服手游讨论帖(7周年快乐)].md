@@ -3268,3 +3268,30 @@ C呆、妖精高文都復刻抽过，奥伯隆应该也快吧，留了500多石�
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  qixinno2  
+##### 3293#       发表于 2022-10-29 18:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我TMD只是想抽个C元帅过个幕间和强化本
+
+<img src="https://img.saraba1st.com/forum/202210/29/182703vlwtmsskktlpmne5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (280.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 18:27 上传
+
+*****
+
+####  alucardcz  
+##### 3294#       发表于 2022-10-29 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58167522&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-29 18:27</a>
+
+我TMD只是想抽个C元帅过个幕间和强化本</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该死的欧洲人天天晒　可怕
+
