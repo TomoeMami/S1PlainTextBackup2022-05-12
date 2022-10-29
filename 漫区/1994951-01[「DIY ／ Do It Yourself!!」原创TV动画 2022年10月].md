@@ -3370,3 +3370,17 @@ htt ...</blockquote>
 还有各自都 ...</blockquote>
 等结束了摇曳露营三期应该快了,新的周指活预定
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 269#       发表于 2022-10-29 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58138875&amp;ptid=1994951" target="_blank">嘴瓢王者 发表于 2022-10-28 02:08</a>
+
+有哪里可以看到有弹幕的源面
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+就只有nico的日文弹幕吧，himado都没人搬，但nico版权动画强制要求纯净日本IP，我反正看不了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
