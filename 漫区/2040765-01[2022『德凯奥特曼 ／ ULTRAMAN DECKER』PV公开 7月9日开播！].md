@@ -1272,3 +1272,27 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 体重：1万5千トン
 <img src="https://p.sda1.dev/8/204d53e6342b3d9a9fc27a3c9a03e06a/img_pandon.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 720#       发表于 2022-10-29 10:15
+
+过渡回所以有点闷…
+但奏大感觉在新生代里性格最立体的人之一了
+
+
+
+*****
+
+####  拆骨羊肉2  
+##### 721#       发表于 2022-10-29 10:16
+
+这集真的是烂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+是为了给久弥直树腾场子吗
+奏大这表现还不如第一集呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+把上一集最后那个可靠的奏大还给我
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
