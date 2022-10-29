@@ -861,3 +861,15 @@ mark，无中文苦手，求推荐有中文的推理adv
 2022年了，蹲个汉化，实在没有的话等steamdeck到了就硬啃吧</blockquote>
 没听说有谁开坑啊？
 
+
+
+*****
+
+####  akane3000  
+##### 79#       发表于 2022-10-29 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58155253&amp;ptid=1847701" target="_blank">注册失败 发表于 2022-10-29 00:04</a>
+
+没听说有谁开坑啊？</blockquote>
+应该是确实没有，刚好翻到这个帖子，是真的想玩，但是生肉再一遍遍地劝退我……
+
