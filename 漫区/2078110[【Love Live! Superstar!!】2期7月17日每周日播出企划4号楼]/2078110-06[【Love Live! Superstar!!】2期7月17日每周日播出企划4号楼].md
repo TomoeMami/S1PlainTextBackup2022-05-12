@@ -15094,3 +15094,14 @@ A.「つらいときは目的が何なのか思い出す。
 
 今天的A&amp;G广播有一段“如果参加夫妇实习希望做什么的”投稿，有个来信说想拍对方睡颜，你鱼那叫一个嫌弃<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8858#       发表于 2022-10-29 23:07
+
+今天刷到鱼唱钢铁直男的考古视频，虽然全损音质但也能听出来唱得好喘，感觉唱完得累半死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。现在不愧是经历过地狱巡演的鱼了，直接进化了属于是（欣慰）
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

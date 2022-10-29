@@ -271,3 +271,12 @@ an天狐天 御侠
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这些个招数效果是不是以前那些过节的活动里面vice放礼花的那些效果啊.......
 
+
+
+*****
+
+####  LEOKO~  
+##### 7417#       发表于 2022-10-29 23:11
+
+之前一直以为天狐天的风格原型是消防员（江户VER.，大致参考普罗米亚的加洛），没想到反过来的是烟花师
+
