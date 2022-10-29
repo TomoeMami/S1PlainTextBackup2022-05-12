@@ -8324,3 +8324,67 @@ Reddit上又一个有评测版游戏的人说他目前游戏时间是76小时，
 
 那这次可以开局战神难度正常砍也行了？加AI不加血
 
+
+
+*****
+
+####  kuker53  
+##### 873#       发表于 2022-10-29 09:31
+
+这是最低难度速过剧情吗，那个编辑打了三四天才通，这位什么神速
+
+*****
+
+####  HDGDG  
+##### 874#       发表于 2022-10-29 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58157790&amp;ptid=2025548" target="_blank">kuker53 发表于 2022-10-29 09:31</a>
+
+这是最低难度速过剧情吗，那个编辑打了三四天才通，这位什么神速</blockquote>
+富哥，简单模式，18个小时，只打主线，通关
+
+*****
+
+####  SergeGlenn  
+##### 875#       发表于 2022-10-29 09:37
+
+用故事难度肯定快得多，tom的数据还是有一定准确度的
+
+*****
+
+####  clover293  
+##### 876#       发表于 2022-10-29 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58157806&amp;ptid=2025548" target="_blank">HDGDG 发表于 2022-10-29 09:34</a>
+
+富哥，简单模式，18个小时，只打主线，通关</blockquote>
+有评价么？大概咋样
+
+*****
+
+####  HDGDG  
+##### 877#       发表于 2022-10-29 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58157826&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-29 09:37</a>
+
+有评价么？大概咋样</blockquote>
+公羽说了，等会儿他会发视频到b站  [https://space.bilibili.com/7147441/video](https://space.bilibili.com/7147441/video)
+
+*****
+
+####  kuker53  
+##### 878#       发表于 2022-10-29 09:39
+
+<blockquote>HDGDG 发表于 2022-10-29 09:34
+富哥，简单模式，18个小时，只打主线，通关</blockquote>
+问问有没有新武器，还有跟他说说千万别剧透关键剧情
+
+*****
+
+####  hotsmile  
+##### 879#       发表于 2022-10-29 09:39
+
+ 本帖最后由 hotsmile 于 2022-10-29 09:41 编辑 
+
+纯主线故事难度都要18小时啊？看纯黑战神4纯主线最高难度也就 9小时不到
+

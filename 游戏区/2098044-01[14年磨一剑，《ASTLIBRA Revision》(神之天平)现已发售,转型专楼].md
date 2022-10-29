@@ -12320,3 +12320,15 @@ wiki看不懂日文可以对着装备数值去找
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  蓝雉  
+##### 1121#         楼主| 发表于 2022-10-29 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58157154&amp;ptid=2098044" target="_blank">fc733 发表于 2022-10-29 08:20</a>
+
+空中擒抱这个技能太OP了吧，拿到之后完全变成另外一个游戏了，之前是各种躲技能找机会刮痧，拿到以后直接开 ...</blockquote>
+三段跳,空剑,空中擒抱,玩起来跟鬼泣似的
+
