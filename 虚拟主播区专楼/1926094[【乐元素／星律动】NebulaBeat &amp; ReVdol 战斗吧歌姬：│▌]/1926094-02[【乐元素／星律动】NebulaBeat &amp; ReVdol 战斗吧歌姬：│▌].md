@@ -9177,3 +9177,21 @@ hhh 对第二个生日的执念XD 有的人过了三个 有的就....
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2473#         楼主| 发表于 2022-10-29 20:24
+
+珍惜现在还有的卡门<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+*****
+
+####  天青月白  
+##### 2474#       发表于 2022-10-29 20:29
+
+11月有舞蹈/3d相关
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
