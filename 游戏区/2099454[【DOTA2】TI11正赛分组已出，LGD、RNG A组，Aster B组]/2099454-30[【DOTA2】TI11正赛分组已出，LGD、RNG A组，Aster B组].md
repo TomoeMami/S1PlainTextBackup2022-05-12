@@ -3827,3 +3827,339 @@ ni公子滚滚都有3k场的？
 
 ban了大爹的绝活 针对二爹的绝活 剩下看批九表演
 
+
+
+*****
+
+####  walfeds  
+##### 44012#       发表于 2022-10-29 18:43
+
+Ni公子还是尿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在巨大的轮回感和压迫感之前，后面的我忘了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Cookiekira  
+##### 44013#       发表于 2022-10-29 18:44
+
+ni公子成为亚超那种事不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  安斧天高辽  
+##### 44014#       发表于 2022-10-29 18:45
+
+什么鬼，缩壳了一下午，回来就看见nisha滚滚对线打不过批九的畜，不会秘密也要死了，决赛批九大战sszai吧
+
+*****
+
+####  cuisite  
+##### 44015#       发表于 2022-10-29 18:45
+
+批九玩个畜压不住滚滚是吧
+
+*****
+
+####  六娃  
+##### 44016#       发表于 2022-10-29 18:46
+
+太抽象了这大畜，被滚滚打回家
+
+*****
+
+####  walfeds  
+##### 44017#       发表于 2022-10-29 18:46
+
+拳畜吃仙火送野是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  cuisite  
+##### 44018#       发表于 2022-10-29 18:47
+
+批九已经躺好了
+
+*****
+
+####  樱冢名月  
+##### 44019#       发表于 2022-10-29 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这什么鬼，为什么大畜反被打上轮椅了。
+
+*****
+
+####  -SLSL-  
+##### 44020#       发表于 2022-10-29 18:47
+
+绝了，尼公子往上切屏走神时候被冲了
+
+*****
+
+####  IG.430  
+##### 44021#       发表于 2022-10-29 18:47
+
+单杀了，服不服吧
+
+*****
+
+####  walfeds  
+##### 44022#       发表于 2022-10-29 18:47
+
+这下真尿了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  樱冢名月  
+##### 44023#       发表于 2022-10-29 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，刚发。
+
+*****
+
+####  wzy200912345  
+##### 44024#       发表于 2022-10-29 18:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">P9:被奶活了
+
+*****
+
+####  Horusddt  
+##### 44025#       发表于 2022-10-29 18:47
+
+九黑说话
+
+*****
+
+####  yyf奇遇记  
+##### 44026#       发表于 2022-10-29 18:47
+
+服不服吧你们
+
+*****
+
+####  TIZI  
+##### 44027#       发表于 2022-10-29 18:47
+
+批九单杀nisha了，秘密没救了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ののワ  
+##### 44028#       发表于 2022-10-29 18:47
+
+感觉泥沙尿了
+
+*****
+
+####  iriyano  
+##### 44029#       发表于 2022-10-29 18:47
+
+412尿中尿啊
+
+*****
+
+####  非建政专用号  
+##### 44030#       发表于 2022-10-29 18:48
+
+撒也不懂，p9不装了
+
+*****
+
+####  樱冢名月  
+##### 44031#       发表于 2022-10-29 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这大畜，骄阳学一下啊
+
+*****
+
+####  trackerList  
+##### 44032#       发表于 2022-10-29 18:48
+
+zzwdjs（淳复制）
+
+*****
+
+####  人別離苦  
+##### 44033#       发表于 2022-10-29 18:48
+
+这就是畜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuisite  
+##### 44034#       发表于 2022-10-29 18:48
+
+没用，等下自动变酱油
+
+*****
+
+####  哈曼的YY  
+##### 44035#       发表于 2022-10-29 18:48
+
+九神对不起
+
+*****
+
+####  六娃  
+##### 44036#       发表于 2022-10-29 18:48
+
+批九单杀一次nisha整得跟克里斯单杀了猴爹一样
+
+*****
+
+####  端木恋心  
+##### 44037#       发表于 2022-10-29 18:48
+
+兽就是要高机动游走边路才是兽啊。
+
+*****
+
+####  iriyano  
+##### 44038#       发表于 2022-10-29 18:48
+
+看好ppy5转2
+
+*****
+
+####  樱冢名月  
+##### 44039#       发表于 2022-10-29 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">41C被按住了啊，看批⑨表演了。
+
+*****
+
+####  tasuku  
+##### 44040#       发表于 2022-10-29 18:48
+
+尼呢和尼纱
+
+
+
+*****
+
+####  非建政专用号  
+##### 44041#       发表于 2022-10-29 18:49
+
+你楼大明星中单是这样的
+
+*****
+
+####  Litccc  
+##### 44042#       发表于 2022-10-29 18:49
+
+曾焦阳只学到了topson的加点，topson不学被动，曾焦阳打火女也不学被动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 44043#       发表于 2022-10-29 18:50
+
+你懂批九吗
+
+*****
+
+####  wzy200912345  
+##### 44044#       发表于 2022-10-29 18:50
+
+哈哈哈P9给撞了一万下
+
+*****
+
+####  sodah  
+##### 44045#       发表于 2022-10-29 18:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看笑了。
+
+*****
+
+####  cuisite  
+##### 44046#       发表于 2022-10-29 18:50
+
+批九开始逛街了
+
+*****
+
+####  -SLSL-  
+##### 44047#       发表于 2022-10-29 18:51
+
+感觉焦阳不比p9差
+
+*****
+
+####  walfeds  
+##### 44048#       发表于 2022-10-29 18:51
+
+批九！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  樱冢名月  
+##### 44049#       发表于 2022-10-29 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">小丑
+
+*****
+
+####  Vacuolar  
+##### 44050#       发表于 2022-10-29 18:51
+
+喜剧人
+
+*****
+
+####  cuisite  
+##### 44051#       发表于 2022-10-29 18:51
+
+相信批九
+
+*****
+
+####  yyf奇遇记  
+##### 44052#       发表于 2022-10-29 18:51
+
+九畜！
+
+*****
+
+####  非建政专用号  
+##### 44053#       发表于 2022-10-29 18:51
+
+p9还是p9
+
+*****
+
+####  哈曼的YY  
+##### 44054#       发表于 2022-10-29 18:51
+
+相信批九
+
+*****
+
+####  六娃  
+##### 44055#       发表于 2022-10-29 18:51
+
+但是33爹要开始发力了
+
+*****
+
+####  反方向的波  
+##### 44056#       发表于 2022-10-29 18:52
+
+特意展示吴爱凌胜率
+
+*****
+
+####  Cookiekira  
+##### 44057#       发表于 2022-10-29 18:52
+
+vis要宰猪了吗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+

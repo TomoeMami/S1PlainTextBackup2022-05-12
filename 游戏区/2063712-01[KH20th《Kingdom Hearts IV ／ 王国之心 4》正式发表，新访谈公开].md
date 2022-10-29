@@ -1288,3 +1288,14 @@ A9的译文：
 截止2022年3月，王国之心全系列总销量突破3600万（数字+实体）
 <img src="https://p.sda1.dev/8/e01a222c12eed8c77efe5f325a0d2616/anrzn-z0wmm-022.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  swanon  
+##### 117#       发表于 2022-10-29 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58166984&amp;ptid=2063712" target="_blank">Piano-Forest 发表于 2022-10-29 18:00</a>
+截止2022年3月，王国之心全系&amp;#x5217 ...</blockquote>
+kh3现在有一千万份吗？
+
