@@ -11365,3 +11365,141 @@ reso爽收矿啊，脸都不要了
 
 美国人这箭<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只能说自己不了解黑鸟关机制了
 
+
+
+*****
+
+####  walfeds  
+##### 43483#       发表于 2022-10-29 17:12
+
+尼公子无惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 43484#       发表于 2022-10-29 17:13
+
+ni公子一打九
+
+*****
+
+####  Litccc  
+##### 43485#       发表于 2022-10-29 17:13
+
+孤胆英雄是吧
+
+*****
+
+####  qty  
+##### 43486#       发表于 2022-10-29 17:13
+
+nisha真是巅峰状态了
+
+*****
+
+####  莉拉厨  
+##### 43487#       发表于 2022-10-29 17:13
+
+33爹拉了之后石头人节奏基本烂了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 43488#       发表于 2022-10-29 17:13
+
+ni公子的操作才配排卵
+
+*****
+
+####  反方向的波  
+##### 43489#       发表于 2022-10-29 17:13
+
+哦牛逼，p9刚才这波是不是救人都不会救了
+
+*****
+
+####  六娃  
+##### 43490#       发表于 2022-10-29 17:14
+
+这把全靠41naga了
+
+*****
+
+####  haruhiismer  
+##### 43491#       发表于 2022-10-29 17:15
+
+石头人这个关剑杀人还是很无解的但是秘密破绽不多
+
+*****
+
+####  IG.430  
+##### 43492#       发表于 2022-10-29 17:15
+
+秘密这把线压力好大，批九的发育空间很大好吧
+
+*****
+
+####  walfeds  
+##### 43493#       发表于 2022-10-29 17:16
+
+板甲卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 43494#       发表于 2022-10-29 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58166088&amp;ptid=2099454" target="_blank">IG.430 发表于 2022-10-29 17:15</a>
+秘密这把线压力好大，批九的发育空间很大好吧</blockquote>
+A杖以太黑鸟，随便他发育
+
+*****
+
+####  莉拉厨  
+##### 43495#       发表于 2022-10-29 17:16
+
+斯宋：兄弟们少送点，不然不好带你们躺
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  越动天下  
+##### 43496#       发表于 2022-10-29 17:17
+
+。
+
+*****
+
+####  六娃  
+##### 43497#       发表于 2022-10-29 17:18
+
+终于看到一个正常人了，分身紫苑naga
+
+*****
+
+####  iriyano  
+##### 43498#       发表于 2022-10-29 17:18
+
+看了半天了没看粗来右面团战怎么打
+
+*****
+
+####  六娃  
+##### 43499#       发表于 2022-10-29 17:19
+
+分身符救大命了ni公子
+
+*****
+
+####  cwlo  
+##### 43500#       发表于 2022-10-29 17:19
+
+跟石头人打也太恶心了，唯一能看到的就一个POM，其他就是幻象跟小蜘蛛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

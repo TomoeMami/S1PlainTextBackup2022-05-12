@@ -12519,3 +12519,24 @@ wiki看不懂日文可以对着装备数值去找
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏BOSS怎么打啊，第一个火龙BOSS我打了7分钟手都按疼了BOSS都没死，这还是中等难度
 
+
+
+*****
+
+####  何处分可  
+##### 1140#       发表于 2022-10-29 17:17
+
+后院是石头能打掉？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">我还以为是用来测伤害的
+
+
+
+*****
+
+####  jy000129  
+##### 1141#       发表于 2022-10-29 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58165990&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-10-29 17:10</a>
+
+这游戏BOSS怎么打啊，第一个火龙BOSS我打了7分钟手都按疼了BOSS都没死，这还是中等难度 ...</blockquote>
+成长里面把电系技能点出来好打很多
+
