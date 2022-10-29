@@ -12481,3 +12481,14 @@ wiki看不懂日文可以对着装备数值去找
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来那个是量产魔王 真的还在后面
 
+
+
+*****
+
+####  vidomina  
+##### 1136#       发表于 2022-10-29 15:48
+
+<blockquote>h33 发表于 2022-10-29 15:01
+打完了好几天了，看了看楼里还有后院的石头，我又漏了啥嘛</blockquote>
+所谓石头，就是主角家里最右边其实是有道门可以通往后院的。。。。。我TM进了第八章才发现的。
+

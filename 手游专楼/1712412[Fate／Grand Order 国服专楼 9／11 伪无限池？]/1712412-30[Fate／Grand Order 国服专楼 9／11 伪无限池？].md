@@ -329,3 +329,12 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">好消息是不用打狗粮了，坏消息是没QB强化于是只好让狗粮塞满我的仓库
 
+
+
+*****
+
+####  苍蓝之枪  
+##### 43667#       发表于 2022-10-29 15:49
+
+到今天才把从者币搬完，这次活动要搬空商店有点难度啊
+
