@@ -12741,3 +12741,21 @@ wiki看不懂日文可以对着装备数值去找
 为啥我打雪山的两个巨人，他们丢的雪球我一碰就死，这是有即死判定的吗？ ...</blockquote>
 多段判定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，挨3下一般就死了，可能就是呆2秒吧
 
+
+
+*****
+
+####  何处分可  
+##### 1161#       发表于 2022-10-30 00:42
+
+第八章三个机甲好不容易熬过去又来一个穿透的大机甲炮，直接给我心态打崩了，大家打这个都多少级，我43级中等难度感觉难度登天，疯狂刮痧
+
+*****
+
+####  格林卡罗尔  
+##### 1162#       发表于 2022-10-30 00:50
+
+所以重振旗鼓其实是很强的技能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">可以保证不会满血暴毙
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
