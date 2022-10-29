@@ -2817,3 +2817,12 @@ https://bbs.sgamer.com/forum.php?mod=viewthread&amp;tid=14179040
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  哈曼的YY  
+##### 45321#       发表于 2022-10-30 01:34
+
+影魔哥每次的长文都这么铿锵有力捏
+
