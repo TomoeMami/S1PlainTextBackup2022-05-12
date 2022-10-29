@@ -12436,3 +12436,14 @@ wiki看不懂日文可以对着装备数值去找
 
 看着真不错，不知道这游戏有没有上switch的可能。。不然可以蹲一蹲switch上的，感觉很合适。
 
+
+
+*****
+
+####  蓝雉  
+##### 1131#         楼主| 发表于 2022-10-29 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58163047&amp;ptid=2098044" target="_blank">bayes 发表于 2022-10-29 14:44</a>
+看着真不错，不知道这游戏有没有上switch的可能。。不然可以蹲一蹲switch上的，感觉很合适。 ...</blockquote>
+有打算上ns
+
