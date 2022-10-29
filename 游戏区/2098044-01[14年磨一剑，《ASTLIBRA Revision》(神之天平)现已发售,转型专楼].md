@@ -12369,3 +12369,18 @@ wiki看不懂日文可以对着装备数值去找
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  jy000129  
+##### 1125#       发表于 2022-10-29 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58158413&amp;ptid=2098044" target="_blank">格林卡罗尔 发表于 2022-10-29 10:38</a>
+原来宰相血这么厚，那我该尝试拆后院石头了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+我第八章打完都还在刮<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你考虑下第几章去刮比较效率
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
