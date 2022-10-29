@@ -3052,3 +3052,46 @@ October 30, 2022
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">不装了，写在液体受难前4小时，tundra受难前28小时，秘密受难前32小时
 
+
+
+*****
+
+####  masterffzhou  
+##### 40821#       发表于 2022-10-29 08:15
+
+https://static.saraba1st.com/image/smiley/face2017/127.png不装了，写在液体受难前4小时，tundra受难前28小时，秘密受难前32小时
+
+—— 来自 OnePlus LE2120, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tasuku  
+##### 40822#       发表于 2022-10-29 08:17
+
+做梦梦到阿茶5个人被按在基地暴揍
+
+*****
+
+####  yyf奇遇记  
+##### 40823#       发表于 2022-10-29 08:19
+
+【DOTA2 TI11 最后四强采访 HOHO-哔哩哔哩】 https://b23.tv/7Px4D71
+
+33:多打两把是两把
+
+马桶:进入决赛日我们信心十足
+
+*****
+
+####  百世诸侯  
+##### 40824#       发表于 2022-10-29 08:19
+
+前面忘了，写在aster受难前3.333333……小时
+
+*****
+
+####  feiyu99  
+##### 40825#       发表于 2022-10-29 08:21
+
+加油啊，aster。<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
