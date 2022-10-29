@@ -2127,3 +2127,25 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 193#       发表于 2022-10-29 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174224&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-10-29 22:57</a>
+
+巧了，日本那边也是这么想的，他们夸的几集都是非主线日常剧情</blockquote>
+我最喜欢的是98版失忆回，99的仿造男人回，然后02是第3集（对付进化的小孩那集）
+
+*****
+
+####  米列希安  
+##### 194#       发表于 2022-10-29 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174702&amp;ptid=2075178" target="_blank">吕玲绮的十字戟 发表于 2022-10-29 23:25</a>
+
+我最喜欢的是98版失忆回，99的仿造男人回，然后02是第3集（对付进化的小孩那集） ...</blockquote>
+日本人很喜欢夸失忆那集，我个人的话对平成赛文系列也是不冷不热的态度，我感觉这系列因为是大友向的和录像带OV，叙事节奏感反而没拿捏好，也是日本特摄公司做成人受众作品的老 毛 病了
+
