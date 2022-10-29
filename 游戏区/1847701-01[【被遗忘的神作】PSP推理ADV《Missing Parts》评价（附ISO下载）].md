@@ -885,3 +885,17 @@ mark，无中文苦手，求推荐有中文的推理adv
 
 —— 来自 HUAWEI HRY-AL00Ta, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Sue  
+##### 81#         楼主| 发表于 2022-10-29 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58173075&amp;ptid=1847701" target="_blank">赛U灵 发表于 2022-10-29 21:59</a>
+哇……看着好想玩啊……虽然真的很怀疑自己的日语水平，以前也从没啃过完整的原版游戏orz第一次就调 ...</blockquote>
+这帖子怎么被挖上来了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+其实我已经在油管扒了前五章的录像了，但是文字量太大实在是提不起勇气动手…
+最重要的是前两次为爱产粮的经历告诉我，估计做好后也不会有什么人看吧<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+

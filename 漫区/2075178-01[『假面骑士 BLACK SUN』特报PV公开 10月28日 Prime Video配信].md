@@ -2116,3 +2116,14 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 日常写的挺有意思的</blockquote>
 巧了，日本那边也是这么想的，他们夸的几集都是非主线日常剧情
 
+
+
+*****
+
+####  hcho  
+##### 192#       发表于 2022-10-29 23:19
+
+日本人能不能别写政治戏，太蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">白瞎了这个制作和皮套
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -12700,3 +12700,15 @@ wiki看不懂日文可以对着装备数值去找
 
 手感好怪啊
 
+
+
+*****
+
+####  白軍浪  
+##### 1157#       发表于 2022-10-29 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58173140&amp;ptid=2098044" target="_blank">jbtc2224052 发表于 2022-10-29 22:03</a>
+
+问下绿结晶在哪刷比较快，看了下日站，最高级的只有第七章的那个蝗虫，但也忒分散了 ...</blockquote>
+第7章的苍蝇更方便
+

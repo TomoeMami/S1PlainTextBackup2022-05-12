@@ -1797,3 +1797,176 @@ yy的微博总让我觉得自己是不是不懂中文
 
 有没有给鹏子注入胆量的方法
 
+
+
+*****
+
+####  勤练带来力量  
+##### 45206#       发表于 2022-10-29 23:11
+
+集美已经帮赵子星内心活动tmd解读到祖宗十八代上去了
+
+*****
+
+####  哈萨维·诺亚  
+##### 45207#       发表于 2022-10-29 23:11
+
+这妮要问问本楼楼主 他是私生饭来自: iPhone客户端
+
+*****
+
+####  roxas.sora  
+##### 45208#       发表于 2022-10-29 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">杜鹏还是职业生涯太顺了，c位要么队内有究极育婴师哄你，要么就是多和菜鸡队友一起打，练出1v9都能赢的心态
+
+*****
+
+####  非建政专用号  
+##### 45209#       发表于 2022-10-29 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174386&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-29 23:07</a>
+
+偶尔c大腿一把吹一下可以，不能岁月史书忘记爹是怎么带他躺的</blockquote>
+今天p9能吹的点好像没几个，不是和白虎互相垫背就是爹切臂章的时候偷输出，永远是两个人的主角<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 45210#       发表于 2022-10-29 23:12
+
+这妮要问问本楼楼主 他是私生饭
+
+
+
+*****
+
+####  adretyu67  
+##### 45211#       发表于 2022-10-29 23:13
+
+ 本帖最后由 adretyu67 于 2022-10-29 23:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174244&amp;ptid=2099454" target="_blank">Horusddt 发表于 2022-10-29 22:58</a>
+
+去年xinq和鞭是决赛之后多久出来吸引火力的来着？今年一个出来帮鞭说话的都没有肯定也是团队决策呀 ...</blockquote>
+赵子星和水友微博白头，争不过于是把微博删了。
+
+脑浆歪是发长文表示没打好明年再来。
+
+量子鞭、王八、马来猴打完应该没急着发声。马来猴是后来在家里接受采访才有了漏油常用的ti10前4中单，ni公子，猴爹，卡尔，gpk，脑东京下面一档。
+
+王八和量子鞭应该是一直没怎么发声
+
+*****
+
+####  nowaki  
+##### 45212#       发表于 2022-10-29 23:14
+
+<blockquote>石头队这配合。。。无敌了。希望总决赛更精彩。九神太牛逼了。</blockquote><blockquote>这中单海明真是硬实力，别人想学也学不会</blockquote>
+
+*****
+
+####  shhekun  
+##### 45213#       发表于 2022-10-29 23:14
+
+这只石头人年纪最轻的也24岁，最大的27岁，也算一堆老逼了。
+
+我觉得马桶哥说的挺好的，打dota2，年纪没那么重要，重要的是你还有没有想打好的想法。
+
+希望明天马桶哥能上演ti7的奇迹，圆一圆老年人的梦想。
+
+*****
+
+####  哈萨维·诺亚  
+##### 45214#       发表于 2022-10-29 23:15
+
+余亚军能不能把鹏子的使用方法玩明白来自: iPhone客户端
+
+*****
+
+####  nowaki  
+##### 45215#       发表于 2022-10-29 23:15
+
+别把 真有人想看zai打决赛啊 哥们败决看他都快把隔夜饭呕出来了
+
+*****
+
+####  roxas.sora  
+##### 45216#       发表于 2022-10-29 23:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174487&amp;ptid=2099454" target="_blank">非建政专用号 发表于 2022-10-29 23:12</a>
+
+今天p9能吹的点好像没几个，不是和白虎互相垫背就是爹切臂章的时候偷输出，永远是两个人的主角 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">海民还是打的挺秀的，值得表扬，黑鸟救爹手速也是在线。但不能因为偶尔打的不错就认为队内核心是他了
+
+*****
+
+####  人別離苦  
+##### 45217#       发表于 2022-10-29 23:17
+
+桶还是肉眼可见得菜了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">舞到第三可以了 可别让我在决赛看zai 和瑞俊表演
+
+*****
+
+####  非建政专用号  
+##### 45218#       发表于 2022-10-29 23:17
+
+一想到明天可以要做五个小时的小雪球，哥们得想想明天发什么颠<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 45219#       发表于 2022-10-29 23:18
+
+很难想象批九能拿冠军 我克只能拿硬实力亚军
+
+*****
+
+####  Kazepollar  
+##### 45220#       发表于 2022-10-29 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174595&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-29 23:18</a>
+ 很难想象批九能拿冠军 我克只能拿硬实力亚军</blockquote>
+实话实说，窝九比妮**太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roxas.sora  
+##### 45221#       发表于 2022-10-29 23:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">那么快贷款夺冠不可取啊
+
+*****
+
+####  Kazepollar  
+##### 45222#       发表于 2022-10-29 23:20
+
+草这屏蔽，猜吧兄弟们
+
+*****
+
+####  人別離苦  
+##### 45223#       发表于 2022-10-29 23:20
+
+窝克这届打得可以了好吗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+*****
+
+####  IG.430  
+##### 45224#       发表于 2022-10-29 23:20
+
+不就老司夜刺客吗…
+
+*****
+
+####  哈萨维·诺亚  
+##### 45225#       发表于 2022-10-29 23:20
+
+有些傻狗肤浅的不知道说什么好，明年窝克必然电烂你们的脸来自: iPhone客户端
+
+*****
+
+####  nowaki  
+##### 45226#       发表于 2022-10-29 23:20
+
+我知道是我老乡名字被屏蔽了
+
