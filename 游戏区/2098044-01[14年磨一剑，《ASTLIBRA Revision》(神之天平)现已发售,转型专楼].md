@@ -12354,3 +12354,18 @@ wiki看不懂日文可以对着装备数值去找
 
 地狱难度这终章研究所打的吐血，以为斗技场放仨boss同场已经够可以的了，这直接五个糊脸，想跑酷还不行，有全灭箱子。。
 
+
+
+*****
+
+####  黒長直姫  
+##### 1124#       发表于 2022-10-29 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58158707&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-29 10:59</a>
+这砂糖刷的，除了造装备还得多刷一个棉花糖和苹果糖留着放天平，有当初刷真空刃的感觉了。
+
+地狱难度这终章 ...</blockquote>
+砂糖可以在面包店买果酱面板分解获取
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

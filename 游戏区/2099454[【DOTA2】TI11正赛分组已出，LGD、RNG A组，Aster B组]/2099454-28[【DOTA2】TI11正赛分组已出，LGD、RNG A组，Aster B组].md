@@ -3864,3 +3864,94 @@ who is Arteezy? in math: my solution ➗😁 in history: my king 👑😋 in art
 
 <img src="https://p.sda1.dev/8/d5da1e435e44a963933661211a6e84de/QQ%E5%9B%BE%E7%89%8720221029110106.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asd235614  
+##### 40913#       发表于 2022-10-29 11:02
+
+决赛还没隔音房有点搞笑了
+
+*****
+
+####  yyf奇遇记  
+##### 40914#       发表于 2022-10-29 11:04
+
+之前卜是有漏油说决赛日的场馆会有隔音房吗
+
+*****
+
+####  lyjssj  
+##### 40915#       发表于 2022-10-29 11:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索性别搞隔音房了，退回十年前，赢团了直接开嘲讽
+
+*****
+
+####  无聊的神  
+##### 40916#       发表于 2022-10-29 11:05
+
+rotk狂喜
+
+*****
+
+####  jk9hot  
+##### 40917#       发表于 2022-10-29 11:06
+
+早知道没隔音房ROTK直接复出
+
+*****
+
+####  弈秋  
+##### 40918#       发表于 2022-10-29 11:06
+
+rotk真是退役早了
+
+*****
+
+####  tengshuo980  
+##### 40919#       发表于 2022-10-29 11:08
+
+不是，没隔音房真实界怎么拍啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 40920#       发表于 2022-10-29 11:08
+
+rotk真是退役早了
+
+
+
+*****
+
+####  nowaki  
+##### 40921#       发表于 2022-10-29 11:09
+
+没有哥哥的真视界没有意义
+
+*****
+
+####  yyf奇遇记  
+##### 40922#       发表于 2022-10-29 11:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58158804&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-29 11:08</a>
+
+不是，没隔音房真实界怎么拍啊</blockquote>
+你看过那个实时真视界没有，估计就那样拍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cantha  
+##### 40923#       发表于 2022-10-29 11:11
+
+其他的忘了，写在我看TI血压爆炸前一小时
+
+*****
+
+####  nerugigannte  
+##### 40924#       发表于 2022-10-29 11:12
+
+上次我楼里看到说这次不拍畜sight了啊
+
