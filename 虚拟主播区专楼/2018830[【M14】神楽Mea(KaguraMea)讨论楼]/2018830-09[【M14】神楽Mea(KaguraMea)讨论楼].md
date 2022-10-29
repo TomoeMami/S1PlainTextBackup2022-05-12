@@ -8315,3 +8315,19 @@ mea小姐在意狙击行为本身这种事情仿佛刚上网的娃娃没直播�
 
 你咩姐官组还真是跟你咩姐一样这几年完全没变呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12790#       发表于 2022-10-29 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174792&amp;ptid=2018830" target="_blank">rubinliu 发表于 2022-10-29 23:30</a>
+
+https://www.youtube.com/watch?v=R1KalejgPys
+
+刷油管时突然(久违地)给我推了你咩姐的切片</blockquote>
+首先这是犬山频道的，其次有hololivestar成员。
+
+b站官组肯定放不出来的。
+
