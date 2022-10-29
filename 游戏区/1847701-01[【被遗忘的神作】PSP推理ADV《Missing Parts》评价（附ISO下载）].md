@@ -873,3 +873,15 @@ mark，无中文苦手，求推荐有中文的推理adv
 没听说有谁开坑啊？</blockquote>
 应该是确实没有，刚好翻到这个帖子，是真的想玩，但是生肉再一遍遍地劝退我……
 
+
+
+*****
+
+####  赛U灵  
+##### 80#       发表于 2022-10-29 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+话说既然找不到程序员，楼主考不考虑试试那种汉化流程视频？我可以帮忙搞字幕对时间轴之类的（。虽然这个好像谁都可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HRY-AL00Ta, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
