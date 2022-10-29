@@ -12279,3 +12279,35 @@ customcast捏的免费形象
 
 miko没什么兴趣的
 
+
+
+*****
+
+####  rs5621  
+##### 2680#       发表于 2022-10-30 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同步视听看了好久的冒险类片,时不时来点这种片中和一下还是不错的
+
+*****
+
+####  ZQXY2002  
+##### 2681#       发表于 2022-10-30 00:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">她看b级片低俗喜剧最活跃了，还会被感动。反而这种温馨氛围的没那么感动。真的是奇葩品味。
+
+*****
+
+####  rs5621  
+##### 2682#       发表于 2022-10-30 00:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么欢乐啊
+
+*****
+
+####  holoan  
+##### 2683#         楼主| 发表于 2022-10-30 00:17
+
+看这种片就犯困话很少 还是刺激不够
+
+所以还是B级片之类的最适合同时视听
+

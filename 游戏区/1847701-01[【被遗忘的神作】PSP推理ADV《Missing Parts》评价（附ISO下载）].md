@@ -899,3 +899,18 @@ mark，无中文苦手，求推荐有中文的推理adv
 其实我已经在油管扒了前五章的录像了，但是文字量太大实在是提不起勇气动手…
 最重要的是前两次为爱产粮的经历告诉我，估计做好后也不会有什么人看吧<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  赛U灵  
+##### 82#       发表于 2022-10-30 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174583&amp;ptid=1847701" target="_blank">Sue 发表于 2022-10-29 23:18</a>
+这帖子怎么被挖上来了
+
+其实我已经在油管扒了前五章的录像了，但是文字量太大实在是提不起勇气动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HRY-AL00Ta, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
