@@ -12510,3 +12510,12 @@ wiki看不懂日文可以对着装备数值去找
 
 建议新章武器强化个几十级了开狂暴打，几分钟打完
 
+
+
+*****
+
+####  妄想中毒  
+##### 1139#       发表于 2022-10-29 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这游戏BOSS怎么打啊，第一个火龙BOSS我打了7分钟手都按疼了BOSS都没死，这还是中等难度
+

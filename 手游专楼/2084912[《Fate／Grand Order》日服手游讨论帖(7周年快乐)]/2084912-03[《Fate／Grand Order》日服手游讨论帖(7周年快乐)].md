@@ -3257,3 +3257,14 @@ C呆、妖精高文都復刻抽过，奥伯隆应该也快吧，留了500多石�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">更新不是点一下就好了吗  你们在说什么  还是说又是安卓特有的事情
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3292#       发表于 2022-10-29 17:12
+
+一直用市场更新的从来没有考虑过这种问题<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
