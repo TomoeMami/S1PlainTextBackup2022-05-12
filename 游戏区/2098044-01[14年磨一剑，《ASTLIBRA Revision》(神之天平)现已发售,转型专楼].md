@@ -12824,3 +12824,15 @@ wiki看不懂日文可以对着装备数值去找
 
 刷满真结局条件后去打就砍瓜切菜了
 
+
+
+*****
+
+####  pf67  
+##### 1169#       发表于 2022-10-30 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58176444&amp;ptid=2098044" target="_blank">ds2008 发表于 2022-10-30 01:22</a>
+
+这游戏当你觉得当前关卡打的很辛苦，打BOSS刮痧的时候，适当回头刷一下，能有效降低难度。 ...</blockquote>
+还可以试试换法杖，很多剑在攻击力和敏捷没堆上去之前，性能被法杖碾压的
+
