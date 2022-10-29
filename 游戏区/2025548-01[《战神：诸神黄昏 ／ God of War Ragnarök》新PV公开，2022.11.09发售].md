@@ -8624,3 +8624,15 @@ boss战够了基本就可以了，前作想来就四个boss战。。。
 
 狼多开吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 905#       发表于 2022-10-29 14:14
+
+ 本帖最后由 医生狼多 于 2022-10-29 14:16 编辑 
+
+开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家要不移步讨论?
+https://bbs.saraba1st.com/2b/thread-2102104-0-1.html
+

@@ -12411,3 +12411,12 @@ wiki看不懂日文可以对着装备数值去找
 
 这就是ACT石头门吧
 
+
+
+*****
+
+####  御坂MKII  
+##### 1128#       发表于 2022-10-29 14:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
