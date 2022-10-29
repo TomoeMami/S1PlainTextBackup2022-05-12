@@ -8667,3 +8667,14 @@ https://bbs.saraba1st.com/2b/thread-2102104-0-1.html
 能玩预购了</blockquote>
 富哥好像玩的就是ps4版，据富哥说读取会比对马岛慢。而且是前面快后面慢
 
+
+
+*****
+
+####  Lamas  
+##### 909#       发表于 2022-10-29 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58162830&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-29 14:33</a>
+富哥好像玩的就是ps4版，据富哥说读取会比对马岛慢。而且是前面快后面慢 ...</blockquote>
+读盘无所谓，主要是画面跟帧数，这两天打血源老驴，一出月光大宝剑就疯狂掉帧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我感觉是机子老了
+

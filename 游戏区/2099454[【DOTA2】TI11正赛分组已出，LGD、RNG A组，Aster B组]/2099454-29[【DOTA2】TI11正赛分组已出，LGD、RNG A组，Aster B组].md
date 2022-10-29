@@ -2684,3 +2684,517 @@ tmdrotk都来了
 
 Rotk又准备回来混了么
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 42366#       发表于 2022-10-29 14:43
+
+皮鞋哪个直播你们真的看得下去啊，切画面跟他的先手一样，而且不开加速器
+
+*****
+
+####  jk9hot  
+##### 42367#       发表于 2022-10-29 14:43
+
+这是VG系解说班子
+
+陈清皮鞋rotk
+
+*****
+
+####  六娃  
+##### 42368#       发表于 2022-10-29 14:43
+
+这把能不能给sszai选个可敬的英雄
+
+*****
+
+####  聚散浮云  
+##### 42369#       发表于 2022-10-29 14:43
+
+加油加油还有一把
+
+*****
+
+####  StrangerJ  
+##### 42370#       发表于 2022-10-29 14:43
+
+皮鞋在哪儿直播？
+
+*****
+
+####  iriyano  
+##### 42371#       发表于 2022-10-29 14:43
+
+自己游戏里看，皮鞋直播间听声音啊
+
+*****
+
+####  风尘的时光  
+##### 42372#       发表于 2022-10-29 14:43
+
+绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/8/555de4c4a4c515a04df2af15d4332df4/CMP_20221029144338986.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  星野航  
+##### 42373#       发表于 2022-10-29 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">茶茶打比赛院士蹭一下可以理解吧
+水厂比赛估计蹭不上
+
+*****
+
+####  iriyano  
+##### 42374#       发表于 2022-10-29 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58163023&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-29 15:43</a>
+皮鞋在哪儿直播？</blockquote>
+抖音
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| StrangerJ| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  反方向的波  
+##### 42375#       发表于 2022-10-29 14:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">vg系全在看曾焦阳是吧
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 42376#       发表于 2022-10-29 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58163023&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-29 14:43</a>
+皮鞋在哪儿直播？</blockquote>
+抖音 斗帝yang
+
+*****
+
+####  勤练带来力量  
+##### 42377#       发表于 2022-10-29 14:44
+
+rotk听见没有隔音房来精神了
+
+*****
+
+####  wzy200912345  
+##### 42378#       发表于 2022-10-29 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58163030&amp;ptid=2099454" target="_blank">风尘的时光 发表于 2022-10-29 14:43</a>
+
+绷不住了</blockquote>
+报点dota，best dota咯
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 42379#       发表于 2022-10-29 14:45
+
+rotk锐评隔音棚
+
+*****
+
+####  yyf奇遇记  
+##### 42380#       发表于 2022-10-29 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58163023&amp;ptid=2099454" target="_blank">StrangerJ 发表于 2022-10-29 14:43</a>
+
+皮鞋在哪儿直播？</blockquote>
+[https://live.douyin.com/89963245135](https://live.douyin.com/89963245135)
+
+*****
+
+####  王宇旻❤潘婕  
+##### 42381#       发表于 2022-10-29 14:45
+
+<img src="https://img.saraba1st.com/forum/202210/29/144534l53ppp1pzezt00b2.jpg" referrerpolicy="no-referrer">
+
+<strong>422820156c2123b4.jpg</strong> (43.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 14:45 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/144537vwhpth9hb88t3r93.jpg" referrerpolicy="no-referrer">
+
+<strong>-30b13d121af027f8.jpg</strong> (75.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 14:45 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/144540v445wjbj4z468m2n.jpg" referrerpolicy="no-referrer">
+
+<strong>4a346e9d00d5d0b2.jpg</strong> (45.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 14:45 上传
+
+*****
+
+####  聚散浮云  
+##### 42382#       发表于 2022-10-29 14:46
+
+报点绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 42383#       发表于 2022-10-29 14:46
+
+csgo boston major flashback
+
+*****
+
+####  zsu222  
+##### 42384#       发表于 2022-10-29 14:46
+
+感觉不如冰眼sa
+
+*****
+
+####  齐柏林轰炸机  
+##### 42385#       发表于 2022-10-29 14:47
+
+有无水友操作一下弹幕的集美，有点跳脸了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 42386#       发表于 2022-10-29 14:47
+
+皮球指挥焦阳反打？
+
+*****
+
+####  zsu222  
+##### 42387#       发表于 2022-10-29 14:47
+
+波士顿就太吓人了。全场的send them back
+
+*****
+
+####  nerugigannte  
+##### 42388#       发表于 2022-10-29 14:47
+
+哥们没抖音啊
+
+*****
+
+####  walfeds  
+##### 42389#       发表于 2022-10-29 14:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  勤练带来力量  
+##### 42390#       发表于 2022-10-29 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58163079&amp;ptid=2099454" target="_blank">nerugigannte 发表于 2022-10-29 14:47</a>
+哥们没抖音啊</blockquote>
+网页版可以看的
+
+
+
+*****
+
+####  jk9hot  
+##### 42391#       发表于 2022-10-29 14:47
+
+查猪“你们都姓皮为什么他那么屌”
+
+皮鞋被干无语了
+
+*****
+
+####  iriyano  
+##### 42392#       发表于 2022-10-29 14:47
+
+怎么还不开
+僵住了？
+
+*****
+
+####  Cookiekira  
+##### 42393#       发表于 2022-10-29 14:48
+
+线下报点属于是电子竞技必不可少的一环了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jk9hot  
+##### 42394#       发表于 2022-10-29 14:48
+
+三局全一手ban斯温
+
+*****
+
+####  弈秋  
+##### 42395#       发表于 2022-10-29 14:48
+
+相信胜率
+
+*****
+
+####  格雷殿下  
+##### 42396#       发表于 2022-10-29 14:48
+
+好点我报
+
+*****
+
+####  yyf奇遇记  
+##### 42397#       发表于 2022-10-29 14:48
+
+这盘早点出xxs的3吧
+
+*****
+
+####  莉拉厨  
+##### 42398#       发表于 2022-10-29 14:48
+
+谷圣可以
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  哈曼的YY  
+##### 42399#       发表于 2022-10-29 14:48
+
+报点这么自豪啊
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 42400#       发表于 2022-10-29 14:48
+
+又冰女？
+
+*****
+
+####  leia_rolando  
+##### 42401#       发表于 2022-10-29 14:48
+
+说实话，你们紧张吗？我现在掌心都冒汗了
+
+*****
+
+####  赤星ビスコ  
+##### 42402#       发表于 2022-10-29 14:48
+
+一手冰女<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a1370303  
+##### 42403#       发表于 2022-10-29 14:49
+
+小强老鹿全放了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弈秋  
+##### 42404#       发表于 2022-10-29 14:49
+
+这不出兽？
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 42405#       发表于 2022-10-29 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58163106&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-29 14:48</a>
+报点这么自豪啊</blockquote>
+法无禁止即可为
+
+*****
+
+####  没钱买手办  
+##### 42406#       发表于 2022-10-29 14:49
+
+我又开始玉玉了
+
+*****
+
+####  勤练带来力量  
+##### 42407#       发表于 2022-10-29 14:49
+
+别给骄阳点老鹿了求你
+
+*****
+
+####  六娃  
+##### 42408#       发表于 2022-10-29 14:49
+
+感觉可以ban一手lich，瑞聪直接没英雄玩了
+
+*****
+
+####  银翼的维罗西  
+##### 42409#       发表于 2022-10-29 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58163112&amp;ptid=2099454" target="_blank">leia_rolando 发表于 2022-10-29 14:48</a>
+
+说实话，你们紧张吗？我现在掌心都冒汗了</blockquote>
+紧张死了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 42410#       发表于 2022-10-29 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58163106&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-29 14:48</a>
+报点这么自豪啊</blockquote>
+如果一个不光彩的事大家都在做 那好像也没人好跳出来批判一番<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iriyano  
+##### 42411#       发表于 2022-10-29 14:49
+
+中单兽？
+
+*****
+
+####  jk9hot  
+##### 42412#       发表于 2022-10-29 14:50
+
+来了来了，中单兽。
+
+不怪的不选丽娜
+
+*****
+
+####  勤练带来力量  
+##### 42413#       发表于 2022-10-29 14:50
+
+中单畜也不好打火女吧
+
+*****
+
+####  弈秋  
+##### 42414#       发表于 2022-10-29 14:50
+
+终于放兽出来玩了
+
+*****
+
+####  yyf奇遇记  
+##### 42415#       发表于 2022-10-29 14:50
+
+獣可以啊
+
+*****
+
+####  吉诺爱比利  
+##### 42416#       发表于 2022-10-29 14:50
+
+SF后TS也是BP陷阱了
+
+*****
+
+####  百世诸侯  
+##### 42417#       发表于 2022-10-29 14:50
+
+我在为ti11的XXS玛西请神中，请到了bian的女友。
+
+关注
+
+bigming000
+
+级别:学徒 威望:0 发帖:2136
+
+-
+
+你也来试试手气吧
+
+*****
+
+####  yyf奇遇记  
+##### 42418#       发表于 2022-10-29 14:50
+
+我朝，这个獣的ar 完爆其他的啊，这质感
+
+*****
+
+####  反方向的波  
+##### 42419#       发表于 2022-10-29 14:51
+
+哦牛批，火枪也被打上ban位了
+
+*****
+
+####  齐柏林轰炸机  
+##### 42420#       发表于 2022-10-29 14:51
+
+卧槽，火女放出来了
+
+
+
+*****
+
+####  六娃  
+##### 42421#       发表于 2022-10-29 14:51
+
+大畜一选，三号位动物园都不好出了，这把zai种可敬程度上升
+
+*****
+
+####  ml1642879  
+##### 42422#       发表于 2022-10-29 14:51
+
+今年还能有全场跟着牛拍手吗
+
+*****
+
+####  夏溪澪mio  
+##### 42423#       发表于 2022-10-29 14:51
+
+草有查猪不早说
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  莉拉厨  
+##### 42424#       发表于 2022-10-29 14:51
+
+主要是两边老鹿都不行，你放给尼公子看看他能不能把你打爆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IG.430  
+##### 42425#       发表于 2022-10-29 14:52
+
+liquid可以拿萨尔
+
+*****
+
+####  jk9hot  
+##### 42426#       发表于 2022-10-29 14:52
+
+紧张的手掌都冒汗了，兄弟我去洗把脸调整一下先
+
