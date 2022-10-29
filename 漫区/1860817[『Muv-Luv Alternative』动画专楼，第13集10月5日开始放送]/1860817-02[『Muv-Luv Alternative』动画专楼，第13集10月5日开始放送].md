@@ -101,3 +101,17 @@
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  jerryoq1  
+##### 1964#       发表于 2022-10-29 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58156208&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-10-29 01:36</a>
+
+看漫区女主人气想起来，本作搞过人气投票（坛内）吗？
+
+—— 来自 OnePlus HD1900, Android 13上的 S1Next- ...</blockquote>
+不如比较一拳把人打到火星和一刀把萝卜砍碎 哪个战力更强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

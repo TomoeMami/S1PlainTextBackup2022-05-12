@@ -12586,3 +12586,17 @@ wiki看不懂日文可以对着装备数值去找
 第三章是不是眼球的？长柄武器够不到第一时间掏出雷杖安逸修脚了感觉还行<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 我的话，由于打的中等难度，过了第一章武器强迫症就发动起来了，不收全不摸boss的，所以除了过早去摸龙王被折磨了，其他boss还真没，毕竟无敌判定的办法太多了嘛，尤其终章刷完爱情后现在都快变成无双割草了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  何处分可  
+##### 1146#       发表于 2022-10-29 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58169928&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-29 20:08</a>
+
+第三章是不是眼球的？长柄武器够不到第一时间掏出雷杖安逸修脚了感觉还行
+
+我的话，由于打的中等难 ...</blockquote>
+我是武器摸全了去打眼球还是最后按的手疼，倒是没用雷杖。眼球boss算是我唯一一个手按的生疼的boss了，第一章都比不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
