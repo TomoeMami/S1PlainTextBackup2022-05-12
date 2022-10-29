@@ -8294,3 +8294,33 @@ Reddit上又一个有评测版游戏的人说他目前游戏时间是76小时，
 
 是哪里的剧透啊，reddit?
 
+
+
+*****
+
+####  HDGDG  
+##### 870#       发表于 2022-10-29 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58157690&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-29 09:21</a>
+
+是哪里的剧透啊，reddit?</blockquote>
+就是那个美国富哥，ps5吧”公羽“吧主的一位朋友说的，qq群刚刚说的
+
+
+
+*****
+
+####  clover293  
+##### 871#       发表于 2022-10-29 09:25
+
+<blockquote>HDGDG 发表于 2022-10-29 09:22
+就是那个美国富哥，ps5吧”公羽“吧主的一位朋友说的，qq群刚刚说的</blockquote>
+还挺快的啊，一天就通关了
+
+*****
+
+####  hotsmile  
+##### 872#       发表于 2022-10-29 09:28
+
+那这次可以开局战神难度正常砍也行了？加AI不加血
+
