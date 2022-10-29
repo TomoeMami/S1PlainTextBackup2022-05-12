@@ -3095,3 +3095,52 @@ https://static.saraba1st.com/image/smiley/face2017/127.png不装了，写在液�
 
 加油啊，aster。<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  百世诸侯  
+##### 40826#       发表于 2022-10-29 08:24
+
+与其说是否定了两年，不如说是两年来他的舆论太好了。
+
+ti10决赛，他是真的被对面3号位对位，爆中乱爆。崩溃哥在稳定吃一个玛尔斯一ban的情况下，依然打出了mvp级别的发挥，完爆faithbian。
+
+在这种情况下，faithbian几乎没有受到任何舆论的指责，如今大约只是人们反应过来了。
+
+*****
+
+####  feiyu99  
+##### 40827#       发表于 2022-10-29 08:25
+
+<strong>加油啊，chacha。</strong>
+
+<img src="https://img.saraba1st.com/forum/202210/29/082443onsbll5lp1ubuy41.jpg" referrerpolicy="no-referrer">
+
+<strong>05d9c1f9d72a6059052254db6d34349b023bba13.jpg</strong> (51.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 08:24 上传
+
+*****
+
+####  yyf奇遇记  
+##### 40828#       发表于 2022-10-29 08:30
+
+楼上这图给我看yue了
+
+*****
+
+####  nowaki  
+##### 40829#       发表于 2022-10-29 08:30
+
+图上两人一个昨天在跳伞一个在apex
+
+*****
+
+####  IG.430  
+##### 40830#       发表于 2022-10-29 08:30
+
+yue
+

@@ -1952,3 +1952,15 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 粽子第一季还算是不过不失吧。
 第二季莫名其妙拉垮了而已
 
+
+
+*****
+
+####  久保由利香  
+##### 177#       发表于 2022-10-29 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58157070&amp;ptid=2075178" target="_blank">8aa8aa8aa 发表于 2022-10-29 08:05</a>
+粽子第一季还算是不过不失吧。
+第二季莫名其妙拉垮了而已</blockquote>
+第一季就是屎啊，追亚马逊追到那个杀人犯那里是包括剧场版全amazons最弱智的剧情没有之一
+

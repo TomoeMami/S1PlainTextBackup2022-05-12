@@ -12307,3 +12307,16 @@ wiki看不懂日文可以对着装备数值去找
 
 空中擒抱这个技能太OP了吧，拿到之后完全变成另外一个游戏了，之前是各种躲技能找机会刮痧，拿到以后直接开冲，瞬间满能量无脑接长时间凭依，血不够了凭依的过程中还能无敌吃药
 
+
+
+*****
+
+####  redsouris  
+##### 1120#       发表于 2022-10-29 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58156422&amp;ptid=2098044" target="_blank">baizhi 发表于 2022-10-29 02:12</a>
+游戏后半段的数值是我玩得不对吗？第六章最后的宰相6万多血怎么击杀？被推到板边了还剩2万血，根本 ...</blockquote>
+宰相除了血多就是个木桩吧？BREAK了开狂暴打呗
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
