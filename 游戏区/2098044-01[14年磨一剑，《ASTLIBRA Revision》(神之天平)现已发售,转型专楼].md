@@ -12682,3 +12682,21 @@ wiki看不懂日文可以对着装备数值去找
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">问下绿结晶在哪刷比较快，看了下日站，最高级的只有第七章的那个蝗虫，但也忒分散了
 
+
+
+*****
+
+####  Ashice  
+##### 1155#       发表于 2022-10-29 22:24
+
+技能盘最后那几个属性是可以无限点的吗<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  阳ノ下光  
+##### 1156#       发表于 2022-10-29 22:26
+
+手感好怪啊
+

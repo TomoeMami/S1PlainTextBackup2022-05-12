@@ -15041,3 +15041,29 @@ A.「つらいときは目的が何なのか思い出す。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我脑内把二期当不存在也是在骗自己啊
 
+
+
+*****
+
+####  优妮可  
+##### 8853#       发表于 2022-10-29 22:23
+
+<img src="https://img.saraba1st.com/forum/202210/29/222315ajl0sz9uokj007fx.jpg" referrerpolicy="no-referrer">
+
+<strong>20221029_222220.jpg</strong> (433.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 22:23 上传
+
+*****
+
+####  starring  
+##### 8854#       发表于 2022-10-29 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58173082&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-10-29 22:00</a>
+说起来最近在推上看到好几篇文章 忘了是不是同一个人写的了
+大意就是二期其实没那么不堪 要学会和解这样
+我 ...</blockquote>
+冈达都有人拥护，星2有也不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
