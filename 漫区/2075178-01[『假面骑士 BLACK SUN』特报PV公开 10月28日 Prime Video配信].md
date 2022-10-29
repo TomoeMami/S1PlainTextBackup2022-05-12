@@ -2006,3 +2006,25 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 —— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  plok201  
+##### 181#       发表于 2022-10-29 10:45
+
+基本上完美撞上除了硬加涩情场景外的特摄成人化拉跨的点，也是不简单
+
+整个世界观为了掺真实性加了一堆历史事件进去然后无法自圆其说，不知道为什么成人化就一定要黑深残加血浆，然后自己根本不懂控制，最后出来成品就是很儿戏
+
+无论奥棚还是假面棚，几次成人化最大问题都是，仿佛高中生喝个苦咖啡就在感叹这太男人了，吃太饱了看电视上穷国饿死人就指点江山一样
+
+而且也不知道谁规定的成人化就不能有娱乐要素的，整个片突出一个闷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dozen  
+##### 182#       发表于 2022-10-29 10:47
+
+白仓在成人向特摄上屡战屡败，他就没觉得是自己的问题么<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
