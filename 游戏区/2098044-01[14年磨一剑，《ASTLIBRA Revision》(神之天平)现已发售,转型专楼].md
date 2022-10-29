@@ -12540,3 +12540,15 @@ wiki看不懂日文可以对着装备数值去找
 这游戏BOSS怎么打啊，第一个火龙BOSS我打了7分钟手都按疼了BOSS都没死，这还是中等难度 ...</blockquote>
 成长里面把电系技能点出来好打很多
 
+
+
+*****
+
+####  tsubaki  
+##### 1142#       发表于 2022-10-29 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58166130&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-29 17:17</a>
+
+后院是石头能打掉？我还以为是用来测伤害的</blockquote>
+上下100W血，建议终章硬刮或者新章开强化后再打，反正就给个钱掉落1.3倍徽章
+
