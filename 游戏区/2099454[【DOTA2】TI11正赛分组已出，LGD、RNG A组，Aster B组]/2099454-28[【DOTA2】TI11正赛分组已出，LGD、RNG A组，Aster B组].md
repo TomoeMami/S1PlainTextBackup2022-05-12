@@ -3255,3 +3255,80 @@ yue
 
 刀门。
 
+
+
+*****
+
+####  莉拉厨  
+##### 40843#       发表于 2022-10-29 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58157274&amp;ptid=2099454" target="_blank">CNFH1984 发表于 2022-10-29 08:37</a>
+绝望的曾骄阳向上天祈祷
+
+不知道ti7的约旦ori能否回应他
+
+加油啊，骄阳！</blockquote>
+最好还是不要有绝望的曾焦阳罢<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  jk9hot  
+##### 40844#       发表于 2022-10-29 08:43
+
+如此不基德的赛区，真的能获得刀塔之神的宽恕吗。
+
+刀门。
+
+*****
+
+####  恐怖利刃  
+##### 40845#       发表于 2022-10-29 08:45
+
+人在新加坡 被入境官员拦住了
+关注
+戳死作作的张毅洋
+级别:学徒威望:4.8发帖:1147
+
+我从纽约坐了24个小时多的飞机到了新加坡，没有准备签证，想着用中国护照96小时离境免签的这个规则看完ti就跑。预定离境是周日晚10点的飞机。我因为有朋友是随队的，然后本来也是要见这个朋友，问我行程目的是什么，我就说I am going to visit one of my friends in Singapore.然后入境官员说，it doesn’t make sense that you travel all this long distance just to visit your friend in a weekend. 然后我只好问 Have you ever heard TI, my friend is going to play in this tournament this weekend. And this is a great opportunity for me to visit him. 然后这个大叔就放我进了，期间还到处问东问西刁难我
+感觉可能新加坡当局之类的有告诉入境官员？ti是一个国际赛事，可以适当放松？
+2022
+
+*****
+
+####  恐怖利刃  
+##### 40846#       发表于 2022-10-29 08:47
+
+<img src="https://img.saraba1st.com/forum/202210/29/084700q4uiyuyzuaeitz4y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>036F029F-7A11-47BD-A956-513B087DE613.jpeg</strong> (93.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 08:47 上传
+
+*****
+
+####  逃离二次元  
+##### 40847#       发表于 2022-10-29 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58157309&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-29 08:41</a>
+已经撤回了</blockquote>
+撤回之前领到了
+虽然只有6分钱
+
+*****
+
+####  yyf奇遇记  
+##### 40848#       发表于 2022-10-29 08:49
+
+没有silent？
+
+*****
+
+####  nowaki  
+##### 40849#       发表于 2022-10-29 08:51
+
+slient就是点外卖的
+
