@@ -1995,3 +1995,14 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 主要还是拍的不咋滴看的犯困 刻意拖长的镜头太多了 
 
+
+
+*****
+
+####  migros  
+##### 180#       发表于 2022-10-29 10:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer"> 哪里有得看啊，我是美亚prime video 找不到
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
