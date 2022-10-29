@@ -9803,3 +9803,111 @@ ti9的普森证明了自己并不比斜鄂泰迪差
 
 boxi带着zai，确实独一挡
 
+
+
+*****
+
+####  nowaki  
+##### 44807#       发表于 2022-10-29 21:03
+
+ti9胜决赢lgd也是四保一炼金，普森决赛打的是w川川
+
+*****
+
+####  Asukalangley33  
+##### 44808#       发表于 2022-10-29 21:04
+
+TI8小偷，TI9虾仁饭，TI10克格勃
+
+现在TI11是怪妲己和V社迫害么？
+
+*****
+
+####  Horusddt  
+##### 44809#       发表于 2022-10-29 21:04
+
+今天茶其实已经按住boxi了，打烂zai哥让boxi玩个海民出怨灵根本没声音的
+
+*****
+
+####  nowaki  
+##### 44810#       发表于 2022-10-29 21:05
+
+今天给茶队报点之后，估计也不好意思提窃听风云了
+
+*****
+
+####  战栗的小六  
+##### 44811#       发表于 2022-10-29 21:05
+
+看了下三局出装，石头人每把都有大祭品和大绿鞋，还会出笛子和战鼓，相比之下秘密的团队装少的可怜，第三把甚至连个推推都没有。。
+
+*****
+
+####  DarkDuck  
+##### 44812#       发表于 2022-10-29 21:05
+
+今晚的比赛看满足了，秘密打石头人太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+顺便举办方麻麻石蜡，整得什么破场地梦回十年前
+
+*****
+
+####  端木恋心  
+##### 44813#       发表于 2022-10-29 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171601&amp;ptid=2099454" target="_blank">roxas.sora 发表于 2022-10-29 21:00</a>
+
+他选人经常被吴冠超后手克制，很难玩的，徐林森还时不时过来抓他</blockquote>
+这个是刻板印象。结束之后有人统计过。打的bo8里面。超哥后手比普森少。
+
+*****
+
+####  roxas.sora  
+##### 44814#       发表于 2022-10-29 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171720&amp;ptid=2099454" target="_blank">战栗的小六 发表于 2022-10-29 21:05</a>
+
+看了下三局出装，石头人每把都有大祭品和大绿鞋，还会出笛子和战鼓，相比之下秘密的团队装少的可怜，第三把 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">秘密打得顺可以让ppy出，打的不顺还要吸血zotk就没钱出了，reso是假3真1，传统团队装3号位给他玩不行，因为水晶终结比赛的能力不够
+
+*****
+
+####  tasuku  
+##### 44815#       发表于 2022-10-29 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171740&amp;ptid=2099454" target="_blank">端木恋心 发表于 2022-10-29 21:06</a>
+
+这个是刻板印象。结束之后有人统计过。打的bo8里面。超哥后手比普森少。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">有统计虽然先手但是打不了就去边路的情况吗
+
+*****
+
+####  枯风瘦雪02  
+##### 44816#       发表于 2022-10-29 21:07
+
+石头人好像也是最喜欢出推推的队伍，推推拆火，战鼓大战鼓加移速，配合大祭品笛子减伤，想杀他们的人是不容易啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  qty  
+##### 44817#       发表于 2022-10-29 21:08
+
+小水晶目前是秘密最明显的薄弱点了，前提是nisha不脑浆
+
+*****
+
+####  Litccc  
+##### 44818#       发表于 2022-10-29 21:09
+
+感觉大家都对拳酱的毒瘤习以为常了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战栗的小六  
+##### 44819#       发表于 2022-10-29 21:10
+
+第一把也是全队就一把推推一个莲花，多个推推/莲花团战拉扯起来能好打很多，好几次nisha的火猫都是被沉默然后被活生生的A死，明明推一下或者给个莲花就能活下来的
+
