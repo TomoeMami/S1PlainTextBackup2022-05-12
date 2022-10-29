@@ -12472,3 +12472,12 @@ wiki看不懂日文可以对着装备数值去找
 
 石头我点个狂暴上好buff水晶全点攻击敏捷↑↓+攻击键就敲完了，没有凭依技不仅省时还省力
 
+
+
+*****
+
+####  御坂MKII  
+##### 1135#       发表于 2022-10-29 15:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来那个是量产魔王 真的还在后面
+
