@@ -9239,3 +9239,30 @@ hhh 对第二个生日的执念XD 有的人过了三个 有的就....
 
 卷卷赶紧转生吧 每次点进去就被夹子劝退 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不智法师  
+##### 2480#       发表于 2022-10-29 20:41
+
+卧槽，真的是卷?
+
+*****
+
+####  逸yi  
+##### 2481#       发表于 2022-10-29 20:42
+
+下个月就有有3d吗 看来是旧歌姬现改的？
+
+*****
+
+####  天青月白  
+##### 2482#       发表于 2022-10-29 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171004&amp;ptid=1926094" target="_blank">kuriboh 发表于 2022-10-29 20:39</a>
+卷卷赶紧转生吧 每次点进去就被夹子劝退</blockquote>
+我也是，她那个夹子我顶不住
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

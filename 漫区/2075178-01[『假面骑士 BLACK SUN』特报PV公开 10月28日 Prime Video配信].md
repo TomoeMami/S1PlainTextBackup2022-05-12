@@ -2063,3 +2063,19 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 这个角度。。故意的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/890fe54815999d7a985c74c31a559ba9/CMP_20221029161143078.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  你听得到  
+##### 187#       发表于 2022-10-29 20:45
+
+大烂片
+
+*****
+
+####  你听得到  
+##### 188#       发表于 2022-10-29 20:47
+
+美术方面做得不错，不知道经费跟zo比怎么样了
+
