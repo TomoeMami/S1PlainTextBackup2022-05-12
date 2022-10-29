@@ -2102,3 +2102,17 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 日常写的挺有意思的
 
+
+
+*****
+
+####  米列希安  
+##### 191#       发表于 2022-10-29 22:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58173714&amp;ptid=2075178" target="_blank">吕玲绮的十字戟 发表于 2022-10-29 22:32</a>
+
+我觉得平成赛文的非主线回都不错
+
+日常写的挺有意思的</blockquote>
+巧了，日本那边也是这么想的，他们夸的几集都是非主线日常剧情
+
