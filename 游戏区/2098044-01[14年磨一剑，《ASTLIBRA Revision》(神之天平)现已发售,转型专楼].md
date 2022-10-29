@@ -12398,3 +12398,16 @@ wiki看不懂日文可以对着装备数值去找
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 S ...</blockquote>
 刮完了，原来是上下各百万血<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  black1991518  
+##### 1127#       发表于 2022-10-29 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">一口气从7章打到终章再突入新章，世界观抽丝剥茧一层层展开的感觉太爽了
+
+新章还能刷刷乐，真是相见恨晚的好游戏，作者太强了
+
+这就是ACT石头门吧
+
