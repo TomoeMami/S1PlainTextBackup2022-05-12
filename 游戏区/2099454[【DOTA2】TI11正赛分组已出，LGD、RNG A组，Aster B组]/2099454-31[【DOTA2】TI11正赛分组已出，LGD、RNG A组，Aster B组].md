@@ -3072,3 +3072,42 @@ very 不 professional
 
 第三个dpc lgd在国内就谁也打不过了。线劣问题很严重，也就是major上撸狗鞭过于力中暴力，一个人扛着四个人走。
 
+
+
+*****
+
+####  恐怖利刃  
+##### 45347#       发表于 2022-10-30 07:22
+
+<img src="https://img.saraba1st.com/forum/202210/30/072217gla4iiy5givya4m1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DA6E9F28-0280-4595-A789-31A00F8D0CFD.jpeg</strong> (485.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 07:22 上传
+
+<img src="https://img.saraba1st.com/forum/202210/30/072218agb38s88jgu1sffd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CFD6CCFB-5070-4650-A2E1-9FCA928F6075.jpeg</strong> (832.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 07:22 上传
+
+*****
+
+####  格雷殿下  
+##### 45348#       发表于 2022-10-30 07:32
+
+这谁啊
+
+*****
+
+####  只蕉  
+##### 45349#       发表于 2022-10-30 07:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+我没记错的话小八家里是包工头吧，家境应该是挺不错的，切假腿也是那时候职业化程度不高所以老是出这种事情。
+
