@@ -3384,3 +3384,20 @@ htt ...</blockquote>
 —— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 就只有nico的日文弹幕吧，himado都没人搬，但nico版权动画强制要求纯净日本IP，我反正看不了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 270#         楼主| 发表于 2022-10-29 12:39
+
+[https://twitter.com/M_terU116/status/1585550133500219392](https://twitter.com/M_terU116/status/1585550133500219392)
+<img src="https://p.sda1.dev/8/0ae5e053ef4400d67762988b6aa692a5/20221029_123544.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/14a8d92540bfa0ebca03174790402c0b/20221029_123549.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/icon_315/status/1586156810494693376](https://twitter.com/icon_315/status/1586156810494693376)
+<img src="https://p.sda1.dev/8/156972b606543dce561c010e11bc2fbd/20221029_123604.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/OhSrY9riIftzjmY/status/1585984207142105088](https://twitter.com/OhSrY9riIftzjmY/status/1585984207142105088)
+<img src="https://p.sda1.dev/8/04da5b13710a452c6a554435289eb4e4/20221029_123906.jpg" referrerpolicy="no-referrer">
+

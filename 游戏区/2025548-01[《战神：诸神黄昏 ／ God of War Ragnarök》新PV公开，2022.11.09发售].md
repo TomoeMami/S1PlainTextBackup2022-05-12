@@ -8494,3 +8494,13 @@ Reddit上又一个有评测版游戏的人说他目前游戏时间是76小时，
 
 看完视频，稳了呀，好期待，急急急！
 
+
+
+*****
+
+####  clover293  
+##### 891#       发表于 2022-10-29 12:41
+
+这人打了9-9.5，缺点剧情有点拖和解密
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

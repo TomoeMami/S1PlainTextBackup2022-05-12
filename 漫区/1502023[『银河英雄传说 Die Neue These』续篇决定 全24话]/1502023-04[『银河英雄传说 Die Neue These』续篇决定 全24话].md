@@ -38,3 +38,17 @@
 —— 来自 Xiaomi M2011K2C, Android 12上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
 F4是旧帝国36代皇帝，弗里德里希IV世，简称F4
 
+
+
+*****
+
+####  aptx8285144  
+##### 5495#       发表于 2022-10-29 12:36
+
+ 本帖最后由 aptx8285144 于 2022-10-29 12:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58032135&amp;ptid=1502023" target="_blank">卡奥斯·克斯拉 发表于 2022-10-21 22:58</a>
+
+原着里写的很清楚了莱掌权后皇宫的人员和警备规模都缩小了很多（连禁卫军的编制都没了），自然不用刻意放 ...</blockquote>
+
+所以说奥贝的那些对莱皇的还要放松警备到牺牲摩特甚至克斯拉的说辞才更吓人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
