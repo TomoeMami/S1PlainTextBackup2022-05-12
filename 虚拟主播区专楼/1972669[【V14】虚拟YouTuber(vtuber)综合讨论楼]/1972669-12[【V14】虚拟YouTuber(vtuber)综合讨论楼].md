@@ -290,3 +290,12 @@ hnn这次主催的ow2自定义是暴雪日区运营赞助的啊，不错<img src
 
 你虹最着名的就是大会了，很难不会有路径依赖
 
+
+
+*****
+
+####  心垂万刃  
+##### 17661#       发表于 2022-10-29 11:55
+
+我可不看好游戏王大会，分分钟变成坐牢大会<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
