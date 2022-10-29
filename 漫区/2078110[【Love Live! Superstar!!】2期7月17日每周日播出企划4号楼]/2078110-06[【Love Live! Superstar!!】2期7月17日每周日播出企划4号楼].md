@@ -15177,3 +15177,26 @@ A.「つらいときは目的が何なのか思い出す。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是本该花在其他地方的钱都匀给宣传了（）配着MV看也还行吧
 
+
+
+*****
+
+####  cat1230  
+##### 8867#       发表于 2022-10-30 03:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58176233&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-10-30 01:02</a>
+
+可能是本该花在其他地方的钱都匀给宣传了（）配着MV看也还行吧</blockquote>
+突然想到我一般不关心新番OPED这种单曲的宣发的，只有这次特别注意下，毕竟鲤推。之前也就鬼灭巨人或者柯南死神这种新OPED会注意下这些。现在便宜动画，垃圾轻改，茫茫多，好的不好听的歌也数不过来，一般在动画播出期间OPED都有很多宣发的吗？之前就恋上换装娃娃唱ed的あかせあかり有好多活动，本人也凭借这ED大火，但是根子上是这动画制作的厨力满满，相当优秀。
+
+*****
+
+####  player3960  
+##### 8868#       发表于 2022-10-30 05:36
+
+动画没兴趣，歌倒是一直在听。
+我初听觉得最不适应的还是这歌开头编的调子又高又平，而且持续一段。过了这段后面都蛮不错。
+不过这歌的MV是真喜欢，有事没事就刷<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

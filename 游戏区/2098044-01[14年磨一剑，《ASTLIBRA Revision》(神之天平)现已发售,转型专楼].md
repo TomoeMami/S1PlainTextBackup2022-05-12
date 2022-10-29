@@ -12836,3 +12836,70 @@ wiki看不懂日文可以对着装备数值去找
 这游戏当你觉得当前关卡打的很辛苦，打BOSS刮痧的时候，适当回头刷一下，能有效降低难度。 ...</blockquote>
 还可以试试换法杖，很多剑在攻击力和敏捷没堆上去之前，性能被法杖碾压的
 
+
+
+*****
+
+####  manyin1  
+##### 1170#       发表于 2022-10-30 01:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58176222&amp;ptid=2098044" target="_blank">耳廓狐 发表于 2022-10-30 01:02</a>
+
+这个bug 早修了 看更新日志 怎么现在还会即死</blockquote>
+我是学习版受害者<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">已从蒸汽入了然后过去了
+
+
+
+*****
+
+####  Leona_Akari  
+##### 1171#       发表于 2022-10-30 02:24
+
+贝阿朵在哪，没印象了。。。
+
+几个神就差她了
+
+*****
+
+####  Sannapolis  
+##### 1172#       发表于 2022-10-30 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58176928&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-30 02:24</a>
+贝阿朵在哪，没印象了。。。
+
+几个神就差她了</blockquote>
+伊利西昂入口往左跳，有透明台阶
+
+*****
+
+####  御坂MKII  
+##### 1173#       发表于 2022-10-30 04:20
+
+ 本帖最后由 御坂MKII 于 2022-10-30 04:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 火山隐藏的那个战神的全屏招怎么躲，持续时间不短好像也没法靠凭依躲过去
+
+第七章开头一张图居然把五个装备图纸全打出来了，吓得我赶紧跑回去存个档<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ccow  
+##### 1174#       发表于 2022-10-30 04:29
+
+<blockquote>御坂MKII 发表于 2022-10-30 04:20
+火山隐藏的那个战神的全屏招怎么躲，持续时间不短好像也没法靠凭依躲过去
+
+第七章开头一张图居然把 ...</blockquote>
+躲不了，必须在他出这招前干掉。
+
+*****
+
+####  御坂MKII  
+##### 1175#       发表于 2022-10-30 05:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58177250&amp;ptid=2098044" target="_blank">ccow 发表于 2022-10-30 04:29</a>
+躲不了，必须在他出这招前干掉。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">原来是这种的 我还以为是半血强制触发
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

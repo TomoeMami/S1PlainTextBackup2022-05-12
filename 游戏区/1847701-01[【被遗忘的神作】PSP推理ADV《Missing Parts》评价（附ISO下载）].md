@@ -914,3 +914,21 @@ mark，无中文苦手，求推荐有中文的推理adv
 
 —— 来自 HUAWEI HRY-AL00Ta, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  省心  
+##### 83#       发表于 2022-10-30 02:00
+
+记得楼主成功安利过我《第八宗大罪》。
+
+*****
+
+####  cablecableca  
+##### 84#       发表于 2022-10-30 02:40
+
+第一话标题オルゴール我就不认识<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">滚去继续学日语了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
