@@ -3031,3 +3031,12 @@ https://bbs.sgamer.com/forum.php?mod=viewthread&amp;tid=14179040
 
 very 不 professional
 
+
+
+*****
+
+####  Moodyblue  
+##### 45342#       发表于 2022-10-30 06:57
+
+说实话这种赛事太吃版本和状态了。干爹赢了一整年。已经满足了，做一个强队的球迷很好​
+
