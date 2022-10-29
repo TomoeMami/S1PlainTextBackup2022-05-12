@@ -12651,3 +12651,25 @@ wiki看不懂日文可以对着装备数值去找
 
 终于全装备全凭依熟练了，去打终章boss
 
+
+
+*****
+
+####  断片集  
+##### 1152#       发表于 2022-10-29 21:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">该怎么连手柄啊？
+
+我steam大屏幕能识别出手柄，也能正常用，进游戏就不认了…
+
+*****
+
+####  helix  
+##### 1153#       发表于 2022-10-29 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58172389&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-10-29 21:31</a>
+第六章四个宝石不看攻略感觉很难全猜出来
+
+宰相说好的犒劳士兵 结果老板娘还被留在了门外</blockquote>
+其实跟老板娘对话会提示你的，还算挺清晰的
+
