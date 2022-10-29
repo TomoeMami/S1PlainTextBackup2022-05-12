@@ -1133,3 +1133,250 @@ yy这小作文写的水平太低了。
 
 我靠我是加缪我报警了
 
+
+
+*****
+
+####  tasuku  
+##### 45129#       发表于 2022-10-29 22:42
+
+[https://m.weibo.cn/status/483003 ... eaturecode=newtitle](https://m.weibo.cn/status/4830035162174908?sourceType=qq&amp;from=10C9595010&amp;wm=20005_0002&amp;featurecode=newtitle)
+
+小作文来了
+
+*****
+
+####  jk9hot  
+##### 45130#       发表于 2022-10-29 22:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年假赛论横行的时候却没觉得荒诞，傻卵清算到自己身上的时候才觉得荒诞。符合高华刻板利己主义标签
+
+*****
+
+####  非建政专用号  
+##### 45131#       发表于 2022-10-29 22:43
+
+之前是康德现在是加料，有无超级哲学论坛评价一下
+
+*****
+
+####  archfriend12  
+##### 45132#       发表于 2022-10-29 22:44
+
+大鞭的女友应该算是刀圈第一极品了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 45133#       发表于 2022-10-29 22:44
+
+￼去年假赛论横行的时候却没觉得荒诞，傻卵清算到自己身上的时候才觉得荒诞。符合高华刻板利己主义标签
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nowaki  
+##### 45134#       发表于 2022-10-29 22:44
+
+输了比赛 总觉得yao不给力
+
+输了比赛 总觉得23457不给力
+
+输了比赛 总觉得cdec队友不给力
+
+输了比赛 总觉得23458不给力
+
+输了比赛 总觉得阿梓不给力
+
+输了比赛 总觉得队友女友不给力
+
+*****
+
+####  yourSwaTer  
+##### 45135#       发表于 2022-10-29 22:45
+
+西恩的冠军三号位有传承啊。<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+*****
+
+####  上古TITAN  
+##### 45136#       发表于 2022-10-29 22:45
+
+加缪的荒诞又不是魔幻、不合常理的意思
+
+*****
+
+####  非建政专用号  
+##### 45137#       发表于 2022-10-29 22:45
+
+理性讨论，ti10打完的时候玉玉和量子鞭是男女朋友吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adretyu67  
+##### 45138#       发表于 2022-10-29 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">反正仙贝永远41c没有问题。
+
+*****
+
+####  tengshuo980  
+##### 45139#       发表于 2022-10-29 22:46
+
+小作文写的有股味儿（捏鼻
+
+*****
+
+####  头发头发  
+##### 45140#       发表于 2022-10-29 22:47
+
+<img src="https://img.saraba1st.com/forum/202210/29/224652sxhbqzy9h9wzbwmd.png" referrerpolicy="no-referrer">
+
+<strong>84D1BD3F-0045-45ED-8DE0-7D8F2EDD60D7.png</strong> (345.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 22:46 上传
+
+*****
+
+####  nowaki  
+##### 45141#       发表于 2022-10-29 22:47
+
+加缪是那种众人皆醉我独醒
+
+*****
+
+####  勤练带来力量  
+##### 45142#       发表于 2022-10-29 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174023&amp;ptid=2099454" target="_blank">头发头发 发表于 2022-10-29 22:47</a></blockquote>
+文丑真想被集美清算玉玉是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  没钱买手办  
+##### 45143#       发表于 2022-10-29 22:48
+
+你要这么说，那我就给你讲个故事吧：余韵的西班牙老板问我什么是青蒜生长的group stage阶段,为什么你今天这么不professional,然后鼓励我去的，并且告诉我青蒜非常漫长，不要拘泥于眼前的青蒜
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tasuku  
+##### 45144#       发表于 2022-10-29 22:48
+
+加缪不是Z高达的机师吗，有啥好说的
+
+*****
+
+####  shhekun  
+##### 45145#       发表于 2022-10-29 22:48
+
+目前印象出现在国内dota2现役圈子里面，给人印象比较好的，就老11的老婆、拒绝者的前女友以及链子哥的老婆。
+
+*****
+
+####  isla  
+##### 45146#       发表于 2022-10-29 22:48
+
+之前刀圈女朋友节奏，多半是选手处理不好或者主动把女朋友带进刀圈起的节奏。这次是不是第一个主动靠近刀圈起的节奏？我想看到bian打完比赛才说退役出国的时间线，可惜没有如果。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  哈萨维·诺亚  
+##### 45147#       发表于 2022-10-29 22:48
+
+青蒜非常漫长，不要拘泥于眼前的青蒜
+
+*****
+
+####  坚定的团子党  
+##### 45148#       发表于 2022-10-29 22:48
+
+这小仙女戏是真的多
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  六娃  
+##### 45149#       发表于 2022-10-29 22:49
+
+哥们之前推理的量子鞭被脑浆歪背刺，才是真正的推理大师好吧
+
+*****
+
+####  adretyu67  
+##### 45150#       发表于 2022-10-29 22:49
+
+每一次比赛都当作最后一次比赛，然后也不要怕被青蒜
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 45151#       发表于 2022-10-29 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174046&amp;ptid=2099454" target="_blank">shhekun 发表于 2022-10-29 22:48</a>
+目前印象出现在国内dota2现役圈子里面，给人印象比较好的，就老11的老婆、拒绝者的前女友以及链子哥的老婆 ...</blockquote>
+拒绝者前女友纯傻逼，老vkun都知道
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  yourSwaTer  
+##### 45152#       发表于 2022-10-29 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174046&amp;ptid=2099454" target="_blank">shhekun 发表于 2022-10-29 22:48</a>
+目前印象出现在国内dota2现役圈子里面，给人印象比较好的，就老11的老婆、拒绝者的前女友以及链子哥的老婆 ...</blockquote>
+不算现役的话，yao的小风行应该是最好的那一层次吧
+
+*****
+
+####  没钱买手办  
+##### 45153#       发表于 2022-10-29 22:51
+
+你说的对，但是《我的西班牙老板》发生在一个被称作“dota2”的幻想世界，在这里，被dota神选中的人将被授予“group stage”，导引professional。玩家将扮演一位名为“faith_Bryant”的职业选手，在自由的旅行中邂逅性格余韵yuyun，和他们一起击败强敌，找回失散的dota2冠军——同时，逐步发掘“人生”的真相
+
+—— 来自 Xiaomi 21121210C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  last_order  
+##### 45154#       发表于 2022-10-29 22:51
+
+“正经人谁tmd写日记啊”
+
+*****
+
+####  非建政专用号  
+##### 45155#       发表于 2022-10-29 22:51
+
+<blockquote>但突然发现自己肚子绞痛很慌张因为之前有一次突然躺在地上休克了二十分钟是因为突发的子宫扭转去看妇科医生的时候医生告诉我再晚五分钟醒过来我就没命了。
+
+我警铃大作立即披上大衣去急救医院(今天周日)。看了妇科发现一切正常后来去了肠胃科原来是急性肠胃炎医生说是因为空腹太久再吃东西肠胃的抵抗力会很差很有可能饺子也没煮熟。</blockquote>
+我澄清一下，本人从未清算过张睿达，本人在ti11周期仅支持克里斯和九神，我不是杀人犯，望周知
+
+*****
+
+####  yyf奇遇记  
+##### 45156#       发表于 2022-10-29 22:51
+
+泰迪老婆没直播前也是个纯傻逼，ti6还去王八哪里喷王八，然后被泰迪跨洋打炮绿了之后才正常一点
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Litccc  
+##### 45157#       发表于 2022-10-29 22:52
+
+你说的对，但是《我的西班牙老板》发生在一个被称作“dota2”的幻想世界，在这里，被dota神选中的人将被授予“group stage”，导引professional。玩家将扮演一位名为“faith_Bryant”的职业选手，在自由的旅行中邂逅性格余韵yuyun，和他们一起击败强敌，找回失散的dota2冠军——同时，逐步发掘“人生”的真相
+
