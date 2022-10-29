@@ -8513,3 +8513,16 @@ Reddit上又一个有评测版游戏的人说他目前游戏时间是76小时，
 
 不可能没有锤子吧，感觉富哥和UP在骗啊
 
+
+
+*****
+
+####  clover293  
+##### 893#       发表于 2022-10-29 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58160688&amp;ptid=2025548" target="_blank">东方定助 发表于 2022-10-29 12:50</a>
+
+不可能没有锤子吧，感觉富哥和UP在骗啊</blockquote>
+有可能的，我记着一直有流言说
+斧子和锤子在剧情里一起坏了，所以去矮人国度重新锻造
+
