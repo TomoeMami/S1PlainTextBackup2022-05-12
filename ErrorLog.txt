@@ -1,7 +1,3 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/漫区/2100987-01[『摇曳露营 △』TV动画三期制作决定].md'
-!!error:id=2100987
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/外野/2101584-01[（不悔time）何姓取名].md'
-!!error:id=2101584
 [Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/漫区/2060079-01[「联盟空军航空魔法音乐队 光辉魔女」TV动画 2022年7月].md'
 !!error:id=2060079
