@@ -2170,3 +2170,23 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 看到第四集，这里面的所谓血腥场面莫名有种喜剧的感觉，第一集从蜘蛛怪人肚子里扯出一串辣条，还有第四集把变成螃蟹的老爹肚子掰开喷出一堆蟹黄，给我看饿了都
 
+
+
+*****
+
+####  numbaa  
+##### 197#       发表于 2022-10-30 01:08
+
+皮套和演员真帅，搞黑命贵和结尾把我恶心到了。
+
+—— 来自 Xiaomi MI 9, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  6030sylar  
+##### 198#       发表于 2022-10-30 01:11
+
+这是black son吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说是烂片都抬举了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

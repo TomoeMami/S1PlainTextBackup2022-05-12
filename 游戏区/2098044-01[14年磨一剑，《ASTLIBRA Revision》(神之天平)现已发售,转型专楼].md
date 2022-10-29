@@ -12781,3 +12781,15 @@ wiki看不懂日文可以对着装备数值去找
 你打得太快了，我五六十级平推的，中等难度下，先把前面所有东西都搜刮完买出来练好，基本上当前章节就能 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，我说我基本被机甲摸两下就死了，疯狂吃药才熬过三个机甲，被疯狂折磨，先去前面农成长盘和武器熟练度了
 
+
+
+*****
+
+####  耳廓狐  
+##### 1165#       发表于 2022-10-30 01:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58175398&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-30 00:04</a>
+
+为啥我打雪山的两个巨人，他们丢的雪球我一碰就死，这是有即死判定的吗？ ...</blockquote>
+这个bug 早修了 看更新日志 怎么现在还会即死
+

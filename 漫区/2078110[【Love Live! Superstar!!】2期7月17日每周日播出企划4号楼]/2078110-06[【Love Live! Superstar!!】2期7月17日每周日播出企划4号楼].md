@@ -15159,3 +15159,21 @@ A.「つらいときは目的が何なのか思い出す。
 
 有总比没有好，工作拿钱也不错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 8865#       发表于 2022-10-30 01:02
+
+<blockquote>cybernetics31 发表于 2022-10-29 23:53
+虽然但是，恋人未满这op真的难听啊反而冲着大西去看的动画</blockquote>
+😚看了原作对上电波之后我又感觉挺不错的，就那种酸酸甜甜，dokidoki的感觉，挺有意思
+
+*****
+
+####  稀勢のささ  
+##### 8866#       发表于 2022-10-30 01:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能是本该花在其他地方的钱都匀给宣传了（）配着MV看也还行吧
+
