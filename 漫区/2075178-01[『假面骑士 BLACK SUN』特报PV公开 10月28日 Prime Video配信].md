@@ -2046,3 +2046,20 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 看到第6集，Blacksun的剑长不回来可笑死我了，敢情你前面生拔蝗虫腿只是为了装逼？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这一次性武装可太逗了。
 
+
+
+*****
+
+####  向着边境进军  
+##### 185#       发表于 2022-10-29 16:08
+
+是不是只有日本ip能看？那为什么宣传的时候说全球公开
+
+*****
+
+####  Observer1379  
+##### 186#       发表于 2022-10-29 16:12
+
+这个角度。。故意的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/890fe54815999d7a985c74c31a559ba9/CMP_20221029161143078.png" referrerpolicy="no-referrer">
+
