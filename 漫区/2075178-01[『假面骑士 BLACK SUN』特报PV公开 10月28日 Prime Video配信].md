@@ -2037,3 +2037,12 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 不为了西岛大叔的颜值完全看不下去……
 
+
+
+*****
+
+####  saevey  
+##### 184#       发表于 2022-10-29 15:26
+
+看到第6集，Blacksun的剑长不回来可笑死我了，敢情你前面生拔蝗虫腿只是为了装逼？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这一次性武装可太逗了。
+
