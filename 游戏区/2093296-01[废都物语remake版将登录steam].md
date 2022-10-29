@@ -59,3 +59,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">说起来最近几天的官博谜题质量下滑不少，也辛苦中之人天天编谜面了，能看出是真的有爱
 
+
+
+*****
+
+####  浅井惠  
+##### 432#       发表于 2022-10-29 10:57
+
+既然是remake请多多使用高清美术素材<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

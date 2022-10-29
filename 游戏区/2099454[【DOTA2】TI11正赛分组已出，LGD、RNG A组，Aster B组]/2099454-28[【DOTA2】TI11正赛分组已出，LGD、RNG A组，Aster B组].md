@@ -3818,3 +3818,49 @@ A黑果然都是毒狗
 
 写在茶队受难前70分钟，其他的忘了
 
+
+
+*****
+
+####  弈秋  
+##### 40907#       发表于 2022-10-29 10:52
+
+鹏子化龙
+
+*****
+
+####  方舟失智博士  
+##### 40908#       发表于 2022-10-29 10:53
+
+还没隔音房？
+
+*****
+
+####  bishbashbosh  
+##### 40909#       发表于 2022-10-29 10:54
+
+who is Arteezy? in math: my solution ➗😁 in history: my king 👑😋 in art: my canvas 🎨🥳 in science: my oxygen 💨😳 in geography: my world 🌎🤯
+
+*****
+
+####  战狼PTSD  
+##### 40910#       发表于 2022-10-29 10:59
+
+这批站4K真的好卡啊，感觉是地区CDN问题，看虎牙和斗鱼的4K都不会卡
+
+*****
+
+####  yyf奇遇记  
+##### 40911#       发表于 2022-10-29 11:00
+
+主舞台开始放广告了
+
+*****
+
+####  zhliiiii  
+##### 40912#       发表于 2022-10-29 11:02
+
+<img src="https://p.sda1.dev/8/fb06175a1557e1ad6f4013e016b63e82/QQ%E5%9B%BE%E7%89%8720221029110057.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/8/d5da1e435e44a963933661211a6e84de/QQ%E5%9B%BE%E7%89%8720221029110106.jpg" referrerpolicy="no-referrer">
+
