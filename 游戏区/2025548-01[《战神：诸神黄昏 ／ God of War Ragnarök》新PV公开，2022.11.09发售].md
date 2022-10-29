@@ -8264,3 +8264,33 @@ Reddit上又一个有评测版游戏的人说他目前游戏时间是76小时，
 
 《奎爷跟儿子都没死 》剧透 
 
+
+
+*****
+
+####  nage560  
+##### 868#       发表于 2022-10-29 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58156757&amp;ptid=2025548" target="_blank">一个过路的 发表于 2022-10-29 04:49</a>
+
+对，这游戏可垃圾了。外网的消息都不可信，我建议你上S1论坛，看看这位中国玩家的真知灼见。
+
+ ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/29/091622pf6z5fbf6rbsnp4f.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221029091421.png</strong> (94.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 09:16 上传
+
+这位外国玩家您先别急着出警，我看的也是内网转外网的消息新闻。
+
+*****
+
+####  clover293  
+##### 869#       发表于 2022-10-29 09:21
+
+是哪里的剧透啊，reddit?
+

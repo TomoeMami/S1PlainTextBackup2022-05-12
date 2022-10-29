@@ -8262,3 +8262,23 @@ mea小姐在意狙击行为本身这种事情仿佛刚上网的娃娃没直播�
 
 主播玩了块十年了还是没什么本质上的变化只能说作为游戏玩家来说肯定是欠缺了什么的，尽管作为观众来说这种事一般没必要管也管不到，但主播上不去白金然后狂暴自闭也是种再放送罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clvan_  
+##### 12786#       发表于 2022-10-29 09:12
+
+我是觉得你麻打游戏压根就没多在乎过上分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+上次那白金死活上不去也没啥自闭，就是当下情绪兴致不高罢了，真分奴也不会像你麻这样打，这人纯粹是路径依赖，无论是她用那几个英雄还是打撸本身都是路径依赖。
+
+*****
+
+####  往世雷书  
+##### 12787#       发表于 2022-10-29 09:14
+
+打块不香吗，天天玩那受虐lol
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
