@@ -12793,3 +12793,12 @@ wiki看不懂日文可以对着装备数值去找
 为啥我打雪山的两个巨人，他们丢的雪球我一碰就死，这是有即死判定的吗？ ...</blockquote>
 这个bug 早修了 看更新日志 怎么现在还会即死
 
+
+
+*****
+
+####  Sannapolis  
+##### 1166#       发表于 2022-10-30 01:14
+
+本体的竞技场打完了，目前为止感觉最难的挑战任务是在第二章主线开始前打双皇连<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

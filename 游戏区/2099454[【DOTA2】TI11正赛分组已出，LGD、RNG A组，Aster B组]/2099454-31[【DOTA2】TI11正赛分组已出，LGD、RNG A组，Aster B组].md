@@ -2718,3 +2718,39 @@ maybe是这样，fy是这样。23458也逃不了 ​​​
 
 还好我是施暴者。
 
+
+
+*****
+
+####  jk9hot  
+##### 45314#       发表于 2022-10-30 01:13
+
+猴爹这种工具节奏2确实适合到🍵队
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  adretyu67  
+##### 45315#       发表于 2022-10-30 01:13
+
+嘻嘻，以前集美攻击A黑是“赢了一起狂，输了萧瑟抗。”
+
+现在谁抗还说不准<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 45316#       发表于 2022-10-30 01:14
+
+看了下第三把的输出 海民3w ck2w 这把是化神了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  银翼的维罗西  
+##### 45317#       发表于 2022-10-30 01:17
+
+什么情况，原来集美们真的会去微博私信骂人，也太乐了
+
+不过量子鞭对象也挺乐的，不是自称科比粉丝嘛，居然能被集美们骂哭了，憋了几天就憋出篇毫无内容的小作文，可太逗了
+
