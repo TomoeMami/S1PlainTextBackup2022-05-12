@@ -12673,3 +12673,12 @@ wiki看不懂日文可以对着装备数值去找
 宰相说好的犒劳士兵 结果老板娘还被留在了门外</blockquote>
 其实跟老板娘对话会提示你的，还算挺清晰的
 
+
+
+*****
+
+####  jbtc2224052  
+##### 1154#       发表于 2022-10-29 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">问下绿结晶在哪刷比较快，看了下日站，最高级的只有第七章的那个蝗虫，但也忒分散了
+
