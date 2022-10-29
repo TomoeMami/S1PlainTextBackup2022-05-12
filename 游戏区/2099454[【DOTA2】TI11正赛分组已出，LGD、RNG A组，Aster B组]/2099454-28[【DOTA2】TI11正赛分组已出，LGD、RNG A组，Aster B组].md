@@ -3018,3 +3018,21 @@ October 30, 2022
 
 #TI11##Dota2# ​​​
 
+
+
+*****
+
+####  resorry  
+##### 40817#       发表于 2022-10-29 07:53
+
+忘了，写在aster受难前5小时
+
+*****
+
+####  jk9hot  
+##### 40818#       发表于 2022-10-29 08:00
+
+早早睡觉，早早起床
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
