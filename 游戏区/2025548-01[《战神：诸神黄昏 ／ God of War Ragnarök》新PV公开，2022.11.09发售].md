@@ -8592,3 +8592,35 @@ reddit上各种截图满天飞了
 
 <img src="https://img.saraba1st.com/forum/202210/29/140029uuq87d12le1u1pui.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clover293  
+##### 901#       发表于 2022-10-29 14:05
+
+ 本帖最后由 clover293 于 2022-10-29 14:06 编辑 
+
+reddit的图可真是多
+
+*****
+
+####  clover293  
+##### 902#       发表于 2022-10-29 14:05
+
+boss战够了基本就可以了，前作想来就四个boss战。。。
+
+*****
+
+####  Kazepollar  
+##### 903#       发表于 2022-10-29 14:09
+
+能不能开个剧透楼给兄弟们尝尝鲜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  clover293  
+##### 904#       发表于 2022-10-29 14:11
+
+狼多开吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
