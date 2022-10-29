@@ -1296,3 +1296,17 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 —— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Piano-Forest  
+##### 722#         楼主| 发表于 2022-10-29 10:30
+
+『ウルトラマンデッカー』Blu-ray BOX店舗別購入特典デザイン決定！
+[https://m-78.jp/decker/news/post-34](https://m-78.jp/decker/news/post-34)
+<img src="https://p.sda1.dev/8/d29656d0c9cc3cdc65f9bd715ab152d2/20221029_102828.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/e7cc04f107bd0c4179709d03f5c92ce4/20221029_102830.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/9e9038e79f2066e5e99733bd7c635ede/20221029_102831.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2614ba3006b3bbeab48296beffde089f/20221029_102833.jpg" referrerpolicy="no-referrer">
+

@@ -3592,3 +3592,96 @@ SCCC有直播解说ti吗？现在还在上班</blockquote>
 
 写在茶队受难前两小时，其他的忘了
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 40881#       发表于 2022-10-29 10:23
+
+写在茶队受难前两小时，其他的忘了
+
+*****
+
+####  米德  
+##### 40882#       发表于 2022-10-29 10:23
+
+写在茶队受难前两小时，其他的忘了
+
+*****
+
+####  逃离二次元  
+##### 40883#       发表于 2022-10-29 10:24
+
+写在茶队受难前两小时，其他的忘了
+
+*****
+
+####  反方向的波  
+##### 40884#       发表于 2022-10-29 10:24
+
+现场好像也没有隔音房，给鳖孙一个公平报点机会
+
+*****
+
+####  少年游不游  
+##### 40885#       发表于 2022-10-29 10:27
+
+写在茶队受难前两小时，其他的忘了
+
+*****
+
+####  Keynes  
+##### 40886#       发表于 2022-10-29 10:30
+
+【【助力Aster】Monet与boboka 三只小掀背】 [https://www.bilibili.com/video/B ... 30be850103bce4ebdfb](https://www.bilibili.com/video/BV1E84y1i712/?share_source=copy_web&amp;vd_source=3478edae8369930be850103bce4ebdfb)
+
+*****
+
+####  Keynes  
+##### 40887#       发表于 2022-10-29 10:30
+
+写在茶队受难前两小时，其他的忘了
+
+*****
+
+####  tengshuo980  
+##### 40888#       发表于 2022-10-29 10:30
+
+<img src="https://img.saraba1st.com/forum/202210/29/103044rtslggsslpkizppm.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221029103018.png</strong> (18.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 10:30 上传
+
+*****
+
+####  战狼PTSD  
+##### 40889#       发表于 2022-10-29 10:30
+
+皮鞋不是抖音直播吗，网页能看不
+
+*****
+
+####  yyf奇遇记  
+##### 40890#       发表于 2022-10-29 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58158340&amp;ptid=2099454" target="_blank">战狼PTSD 发表于 2022-10-29 10:30</a>
+
+皮鞋不是抖音直播吗，网页能看不</blockquote>
+可以的
+
+
+
+*****
+
+####  战狼PTSD  
+##### 40891#       发表于 2022-10-29 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58158354&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-29 10:32</a>
+
+可以的</blockquote>
+来个链接，我抖音都没下过
+
