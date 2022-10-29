@@ -3685,3 +3685,57 @@ SCCC有直播解说ti吗？现在还在上班</blockquote>
 可以的</blockquote>
 来个链接，我抖音都没下过
 
+
+
+*****
+
+####  yyf奇遇记  
+##### 40892#       发表于 2022-10-29 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58158359&amp;ptid=2099454" target="_blank">战狼PTSD 发表于 2022-10-29 10:32</a>
+
+来个链接，我抖音都没下过</blockquote>
+[https://www.douyin.com/user/MS4w ... K_SiNu5K36szqgftU9c](https://www.douyin.com/user/MS4wLjABAAAAU4Wt66xcbJbBZhdvs4yetX5pK_SiNu5K36szqgftU9c)
+
+直播的时候边上有这个直播中点进去就可以了
+
+<img src="https://img.saraba1st.com/forum/202210/29/103503oqsz2a6il666daif.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221029103442.png</strong> (25.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 10:35 上传
+
+*****
+
+####  Kazepollar  
+##### 40893#       发表于 2022-10-29 10:35
+
+xbox上有抖音吗，想用主机看
+
+*****
+
+####  yyf奇遇记  
+##### 40894#       发表于 2022-10-29 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58158383&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-29 10:35</a>
+
+xbox上有抖音吗，想用主机看</blockquote>
+微软商店是有的
+
+<img src="https://img.saraba1st.com/forum/202210/29/103753wbj8nijz81oig7z8.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221029103737.png</strong> (58.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 10:37 上传
+
+*****
+
+####  上古TITAN  
+##### 40895#       发表于 2022-10-29 10:39
+
+写在茶队受难前两小时，其他的忘了
+
