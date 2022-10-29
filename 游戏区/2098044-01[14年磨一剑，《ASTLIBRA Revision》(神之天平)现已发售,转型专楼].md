@@ -12447,3 +12447,12 @@ wiki看不懂日文可以对着装备数值去找
 看着真不错，不知道这游戏有没有上switch的可能。。不然可以蹲一蹲switch上的，感觉很合适。 ...</blockquote>
 有打算上ns
 
+
+
+*****
+
+####  h33  
+##### 1132#       发表于 2022-10-29 15:01
+
+打完了好几天了，看了看楼里还有后院的石头，我又漏了啥嘛<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+

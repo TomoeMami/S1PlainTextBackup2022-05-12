@@ -3401,3 +3401,12 @@ htt ...</blockquote>
 [https://twitter.com/OhSrY9riIftzjmY/status/1585984207142105088](https://twitter.com/OhSrY9riIftzjmY/status/1585984207142105088)
 <img src="https://p.sda1.dev/8/04da5b13710a452c6a554435289eb4e4/20221029_123906.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  坐看风起云涌  
+##### 271#       发表于 2022-10-29 15:08
+
+太可惜了，op都骑脸了布女士还怎么输，环境比隔壁步女士好多了，起码不会被后辈狐狸精和热血笨蛋轮流偷家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
