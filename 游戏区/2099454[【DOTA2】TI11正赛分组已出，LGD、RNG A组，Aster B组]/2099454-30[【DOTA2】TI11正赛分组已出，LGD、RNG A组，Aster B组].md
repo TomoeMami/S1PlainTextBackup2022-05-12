@@ -6374,3 +6374,328 @@ tb太容易被拉扯这版本最差的站桩还不如火枪火女
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么精彩的比赛，漏油还在搬屎，用家乡人的话来说太KY了！
 
+
+
+*****
+
+####  米奥莉奈  
+##### 44358#       发表于 2022-10-29 19:33
+
+ 本帖最后由 米奥莉奈 于 2022-10-29 19:35 编辑 
+
+胜决泥公子和批九半斤八两吧，秘密靠34大爹，石头人靠13大爹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中单工具人都赢了
+
+*****
+
+####  mkong  
+##### 44359#       发表于 2022-10-29 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">瑞士鲁迅 我的超人！大锤就该这么玩啊
+
+*****
+
+####  cuisite  
+##### 44360#       发表于 2022-10-29 19:34
+
+a畜发挥确实逆天
+
+*****
+
+####  jk9hot  
+##### 44361#       发表于 2022-10-29 19:34
+
+冠军神盾目前背后11个格子只剩下一个位置
+
+第一个位置Puppey在上面
+
+最后一个位置Puppey不会也在上面吧
+
+*****
+
+####  哈曼的YY  
+##### 44362#       发表于 2022-10-29 19:35
+
+咬你就是两口！
+
+<img src="https://img.saraba1st.com/forum/202210/29/193455e0u2t220q0mlkom9.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (123.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 19:34 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/193502gilfid99qoyipqfi.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (119.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 19:35 上传
+
+*****
+
+####  walfeds  
+##### 44363#       发表于 2022-10-29 19:35
+
+会不会读空气，美丽dota不好看吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  夏溪澪mio  
+##### 44364#       发表于 2022-10-29 19:35
+
+不是有萧瑟哥哥专楼专门搬屎的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Horusddt  
+##### 44365#       发表于 2022-10-29 19:35
+
+所以zayac到底说了什么
+
+*****
+
+####  乃琳  
+##### 44366#       发表于 2022-10-29 19:35
+
+我觉得水晶这两把比nisha打得好啊
+
+*****
+
+####  WDDzzZ  
+##### 44367#       发表于 2022-10-29 19:36
+
+麻痹都这么吊，窝桶明天真要到点了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 44368#       发表于 2022-10-29 19:36
+
+死亡宣传片
+
+*****
+
+####  六娃  
+##### 44369#       发表于 2022-10-29 19:36
+
+tundra要第二轮出skiter英雄了，bp思路要变
+
+*****
+
+####  jk9hot  
+##### 44370#       发表于 2022-10-29 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58168979&amp;ptid=2099454" target="_blank">Horusddt 发表于 2022-10-29 19:35</a>
+
+所以zayac到底说了什么</blockquote>
+等明年真视界
+
+
+
+*****
+
+####  cuisite  
+##### 44371#       发表于 2022-10-29 19:37
+
+明天zai种要是请神，能请谁呢？
+
+*****
+
+####  BloodWingS  
+##### 44372#       发表于 2022-10-29 19:37
+
+ZAYAC怎么看着像在说C语言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 44373#       发表于 2022-10-29 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58168992&amp;ptid=2099454" target="_blank">WDDzzZ 发表于 2022-10-29 19:36</a>
+麻痹都这么吊，窝桶明天真要到点了</blockquote>
+液体打的就是个热血
+
+*****
+
+####  晚韶华  
+##### 44374#       发表于 2022-10-29 19:37
+
+小强太强了，一把跳刀就启动
+
+—— 来自 Xiaomi 22021211RC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  银月术士329  
+##### 44375#       发表于 2022-10-29 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我真不知道集美为什么这么能吹，么么憋顶多这次就发挥中规中矩
+
+能打到败者组第三轮不是输的队比他们问题更大？ bc后面2把操作都变形了
+
+*****
+
+####  六娃  
+##### 44376#       发表于 2022-10-29 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58169015&amp;ptid=2099454" target="_blank">cuisite 发表于 2022-10-29 19:37</a>
+明天zai种要是请神，能请谁呢？</blockquote>
+请到了去年的自己，送马桶回家，直接一个可敬
+
+*****
+
+####  ののワ  
+##### 44377#       发表于 2022-10-29 19:38
+
+nisha这两把明显有点小尿，真不比nine强哪去
+
+*****
+
+####  樱冢名月  
+##### 44378#       发表于 2022-10-29 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">液体不会明天打一把热血DOTA然后燃尽吧。
+
+*****
+
+####  nowaki  
+##### 44379#       发表于 2022-10-29 19:38
+
+哥们唇语10级说的是，放你爹小强，回家吃屎去吧
+
+*****
+
+####  jk9hot  
+##### 44380#       发表于 2022-10-29 19:38
+
+总决赛2:2最终局提前预演
+
+*****
+
+####  -SLSL-  
+##### 44381#       发表于 2022-10-29 19:38
+
+等明天zai种请个yyf抽烂妮们的脸<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 44382#       发表于 2022-10-29 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58169039&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-29 19:38</a>
+哥们唇语10级说的是，放你爹小强，回家吃屎去吧</blockquote>
+为什么我读的唇语是：my name is huliangzhi！
+
+*****
+
+####  nowaki  
+##### 44383#       发表于 2022-10-29 19:38
+
+批九还笑？
+
+*****
+
+####  反方向的波  
+##### 44384#       发表于 2022-10-29 19:39
+
+nidone第一局打到一半又不相信队友了，第二把还准备a杖孤独carry了不知道被谁按住了
+
+*****
+
+####  yyf奇遇记  
+##### 44385#       发表于 2022-10-29 19:39
+
+看不起？
+
+*****
+
+####  六娃  
+##### 44386#       发表于 2022-10-29 19:39
+
+tundra第一轮出3，第二轮出1，最后出2，bp才比较舒服，对面不会浪费ban位给批九的
+
+*****
+
+####  nowaki  
+##### 44387#       发表于 2022-10-29 19:40
+
+zai种请艹艹是玩火枪吗
+
+*****
+
+####  樱冢名月  
+##### 44388#       发表于 2022-10-29 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摇摆三号位小狗是吧，还是请神DS
+
+*****
+
+####  IG.430  
+##### 44389#       发表于 2022-10-29 19:40
+
+zai可以请神面八吧<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 44390#       发表于 2022-10-29 19:41
+
+哥们唇语30级，他说的是管人吃司马
+
+*****
+
+####  nowaki  
+##### 44391#       发表于 2022-10-29 19:41
+
+面八这种痔将，没用的
+
+*****
+
+####  haruhiismer  
+##### 44392#       发表于 2022-10-29 19:41
+
+nisha第一把不被锅出装没有羊刀晕锤也没有跳刀圣剑突出一个不背锅
+
+*****
+
+####  jk9hot  
+##### 44393#       发表于 2022-10-29 19:41
+
+zai请一下ti5的2000哥上身吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  非建政专用号  
+##### 44394#       发表于 2022-10-29 19:41
+
+请神大明鞭，明年润去和窝9一起打gg
+
+*****
+
+####  roxas.sora  
+##### 44395#       发表于 2022-10-29 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">液体现在瑟瑟发抖，这两队谁下来都是爹啊
+
+*****
+
+####  樱冢名月  
+##### 44396#       发表于 2022-10-29 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然掏出一手4号位炸弹是吧
+
+*****
+
+####  nightmare902015  
+##### 44397#       发表于 2022-10-29 19:42
+
+爱凌要不算了吧，怎么到了强强对抗就赢不了
+
