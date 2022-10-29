@@ -12600,3 +12600,12 @@ wiki看不懂日文可以对着装备数值去找
 我的话，由于打的中等难 ...</blockquote>
 我是武器摸全了去打眼球还是最后按的手疼，倒是没用雷杖。眼球boss算是我唯一一个手按的生疼的boss了，第一章都比不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bwsusaga  
+##### 1147#       发表于 2022-10-29 20:40
+
+这直播F话太多了，直接讲怎么用编辑器就好了，非要绘声绘色的详细描述他写的小故事
+

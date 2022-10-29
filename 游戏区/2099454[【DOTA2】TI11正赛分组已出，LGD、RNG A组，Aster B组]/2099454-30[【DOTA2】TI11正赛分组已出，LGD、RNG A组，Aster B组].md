@@ -8742,3 +8742,480 @@ zzwdjs（纯脚打）
 
 —— 来自 HUAWEI LYA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  roxas.sora  
+##### 44675#       发表于 2022-10-29 20:33
+
+这就是41混沌么，强
+
+*****
+
+####  超级柯南迷  
+##### 44676#       发表于 2022-10-29 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58170757&amp;ptid=2099454" target="_blank">CharlieZ- 发表于 2022-10-29 20:32</a>
+
+胜者组这两个，茶队和lgd任意一队来打能有四成胜率吗</blockquote>
+1-2成还是有的
+
+*****
+
+####  qty  
+##### 44677#       发表于 2022-10-29 20:33
+
+秘密最后一把这状态如果持续到明天看好把马桶送进决赛
+
+*****
+
+####  Crazy_Knife  
+##### 44678#       发表于 2022-10-29 20:33
+
+石头人抓机会是真的厉害，秘密还是得拿点有主动性的英雄
+
+*****
+
+####  TIZI  
+##### 44679#       发表于 2022-10-29 20:33
+
+三板斧节奏队打起来真的爽，有种cdec的感觉
+看败者组队伍能不能通过bp压制了，让批九的3个大爹拿到拿手英雄确实厉害
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  哈曼的YY  
+##### 44680#       发表于 2022-10-29 20:34
+
+九：认清自己是走向成功的第一步
+
+*****
+
+####  ml1642879  
+##### 44681#       发表于 2022-10-29 20:34
+
+Niko枪法输给了xyp9x
+
+*****
+
+####  反方向的波  
+##### 44682#       发表于 2022-10-29 20:34
+
+p9下场第一时间找到爹示以鼓励
+
+*****
+
+####  Horusddt  
+##### 44683#       发表于 2022-10-29 20:34
+
+西欧这么强，西欧预选人呢
+
+*****
+
+####  haruhiismer  
+##### 44684#       发表于 2022-10-29 20:34
+
+明天液体直接被大锤小强打爆还差不多
+
+*****
+
+####  一品堂官  
+##### 44685#       发表于 2022-10-29 20:34
+
+漏油没话题也要创造话题
+
+这也能黑蜜大战<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  BloodWingS  
+##### 44686#       发表于 2022-10-29 20:34
+
+窝一直都是小雪球啊
+
+*****
+
+####  iriyano  
+##### 44687#       发表于 2022-10-29 20:34
+
+9黑嗦话！妮懂性功能中单的含金量吗
+
+*****
+
+####  cuisite  
+##### 44688#       发表于 2022-10-29 20:34
+
+Niko枪法输给了xyp9x
+
+*****
+
+####  lycdemio  
+##### 44689#       发表于 2022-10-29 20:34
+
+我一直是小保安啊
+
+—— 来自 HUAWEI LYA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离二次元  
+##### 44690#       发表于 2022-10-29 20:34
+
+窝一直都是小雪球啊
+
+*****
+
+####  a1370303  
+##### 44691#       发表于 2022-10-29 20:35
+
+唉，石头老师教的pom，茶茶怎么就忘了呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  roxas.sora  
+##### 44692#       发表于 2022-10-29 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">尼公子真是尿了一地
+
+*****
+
+####  yyf奇遇记  
+##### 44693#       发表于 2022-10-29 20:35
+
+卜装了，dc7年老粉来了
+
+*****
+
+####  Sabbah  
+##### 44694#       发表于 2022-10-29 20:35
+
+窝一直都是小雪球啊
+
+*****
+
+####  端木恋心  
+##### 44695#       发表于 2022-10-29 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58170858&amp;ptid=2099454" target="_blank">cuisite 发表于 2022-10-29 20:34</a>
+
+Niko枪法输给了xyp9x</blockquote>
+你枪法强有用吗。你什么冠军啊。
+
+我9爷什么冠军啊。
+
+*****
+
+####  IG.430  
+##### 44696#       发表于 2022-10-29 20:35
+
+xyp9x冠军满身，反观niko
+
+*****
+
+####  winkle  
+##### 44697#       发表于 2022-10-29 20:35
+
+小酒杯upup <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 44698#       发表于 2022-10-29 20:35
+
+当小电锤的三个礼拜，受尽侮辱，当小雪球的三个小时，扬眉吐气
+
+*****
+
+####  subject07  
+##### 44699#       发表于 2022-10-29 20:35
+
+nisha也虾化了
+
+*****
+
+####  TIZI  
+##### 44700#       发表于 2022-10-29 20:36
+
+西欧这么厉害可惜entity和丁真软了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  cuisite  
+##### 44701#       发表于 2022-10-29 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58170894&amp;ptid=2099454" target="_blank">端木恋心 发表于 2022-10-29 20:35</a>
+
+你枪法强有用吗。你什么冠军啊。
+
+我9爷什么冠军啊。</blockquote>
+虾哥必威major冠军啊
+
+*****
+
+####  逃离二次元  
+##### 44702#       发表于 2022-10-29 20:36
+
+当小电锤的三个礼拜，受尽侮辱，当小雪球的三个小时，扬眉吐气
+
+*****
+
+####  nowaki  
+##### 44703#       发表于 2022-10-29 20:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丁真还行了吧，内战输液体不丢人
+
+*****
+
+####  六娃  
+##### 44704#       发表于 2022-10-29 20:36
+
+skiter41C应该彻底没有疑问了
+
+*****
+
+####  FBIwarning  
+##### 44705#       发表于 2022-10-29 20:37
+
+<img src="https://img.saraba1st.com/forum/202210/29/203644kyeizcyl77niecc3.jpg" referrerpolicy="no-referrer">
+
+<strong>1666517244216713.jpg</strong> (134.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 20:36 上传
+
+贴张<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 44706#       发表于 2022-10-29 20:37
+
+脑东京是不是该学一手功能性中单了
+
+*****
+
+####  qty  
+##### 44707#       发表于 2022-10-29 20:37
+
+20杀海民。。。
+
+*****
+
+####  反方向的波  
+##### 44708#       发表于 2022-10-29 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58170936&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-29 20:37</a>
+脑东京是不是该学一手功能性中单了</blockquote>
+阿灵顿major决赛第一把捞东京就是海民
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后果不其然输了
+
+*****
+
+####  a1370303  
+##### 44709#       发表于 2022-10-29 20:37
+
+等一手新英雄了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  yyf奇遇记  
+##### 44710#       发表于 2022-10-29 20:37
+
+dp又来尬的了，问选手这个问题？
+
+*****
+
+####  nowaki  
+##### 44711#       发表于 2022-10-29 20:38
+
+丁真的水人，sf预选赛把秘密当猪宰好吧，
+
+*****
+
+####  莉拉厨  
+##### 44712#       发表于 2022-10-29 20:38
+
+感觉不如萧瑟。。。英雄池，skiter这种抱住九神大腿躺的菜逼C位和11战10C的哥哥比还是差远了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 44713#       发表于 2022-10-29 20:38
+
+批九采访狂舔skiter
+
+*****
+
+####  人別離苦  
+##### 44714#       发表于 2022-10-29 20:38
+
+感觉不如萧瑟。。。英雄池，skiter这种抱住九神大腿躺的菜逼C位和11战10C的哥哥比还是差远了
+
+*****
+
+####  Litccc  
+##### 44715#       发表于 2022-10-29 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58170875&amp;ptid=2099454" target="_blank">a1370303 发表于 2022-10-29 20:35</a>
+
+唉，石头老师教的pom，茶茶怎么就忘了呢
+
+—— 来自 OnePlus LE2110, Android 12上的 S1Next-鹅版 v ...</blockquote>
+光学会pom也妹用啊，石头人这团战茶队学得来么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 44716#       发表于 2022-10-29 20:39
+
+批九采访狂舔skiter
+
+*****
+
+####  蛭人  
+##### 44717#       发表于 2022-10-29 20:39
+
+批九：skiter是我哥（爹）
+
+*****
+
+####  勤练带来力量  
+##### 44718#       发表于 2022-10-29 20:39
+
+当小电锤的三个礼拜，受尽侮辱，当小雪球的三个小时，扬眉吐气
+
+*****
+
+####  越动天下  
+##### 44719#       发表于 2022-10-29 20:39
+
+我仔细想想 感觉上来不管谁很难打石头人 中间不能犯一个失误 不然就是潮水的压制
+
+*****
+
+####  snarc1  
+##### 44720#       发表于 2022-10-29 20:39
+
+感觉不如萧瑟。。。英雄池，skiter这种抱住九神大腿躺的菜逼C位和11战10C的哥哥比还是差远了
+
+*****
+
+####  stefanie张  
+##### 44721#       发表于 2022-10-29 20:39
+
+这问题，甩锅版本了呗
+
+*****
+
+####  aruruu  
+##### 44722#       发表于 2022-10-29 20:39
+
+感觉秘密还是宙斯冰女选蛇了，脆皮小短腿，机动太差，土猫白给之后就被拉扯碎了
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  qty  
+##### 44723#       发表于 2022-10-29 20:40
+
+33奶了马桶一口
+
+*****
+
+####  nowaki  
+##### 44724#       发表于 2022-10-29 20:40
+
+丁真和他的动物朋友还是和臭鱼烂虾练蛇皮了
+
+*****
+
+####  六娃  
+##### 44725#       发表于 2022-10-29 20:40
+
+批九：skiter is my brother, I can do anything for him
+
+*****
+
+####  病少爷  
+##### 44726#       发表于 2022-10-29 20:41
+
+被一拳超人打烂咯<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈萨维·诺亚  
+##### 44727#       发表于 2022-10-29 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58171032&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-29 20:40</a>
+
+批九：skiter is my brother, I can do anything for him</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 44728#       发表于 2022-10-29 20:41
+
+感觉不如萧瑟。。。英雄池，skiter这种抱住九神大腿躺的菜逼C位和11战10C的哥哥比还是差远了
+
+*****
+
+####  端木恋心  
+##### 44729#       发表于 2022-10-29 20:41
+
+希望石头人明天在玩点不一样的。
+
+*****
+
+####  逃离二次元  
+##### 44730#       发表于 2022-10-29 20:42
+
+不愧是性功能中单<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  nowaki  
+##### 44731#       发表于 2022-10-29 20:42
+
+会三个英雄就能打ti了 漏油懂又不懂
+
+*****
+
+####  哈萨维·诺亚  
+##### 44732#       发表于 2022-10-29 20:42
+
+黑窝卡猴
+
+*****
+
+####  haruhiismer  
+##### 44733#       发表于 2022-10-29 20:42
+
+你知道的，xxx是我兄弟
+
+*****
+
+####  莉拉厨  
+##### 44734#       发表于 2022-10-29 20:43
+
+玩现在这些就能赢为什么要玩不一样的<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

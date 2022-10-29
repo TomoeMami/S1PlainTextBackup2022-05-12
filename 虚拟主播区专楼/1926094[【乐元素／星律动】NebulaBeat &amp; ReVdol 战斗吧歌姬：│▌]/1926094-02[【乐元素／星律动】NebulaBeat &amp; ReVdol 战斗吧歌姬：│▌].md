@@ -9195,3 +9195,47 @@ hhh 对第二个生日的执念XD 有的人过了三个 有的就....
 
 —— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2475#       发表于 2022-10-29 20:31
+
+把厂长漏沉默了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  ladiesman802  
+##### 2476#       发表于 2022-10-29 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58170164&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-10-29 20:14</a>
+
+卷卷在日本可以走脉冲星计划。但是卷卷同社的星奈铃快四个月才转生，感觉她们社内有要求多长时间内不能再做 ...</blockquote>
+可能也就一个月吧，其他时间不如说等l2d
+
+*****
+
+####  喜闻乐见  
+##### 2477#         楼主| 发表于 2022-10-29 20:37
+
+好朋友刚毕业是吧
+
+*****
+
+####  黄金鸡屁屁  
+##### 2478#       发表于 2022-10-29 20:38
+
+舞王组要来了？说是刚毕业的
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  kuriboh  
+##### 2479#       发表于 2022-10-29 20:39
+
+卷卷赶紧转生吧 每次点进去就被夹子劝退 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
