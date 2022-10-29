@@ -3438,3 +3438,40 @@ BD特典 木制收纳盒 螺丝刀 绘画版 劳保这DIY的BD送的特典是木
 
 <img src="https://img.saraba1st.com/forum/202210/29/185724wkqkdxstqtedsaxk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  水莲寺流歌  
+##### 273#       发表于 2022-10-29 19:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这可不好说啊，起码在入部之前布丁少不了被迫害
+
+{)[O9)G[9R@IX0@VYCF`BRJ.jpg
+(232.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 19:13 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/191345a3xnzane237ss2yy.jpg" referrerpolicy="no-referrer">
+
+7AMWVOQ_1]P0L5~E$A3KSAM.jpg
+(263.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 19:13 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/191350qtnrob1526sov2rr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  豚厨二象性  
+##### 274#       发表于 2022-10-29 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58168543&amp;ptid=1994951" target="_blank">水莲寺流歌 发表于 2022-10-29 19:17</a>
+
+这可不好说啊，起码在入部之前布丁少不了被迫害</blockquote>
+女士的传承，不过布丁应该用液压器……
+
