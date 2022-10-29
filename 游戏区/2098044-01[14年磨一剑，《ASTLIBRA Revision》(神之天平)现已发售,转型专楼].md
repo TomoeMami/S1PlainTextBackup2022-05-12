@@ -12618,3 +12618,27 @@ wiki看不懂日文可以对着装备数值去找
 
 后院饰品还加30幸运，早点拿到还是挺好用的
 
+
+
+*****
+
+####  朔洵千夜  
+##### 1149#       发表于 2022-10-29 21:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58170299&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-29 20:19</a>
+我是武器摸全了去打眼球还是最后按的手疼，倒是没用雷杖。眼球boss算是我唯一一个手按的生疼的boss了，第 ...</blockquote>
+第一章那真叫一个手疼兼怀疑自己又遇见数值崩坏作啊，水晶少连看boss体力都没装，硬生生按了快十分钟，后面包括屑群星在内再也没有比第一章boss还能给我带来绝望感的家伙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 1150#       发表于 2022-10-29 21:31
+
+ 本帖最后由 御坂MKII 于 2022-10-29 21:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第六章四个宝石不看攻略感觉很难全猜出来
+
+在想说好的犒劳士兵 结果老板娘还被留在了门外<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
