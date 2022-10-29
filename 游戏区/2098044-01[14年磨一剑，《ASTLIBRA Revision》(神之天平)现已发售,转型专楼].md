@@ -12759,3 +12759,25 @@ wiki看不懂日文可以对着装备数值去找
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  酒瓶止迁  
+##### 1163#       发表于 2022-10-30 00:52
+
+ 本帖最后由 酒瓶止迁 于 2022-10-30 00:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58175965&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-30 00:42</a>
+
+第八章三个机甲好不容易熬过去又来一个穿透的大机甲炮，直接给我心态打崩了，大家打这个都多少级，我43级中 ...</blockquote>
+你打得太快了，我五六十级平推的，中等难度下，先把前面所有东西都搜刮完买出来练好，基本上当前章节就能推得动了。
+
+*****
+
+####  何处分可  
+##### 1164#       发表于 2022-10-30 00:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58176098&amp;ptid=2098044" target="_blank">酒瓶止迁 发表于 2022-10-30 00:52</a>
+你打得太快了，我五六十级平推的，中等难度下，先把前面所有东西都搜刮完买出来练好，基本上当前章节就能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，我说我基本被机甲摸两下就死了，疯狂吃药才熬过三个机甲，被疯狂折磨，先去前面农成长盘和武器熟练度了
+
