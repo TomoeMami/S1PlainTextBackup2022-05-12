@@ -12730,3 +12730,14 @@ wiki看不懂日文可以对着装备数值去找
 
 为啥我打雪山的两个巨人，他们丢的雪球我一碰就死，这是有即死判定的吗？
 
+
+
+*****
+
+####  何处分可  
+##### 1160#       发表于 2022-10-30 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58175398&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-30 00:04</a>
+为啥我打雪山的两个巨人，他们丢的雪球我一碰就死，这是有即死判定的吗？ ...</blockquote>
+多段判定<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，挨3下一般就死了，可能就是呆2秒吧
+

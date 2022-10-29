@@ -9361,3 +9361,15 @@ hhh 对第二个生日的执念XD 有的人过了三个 有的就....
   -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
 我不知道，哪漏的
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2492#       发表于 2022-10-30 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58174944&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-10-29 23:38:33</a>
+我不知道，哪漏的</blockquote>叶子发的和厂长的聊天记录，被删的时候显示备注是王小土宇
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
