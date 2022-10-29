@@ -135,3 +135,17 @@ force开始都是赛博朋克的网络世界了，bullet是现实世界，电脑
 据说exagear可以安卓模拟pc端游戏，不知sky可不可行，主要sky有点大2CD+特典有十几G呢，怕hold不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 <img src="https://eccdn.geo-online.co.jp/ec_media_images/0014881-01.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  慕容断月  
+##### 729#       发表于 2022-10-29 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58156497&amp;ptid=2037739" target="_blank">Xenor 发表于 2022-10-29 02:28</a>
+
+怪不得，觉得bfe有点怪怪的，比起机甲更像义肢…但人设比起前作外表看着更分明
+
+据说exagear可以安卓模拟pc ...</blockquote>
+如果电脑是n卡也可以在家用moonlight串流，效果还是不错的
+
