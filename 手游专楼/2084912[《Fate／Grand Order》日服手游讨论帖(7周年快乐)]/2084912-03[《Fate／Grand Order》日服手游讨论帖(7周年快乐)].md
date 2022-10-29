@@ -3239,3 +3239,21 @@ C呆、妖精高文都復刻抽过，奥伯隆应该也快吧，留了500多石�
 
 模拟器试了好几个都更新不了，后来找到apkpure的能用，但自己去这网站下不知为啥又只能下到一个2.5M左右的文件<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  廖化  
+##### 3290#       发表于 2022-10-29 16:46
+
+商店连棋子都搬空了，狗粮溢出直接把大狗100级。
+
+虽然还有好多卡没练但是，向狗哥献上圣杯<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3291#       发表于 2022-10-29 16:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">更新不是点一下就好了吗  你们在说什么  还是说又是安卓特有的事情
+
