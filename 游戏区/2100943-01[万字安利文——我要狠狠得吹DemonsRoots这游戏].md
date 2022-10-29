@@ -30,3 +30,19 @@
 
 而且它的整体玩法可圈可点，慢慢开图的设计也很符合潮流，推起来会感觉很有趣，在我玩过的所有RPG里都算是优秀的。本来是当成黄油来推的，结果发现秒了大部分表界RPG。总之几个人能做出这种东西来真的很厉害。
 
+
+
+*****
+
+####  千里孤坟  
+##### 70#         楼主| 发表于 2022-10-29 14:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58162172&amp;ptid=2100943" target="_blank">wwbfred 发表于 2022-10-29 13:52</a>
+
+的确是个好游戏，考虑到它还是一个小团队开发的游戏更是如此。
+
+我倒是认为它的剧情不算是特别优秀的那种， ...</blockquote>
+剧情良莠程度肯定大家认识不同。不拖泥带水这个是小团体作品天然优势，暴打商业作品是太耍赖了。<img src="https://static.saraba1st.com/image/smiley/carton2017/096.gif" referrerpolicy="no-referrer">这作虽然快节奏但故事量也大，游玩过程里每一段的信息量都很充实，结合起来没有哪一方短板更可贵。
+
+鲨鱼这个隐藏boss有取巧打法，后面九团短暂作为NPC加入时去打，他可以单挑，10回合续一次修罗buff就行。
+

@@ -8653,3 +8653,17 @@ https://bbs.saraba1st.com/2b/thread-2102104-0-1.html
 四公主能玩吗
 能玩预购了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  clover293  
+##### 908#       发表于 2022-10-29 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58162793&amp;ptid=2025548" target="_blank">Lamas 发表于 2022-10-29 14:31</a>
+
+四公主能玩吗
+
+能玩预购了</blockquote>
+富哥好像玩的就是ps4版，据富哥说读取会比对马岛慢。而且是前面快后面慢
+
