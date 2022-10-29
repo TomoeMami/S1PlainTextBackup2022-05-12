@@ -3475,3 +3475,15 @@ BD特典 木制收纳盒 螺丝刀 绘画版 劳保这DIY的BD送的特典是木
 这可不好说啊，起码在入部之前布丁少不了被迫害</blockquote>
 女士的传承，不过布丁应该用液压器……
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 275#       发表于 2022-10-29 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58163446&amp;ptid=1994951" target="_blank">坐看风起云涌 发表于 2022-10-29 15:08</a>
+
+太可惜了，op都骑脸了布女士还怎么输，环境比隔壁步女士好多了，起码不会被后辈狐狸精和热血笨蛋轮流偷家[f ...</blockquote>
+家中红旗不倒，外面彩旗飘飘<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

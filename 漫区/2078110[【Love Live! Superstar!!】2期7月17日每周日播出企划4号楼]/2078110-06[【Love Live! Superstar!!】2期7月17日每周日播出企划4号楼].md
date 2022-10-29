@@ -14983,3 +14983,28 @@ A.「つらいときは目的が何なのか思い出す。
 
 看漫区提冬马、谷圣还有啥元英……唐可可22岁是不是还得选一次国籍
 
+
+
+*****
+
+####  saya1892  
+##### 8849#       发表于 2022-10-29 21:36
+
+推特上的，比拉板那个总结要好懂
+
+<img src="https://img.saraba1st.com/forum/202210/29/213623gr7jyyna1a1tizyp.jpg" referrerpolicy="no-referrer">
+
+<strong>4.jpg</strong> (224.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 21:36 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/213630p4zumuvuvphaujdz.jpg" referrerpolicy="no-referrer">
+
+<strong>5.jpg</strong> (223.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 21:36 上传
+

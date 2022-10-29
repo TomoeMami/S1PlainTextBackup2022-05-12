@@ -12642,3 +12642,12 @@ wiki看不懂日文可以对着装备数值去找
 
 —— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  quanlix  
+##### 1151#       发表于 2022-10-29 21:38
+
+终于全装备全凭依熟练了，去打终章boss
+
