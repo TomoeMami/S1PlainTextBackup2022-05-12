@@ -15019,3 +15019,25 @@ A.「つらいときは目的が何なのか思い出す。
 大意就是二期其实没那么不堪 要学会和解这样
 我也不懂是为什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 为什么要骗自己呢
 
+
+
+*****
+
+####  优妮可  
+##### 8851#       发表于 2022-10-29 22:18
+
+<blockquote>D麦林 发表于 2022-10-29 22:00
+说起来最近在推上看到好几篇文章 忘了是不是同一个人写的了
+
+大意就是二期其实没那么不堪 要学会和解这样
+
+我 ...</blockquote>
+跟喝酒一样麻痹自己？
+
+*****
+
+####  稀勢のささ  
+##### 8852#       发表于 2022-10-29 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我脑内把二期当不存在也是在骗自己啊
+

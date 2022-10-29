@@ -691,3 +691,188 @@ NGA的熊弟还是有幽默感
 
 明年冠超走了查猪卡卡xnova会不会也会跟着散了，RNG明年不会只剩鬼一个人了吧
 
+
+
+*****
+
+####  ml1642879  
+##### 45078#       发表于 2022-10-29 22:12
+
+111111，能换23457吗
+
+*****
+
+####  Cantha  
+##### 45079#       发表于 2022-10-29 22:12
+
+尼玛 又红字了 傻狗社
+
+*****
+
+####  yyf奇遇记  
+##### 45080#       发表于 2022-10-29 22:12
+
+不想去赌场这个解释真的很牵强，搞得我们哥哥是个赌狗一样。
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  反方向的波  
+##### 45081#       发表于 2022-10-29 22:13
+
+同时与畜为伍与殖为伍的下场是这样的
+
+*****
+
+####  nowaki  
+##### 45082#       发表于 2022-10-29 22:13
+
+集美最好追着网暴撸狗鞭一辈子，不知道他玉玉的时候会不会想到三个被他抛弃的队友<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  walfeds  
+##### 45083#       发表于 2022-10-29 22:13
+
+人生非常漫长，大家在日后都会碰到属于自己的ame，也祝愿大家在日后能碰到属于自己的234578吧
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  宫藤芳佳  
+##### 45084#       发表于 2022-10-29 22:15
+
+人生非常漫长，大家在日后都会碰到属于自己的ame，也祝愿大家在日后能碰到属于自己的234578吧
+
+*****
+
+####  逃离二次元  
+##### 45085#       发表于 2022-10-29 22:15
+
+突然发现king原来叫吴静君，原来一直叫错了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 45086#       发表于 2022-10-29 22:15
+
+V畜是不是只给dota 100w的容量啊？一到90w在线完全玩不了
+
+*****
+
+####  AME8年铁粉  
+##### 45087#       发表于 2022-10-29 22:18
+
+看集美天天在这造势ame想退了队友都在劝   意思是处长明年又准备再赖皮一年on more year？
+
+*****
+
+####  jk9hot  
+##### 45088#       发表于 2022-10-29 22:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58173252&amp;ptid=2099454" target="_blank">哈曼的YY 发表于 2022-10-29 22:10</a>
+
+平均25岁的老逼队卧槽 结果主舞台弹幕在感叹年轻人反应快
+
+国内老逼看到不是要继续赖了</blockquote>
+这届TI，只有秘密的1跟2是00后，剩下在场的全部是90后
+
+*****
+
+####  yyf奇遇记  
+##### 45089#       发表于 2022-10-29 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58173369&amp;ptid=2099454" target="_blank">Asukalangley33 发表于 2022-10-29 22:15</a>
+V畜是不是只给dota 100w的容量啊？一到90w在线完全玩不了</blockquote>
+是国服服务器不行
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  jk9hot  
+##### 45090#       发表于 2022-10-29 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58173299&amp;ptid=2099454" target="_blank">qty 发表于 2022-10-29 22:12</a>
+
+明年冠超走了查猪卡卡xnova会不会也会跟着散了，RNG明年不会只剩鬼一个人了吧 ...</blockquote>
+RNG这个俱乐部明年要寄了，老板没钱搞了。陈清也说过VG也准备寄了。
+
+国内剩下水厂晓菲跟XG老板搞了
+
+
+
+*****
+
+####  yyf奇遇记  
+##### 45091#       发表于 2022-10-29 22:20
+
+15至16年经常百万在线的，完美扣逼玩意肯定削减dota2的服务器了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  lanlv  
+##### 45092#       发表于 2022-10-29 22:20
+
+休赛那几天没看这楼，bian是有啥大节奏，哪位好心指路个总结？
+
+*****
+
+####  nowaki  
+##### 45093#       发表于 2022-10-29 22:21
+
+撸狗鞭还是书读少了，魁梧姐不看真正的推理大师，逻辑思维也不行。
+
+为什么你撸狗鞭会被清算会被造谣，因为水厂要找个人背锅，那你怎么出来解释都是越描越黑，因为水厂会继续抹黑你。根源在水厂不能让摇钱树ame背锅，那他肯定要牺牲你这个跑路的。
+
+撸狗鞭想不被网暴就两条路
+
+1.跪着求ame给你发一条微博，别扯了 鞭哥没问题就行。当然这个比较难，考虑到ame没啥人性，他应该觉得自己带你躺了两年啥也不欠会继续装死。
+
+2直接和水厂正面开撕，你在水厂呆了两年，手里料多得狠，是个硬骨头水厂自然不敢泼脏水了，看看赛垃圾烂命一条，水厂就不敢惹。
+
+*****
+
+####  yyf奇遇记  
+##### 45094#       发表于 2022-10-29 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58173475&amp;ptid=2099454" target="_blank">lanlv 发表于 2022-10-29 22:20</a>
+休赛那几天没看这楼，bian是有啥大节奏，哪位好心指路个总结？</blockquote>
+nga经典造谣而已 没啥别的节奏
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  qty  
+##### 45095#       发表于 2022-10-29 22:22
+
+<blockquote>jk9hot 发表于 2022-10-29 22:19
+RNG这个俱乐部明年要寄了，老板没钱搞了。陈清也说过VG也准备寄了。
+
+国内剩下水厂晓菲跟XG老板搞了
+
+ ...</blockquote>
+那希望鬼找个好下家吧，这届TI看下来还是相对比较看好鬼的潜力的，感觉比鹏子要靠谱
+
+*****
+
+####  isla  
+##### 45096#       发表于 2022-10-29 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58173475&amp;ptid=2099454" target="_blank">lanlv 发表于 2022-10-29 22:20:33</a>
+休赛那几天没看这楼，bian是有啥大节奏，哪位好心指路个总结？</blockquote>指路隔壁泥潭，有很多专贴
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  非建政专用号  
+##### 45097#       发表于 2022-10-29 22:22
+
+赛垃圾是烂命一条，量子鞭卜是阿
+

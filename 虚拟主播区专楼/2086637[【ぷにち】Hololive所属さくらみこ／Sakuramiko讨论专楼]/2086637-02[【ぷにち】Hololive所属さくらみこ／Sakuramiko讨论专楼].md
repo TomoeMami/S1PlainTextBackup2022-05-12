@@ -12205,3 +12205,23 @@ customcast捏的免费形象
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">选的什么老片,让我好找
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2672#       发表于 2022-10-29 22:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还不如像以前那样看b级片，看你吐槽还热闹些。
+
+难怪了，老妈推荐的，什么老片。
+
+*****
+
+####  holoan  
+##### 2673#         楼主| 发表于 2022-10-29 22:16
+
+这家人一点不像日本人的喜好
+
+什么玩意
+
