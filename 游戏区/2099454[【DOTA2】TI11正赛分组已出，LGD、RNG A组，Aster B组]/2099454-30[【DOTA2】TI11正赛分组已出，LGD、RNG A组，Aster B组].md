@@ -3541,3 +3541,289 @@ skiter要没英雄玩了<img src="https://static.saraba1st.com/image/smiley/face
 
 现在发条还能中么？还是出紫苑？
 
+
+
+*****
+
+####  夏溪澪mio  
+##### 43975#       发表于 2022-10-29 18:33
+
+这版本还是要小技能多能甩技能的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+版本答案就是刀塔大乱斗
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  吉诺爱比利  
+##### 43976#       发表于 2022-10-29 18:34
+
+该选小黑了
+
+*****
+
+####  Imanmi  
+##### 43977#       发表于 2022-10-29 18:34
+
+批9这兽，到头了
+
+*****
+
+####  战狼PTSD  
+##### 43978#       发表于 2022-10-29 18:34
+
+紫苑改配方后打中出挺好玩的，很有过去6级游走中单的感觉
+
+不过线劣的话就打不出来了
+
+*****
+
+####  樱冢名月  
+##### 43979#       发表于 2022-10-29 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">41C要被ban完了。
+
+*****
+
+####  六娃  
+##### 43980#       发表于 2022-10-29 18:34
+
+过于尊重skiter了
+
+
+
+*****
+
+####  哈曼的YY  
+##### 43981#       发表于 2022-10-29 18:34
+
+大锤加滚滚 死灵龙难受了啊
+
+*****
+
+####  walfeds  
+##### 43982#       发表于 2022-10-29 18:34
+
+尊重<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六娃  
+##### 43983#       发表于 2022-10-29 18:34
+
+骷髅王拍拍了
+
+*****
+
+####  樱冢名月  
+##### 43984#       发表于 2022-10-29 18:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接ban5个是吧
+
+*****
+
+####  反方向的波  
+##### 43985#       发表于 2022-10-29 18:35
+
+坏了坏了，p9的二爹没东西玩了
+
+*****
+
+####  yyf奇遇记  
+##### 43986#       发表于 2022-10-29 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58167665&amp;ptid=2099454" target="_blank">战狼PTSD 发表于 2022-10-29 18:34</a>
+紫苑改配方后打中出挺好玩的，很有过去6级游走中单的感觉
+
+不过线劣的话就打不出来了 ...</blockquote>
+中出是吧
+
+*****
+
+####  人別離苦  
+##### 43987#       发表于 2022-10-29 18:36
+
+全ban了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 43988#       发表于 2022-10-29 18:36
+
+把对标遮住像在打bc<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 43989#       发表于 2022-10-29 18:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">TB何意啊
+
+*****
+
+####  cuisite  
+##### 43990#       发表于 2022-10-29 18:36
+
+tb这英雄真的很蠢啊
+
+*****
+
+####  -SLSL-  
+##### 43991#       发表于 2022-10-29 18:36
+
+哇，尼公子玩滚滚了
+
+*****
+
+####  六娃  
+##### 43992#       发表于 2022-10-29 18:36
+
+这把秘密太舒服了，bp七三开
+
+*****
+
+####  北条早苗  
+##### 43993#       发表于 2022-10-29 18:36
+
+tb这完全不搭
+
+*****
+
+####  jk9hot  
+##### 43994#       发表于 2022-10-29 18:37
+
+小黑典中典
+
+*****
+
+####  哈曼的YY  
+##### 43995#       发表于 2022-10-29 18:37
+
+难不成能教其他队玩tb？
+
+*****
+
+####  walfeds  
+##### 43996#       发表于 2022-10-29 18:37
+
+感觉可以g3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  樱冢名月  
+##### 43997#       发表于 2022-10-29 18:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是了，这TB真的有点不行。
+
+*****
+
+####  苏沃雷生  
+##### 43998#       发表于 2022-10-29 18:37
+
+我觉得小黑不好发挥啊
+
+*****
+
+####  winkle  
+##### 43999#       发表于 2022-10-29 18:38
+
+看好秘密阵容
+
+*****
+
+####  iceplatinum  
+##### 44000#       发表于 2022-10-29 18:38
+
+33太惨了。。。这局估计要被打碎
+
+*****
+
+####  cuisite  
+##### 44001#       发表于 2022-10-29 18:38
+
+这把看尼公子了，舞台无限大啊
+
+*****
+
+####  Ilyichist  
+##### 44002#       发表于 2022-10-29 18:39
+
+ni公子滚滚都有3k场的？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  yyf奇遇记  
+##### 44003#       发表于 2022-10-29 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58167763&amp;ptid=2099454" target="_blank">Ilyichist 发表于 2022-10-29 18:39</a>
+ni公子滚滚都有3k场的？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+真的假的，滚滚出来就5年 每年600场
+
+*****
+
+####  IG.430  
+##### 44004#       发表于 2022-10-29 18:40
+
+怎么可能3k场
+
+*****
+
+####  六娃  
+##### 44005#       发表于 2022-10-29 18:40
+
+滚滚打大畜是劣势对线，看批九表演了
+
+*****
+
+####  winkle  
+##### 44006#       发表于 2022-10-29 18:40
+
+以前的nisha滚滚挺下饭的
+
+*****
+
+####  樱冢名月  
+##### 44007#       发表于 2022-10-29 18:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这被读烂了。
+
+*****
+
+####  walfeds  
+##### 44008#       发表于 2022-10-29 18:41
+
+谁这么牛逼一个英雄打三千场的
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 44009#       发表于 2022-10-29 18:42
+
+曾焦阳看一下，人家这畜（dota2英雄）前两级就有一级咤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  樱冢名月  
+##### 44010#       发表于 2022-10-29 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道批⑨把ni公子打上轮椅？
+
+
+
+*****
+
+####  哈曼的YY  
+##### 44011#       发表于 2022-10-29 18:43
+
+ban了大爹的绝活 针对二爹的绝活 剩下看批九表演
+

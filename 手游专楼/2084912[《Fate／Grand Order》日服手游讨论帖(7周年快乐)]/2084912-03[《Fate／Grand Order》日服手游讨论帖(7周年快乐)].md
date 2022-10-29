@@ -3295,3 +3295,51 @@ C呆、妖精高文都復刻抽过，奥伯隆应该也快吧，留了500多石�
 我TMD只是想抽个C元帅过个幕间和强化本</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该死的欧洲人天天晒　可怕
 
+
+
+*****
+
+####  qixinno2  
+##### 3295#       发表于 2022-10-29 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58167556&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-29 18:29</a>
+
+该死的欧洲人天天晒　可怕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD我不想的 我真的只想抽个C元帅啊
+
+*****
+
+####  alucardcz  
+##### 3296#       发表于 2022-10-29 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58167621&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-29 18:32</a>
+
+TMD我不想的 我真的只想抽个C元帅啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧洲人晒个卡还要找借口　丢人的
+
+*****
+
+####  qixinno2  
+##### 3297#       发表于 2022-10-29 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58167634&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-29 18:33</a>
+
+欧洲人晒个卡还要找借口　丢人的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">但我真的以前把C元帅卖了啊
+
+<img src="https://img.saraba1st.com/forum/202210/29/183802ev1virf3wfd1viwq.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (90.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 18:38 上传
+
+<img src="https://img.saraba1st.com/forum/202210/29/183824zvc4vkal6rragoo4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-29 18:38 上传
+

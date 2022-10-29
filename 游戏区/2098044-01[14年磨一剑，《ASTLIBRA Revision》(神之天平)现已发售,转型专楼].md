@@ -12552,3 +12552,24 @@ wiki看不懂日文可以对着装备数值去找
 后院是石头能打掉？我还以为是用来测伤害的</blockquote>
 上下100W血，建议终章硬刮或者新章开强化后再打，反正就给个钱掉落1.3倍徽章
 
+
+
+*****
+
+####  朔洵千夜  
+##### 1143#       发表于 2022-10-29 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58165990&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-10-29 17:10</a>
+这游戏BOSS怎么打啊，第一个火龙BOSS我打了7分钟手都按疼了BOSS都没死，这还是中等难度 ...</blockquote>
+后面就好多了，如果什么攻略都没看第一个boss打七分钟差不多是正常情况吧，因为第一章啥靠谱技能都还没点出来，再没有注意刷图纸武器的话，可不就打成七分钟了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何处分可  
+##### 1144#       发表于 2022-10-29 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58167745&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-29 18:38</a>
+
+后面就好多了，如果什么攻略都没看第一个boss打七分钟差不多是正常情况吧，因为第一章啥靠谱技能都还没点 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是忘记第三章魔王也是折磨怪
+
