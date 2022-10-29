@@ -2088,3 +2088,17 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 看完了。感觉就是没把握住次。感觉就是看痞子的新G讽刺政治火了后自己也想来搞一把。结果就是嗯逢了一堆却完全忽视对故事和逻辑的影响搞得整部片子显得不伦不类。首相和戈尔戈姆简直重灾区，最后女主把首相搞下台有多轻松，戈尔戈姆就有多小丑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。比鲁基尼亚更是顶级迷惑人，当狗当的彻底，跳反也跳反的彻底。编剧是不是写到后面就把前面写过的东西忘光了？主要反派整得这么迷惑，连带着影月和光太郎一起变得迷惑了。全剧看下来反而一眼小丑役预定的女主最正常
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 190#       发表于 2022-10-29 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58156933&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-10-29 07:20</a>
+
+日本观众用行动说话把EVOLUTION这玩意打成了狗尾续貂，顺便相比起国内人喜欢尬吹平成赛文，日本那 ...</blockquote>
+我觉得平成赛文的非主线回都不错<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+日常写的挺有意思的
+

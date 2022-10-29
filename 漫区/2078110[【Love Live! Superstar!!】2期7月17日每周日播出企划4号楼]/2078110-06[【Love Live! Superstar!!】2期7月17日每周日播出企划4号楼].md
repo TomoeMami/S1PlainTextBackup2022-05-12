@@ -15067,3 +15067,21 @@ A.「つらいときは目的が何なのか思い出す。
 我 ...</blockquote>
 冈达都有人拥护，星2有也不奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8855#       发表于 2022-10-29 22:35
+
+不是很懂这些自我麻痹的，我复盘过星一到星二的全部剧情，得出的结论是星从s1e7开始就乱套了，二期整个剧情框架都有大问题
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 8856#       发表于 2022-10-29 22:36
+
+淘宝150的套头衫
+
