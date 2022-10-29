@@ -8636,3 +8636,20 @@ boss战够了基本就可以了，前作想来就四个boss战。。。
 开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家要不移步讨论?
 https://bbs.saraba1st.com/2b/thread-2102104-0-1.html
 
+
+
+*****
+
+####  SergeGlenn  
+##### 906#       发表于 2022-10-29 14:30
+
+还有不到两周，这就得断网了。。。
+
+*****
+
+####  Lamas  
+##### 907#       发表于 2022-10-29 14:31
+
+四公主能玩吗
+能玩预购了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
