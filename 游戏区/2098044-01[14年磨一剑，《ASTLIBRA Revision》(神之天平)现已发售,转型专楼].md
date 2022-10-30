@@ -12953,3 +12953,25 @@ wiki看不懂日文可以对着装备数值去找
 
 食材应该怎么刷，目前在终章开始，刷砂糖已经屠了研究所十几遍了，一个都没，顶不住了，终章后面可以买吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tsubaki  
+##### 1181#       发表于 2022-10-30 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181816&amp;ptid=2098044" target="_blank">Gwyndolin 发表于 2022-10-30 12:20</a>
+
+食材应该怎么刷，目前在终章开始，刷砂糖已经屠了研究所十几遍了，一个都没，顶不住了，终章后面可以买吗[f ...</blockquote>
+面包房果酱面包分解
+
+*****
+
+####  black1991518  
+##### 1182#       发表于 2022-10-30 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181717&amp;ptid=2098044" target="_blank">thorn.Q 发表于 2022-10-30 12:15</a>
+
+开了最终迷宫以后 可以直接用世界树露滴传送过去</blockquote>
+太感谢了
+
