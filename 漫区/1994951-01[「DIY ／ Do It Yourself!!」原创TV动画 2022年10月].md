@@ -3509,3 +3509,15 @@ BD特典 木制收纳盒 螺丝刀 绘画版 劳保这DIY的BD送的特典是木
 
 演出很讲究，流畅自然。
 
+
+
+*****
+
+####  最强惠酱  
+##### 278#       发表于 2022-10-30 22:28
+
+好多炫技的作画，细想下这片的近未来幻想有点恐怖，家里ai机器人天天跟你推销付费新os，门锁电脑轻松破解，好危险啊！！！
+女主试着性转幻想下就是我最讨厌的天天不知道想啥，明明是布丁做的东西当成自己送给布丁礼物的天然渣男，苦了布丁女士，相处久了居然能读到女主想什么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -16,3 +16,16 @@
 
 没有风巫妖恐怕将要度过失败的风团人声了
 
+
+
+*****
+
+####  Sylpheed  
+##### 17139#       发表于 2022-10-30 22:23
+
+风盘子是这样的，永远低人一等
+下一样的本钱做个拳盘还要被懂哥指指点点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+得亏俩10分还够顶，不然早都跟暗一样遮羞布了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
