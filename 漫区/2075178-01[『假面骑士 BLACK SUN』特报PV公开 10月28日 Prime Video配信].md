@@ -2284,3 +2284,15 @@ dlc罢了
 
 白瞎了这么帅的演员和皮套
 
+
+
+*****
+
+####  谁说法海不懂爱  
+##### 208#       发表于 2022-10-30 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58183576&amp;ptid=2075178" target="_blank">lunaticfear 发表于 2022-10-30 14:02</a>
+
+尼玛，当初粽子剧场版那个&amp;#x5 ...</blockquote>
+还是别了吧，这片为了那点映射，怪人弱得普遍怕GUN,强度还不如粽子。
+
