@@ -945,3 +945,12 @@ mark，无中文苦手，求推荐有中文的推理adv
 —— 来自 S1Fun ...</blockquote>
 片假名不需要全认识，我n1过了好多年啃了无数生肉AVG了这标题我不查字典一样不认识<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Retro_Gamer  
+##### 86#       发表于 2022-10-30 09:45
+
+不会日语太遗憾了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">看起来很符合我的口味
+

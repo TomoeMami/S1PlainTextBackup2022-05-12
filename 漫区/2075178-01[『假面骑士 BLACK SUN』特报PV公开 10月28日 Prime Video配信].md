@@ -2199,3 +2199,14 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 浪费时间浪费皮套，这片最大的意义在于战斗集锦，全篇400分钟我怀疑正经的战斗场景加起来有没有20分钟都难说，blacksun几乎跳脱剧情之外只管打斗，其他内容知道最后的意义不明，讲了等于白讲，思想还歪的不行，那个警察开头放怪人逃走后面不知道哪里有这么强的动机去杀女主，这点描述都没有还花超长的篇幅去拍远景拍风景，看来中山龙追求的日本真人电影估计就这个水平，还不如学藤井树多看点欧美烂片，起码不会无聊
 
+
+
+*****
+
+####  leitingkai  
+##### 200#       发表于 2022-10-30 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58147406&amp;ptid=2075178" target="_blank">NZ-333 发表于 2022-10-28 16:52</a>
+呃呃了，真的不想看养女儿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么要两个号都批判一次
+

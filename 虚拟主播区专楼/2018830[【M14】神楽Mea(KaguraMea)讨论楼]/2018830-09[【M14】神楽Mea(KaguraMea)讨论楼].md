@@ -8351,3 +8351,25 @@ b站官组肯定放不出来的。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12793#       发表于 2022-10-30 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58178702&amp;ptid=2018830" target="_blank">pei23333 发表于 2022-10-30 08:54</a>
+
+害搁哪官组呢，人都两天没消息了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+人不必担心……
+
+<img src="https://img.saraba1st.com/forum/202210/30/094914ora5lq4r2a55c6r4.jpg" referrerpolicy="no-referrer">
+
+<strong>360截图20221030094755771.jpg</strong> (15.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 09:49 上传
+
