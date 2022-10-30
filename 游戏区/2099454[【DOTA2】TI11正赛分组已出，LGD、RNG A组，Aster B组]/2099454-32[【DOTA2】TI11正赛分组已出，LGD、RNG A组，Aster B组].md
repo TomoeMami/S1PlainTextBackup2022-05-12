@@ -6037,3 +6037,436 @@ zsmj要是懂游戏怎么赢，就不会一届TI都没进过正赛了。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  王宇旻❤潘婕  
+##### 47296#       发表于 2022-10-30 18:31
+
+<img src="https://img.saraba1st.com/forum/202210/30/183055rr9eerti2iffei1a.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221030_183036_tv.danmaku.bili.jpg</strong> (166.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 18:30 上传
+
+徐林森和胡良智音容宛在
+
+*****
+
+####  蛭人  
+##### 47297#       发表于 2022-10-30 18:31
+
+很难想象，斯洛伐克宋淳采阴补阳，而乌克兰SCCC已经只会戏来了。
+
+*****
+
+####  yyf奇遇记  
+##### 47298#       发表于 2022-10-30 18:31
+
+左手摸🐔又在说什么批话，小组赛没看过就来当解说吗，居然说骑哥没存在感
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nowaki  
+##### 47299#       发表于 2022-10-30 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛西也要放吗
+
+*****
+
+####  逃离二次元  
+##### 47300#       发表于 2022-10-30 18:32
+
+就，就老鹿
+
+*****
+
+####  逃离二次元  
+##### 47301#       发表于 2022-10-30 18:33
+
+哇，一定要抢海民啊
+
+*****
+
+####  蛭人  
+##### 47302#       发表于 2022-10-30 18:33
+
+很喜欢老鼠台水友的一句话，3-0 EZ。
+
+*****
+
+####  winkle  
+##### 47303#       发表于 2022-10-30 18:33
+
+notail 和 ceb跑到解说席了啊
+
+*****
+
+####  nowaki  
+##### 47304#       发表于 2022-10-30 18:33
+
+真抢海民啊
+
+*****
+
+####  yyf奇遇记  
+##### 47305#       发表于 2022-10-30 18:33
+
+这手海民拿的很好
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  莉拉厨  
+##### 47306#       发表于 2022-10-30 18:33
+
+拳酱理解和zsmj一样，要遭重了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 47307#       发表于 2022-10-30 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189758&amp;ptid=2099454" target="_blank">winkle 发表于 2022-10-30 18:33</a>
+notail 和 ceb跑到解说席了啊</blockquote>
+去年就上过分析台了吧
+
+*****
+
+####  Urakawa  
+##### 47308#       发表于 2022-10-30 18:33
+
+真抢海民了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  外挂全家脚气  
+##### 47309#       发表于 2022-10-30 18:33
+
+<img src="https://img.saraba1st.com/forum/202210/30/183302maoocboclnya0obr.jpg" referrerpolicy="no-referrer">
+
+<strong>8xQ0-bgb9ZcT1kSfl-84.jpg</strong> (67.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 18:33 上传
+
+税前120+100<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cuisite  
+##### 47310#       发表于 2022-10-30 18:33
+
+意思要搞我批九
+
+
+
+*****
+
+####  六娃  
+##### 47311#       发表于 2022-10-30 18:34
+
+33爹决定让他的死灵龙在ti决赛上场一下
+
+*****
+
+####  adretyu67  
+##### 47312#       发表于 2022-10-30 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189529&amp;ptid=2099454" target="_blank">安子醬 发表于 2022-10-30 18:23</a>
+
+这次TI是不是第一次能有之前的亚军选手晋升成冠军?</blockquote>
+kky：你问我？
+
+*****
+
+####  枯风瘦雪02  
+##### 47313#       发表于 2022-10-30 18:35
+
+还好吧 秘密的四号位海民本来玩的也不错
+
+*****
+
+####  DarthAka  
+##### 47314#       发表于 2022-10-30 18:35
+
+老鹿能转三，先拿了看呗
+
+*****
+
+####  qty  
+##### 47315#       发表于 2022-10-30 18:35
+
+<blockquote>枯风瘦雪02 发表于 2022-10-30 18:25
+快速秒人（最好是ni公子用），这不是点名lina</blockquote>
+其实我觉得斧王说不定可以，石头人好多次都是差一丝血就杀掉的时候被队友（主要是p9）极限保住了，斧王应该也能一定程度上打乱他们的节奏，降低互保的效率。
+
+*****
+
+####  asd235614  
+##### 47316#       发表于 2022-10-30 18:35
+
+批九我记得是不是还一手滚滚，当时DPC有一阵就正手滚滚反手紫猫来回抛硬币，这ban血魔感觉是想拿
+
+*****
+
+####  六娃  
+##### 47317#       发表于 2022-10-30 18:35
+
+不ban小鱼我建议直接拿
+
+*****
+
+####  Horusddt  
+##### 47318#       发表于 2022-10-30 18:35
+
+这把给了秘密ban光skiter的机会啊
+
+*****
+
+####  winkle  
+##### 47319#       发表于 2022-10-30 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189771&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-30 18:33</a>
+
+去年就上过分析台了吧</blockquote>
+没注意。去年印象中看到了iNSaNiA 和鲁迅
+
+*****
+
+####  yyf奇遇记  
+##### 47320#       发表于 2022-10-30 18:35
+
+土娟能不能找根jb含一下，别开腔了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  越动天下  
+##### 47321#       发表于 2022-10-30 18:36
+
+石头人这是不是露娜了 奥 没了
+
+*****
+
+####  蛭人  
+##### 47322#       发表于 2022-10-30 18:36
+
+老鼠台双冠分析解说不香吗？
+
+*****
+
+####  越动天下  
+##### 47323#       发表于 2022-10-30 18:37
+
+陈来了
+
+*****
+
+####  哈曼的YY  
+##### 47324#       发表于 2022-10-30 18:38
+
+死灵龙能不能出个a扫图奖励自己一把 别工具人来了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  逃离二次元  
+##### 47325#       发表于 2022-10-30 18:38
+
+裹尸布
+
+*****
+
+####  snarc1  
+##### 47326#       发表于 2022-10-30 18:38
+
+绝中绝来了
+
+*****
+
+####  外挂全家脚气  
+##### 47327#       发表于 2022-10-30 18:38
+
+这把秘密要是再输是不是要直接投降了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 47328#       发表于 2022-10-30 18:38
+
+冰女打chen不是打崽
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  逃离二次元  
+##### 47329#       发表于 2022-10-30 18:38
+
+斯宋的ck！
+
+*****
+
+####  六娃  
+##### 47330#       发表于 2022-10-30 18:38
+
+笑死，自信老陈被凤凰克死
+
+*****
+
+####  端木恋心  
+##### 47331#       发表于 2022-10-30 18:38
+
+骑哥来了
+
+*****
+
+####  yyf奇遇记  
+##### 47332#       发表于 2022-10-30 18:39
+
+凤凰还行吧
+
+*****
+
+####  snarc1  
+##### 47333#       发表于 2022-10-30 18:39
+
+凤凰淘汰赛第一次出吧
+
+*****
+
+####  nowaki  
+##### 47334#       发表于 2022-10-30 18:39
+
+ppy脸都歪了
+
+*****
+
+####  乃琳  
+##### 47335#       发表于 2022-10-30 18:39
+
+是中单凤凰吗😧
+
+*****
+
+####  越动天下  
+##### 47336#       发表于 2022-10-30 18:39
+
+凤凰肯定可以呀 五号位呀
+
+*****
+
+####  nowaki  
+##### 47337#       发表于 2022-10-30 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189879&amp;ptid=2099454" target="_blank">snarc1 发表于 2022-10-30 18:39</a>
+
+凤凰淘汰赛第一次出吧</blockquote>
+boom打lgd玩过
+
+*****
+
+####  乃琳  
+##### 47338#       发表于 2022-10-30 18:39
+
+<blockquote>snarc1 发表于 2022-10-30 18:39
+凤凰淘汰赛第一次出吧</blockquote>
+boom打lgd就选了
+
+*****
+
+####  yyf奇遇记  
+##### 47339#       发表于 2022-10-30 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189879&amp;ptid=2099454" target="_blank">snarc1 发表于 2022-10-30 18:39</a>
+凤凰淘汰赛第一次出吧</blockquote>
+boom玩过 被lgd送走了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wzy200912345  
+##### 47340#       发表于 2022-10-30 18:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚被能打得起来么
+
+
+
+*****
+
+####  Horusddt  
+##### 47341#       发表于 2022-10-30 18:40
+
+中单凤凰打老鹿不是喝汤吗
+
+*****
+
+####  tengshuo980  
+##### 47342#       发表于 2022-10-30 18:40
+
+一号位刚被？
+
+*****
+
+####  逃离二次元  
+##### 47343#       发表于 2022-10-30 18:40
+
+boom打lgd，国师给fbz点了一首屎一样的凤凰
+
+*****
+
+####  端木恋心  
+##### 47344#       发表于 2022-10-30 18:40
+
+钢背兽算是出了点别的
+
+*****
+
+####  yyf奇遇记  
+##### 47345#       发表于 2022-10-30 18:40
+
+顶着凤凰选钢背，整蛊是吧
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  六娃  
+##### 47346#       发表于 2022-10-30 18:40
+
+这把又是给A畜的教学局，skiter认个义父不过分吧
+
+*****
+
+####  snarc1  
+##### 47347#       发表于 2022-10-30 18:40
+
+刚被，要来ti9剧情？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 47348#       发表于 2022-10-30 18:40
+
+马桶打过一把刚背，屁一样
+
+*****
+
+####  人別離苦  
+##### 47349#       发表于 2022-10-30 18:40
+
+秘密怎么打蛋？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
