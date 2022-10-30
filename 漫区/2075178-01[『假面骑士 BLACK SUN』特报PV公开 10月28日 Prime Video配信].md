@@ -2389,3 +2389,23 @@ dlc罢了
 像楼里前面说的那样，近年蒙面超人对成人黑暗的印象实在是太刻板了。全共斗、近代政治史，人物内里的感情逻 ...</blockquote>
 然后拔蝗虫腿逼还没装完剑圣被人带走了 日本人已经连爽 片都搞不懂怎么拍了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人形灾害  
+##### 217#       发表于 2022-10-30 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189009&amp;ptid=2075178" target="_blank">eyeego 发表于 2022-10-30 18:03</a>
+然后拔蝗虫腿逼还没装完剑圣被人带走了 日本人已经连爽 片都搞不懂怎么拍了吗 ...</blockquote>
+大概这片确实是完全没打算要让观众爽，没有流畅和区分度高的打斗，没有明确爽快的大胜，没有明确的目标，没有具有号召力的英雄图腾，也没有坚定的精神传承，结果还真是只剩下虚无
+
+*****
+
+####  xzhlj0325  
+##### 218#       发表于 2022-10-30 18:13
+
+内容深度，还是看看平成前三部吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -5233,3 +5233,596 @@ ppy送个头给大伙乐一下是吧，你人真好
 
 10年过去了，Ti决赛还在娜迦潮汐<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Cookiekira  
+##### 47197#       发表于 2022-10-30 18:11
+
+谜团一拳原来就搂死了
+
+*****
+
+####  nowaki  
+##### 47198#       发表于 2022-10-30 18:11
+
+一拳打死谜团？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 47199#       发表于 2022-10-30 18:11
+
+哈哈哈，批9一拳搂死了乌克兰戏哥哥
+
+*****
+
+####  外挂全家脚气  
+##### 47200#       发表于 2022-10-30 18:11
+
+这潮汐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  非建政专用号  
+##### 47201#       发表于 2022-10-30 18:11
+
+单拉窝9还想赢？笑了
+
+*****
+
+####  六娃  
+##### 47202#       发表于 2022-10-30 18:11
+
+批九玩得好开心
+
+*****
+
+####  莉拉厨  
+##### 47203#       发表于 2022-10-30 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189213&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-30 18:10</a>
+我都已经有点庆幸桶哥倒在败决了，倒在败决好歹是力尽而亡，风光退场，要是生涯的最后被打成这样是真的憋屈 ...</blockquote>
+什么TI9，当时lxo也是这么说的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tengshuo980  
+##### 47204#       发表于 2022-10-30 18:11
+
+像用法系输出针对娜迦，没想到被大祭品和法师克星干爆了
+
+*****
+
+####  jk9hot  
+##### 47205#       发表于 2022-10-30 18:11
+
+nisha在最后打赏了批9的海民
+
+*****
+
+####  逃离二次元  
+##### 47206#       发表于 2022-10-30 18:12
+
+出什么都没用了
+
+*****
+
+####  蛭人  
+##### 47207#       发表于 2022-10-30 18:12
+
+鲁迅这就是你不基德的下场。
+
+*****
+
+####  acejoe  
+##### 47208#       发表于 2022-10-30 18:12
+
+这把就是石头人战术领先秘密了，秘密又选了个屠夫
+
+*****
+
+####  方舟失智博士  
+##### 47209#       发表于 2022-10-30 18:12
+
+出啥bkb啊 龙心有本事你打死我
+
+*****
+
+####  哈曼的YY  
+##### 47210#       发表于 2022-10-30 18:12
+
+批九吃黑洞 大爹唱歌来救 泪目了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  nowaki  
+##### 47211#       发表于 2022-10-30 18:12
+
+谜团拉四号位能赢吗？
+
+*****
+
+####  FBIwarning  
+##### 47212#       发表于 2022-10-30 18:12
+
+法师克星锚击 周围一圈减物伤法伤
+
+*****
+
+####  Litccc  
+##### 47213#       发表于 2022-10-30 18:12
+
+加油加油还有两把
+
+*****
+
+####  yyf奇遇记  
+##### 47214#       发表于 2022-10-30 18:12
+
+我都已经有点庆幸桶哥倒在败决了，倒在败决好歹是力尽而亡，风光退场，要是生涯的最后被打成这样是真的憋屈
+
+*****
+
+####  acejoe  
+##### 47215#       发表于 2022-10-30 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189204&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-30 18:10</a>
+倒数第二经济的小小摸A能打的动谁呢</blockquote>
+太晚了，屠夫不肥就要考虑转核了
+
+*****
+
+####  逃离二次元  
+##### 47216#       发表于 2022-10-30 18:12
+
+谜团拉四号位能赢吗？
+
+*****
+
+####  qty  
+##### 47217#       发表于 2022-10-30 18:12
+
+石头人这几个绝活真是玩到头儿了，另一个次元的
+
+*****
+
+####  ののワ  
+##### 47218#       发表于 2022-10-30 18:12
+
+白虎娜迦不ban别玩了，等着3比0
+
+*****
+
+####  六娃  
+##### 47219#       发表于 2022-10-30 18:13
+
+批九一个人死得跟四个爹加起来一样多，躺就完事了好吧
+
+*****
+
+####  AIDSL  
+##### 47220#       发表于 2022-10-30 18:13
+
+说个细节：te喜欢选pom有个原因是——可以跳进去跟怨灵一换一
+
+这队伍就这么有病。
+
+
+
+*****
+
+####  Minamizawa83  
+##### 47221#       发表于 2022-10-30 18:13
+
+我都已经有点庆幸桶哥倒在败决了，倒在败决好歹是力尽而亡，风光退场，要是生涯的最后被打成这样是真的憋屈
+
+*****
+
+####  nowaki  
+##### 47222#       发表于 2022-10-30 18:13
+
+别云了，你家四号位小小说转就转的
+
+*****
+
+####  TI三冠王AME  
+##### 47223#       发表于 2022-10-30 18:13
+
+哭了哭了，哥们已经被小雪球骑脸了
+
+<img src="https://img.saraba1st.com/forum/202210/30/181328k9s9rl9ihg99fiin.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (25.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 18:13 上传
+
+*****
+
+####  恐怖利刃  
+##### 47224#       发表于 2022-10-30 18:13
+
+<img src="https://img.saraba1st.com/forum/202210/30/181327o588k9lkk9f87a3m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F3170E10-F564-422B-BA8A-1FBC8DAF2203.jpeg</strong> (32.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 18:13 上传
+
+*****
+
+####  枯风瘦雪02  
+##### 47225#       发表于 2022-10-30 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189296&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-30 18:13</a>
+
+别云了，你家四号位小小说转就转的</blockquote>
+还是ppy家的四号位
+
+*****
+
+####  莉拉厨  
+##### 47226#       发表于 2022-10-30 18:14
+
+水晶弟——6nnn，泥沙——sccc好吧，大概率3:0
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 47227#       发表于 2022-10-30 18:14
+
+金木水火娟
+
+*****
+
+####  六娃  
+##### 47228#       发表于 2022-10-30 18:14
+
+这海民真的毫无难度，就跳进去搂一拳封个冰片，雪球滚一下，撤回来等十秒再来一套
+
+*****
+
+####  蛭人  
+##### 47229#       发表于 2022-10-30 18:14
+
+sccc是乌克兰鲁迅好吧，决赛日基辅marjor打广告，戏来了。
+
+*****
+
+####  Horusddt  
+##### 47230#       发表于 2022-10-30 18:14
+
+那就要看zotk能不能玩到胡良智了
+
+*****
+
+####  yyf奇遇记  
+##### 47231#       发表于 2022-10-30 18:14
+
+S戏戏戏不是瑞士陆逊？
+
+*****
+
+####  a1370303  
+##### 47232#       发表于 2022-10-30 18:15
+
+这个小哪家太猛了，全胜<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  subject07  
+##### 47233#       发表于 2022-10-30 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189327&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-30 18:14</a>
+这海民真的毫无难度，就跳进去搂一拳封个冰片，雪球滚一下，撤回来等十秒再来一套 ...</blockquote>
+讲道理，这冰片封的是真的好
+
+*****
+
+####  Crazy_Knife  
+##### 47234#       发表于 2022-10-30 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189184&amp;ptid=2099454" target="_blank">qty 发表于 2022-10-30 18:09</a>
+石头人我记得小组赛打TA也是2：0吧</blockquote>
+秘密还是能打得出线优的，但每次线优以后泥沙一个人就冲过去送了然后断节奏被拉扯再然后就再也打不过了
+
+*****
+
+####  超级柯南迷  
+##### 47235#       发表于 2022-10-30 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189327&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-30 18:14</a>
+
+这海民真的毫无难度，就跳进去搂一拳封个冰片，雪球滚一下，撤回来等十秒再来一套 ...</blockquote>
+怎么别的队就不懂呢？
+
+*****
+
+####  非建政专用号  
+##### 47236#       发表于 2022-10-30 18:16
+
+指望ppy手里的4转核，不如让ppy选个小鹿玩火枪
+
+*****
+
+####  aruruu  
+##### 47237#       发表于 2022-10-30 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189255&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-30 18:11</a>
+什么TI9，当时lxo也是这么说的
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+桶哥是真退了呀
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  无意义小号  
+##### 47238#       发表于 2022-10-30 18:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赛前狂吹ett，狂贬tundra的我，现在又被几个哥们吊起来嘲讽了
+
+*****
+
+####  蛭人  
+##### 47239#       发表于 2022-10-30 18:16
+
+羡慕批九，还有这样的队伍缺人吗？哥们最擅长和对面一换一。
+
+*****
+
+####  nowaki  
+##### 47240#       发表于 2022-10-30 18:16
+
+双酱油能这么肥就是这小娜迦能探视野分担酱油职责，他们有时间去摸钱，别以为娜迦经济是泡沫，很多钱是给双酱油摸去了，这两人输出高的离谱。
+
+*****
+
+####  逃离二次元  
+##### 47241#       发表于 2022-10-30 18:16
+
+羡慕批九，还有这样的队伍缺人吗？哥们最擅长和对面一换一。
+
+*****
+
+####  哈曼的YY  
+##### 47242#       发表于 2022-10-30 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189348&amp;ptid=2099454" target="_blank">超级柯南迷 发表于 2022-10-30 18:15:31</a>
+怎么别的队就不懂呢？</blockquote>别的队有13爹吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cwlo  
+##### 47243#       发表于 2022-10-30 18:16
+
+石头人防守做得太好了，秘密有力使不出
+
+*****
+
+####  winkle  
+##### 47244#       发表于 2022-10-30 18:17
+
+海明就是卖屁股，拉扯空间的。反正 1 3 刷就行了
+
+*****
+
+####  枯风瘦雪02  
+##### 47245#       发表于 2022-10-30 18:17
+
+前期白虎小松鼠能远程嫖那么多人头都是靠nine的冰片定位，其实做了很多事的，一定要说怪话黑倒也不要无视到这种地步
+
+*****
+
+####  RGm  
+##### 47246#       发表于 2022-10-30 18:17
+
+石头人的酱油采灵芝的能力太强了。
+
+*****
+
+####  nowaki  
+##### 47247#       发表于 2022-10-30 18:17
+
+ett不会保丁真爹啊，四保一丁真水人不是把茶队当猪宰了么。
+
+*****
+
+####  六娃  
+##### 47248#       发表于 2022-10-30 18:17
+
+只要保娜迦潮汐爹肥就autowin，其他人接接技能就赢了
+
+*****
+
+####  越动天下  
+##### 47249#       发表于 2022-10-30 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58188120&amp;ptid=2099454" target="_blank">越动天下 发表于 2022-10-30 17:29</a>
+潮汐其实可以 秘密没有爆发</blockquote>风怒
+
+*****
+
+####  roxas.sora  
+##### 47250#       发表于 2022-10-30 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">挂件流中路才是版本答案，ppy难了啊
+
+
+
+*****
+
+####  haruhiismer  
+##### 47251#       发表于 2022-10-30 18:17
+
+别的队酱油不行，有这么肥的酱油可以把他接回来
+
+*****
+
+####  haruhiismer  
+##### 47252#       发表于 2022-10-30 18:17
+
+别的队酱油不行，有这么肥的酱油可以把他接回来
+
+*****
+
+####  aruruu  
+##### 47253#       发表于 2022-10-30 18:18
+
+<img src="https://p.sda1.dev/8/aaa47701803537f817237cec46e032ba/CMP_20221030181735179.jpg" referrerpolicy="no-referrer">话说这个选手卡包怎么开不了？
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  非建政专用号  
+##### 47254#       发表于 2022-10-30 18:18
+
+窝9这冰片一看就是没少玩恶心人的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  越动天下  
+##### 47255#       发表于 2022-10-30 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58188120&amp;ptid=2099454" target="_blank">越动天下 发表于 2022-10-30 17:29</a>
+潮汐其实可以 秘密没有爆发</blockquote>
+没什么说的了 从bp结局就已经定下来了
+
+*****
+
+####  六娃  
+##### 47256#       发表于 2022-10-30 18:18
+
+海民冰片封路不是基本功吗，这把对面有什么逃生技能吗
+
+*****
+
+####  AIDSL  
+##### 47257#       发表于 2022-10-30 18:18
+
+不是别的队不懂，杰出都统计过了，tundra每盘都几个推推，naga基本出魔晶，就是个极限拉扯队。
+
+另一个中单海民王topson他的屁股后面有推推吗？有个kuku，一靠近来感觉自己都少个妈的那种队友。
+
+*****
+
+####  nowaki  
+##### 47258#       发表于 2022-10-30 18:19
+
+老海民冰片封路都是基本功吧，陈彦川也能秀的
+
+*****
+
+####  雪夜霧語  
+##### 47259#       发表于 2022-10-30 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189388&amp;ptid=2099454" target="_blank">枯风瘦雪02 发表于 2022-10-30 18:17</a>
+前期白虎小松鼠能远程嫖那么多人头都是靠nine的冰片定位，其实做了很多事的，一定要说怪话黑倒也不要无视到 ...</blockquote>
+突然看见你这么一个正经讲人话的突然有点可爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sadllk  
+##### 47260#       发表于 2022-10-30 18:19
+
+已经记好名单准备清算这个楼里一口一个批九的小黑子了
+
+*****
+
+####  幻想风靡_  
+##### 47261#       发表于 2022-10-30 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189413&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-30 18:18</a>
+
+话说这个选手卡包怎么开不了？
+
+—— 来自 HONOR LGE-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+选手卡包就是用来玩那个梦幻挑战的
+
+ti今天最后一天了，不给开了
+
+*****
+
+####  莉拉厨  
+##### 47262#       发表于 2022-10-30 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189413&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-30 18:18</a>
+话说这个选手卡包怎么开不了？
+
+—— 来自 HONOR LGE-AN00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+今年卡牌就只有梦幻挑战有用，梦幻挑战结束了卡牌也没用了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acejoe  
+##### 47263#       发表于 2022-10-30 18:19
+
+屠夫选的太差了，还是最后一手选的
+
+*****
+
+####  六娃  
+##### 47264#       发表于 2022-10-30 18:20
+
+skiter娜迦的对线细节和压制能力是绝对的next level，别人可以学刷钱但是这个真学不来
+
+*****
+
+####  aruruu  
+##### 47265#       发表于 2022-10-30 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189449&amp;ptid=2099454" target="_blank">幻想风靡_ 发表于 2022-10-30 18:19</a>
+选手卡包就是用来玩那个梦幻挑战的
+
+ti今天最后一天了，不给开了</blockquote>
+好的，谢谢
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  aruruu  
+##### 47266#       发表于 2022-10-30 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58189453&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-30 18:19</a>
+今年卡牌就只有梦幻挑战有用，梦幻挑战结束了卡牌也没用了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 ...</blockquote>
+感谢解答
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 47267#       发表于 2022-10-30 18:20
+
+坏了，下把没老鹿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qty  
+##### 47268#       发表于 2022-10-30 18:20
+
+现在感觉秘密团战得想出一个高效快速秒人的法子，第一时间用尽量少的资源尽快造成对面减员，不然让石头人这种究极互保体系拉扯起来很容易就把自己的阵型和节奏拉乱，造成战术资源浪费，然后就打不过了。
+
