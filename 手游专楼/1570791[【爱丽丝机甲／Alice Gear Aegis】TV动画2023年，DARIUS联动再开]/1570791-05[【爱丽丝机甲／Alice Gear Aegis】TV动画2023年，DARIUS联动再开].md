@@ -289,3 +289,12 @@ an天狐天 御侠
 
 金字塔总算是会做演出了，3D背景+2D美术+新动作这活动不就活起来了吗。然而这都五年了才这样，你游的资源就这点了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 7419#       发表于 2022-10-30 19:11
+
+拍掌那段有没人做鬼畜表情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
