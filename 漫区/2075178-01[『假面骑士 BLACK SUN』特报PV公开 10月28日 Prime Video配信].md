@@ -2558,3 +2558,50 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是批站吹子比较多，说不好看就是没满18岁不懂深度的云小鬼
 
+
+
+*****
+
+####  nekkihs  
+##### 231#       发表于 2022-10-31 01:52
+
+看来又是日本传统的用居高临下，戏谑，猎奇和丑化的心态来看左派社会运动和人民对改革的诉求
+
+结果用力过猛让出场各方都成了小丑
+
+*****
+
+####  HATENA  
+##### 232#       发表于 2022-10-31 02:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198535&amp;ptid=2075178" target="_blank">江城诀丶 发表于 2022-10-31 01:17</a>
+
+还是批站吹子比较多，说不好看就是没满18岁不懂深度的云小鬼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这破片不反而是未满18岁的小鬼最喜欢吹的那种么
+
+*****
+
+####  奥F特  
+##### 233#       发表于 2022-10-31 02:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">b站也有不少吐槽烂的 但敌不过看到这点番茄酱和皮套就吹这才是真正的假面骑士的特摄小鬼
+
+*****
+
+####  江城诀丶  
+##### 234#       发表于 2022-10-31 02:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198782&amp;ptid=2075178" target="_blank">HATENA 发表于 2022-10-31 02:00</a>
+这破片不反而是未满18岁的小鬼最喜欢吹的那种么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满18岁的懂哥也喜欢
+
+*****
+
+####  桥本有菜  
+##### 235#       发表于 2022-10-31 02:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赛文ov也好，赛文x也好，文戏至少剧情有意思啊，亚马逊s两季还有打斗呢
+黑日剧情越往后越无聊看的人昏昏欲睡，50年的时间线剪的支离破碎，最有意思的还是头号垫脚石剑圣，长得还像yyut
+这部剧基本都要20集奥特曼正片的时间了，新生代奥特曼也就25集左右，要剧情没剧情，要打斗没打斗，情怀还突兀的一笔，编剧有解释新版鲸鱼怪人的药水怎么来的吗？原着可是祖传秘方，唯一的骑士踢还翻车了
+就剩黑残深个几把了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+

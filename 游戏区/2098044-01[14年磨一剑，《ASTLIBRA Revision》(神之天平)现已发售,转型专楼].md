@@ -13388,3 +13388,27 @@ QQ截图20221031010828.jpg
 
 <img src="https://img.saraba1st.com/forum/202210/31/011739c4swhcsr99n9miip.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pf67  
+##### 1221#       发表于 2022-10-31 02:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58188553&amp;ptid=2098044" target="_blank">ccow 发表于 2022-10-30 17:45</a>
+
+二周目主线不去的，不然这位兄弟就不会这么愁了。下了盖亚用道具可以转移去。 ...</blockquote>
+怎么可能不去....女主从哪来的？
+
+*****
+
+####  pf67  
+##### 1222#       发表于 2022-10-31 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58192169&amp;ptid=2098044" target="_blank">梅林的三角裤 发表于 2022-10-30 20:13</a>
+
+这游戏会有这种有啥装备没收集到后续收集不了的情况吗</blockquote>
+游戏中只有一个宝箱是过时不候的，就是蛇神那关打了小蛇后在教会最里面，到下一章过后地形变了就没了
+
+不过里面是卡片，没拿到也无所谓
+
