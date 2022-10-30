@@ -52,3 +52,15 @@ F4是旧帝国36代皇帝，弗里德里希IV世，简称F4
 
 所以说奥贝的那些对莱皇的还要放松警备到牺牲摩特甚至克斯拉的说辞才更吓人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aptx8285144  
+##### 5496#       发表于 2022-10-30 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58159686&amp;ptid=1502023" target="_blank">roxas.sora 发表于 2022-10-29 12:06</a>
+
+同道中人这段不错啊，小妈看小孩子的眼神</blockquote>
+官方好懂呀，这段做得比原作还色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

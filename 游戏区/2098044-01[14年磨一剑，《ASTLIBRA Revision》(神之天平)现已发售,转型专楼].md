@@ -12935,3 +12935,21 @@ wiki看不懂日文可以对着装备数值去找
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">二周目去不了铁娘子所在地？缺一个小徽章啊，救救孩子
 
+
+
+*****
+
+####  thorn.Q  
+##### 1179#       发表于 2022-10-30 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181502&amp;ptid=2098044" target="_blank">black1991518 发表于 2022-10-30 12:02</a>
+二周目去不了铁娘子所在地？缺一个小徽章啊，救救孩子</blockquote>
+开了最终迷宫以后 可以直接用世界树露滴传送过去
+
+*****
+
+####  Gwyndolin  
+##### 1180#       发表于 2022-10-30 12:20
+
+食材应该怎么刷，目前在终章开始，刷砂糖已经屠了研究所十几遍了，一个都没，顶不住了，终章后面可以买吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

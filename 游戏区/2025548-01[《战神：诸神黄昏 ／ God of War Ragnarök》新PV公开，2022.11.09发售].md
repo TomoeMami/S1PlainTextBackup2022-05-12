@@ -8696,3 +8696,21 @@ https://bbs.saraba1st.com/2b/thread-2102104-0-1.html
 
 我感觉这次应该不会有人卡解密了，笑
 
+
+
+*****
+
+####  Mikumiku831  
+##### 912#       发表于 2022-10-30 12:17
+
+手贱看了下真的后悔<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
+希望这几天能忘掉
+
+*****
+
+####  奥帝努斯  
+##### 913#       发表于 2022-10-30 12:18
+
+战神4会有ps5版本吗
+

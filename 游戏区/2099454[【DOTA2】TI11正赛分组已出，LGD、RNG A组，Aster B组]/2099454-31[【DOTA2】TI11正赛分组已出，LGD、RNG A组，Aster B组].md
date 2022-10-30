@@ -4364,3 +4364,160 @@ bbc这个也学会捧杀 的也是不是在暗示我giegie！
 畜：赛事初期大热，现在只有绝活哥在玩</blockquote>
 妮卜把窝41水尼公子放在眼里是吧
 
+
+
+*****
+
+####  Litccc  
+##### 45496#       发表于 2022-10-30 12:11
+
+瑞典丁聪又准备玩他那五号位谜团么<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 45497#       发表于 2022-10-30 12:12
+
+水人全尊重，第一轮没ban说明两边都不溜
+
+*****
+
+####  逃离二次元  
+##### 45498#       发表于 2022-10-30 12:12
+
+41海民 vs 41小强
+
+*****
+
+####  DarthAka  
+##### 45499#       发表于 2022-10-30 12:13
+
+还有一个热门是火女，草鞋BKB真强无敌
+
+*****
+
+####  阿垃垃圾历  
+##### 45500#       发表于 2022-10-30 12:14
+
+boxi哪里人啊  怎么一直玩我森哥的英雄  
+
+*****
+
+####  Horusddt  
+##### 45501#       发表于 2022-10-30 12:15
+
+别尬黑，森哥马西真不行
+
+*****
+
+####  莉拉厨  
+##### 45502#       发表于 2022-10-30 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181707&amp;ptid=2099454" target="_blank">阿垃垃圾历 发表于 2022-10-30 12:14</a>
+
+boxi哪里人啊  怎么一直玩我森哥的英雄</blockquote>
+重庆人
+
+*****
+
+####  ltay222  
+##### 45503#       发表于 2022-10-30 12:16
+
+误入此楼
+
+*****
+
+####  dclara1  
+##### 45504#       发表于 2022-10-30 12:16
+
+勿入此楼
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  逃离二次元  
+##### 45505#       发表于 2022-10-30 12:16
+
+误入此楼
+
+*****
+
+####  反方向的波  
+##### 45506#       发表于 2022-10-30 12:16
+
+莉拉厨  过期  永不过期
+
+*****
+
+####  xuzy0919  
+##### 45507#       发表于 2022-10-30 12:17
+
+误入此楼
+
+*****
+
+####  nightmare902015  
+##### 45508#       发表于 2022-10-30 12:17
+
+误入此楼
+
+*****
+
+####  masterffzhou  
+##### 45509#       发表于 2022-10-30 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181725&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-30 12:15</a>
+
+重庆人</blockquote>
+展开说说，怎么和查到的资料不一致啊
+
+*****
+
+####  Horusddt  
+##### 45510#       发表于 2022-10-30 12:18
+
+液体这么选感觉没了呀，米奇没英雄了
+
+
+
+*****
+
+####  WDDzzZ  
+##### 45511#       发表于 2022-10-30 12:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 45512#       发表于 2022-10-30 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181654&amp;ptid=2099454" target="_blank">WDDzzZ 发表于 2022-10-30 12:11</a>
+
+妮卜把窝41水尼公子放在眼里是吧</blockquote>
+妮公子现在又卜玩
+
+*****
+
+####  端木恋心  
+##### 45513#       发表于 2022-10-30 12:19
+
+来了来了来看桶哥最后一舞。
+
+*****
+
+####  jk9hot  
+##### 45514#       发表于 2022-10-30 12:19
+
+莉拉厨  过期  永不过期
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  反方向的波  
+##### 45515#       发表于 2022-10-30 12:20
+
+瑞典丁聪放了十几连胜小强胆子真的好大
+
