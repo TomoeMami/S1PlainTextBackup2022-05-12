@@ -13237,3 +13237,16 @@ wiki看不懂日文可以对着装备数值去找
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  梅林的三角裤  
+##### 1207#       发表于 2022-10-30 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58192364&amp;ptid=2098044" target="_blank">大暗月 发表于 2022-10-30 20:20</a>
+没有
+
+  -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
+谢谢，那我就放心大胆的打了
+

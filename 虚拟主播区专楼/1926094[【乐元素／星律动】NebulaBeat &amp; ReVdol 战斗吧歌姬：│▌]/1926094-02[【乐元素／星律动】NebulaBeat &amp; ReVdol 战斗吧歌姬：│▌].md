@@ -9490,3 +9490,46 @@ kkaa
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  天青月白  
+##### 2504#       发表于 2022-10-30 20:21
+
+咩的话是好事，能控场。卡姐和鱼都不是那种很会控场的。
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ladiesman802  
+##### 2505#       发表于 2022-10-30 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58192406&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-10-30 20:21</a>
+
+咩的话是好事，能控场。卡姐和鱼都不是那种很会控场的。
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 S1Nex ...</blockquote>
+确实，歌姬两个mc控场都是有一定实力的，鱼本质社恐
+
+*****
+
+####  黄金鸡屁屁  
+##### 2506#       发表于 2022-10-30 20:24
+
+外形还是哥们啊，不会是绿头发swan哥哥吧
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  天青月白  
+##### 2507#       发表于 2022-10-30 20:25
+
+ 本帖最后由 天青月白 于 2022-10-30 20:28 编辑 
+
+这皮，上衣是不是和二代罗那样是黑纱，看起来还是墨味很浓。说不定在重启歌姬计划的时候每个都做了新形象的早期设定。
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
