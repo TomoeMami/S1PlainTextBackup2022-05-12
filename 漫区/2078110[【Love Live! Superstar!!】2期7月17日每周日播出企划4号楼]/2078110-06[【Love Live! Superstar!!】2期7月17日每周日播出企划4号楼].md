@@ -15316,3 +15316,12 @@ A.「つらいときは目的が何なのか思い出す。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 8880#       发表于 2022-10-31 00:02
+
+单人不指望了，至少双人能上啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
