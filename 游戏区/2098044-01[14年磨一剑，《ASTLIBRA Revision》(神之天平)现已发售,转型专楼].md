@@ -12975,3 +12975,15 @@ wiki看不懂日文可以对着装备数值去找
 开了最终迷宫以后 可以直接用世界树露滴传送过去</blockquote>
 太感谢了
 
+
+
+*****
+
+####  Gwyndolin  
+##### 1183#       发表于 2022-10-30 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181859&amp;ptid=2098044" target="_blank">tsubaki 发表于 2022-10-30 12:23</a>
+
+面包房果酱面包分解</blockquote>
+好起来了，就是有点小贵，该去刷钱了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
