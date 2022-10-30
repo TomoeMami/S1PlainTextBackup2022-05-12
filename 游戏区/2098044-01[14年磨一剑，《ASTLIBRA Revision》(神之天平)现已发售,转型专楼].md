@@ -13020,3 +13020,44 @@ wiki看不懂日文可以对着装备数值去找
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  Leona_Akari  
+##### 1187#       发表于 2022-10-30 15:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">老头那的剑可以在进新章前拿到的？我没拿到，我应该ex全打了，竞技场也全打了，每个图的宝箱也开齐了，哪里漏了呢。。。
+
+*****
+
+####  六至九  
+##### 1188#       发表于 2022-10-30 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185297&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-30 15:35</a>
+
+老头那的剑可以在进新章前拿到的？我没拿到，我应该ex全打了，竞技场也全打了，每个图的宝箱也开齐 ...</blockquote>
+那是不是缺个心天平的铠甲
+
+*****
+
+####  Leona_Akari  
+##### 1189#       发表于 2022-10-30 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185390&amp;ptid=2098044" target="_blank">六至九 发表于 2022-10-30 15:40</a>
+
+那是不是缺个心天平的铠甲</blockquote>
+那个也拿了，就是几把boss武器的宝石合成
+
+不过已经进新章了，先继续推了
+
+*****
+
+####  Sannapolis  
+##### 1190#       发表于 2022-10-30 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185297&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-30 15:35</a>
+老头那的剑可以在进新章前拿到的？我没拿到，我应该ex全打了，竞技场也全打了，每个图的宝箱也开齐 ...</blockquote>
+面包店的盔甲，蛇神岛和魔王城箱子里的盔甲，雪山进门雕像的盾牌
+容易漏的是这几个
+
