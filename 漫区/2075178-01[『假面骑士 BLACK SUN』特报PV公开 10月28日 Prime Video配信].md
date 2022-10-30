@@ -2498,3 +2498,14 @@ dlc罢了
 
 我去看了看假吧，这不全面差评么，甚至看到几个反驳差评也是你这个角度不对得这样批评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  浅川雏羽  
+##### 226#       发表于 2022-10-30 22:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他可能是多年没看过贴吧凭印象猜的
+
+从洞幺开始那吧的攻击性就是我去了都发怵的
+
