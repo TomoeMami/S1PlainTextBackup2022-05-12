@@ -2967,3 +2967,34 @@ cnmv社真就没新英雄了
 
 这几天好忙，看到马桶能在季军退役也还行了。tundra 几个人也打了好几年了，夺冠算是有点晚成。
 
+
+
+*****
+
+####  xman123601  
+##### 48384#       发表于 2022-10-30 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918364&amp;ptid=2099454" target="_blank">xman123601 发表于 2022-10-15 11:44</a>
+
+turnder esport 这个队伍实力如何 只认识九神 33也有点名气很久不玩了 问问业内懂的大神 大概预测多少名次 ...</blockquote>
+没想到冠军了啊 这个真的没想到
+
+*****
+
+####  xman123601  
+##### 48385#       发表于 2022-10-30 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57918418&amp;ptid=2099454" target="_blank">逃离二次元 发表于 2022-10-15 11:48</a>
+
+tundra会玩点阴的，但手活不行，得靠33带</blockquote>
+哈哈 老哥看走眼了
+
+*****
+
+####  逃离二次元  
+##### 48386#       发表于 2022-10-30 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58196602&amp;ptid=2099454" target="_blank">xman123601 发表于 2022-10-30 22:55</a>
+哈哈 老哥看走眼了</blockquote>
+不过得靠33带是真的，只不过再加上skiter化龙了
+
