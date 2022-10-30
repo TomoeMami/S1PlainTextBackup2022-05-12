@@ -347,3 +347,24 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 今天早上上完小号打开大号，发现账号被重置了？什么都没了，直接从1级新手引导开始，是什么情况啊。。。
 
+
+
+*****
+
+####  Blackson  
+##### 43669#       发表于 2022-10-30 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179549&amp;ptid=1712412" target="_blank">不乖 发表于 2022-10-30 09:56</a>
+
+今天早上上完小号打开大号，发现账号被重置了？什么都没了，直接从1级新手引导开始，是什么情况啊。。。 ...</blockquote>
+是不是选择错服务器了？
+
+*****
+
+####  不乖  
+##### 43670#       发表于 2022-10-30 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179842&amp;ptid=1712412" target="_blank">Blackson 发表于 2022-10-30 10:19</a>
+是不是选择错服务器了？</blockquote>
+一直用模拟器玩的，什么设置也没变过，把模拟器卸了重新装又好了，不知道什么原因，难道误点区服选择了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
