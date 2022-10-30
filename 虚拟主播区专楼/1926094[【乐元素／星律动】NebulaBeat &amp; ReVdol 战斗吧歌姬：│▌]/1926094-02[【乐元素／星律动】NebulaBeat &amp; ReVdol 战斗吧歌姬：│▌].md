@@ -9551,3 +9551,14 @@ kkaa
 
 坏了，量子猫要为了能3d跳舞策划着毅然回国进厂了，这是kino的教训没吃到？
 
+
+
+*****
+
+####  一叶丈育  
+##### 2510#       发表于 2022-10-30 23:27
+
+好狠的觉悟啊，该把厂长提前放在跟赛马娘同级别的仇恨名单中了<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
