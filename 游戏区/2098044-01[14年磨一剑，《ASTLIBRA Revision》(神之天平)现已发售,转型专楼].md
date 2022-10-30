@@ -12996,3 +12996,27 @@ wiki看不懂日文可以对着装备数值去找
 
 第六章那个木材堆怎么打？打一会就恢复满了
 
+
+
+*****
+
+####  Ashice  
+##### 1185#       发表于 2022-10-30 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58184829&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-30 15:13</a>
+第六章那个木材堆怎么打？打一会就恢复满了</blockquote>
+左边画面外有个会全图奶的怪，干掉就行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  黒長直姫  
+##### 1186#       发表于 2022-10-30 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58184829&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-10-30 15:13</a>
+第六章那个木材堆怎么打？打一会就恢复满了</blockquote>
+房间外左侧有个加血天使 从天花板跳出去干掉或者重新进房间一进就往右不让它进战斗
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

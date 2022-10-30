@@ -11178,3 +11178,512 @@ reddit早就rip了，望周知。
 
 再见the international，明天下午东南亚单排
 
+
+
+*****
+
+####  43453  
+##### 46411#       发表于 2022-10-30 15:22
+
+看重播秒火女两条命转折团那里尼公子把灵动迅捷给了拳酱小鹿
+
+*****
+
+####  尖刺外婆  
+##### 46412#       发表于 2022-10-30 15:22
+
+retire in peace <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 46413#       发表于 2022-10-30 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185051&amp;ptid=2099454" target="_blank">Cookiekira 发表于 2022-10-30 15:22</a>
+retire in piece</blockquote>
+peace 丈育了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aqS  
+##### 46414#       发表于 2022-10-30 15:23
+
+是拳酱铁拳的胜利
+
+*****
+
+####  ml1642879  
+##### 46415#       发表于 2022-10-30 15:23
+
+真正的退役神<img src="https://static.saraba1st.com/image/smiley/face2017/236.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 46416#       发表于 2022-10-30 15:23
+
+五把原力法杖的胜利
+
+*****
+
+####  蛭人  
+##### 46417#       发表于 2022-10-30 15:23
+
+别说了，DC作为wings背景板，在西恩dota被惩罚后，终于要有人夺冠了。
+
+*****
+
+####  尖刺外婆  
+##### 46418#       发表于 2022-10-30 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185066&amp;ptid=2099454" target="_blank">Cookiekira 发表于 2022-10-30 15:22</a>
+peace 丈育了</blockquote>
+shu ru fa bao zha le
+
+*****
+
+####  roxas.sora  
+##### 46419#       发表于 2022-10-30 15:23
+
+版本答案：挂件流中单，抱紧队友大腿，不送包赢
+
+*****
+
+####  Litccc  
+##### 46420#       发表于 2022-10-30 15:23
+
+希望puppy夺冠，有始有终<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 46421#       发表于 2022-10-30 15:24
+
+版本答案：挂件流中单，抱紧队友大腿，不送包赢
+
+*****
+
+####  nowaki  
+##### 46422#       发表于 2022-10-30 15:24
+
+生涯最后一年，我带你们进ti
+
+生涯最后一年，我带你们进主舞台
+
+生涯最后一年，我带你们进决赛日
+
+*****
+
+####  Lamapocos  
+##### 46423#       发表于 2022-10-30 15:24
+
+再见了，，所有的马图巴曼
+
+*****
+
+####  tasuku  
+##### 46424#       发表于 2022-10-30 15:24
+
+两个ni公子都望向了自己的爹
+
+*****
+
+####  樱冢名月  
+##### 46425#       发表于 2022-10-30 15:25
+
+只能说银k还是抓到了一些版本，练的东西也可以，怎么最后一把他妈选成这样
+
+*****
+
+####  winkle  
+##### 46426#       发表于 2022-10-30 15:25
+
+火卡都补了推推，李逵背推晕了
+
+*****
+
+####  沈经文  
+##### 46427#       发表于 2022-10-30 15:25
+
+小马桶落泪
+
+*****
+
+####  莉拉厨  
+##### 46428#       发表于 2022-10-30 15:25
+
+可敬的对手<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ml1642879  
+##### 46429#       发表于 2022-10-30 15:25
+
+哦草 水晶是荷兰人 我就说英文怎么一点不像俄罗斯，经典分不清荷兰俄罗斯
+
+*****
+
+####  夏溪澪mio  
+##### 46430#       发表于 2022-10-30 15:25
+
+last dance结束了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">再见了，桶哥。再见了，小马桶
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蛭人  
+##### 46431#       发表于 2022-10-30 15:25
+
+鲁迅真的不基德，采访完还要给基辅major打广告，秘密怕不是要被dota之神惩罚了。
+
+*****
+
+####  攻城匠师黑索  
+##### 46432#       发表于 2022-10-30 15:25
+
+不装了 我就是Digital Chaos /Thunderbirds 十年老粉 
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  PigMourne  
+##### 46433#       发表于 2022-10-30 15:26
+
+再见了，所有的大黑勾b人<img src="https://static.saraba1st.com/image/smiley/face2017/262.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  BloodWingS  
+##### 46434#       发表于 2022-10-30 15:26
+
+最后一战自己发挥完美，也算没有遗憾了吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cookiekira  
+##### 46435#       发表于 2022-10-30 15:26
+
+桶哥在整个dota职业圈风评都好高啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 46436#       发表于 2022-10-30 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185114&amp;ptid=2099454" target="_blank">蛭人 发表于 2022-10-30 15:25</a>
+
+鲁迅真的不基德，采访完还要给基辅major打广告，秘密怕不是要被dota之神惩罚了。 ...</blockquote>
+他就是乌克兰人啊
+
+*****
+
+####  yyf奇遇记  
+##### 46437#       发表于 2022-10-30 15:26
+
+之前这b在脸上弄乌克兰国旗的时候我就说了，鉴定为戏瘾犯了
+
+*****
+
+####  柚上舍人  
+##### 46438#       发表于 2022-10-30 15:26
+
+不装了，我是2000哥铁粉
+
+*****
+
+####  端木恋心  
+##### 46439#       发表于 2022-10-30 15:26
+
+我是支持石头人的。希望石头人加油啊。
+
+*****
+
+####  VT1996  
+##### 46440#       发表于 2022-10-30 15:26
+
+版本答案不是炮台dota？
+
+
+
+*****
+
+####  TI三冠王AME  
+##### 46441#       发表于 2022-10-30 15:26
+
+我新英雄短片呢？V社司马
+
+*****
+
+####  Sayuki1025  
+##### 46442#       发表于 2022-10-30 15:27
+
+桶哥再见<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 46443#       发表于 2022-10-30 15:27
+
+老dc今年肯定要出一个夺冠的了
+
+*****
+
+####  Crazy_Knife  
+##### 46444#       发表于 2022-10-30 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185105&amp;ptid=2099454" target="_blank">樱冢名月 发表于 2022-10-30 15:25</a>
+只能说银k还是抓到了一些版本，练的东西也可以，怎么最后一把他妈选成这样 ...</blockquote>
+不说了，冰女的锅，要是照原定时间胜者组先打也许张志成就不敢一手冰女了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nowaki  
+##### 46445#       发表于 2022-10-30 15:27
+
+乌克兰人不能弄国旗是吧
+
+那艹艹艹艹ti2举国旗怎么说
+
+*****
+
+####  pigofsunny  
+##### 46446#       发表于 2022-10-30 15:27
+
+桶哥，非常儒雅，非常芬兰。
+
+—— 来自 Google Pixel 4a, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  蛭人  
+##### 46447#       发表于 2022-10-30 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185107&amp;ptid=2099454" target="_blank">winkle 发表于 2022-10-30 15:25</a>
+
+火卡都补了推推，李逵背推晕了</blockquote>
+他直接跳刀后面追的大推推，BKB都是后补的，毕竟只有灵动迅捷，吹风冰墙天火都不好使。
+
+*****
+
+####  非建政专用号  
+##### 46448#       发表于 2022-10-30 15:27
+
+小雪球集合
+
+*****
+
+####  六娃  
+##### 46449#       发表于 2022-10-30 15:27
+
+芬兰dota就剩普森了
+
+*****
+
+####  蛭人  
+##### 46450#       发表于 2022-10-30 15:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185132&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-30 15:26</a>
+
+他就是乌克兰人啊</blockquote>
+我知道啊，所以我说他不基德，打比赛为战争做宣传是吧。
+
+*****
+
+####  你可以试试  
+##### 46451#       发表于 2022-10-30 15:28
+
+人家祖国就是在被侵略还不让说啰
+
+*****
+
+####  aqS  
+##### 46452#       发表于 2022-10-30 15:28
+
+ti2不是马来狗举的国旗？
+
+*****
+
+####  NaYo丶  
+##### 46453#       发表于 2022-10-30 15:28
+
+这个牛真强 完美抓机会 那么穷打了2w输出
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  北条早苗  
+##### 46454#       发表于 2022-10-30 15:28
+
+现在就轮到老dc两个谁透支谁偿还了
+
+*****
+
+####  adretyu67  
+##### 46455#       发表于 2022-10-30 15:29
+
+这把看到拳酱的毒瘤小鹿和泥公子的卡尔我都觉得秘密回家了。标准的秘密回家局之不知道谁是大腿和吸血ppy。
+
+只能说瑞典油面就是瑞典油面。
+
+秘密成绩越来越好定律看起来还没失效，明年应该换面新盾了ppy把自己名字写上去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  六娃  
+##### 46456#       发表于 2022-10-30 15:29
+
+哥们当时写长文的时候是真觉得液体过不了外卡
+
+*****
+
+####  TI三冠王AME  
+##### 46457#       发表于 2022-10-30 15:29
+
+不让乌克兰人贴国旗是吧
+
+*****
+
+####  yyf奇遇记  
+##### 46458#       发表于 2022-10-30 15:29
+
+Cn在两边华字在中间谢谢
+
+*****
+
+####  逃离二次元  
+##### 46459#       发表于 2022-10-30 15:29
+
+<img src="https://p.sda1.dev/8/edd9e6c582da6e01669fb4580bb83167/CMP_20221030152901895.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苏沃雷生  
+##### 46460#       发表于 2022-10-30 15:29
+
+能不能再让我看见一次Ti1
+
+*****
+
+####  聚散浮云  
+##### 46461#       发表于 2022-10-30 15:29
+
+再见了桶哥，你真的比拳酱值得这个双冠<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cccap  
+##### 46462#       发表于 2022-10-30 15:29
+
+当buff怪保爹怎么了，就是能赢啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  azccc52  
+##### 46463#       发表于 2022-10-30 15:29
+
+上一个楼里发过的桶哥的知乎文章链接有谁存了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Asukalangley33  
+##### 46464#       发表于 2022-10-30 15:29
+
+桶登上过巅峰，也掉进过谷底
+
+这次在一个还不错的团队从外卡打到前3，作为ENDING算是不错了
+
+*****
+
+####  adretyu67  
+##### 46465#       发表于 2022-10-30 15:30
+
+乌克兰光头id后面都挂了stop the war多久了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 46466#       发表于 2022-10-30 15:30
+
+术士zai得感谢马桶，在职业生涯摆烂期让他体验了一把决赛日。
+
+*****
+
+####  yyf奇遇记  
+##### 46467#       发表于 2022-10-30 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185191&amp;ptid=2099454" target="_blank">azccc52 发表于 2022-10-30 15:29</a>
+上一个楼里发过的桶哥的知乎文章链接有谁存了吗？</blockquote>
+Eesama首发s1谢谢，知乎别蹭
+
+*****
+
+####  古代人皮克  
+##### 46468#       发表于 2022-10-30 15:30
+
+水晶这个发际线配大额头真的要命
+
+*****
+
+####  蛭人  
+##### 46469#       发表于 2022-10-30 15:30
+
+Eesama首发s1谢谢，知乎别蹭
+
+*****
+
+####  你可以试试  
+##### 46470#       发表于 2022-10-30 15:30
+
+[https://m.hupu.com/bbs-share/55591921.html](https://m.hupu.com/bbs-share/55591921.html) 这个吗
+
+
+
+*****
+
+####  AME8年铁粉  
+##### 46471#       发表于 2022-10-30 15:31
+
+桶哥退役了 a处还在赖皮   
+
+每一年都谎称是最后一年来打 然后也不要怕送冠  清算 325
+
+*****
+
+####  nowaki  
+##### 46472#       发表于 2022-10-30 15:31
+
+我永远不会原谅kky 是永远
+
+*****
+
+####  adretyu67  
+##### 46473#       发表于 2022-10-30 15:32
+
+老液体几人组最后1冠1亚
+
+马桶是1冠2季
+
+寻思了下好像差不多？
+
+*****
+
+####  Horusddt  
+##### 46474#       发表于 2022-10-30 15:32
+
+zai这把打的真的可以了，感觉液体一定要有一个人拉胯呀
+
+*****
+
+####  BloodWingS  
+##### 46475#       发表于 2022-10-30 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185196&amp;ptid=2099454" target="_blank">adretyu67 发表于 2022-10-30 15:30</a>
+
+乌克兰光头id后面都挂了stop the war多久了</blockquote>
+光头是俄罗斯的，属于俄奸行为<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
