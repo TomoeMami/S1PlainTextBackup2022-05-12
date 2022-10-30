@@ -2489,3 +2489,12 @@ dlc罢了
 还真不是，贴吧吹的多，这边才是主力输出</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">假吧一大堆喷烂的了包括发情报的色佬都喷剧情烂了 就连吹的帖子底下都一堆嘲讽的
 
+
+
+*****
+
+####  plok201  
+##### 225#       发表于 2022-10-30 21:58
+
+我去看了看假吧，这不全面差评么，甚至看到几个反驳差评也是你这个角度不对得这样批评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
