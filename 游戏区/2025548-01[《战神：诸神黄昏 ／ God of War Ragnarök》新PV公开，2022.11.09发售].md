@@ -8744,3 +8744,16 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 你们知道我在暗示什么<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哈罗  
+##### 916#       发表于 2022-10-30 13:34
+
+<blockquote>clover293 发表于 2022-10-30 13:02
+boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预购还能多一点
+
+剧情方面因为核心是战神不是 ...</blockquote>
+德雷克现在这结局跟死了也没啥区别
+

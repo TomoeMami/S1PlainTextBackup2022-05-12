@@ -9384,3 +9384,17 @@ hhh 对第二个生日的执念XD 有的人过了三个 有的就....
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  ladiesman802  
+##### 2494#       发表于 2022-10-30 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181350&amp;ptid=1926094" target="_blank">再迷 发表于 2022-10-30 11:53</a>
+
+旗下主播这么漏勺感觉早晚得出事，厂子不管管么
+
+—— 来自 OnePlus GM1910, Android 11上的 S1Next-鹅版 v ...</blockquote>
+所以毕叶了
+

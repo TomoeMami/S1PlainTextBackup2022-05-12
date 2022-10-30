@@ -2242,3 +2242,15 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 
 现在回想一下，这片垃圾的地方和之前东映那个超级恶魔人一样甚至更惨，人家大烂片超级恶魔人还有动作戏看呢，哦，大概是黑日这演员比较没那么棒读<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 204#         楼主| 发表于 2022-10-30 13:39
+
+[https://twitter.com/jon_maggy/status/1585660192707919872](https://twitter.com/jon_maggy/status/1585660192707919872)
+
+仮面ライダーBLACK SUNにて古代甲冑魚怪人ビルゲニアの『サタンサーベル ホルダー』の製作でお手伝いさせて頂きました！微力ながら、歴史ある仮面ライダーシリーズに関わらせて頂ける日が来るなんて…本当に夢の様です。#仮面ライダーBLACKSUN #ブラックサン #ビルゲニア #サタンサーベル 
+<img src="https://p.sda1.dev/8/4d8ef87f7f3df993f8d99d703936862d/20221030_133755.jpg" referrerpolicy="no-referrer">
+
