@@ -12459,3 +12459,38 @@ miko的近期活动和已知的各类情报每天都会更新在2 3L 不知道�
 
 看过一万次了
 
+
+
+*****
+
+####  holoan  
+##### 2699#         楼主| 发表于 2022-10-30 20:40
+
+这就坐下来了
+
+很累吗你
+
+*****
+
+####  rs5621  
+##### 2700#       发表于 2022-10-30 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩太鼓吧体力耗尽,直接坐地板上了
+
+<img src="https://img.saraba1st.com/forum/202210/30/204128ndd8g85zsg5v5nd8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 20:41 上传
+
+
+
+*****
+
+####  holoan  
+##### 2701#         楼主| 发表于 2022-10-30 20:50
+
+staff这可以，绝对猜不对
+

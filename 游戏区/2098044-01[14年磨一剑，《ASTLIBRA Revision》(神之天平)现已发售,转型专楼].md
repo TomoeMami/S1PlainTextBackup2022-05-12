@@ -13250,3 +13250,14 @@ wiki看不懂日文可以对着装备数值去找
   -- 来自 能搜索的 Stage1官方 Android客户端</blockquote>
 谢谢，那我就放心大胆的打了
 
+
+
+*****
+
+####  御坂MKII  
+##### 1208#       发表于 2022-10-30 20:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">按到手痛了
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

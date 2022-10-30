@@ -1347,3 +1347,14 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这预告看的我好馋啊，好久没见过这么正经一脸反派样的梅特龙星人了
 
+
+
+*****
+
+####  魔法少女wwz  
+##### 726#       发表于 2022-10-30 20:44
+
+好像是为了塑造三人组 特意安排奏大迷茫
+
+同样的环节还是欧斯超人表现好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
