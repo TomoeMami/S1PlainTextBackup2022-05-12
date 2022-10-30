@@ -2450,3 +2450,15 @@ dlc罢了
 
 当然20世纪少年后面也崩了，但是20世纪少年插叙起来和几个爆点真的都还挺催泪的，黑日感觉没到火候
 
+
+
+*****
+
+####  米列希安  
+##### 222#       发表于 2022-10-30 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58183901&amp;ptid=2075178" target="_blank">浅川雏羽 发表于 2022-10-30 14:20</a>
+
+贴吧不是主要是喷这片儿的嘛</blockquote>
+还真不是，贴吧吹的多，这边才是主力输出
+
