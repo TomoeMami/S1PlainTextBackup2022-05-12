@@ -2462,3 +2462,19 @@ dlc罢了
 贴吧不是主要是喷这片儿的嘛</blockquote>
 还真不是，贴吧吹的多，这边才是主力输出
 
+
+
+*****
+
+####  plok201  
+##### 223#       发表于 2022-10-30 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185597&amp;ptid=2075178" target="_blank">游蜓 发表于 2022-10-30 15:49</a>
+
+赛文ov算不算成功的成人化</blockquote>
+总体来看的话，我个人是放到成功那一档的
+
+反正看着算是言之有物，然后不乱放成人要素来显示自己不是幼稚特摄就行了
+
+起码赛文OV是能镇住我的，不像这黑日，那个剑圣仿佛是劣质漫展COS，我忍着不笑已经很难了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

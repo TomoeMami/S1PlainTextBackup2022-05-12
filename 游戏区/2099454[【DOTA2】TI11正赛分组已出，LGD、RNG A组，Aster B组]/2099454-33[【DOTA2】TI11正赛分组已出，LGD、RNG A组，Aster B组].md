@@ -2946,3 +2946,15 @@ cnmv社真就没新英雄了
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  哈曼的YY  
+##### 48382#       发表于 2022-10-30 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58193409&amp;ptid=2099454" target="_blank">isla 发表于 2022-10-30 20:53</a>
+
+大祭品赶紧删了吧，把把占一个格子的垃圾道具</blockquote>
+最后一把双方都没出大祭品
+
