@@ -3375,3 +3375,51 @@ DOTA2】Ti酒馆，超美的毛妹COS秀！一次看过瘾 [https://www.bilibili
 
 2022-10-30 09:31 上传
 
+
+
+*****
+
+####  蛭人  
+##### 45381#       发表于 2022-10-30 09:33
+
+我艹，BBC是真流弊啊，才发现刀塔之夜居然又派台妹搞事情，还好这次不用被喷的痛哭流涕，西恩刀塔媒体太流弊了。
+
+*****
+
+####  nowaki  
+##### 45382#       发表于 2022-10-30 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58178710&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-30 08:55</a>
+
+掀背应该效仿我詹从控卫打到中锋的做法，从1号位打到5号位组成足以毁灭dota的阵容 ...</blockquote>
+詹詹的从1打到5只是嘴上说说而已，他打5只是为了抢后场板，防中锋他一般交给后卫去干。
+
+*****
+
+####  yyf奇遇记  
+##### 45383#       发表于 2022-10-30 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179114&amp;ptid=2099454" target="_blank">aruruu 发表于 2022-10-30 09:21</a>
+第三盘如果不是液体最后一手灵性的夜魔，bp应该是优势吧
+
+—— 来自 HONOR LGE-AN00, Android 12上的 S1N ...</blockquote>
+自己抢小黑那一手就无限劣势了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  食粪者  
+##### 45384#       发表于 2022-10-30 09:41
+
+撸狗把厉害的南棒爹买完又能硬了
+
+*****
+
+####  夏溪澪mio  
+##### 45385#       发表于 2022-10-30 09:41
+
+怎么集美都说余韵布莱恩特全招了啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">是怎么得出完全相反的结论的
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

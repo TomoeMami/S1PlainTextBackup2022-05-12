@@ -15200,3 +15200,14 @@ A.「つらいときは目的が何なのか思い出す。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Enakina  
+##### 8869#       发表于 2022-10-30 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58177146&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-10-30 03:31</a>
+突然想到我一般不关心新番OPED这种单曲的宣发的，只有这次特别注意下，毕竟鲤推。之前也就鬼灭巨人或者柯 ...</blockquote>
+宣发和动画没太大关系吧，鲤鱼三单的宣发和一专那会基本是一个套路
+
