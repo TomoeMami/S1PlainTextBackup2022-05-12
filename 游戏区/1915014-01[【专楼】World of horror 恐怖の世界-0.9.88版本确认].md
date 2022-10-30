@@ -4034,3 +4034,19 @@ WOH的发行商将参加PAX WEST
 
 —— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 232#       发表于 2022-10-30 16:05
+
+别急，接下来的更新是0.9.9b<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  oidoid  
+##### 233#       发表于 2022-10-30 16:11
+
+自信点，0.9.999b
+
