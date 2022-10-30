@@ -12351,3 +12351,15 @@ miko没什么兴趣的
 
 说了也没用关键就是懒，下午起得来也不想播，已经回不到当年一天3播的感觉了
 
+
+
+*****
+
+####  rs5621  
+##### 2688#       发表于 2022-10-30 14:41
+
+哦哦，3d联动原来是前几天就有的消息，我都忘了。
+syl   现在要是1天3动也太拼了，前两个月还是能经常1天2动的。这个月是太忙了吧，不是说都没得好好休息嘛，让她休息得了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
