@@ -13320,3 +13320,12 @@ wiki看不懂日文可以对着装备数值去找
 
 不过这几天我重新下了客户端，确实找回了一点以前的感觉，中军局畅行无阻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  電子器官依存  
+##### 1215#       发表于 2022-10-30 21:49
+
+我傻了，玩了三个半小时的体验版，回过神来竞技场里的挑战就剩双哥布林王了，救救，体验版的存档可以继承吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
