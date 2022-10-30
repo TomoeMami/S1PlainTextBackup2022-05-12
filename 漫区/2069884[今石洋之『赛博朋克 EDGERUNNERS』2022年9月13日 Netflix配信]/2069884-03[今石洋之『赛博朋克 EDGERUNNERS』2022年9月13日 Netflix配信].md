@@ -40,3 +40,17 @@
 
 不知道楼里有没有推荐过这个MAD，有的话我就再推荐一次<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  高龙  
+##### 3167#       发表于 2022-10-30 15:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58182412&amp;ptid=2069884" target="_blank">reficul 发表于 2022-10-30 12:57</a>
+
+https://www.bilibili.com/video/BV1i24y1d7T8/?spm_id_from=333.6.header_right.fav_list.click&amp;vd_source ...</blockquote>
+[https://www.bilibili.com/video/BV1He4y1y7iq/](https://www.bilibili.com/video/BV1He4y1y7iq/)
+
+我还是觉得这个更有味道。
+

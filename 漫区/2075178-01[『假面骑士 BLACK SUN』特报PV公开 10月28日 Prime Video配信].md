@@ -2341,3 +2341,29 @@ dlc罢了
 
 的确看完很多人物行为看得一头雾水，毫无逻辑可言。不过影月真的帅~~
 
+
+
+*****
+
+####  ashero  
+##### 213#       发表于 2022-10-30 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58183808&amp;ptid=2075178" target="_blank">一个陆仁贾 发表于 2022-10-30 14:14</a>
+
+看贴吧还有人说这片要有日本史知识才能看出深度看出爽度，这种全部白费的才是好结局，给我看笑了
+
+ ...</blockquote>
+深度没塑造出来 爽度也没爽出来  但是确实就和日本左翼结局差不多 全部木大 变小丑了  连女主最后都比现在的日本左翼强
+
+*****
+
+####  游蜓  
+##### 214#       发表于 2022-10-30 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58158508&amp;ptid=2075178" target="_blank">plok201 发表于 2022-10-29 10:45</a>
+
+基本上完美撞上除了硬加涩情场景外的特摄成人化拉跨的点，也是不简单
+
+整个世界观为了掺真实性加了一堆历史 ...</blockquote>
+赛文ov算不算成功的成人化
+
