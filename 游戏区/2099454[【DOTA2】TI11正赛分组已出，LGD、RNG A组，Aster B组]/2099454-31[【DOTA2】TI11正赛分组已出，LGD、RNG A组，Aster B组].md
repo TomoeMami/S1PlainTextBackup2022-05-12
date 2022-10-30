@@ -3158,3 +3158,40 @@ very 不 professional
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nerugigannte  
+##### 45355#       发表于 2022-10-30 08:44
+
+bp手也要有
+
+*****
+
+####  恐怖利刃  
+##### 45356#       发表于 2022-10-30 08:49
+
+冠军级的五，会被lgd纳入麾下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 45357#       发表于 2022-10-30 08:50
+
+今天应该会公布新英雄吧
+
+*****
+
+####  yyf奇遇记  
+##### 45358#       发表于 2022-10-30 08:51
+
+银k第一盘第二盘banpick做的挺好，第三盘就犯病了
+
+*****
+
+####  nerugigannte  
+##### 45359#       发表于 2022-10-30 08:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明年最好的2345是谁？
+
