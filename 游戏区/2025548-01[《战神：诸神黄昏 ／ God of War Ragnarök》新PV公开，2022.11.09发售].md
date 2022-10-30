@@ -8804,3 +8804,16 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 比起剧透楼那种大的，打肥仔这种算是比较正向宣传了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  陈词与芍药  
+##### 922#       发表于 2022-10-31 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58183686&amp;ptid=2025548" target="_blank">螺旋的小夜曲 发表于 2022-10-30 01:07</a>
+怎么还有10天就偷跑了</blockquote>
+当时eBay有卖，看了看余额要咬咬牙买了，现在吃土了<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

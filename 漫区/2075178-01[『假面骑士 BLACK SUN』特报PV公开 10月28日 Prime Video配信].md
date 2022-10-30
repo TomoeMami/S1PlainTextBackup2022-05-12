@@ -2538,3 +2538,14 @@ BLACKSUN2週目視聴しながら仕事する。
 https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 那制作对不起这么帅的图
 
+
+
+*****
+
+####  funkyfrog  
+##### 229#       发表于 2022-10-31 00:56
+
+难看到家了，人物逻辑成谜，剧情发展一坨屎，大量没必要的黑深残，生硬的人物发展，嗯讲自己都没搞明白的政治戏，男主角回回当谜语人战斗力拉的一批，动作戏设计也不行，要不是前期讲了讲全共斗真看不下去。
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
