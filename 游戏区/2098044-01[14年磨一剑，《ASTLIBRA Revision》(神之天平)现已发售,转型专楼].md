@@ -13329,3 +13329,12 @@ wiki看不懂日文可以对着装备数值去找
 
 我傻了，玩了三个半小时的体验版，回过神来竞技场里的挑战就剩双哥布林王了，救救，体验版的存档可以继承吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vidomina  
+##### 1216#       发表于 2022-10-31 00:25
+
+打穿本体全靠空中突刺赞精放凭依，这套路不知新章好用不<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+

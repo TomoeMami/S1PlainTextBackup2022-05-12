@@ -15334,3 +15334,23 @@ A.「つらいときは目的が何なのか思い出す。
 
 看了下彩的访谈，感觉我捋不清时间线了。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8882#       发表于 2022-10-31 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58197918&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-31 00:15</a>
+看了下彩的访谈，感觉我捋不清时间线了。</blockquote>
+有些啥有意思的时间点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 8883#       发表于 2022-10-31 00:29
+
+电子投票怕过谁<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
