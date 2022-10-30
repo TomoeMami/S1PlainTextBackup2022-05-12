@@ -15375,3 +15375,41 @@ A.「つらいときは目的が何なのか思い出す。
 
 大概就是高二时接到二期生招募信息，但一单发售活动都高三了，接受落选的事实，然后再去面试？
 
+
+
+*****
+
+####  cybernetics31  
+##### 8885#       发表于 2022-10-31 00:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说的话开始打架了呢(
+
+*****
+
+####  愛さ実  
+##### 8886#       发表于 2022-10-31 00:48
+
+不理解为什么企划开始把二期生进来的时间一直往前推？宣扬二期间羁绊有多深吗，还是雪藏时间久激起观众同情心？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 8887#       发表于 2022-10-31 00:49
+
+ 本帖最后由 Enakina 于 2022-10-31 00:52 编辑 
+
+这个时间线我也觉得越推越怪，等有时间把可用信息统合一下，不过感觉也准确不起来
+
+*****
+
+####  aoaoaodedede  
+##### 8888#       发表于 2022-10-31 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198161&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-10-31 00:35</a>
+大概就是高二时接到二期生招募信息，但一单发售活动都高三了，接受落选的事实，然后再去面试？ ...</blockquote>
+有意思，有点卡时间点的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+钻牛角尖圆一下的话，说不定代指的是高二高三衔接的这一段时间？
+当然个人对LLD这种采访的态度是“大概知道这么回事就行”。杂志的编辑之类的是否做过修改，做采访记录的人是否完全传达被采访者的原意，被采访者是否准确传达出意思，都不得而知<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
