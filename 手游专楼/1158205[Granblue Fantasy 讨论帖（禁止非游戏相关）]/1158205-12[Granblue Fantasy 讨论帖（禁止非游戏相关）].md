@@ -29,3 +29,12 @@
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 17140#       发表于 2022-10-30 22:39
+
+风是厉害，就那落后了几轮的盘子，靠着新10分MAO顶在一线这么久，靠着旧10分猴也SOLO过极巴，我的火即使有新盘了也一样羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

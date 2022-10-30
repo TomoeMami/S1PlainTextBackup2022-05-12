@@ -2526,3 +2526,15 @@ dlc罢了
 BLACKSUN2週目視聴しながら仕事する。
 <img src="https://p.sda1.dev/8/eb1e5a0ece0d3c3b2e9bbac4a44f3152/20221030_221235.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  凡人一名  
+##### 228#       发表于 2022-10-30 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58195809&amp;ptid=2075178" target="_blank">Piano-Forest 发表于 2022-10-30 22:14</a>
+
+https://twitter.com/matutoya/status/1585642684252753926</blockquote>
+那制作对不起这么帅的图
+

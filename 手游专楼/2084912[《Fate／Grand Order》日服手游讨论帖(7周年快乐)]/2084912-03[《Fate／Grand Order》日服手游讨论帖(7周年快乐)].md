@@ -3352,3 +3352,15 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 人间要塞，突击钢铁猩猩<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3299#       发表于 2022-10-30 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58167522&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-29 18:27</a>
+
+我TMD只是想抽个C元帅过个幕间和强化本</blockquote>
+卧槽
+
