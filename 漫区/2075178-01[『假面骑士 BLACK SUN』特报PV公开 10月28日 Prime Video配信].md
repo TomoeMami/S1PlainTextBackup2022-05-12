@@ -2319,3 +2319,16 @@ dlc罢了
  ...</blockquote>
 贴吧不是主要是喷这片儿的嘛
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 211#       发表于 2022-10-30 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58183901&amp;ptid=2075178" target="_blank">浅川雏羽 发表于 2022-10-30 14:20</a>
+贴吧不是主要是喷这片儿的嘛</blockquote>
+只是在贴吧看到相关讨论这片的，没特意看假面骑士吧
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
