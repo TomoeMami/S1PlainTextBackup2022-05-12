@@ -9373,3 +9373,14 @@ hhh 对第二个生日的执念XD 有的人过了三个 有的就....
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  再迷  
+##### 2493#       发表于 2022-10-30 11:53
+
+旗下主播这么漏勺感觉早晚得出事，厂子不管管么
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
