@@ -2296,3 +2296,26 @@ dlc罢了
 尼玛，当初粽子剧场版那个&amp;#x5 ...</blockquote>
 还是别了吧，这片为了那点映射，怪人弱得普遍怕GUN,强度还不如粽子。
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 209#       发表于 2022-10-30 14:14
+
+看贴吧还有人说这片要有日本史知识才能看出深度看出爽度，这种全部白费的才是好结局，给我看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  浅川雏羽  
+##### 210#       发表于 2022-10-30 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58183808&amp;ptid=2075178" target="_blank">一个陆仁贾 发表于 2022-10-30 14:14</a>
+
+看贴吧还有人说这片要有日本史知识才能看出深度看出爽度，这种全部白费的才是好结局，给我看笑了
+
+ ...</blockquote>
+贴吧不是主要是喷这片儿的嘛
+
