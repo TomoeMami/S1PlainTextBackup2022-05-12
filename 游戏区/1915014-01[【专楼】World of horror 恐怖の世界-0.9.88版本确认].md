@@ -4022,3 +4022,15 @@ WOH的发行商将参加PAX WEST
 
 0.9.9更新了，1.0是不是明年今天就有了
 
+
+
+*****
+
+####  Tnsbilws  
+##### 231#         楼主| 发表于 2022-10-30 10:54
+
+更新截图
+<img src="https://p.sda1.dev/8/a4708e62655421aeb2b6260448c18be0/20221030_071233.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
