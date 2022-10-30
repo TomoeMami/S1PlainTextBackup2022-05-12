@@ -27,3 +27,16 @@
 [https://twitter.com/Dino_illus/status/1584966991659831296](https://twitter.com/Dino_illus/status/1584966991659831296)
 <img src="https://p.sda1.dev/8/1dc3edde5be24783b68b91aabaf76e27/illust_102284076_20221029_133440.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  reficul  
+##### 3166#       发表于 2022-10-30 12:57
+
+[https://www.bilibili.com/video/B ... 1190a03ff94f4f20e4d](https://www.bilibili.com/video/BV1i24y1d7T8/?spm_id_from=333.6.header_right.fav_list.click&amp;vd_source=d6d3ab8fb57751190a03ff94f4f20e4d)
+
+【边缘行者】冬之花
+
+不知道楼里有没有推荐过这个MAD，有的话我就再推荐一次<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

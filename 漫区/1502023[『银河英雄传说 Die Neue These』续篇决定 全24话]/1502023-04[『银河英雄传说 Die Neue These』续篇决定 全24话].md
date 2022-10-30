@@ -64,3 +64,15 @@ F4是旧帝国36代皇帝，弗里德里希IV世，简称F4
 同道中人这段不错啊，小妈看小孩子的眼神</blockquote>
 官方好懂呀，这段做得比原作还色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  roxas.sora  
+##### 5497#       发表于 2022-10-30 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181798&amp;ptid=1502023" target="_blank">aptx8285144 发表于 2022-10-30 12:20</a>
+
+官方好懂呀，这段做得比原作还色</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">氛围，cv演技，分镜都到位了
+
