@@ -13196,3 +13196,16 @@ wiki看不懂日文可以对着装备数值去找
 
 这装备强化上限是+99吗
 
+
+
+*****
+
+####  redsouris  
+##### 1203#       发表于 2022-10-30 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58188202&amp;ptid=2098044" target="_blank">tsubaki 发表于 2022-10-30 17:32</a>
+隐藏BOSS全部击破后武器都练了会给一堆石头，然后扭蛋25次抽取会给一本炼金术合成书，里面有石头合成方案 ...</blockquote>
+换铠甲的事儿是8章传回去见老板娘就会提到了
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

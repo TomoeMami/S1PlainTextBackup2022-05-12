@@ -15246,3 +15246,12 @@ A.「つらいときは目的が何なのか思い出す。
 
 嗓子先天条件还是差点，一上高音就往尖走了。。。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8873#       发表于 2022-10-30 18:50
+
+想起今天是一巡开始的一周年了，五味杂陈啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
