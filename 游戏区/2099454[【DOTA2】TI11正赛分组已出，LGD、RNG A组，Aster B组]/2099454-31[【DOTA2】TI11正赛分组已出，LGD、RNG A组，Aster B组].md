@@ -3337,3 +3337,41 @@ DOTA2】Ti酒馆，超美的毛妹COS秀！一次看过瘾 [https://www.bilibili
 
 毛妹好大啊
 
+
+
+*****
+
+####  蛭人  
+##### 45377#       发表于 2022-10-30 09:27
+
+2022年术士zai还有盘，太好了。
+
+*****
+
+####  夏溪澪mio  
+##### 45378#       发表于 2022-10-30 09:28
+
+隔壁倒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">西恩dota最光明的一天
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nerugigannte  
+##### 45379#       发表于 2022-10-30 09:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">上次同事在我旁边哀叹刚出去看比赛被让2追3，我非常诧异共情道：可惜了可惜了
+
+*****
+
+####  恐怖利刃  
+##### 45380#       发表于 2022-10-30 09:32
+
+<img src="https://img.saraba1st.com/forum/202210/30/093157l02x51hp1sh0pq1x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>88ED9171-1CA0-4038-B1F1-1DFB561FCBA3.jpeg</strong> (523.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 09:31 上传
+
