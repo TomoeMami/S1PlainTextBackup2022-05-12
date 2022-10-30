@@ -3948,3 +3948,30 @@ Ti11打完直接开ti12的楼不就行了吗
 比较同意。
 资源分配出大问题，对线期过后对对面全是误判，失误后还越打越急。
 
+
+
+*****
+
+####  ののワ  
+##### 45445#       发表于 2022-10-30 10:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">刀的隔壁是CSGO，撸的隔壁是农
+
+*****
+
+####  yyf奇遇记  
+##### 45446#       发表于 2022-10-30 10:50
+
+我个人是不懂最后一手不ban小黑，ban夜魔的
+
+然后打的也跟我赛前预料的差不多<img src="https://p.sda1.dev/8/9a4c41523dbbb9e44800fc160fcd8077/CMP_20221030104934144.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  夏溪澪mio  
+##### 45447#       发表于 2022-10-30 10:50
+
+我的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是去孤独摇滚楼舔虹夏吧
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
