@@ -8714,3 +8714,14 @@ https://bbs.saraba1st.com/2b/thread-2102104-0-1.html
 
 战神4会有ps5版本吗
 
+
+
+*****
+
+####  名字已被吃  
+##### 914#       发表于 2022-10-30 12:45
+
+b站首页都刷出来boss战泄露视频推荐了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
