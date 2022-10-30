@@ -2998,3 +2998,15 @@ tundra会玩点阴的，但手活不行，得靠33带</blockquote>
 哈哈 老哥看走眼了</blockquote>
 不过得靠33带是真的，只不过再加上skiter化龙了
 
+
+
+*****
+
+####  xman123601  
+##### 48387#       发表于 2022-10-30 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58196651&amp;ptid=2099454" target="_blank">逃离二次元 发表于 2022-10-30 21:59</a>
+
+不过得靠33带是真的，只不过再加上skiter化龙了</blockquote>
+我还是感觉九神可以，比赛第一把 他的海民 0杀6死 被打爆 后面一路一直用，一般人早就换人了
+
