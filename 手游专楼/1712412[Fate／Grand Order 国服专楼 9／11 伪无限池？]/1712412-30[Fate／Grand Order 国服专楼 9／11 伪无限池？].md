@@ -368,3 +368,12 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 是不是选择错服务器了？</blockquote>
 一直用模拟器玩的，什么设置也没变过，把模拟器卸了重新装又好了，不知道什么原因，难道误点区服选择了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  苍蓝之枪  
+##### 43671#       发表于 2022-10-30 17:04
+
+居然又爆体了，活动期间爆体两次，唉......
+
