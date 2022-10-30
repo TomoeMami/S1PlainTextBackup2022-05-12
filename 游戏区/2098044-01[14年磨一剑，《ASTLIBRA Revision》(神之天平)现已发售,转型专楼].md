@@ -13359,3 +13359,32 @@ wiki看不懂日文可以对着装备数值去找
 第四章进入淹水的房间怎么动不了开关啊，碰上bug了吗</blockquote>
 试试用弓箭或者回旋镖来触发？
 
+
+
+*****
+
+####  redsouris  
+##### 1219#       发表于 2022-10-31 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198219&amp;ptid=2098044" target="_blank">guiminan 发表于 2022-10-31 00:41</a>
+第四章进入淹水的房间怎么动不了开关啊，碰上bug了吗</blockquote>
+那个机关用弓箭或者回旋镖触发，大概原来是跳不上去的所以只设计了被远程攻击触发
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  quanlix  
+##### 1220#       发表于 2022-10-31 01:18
+
+斗技场全清完，就差盖亚深层了，发个正在用的天平配置
+
+QQ截图20221031010828.jpg
+(65.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-31 01:17 上传
+
+<img src="https://img.saraba1st.com/forum/202210/31/011739c4swhcsr99n9miip.jpg" referrerpolicy="no-referrer">
+

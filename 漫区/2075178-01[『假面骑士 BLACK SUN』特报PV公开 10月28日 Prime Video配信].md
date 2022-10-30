@@ -2549,3 +2549,12 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  江城诀丶  
+##### 230#       发表于 2022-10-31 01:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是批站吹子比较多，说不好看就是没满18岁不懂深度的云小鬼
+
