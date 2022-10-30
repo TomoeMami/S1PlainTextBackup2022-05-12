@@ -932,3 +932,16 @@ mark，无中文苦手，求推荐有中文的推理adv
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  妄想中毒  
+##### 85#       发表于 2022-10-30 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58176988&amp;ptid=1847701" target="_blank">cablecableca 发表于 2022-10-30 02:40</a>
+第一话标题オルゴール我就不认识滚去继续学日语了
+
+—— 来自 S1Fun ...</blockquote>
+片假名不需要全认识，我n1过了好多年啃了无数生肉AVG了这标题我不查字典一样不认识<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
