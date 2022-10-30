@@ -2509,3 +2509,20 @@ dlc罢了
 
 从洞幺开始那吧的攻击性就是我去了都发怵的
 
+
+
+*****
+
+####  Piano-Forest  
+##### 227#         楼主| 发表于 2022-10-30 22:14
+
+[https://twitter.com/matutoya/status/1585642684252753926](https://twitter.com/matutoya/status/1585642684252753926)
+<img src="https://p.sda1.dev/8/35e4473ec709e859f2f6839eb7f210d8/20221030_221231.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/KABABABABA/status/1585858982521905153](https://twitter.com/KABABABABA/status/1585858982521905153)
+
+寝起きのワンドロ。
+
+BLACKSUN2週目視聴しながら仕事する。
+<img src="https://p.sda1.dev/8/eb1e5a0ece0d3c3b2e9bbac4a44f3152/20221030_221235.jpg" referrerpolicy="no-referrer">
+
