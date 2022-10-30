@@ -2708,3 +2708,186 @@ best team won，这决赛太好看了</blockquote>
 
 有没有one more thing，第二个新英雄或者新版本预告
 
+
+
+*****
+
+####  roger_goodell  
+##### 48357#       发表于 2022-10-30 21:01
+
+拿美杜莎都可以赢你，已经是next level了
+
+*****
+
+####  哈萨维·诺亚  
+##### 48358#       发表于 2022-10-30 21:01
+
+<img src="https://img.saraba1st.com/forum/202210/30/210115zkbe6w7k7z7wlk2y.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (23.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 21:01 上传
+
+可爱
+
+*****
+
+####  星野航  
+##### 48359#       发表于 2022-10-30 21:01
+
+讲真今年完成阿拳既定目标了啊，第二了
+
+看看是不是真的可以让dota2有始有终，明年阿拳拿个冠军给ti送终<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  
+
+*****
+
+####  seki_m  
+##### 48360#       发表于 2022-10-30 21:01
+
+摸够没，摸够送到赌场让张宁回杭州
+
+
+
+*****
+
+####  a1370303  
+##### 48361#       发表于 2022-10-30 21:01
+
+我一直是小保安啊
+
+*****
+
+####  哈萨维·诺亚  
+##### 48362#       发表于 2022-10-30 21:02
+
+结束咯 什么时候换楼
+
+*****
+
+####  端木恋心  
+##### 48363#       发表于 2022-10-30 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58193755&amp;ptid=2099454" target="_blank">哈萨维·诺亚 发表于 2022-10-30 21:02</a>
+
+结束咯 什么时候换楼</blockquote>
+已经换了啊。前面有链接。
+
+*****
+
+####  沉默之声  
+##### 48364#       发表于 2022-10-30 21:02
+
+太监论坛又在酸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  战狼PTSD  
+##### 48365#       发表于 2022-10-30 21:02
+
+今年看的不过瘾，想了下可能一是赛事各方面都很草台，二是国内队伍艹艹淘汰，太多赛场外的事吸引了注意力
+
+*****
+
+####  azccc52  
+##### 48366#       发表于 2022-10-30 21:02
+
+恭喜tundra
+
+*****
+
+####  轮太  
+##### 48367#       发表于 2022-10-30 21:03
+
+所以今年除了一个新英雄就没了？
+
+*****
+
+####  哈萨维·诺亚  
+##### 48368#       发表于 2022-10-30 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58193771&amp;ptid=2099454" target="_blank">端木恋心 发表于 2022-10-30 21:02</a>
+
+已经换了啊。前面有链接。</blockquote>
+窝的窝的
+
+*****
+
+####  DarkDuck  
+##### 48369#       发表于 2022-10-30 21:05
+
+石头人举盾了，圆梦了！
+这3把比赛太好看咯
+
+*****
+
+####  kyl2001  
+##### 48370#       发表于 2022-10-30 21:06
+
+召唤nga搬史工
+
+*****
+
+####  AME8年铁粉  
+##### 48371#       发表于 2022-10-30 21:06
+
+笑不活了   小偷队 偷盾队 嗑药队 太子队 最菜队 寡头队 版本队   和 硬实力冠军队的区别是什么
+
+JFW@2UY7((T$%1SN_0$ZY9X.jpg
+(61.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 21:06 上传
+
+<img src="https://img.saraba1st.com/forum/202210/30/210626kesaff1yz4io4zbo.jpg" referrerpolicy="no-referrer">
+
+4$VSTA64VXG[`6_Y[G}Z7B1.jpg
+(120.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 21:06 上传
+
+<img src="https://img.saraba1st.com/forum/202210/30/210630dly11ryzlz9wrgmm.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  你可以试试  
+##### 48372#       发表于 2022-10-30 21:07
+
+其实今天的没昨天好看，今天尼公子鲁迅尿漫了，水晶也工具得没脾气
+
+*****
+
+####  王宇旻❤潘婕  
+##### 48373#       发表于 2022-10-30 21:09
+
+<img src="https://img.saraba1st.com/forum/202210/30/210902v9xqqxkvhrx6vnxz.jpg" referrerpolicy="no-referrer">
+
+<strong>72290624fa4a8b7e.jpg</strong> (6.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 21:09 上传
+
+<img src="https://img.saraba1st.com/forum/202210/30/210904ao70gnq3q80803ug.jpg" referrerpolicy="no-referrer">
+
+<strong>77b1544d54011e1f.jpg</strong> (6.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 21:09 上传
+
+*****
+
+####  枯风瘦雪02  
+##### 48374#       发表于 2022-10-30 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58193954&amp;ptid=2099454" target="_blank">你可以试试 发表于 2022-10-30 21:07</a>
+其实今天的没昨天好看，今天尼公子鲁迅尿漫了，水晶也工具得没脾气</blockquote>
+第一把没打过就没有心气了，绝对核心的老鹿打完一管蓝对面不死人，这搁谁身上都够呛能调整过来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
