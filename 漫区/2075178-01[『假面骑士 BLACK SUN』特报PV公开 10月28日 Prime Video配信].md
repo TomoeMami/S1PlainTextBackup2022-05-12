@@ -2378,3 +2378,14 @@ dlc罢了
 看得比较兴奋的地方大概就黑日完全体初次变身，最终红眼+符号致敬TV皮套，和最后的镜像变身，其他时候可以说几乎完全不照顾来打粉和动作电影迷。打戏可以说完全没有设计，影月用牙口把人腰斩真是看笑我了…………而在把故事完全说歪之后再来个致敬op也可以说是一点水到渠成的感觉都没有。
 西岛秀俊是真的帅，我还是蛮吃leon这套的，宁愿把其他情节各种温温吞吞的叙事和细碎的剪辑砍掉一半，专心塑造大叔小女孩的组合。
 
+
+
+*****
+
+####  eyeego  
+##### 216#       发表于 2022-10-30 18:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58187713&amp;ptid=2075178" target="_blank">人形灾害 发表于 2022-10-30 17:14</a>
+像楼里前面说的那样，近年蒙面超人对成人黑暗的印象实在是太刻板了。全共斗、近代政治史，人物内里的感情逻 ...</blockquote>
+然后拔蝗虫腿逼还没装完剑圣被人带走了 日本人已经连爽 片都搞不懂怎么拍了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
