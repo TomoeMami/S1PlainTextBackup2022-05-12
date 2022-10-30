@@ -3373,3 +3373,15 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 2.6回顾是不是水浒结束就来了？
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3301#       发表于 2022-10-31 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58197614&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-10-30 23:57</a>
+
+2.6回顾是不是水浒结束就来了？</blockquote>
+稳的，总得回顾完才能开要求通关的活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

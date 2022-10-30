@@ -38,3 +38,17 @@
 
 风是厉害，就那落后了几轮的盘子，靠着新10分MAO顶在一线这么久，靠着旧10分猴也SOLO过极巴，我的火即使有新盘了也一样羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  windlikeman  
+##### 17141#       发表于 2022-10-31 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58149582&amp;ptid=1158205" target="_blank">アンリエット 发表于 2022-10-28 18:39</a>
+
+看了下解包，好像真没风LM，加上新石油跳票，这次风团只能拿老一套风老王盘子上200了，不知道小福想 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">风团前风w必少不了的
+
+现在勇气之地也配给w必了就很疑惑
+
