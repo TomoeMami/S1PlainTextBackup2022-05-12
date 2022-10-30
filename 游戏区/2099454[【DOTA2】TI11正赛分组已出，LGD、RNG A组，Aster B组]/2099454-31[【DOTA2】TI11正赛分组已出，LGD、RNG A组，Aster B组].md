@@ -4255,3 +4255,112 @@ sf：赛事初期大热，现在没人选
 
 lets go liquid
 
+
+
+*****
+
+####  Litccc  
+##### 45482#       发表于 2022-10-30 12:03
+
+桶哥这绿帽是何意啊
+
+*****
+
+####  nowaki  
+##### 45483#       发表于 2022-10-30 12:03
+
+该放最后的战役了。
+
+*****
+
+####  yyf奇遇记  
+##### 45484#       发表于 2022-10-30 12:06
+
+马桶请神ti3秃头，达成全瑞典羁绊，撒也不懂
+
+*****
+
+####  masterffzhou  
+##### 45485#       发表于 2022-10-30 12:07
+
+泥沙不是水人绝活哥吗
+
+*****
+
+####  Litccc  
+##### 45486#       发表于 2022-10-30 12:07
+
+狂奶nisha<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人別離苦  
+##### 45487#       发表于 2022-10-30 12:07
+
+桶哥狂吹前队友<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winkle  
+##### 45488#       发表于 2022-10-30 12:07
+
+尿了尿了
+
+*****
+
+####  夏溪澪mio  
+##### 45489#       发表于 2022-10-30 12:08
+
+zai和桶哥都在秘密呆过呀
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sodah  
+##### 45490#       发表于 2022-10-30 12:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最强选手吗。
+
+*****
+
+####  Cookiekira  
+##### 45491#       发表于 2022-10-30 12:08
+
+这么狂奶nisha的吗<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer"> 待会不会尿了吧
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 45492#       发表于 2022-10-30 12:08
+
+梦幻挑战all in 液体
+
+*****
+
+####  Cookiekira  
+##### 45493#       发表于 2022-10-30 12:09
+
+bbc这个也学会捧杀 的也是不是在暗示我giegie！
+
+*****
+
+####  柚上舍人  
+##### 45494#       发表于 2022-10-30 12:10
+
+可惜回家的bo3里火女没有选择曾焦阳
+
+*****
+
+####  WDDzzZ  
+##### 45495#       发表于 2022-10-30 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181463&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-30 12:00</a>
+
+本届热门英雄
+
+玛西：强队手里无敌
+
+畜：赛事初期大热，现在只有绝活哥在玩</blockquote>
+妮卜把窝41水尼公子放在眼里是吧
+
