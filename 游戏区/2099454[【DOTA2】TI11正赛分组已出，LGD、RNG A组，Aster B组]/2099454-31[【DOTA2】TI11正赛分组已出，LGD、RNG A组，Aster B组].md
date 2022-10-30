@@ -5497,3 +5497,273 @@ liquid就是鱼队啊，想赢他们只需要不畜或者别畜那么厉害就�
 
 四号位司夜刺客本来就完爆boxi的啊
 
+
+
+*****
+
+####  Horusddt  
+##### 45648#       发表于 2022-10-30 13:01
+
+问题来了，谁是畜绝活哥啊？突围赛的普森吗
+
+*****
+
+####  walfeds  
+##### 45649#       发表于 2022-10-30 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58182395&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-30 12:57</a>
+卜把zayac当人啊</blockquote>
+太哈人了
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  acejoe  
+##### 45650#       发表于 2022-10-30 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58182457&amp;ptid=2099454" target="_blank">Horusddt 发表于 2022-10-30 13:01</a>
+问题来了，谁是畜绝活哥啊？突围赛的普森吗</blockquote>
+这都算那普森绝活太多了
+
+*****
+
+####  ml1642879  
+##### 45651#       发表于 2022-10-30 13:02
+
+误入你楼
+
+*****
+
+####  六娃  
+##### 45652#       发表于 2022-10-30 13:02
+
+英文流惊现西班牙领导
+
+*****
+
+####  -SLSL-  
+##### 45653#       发表于 2022-10-30 13:04
+
+今天有彩蛋吗
+
+*****
+
+####  tasuku  
+##### 45654#       发表于 2022-10-30 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58182431&amp;ptid=2099454" target="_blank">强袭型抹布 发表于 2022-10-30 12:59</a>
+这水人也太宰猪了吧，我觉得畜长裹尸布水人巅峰发挥也远不如这个水人厉害。
+
+—— 来自 Xiaomi 2112123AC,  ...</blockquote>
+不是，处长水人是有过什么巅峰发挥啊
+
+*****
+
+####  希望之花  
+##### 45655#       发表于 2022-10-30 13:04
+
+入了就是入了
+
+*****
+
+####  梦·花火  
+##### 45656#       发表于 2022-10-30 13:04
+
+所以茶队就不应该输啊，这支马体根本就不强
+
+*****
+
+####  尖刺外婆  
+##### 45657#       发表于 2022-10-30 13:04
+
+必须要有一个司夜刺客
+
+*****
+
+####  蛭人  
+##### 45658#       发表于 2022-10-30 13:04
+
+处长会玩个几把水人，锦集表演还是先被莱恩抓暴毙买活，水人打兽是这样的，优势随便乱杀，这把Boxi没发大力，说了术士zai打团不see，马桶你得力中暴力啊。
+
+*****
+
+####  43453  
+##### 45659#       发表于 2022-10-30 13:04
+
+一直给ni公子选到水人的话看好可以带泉酱拿冠军
+
+*****
+
+####  tasuku  
+##### 45660#       发表于 2022-10-30 13:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58182503&amp;ptid=2099454" target="_blank">梦·花火 发表于 2022-10-30 13:04</a>
+所以茶队就不应该输啊，这支马体根本就不强</blockquote>
+你说得就像阿茶很强一样
+
+
+
+*****
+
+####  端木恋心  
+##### 45661#       发表于 2022-10-30 13:05
+
+战神7点外卖的是吧
+
+*****
+
+####  人別離苦  
+##### 45662#       发表于 2022-10-30 13:05
+
+懂不懂水炮的含金量嗷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离二次元  
+##### 45663#       发表于 2022-10-30 13:05
+
+卜懂就问，处长水人有过什么巅峰发挥
+
+*****
+
+####  反方向的波  
+##### 45664#       发表于 2022-10-30 13:05
+
+<img src="https://p.sda1.dev/8/94d22f94d26c08f04843fc032829c217/CMP_20221030130532236.jpg" referrerpolicy="no-referrer">畜当然算普森的绝活，突围赛唯一输的一把是因为队里真的有个畜牲
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 45665#       发表于 2022-10-30 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58182522&amp;ptid=2099454" target="_blank">逃离二次元 发表于 2022-10-30 13:05</a>
+卜懂就问，处长水人有过什么巅峰发挥</blockquote>
+震中杯，没了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  勤练带来力量  
+##### 45666#       发表于 2022-10-30 13:06
+
+处长水人一个波浪形态直接把fy波玉玉，还有哪个水人能做到？
+
+*****
+
+####  阿垃垃圾历  
+##### 45667#       发表于 2022-10-30 13:06
+
+处长水人巅峰就是G4带领og反败为胜啊  懂又不懂
+
+*****
+
+####  Avantasi  
+##### 45668#       发表于 2022-10-30 13:06
+
+处长水人一个波浪形态直接把fy波玉玉，还有哪个水人能做到？
+
+*****
+
+####  蛭人  
+##### 45669#       发表于 2022-10-30 13:06
+
+处长水人巅峰就是G4带领og反败为胜啊  懂又不懂
+
+*****
+
+####  格雷殿下  
+##### 45670#       发表于 2022-10-30 13:06
+
+波高不是绝活?
+
+*****
+
+####  无意义小号  
+##### 45671#       发表于 2022-10-30 13:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那把变飞机4杀的水人，也贡献了一个被kky单杀的经典镜头
+
+*****
+
+####  maju3  
+##### 45672#       发表于 2022-10-30 13:07
+
+HAO：感觉教练没什么用
+
+*****
+
+####  ml1642879  
+##### 45673#       发表于 2022-10-30 13:07
+
+niko起沙鹰把misutaa打爆了
+
+*****
+
+####  苏沃雷生  
+##### 45674#       发表于 2022-10-30 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58182503&amp;ptid=2099454" target="_blank">梦·花火 发表于 2022-10-30 13:04</a>
+
+所以茶队就不应该输啊，这支马体根本就不强</blockquote>
+就是畜了。第一把己方盾掉了且没买+对方有买，傻子都知道缩回去，结果被一波捅穿。打游戏不动脑子止步于此是应该的
+
+*****
+
+####  acg_s1  
+##### 45675#       发表于 2022-10-30 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58182513&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-30 13:04</a>
+
+你说得就像阿茶很强一样</blockquote>
+很可惜好吧，第一把和第三把很多失误分奴一点的人都不会犯，估计是心理压力太大了
+
+*****
+
+####  强袭型抹布  
+##### 45676#       发表于 2022-10-30 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58182499&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-30 13:04</a>
+不是，处长水人是有过什么巅峰发挥啊</blockquote>
+那为啥老有集美吹畜长的水人啊，难道真的毫无根据的吹么？
+这也太不要脸了吧
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 45677#       发表于 2022-10-30 13:09
+
+石头人看起来要ban水人 玛西 老鹿，感觉要放出来一个怪物了。
+
+*****
+
+####  tasuku  
+##### 45678#       发表于 2022-10-30 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58182579&amp;ptid=2099454" target="_blank">强袭型抹布 发表于 2022-10-30 13:08</a>
+那为啥老有集美吹畜长的水人啊，难道真的毫无根据的吹么？
+这也太不要脸了吧</blockquote>
+有没有可能集美吹处长就只是因为脸
+
+*****
+
+####  六娃  
+##### 45679#       发表于 2022-10-30 13:09
+
+那ni公子肯定拿船长了
+
+*****
+
+####  米奥莉奈  
+##### 45680#       发表于 2022-10-30 13:10
+
+德鲁伊面如死灰啊，桶是不是知道只能走到这里了
+
+*****
+
+####  nowaki  
+##### 45681#       发表于 2022-10-30 13:10
+
+世界第一大圣比得过昨天第一把孤独守高的大圣吗
+

@@ -8725,3 +8725,22 @@ b站首页都刷出来boss战泄露视频推荐了<img src="https://static.sarab
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  clover293  
+##### 915#       发表于 2022-10-30 13:02
+
+ 本帖最后由 clover293 于 2022-10-30 13:07 编辑 
+
+boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预购还能多一点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+剧情方面因为核心是战神不是cory的作品，是圣莫妮卡的作品。
+
+从我个人角度看，先不说索尼或是圣莫妮卡之后的财务问题，就说cory哪怕想写死奎爷，底下一群从工作室建立就在的元老不会同意的。哪怕死也是开放式的结局像战神3一样。
+
+就和仙贝也没那胆子写死德雷克一样
+
+你们知道我在暗示什么<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
