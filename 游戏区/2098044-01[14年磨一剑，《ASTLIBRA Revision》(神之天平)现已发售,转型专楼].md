@@ -13061,3 +13061,34 @@ wiki看不懂日文可以对着装备数值去找
 面包店的盔甲，蛇神岛和魔王城箱子里的盔甲，雪山进门雕像的盾牌
 容易漏的是这几个
 
+
+
+*****
+
+####  baizhi  
+##### 1191#       发表于 2022-10-30 17:12
+
+ 本帖最后由 baizhi 于 2022-10-30 17:14 编辑 
+
+给嘉隆装备上凭借技的能量吸收，敌人的子弹就是我的回血包<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好牛逼啊，根本死不掉，可惜打到终章才发现，不然可以少吃很多瘪。
+
+问一下，贤者塔的梯子怎么上，三段跳+浮空斩都够不着？
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  helix  
+##### 1192#       发表于 2022-10-30 17:16
+
+草，雪山这盾也太难想到了吧
+
+*****
+
+####  helix  
+##### 1193#       发表于 2022-10-30 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58187683&amp;ptid=2098044" target="_blank">baizhi 发表于 2022-10-30 17:12</a>
+给嘉隆装备上凭借技的能量吸收，敌人的子弹就是我的回血包好牛逼啊，根本死不掉，可惜打到终章才发 ...</blockquote>
+我是三段跳加跳跃高度上升的嘉隆技能
+
