@@ -9472,3 +9472,21 @@ kkaa
 碳典使用实例
 [https://tieba.baidu.com/p/8085087513](https://tieba.baidu.com/p/8085087513)
 
+
+
+*****
+
+####  ladiesman802  
+##### 2502#       发表于 2022-10-30 20:16
+
+笑死，咩咩发sc说你有不漏的自信吗？鱼宝说以后来了，你就xxx
+
+*****
+
+####  黄金鸡屁屁  
+##### 2503#       发表于 2022-10-30 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前脚刚和厂长说完以后不漏，后脚就漏完了。鱼宝来卷一波就跑是吧
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

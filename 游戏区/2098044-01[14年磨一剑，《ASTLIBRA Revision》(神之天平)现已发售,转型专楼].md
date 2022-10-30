@@ -13218,3 +13218,22 @@ wiki看不懂日文可以对着装备数值去找
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">大团圆结局打完了，大满足
 
+
+
+*****
+
+####  梅林的三角裤  
+##### 1205#       发表于 2022-10-30 20:13
+
+这游戏会有这种有啥装备没收集到后续收集不了的情况吗
+
+*****
+
+####  大暗月  
+##### 1206#       发表于 2022-10-30 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58192169&amp;ptid=2098044" target="_blank">梅林的三角裤 发表于 2022-10-30 20:13:20</a>
+这游戏会有这种有啥装备没收集到后续收集不了的情况吗</blockquote>没有
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
