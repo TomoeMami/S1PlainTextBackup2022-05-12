@@ -3308,3 +3308,32 @@ bp手也要有
 
 zai玩个不吃经济的搅屎棍还是能发挥作用的
 
+
+
+*****
+
+####  nowaki  
+##### 45374#       发表于 2022-10-30 09:18
+
+怎么不挽留zai zai妹颜值 zai妹天道酬勤
+
+*****
+
+####  aruruu  
+##### 45375#       发表于 2022-10-30 09:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58178644&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-30 08:51</a>
+银k第一盘第二盘banpick做的挺好，第三盘就犯病了</blockquote>
+第三盘如果不是液体最后一手灵性的夜魔，bp应该是优势吧
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tengshuo980  
+##### 45376#       发表于 2022-10-30 09:21
+
+DOTA2】Ti酒馆，超美的毛妹COS秀！一次看过瘾 [https://www.bilibili.com/video/BV19m4y1F7RA/?](https://www.bilibili.com/video/BV19m4y1F7RA/?)
+
+毛妹好大啊
+
