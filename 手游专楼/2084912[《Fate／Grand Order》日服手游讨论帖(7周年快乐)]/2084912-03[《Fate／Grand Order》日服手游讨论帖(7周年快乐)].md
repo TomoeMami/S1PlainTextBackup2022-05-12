@@ -3343,3 +3343,12 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 2022-10-29 18:38 上传
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3298#       发表于 2022-10-30 20:00
+
+人间要塞，突击钢铁猩猩<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

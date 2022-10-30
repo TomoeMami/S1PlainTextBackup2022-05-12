@@ -9449,3 +9449,26 @@ kkaa
 
 好家伙 不愧是2k舰要毕业的老东西  上来就首先我们要善良诚实
 
+
+
+*****
+
+####  ladiesman802  
+##### 2500#       发表于 2022-10-30 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191531&amp;ptid=1926094" target="_blank">喜闻乐见 发表于 2022-10-30 19:48</a>
+
+好家伙 不愧是2k舰要毕业的老东西  上来就首先我们要善良诚实</blockquote>
+这是什么名言？弹幕说碳
+
+*****
+
+####  喜闻乐见  
+##### 2501#         楼主| 发表于 2022-10-30 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191697&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-10-30 19:54</a>
+
+这是什么名言？弹幕说碳</blockquote>
+碳典使用实例
+[https://tieba.baidu.com/p/8085087513](https://tieba.baidu.com/p/8085087513)
+
