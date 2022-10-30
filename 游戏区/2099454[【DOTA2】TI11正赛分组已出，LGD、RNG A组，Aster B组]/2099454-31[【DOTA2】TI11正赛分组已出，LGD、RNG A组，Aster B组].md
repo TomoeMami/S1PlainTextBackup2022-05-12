@@ -3597,3 +3597,137 @@ DOTA2】Ti酒馆，超美的毛妹COS秀！一次看过瘾 [https://www.bilibili
 
 很急
 
+
+
+*****
+
+####  Avantasi  
+##### 45406#       发表于 2022-10-30 10:01
+
+卡登快他妈出吧，快来个力量核吧
+
+*****
+
+####  yyf奇遇记  
+##### 45407#       发表于 2022-10-30 10:02
+
+俊豪导师是吧
+
+*****
+
+####  jy000129  
+##### 45408#       发表于 2022-10-30 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179391&amp;ptid=2099454" target="_blank">反方向的波 发表于 2022-10-30 09:43</a>
+集美和水厂清算量子鞭难道不该狠狠地支持？
+刀塔11559 小时前  
+让世人都记住，给a畜当爹，就该是这般下场 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合着都是共犯是吧？
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Avantasi  
+##### 45409#       发表于 2022-10-30 10:03
+
+真不开新楼吗，标题都换不了，尴尬
+
+*****
+
+####  食粪者  
+##### 45410#       发表于 2022-10-30 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179503&amp;ptid=2099454" target="_blank">Kazepollar 发表于 2022-10-30 09:51</a>
+宿舍楼有撸狗鬼叫的统一鉴定为野鸡大专</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟清百论坛，末流985确实算野鸡大专
+
+*****
+
+####  acg_s1  
+##### 45411#       发表于 2022-10-30 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179318&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-30 09:38</a>
+
+自己抢小黑那一手就无限劣势了
+
+论坛助手,iPad</blockquote>
+如果对面不点夜魔这个克制兽王召唤物的冲脸英雄那这手小黑就是绝杀，即使李逵选了夜魔bp也称不上劣势，数据胜率一度接近80%，但是打得有很多问题，兽王和冰女把对面野区当家被抓，第一波肉山团人不齐打得不够果断，兽的突进很多次跟队友脱节，娜迦A仗没出完队伍去对面2塔强送，只能说茶队的脑浆在bp里用光了
+
+*****
+
+####  南宫月汐  
+##### 45412#       发表于 2022-10-30 10:06
+
+前面坛友发的毛妹cos<img src="https://p.sda1.dev/8/7f3c546bc9ac7110745ed59605da3abc/IMG_CMP_192466447.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  yyf奇遇记  
+##### 45413#       发表于 2022-10-30 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179639&amp;ptid=2099454" target="_blank">acg_s1 发表于 2022-10-30 10:05</a>
+如果对面不点夜魔这个克制兽王召唤物的冲脸英雄那这手小黑就是绝杀，即使李逵选了夜魔bp也称不上劣势，数 ...</blockquote>
+小娜迦拿了再拿小黑我不觉得是多好的banpick
+
+*****
+
+####  yyf奇遇记  
+##### 45414#       发表于 2022-10-30 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179630&amp;ptid=2099454" target="_blank">Avantasi 发表于 2022-10-30 10:03</a>
+真不开新楼吗，标题都换不了，尴尬</blockquote>
+这有什么好尴尬的，莫名其妙...
+
+*****
+
+####  yyf奇遇记  
+##### 45415#       发表于 2022-10-30 10:10
+
+Ti11打完直接开ti12的楼不就行了吗
+
+*****
+
+####  tengshuo980  
+##### 45416#       发表于 2022-10-30 10:10
+
+希望能更新个假小子新英雄
+
+*****
+
+####  Keynes  
+##### 45417#       发表于 2022-10-30 10:11
+
+说隔壁的我都标记了，谁jb和你隔壁
+
+*****
+
+####  格雷殿下  
+##### 45418#       发表于 2022-10-30 10:11
+
+事后分析的话，感觉其实小娜迦的A是卜是可以不用这么早出？
+
+还是先把钱分点给其他大哥？
+
+无论兽王的BKB，还是兽的BKB？
+
+夜魔开大开BKB进来的话，小娜迦后手开大，对面没开BKB的也跟不上阿，
+
+这边这么多人，一个夜魔连跳刀都没有的，飞进来，靠近小黑都已经没了大半管血了，兽王再给个大招给夜魔，夜魔直接被众人围殴致死阿。
+
+*****
+
+####  二宮飛鳥酱  
+##### 45419#       发表于 2022-10-30 10:11
+
+希望能更新个雌小鬼新英雄
+
+*****
+
+####  nowaki  
+##### 45420#       发表于 2022-10-30 10:11
+
+隔壁是管人区捏，谁和你撸狗隔壁
+
