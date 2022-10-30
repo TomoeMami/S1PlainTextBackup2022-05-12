@@ -15354,3 +15354,24 @@ A.「つらいときは目的が何なのか思い出す。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  优妮可  
+##### 8884#       发表于 2022-10-31 00:35
+
+ 本帖最后由 优妮可 于 2022-10-31 00:36 编辑 
+<blockquote>aoaoaodedede 发表于 2022-10-31 00:24
+有些啥有意思的时间点</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/31/003323qy4ym6u9zu0gam4l.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221031_003311.jpg</strong> (92.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-31 00:33 上传
+
+大概就是高二时接到二期生招募信息，但一单发售活动都高三了，接受落选的事实，然后再去面试？
+

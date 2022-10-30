@@ -13338,3 +13338,12 @@ wiki看不懂日文可以对着装备数值去找
 
 打穿本体全靠空中突刺赞精放凭依，这套路不知新章好用不<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  guiminan  
+##### 1217#       发表于 2022-10-31 00:41
+
+第四章进入淹水的房间怎么动不了开关啊，碰上bug了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
