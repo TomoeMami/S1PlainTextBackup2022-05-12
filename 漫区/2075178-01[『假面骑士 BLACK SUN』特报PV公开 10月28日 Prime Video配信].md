@@ -2254,3 +2254,15 @@ ZZ戏写的太直球了，贴吧有小鬼在喊“我看懂了这里的ZZ隐喻�
 仮面ライダーBLACK SUNにて古代甲冑魚怪人ビルゲニアの『サタンサーベル ホルダー』の製作でお手伝いさせて頂きました！微力ながら、歴史ある仮面ライダーシリーズに関わらせて頂ける日が来るなんて…本当に夢の様です。#仮面ライダーBLACKSUN #ブラックサン #ビルゲニア #サタンサーベル 
 <img src="https://p.sda1.dev/8/4d8ef87f7f3df993f8d99d703936862d/20221030_133755.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  NZ-333  
+##### 205#       发表于 2022-10-30 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58179377&amp;ptid=2075178" target="_blank">leitingkai 发表于 2022-10-30 09:42</a>
+
+为什么要两个号都批判一次</blockquote>
+dlc罢了
+

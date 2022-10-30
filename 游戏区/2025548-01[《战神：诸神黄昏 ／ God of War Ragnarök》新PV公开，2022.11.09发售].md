@@ -8757,3 +8757,14 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 剧情方面因为核心是战神不是 ...</blockquote>
 德雷克现在这结局跟死了也没啥区别
 
+
+
+*****
+
+####  pgain2004  
+##### 917#       发表于 2022-10-30 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58183019&amp;ptid=2025548" target="_blank">哈罗 发表于 2022-10-30 13:34</a>
+德雷克现在这结局跟死了也没啥区别</blockquote>
+善终。
+
