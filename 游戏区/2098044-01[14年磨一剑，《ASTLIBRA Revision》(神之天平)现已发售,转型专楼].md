@@ -13209,3 +13209,12 @@ wiki看不懂日文可以对着装备数值去找
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  black1991518  
+##### 1204#       发表于 2022-10-30 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">大团圆结局打完了，大满足
+

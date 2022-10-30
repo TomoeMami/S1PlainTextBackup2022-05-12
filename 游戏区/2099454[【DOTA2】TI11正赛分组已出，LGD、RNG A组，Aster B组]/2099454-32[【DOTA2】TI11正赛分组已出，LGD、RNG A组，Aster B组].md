@@ -8681,3 +8681,573 @@ nisha这波真有点畜了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么差距突然这么大，进化的这么快么
 
+
+
+*****
+
+####  希望之花  
+##### 47647#       发表于 2022-10-30 19:31
+
+太强了，希望帕皮可以洗个脸打满bo5
+
+*****
+
+####  Cookiekira  
+##### 47648#       发表于 2022-10-30 19:31
+
+亚军船长要来了吗
+
+*****
+
+####  Horusddt  
+##### 47649#       发表于 2022-10-30 19:31
+
+zotk怎么感觉还挺高兴的
+
+*****
+
+####  莉拉厨  
+##### 47650#       发表于 2022-10-30 19:31
+
+鲁迅上次是3-1，wings玩屠夫送了一把
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  乃琳  
+##### 47651#       发表于 2022-10-30 19:31
+
+papi酱别怕，按照规律明年就到冠军了
+
+*****
+
+####  坚定的团子党  
+##### 47652#       发表于 2022-10-30 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191066&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-30 19:30</a>
+
+鲁迅不会被两次3-0吧</blockquote>
+上次3-1
+
+*****
+
+####  acejoe  
+##### 47653#       发表于 2022-10-30 19:31
+
+我不觉得石头人打多好，秘密前期打太差了，拿出陈没推进，没入侵野区。
+
+*****
+
+####  枯风瘦雪02  
+##### 47654#       发表于 2022-10-30 19:31
+
+ni公子的老鹿和水人都赢不了的话，还有什么选项呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  TIZI  
+##### 47655#       发表于 2022-10-30 19:31
+
+好呀好呀，再来个3:0陪newbee上耻辱柱喽
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  端木恋心  
+##### 47656#       发表于 2022-10-30 19:31
+
+明年真世界应该又有名言了啊。
+
+*****
+
+####  adretyu67  
+##### 47657#       发表于 2022-10-30 19:31
+
+鲁迅第一次是1:3
+
+*****
+
+####  Crazy_Knife  
+##### 47658#       发表于 2022-10-30 19:31
+
+鲁迅是3:1啊，选了屠夫送了一把
+
+*****
+
+####  seki_m  
+##### 47659#       发表于 2022-10-30 19:31
+
+鹿牲到底还能拿什么3
+
+*****
+
+####  -SLSL-  
+##### 47660#       发表于 2022-10-30 19:31
+
+就当是bo1！
+
+*****
+
+####  柚上舍人  
+##### 47661#       发表于 2022-10-30 19:31
+
+dc的失意者没想到自己也成为了next level的队伍
+
+*****
+
+####  yyf奇遇记  
+##### 47662#       发表于 2022-10-30 19:31
+
+绅士3-0也是3-0
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  roxas.sora  
+##### 47663#       发表于 2022-10-30 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">ck，naga，再来一个啥
+
+*****
+
+####  Horusddt  
+##### 47664#       发表于 2022-10-30 19:32
+
+下把ni公子船长还是火猫
+
+*****
+
+####  樱冢名月  
+##### 47665#       发表于 2022-10-30 19:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真要改口九神吧
+
+*****
+
+####  蛭人  
+##### 47666#       发表于 2022-10-30 19:32
+
+说了啊，鲁戏不基德被刀塔之神惩罚打团只配see，敢来就暴毙。
+
+*****
+
+####  usoda  
+##### 47667#       发表于 2022-10-30 19:32
+
+加油加油 还有一把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tengshuo980  
+##### 47668#       发表于 2022-10-30 19:32
+
+对面绝活ban不完啊啊啊
+
+*****
+
+####  qty  
+##### 47669#       发表于 2022-10-30 19:32
+
+有点绝望了，秘密下一把要不4保1nisha选火女搏一把吧，对面状态太好了，真的只能搏了
+
+*****
+
+####  aqS  
+##### 47670#       发表于 2022-10-30 19:32
+
+尼畜这决赛mor表演仅次于a畜了吧
+
+
+
+*****
+
+####  柚上舍人  
+##### 47671#       发表于 2022-10-30 19:32
+
+石头人把把都是百万曹军，屏幕上全是单位
+
+*****
+
+####  我爱撩菜  
+##### 47672#       发表于 2022-10-30 19:32
+
+期待一下刚才那个雪球救人+雪球送人做成SFM了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  subject07  
+##### 47673#       发表于 2022-10-30 19:33
+
+石头人决策和配合很有观赏性，比去年雪碧好看
+
+*****
+
+####  tasuku  
+##### 47674#       发表于 2022-10-30 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191066&amp;ptid=2099454" target="_blank">nowaki 发表于 2022-10-30 19:30</a>
+
+鲁迅不会被两次3-0吧</blockquote>
+啥玩意儿，鲁迅还在nb打过？
+
+*****
+
+####  -SLSL-  
+##### 47675#       发表于 2022-10-30 19:33
+
+4保1火女估计被9神单防
+
+*****
+
+####  nowaki  
+##### 47676#       发表于 2022-10-30 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191153&amp;ptid=2099454" target="_blank">tasuku 发表于 2022-10-30 19:33</a>
+
+啥玩意儿，鲁迅还在nb打过？</blockquote>
+哥们记错了
+
+*****
+
+####  snarc1  
+##### 47677#       发表于 2022-10-30 19:33
+
+全拿绝活呗，还能咋地
+
+*****
+
+####  齐柏林轰炸机  
+##### 47678#       发表于 2022-10-30 19:33
+
+土娟有点乱搞了
+
+*****
+
+####  IG.430  
+##### 47679#       发表于 2022-10-30 19:33
+
+加油加油，还有一把
+
+*****
+
+####  勤练带来力量  
+##### 47680#       发表于 2022-10-30 19:33
+
+集美们又又又是硬实力最低的一届的冠军咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AIDSL  
+##### 47681#       发表于 2022-10-30 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191133&amp;ptid=2099454" target="_blank">tengshuo980 发表于 2022-10-30 19:32</a>
+
+对面绝活ban不完啊啊啊</blockquote>
+ban得完，每人平均5个绝活，尊重一下可以ban死一个<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  枯风瘦雪02  
+##### 47682#       发表于 2022-10-30 19:34
+
+nine刚刚那个二阶段跳羊完全把zayac算进去了，一个滚的错误选择直接奠定败局
+
+*****
+
+####  乃琳  
+##### 47683#       发表于 2022-10-30 19:34
+
+wings的第一把纯娱乐，其实可以算硬实力3:0
+
+*****
+
+####  yyf奇遇记  
+##### 47684#       发表于 2022-10-30 19:34
+
+批九这盘本尊要不是出了个羊刀差点副作用
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  樱冢名月  
+##### 47685#       发表于 2022-10-30 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这要3-0了，一直问我s戏戏戏是吧
+
+*****
+
+####  yyf奇遇记  
+##### 47686#       发表于 2022-10-30 19:35
+
+说了，绅士3-0也是3-0
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  iriyano  
+##### 47687#       发表于 2022-10-30 19:35
+
+世界上的另一个我
+
+*****
+
+####  nowaki  
+##### 47688#       发表于 2022-10-30 19:35
+
+批九全身装备也就跳刀和羊有用
+
+*****
+
+####  柚上舍人  
+##### 47689#       发表于 2022-10-30 19:35
+
+fg有经验是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  哈曼的YY  
+##### 47690#       发表于 2022-10-30 19:35
+
+再不选炸弹人来不及了
+
+*****
+
+####  ifeinano  
+##### 47691#       发表于 2022-10-30 19:36
+
+最后一把末日放出来看一下
+
+*****
+
+####  为了mf注册  
+##### 47692#       发表于 2022-10-30 19:36
+
+都这份上了秘密想玩啥就玩啥吧
+
+*****
+
+####  莉拉厨  
+##### 47693#       发表于 2022-10-30 19:36
+
+zsmj：全靠nisha不行的，得让水晶哥来C<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tasuku  
+##### 47694#       发表于 2022-10-30 19:36
+
+wings也算的话og也可以算啊，让一把是吧
+
+*****
+
+####  acg_s1  
+##### 47695#       发表于 2022-10-30 19:36
+
+加油加油，还有一把
+
+*****
+
+####  Sayuki1025  
+##### 47696#       发表于 2022-10-30 19:36
+
+Wisper 走了啊
+
+*****
+
+####  坚定的团子党  
+##### 47697#       发表于 2022-10-30 19:36
+
+ppy这下要晋升3亚王了呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  人別離苦  
+##### 47698#       发表于 2022-10-30 19:36
+
+这秘密咋做bp啊 感觉比ti5 ti7还绝望<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  莉拉厨  
+##### 47699#       发表于 2022-10-30 19:37
+
+zayac速速玩炸弹吧，没什么好说的，打不过gg<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  IG.430  
+##### 47700#       发表于 2022-10-30 19:37
+
+你们笑批九辣，批九笑秘密兵线过不了河道
+
+
+
+*****
+
+####  match7310  
+##### 47701#       发表于 2022-10-30 19:37
+
+加油加油还有一吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nowaki  
+##### 47702#       发表于 2022-10-30 19:37
+
+这ck经济一直大哥里垫底，打团像个战神
+
+而批九经济断档第一，没羊前就是个看戏的
+
+*****
+
+####  端木恋心  
+##### 47703#       发表于 2022-10-30 19:37
+
+要不先办先选。放出蜘蛛自己玩啊。
+
+*****
+
+####  樱冢名月  
+##### 47704#       发表于 2022-10-30 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然摸个**出来，对内大爹又不够对面多，是太难了
+
+*****
+
+####  柚上舍人  
+##### 47705#       发表于 2022-10-30 19:38
+
+只能说41骑不愧是41骑
+
+*****
+
+####  nowaki  
+##### 47706#       发表于 2022-10-30 19:38
+
+哦牛批，这mvp不给ck
+
+*****
+
+####  赤星ビスコ  
+##### 47707#       发表于 2022-10-30 19:38
+
+路径依赖了，nisha尿了那没办法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蛭人  
+##### 47708#       发表于 2022-10-30 19:38
+
+OG是这么说的啊，除了普森，OG其它四个人都觉得第一把是他们赢的，4：0.
+
+*****
+
+####  yyf奇遇记  
+##### 47709#       发表于 2022-10-30 19:38
+
+这mvp不给ck？ 笑出声了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  六娃  
+##### 47710#       发表于 2022-10-30 19:38
+
+一号位只用四个英雄能拿ti冠军吗
+可以啊
+
+*****
+
+####  方舟失智博士  
+##### 47711#       发表于 2022-10-30 19:39
+
+axx 经典言论“石头人到底多强才能b组第一”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  柚上舍人  
+##### 47712#       发表于 2022-10-30 19:39
+
+脑海中不禁想到major决赛的骑哥，天壤之别啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  snarc1  
+##### 47713#       发表于 2022-10-30 19:39
+
+og算是被w33绝活阴到了
+
+*****
+
+####  格雷殿下  
+##### 47714#       发表于 2022-10-30 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">死灵龙CK黑鸟**都抬赢了，
+
+还差谷圣，
+
+谷圣没赢的决赛，不算是决赛😡
+
+*****
+
+####  yyf奇遇记  
+##### 47715#       发表于 2022-10-30 19:40
+
+看看今年是那几个英雄上盾了
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  nowaki  
+##### 47716#       发表于 2022-10-30 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191307&amp;ptid=2099454" target="_blank">格雷殿下 发表于 2022-10-30 19:39</a>
+
+死灵龙CK黑鸟**都抬赢了，
+
+还差谷圣，
+
+谷圣没赢的决赛，不算是决赛😡 ...</blockquote>
+谷圣不是在打比赛吗
+
+*****
+
+####  百世诸侯  
+##### 47717#       发表于 2022-10-30 19:40
+
+小组赛12战12c（没12胜）的哥哥呢？上来不把石头人打boom？
+
+*****
+
+####  belldandy_ye  
+##### 47718#       发表于 2022-10-30 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191224&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-30 19:36</a>
+
+zsmj：全靠nisha不行的，得让水晶哥来C
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版  ...</blockquote>
+要全场10个人里最菜的一个站出来C，DOTA之神也实现不了这种愿望.
+
+*****
+
+####  反方向的波  
+##### 47719#       发表于 2022-10-30 19:40
+
+斯洛伐克宋淳今晚炮火连天了要<img src="https://static.saraba1st.com/image/smiley/face2017/246.png" referrerpolicy="no-referrer">
+
