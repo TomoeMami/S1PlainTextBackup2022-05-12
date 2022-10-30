@@ -13412,3 +13412,15 @@ QQ截图20221031010828.jpg
 
 不过里面是卡片，没拿到也无所谓
 
+
+
+*****
+
+####  雪落白夜  
+##### 1223#       发表于 2022-10-31 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198917&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-31 02:37:38</a>
+怎么可能不去....女主从哪来的？</blockquote>女主在研究所，在铁处女的你再想想是谁<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
