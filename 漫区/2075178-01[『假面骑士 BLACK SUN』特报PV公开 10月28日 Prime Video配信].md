@@ -2409,3 +2409,12 @@ dlc罢了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  masonknight  
+##### 219#       发表于 2022-10-30 18:31
+
+高开低走，前三集看得我热血喷张，虽然有点小问题但也无妨，越看到后面越是“地铁老人手机.jpg”，人物动机逻辑都乱了，看完第十集真的觉得浪费时间<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
