@@ -8417,3 +8417,14 @@ b站官组肯定放不出来的。
 
 冲动消费了，确实不值，不好看<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十九号大侠  
+##### 12798#       发表于 2022-10-30 19:44
+
+Faker我要杀了你啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

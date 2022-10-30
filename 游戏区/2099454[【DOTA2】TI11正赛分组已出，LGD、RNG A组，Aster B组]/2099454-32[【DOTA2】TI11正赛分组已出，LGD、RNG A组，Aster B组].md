@@ -9251,3 +9251,563 @@ zsmj：全靠nisha不行的，得让水晶哥来C
 
 斯洛伐克宋淳今晚炮火连天了要<img src="https://static.saraba1st.com/image/smiley/face2017/246.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lanlv  
+##### 47720#       发表于 2022-10-30 19:41
+
+当年og输掉的那把是怎么输的来着？
+
+*****
+
+####  nowaki  
+##### 47721#       发表于 2022-10-30 19:41
+
+哥哥只是玩的多，能吹的好像只有打蜗克的sv
+
+*****
+
+####  你可以试试  
+##### 47722#       发表于 2022-10-30 19:41
+
+小拳套垂头丧气
+
+自我安慰外卡两兄弟一亚一季也挺好了，爱沙尼亚拳击手明年再进场玩玩吧
+
+*****
+
+####  勤练带来力量  
+##### 47723#       发表于 2022-10-30 19:41
+
+老干瘪都早早滚了集美们也要攻击冠军队伍没硬实力啊，神了<img src="https://p.sda1.dev/8/b6cd4a778007a3ab262b85b285311e44/CMP_20221030194119714.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  百世诸侯  
+##### 47724#       发表于 2022-10-30 19:41
+
+如果等会儿吴爱凌戏瘾发作披西恩国旗怎么说？
+
+*****
+
+####  Horusddt  
+##### 47725#       发表于 2022-10-30 19:41
+
+og被米波一波基地了
+
+*****
+
+####  犭央犭茶湖水牛  
+##### 47726#       发表于 2022-10-30 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191357&amp;ptid=2099454" target="_blank">百世诸侯 发表于 2022-10-30 19:41</a>
+如果等会儿吴爱凌戏瘾发作披西恩国旗怎么说？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中国队长
+
+*****
+
+####  yyf奇遇记  
+##### 47727#       发表于 2022-10-30 19:42
+
+石头人的团队氛围真好啊，五个人没明星选手 谁都可以做脏活烂活，反观某队
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  莉拉厨  
+##### 47728#       发表于 2022-10-30 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191347&amp;ptid=2099454" target="_blank">lanlv 发表于 2022-10-30 19:41</a>
+当年og输掉的那把是怎么输的来着？</blockquote>
+被米波阴了一把，后面调整了老老实实打熟悉的体系就碾了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  反方向的波  
+##### 47729#       发表于 2022-10-30 19:42
+
+宇宙第一赛事利雅得大师赛是这样的
+
+*****
+
+####  蛭人  
+##### 47730#       发表于 2022-10-30 19:42
+
+石头人是继承了OG精神的人，Lose together, win together, slay together. 
+
+
+
+*****
+
+####  adretyu67  
+##### 47731#       发表于 2022-10-30 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191347&amp;ptid=2099454" target="_blank">lanlv 发表于 2022-10-30 19:41</a>
+
+当年og输掉的那把是怎么输的来着？</blockquote>
+被液体抓到机会打赢团，被米波一波平推
+
+*****
+
+####  nowaki  
+##### 47732#       发表于 2022-10-30 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191347&amp;ptid=2099454" target="_blank">lanlv 发表于 2022-10-30 19:41</a>
+
+当年og输掉的那把是怎么输的来着？</blockquote>
+og翻盘团后上高，老迹ta绕后秒了jerax骨法，然后几兄弟杀了幽鬼。反推幽鬼买活交晚了gg。
+
+*****
+
+####  tasuku  
+##### 47733#       发表于 2022-10-30 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191347&amp;ptid=2099454" target="_blank">lanlv 发表于 2022-10-30 19:41</a>
+
+当年og输掉的那把是怎么输的来着？</blockquote>
+安娜幽鬼整蛊了
+
+残血开了大导致没法买活反打
+
+然后队友说撑得住，一直捏着买等基地爆炸
+
+*****
+
+####  winkle  
+##### 47734#       发表于 2022-10-30 19:43
+
+该奖励nisha米波了？
+
+*****
+
+####  坚定的团子党  
+##### 47735#       发表于 2022-10-30 19:43
+
+真要戏来肯定是批星条旗呀，在想啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yyf奇遇记  
+##### 47736#       发表于 2022-10-30 19:43
+
+上次看到有明星选手夺冠的队还是马体了，而且还是那种全队给厂公吃屎的打法夺冠的，真的令人感叹
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Sabbah  
+##### 47737#       发表于 2022-10-30 19:43
+
+1号位偏功能，2号位是队内绝对明星，3号位偏刷不擅长传统3号位英雄，4号位绝活小强，5号位是曾经夺过TI冠军荣誉的老将。
+
+这只队伍就是_______
+
+*****
+
+####  枯风瘦雪02  
+##### 47738#       发表于 2022-10-30 19:44
+
+ni公子这局是拿Lina还是船长呢
+
+*****
+
+####  六娃  
+##### 47739#       发表于 2022-10-30 19:44
+
+该给亚超选船长了呀，冠超的宿命
+
+*****
+
+####  端木恋心  
+##### 47740#       发表于 2022-10-30 19:44
+
+该拿出尼公子的船长了啊。给船长定义一下。
+
+*****
+
+####  百世诸侯  
+##### 47741#       发表于 2022-10-30 19:44
+
+如果美国国旗和西恩国旗一起披呢，算不算世纪大和解了
+
+*****
+
+####  adretyu67  
+##### 47742#       发表于 2022-10-30 19:44
+
+泥沙也是冠超
+
+*****
+
+####  超级柯南迷  
+##### 47743#       发表于 2022-10-30 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191347&amp;ptid=2099454" target="_blank">lanlv 发表于 2022-10-30 19:41</a>
+
+当年og输掉的那把是怎么输的来着？</blockquote>
+放了对面米波，ANA自己有点小失误，就被一波推了
+
+*****
+
+####  齐柏林轰炸机  
+##### 47744#       发表于 2022-10-30 19:44
+
+加油还有一把，草
+
+*****
+
+####  Horusddt  
+##### 47745#       发表于 2022-10-30 19:44
+
+加油加油还有一把
+
+*****
+
+####  六娃  
+##### 47746#       发表于 2022-10-30 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191405&amp;ptid=2099454" target="_blank">yyf奇遇记 发表于 2022-10-30 19:43</a>
+上次看到有明星选手夺冠的队还是马体了，而且还是那种全队给厂公吃屎的打法夺冠的，真的令人感叹
+
+论坛助手 ...</blockquote>
+gh不吃屎，刷得可开心了
+
+*****
+
+####  yyf奇遇记  
+##### 47747#       发表于 2022-10-30 19:44
+
+牛瘪是吧，卜哭卜是真氢氢
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  Cookiekira  
+##### 47748#       发表于 2022-10-30 19:45
+
+加油加油 还有一把
+
+*****
+
+####  蛭人  
+##### 47749#       发表于 2022-10-30 19:45
+
+宋淳：加油还有一把，鲁戏你准备被3：0吧。
+
+*****
+
+####  莉拉厨  
+##### 47750#       发表于 2022-10-30 19:45
+
+s戏戏戏：体会到我的玉玉了吗
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雨中曲  
+##### 47751#       发表于 2022-10-30 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191347&amp;ptid=2099454" target="_blank">lanlv 发表于 2022-10-30 19:41</a>
+当年og输掉的那把是怎么输的来着？</blockquote>
+上帝光顾着破三路没护后排，随后液体一波基地，CEB不让上帝提前买活
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  nowaki  
+##### 47752#       发表于 2022-10-30 19:45
+
+百世诸侯        禁止发言        永不过期、
+
+*****
+
+####  枯风瘦雪02  
+##### 47753#       发表于 2022-10-30 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191440&amp;ptid=2099454" target="_blank">六娃 发表于 2022-10-30 19:44</a>
+
+gh不吃屎，刷得可开心了</blockquote>
+其实MC也是死刷逼，那个液体不摸钱干脏活的今天已经退役了
+
+*****
+
+####  DarthAka  
+##### 47754#       发表于 2022-10-30 19:45
+
+来个双面旗，老墨拳击手不老有出场一个旗子墨西哥一面星条一面
+
+*****
+
+####  赤星ビスコ  
+##### 47755#       发表于 2022-10-30 19:46
+
+nisha该上船长了呀
+
+*****
+
+####  belldandy_ye  
+##### 47756#       发表于 2022-10-30 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191094&amp;ptid=2099454" target="_blank">acejoe 发表于 2022-10-30 19:31</a>
+
+我不觉得石头人打多好，秘密前期打太差了，拿出陈没推进，没入侵野区。</blockquote>
+一个钢背兽线上打死灵龙能送对面经济第一怎么推进啊，打到25分钟都拿不出A仗，水晶弟太菜了.
+
+*****
+
+####  莉拉厨  
+##### 47757#       发表于 2022-10-30 19:46
+
+zsmj还在相信水晶哥，你让他玩个水人看看他能不能C?
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  -SLSL-  
+##### 47758#       发表于 2022-10-30 19:46
+
+土娟为什么看起来头发这么多啊，是有什么特技吗
+
+*****
+
+####  yyf奇遇记  
+##### 47759#       发表于 2022-10-30 19:46
+
+吴静君上去举盾，大喊一声：china！
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  六娃  
+##### 47760#       发表于 2022-10-30 19:46
+
+mc只有先知是瘤子，其他英雄挺正常的，特别是ds有艹艹的风范
+
+
+
+*****
+
+####  nowaki  
+##### 47761#       发表于 2022-10-30 19:46
+
+拳酱该出绝活了啊
+
+*****
+
+####  kyl2001  
+##### 47762#       发表于 2022-10-30 19:47
+
+看了一眼nga笑了，突然冒出来一群og雪碧粉丝怒喷版本队
+
+*****
+
+####  柚上舍人  
+##### 47763#       发表于 2022-10-30 19:47
+
+该亚军船长，亚军小鹿上场了
+
+*****
+
+####  walfeds  
+##### 47764#       发表于 2022-10-30 19:47
+
+加油加油还有一把
+
+*****
+
+####  sodah  
+##### 47765#       发表于 2022-10-30 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的是OG雪碧粉丝吗？
+
+*****
+
+####  古代人皮克  
+##### 47766#       发表于 2022-10-30 19:47
+
+<img src="https://img.saraba1st.com/forum/202210/30/194731xxkzrrcrtcx8tc0h.png" referrerpolicy="no-referrer">
+
+<strong>@YK25XD73_~Q4D16_XE(HD0.png</strong> (6.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-30 19:47 上传
+
+*****
+
+####  nowaki  
+##### 47767#       发表于 2022-10-30 19:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雪碧才是最版本队的，一整年都在逆版本，吐出一个不学不练
+
+*****
+
+####  六娃  
+##### 47768#       发表于 2022-10-30 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191501&amp;ptid=2099454" target="_blank">古代人皮克 发表于 2022-10-30 19:47</a></blockquote>
+是三亚王的笑容
+
+*****
+
+####  qty  
+##### 47769#       发表于 2022-10-30 19:47
+
+小水晶这一脸看开了的样子
+
+*****
+
+####  Horusddt  
+##### 47770#       发表于 2022-10-30 19:48
+
+nba只有一种粉丝，他们愿意骗自己就骗呗
+
+*****
+
+####  反方向的波  
+##### 47771#       发表于 2022-10-30 19:48
+
+乌克兰戏哥哥一副刚换完裤子的表情
+
+*****
+
+####  -SLSL-  
+##### 47772#       发表于 2022-10-30 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191501&amp;ptid=2099454" target="_blank">古代人皮克 发表于 2022-10-30 19:47</a></blockquote>
+绽放出自信笑容的先辈
+
+*****
+
+####  DarthAka  
+##### 47773#       发表于 2022-10-30 19:48
+
+这把关系到举盾是哪五个英雄，也挺关键
+
+*****
+
+####  aruruu  
+##### 47774#       发表于 2022-10-30 19:48
+
+加油加油还有一把
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  憧憬鲨  
+##### 47775#       发表于 2022-10-30 19:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只是一个版本队肯定是拿不到冠军的，看不见我批九神把把力中暴力？
+
+*****
+
+####  端木恋心  
+##### 47776#       发表于 2022-10-30 19:48
+
+鲁迅自闭了啊。戏精的末日是吧。
+
+*****
+
+####  六娃  
+##### 47777#       发表于 2022-10-30 19:48
+
+吴静君是tundra队长，望周知
+
+*****
+
+####  adretyu67  
+##### 47778#       发表于 2022-10-30 19:48
+
+ti7给厂公牺牲多的就马桶，厂公不想走的中马桶走，虽然主要是他不想打泰迪和noone。
+
+*****
+
+####  哈曼的YY  
+##### 47779#       发表于 2022-10-30 19:49
+
+最后一把了 放末日出来打打看吧
+
+*****
+
+####  aqS  
+##### 47780#       发表于 2022-10-30 19:49
+
+死妈集美还在给你家哥哥画面，我真想把**肠子剜出来给你家哥哥做避孕套<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+*****
+
+####  roger_goodell  
+##### 47781#       发表于 2022-10-30 19:49
+
+家游还有一把
+
+*****
+
+####  莉拉厨  
+##### 47782#       发表于 2022-10-30 19:49
+
+去年雪碧好像也有假赛党说如果不是假赛的话，那么肯定以后还能再拿冠军<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Minamizawa83  
+##### 47783#       发表于 2022-10-30 19:50
+
+拳儿酱儿我儿要儿玩儿昆儿卡儿
+
+*****
+
+####  nowaki  
+##### 47784#       发表于 2022-10-30 19:50
+
+sccc：赶紧选个厉害的，赶紧回家了
+
+*****
+
+####  六娃  
+##### 47785#       发表于 2022-10-30 19:50
+
+aui2000吃准了他们的体系不怕ts，拳击手应该是真没货了
+
+*****
+
+####  adretyu67  
+##### 47786#       发表于 2022-10-30 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58191559&amp;ptid=2099454" target="_blank">莉拉厨 发表于 2022-10-30 19:49</a>
+
+去年雪碧好像也有假赛党说如果不是假赛的话，那么肯定以后还能再拿冠军
+
+—— 来自 X ...</blockquote>
+不是拿了吗，阿灵顿major
+
+*****
+
+####  tengshuo980  
+##### 47787#       发表于 2022-10-30 19:50
+
+信把邪，选个火猫吧
+
+*****
+
+####  yyf奇遇记  
+##### 47788#       发表于 2022-10-30 19:50
+
+这几届ti看下来，组队有没有明星选手真的不重要，但是队内气氛一定要好，不然输了队内氛围就不行了。石头人这种天马行空的banpick就是建立在队内氛围很好，刚才的采访短片就能看出来
+
+[论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
