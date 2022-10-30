@@ -13092,3 +13092,85 @@ wiki看不懂日文可以对着装备数值去找
 给嘉隆装备上凭借技的能量吸收，敌人的子弹就是我的回血包好牛逼啊，根本死不掉，可惜打到终章才发 ...</blockquote>
 我是三段跳加跳跃高度上升的嘉隆技能
 
+
+
+*****
+
+####  helix  
+##### 1194#       发表于 2022-10-30 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185421&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-10-30 15:41</a>
+面包店的盔甲，蛇神岛和魔王城箱子里的盔甲，雪山进门雕像的盾牌
+容易漏的是这几个 ...</blockquote>
+面包店盔甲是哪个？
+
+*****
+
+####  pf67  
+##### 1195#       发表于 2022-10-30 17:27
+
+ 本帖最后由 pf67 于 2022-10-30 17:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181816&amp;ptid=2098044" target="_blank">Gwyndolin 发表于 2022-10-30 12:20</a>
+食材应该怎么刷，目前在终章开始，刷砂糖已经屠了研究所十几遍了，一个都没，顶不住了，终章后面可以买吗[f ...</blockquote>
+不要去研究所，幸运加到60多，去东京街道地图刷机器人非常能掉，通关砂糖30多个了
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pf67  
+##### 1196#       发表于 2022-10-30 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58188021&amp;ptid=2098044" target="_blank">helix 发表于 2022-10-30 17:26</a>
+面包店盔甲是哪个？</blockquote>
+面包店能换一个心天平
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  helix  
+##### 1197#       发表于 2022-10-30 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58188101&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-30 17:29</a>
+面包店能换一个心天平
+
+—— 来自 OPPO PCLM10, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+感谢，那我进度应该还差点
+
+*****
+
+####  pf67  
+##### 1198#       发表于 2022-10-30 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58185418&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-10-30 15:41</a>
+那个也拿了，就是几把boss武器的宝石合成
+
+不过已经进新章了，先继续推了 ...</blockquote>
+成长里面也有几件装备……
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  pf67  
+##### 1199#       发表于 2022-10-30 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58181502&amp;ptid=2098044" target="_blank">black1991518 发表于 2022-10-30 12:02</a>
+二周目去不了铁娘子所在地？缺一个小徽章啊，救救孩子</blockquote>
+可以去，主线必定去东京的
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tsubaki  
+##### 1200#       发表于 2022-10-30 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58188021&amp;ptid=2098044" target="_blank">helix 发表于 2022-10-30 17:26</a>
+
+面包店盔甲是哪个？</blockquote>
+隐藏BOSS全部击破后武器都练了会给一堆石头，然后扭蛋25次抽取会给一本炼金术合成书，里面有石头合成方案
+
+全部合完出变石后去找面包房老板娘，她会说可以换铠甲，然后用变石换最终防具心天平（防比繁星还高一点
+
