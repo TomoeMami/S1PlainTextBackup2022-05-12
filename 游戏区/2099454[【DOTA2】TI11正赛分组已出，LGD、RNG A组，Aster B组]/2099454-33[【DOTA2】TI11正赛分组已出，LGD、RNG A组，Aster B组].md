@@ -2891,3 +2891,58 @@ JFW@2UY7((T$%1SN_0$ZY9X.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  usoda  
+##### 48375#       发表于 2022-10-30 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">陈娟多少有点弱智了 不停的在重复3比0 边上爱思吸吸吸已经彻底沉默了
+
+*****
+
+####  樱冢名月  
+##### 48376#       发表于 2022-10-30 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戏皇脸黑的
+
+*****
+
+####  acg_s1  
+##### 48377#       发表于 2022-10-30 21:16
+
+我一直是小保安啊
+
+*****
+
+####  米德  
+##### 48378#       发表于 2022-10-30 21:19
+
+我一直是小保安啊
+
+*****
+
+####  夏溪澪mio  
+##### 48379#       发表于 2022-10-30 21:19
+
+cnmv社真就没新英雄了
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Sayuki1025  
+##### 48380#       发表于 2022-10-30 21:21
+
+2000哥还在记仇
+
+*****
+
+####  夏溪澪mio  
+##### 48381#       发表于 2022-10-30 21:23
+
+大家不要走开，稍后就是lgd和石头人的总决赛！
+
+—— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
