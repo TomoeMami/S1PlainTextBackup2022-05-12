@@ -12987,3 +12987,12 @@ wiki看不懂日文可以对着装备数值去找
 面包房果酱面包分解</blockquote>
 好起来了，就是有点小贵，该去刷钱了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  manyin1  
+##### 1184#       发表于 2022-10-30 15:13
+
+第六章那个木材堆怎么打？打一会就恢复满了
+
