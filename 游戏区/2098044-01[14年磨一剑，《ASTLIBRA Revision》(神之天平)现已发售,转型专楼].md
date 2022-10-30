@@ -13311,3 +13311,12 @@ wiki看不懂日文可以对着装备数值去找
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  齐柏林轰炸机  
+##### 1214#       发表于 2022-10-30 21:42
+
+不过这几天我重新下了客户端，确实找回了一点以前的感觉，中军局畅行无阻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

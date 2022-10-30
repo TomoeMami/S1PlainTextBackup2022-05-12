@@ -2478,3 +2478,14 @@ dlc罢了
 
 起码赛文OV是能镇住我的，不像这黑日，那个剑圣仿佛是劣质漫展COS，我忍着不笑已经很难了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥F特  
+##### 224#       发表于 2022-10-30 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58192848&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-10-30 20:37</a>
+还真不是，贴吧吹的多，这边才是主力输出</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">假吧一大堆喷烂的了包括发情报的色佬都喷剧情烂了 就连吹的帖子底下都一堆嘲讽的
+
