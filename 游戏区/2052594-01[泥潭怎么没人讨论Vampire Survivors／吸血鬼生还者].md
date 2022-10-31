@@ -4575,3 +4575,15 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 
 问下这个比borato强多少，borato作为这个的仿品，玩了两天有点腻了
 
+
+
+*****
+
+####  Bhagavan  
+##### 422#       发表于 2022-10-31 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58208054&amp;ptid=2052594" target="_blank">椎名mahuyo 发表于 2022-10-31 16:35</a>
+
+超武合成表游戏里现在不是有了么</blockquote>
+得合了一次才有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
