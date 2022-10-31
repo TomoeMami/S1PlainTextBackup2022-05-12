@@ -124,3 +124,12 @@ g2又把教练t了，讲真的虽然g2这次rmr整了个惊天大活，我还是
 
 反转了，是xtqzzz自己走的，g2根子上烂完了
 
+
+
+*****
+
+####  Niyah  
+##### 2644#       发表于 2022-11-1 00:37
+
+借楼问下最近除了打bot经常vac断连，刚跟朋友打搭档又被断连登上去已经竞技冷却24小时了，有啥解决方法吗？win10，用的steam国际服，后台除了uu加速器没开别的，杀毒软件火绒，游戏装的e盘。有时验证游戏完整性有效，有时没效；试过关防火墙和杀毒软件还有steam的方法也没用，崩溃<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+

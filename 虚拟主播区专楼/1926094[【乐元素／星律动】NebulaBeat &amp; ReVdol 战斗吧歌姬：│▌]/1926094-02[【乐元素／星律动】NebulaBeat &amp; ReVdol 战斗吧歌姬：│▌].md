@@ -9631,3 +9631,12 @@ yes，ip湖北，还有昨天的漏勺
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2518#         楼主| 发表于 2022-11-1 00:32
+
+没想到大吉老师的抱枕就已经这么。。。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

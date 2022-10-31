@@ -13790,3 +13790,12 @@ EX是什么，追章打完盖亚迷宫不就通关了吗
 
 终章还有天平吗，我怎么到终章之前还少一个天平<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  何处分可  
+##### 1256#       发表于 2022-11-1 00:33
+
+那些什么暗精灵所谓的提升克制暗属性的伤害到底是提升圣属性还是提升暗属性<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
