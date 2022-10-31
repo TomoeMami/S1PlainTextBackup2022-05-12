@@ -12688,3 +12688,16 @@ miko式起立
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这是通宵了？大清早搞装饰，没想到今晚又要去mc练习
 
+
+
+*****
+
+####  qesto  
+##### 2722#       发表于 2022-10-31 14:09
+
+做完船兔线下，都那么挽留了，兔子最后还是没有留宿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看来关系度闹掰前miko＞船长
+
+或者说那次圣诞夜到底发生了什么事呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
