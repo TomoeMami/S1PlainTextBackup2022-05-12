@@ -3596,3 +3596,15 @@ Do It Your Radio!! 第 2 回里有提到 11 月 16 日发售的「Do It Yourself
 
 实话实说，又不说人话，张口嘴臭没教养，而且见陌生人第一面就开始辩经外加阶级歧视，观感真的……很差
 
+
+
+*****
+
+####  Antidote丶  
+##### 285#       发表于 2022-10-31 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58154917&amp;ptid=1994951" target="_blank">RainbowSealife 发表于 2022-10-28 23:40</a>
+
+不觉得很酷吗？作为一个理科男，我觉得这太酷了，很符合我对未来生活的想象，科技并带着些趣味😎</blockquote>
+和步梦一样，挺而不败
+

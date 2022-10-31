@@ -13765,3 +13765,12 @@ EX是什么，追章打完盖亚迷宫不就通关了吗
 看了眼wiki的item项目更新了重置版版本的
 [https://w.atwiki.jp/astlibra/sp/pages/74.html](https://w.atwiki.jp/astlibra/sp/pages/74.html)
 
+
+
+*****
+
+####  Leona_Akari  
+##### 1253#       发表于 2022-10-31 22:05
+
+那两个饰品，能力元件和特殊元件+，是指装备盘里8个位置的概率吗，能力是给属性，特殊是给技能替换？
+
