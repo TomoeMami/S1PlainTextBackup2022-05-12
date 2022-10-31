@@ -2796,3 +2796,68 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 光太郎的塑造缺失很严重，这种大叔配少女的模式下都会慢慢补充大叔的过去以及大叔的性格转变，而光太郎的 ...</blockquote>
 比如最后小葵在光太郎身上画那个black的S，我觉得一定程度上是能把这些因素串一下的，这个S就是无限符号的一半，可里把这个记号拆开交给光太郎和信彦意味着他们合起来才是那个无限，光太郎向小葵讲过这些故事之后小葵又把这个记号的意义重新还给光太郎。而信彦失去了属于自己的另一半无限是因为他已经和当时可里的理想背道而驰了。结果这点细节也没有填补出来，不管是剪辑删掉了还是怎样，总之是挺难以理解的。
 
+
+
+*****
+
+####  米列希安  
+##### 254#       发表于 2022-10-31 13:47
+
+<blockquote>浅川雏羽 发表于 2022-10-30 22:07
+他可能是多年没看过贴吧凭印象猜的
+
+从洞幺开始那吧的攻击性就是我去了都发怵的 ...</blockquote>
+我刷到时候是刚资源流出呢，那时色唠带头吹，至于之后的发展以及现在的风评，我只能说，干得漂亮
+
+*****
+
+####  mousy55555  
+##### 255#       发表于 2022-10-31 13:47
+
+有没有一个可能，其他人都在演BLACK SUN，就只有光太郎一个在演BLACK漫画版<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ShyCrazydog  
+##### 256#       发表于 2022-10-31 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58205464&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-10-31 13:47</a>
+我刷到时候是刚资源流出呢，那时色唠带头吹，至于之后的发展以及现在的风评，我只能说，干得漂亮 ...</blockquote>
+带头吹的皮套质感和cg与皮套过渡是挺好的。谁知道就这点挺好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米列希安  
+##### 257#       发表于 2022-10-31 13:49
+
+噢顺便说一句，除了没看过zoj真第一次看这种尺度想开了眼一样喜欢吹的，还有一种人会觉得这片有意思看的下去，那就是纯把这片当见证输出乐子看的
+
+*****
+
+####  浅川雏羽  
+##### 258#       发表于 2022-10-31 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58205464&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-10-31 13:47</a>
+
+我刷到时候是刚资源流出呢，那时色唠带头吹，至于之后的发展以及现在的风评，我只能说，干得漂亮 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿色这个批看一半感觉风向不对，凌晨三点多转黑了，然后黑子也是那会儿一起冒出来的，贴吧没什么自主思考能力的
+
+*****
+
+####  ShyCrazydog  
+##### 259#       发表于 2022-10-31 13:50
+
+还有个小问题。光太郎第一话接了个杀女主的委托，结果关于这事就完全没有后文了就离谱。你说编剧忘了吧，最后光太郎抓死心脏的分镜姿势和第一集准备抓死女主时的一样，我反正是没看懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅川雏羽  
+##### 260#       发表于 2022-10-31 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58205496&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-10-31 13:49</a>
+
+噢顺便说一句，除了没看过zoj真第一次看这种尺度想开了眼一样喜欢吹的，还有一种人会觉得这片有意思看的下 ...</blockquote>
+zo和j还是正经上院线的，尺度不够
+
+能和真并列至少也得是雨宫和敏鬼那部电脑黑魔
+
