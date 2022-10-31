@@ -15478,3 +15478,16 @@ A.「つらいときは目的が何なのか思い出す。
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 8896#       发表于 2022-10-31 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58199656&amp;ptid=2078110" target="_blank">player3960 发表于 2022-10-31 08:10</a>
+官方大可以直接上香哥哥solo的，居然还给安排投票，它真的我哭死
+
+投个可可solo看缘分了，而且按规 ...</blockquote>
+双人可以自由选择，没有固定CP
+
