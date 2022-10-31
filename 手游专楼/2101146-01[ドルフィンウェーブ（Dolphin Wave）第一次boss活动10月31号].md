@@ -940,3 +940,14 @@ boss战太难了 打不过 求个攻略</blockquote>
 
 看了一下这个活动SSR给的挺大方的了，也是小技能带回血的，对没有UR紫苑的人练这个不亏了，已经练好的队伍里换一下这张SSR试试，应该打起来会轻松不少
 
+
+
+*****
+
+####  黑上シグマ  
+##### 78#       发表于 2022-11-1 07:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">然而我的日常队里就有UR紫苑，放了活动SSR紫苑就会冲突，还要另外去练卡填UR紫苑的位置……
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
