@@ -2605,3 +2605,16 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 这部剧基本都要20集奥特曼正片的时间了，新生代奥特曼也就25集左右，要剧情没剧情，要打斗没打斗，情怀还突兀的一笔，编剧有解释新版鲸鱼怪人的药水怎么来的吗？原着可是祖传秘方，唯一的骑士踢还翻车了
 就剩黑残深个几把了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  shcmzzj  
+##### 236#       发表于 2022-10-31 09:15
+
+逻辑乱得一塌糊涂姑且不论
+两次喷了的地方，剑圣越混越差最后被葵揍翻，真是不由感叹怎么混成这副样子
+葵腰带变身，以为要出新形态了，最后一次high点，结果样子完全没变，变完还被一群杂鱼围殴，跑几步还在那边喘，感情就是卖个腰带，武德都不讲的
+
+— from Xiaomi 22021211RG, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

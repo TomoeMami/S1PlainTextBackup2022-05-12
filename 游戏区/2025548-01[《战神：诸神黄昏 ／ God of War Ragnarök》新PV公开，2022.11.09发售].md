@@ -8826,3 +8826,23 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 索尼这个0成本宣发笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你PlayStation官号那个视频能有200万播放啊
 
+
+
+*****
+
+####  SergeGlenn  
+##### 924#       发表于 2022-10-31 09:14
+
+<blockquote>clover293 发表于 2022-10-31 09:09
+索尼这个0成本宣发笑死你PlayStation官号那个视频能有200万播放啊</blockquote>
+醒醒，诸神黄昏相关的就有3个
+
+<img src="https://img.saraba1st.com/forum/202210/31/091446lm97y79kdkk9zhzg.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20221031_091345.jpg</strong> (327.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-31 09:14 上传
+
