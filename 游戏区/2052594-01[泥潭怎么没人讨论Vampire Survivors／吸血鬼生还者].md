@@ -4557,3 +4557,21 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 
 开2倍速的话升一个角色到50级只需要现实时间3分钟多点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  椎名mahuyo  
+##### 420#       发表于 2022-10-31 16:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">超武合成表游戏里现在不是有了么
+
+
+
+*****
+
+####  VanArkride  
+##### 421#       发表于 2022-10-31 16:40
+
+问下这个比borato强多少，borato作为这个的仿品，玩了两天有点腻了
+

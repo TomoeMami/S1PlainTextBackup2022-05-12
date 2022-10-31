@@ -787,3 +787,28 @@ boss战太难了 打不过 求个攻略</blockquote>
 
 本来你游各种loading长的就体验屌差， 这第一个活动出来可以跑路了。
 
+
+
+*****
+
+####  kulanyee  
+##### 64#       发表于 2022-10-31 16:33
+
+对比后发现，安卓loading时间明显比iOS长
+
+*****
+
+####  孫光龍  
+##### 65#       发表于 2022-10-31 16:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好几把难，24k的打不过16k的活动boss
+
+*****
+
+####  黑上シグマ  
+##### 66#       发表于 2022-10-31 16:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没对策属性打个毛线系列，可以准备扔了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
