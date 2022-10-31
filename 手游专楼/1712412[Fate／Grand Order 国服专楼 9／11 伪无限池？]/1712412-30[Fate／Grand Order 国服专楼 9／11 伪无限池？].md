@@ -417,3 +417,15 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 我有机龙娘，那商店里面换出来的还会给金方块吗？</blockquote>
 给
 
+
+
+*****
+
+####  佐塚間桐  
+##### 43676#       发表于 2022-10-31 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58209444&amp;ptid=1712412" target="_blank">qixinno2 发表于 2022-10-31 17:51</a>
+
+给 不过要先在箱子里领出来才会给</blockquote>
+谢谢告知
+
