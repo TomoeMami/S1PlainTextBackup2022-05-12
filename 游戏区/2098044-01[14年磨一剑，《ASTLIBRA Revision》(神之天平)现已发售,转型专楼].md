@@ -13519,3 +13519,24 @@ QQ截图20221031010828.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打到第八章在未来世界见那个白发小孩儿了，继续推剧情之前是不是就去把所有东西清了好，还是直接推就行了
 
+
+
+*****
+
+####  DarkDancer  
+##### 1233#       发表于 2022-10-31 10:44
+
+<blockquote>月光润色 发表于 2022-10-31 10:41
+打到第八章在未来世界见那个白发小孩儿了，继续推剧情之前是不是就去把所有东西清了好，还是直接推 ...</blockquote>
+可以继续，真正不可返回的时候都会有提示你“再往前走就不能回头了”，那你就要等一等，其他对话都不用在意
+
+*****
+
+####  Sannapolis  
+##### 1234#       发表于 2022-10-31 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58202049&amp;ptid=2098044" target="_blank">月光润色 发表于 2022-10-31 10:41</a>
+
+打到第八章在未来世界见那个白发小孩儿了，继续推剧情之前是不是就去把所有东西清了好，还是直接推 ...</blockquote>
+可以再往后推，在终章进最终boss门前都可以回头补收集（用世界树果实可以传送回之前的地图）
+
