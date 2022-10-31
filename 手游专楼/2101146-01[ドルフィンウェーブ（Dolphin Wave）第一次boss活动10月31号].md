@@ -821,3 +821,30 @@ boss战太难了 打不过 求个攻略</blockquote>
 
 吃属性有点过分哦，逆属性伤害低的可以...<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  leina0602  
+##### 68#       发表于 2022-10-31 17:22
+
+可能我练度比较高加上刚好武器克制吧，活动我就用平时推每日的队伍就过了
+
+可惜抽卡运太烂了，跟这个游戏无缘。
+
+<img src="https://img.saraba1st.com/forum/202210/31/172000q3as0uqg0m3qe0fa.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221031171933.png</strong> (248.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-31 17:20 上传
+
+<img src="https://img.saraba1st.com/forum/202210/31/172006f1nhbnb1bpvcgc2n.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221031171808.png</strong> (217.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-31 17:20 上传
+

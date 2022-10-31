@@ -2924,3 +2924,14 @@ zo和j还是正经上院线的，尺度不够
 
 其实奥特Q、奥特7、奥特MAN这些我一直感觉应该按照2005版神秘博士那个思路去做
 
+
+
+*****
+
+####  zxc4563982  
+##### 267#       发表于 2022-10-31 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58204984&amp;ptid=2075178" target="_blank">Zeno_5 发表于 2022-10-31 13:15</a>
+一开始是完全不想参与种族斗争当中了，基本和周边环境都脱节了，只为了生存而战斗。后面是和小女孩相处后， ...</blockquote>
+为了生存战斗——指殴打公园流浪阿叔收钱吗
+
