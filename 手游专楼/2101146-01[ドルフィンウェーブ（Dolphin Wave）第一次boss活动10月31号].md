@@ -812,3 +812,12 @@ boss战太难了 打不过 求个攻略</blockquote>
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  心之光  
+##### 67#       发表于 2022-10-31 16:52
+
+吃属性有点过分哦，逆属性伤害低的可以...<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
