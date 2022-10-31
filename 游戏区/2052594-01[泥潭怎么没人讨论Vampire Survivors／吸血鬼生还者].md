@@ -4544,3 +4544,16 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 你要查超武表在这个页面下半边就是
 [https://gamerch.com/vampiresurvivors/entry/325320](https://gamerch.com/vampiresurvivors/entry/325320)
 
+
+
+*****
+
+####  女神アイギス  
+##### 419#       发表于 2022-10-31 16:25
+
+惊了，之前我还说因为改版只要50级就给牌，可能不需要奶树练级解锁塔罗牌了
+
+然后为了解锁圣诞树去拿狗子奶了一次树，感情这里也改版了，升级飞快
+
+开2倍速的话升一个角色到50级只需要现实时间3分钟多点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

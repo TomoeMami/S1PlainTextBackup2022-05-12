@@ -3521,3 +3521,13 @@ BD特典 木制收纳盒 螺丝刀 绘画版 劳保这DIY的BD送的特典是木
 
 —— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  千恋万花  
+##### 279#       发表于 2022-10-31 16:23
+
+Do It Your Radio!! 第 2 回里有提到 11 月 16 日发售的「Do It Yourself!! Theme Songs」实际上除了完整版和 Inst.，还会收录 OP 和 ED 的 Remix 版，共 8 首（另外 2 首应该是 TV.size），我就说才目前官网上列的 4 首也太少了
+<img src="https://p.sda1.dev/8/526ebc401ed63507883ad2639350611f/2022-10-31-1623_20.png" referrerpolicy="no-referrer">
+
