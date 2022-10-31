@@ -2708,3 +2708,38 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 
 这片儿信彦确实立得不错，不过有一部分原因是原作信彦戏少所以这里自由度更高
 
+
+
+*****
+
+####  Zeno_5  
+##### 246#       发表于 2022-10-31 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58203406&amp;ptid=2075178" target="_blank">人形灾害 发表于 2022-10-31 11:41:02</a>
+光太郎两次都遇上了一个怀抱坚定理想主义的女人（至少在他看来），我认为是在这种理想主义的感召之下，光太 ...</blockquote>确实啊，这片讨论的种族问题太现实，要推动剧情发展就少不了理想主义者。
+看这片我不止一次想到了进击的巨人，巨人里不管是艾尔文还是艾伦，其实都是理想主义者，只不过一个理性，一个激进 。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  浅川雏羽  
+##### 247#       发表于 2022-10-31 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58203845&amp;ptid=2075178" target="_blank">Idea 发表于 2022-10-31 12:07</a>
+
+黑日还是赶紧跟令和四骑士一起埋了吧</blockquote>
+本来以为是什么老害，一看还在Revice楼里发过言，ptsd了是吧
+
+*****
+
+####  電子器官依存  
+##### 248#       发表于 2022-10-31 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198937&amp;ptid=2075178" target="_blank">桥本有菜 发表于 2022-10-31 02:43</a>
+
+赛文ov也好，赛文x也好，文戏至少剧情有意思啊，亚马逊s两季还有打斗呢
+
+黑日剧情越往后越无聊看的人 ...</blockquote>
+哥们那张脸确实有点撑不起来，再不济也减减肥搞点脸部线条出来贴合一下设定上的战斗力啊，本来像yyut就算了，变身之后tmd像yyut整活，视频素材都给找好了
+
