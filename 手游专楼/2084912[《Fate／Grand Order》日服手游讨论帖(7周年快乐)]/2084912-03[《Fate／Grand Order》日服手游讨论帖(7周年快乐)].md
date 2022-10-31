@@ -3394,3 +3394,17 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">奶一口给个C呆强化本 技能来个宝威呗
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3303#       发表于 2022-10-31 09:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58199265&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-31 06:59</a>
+
+奶一口给个C呆强化本 技能来个宝威呗</blockquote>
+再强化真就蓝卡一家独大，c呆唯一真神了（虽说现在也差不多）
+
+菌类官方指定超模从者<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
