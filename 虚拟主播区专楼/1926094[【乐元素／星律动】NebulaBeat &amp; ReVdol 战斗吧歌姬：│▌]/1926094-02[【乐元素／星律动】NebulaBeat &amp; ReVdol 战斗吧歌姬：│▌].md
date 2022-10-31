@@ -9598,3 +9598,15 @@ kkaa
 
 兜兜转转又一圈？这个纸是咩？
 
+
+
+*****
+
+####  ladiesman802  
+##### 2515#       发表于 2022-10-31 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58210900&amp;ptid=1926094" target="_blank">佛皇 发表于 2022-10-31 19:21</a>
+
+兜兜转转又一圈？这个纸是咩？</blockquote>
+yes，ip湖北，还有昨天的漏勺
+
