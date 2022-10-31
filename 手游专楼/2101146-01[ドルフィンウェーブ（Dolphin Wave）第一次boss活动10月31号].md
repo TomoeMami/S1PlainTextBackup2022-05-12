@@ -913,3 +913,12 @@ boss战太难了 打不过 求个攻略</blockquote>
 
 当场拉了一队暗属性ssr<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 还是可以打的
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 75#         楼主| 发表于 2022-10-31 23:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">试了一下，暂时打不过VH难度，先扫荡H难度再说了。手里的暗除了活动送的只有几个SR了，过两天拉起来试试
+
