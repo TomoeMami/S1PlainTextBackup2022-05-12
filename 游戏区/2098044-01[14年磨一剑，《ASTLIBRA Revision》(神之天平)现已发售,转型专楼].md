@@ -13440,3 +13440,144 @@ QQ截图20221031010828.jpg
 </blockquote>
 这游戏剧情这么优秀，有时候悬疑感十足，看的人心里有点发毛，就是一些刀子和感人桥段要是有声优配音气氛渲染就更到位了。顺带一提盖乌我的人选是小西克幸或者日野聪，刚打完第五章觉得这种兼具青涩少年和成熟青壮年声线的声优配起来更方便，miki配主时间线里的盖乌还行，配过去时间线的青年就显得声线太成熟。他配年轻的只能是是藤原拓海这类沉稳闷骚型的。
 
+
+
+*****
+
+####  黒長直姫  
+##### 1225#       发表于 2022-10-31 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198954&amp;ptid=2098044" target="_blank">pf67 发表于 2022-10-31 02:54</a>
+
+游戏中只有一个宝箱是过时不候的，就是蛇神那关打了小蛇后在教会最里面，到下一章过后地形变了就没了
+
+不 ...</blockquote>
+还有个天平村杂货店的
+
+
+
+*****
+
+####  布里兰特  
+##### 1226#       发表于 2022-10-31 10:21
+
+喷了，我通关了都不知道能强化
+
+
+
+*****
+
+####  布里兰特  
+##### 1227#       发表于 2022-10-31 10:22
+
+那么问题来了，在哪里强化？
+
+*****
+
+####  Sannapolis  
+##### 1228#       发表于 2022-10-31 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58201648&amp;ptid=2098044" target="_blank">布里兰特 发表于 2022-10-31 10:22</a>
+
+那么问题来了，在哪里强化？</blockquote>
+正传后的新章才解锁强化装备，在武器店强化
+
+*****
+
+####  sliver1997  
+##### 1229#       发表于 2022-10-31 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58201648&amp;ptid=2098044" target="_blank">布里兰特 发表于 2022-10-31 10:22</a>
+
+那么问题来了，在哪里强化？</blockquote>
+新章开放的强化功能，和武器店商人/小猪对话，选装备，在购买上面多了一项强化
+
+
+
+*****
+
+####  十字骷髅高达  
+##### 1230#       发表于 2022-10-31 10:34
+
+这游戏总的几章呀，周末肝到第四章停不下来看了下才玩了十几小时，怕流程太短没尽兴。。年度rpg，比异度3更惊喜（个人）
+
+
+
+*****
+
+####  DarkDancer  
+##### 1231#       发表于 2022-10-31 10:36
+
+<blockquote>何处分可 发表于 2022-10-30 00:42
+第八章三个机甲好不容易熬过去又来一个穿透的大机甲炮，直接给我心态打崩了，大家打这个都多少级，我43级中 ...</blockquote>
+丑胖子开的螃蟹机甲吗，你跟他重叠一直升龙就完事了，叠在一起没判定的
+
+*****
+
+####  月光润色  
+##### 1232#       发表于 2022-10-31 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打到第八章在未来世界见那个白发小孩儿了，继续推剧情之前是不是就去把所有东西清了好，还是直接推就行了
+
+
+
+*****
+
+####  DarkDancer  
+##### 1233#       发表于 2022-10-31 10:44
+
+<blockquote>月光润色 发表于 2022-10-31 10:41
+打到第八章在未来世界见那个白发小孩儿了，继续推剧情之前是不是就去把所有东西清了好，还是直接推 ...</blockquote>
+可以继续，真正不可返回的时候都会有提示你“再往前走就不能回头了”，那你就要等一等，其他对话都不用在意
+
+*****
+
+####  Sannapolis  
+##### 1234#       发表于 2022-10-31 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58202049&amp;ptid=2098044" target="_blank">月光润色 发表于 2022-10-31 10:41</a>
+
+打到第八章在未来世界见那个白发小孩儿了，继续推剧情之前是不是就去把所有东西清了好，还是直接推 ...</blockquote>
+可以再往后推，在终章进最终boss门前都可以回头补收集（用世界树果实可以传送回之前的地图）
+
+
+
+*****
+
+####  黒長直姫  
+##### 1235#       发表于 2022-10-31 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198541&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-31 01:18</a>
+
+斗技场全清完，就差盖亚深层了，发个正在用的天平配置</blockquote>
+后期最需要的是效果时间和精力获取上升还有精力上限
+
+上了双倍蓝耗凭依掉血和召唤真谛以后，风精灵BUFF攻速爆炸，雷2变异扫帚几千魔力加成凭依秒BOSS等等
+
+*****
+
+####  quanlix  
+##### 1236#       发表于 2022-10-31 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58201903&amp;ptid=2098044" target="_blank">十字骷髅高达 发表于 2022-10-31 10:34</a>
+
+这游戏总的几章呀，周末肝到第四章停不下来看了下才玩了十几小时，怕流程太短没尽兴。。年度rpg，比异度3更 ...</blockquote>
+8章+终章+追章（追章可以直接认为是二周目，会把整个世界观呈现出来）
+
+*****
+
+####  quanlix  
+##### 1237#       发表于 2022-10-31 10:56
+
+有了加血之后就不用加攻速了，现在就是平砍+黑鳞，也挺舒服
+
+*****
+
+####  lazycat233  
+##### 1238#       发表于 2022-10-31 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58201903&amp;ptid=2098044" target="_blank">十字骷髅高达 发表于 2022-10-31 10:34:35</a>
+这游戏总的几章呀，周末肝到第四章停不下来看了下才玩了十几小时，怕流程太短没尽兴。。年度rpg，比异度3更 ...</blockquote>全部流程40-50流程，二周目是新剧情新章
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

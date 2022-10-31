@@ -4071,3 +4071,23 @@ WOH的发行商将参加PAX WEST
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真就一年动一次
 
+
+
+*****
+
+####  zmxlegend  
+##### 236#       发表于 2022-10-31 09:35
+
+正好万圣打折，看版本号0。99了现在入坑能有相对完整的体验么
+
+
+
+*****
+
+####  超纯锑  
+##### 237#       发表于 2022-10-31 10:08
+
+这游戏是怎么回事，为什么我从官网下载了个试玩版，按什么键都没反应，鼠标点也没用
+
+双击试玩以后弹出个小窗口，无论alt + Enter全屏还是就在小窗口，比较常规的空格 x z 回车 方向键之类按过一遍，都没反应<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

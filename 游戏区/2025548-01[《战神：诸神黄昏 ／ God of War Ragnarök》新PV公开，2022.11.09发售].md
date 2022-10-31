@@ -8826,3 +8826,50 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 索尼这个0成本宣发笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你PlayStation官号那个视频能有200万播放啊
 
+
+
+*****
+
+####  SergeGlenn  
+##### 924#       发表于 2022-10-31 09:14
+
+<blockquote>clover293 发表于 2022-10-31 09:09
+索尼这个0成本宣发笑死你PlayStation官号那个视频能有200万播放啊</blockquote>
+醒醒，诸神黄昏相关的就有3个
+
+<img src="https://img.saraba1st.com/forum/202210/31/091446lm97y79kdkk9zhzg.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20221031_091345.jpg</strong> (327.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-10-31 09:14 上传
+
+
+
+*****
+
+####  医生狼多  
+##### 925#       发表于 2022-10-31 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58200379&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-31 09:09</a>
+索尼这个0成本宣发笑死你PlayStation官号那个视频能有200万播放啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这个尬黑了 托尔这个视频当正经宣传剪出来至少五百万保底
+
+*****
+
+####  clover293  
+##### 926#       发表于 2022-10-31 09:26
+
+啊，我说国内吧，你们说的不是国内吗？
+
+*****
+
+####  医生狼多  
+##### 927#       发表于 2022-10-31 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58200678&amp;ptid=2025548" target="_blank">clover293 发表于 2022-10-31 09:26</a>
+啊，我说国内吧，你们说的不是国内吗？</blockquote>
+不是啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内零零碎碎加起来也就百来万播放
+
