@@ -15631,3 +15631,12 @@ yabu：看了一 ...</blockquote>
 </blockquote>
 <blockquote>作者：No_10字幕组 [https://www.bilibili.com/read/cv17828099](https://www.bilibili.com/read/cv17828099) 出处：bilibili</blockquote></blockquote>
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8909#       发表于 2022-10-31 12:17
+
+不知道星2的bgm评分什么时候能突破到3.7，刚随手搜了个吐槽星2的视频，给我血压看高了，麻了，我就不该点杂谈视频的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
