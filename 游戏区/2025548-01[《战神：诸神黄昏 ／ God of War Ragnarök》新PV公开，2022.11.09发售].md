@@ -8915,3 +8915,19 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  葵  
+##### 932#       发表于 2022-10-31 20:46
+
+确定了没锤子，那个新加的枪感觉又不怎么好玩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 933#       发表于 2022-10-31 20:48
+
+主要是玩过仁王2以后别的游戏的枪真的不好玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

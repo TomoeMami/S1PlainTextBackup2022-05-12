@@ -904,3 +904,12 @@ boss战太难了 打不过 求个攻略</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">草我看贴吧纷纷表示第一个活动难度友好的，难道我玩法不对？
 
+
+
+*****
+
+####  zzy516232108  
+##### 74#       发表于 2022-10-31 20:45
+
+当场拉了一队暗属性ssr<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 还是可以打的
+
