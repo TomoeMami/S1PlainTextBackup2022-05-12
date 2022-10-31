@@ -13611,3 +13611,33 @@ QQ截图20221031010828.jpg
 猎人：三瓶由布子，十代后半的少年音
 大贤者：无特定，高达片场随便拉个老奸巨猾的老头都行
 
+
+
+*****
+
+####  蓝雉  
+##### 1240#         楼主| 发表于 2022-10-31 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58203463&amp;ptid=2098044" target="_blank">朔洵千夜 发表于 2022-10-31 11:44</a>
+如果完全新周目允许继承就好了，很想满状态开个新难度再回味切菜一遍，希望有new game+的后续补丁[f ...</blockquote>
+但梦神是女的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onlv星骸  
+##### 1241#       发表于 2022-10-31 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198541&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-31 01:18</a>
+
+斗技场全清完，就差盖亚深层了，发个正在用的天平配置</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202210/31/120618cv8x30rlrrsh03rl.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221031120556.jpg</strong> (135.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-31 12:06 上传
+
+感觉加的更多一点
+
