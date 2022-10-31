@@ -2627,3 +2627,13 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 
 看了下推特的ブラックサン感想tag，因为赞美赤军，政治私货太浓，小物臭首相影射安倍，不尊重假面骑士题材等原因也蛮多人喷的
 
+
+
+*****
+
+####  Bojenkins  
+##### 238#       发表于 2022-10-31 10:07
+
+烂得莫名有乐子，打戏全都是一轮胖揍都把我看笑了
+建议别老是绷着苦大仇深，加多点戏谑成分拍成mib或第九区那样，就能把片里可笑的部分合理利用起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
