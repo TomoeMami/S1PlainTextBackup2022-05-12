@@ -3553,3 +3553,12 @@ Do It Your Radio!! 第 2 回里有提到 11 月 16 日发售的「Do It Yourself
 
 —— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rslika  
+##### 282#       发表于 2022-10-31 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">+1 露肩装色疯了 这可是初中生啊！
+

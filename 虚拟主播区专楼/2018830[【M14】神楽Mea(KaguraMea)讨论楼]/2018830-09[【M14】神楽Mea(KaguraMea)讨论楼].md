@@ -8486,3 +8486,12 @@ Faker我要杀了你啊
 
 <img src="https://img.saraba1st.com/forum/202210/31/102337zpz4phdrhtpp3apv.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  时间在我手中  
+##### 12804#       发表于 2022-10-31 20:10
+
+还行，挺可爱的歌，有种地雷味道，纯正麻麻味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
