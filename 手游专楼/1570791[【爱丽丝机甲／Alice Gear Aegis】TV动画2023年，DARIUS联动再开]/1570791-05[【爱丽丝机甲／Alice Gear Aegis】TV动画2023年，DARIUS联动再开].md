@@ -311,3 +311,12 @@ an天狐天 御侠
 
 pc版听了一次没听爽，换手机版登录进门怎么不说了.......
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 7421#       发表于 2022-10-31 20:22
+
+第一次切人就有。但，貌似只有FA有<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
