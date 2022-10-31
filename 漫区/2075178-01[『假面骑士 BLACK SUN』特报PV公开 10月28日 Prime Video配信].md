@@ -2895,3 +2895,23 @@ zo和j还是正经上院线的，尺度不够
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然赚不了啥钱 也没打斗
 
+
+
+*****
+
+####  ShyCrazydog  
+##### 264#       发表于 2022-10-31 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58206318&amp;ptid=2075178" target="_blank">奥F特 发表于 2022-10-31 14:52</a>
+不知道圆谷还会不会出奥特Q续作 相比粽子黑日刻意卖血腥暴力 奥特Q这种模式我感觉更好 探讨的也不少 ...</blockquote>
+新奥特Q不是出过了吗
+
+*****
+
+####  奥F特  
+##### 265#       发表于 2022-10-31 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58206331&amp;ptid=2075178" target="_blank">ShyCrazydog 发表于 2022-10-31 14:52</a>
+新奥特Q不是出过了吗</blockquote>
+新奥特Q毕竟都2013年出了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圆谷能不能把第四部吐出来
+

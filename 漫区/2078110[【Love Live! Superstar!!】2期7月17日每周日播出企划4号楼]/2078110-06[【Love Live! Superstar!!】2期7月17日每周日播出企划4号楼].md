@@ -15667,3 +15667,12 @@ yabu：看了一 ...</blockquote>
 
 其实我一直抱着想看看更“专业”或者“新奇”一点的吐槽，解读之类的想法。但是貌似还是老一套，以及一些几乎“约定俗成”的思考角度<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，唉
 
+
+
+*****
+
+####  adw667  
+##### 8913#       发表于 2022-10-31 14:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">那个投票居然考虑到了中华炮的可能性，那我不演了
+
