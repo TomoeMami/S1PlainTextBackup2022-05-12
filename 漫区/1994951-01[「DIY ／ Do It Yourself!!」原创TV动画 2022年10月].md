@@ -3540,3 +3540,16 @@ Do It Your Radio!! 第 2 回里有提到 11 月 16 日发售的「Do It Yourself
 
 布丁有种与年龄不符的色气
 
+
+
+*****
+
+####  最强惠酱  
+##### 281#       发表于 2022-10-31 17:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58209260&amp;ptid=1994951" target="_blank">AlfredXC 发表于 2022-10-31 17:40</a>
+布丁有种与年龄不符的色气</blockquote>
+救命，我的眼睛离不开她的露肩工装形态<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
