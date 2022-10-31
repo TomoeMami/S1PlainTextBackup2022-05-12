@@ -377,3 +377,13 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 居然又爆体了，活动期间爆体两次，唉......
 
+
+
+*****
+
+####  tttabc1  
+##### 43672#       发表于 2022-10-31 08:36
+
+活动刷完了，6怪和100%礼装好文明。
+继续牛津<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
