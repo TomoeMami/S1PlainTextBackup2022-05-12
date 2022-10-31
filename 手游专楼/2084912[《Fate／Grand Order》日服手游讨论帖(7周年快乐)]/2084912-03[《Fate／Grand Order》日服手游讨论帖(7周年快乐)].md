@@ -3506,3 +3506,33 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 就看了看配置，等拿到茶壶再打。不过骑士本评论怎么还有人重开五六次的，配置不是说开幕一回合DEBUFF+对面耐性一回合，就不能等一回合吗，难道对面6个杂兵刀刀烈火？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3313#       发表于 2022-10-31 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58210432&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2022-10-31 18:50</a>
+
+就看了看配置，等拿到茶壶再打。不过骑士本评论怎么还有人重开五六次的，配置不是说开幕一回合DEBUFF+对面 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等什么等 南丁解自己 杀师傅解对面  秒了（
+
+*****
+
+####  الطائر  
+##### 3314#       发表于 2022-10-31 19:03
+
+在礼装本出完前，大概是不会关服了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 3315#       发表于 2022-10-31 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58210432&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2022-10-31 18:50</a>
+
+就看了看配置，等拿到茶壶再打。不过骑士本评论怎么还有人重开五六次的，配置不是说开幕一回合DEBUFF+对面 ...</blockquote>
+哪儿有这么多屁事儿，摩根直接秒了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

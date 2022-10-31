@@ -2951,3 +2951,17 @@ zo和j还是正经上院线的，尺度不够
 所以他后面表现的意志很坚定我要干嘛干嘛一副大义凛然就显得很搞笑
 根本没有灵魂也没有自己的想法 就只会打<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wingzerocos  
+##### 269#       发表于 2022-10-31 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58205045&amp;ptid=2075178" target="_blank">翼宿一 发表于 2022-10-31 13:19</a>
+
+光太郎的塑造缺失很严重，这种大叔配少女的模式下都会慢慢补充大叔的过去以及大叔的性格转变，而光太郎的 ...</blockquote>
+OP展示了这俩人从出生一直玩到成年，大概是认为这样你们就该懂他们是异姓兄弟了。
+
+这世界怪人在人间体状态下也能被认出是怪人，麻雀还能感应别的怪人的等级。光太郎这高级怪人还瘸腿的恐怕是真的不好找啥正经工作。
+
