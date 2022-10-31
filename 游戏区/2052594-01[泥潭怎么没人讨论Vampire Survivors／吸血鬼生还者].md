@@ -4515,3 +4515,32 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 
 想看超武合成表
 
+
+
+*****
+
+####  女神アイギス  
+##### 417#       发表于 2022-10-31 14:36
+
+试用了一下新角色化身，强是强，但没女皇那么不讲道理
+
+升级加移动应该是故意的，就是让你级一高就没法操作了，就是介绍里写的loses control
+
+*****
+
+####  女神アイギス  
+##### 418#       发表于 2022-10-31 14:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58205756&amp;ptid=2052594" target="_blank">Bhagavan 发表于 2022-10-31 14:12</a>
+
+哪里有攻略看啊?
+
+想看超武合成表</blockquote>
+吸血鬼幸存者吧精华帖应该是都有
+
+我查资料是去wiki，网页格式上省劲些
+[https://gamerch.com/vampiresurvivors/](https://gamerch.com/vampiresurvivors/)
+
+你要查超武表在这个页面下半边就是
+[https://gamerch.com/vampiresurvivors/entry/325320](https://gamerch.com/vampiresurvivors/entry/325320)
+

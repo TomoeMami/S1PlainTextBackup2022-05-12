@@ -12712,3 +12712,18 @@ miko想来真的，兔子不愿意
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  holoan  
+##### 2724#         楼主| 发表于 2022-10-31 14:38
+
+[https://youtu.be/9oBKOIMqJ0U](https://youtu.be/9oBKOIMqJ0U)
+
+白组和红组都是21点开始
+
+那没跑了
+
+但是我一点不想再看MC了我想看其他的直播什么都行……
+
