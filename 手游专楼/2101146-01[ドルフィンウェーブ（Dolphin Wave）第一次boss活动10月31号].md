@@ -848,3 +848,25 @@ boss战太难了 打不过 求个攻略</blockquote>
 
 2022-10-31 17:20 上传
 
+
+
+*****
+
+####  孫光龍  
+##### 69#       发表于 2022-10-31 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">原来最高难度，不耗体力的嘛...
+这么说岂不是三星之后无限刷，只要有skip票就能瞬间活动毕业了...
+
+*****
+
+####  leina0602  
+##### 70#       发表于 2022-10-31 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58208993&amp;ptid=2101146" target="_blank">孫光龍 发表于 2022-10-31 17:24</a>
+
+原来最高难度，不耗体力的嘛...
+
+这么说岂不是三星之后无限刷，只要有skip票就能瞬间活动毕业了... ...</blockquote>
+每天只能打一次
+

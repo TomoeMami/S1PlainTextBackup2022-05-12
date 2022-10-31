@@ -4598,3 +4598,15 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 问下这个比borato强多少，borato作为这个的仿品，玩了两天有点腻了</blockquote>
 是指brotato ？幸存者我不会到了boss 突然猝死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，还有大概是幸存者里死了的收益比较大，brotato 我经常玩到一下半路死了觉得虚度了人生，一无所获。也没什么爽快度。
 
+
+
+*****
+
+####  VanArkride  
+##### 424#       发表于 2022-10-31 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58208666&amp;ptid=2052594" target="_blank">otakun 发表于 2022-10-31 17:06</a>
+是指brotato ？幸存者我不会到了boss 突然猝死，还有大概是幸存者里死了的收益比较大，brotato 我 ...</blockquote>
+哦是brotato<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+那还可以，搞一个
+
