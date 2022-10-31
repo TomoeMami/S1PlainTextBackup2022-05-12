@@ -3497,3 +3497,12 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 今天这3个本都是进门直接秒了  一点花头都没啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新好强啊 我还以为多强整了一队杂技 结果就这
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3312#       发表于 2022-10-31 18:50
+
+就看了看配置，等拿到茶壶再打。不过骑士本评论怎么还有人重开五六次的，配置不是说开幕一回合DEBUFF+对面耐性一回合，就不能等一回合吗，难道对面6个杂兵刀刀烈火？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
