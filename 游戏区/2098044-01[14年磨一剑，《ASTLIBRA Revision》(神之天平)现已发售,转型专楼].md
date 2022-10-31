@@ -13706,3 +13706,24 @@ QQ截图20221031010828.jpg
 
 矿石镇两个画风特殊的就那玩意里的
 
+
+
+*****
+
+####  mayazi  
+##### 1248#       发表于 2022-10-31 19:19
+
+求不剧透的情况下一周目有哪些点是不能错过的。。跪谢
+
+*****
+
+####  秦南心  
+##### 1249#       发表于 2022-10-31 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58204123&amp;ptid=2098044" target="_blank">walfeds 发表于 2022-10-31 12:24</a>
+
+一边看TI一边打肝到凌晨总算把一周目赶完了，不过EX都没碰
+
+追章能打EX的话我就不读档回去了 ...</blockquote>
+EX是什么，追章打完盖亚迷宫不就通关了吗
+
