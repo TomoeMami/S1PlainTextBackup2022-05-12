@@ -15546,3 +15546,21 @@ A.「つらいときは目的が何なのか思い出す。
 
 页面也没说什么具体选择规则，你只要投了应该是都算的，最终规则是可以重复还是不能那是官方的事情了。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8902#       发表于 2022-10-31 10:24
+
+ 本帖最后由 稀勢のささ 于 2022-10-31 10:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不可能说的很细啊，比如到时候大香老师同时拿下solo冠军和cp冠军，总不能都上吧，没啥人气的选手又得找个位置塞上去，操作空间太大，随便投投得了
+
+*****
+
+####  ViyViy  
+##### 8903#       发表于 2022-10-31 10:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正这投票大香总能有个冠军。
+

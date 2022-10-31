@@ -13463,3 +13463,32 @@ QQ截图20221031010828.jpg
 
 喷了，我通关了都不知道能强化
 
+
+
+*****
+
+####  布里兰特  
+##### 1227#       发表于 2022-10-31 10:22
+
+那么问题来了，在哪里强化？
+
+*****
+
+####  Sannapolis  
+##### 1228#       发表于 2022-10-31 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58201648&amp;ptid=2098044" target="_blank">布里兰特 发表于 2022-10-31 10:22</a>
+
+那么问题来了，在哪里强化？</blockquote>
+正传后的新章才解锁强化装备，在武器店强化
+
+*****
+
+####  sliver1997  
+##### 1229#       发表于 2022-10-31 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58201648&amp;ptid=2098044" target="_blank">布里兰特 发表于 2022-10-31 10:22</a>
+
+那么问题来了，在哪里强化？</blockquote>
+新章开放的强化功能，和武器店商人/小猪对话，选装备，在购买上面多了一项强化
+

@@ -2637,3 +2637,12 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 烂得莫名有乐子，打戏全都是一轮胖揍都把我看笑了
 建议别老是绷着苦大仇深，加多点戏谑成分拍成mib或第九区那样，就能把片里可笑的部分合理利用起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vmon  
+##### 239#       发表于 2022-10-31 10:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了打斗过于朴实以外其他都还行吧，剧情比我预想的强多了，同样题材阿玛棕的人奸我实在遭不住。
+
