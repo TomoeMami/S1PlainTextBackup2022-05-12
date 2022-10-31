@@ -8873,3 +8873,14 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 啊，我说国内吧，你们说的不是国内吗？</blockquote>
 不是啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国内零零碎碎加起来也就百来万播放
 
+
+
+*****
+
+####  名字已被吃  
+##### 928#       发表于 2022-10-31 11:54
+
+打肥仔的视频有看到b站给我推荐，可我不敢看<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

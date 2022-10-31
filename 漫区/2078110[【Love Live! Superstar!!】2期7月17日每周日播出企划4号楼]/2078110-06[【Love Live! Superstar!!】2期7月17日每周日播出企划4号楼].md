@@ -15610,3 +15610,24 @@ yabu：看了一季动画后得知二期选拔消息并参加试镜，推测2021
 emo:一期落选，看了一单live后得知二期选拔消息，推测最早2021年4月后（等访谈翻译出来再整理
 整理一下其实还是很模糊，最早可能2020年11月，最晚是7月
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8908#       发表于 2022-10-31 11:56
+
+ 本帖最后由 aoaoaodedede 于 2022-10-31 11:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58203270&amp;ptid=2078110" target="_blank">starring 发表于 2022-10-31 11:35</a>
+
+0原:一期落选后没多久被选为二期生并且现场看了一单发售live，推测时间2020年11月～2021年4月
+
+yabu：看了一 ...</blockquote>
+铃原的时间还可以缩小范围的，至少是2020.12.14之前
+
+引用：<blockquote><blockquote>——能不能谈一谈『LoveLive! Superstar!!』这个企划开始以来，自己的感受如何？1期生声优公布的时候觉得如何呢？</blockquote><blockquote>
+</blockquote><blockquote>　　公布声优的时候我在想「这些人终将成为站在同一个舞台上的伙伴啊」。 </blockquote><blockquote>
+</blockquote><blockquote>
+</blockquote>
+<blockquote>作者：No_10字幕组 [https://www.bilibili.com/read/cv17828099](https://www.bilibili.com/read/cv17828099) 出处：bilibili</blockquote></blockquote>
+
