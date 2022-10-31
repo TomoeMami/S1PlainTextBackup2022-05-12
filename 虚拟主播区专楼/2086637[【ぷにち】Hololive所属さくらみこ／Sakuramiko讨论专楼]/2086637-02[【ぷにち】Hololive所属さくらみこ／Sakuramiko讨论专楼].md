@@ -12859,3 +12859,12 @@ miko想来真的，兔子不愿意
 
 刚才直播前在改封面倒是，改完换了就开播了
 
+
+
+*****
+
+####  rs5621  
+##### 2739#       发表于 2022-10-31 20:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一群人有说有笑挺好的
+
