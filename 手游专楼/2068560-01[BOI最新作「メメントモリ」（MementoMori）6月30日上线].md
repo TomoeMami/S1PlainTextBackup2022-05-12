@@ -43,3 +43,15 @@
 
 这逼游戏只出角色没活动出了？这么摆烂？
 
+
+
+*****
+
+####  薛定谔的小猫  
+##### 101#       发表于 2022-11-1 00:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198630&amp;ptid=2068560" target="_blank">posion 发表于 2022-10-31 01:33</a>
+这么多坛友没接触过剑远系吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真无氪表示你说的这些都太遥远了
+抽卡黑点，没有同卡可以突破的情况下，凑个120级顶天了，什么卡资源，不存在的，资源都多的用不完，无卡可养，每天上线收完菜我都懒得往角色那栏点，究极摆烂
+
