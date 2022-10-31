@@ -954,3 +954,19 @@ mark，无中文苦手，求推荐有中文的推理adv
 
 不会日语太遗憾了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">看起来很符合我的口味
 
+
+
+*****
+
+####  Sue  
+##### 87#         楼主| 发表于 2022-10-31 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58176780&amp;ptid=1847701" target="_blank">省心 发表于 2022-10-30 02:00</a>
+
+记得楼主成功安利过我《第八宗大罪》。</blockquote>
+能安利出去超开心的<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">八大罪续篇小说我也全给翻译好了，一定不要错过哦
+
+话说现在也很少安利些什么了，一来时间不足，二来在冷门文字游戏这片粪海里淘金也是真不容易
+
+哪天我鼓起了勇气我就开坑做missing parts的字幕吧哈哈
+
