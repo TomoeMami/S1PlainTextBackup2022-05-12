@@ -52,3 +52,16 @@
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rgauss  
+##### 805#         楼主| 发表于 2022-10-31 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">操了 这新角色 产能太低所以每个立绘都要利用是吧 
+工作室美术产能实在不行 就向nexon和紫龙求助吧
+通行证新角色感觉好棒
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

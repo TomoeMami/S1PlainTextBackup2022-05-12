@@ -870,3 +870,19 @@ boss战太难了 打不过 求个攻略</blockquote>
 这么说岂不是三星之后无限刷，只要有skip票就能瞬间活动毕业了... ...</blockquote>
 每天只能打一次
 
+
+
+*****
+
+####  CrayS1  
+##### 71#       发表于 2022-10-31 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58208956&amp;ptid=2101146" target="_blank">leina0602 发表于 2022-10-31 17:22</a>
+
+可能我练度比较高加上刚好武器克制吧，活动我就用平时推每日的队伍就过了
+
+ ...</blockquote>
+克制脚打，不克制被脚打，1w6的都打不过。 
+
+主要是还loading太闹心，早想找个借口卸了。
+
