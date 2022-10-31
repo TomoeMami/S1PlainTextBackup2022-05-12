@@ -3431,3 +3431,38 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 等爷爷及金闪闪会否復刻中...纯怨念角色
 
+
+
+*****
+
+####  qixinno2  
+##### 3306#       发表于 2022-10-31 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58200904&amp;ptid=2084912" target="_blank">日蚀之阳 发表于 2022-10-31 09:40</a>
+
+再强化真就蓝卡一家独大，c呆唯一真神了（虽说现在也差不多）
+
+菌类官方指定超模从者 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正已经无敌了 再无敌点也影响不大
+
+*****
+
+####  qixinno2  
+##### 3307#       发表于 2022-10-31 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58207205&amp;ptid=2084912" target="_blank">eilot 发表于 2022-10-31 15:49</a>
+
+要出都是梅林孔明他们，先期待一下特异点抽有多少新幕间或强化
+
+等爷爷及金闪闪会否復刻中...纯怨念角色 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">想想就知道没他们什么事了
+
+*****
+
+####  不垃圾屌丝  
+##### 3308#       发表于 2022-10-31 17:40
+
+100多M数据就三个低难吗
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4610,3 +4610,14 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 哦是brotato<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 那还可以，搞一个
 
+
+
+*****
+
+####  saberserker  
+##### 425#       发表于 2022-10-31 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58208158&amp;ptid=2052594" target="_blank">VanArkride 发表于 2022-10-31 16:40</a>
+问下这个比borato强多少，borato作为这个的仿品，玩了两天有点腻了</blockquote>
+这俩就不是一路游戏，土豆是个缝了自走棋的以撒，吸血鬼幸存者是怎么让玩家爽怎么来
+
