@@ -2915,3 +2915,12 @@ zo和j还是正经上院线的，尺度不够
 新奥特Q不是出过了吗</blockquote>
 新奥特Q毕竟都2013年出了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圆谷能不能把第四部吐出来
 
+
+
+*****
+
+####  米列希安  
+##### 266#       发表于 2022-10-31 15:18
+
+其实奥特Q、奥特7、奥特MAN这些我一直感觉应该按照2005版神秘博士那个思路去做
+
