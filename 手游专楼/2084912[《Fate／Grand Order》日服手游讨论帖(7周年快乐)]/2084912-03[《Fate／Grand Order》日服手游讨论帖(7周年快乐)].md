@@ -3417,3 +3417,17 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">摸中摸。最后一个结晶看来拿不到了
 
+
+
+*****
+
+####  eilot  
+##### 3305#       发表于 2022-10-31 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58199265&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-31 06:59</a>
+
+奶一口给个C呆强化本 技能来个宝威呗</blockquote>
+要出都是梅林孔明他们，先期待一下特异点抽有多少新幕间或强化
+
+等爷爷及金闪闪会否復刻中...纯怨念角色
+
