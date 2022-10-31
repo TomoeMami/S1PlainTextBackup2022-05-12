@@ -9610,3 +9610,24 @@ kkaa
 兜兜转转又一圈？这个纸是咩？</blockquote>
 yes，ip湖北，还有昨天的漏勺
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2516#       发表于 2022-10-31 23:17
+
+咩咩现在这个扒头羊我觉得挺可爱的，以后看不见了感觉有点可惜
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  黄金鸡屁屁  
+##### 2517#       发表于 2022-10-31 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58214080&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-10-31 23:17:27</a>
+咩咩现在这个扒头羊我觉得挺可爱的，以后看不见了感觉有点可惜</blockquote>大片纸也可以<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">只要是好姐妹
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
