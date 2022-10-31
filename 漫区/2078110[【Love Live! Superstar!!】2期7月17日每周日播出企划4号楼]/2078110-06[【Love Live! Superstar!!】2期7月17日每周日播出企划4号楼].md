@@ -15456,3 +15456,25 @@ A.「つらいときは目的が何なのか思い出す。
 
 都1打8了 读读空气啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 8894#       发表于 2022-10-31 08:03
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">什么投票
+
+看到了，中午去看看
+
+*****
+
+####  player3960  
+##### 8895#       发表于 2022-10-31 08:10
+
+官方大可以直接上香哥哥solo的，居然还给安排投票，它真的我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+投个可可solo看缘分了，而且按规则可香肯定无了，泳装肯定很健全，没啥好期待的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
