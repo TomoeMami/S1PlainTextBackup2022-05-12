@@ -2785,3 +2785,14 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 
 —— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  人形灾害  
+##### 253#       发表于 2022-10-31 13:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58205045&amp;ptid=2075178" target="_blank">翼宿一 发表于 2022-10-31 13:19</a>
+光太郎的塑造缺失很严重，这种大叔配少女的模式下都会慢慢补充大叔的过去以及大叔的性格转变，而光太郎的 ...</blockquote>
+比如最后小葵在光太郎身上画那个black的S，我觉得一定程度上是能把这些因素串一下的，这个S就是无限符号的一半，可里把这个记号拆开交给光太郎和信彦意味着他们合起来才是那个无限，光太郎向小葵讲过这些故事之后小葵又把这个记号的意义重新还给光太郎。而信彦失去了属于自己的另一半无限是因为他已经和当时可里的理想背道而驰了。结果这点细节也没有填补出来，不管是剪辑删掉了还是怎样，总之是挺难以理解的。
+
