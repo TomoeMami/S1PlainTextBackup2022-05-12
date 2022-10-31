@@ -4634,3 +4634,14 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 
 好像也没有其他的近路可抄
 
+
+
+*****
+
+####  VanArkride  
+##### 427#       发表于 2022-10-31 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58209272&amp;ptid=2052594" target="_blank">saberserker 发表于 2022-10-31 17:40</a>
+这俩就不是一路游戏，土豆是个缝了自走棋的以撒，吸血鬼幸存者是怎么让玩家爽怎么来 ...</blockquote>
+主要看nostalie玩买的，但玩了一段时间感觉就不是很行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
