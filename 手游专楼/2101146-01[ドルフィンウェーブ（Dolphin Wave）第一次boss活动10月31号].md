@@ -922,3 +922,12 @@ boss战太难了 打不过 求个攻略</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">试了一下，暂时打不过VH难度，先扫荡H难度再说了。手里的暗除了活动送的只有几个SR了，过两天拉起来试试
 
+
+
+*****
+
+####  kulanyee  
+##### 76#       发表于 2022-11-1 01:10
+
+只要能拿出3张50级暗SSR就能三星最高难度了。练度高一些2张感觉也不是不能玩。活动送一张，然后自选一张。甚至不用抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
