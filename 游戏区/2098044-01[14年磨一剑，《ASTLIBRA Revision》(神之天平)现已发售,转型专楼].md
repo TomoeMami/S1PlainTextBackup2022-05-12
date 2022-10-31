@@ -13799,3 +13799,17 @@ EX是什么，追章打完盖亚迷宫不就通关了吗
 
 那些什么暗精灵所谓的提升克制暗属性的伤害到底是提升圣属性还是提升暗属性<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sannapolis  
+##### 1257#       发表于 2022-11-1 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58213744&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-10-31 22:51</a>
+
+终章还有天平吗，我怎么到终章之前还少一个天平</blockquote>
+第二到八章每章都有一个天平盘子可以捡，再加上扭蛋给一个。具体位置这帖子543楼有人总结
+
+还有所谓“克制暗属性的伤害”体感来说应该是提升圣属性（相反的属性）
+
