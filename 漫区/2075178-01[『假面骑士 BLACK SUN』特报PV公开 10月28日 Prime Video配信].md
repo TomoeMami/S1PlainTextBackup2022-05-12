@@ -2618,3 +2618,12 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 
 — from Xiaomi 22021211RG, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  人形灾害  
+##### 237#       发表于 2022-10-31 09:59
+
+看了下推特的ブラックサン感想tag，因为赞美赤军，政治私货太浓，小物臭首相影射安倍，不尊重假面骑士题材等原因也蛮多人喷的
+

@@ -72,3 +72,18 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">风巫妖斧真的就是风属性的三星武器系列吗
 
+
+
+*****
+
+####  phoenixxj  
+##### 17144#       发表于 2022-10-31 09:55
+
+别人家都是龙人
+
+风是龙猫
+
+这事情真不好圆。
+
+但是给了风1个10分巫妖，比隔壁水龙还是爽的吧。
+
