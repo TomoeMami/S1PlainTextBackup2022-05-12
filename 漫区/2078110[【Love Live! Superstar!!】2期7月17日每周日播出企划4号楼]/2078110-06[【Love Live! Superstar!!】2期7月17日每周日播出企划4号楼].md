@@ -16030,3 +16030,16 @@ vol.18タイムテーブル公开👏👏
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 8930#       发表于 2022-10-31 23:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58214148&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-10-31 23:21</a>
+怎么我看写着生放送
+
+—— 来自 S1Fun</blockquote>
+广播好像是生放送，但是鲤鱼的留言应该不是实时的吧
+
