@@ -13665,3 +13665,15 @@ QQ截图20221031010828.jpg
 
 追章能打EX的话我就不读档回去了
 
+
+
+*****
+
+####  朔洵千夜  
+##### 1244#       发表于 2022-10-31 13:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58203852&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-31 12:08</a>
+
+但梦神是女的吧</blockquote>
+男的……吧？最后新章打的时候我记得是男人脸而且没看见乳摇啊，这游戏的女boss不是一个比一个摇得带感吗<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
