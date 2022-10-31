@@ -13677,3 +13677,12 @@ QQ截图20221031010828.jpg
 但梦神是女的吧</blockquote>
 男的……吧？最后新章打的时候我记得是男人脸而且没看见乳摇啊，这游戏的女boss不是一个比一个摇得带感吗<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布里兰特  
+##### 1245#       发表于 2022-10-31 15:41
+
+这游戏卖多点，再上ns、ps5等平台吧，好游戏值得更好多人欣赏
+
