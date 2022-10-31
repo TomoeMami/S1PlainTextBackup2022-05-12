@@ -420,3 +420,15 @@ nrk这新衣装设计思路源于黑色婚纱啊
 
 2022/10/31</blockquote>
 
+
+
+*****
+
+####  OldGlory  
+##### 17672#       发表于 2022-11-1 00:47
+
+[https://twitter.com/ayahito4change](https://twitter.com/ayahito4change)
+[https://www.change.org/p/%E3%81% ... E%E3%81%99-gundoout](https://www.change.org/p/%E3%81%AB%E3%81%98%E3%81%95%E3%82%93%E3%81%98%E9%83%A1%E9%81%93%E7%BE%8E%E7%8E%B2%E3%81%95%E3%82%93%E3%81%AB%E3%81%A4%E3%81%84%E3%81%A6%E5%85%AC%E9%96%8B%E8%B3%AA%E5%95%8F%E7%8A%B6%E3%81%B8%E3%81%AE%E5%9B%9E%E7%AD%94%E3%82%92%E6%B1%82%E3%82%81%E3%81%BE%E3%81%99-gundoout)
+
+喷了，原友搞组织有一手的
+
