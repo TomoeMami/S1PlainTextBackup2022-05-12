@@ -970,3 +970,14 @@ mark，无中文苦手，求推荐有中文的推理adv
 
 哪天我鼓起了勇气我就开坑做missing parts的字幕吧哈哈
 
+
+
+*****
+
+####  refiver  
+##### 88#       发表于 2022-10-31 14:51
+
+看到弥生探侦事务所还在想这游戏也有人叫弥生吗
+
+点开一看原来确实是EVE爱好者做的……<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
