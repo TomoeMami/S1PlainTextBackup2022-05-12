@@ -2661,3 +2661,17 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 
 —— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Zeno_5  
+##### 241#       发表于 2022-10-31 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58201932&amp;ptid=2075178" target="_blank">翼宿一 发表于 2022-10-31 10:35</a>
+
+这片细节完成度挺差的，没说那个药水为什么葵用就有效别人用就不行，而且一大堆前期设定也都没有用上。炽 ...</blockquote>
+光太郎一开始吃的时候还涉世未深，但后面发现怪人和人类之间的问题根本就是无解，所以才决定不吃。至于最后，那是为了夺回力量不得已为之。
+
+我个人认为光太郎的人设正好对应了整部剧的主旨，面对种族主义这种无解的命题，奋斗到最后，终将归至虚无。只要种族之间还存在差异，那就什么都改变不了。
+

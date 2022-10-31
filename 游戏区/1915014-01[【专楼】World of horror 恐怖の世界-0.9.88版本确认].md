@@ -4091,3 +4091,12 @@ WOH的发行商将参加PAX WEST
 
 双击试玩以后弹出个小窗口，无论alt + Enter全屏还是就在小窗口，比较常规的空格 x z 回车 方向键之类按过一遍，都没反应<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jimlee079  
+##### 238#       发表于 2022-10-31 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">真就一年诈尸一次啊，明年能上官中么？
+

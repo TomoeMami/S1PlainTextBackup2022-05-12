@@ -23,3 +23,14 @@
 
 游戏里看似很过分的提升系统素材，全是能通过长线运营逐渐获得的，别介意现在菜狗不如，睡一觉后一切都会好起来的
 
+
+
+*****
+
+####  rilakkuma  
+##### 99#       发表于 2022-10-31 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺便蛮王是哪位
+
