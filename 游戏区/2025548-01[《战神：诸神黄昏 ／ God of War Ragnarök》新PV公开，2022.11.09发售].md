@@ -8902,3 +8902,16 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 还有九天，不敢看剧透，我要死了
 
+
+
+*****
+
+####  soli1tude0  
+##### 931#       发表于 2022-10-31 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58205608&amp;ptid=2025548" target="_blank">晓C 发表于 2022-10-31 13:57</a>
+同问PS4版帧数，跟前作差不多那还能接受</blockquote>
+1080 30帧 跟前作差不多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

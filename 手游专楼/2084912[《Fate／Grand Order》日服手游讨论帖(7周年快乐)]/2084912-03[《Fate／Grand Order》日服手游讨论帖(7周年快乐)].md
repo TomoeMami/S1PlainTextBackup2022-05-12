@@ -3550,3 +3550,29 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 黑杯金钻头C呆狐狸奥伯龙砸了333w草
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3317#       发表于 2022-10-31 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">清姬那个太搞笑了 一长串无敌我还以为是什么特殊的无敌机制 结果金钻头一宝具瞬杀 我都蒙了
+
+*****
+
+####  alucardcz  
+##### 3318#       发表于 2022-10-31 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑 都可以笑  下次直接换成肃正
+
+*****
+
+####  DARKGRAY  
+##### 3319#       发表于 2022-10-31 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58210649&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-31 19:03</a>
+
+等什么等 南丁解自己 杀师傅解对面  秒了（</blockquote>
+就当人家没有解的人<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
