@@ -8817,3 +8817,12 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  clover293  
+##### 923#       发表于 2022-10-31 09:09
+
+索尼这个0成本宣发笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你PlayStation官号那个视频能有200万播放啊
+
