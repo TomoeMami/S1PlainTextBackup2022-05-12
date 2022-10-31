@@ -2646,3 +2646,18 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了打斗过于朴实以外其他都还行吧，剧情比我预想的强多了，同样题材阿玛棕的人奸我实在遭不住。
 
+
+
+*****
+
+####  翼宿一  
+##### 240#       发表于 2022-10-31 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198937&amp;ptid=2075178" target="_blank">桥本有菜 发表于 2022-10-31 02:43</a>
+赛文ov也好，赛文x也好，文戏至少剧情有意思啊，亚马逊s两季还有打斗呢
+黑日剧情越往后越无聊看的人 ...</blockquote>
+这片细节完成度挺差的，没说那个药水为什么葵用就有效别人用就不行，而且一大堆前期设定也都没有用上。炽热天堂是谁研发的没说，只说了成分有人，这完全不能解释为什么光太郎不愿意吃这个，他并不是从来没吃过的洁派（反而五十年前和最后都吃了），Amazons 系还有一个人肉吃了会上瘾导致无法回头的说法，可这片里吃过的也没什么副作用，敢死队吃了一堆但死因都是被人类射杀/殴打，估计是剪辑剪掉了不少相关的片段。
+创世王在光太郎和信彦小时候那段摸头就很好表现了这个巨大怪物的特殊，结果后面只说了是日蚀×蝗灾的突变，是没有个人意志的只有生存本能的怪人。怀疑是不是原来的篇幅不止 10 集，硬剪成这样的，细节完成度这么差剪辑要背锅。
+
+—— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
