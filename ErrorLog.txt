@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/游戏区/1993889-01[SE夜光组新作《Forspoken》10分钟新实机演示公开，2023.01.24发售].md'
-!!error:id=1993889
