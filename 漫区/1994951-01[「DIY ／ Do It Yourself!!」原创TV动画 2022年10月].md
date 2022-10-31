@@ -3608,3 +3608,21 @@ Do It Your Radio!! 第 2 回里有提到 11 月 16 日发售的「Do It Yourself
 不觉得很酷吗？作为一个理科男，我觉得这太酷了，很符合我对未来生活的想象，科技并带着些趣味😎</blockquote>
 和步梦一样，挺而不败
 
+
+
+*****
+
+####  劳动塑造人  
+##### 286#       发表于 2022-11-1 03:47
+
+这AR眼镜，果然是电脑线圈前传<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘴瓢王者  
+##### 287#       发表于 2022-11-1 04:28
+
+这片绝对是十月被低估的番，观感舒适程度仅次于孤独摇滚。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
