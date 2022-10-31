@@ -2752,3 +2752,36 @@ https://twitter.com/matutoya/status/1585642684252753926</blockquote>
 
 信彦逃出来之后立刻去找光太郎说我们一起去杀了创世王，光太郎在那耍臭脸不说话，后边又天天说我要杀了创世王，这又是什么脑回路
 
+
+
+*****
+
+####  Zeno_5  
+##### 250#       发表于 2022-10-31 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58204560&amp;ptid=2075178" target="_blank">zxc4563982 发表于 2022-10-31 12:50:32</a>
+信彦逃出来之后立刻去找光太郎说我们一起去杀了创世王，光太郎在那耍臭脸不说话，后边又天天说我要杀了创世 ...</blockquote>一开始是完全不想参与种族斗争当中了，基本和周边环境都脱节了，只为了生存而战斗。后面是和小女孩相处后，才重拾了目标。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  eyeego  
+##### 251#       发表于 2022-10-31 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58204560&amp;ptid=2075178" target="_blank">zxc4563982 发表于 2022-10-31 12:50</a>
+信彦逃出来之后立刻去找光太郎说我们一起去杀了创世王，光太郎在那耍臭脸不说话，后边又天天说我要杀了创世 ...</blockquote>
+一开始我还以为两个人因为女人翻脸了 结果 结果最后也没明白 反正就是迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  翼宿一  
+##### 252#       发表于 2022-10-31 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58203406&amp;ptid=2075178" target="_blank">人形灾害 发表于 2022-10-31 11:41</a>
+光太郎两次都遇上了一个怀抱坚定理想主义的女人（至少在他看来），我认为是在这种理想主义的感召之下，光太 ...</blockquote>
+光太郎的塑造缺失很严重，这种大叔配少女的模式下都会慢慢补充大叔的过去以及大叔的性格转变，而光太郎的剧情大多给了五十年前的愣头青，和葵的关联反而少了，以至于看上去他会保护葵也就只是为了弥补当年没救到可里的遗憾，不管是对葵本人还是对她们的梦想，光太郎都是一副无动于衷的样。到杀死创世王的部分还能说是被时势推着走的，但那之后黑日和影月的对决就非常突兀了，只能说他就是那种套路化的主角，我不知道自己的理想是什么但我的目标就是打倒反派。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+信彦的转变虽然也快，但是有团队覆灭、目睹了同伴的惨剧、以及得知了过去的真相这几个事件加持，让他的愤怒和决心显得合理，有争议的只是手段。老秋山说的相信他们永远不会为敌也很是没理由，因为这俩的童年刻画几乎没有，而五十年前的剧情也没有体现这俩的友谊有多靠谱（看起来只是阵营恰好一致的战友），到最后弄得黑日影月的对决就只是为了致敬原作，并没有什么另外的思想内核。如果把创世王之后的部分拿来单独做第二季可能会有更好的效果，从现在的剪辑来看这部分的角色几乎没有一个塑造好的，尤其是作为主角的光太郎和葵。
+
+—— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
