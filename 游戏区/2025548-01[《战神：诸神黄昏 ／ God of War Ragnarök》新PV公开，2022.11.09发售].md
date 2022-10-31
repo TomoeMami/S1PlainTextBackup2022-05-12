@@ -8884,3 +8884,12 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  晓C  
+##### 929#       发表于 2022-10-31 13:57
+
+同问PS4版帧数，跟前作差不多那还能接受
+
