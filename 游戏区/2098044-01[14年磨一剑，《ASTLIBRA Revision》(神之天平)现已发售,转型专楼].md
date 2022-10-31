@@ -13540,3 +13540,44 @@ QQ截图20221031010828.jpg
 打到第八章在未来世界见那个白发小孩儿了，继续推剧情之前是不是就去把所有东西清了好，还是直接推 ...</blockquote>
 可以再往后推，在终章进最终boss门前都可以回头补收集（用世界树果实可以传送回之前的地图）
 
+
+
+*****
+
+####  黒長直姫  
+##### 1235#       发表于 2022-10-31 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58198541&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-10-31 01:18</a>
+
+斗技场全清完，就差盖亚深层了，发个正在用的天平配置</blockquote>
+后期最需要的是效果时间和精力获取上升还有精力上限
+
+上了双倍蓝耗凭依掉血和召唤真谛以后，风精灵BUFF攻速爆炸，雷2变异扫帚几千魔力加成凭依秒BOSS等等
+
+*****
+
+####  quanlix  
+##### 1236#       发表于 2022-10-31 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58201903&amp;ptid=2098044" target="_blank">十字骷髅高达 发表于 2022-10-31 10:34</a>
+
+这游戏总的几章呀，周末肝到第四章停不下来看了下才玩了十几小时，怕流程太短没尽兴。。年度rpg，比异度3更 ...</blockquote>
+8章+终章+追章（追章可以直接认为是二周目，会把整个世界观呈现出来）
+
+*****
+
+####  quanlix  
+##### 1237#       发表于 2022-10-31 10:56
+
+有了加血之后就不用加攻速了，现在就是平砍+黑鳞，也挺舒服
+
+*****
+
+####  lazycat233  
+##### 1238#       发表于 2022-10-31 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58201903&amp;ptid=2098044" target="_blank">十字骷髅高达 发表于 2022-10-31 10:34:35</a>
+这游戏总的几章呀，周末肝到第四章停不下来看了下才玩了十几小时，怕流程太短没尽兴。。年度rpg，比异度3更 ...</blockquote>全部流程40-50流程，二周目是新剧情新章
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
