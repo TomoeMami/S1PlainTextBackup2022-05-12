@@ -3562,3 +3562,20 @@ Do It Your Radio!! 第 2 回里有提到 11 月 16 日发售的「Do It Yourself
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">+1 露肩装色疯了 这可是初中生啊！
 
+
+
+*****
+
+####  冰冻火柴  
+##### 283#       发表于 2022-10-31 21:04
+
+幸希心，这名字中文发音读起来挺有趣，期待的角色终于来了，褐皮长发元气娘配上略沙哑的声线，太对口味了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202210/31/210203v3j9vniien1i13j1.png" referrerpolicy="no-referrer">
+
+<strong>幸希心.png</strong> (38.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-10-31 21:02 上传
+
