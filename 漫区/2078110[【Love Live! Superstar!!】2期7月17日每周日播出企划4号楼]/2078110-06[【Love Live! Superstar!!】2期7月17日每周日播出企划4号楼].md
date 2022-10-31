@@ -15491,3 +15491,29 @@ A.「つらいときは目的が何なのか思い出す。
 投个可可solo看缘分了，而且按规 ...</blockquote>
 双人可以自由选择，没有固定CP
 
+
+
+*****
+
+####  player3960  
+##### 8897#       发表于 2022-10-31 08:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58199731&amp;ptid=2078110" target="_blank">lj205 发表于 2022-10-31 08:19:36</a>
+双人可以自由选择，没有固定CP</blockquote>我记得规则好像是solo选上了，双人就不能上了吧。
+那满足可香首先得两人solo都选不上，然后双人要排前4，感觉难度蛮大的。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不过我还是更想看可可solo封面。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 8898#       发表于 2022-10-31 08:25
+
+ 本帖最后由 starring 于 2022-10-31 08:26 编辑 
+
+重听了二期所有歌，未来音、to be continued、pop talking都不错，再往前还有水花标志和着色透明，其它的也没有那么不堪（chance day,chance way则是真的欣赏不来）
+
+如果说一期还有双C曲和两首堇C曲（闪耀的前方也能算恋C曲吧），二期则全部都是香C，包括维他命夏天，听完没感觉到这歌是CEO的C曲。而且因为人数增加了，每个人分到的句子更短，不像一期的歌每人都分到长句
+堇上辈子是救了运营全家吧，居然能从香圣手里抢到两首单人C<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
