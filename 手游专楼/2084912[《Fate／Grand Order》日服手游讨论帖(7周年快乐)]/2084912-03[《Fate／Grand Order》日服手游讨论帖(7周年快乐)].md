@@ -3475,3 +3475,25 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 什么花里胡哨的
 
+
+
+*****
+
+####  alucardcz  
+##### 3310#       发表于 2022-10-31 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58209689&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-10-31 18:07</a>
+
+艹 什么花里胡哨的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这3个本都是进门直接秒了  一点花头都没啊
+
+*****
+
+####  qixinno2  
+##### 3311#       发表于 2022-10-31 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58209850&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-31 18:16</a>
+
+今天这3个本都是进门直接秒了  一点花头都没啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新好强啊 我还以为多强整了一队杂技 结果就这
+

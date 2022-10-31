@@ -1,5 +1,3 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/漫区/2049163-01[宫岛礼吏 新作「紫云寺家的孩子们」2月25日连载开启].md'
-!!error:id=2049163
 'utf-8' codec can't decode byte 0xb8 in position 95579: invalid start byte
 !!error:id=2098883
