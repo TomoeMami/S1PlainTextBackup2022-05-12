@@ -382,3 +382,12 @@ king的大会还行的，难得的有节目效果的
 
 nrk这新衣装设计思路源于黑色婚纱啊
 
+
+
+*****
+
+####  Ketestrait  
+##### 17670#       发表于 2022-10-31 19:42
+
+乐园组这线下卡拉ok还挺乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
