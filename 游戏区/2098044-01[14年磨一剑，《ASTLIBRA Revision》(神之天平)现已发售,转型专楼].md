@@ -13886,3 +13886,24 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 —— 来自 Xiaomi M2007J22C, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 啊，忘了试这个
 
+
+
+*****
+
+####  Leona_Akari  
+##### 1264#       发表于 2022-11-1 10:04
+
+打到最终迷宫了，给我一种感觉，这个续章除了填坑以外就是为了这个最终迷宫包的饺子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  pf67  
+##### 1265#       发表于 2022-11-1 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58217236&amp;ptid=2098044" target="_blank">shimotsuki14 发表于 2022-11-1 09:06</a>
+
+打到七章了，昨晚回头去刷前几章的材料买剩的装备，第四章海蛇洞窟进不去了，鮟鱇鱼肝和另外一种鱼肉是不是 ...</blockquote>
+你走到船那不就进去了...
+

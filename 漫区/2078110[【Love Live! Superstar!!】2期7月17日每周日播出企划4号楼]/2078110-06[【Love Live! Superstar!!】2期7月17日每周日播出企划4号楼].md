@@ -16203,3 +16203,17 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 不过薇恩高中生这个补丁相比我的举例确实要严重地多，触及到了大赛的关键设定，而且恐怕制作组偏偏没意识到，没有选择第一时间补上原因，而是两周后才说明。火上浇油了属于是
 （以及为什么说是事后找补，不是说为了回答观众才在后面补设定，而是为了剧情需要（snp仓促退场、把薇恩正式树立为不得不打倒的对象）不加铺垫地让薇恩上场，相当于临时强加设定让你接受，即使早有预谋也是动画里不应该出现的。）
 
+
+
+*****
+
+####  Kfly  
+##### 8945#       发表于 2022-11-1 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58217692&amp;ptid=2078110" target="_blank">2148214 发表于 2022-11-1 09:34</a>
+最后一话，snp来看LIVE：“第一次觉得舞台离得那么远。”
+
+杀人诛心，是个脑子正常的人都必给差评。 ...</blockquote>
+怀揣着高远志向、有理想有追求又专注比赛的人输给了一个从始至终都没有正视大赛、甚至没有成长的人，这还是发生在一个唯心的作品里……制作组黑角色的能力我一直是很认可的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+以及这真的适合给小孩子看吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
