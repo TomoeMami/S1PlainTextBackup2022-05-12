@@ -16361,3 +16361,24 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 
 星二属于是回味无穷了，每次都能翻点泔水味上来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8957#       发表于 2022-11-1 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58220680&amp;ptid=2078110" target="_blank">darkendless 发表于 2022-11-1 12:01</a>
+
+挂件在油管上有日本人考察过，结论是
+
+1. 挂件可能是为了表现可可“天邪鬼”的性格。
+
+2. 在2期第9集的作用 ...</blockquote>
+小小一个挂件，竟酿成二十一集（截止S2E9）惨剧
+你说这些谁懂呀.jpg
+
+如果一开始就想好了这个挂件要怎么用的话（也就是说可堇关系的路线早就决定好了），那最终效果是这个样也是一种本事啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+所以才说星二不是没有可供研究的地方，只是大局已定的情况下翻出的东西总透着一股怪味，让人越发摸不着头脑。
+
