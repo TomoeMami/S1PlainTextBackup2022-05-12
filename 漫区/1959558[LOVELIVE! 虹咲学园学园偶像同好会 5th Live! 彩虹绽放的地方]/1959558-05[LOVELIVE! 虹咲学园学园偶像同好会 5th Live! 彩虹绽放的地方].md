@@ -762,3 +762,14 @@ wtf...
 
 也就是说之后所有雪菜配音都不是她了是么
 
+
+
+*****
+
+####  dozen  
+##### 6658#       发表于 2022-11-1 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58228809&amp;ptid=1959558" target="_blank">iuhehc 发表于 2022-11-1 20:09</a>
+也就是说之后所有雪菜配音都不是她了是么</blockquote>
+到3月底，有存货会用完
+

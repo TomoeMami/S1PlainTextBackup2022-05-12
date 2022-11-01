@@ -14129,3 +14129,24 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">在终章之前把那些所有神都打了一遍，出了龙神一开始没摸懂意外其他大的都挺轻松的。开始最终章
 
+
+
+*****
+
+####  何处分可  
+##### 1286#       发表于 2022-11-1 20:18
+
+ 本帖最后由 何处分可 于 2022-11-1 20:20 编辑 
+
+<img src="https://img.saraba1st.com/forum/202211/01/201734hrkw282uz0s8l11s.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (294.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-1 20:17 上传
+
+看了一眼，发现我饰品龙酒杯还没做，但是小镇和猪猪那里都做不了，村子也被毁了，这去哪儿做啊
+
+原来是去卖道具的地方做，傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
