@@ -1056,3 +1056,15 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 就算11+1，以前的多人歌曲怎么办？所谓角色毕业？我反正脑补不了重新编排真11人版，更加残酷
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lostedge  
+##### 6685#       发表于 2022-11-2 06:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58234287&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-2 05:27</a>
+
+在VTB圈子这种事，一些企业势 ...</blockquote>
+可能毕业这个词确实不合适。如果之前的歌曲重编我也不能接受，不过现在据传之前内容维持现状。毕竟LL三次元内容占比还是很大的，对于现实的客观因素和不可抗力导致的退场固然遗憾但不至于难受，所以如果能够11+1，无论官方是否要在剧情上安排角色退场，对我来说都能够从理性上考虑，这样更容易接受一点吧
+
