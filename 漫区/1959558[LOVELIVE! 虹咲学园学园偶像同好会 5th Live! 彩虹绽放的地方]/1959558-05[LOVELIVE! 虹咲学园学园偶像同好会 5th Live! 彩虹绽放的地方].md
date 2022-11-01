@@ -302,3 +302,38 @@ wtf...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">灯一定要保重身体啊
 
+
+
+*****
+
+####  crocccc  
+##### 6610#       发表于 2022-11-1 17:43
+
+<img src="https://img.saraba1st.com/forum/202211/01/174257o4ez4qv9eeq4m6vn.jpg" referrerpolicy="no-referrer">
+
+<strong>348cc2fbae24c6bf.jpg</strong> (262.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-1 17:42 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  MASKA-1  
+##### 6611#       发表于 2022-11-1 17:43
+
+这谁能顶角色啊，感觉不好找人
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Mika-S  
+##### 6612#       发表于 2022-11-1 17:46
+
+啊这<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

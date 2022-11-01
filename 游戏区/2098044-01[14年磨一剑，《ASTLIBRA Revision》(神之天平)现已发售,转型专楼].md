@@ -14021,3 +14021,18 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  jy000129  
+##### 1276#       发表于 2022-11-1 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58226038&amp;ptid=2098044" target="_blank">dookiee 发表于 2022-11-1 17:16</a>
+宰相的弟弟是谁，剧情里有没有提到
+
+—— 来自 Xiaomi 22081212C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+推测就是男主，都长的像女人
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
