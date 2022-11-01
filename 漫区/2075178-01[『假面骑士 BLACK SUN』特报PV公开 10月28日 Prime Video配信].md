@@ -2978,3 +2978,14 @@ OP展示了这俩人从出生一直玩到成年，大概是认为这样你们就
 
 像black对タロム那场，很适合用来表达光太郎现在的想法，地板滚两下后他们好像也确实达成了某种共识，解除变身放光太郎走了。但他们两个似乎是懂了，观众肯定没懂。
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 271#       发表于 2022-11-1 11:57
+
+其实结尾那里光太郎说想要看见可里理想中的世界和信彦说怀念过去在一起的日子那里气氛渲染还挺好的…………但是一想到这两个情节被嵌进这么个剧本里就觉得滑稽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
