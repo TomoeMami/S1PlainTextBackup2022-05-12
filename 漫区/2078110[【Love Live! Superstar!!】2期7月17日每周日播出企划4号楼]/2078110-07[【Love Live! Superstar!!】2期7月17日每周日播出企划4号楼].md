@@ -315,3 +315,14 @@ LL企划不一直都说声优和角色高度绑定嘛，因为不可抗逆原因
 
 2022-11-1 21:11 上传
 
+
+
+*****
+
+####  lj205  
+##### 9034#       发表于 2022-11-1 23:05
+
+Touch怎么说呢，我觉得这首歌鲤鱼唱的太尖，还有就是烂铁这垃圾混音<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+希望这首歌能有中文版
+
