@@ -14078,3 +14078,18 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 提前吃圣水，用了之后有50秒左右的石化无效，不心疼摇杆硬摇也是能强行解石化的 ...</blockquote>
 原来如此，我都是石化了才开吃
 
+
+
+*****
+
+####  shimotsuki14  
+##### 1281#       发表于 2022-11-1 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58220902&amp;ptid=2098044" target="_blank">redsouris 发表于 2022-11-1 12:14</a>
+村里往右走上船就是去海蛇洞
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">光走过去和船夫说了句话就觉得走不过去了
+
+后来用世界树滴露去的
+
