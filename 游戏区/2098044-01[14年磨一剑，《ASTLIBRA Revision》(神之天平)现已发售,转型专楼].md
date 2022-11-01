@@ -13862,3 +13862,27 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 打到七章了，昨晚回头去刷前几章的材料买剩的装备，第四章海蛇洞窟进不去了，鮟鱇鱼肝和另外一种鱼肉是不是没地方刷了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  linc555  
+##### 1262#       发表于 2022-11-1 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58217236&amp;ptid=2098044" target="_blank">shimotsuki14 发表于 2022-11-1 09:06</a>
+打到七章了，昨晚回头去刷前几章的材料买剩的装备，第四章海蛇洞窟进不去了，鮟鱇鱼肝和另外一种鱼肉是不是 ...</blockquote>
+应该是可以进的，你用传送道具试试
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  shimotsuki14  
+##### 1263#       发表于 2022-11-1 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58217512&amp;ptid=2098044" target="_blank">linc555 发表于 2022-11-1 09:24</a>
+应该是可以进的，你用传送道具试试
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+啊，忘了试这个
+
