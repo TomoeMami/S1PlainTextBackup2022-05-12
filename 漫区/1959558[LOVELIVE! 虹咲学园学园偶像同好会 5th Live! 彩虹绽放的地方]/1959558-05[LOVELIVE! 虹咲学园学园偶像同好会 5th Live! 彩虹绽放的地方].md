@@ -773,3 +773,22 @@ wtf...
 也就是说之后所有雪菜配音都不是她了是么</blockquote>
 到3月底，有存货会用完
 
+
+
+*****
+
+####  D麦林  
+##### 6659#       发表于 2022-11-1 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58228809&amp;ptid=1959558" target="_blank">iuhehc 发表于 2022-11-1 20:09</a>
+也就是说之后所有雪菜配音都不是她了是么</blockquote>
+到明年3月底为止 之后更换配音
+乐曲、手游等处的既存配音不会换音源
+
+*****
+
+####  星踪幻影  
+##### 6660#       发表于 2022-11-1 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">吐槽下，某个垃圾吧真难看
+
