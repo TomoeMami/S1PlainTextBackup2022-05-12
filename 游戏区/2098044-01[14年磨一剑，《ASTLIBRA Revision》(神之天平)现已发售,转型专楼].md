@@ -14150,3 +14150,15 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 原来是去卖道具的地方做，傻逼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FireScallion  
+##### 1287#       发表于 2022-11-1 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58224037&amp;ptid=2098044" target="_blank">mayu5583639 发表于 2022-11-1 15:23</a>
+
+全幸运推图昨晚打到第四章开头被小怪两下秒了，是时候换一种推图加点方式了 ...</blockquote>
+前期没刷好成长，推荐点满血量和防御。后面成长上去了，升级加的那点也没多大用了，攻击魔导拉满，需要敏捷就点些敏捷。不过刷晶体是个累活
+
