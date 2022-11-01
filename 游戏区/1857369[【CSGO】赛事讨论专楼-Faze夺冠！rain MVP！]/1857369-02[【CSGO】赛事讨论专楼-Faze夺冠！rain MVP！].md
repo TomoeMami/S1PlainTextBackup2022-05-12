@@ -185,3 +185,12 @@ c9你怎么也整这种惊天大活
 
 c9打勾八呢连灰狗都输<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dev2ce  
+##### 2651#       发表于 2022-11-1 13:54
+
+之前狂喷pgl，这ESL办比赛还不是垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还大砍刀把下半年比赛砍的就剩几个了
+
