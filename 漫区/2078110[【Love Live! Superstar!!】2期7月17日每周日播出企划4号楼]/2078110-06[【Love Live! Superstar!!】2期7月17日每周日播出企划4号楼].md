@@ -16240,3 +16240,22 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 8948#       发表于 2022-11-1 10:48
+
+中国学霸跳级提前毕业不是很正常吗，经常看到14岁上大学的学神学霸，所以可可入学结丘也可以解释了，没有毕业证只能来急需生源的新学校
+
+*****
+
+####  Kfly  
+##### 8949#       发表于 2022-11-1 10:49
+
+ 本帖最后由 Kfly 于 2022-11-1 10:50 编辑 
+
+鱼的三单C/W好听的啊<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+[鲤鱼三单C/W曲 Touch歌词翻译及平假名标音](https://www.bilibili.com/read/cv19449864)
+

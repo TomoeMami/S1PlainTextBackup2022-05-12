@@ -8973,3 +8973,20 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 看它的名字就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然不是冈古尼尔但也是奥丁的武器
 
+
+
+*****
+
+####  SergeGlenn  
+##### 938#       发表于 2022-11-1 10:42
+
+草我才想起来介绍收藏版的视频，圣莫妮卡晃的好啊，这个只有巨人版才有
+
+<img src="https://img.saraba1st.com/forum/202211/01/104111jl26yy6f2qizup0n.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-11-01-10-39-09-987_tv.danmaku.bili.jpg</strong> (241.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-1 10:41 上传
+
