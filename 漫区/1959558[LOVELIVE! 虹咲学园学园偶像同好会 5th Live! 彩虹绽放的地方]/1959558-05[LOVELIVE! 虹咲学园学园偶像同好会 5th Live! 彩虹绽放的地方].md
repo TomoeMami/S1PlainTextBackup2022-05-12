@@ -880,3 +880,19 @@ wtf...
 
 本来觉得22年下半年什么都好起来了，结果这真是沉重打击啊……
 
+
+
+*****
+
+####  asda  
+##### 6670#       发表于 2022-11-1 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58229984&amp;ptid=1959558" target="_blank">D麦林 发表于 2022-11-1 21:37</a>
+
+所以我在想
+
+新的雪菜人选 是否不会像以前那样起用新人•准新人
+
+而是在业界找一个咖位基本差不多的人气声优 ...</blockquote>
+这种超级烂摊子, 只有但求出线的超级新人才敢接, 不然就是在九线等消失的, 但等了多年的没那个体力玩LL啊
+
