@@ -3053,3 +3053,15 @@ OP展示了这俩人从出生一直玩到成年，大概是认为这样你们就
 
 这种全方位无死角24K纯共趣片子确实挺对共趣们的口味的
 
+
+
+*****
+
+####  藤原忍  
+##### 279#       发表于 2022-11-1 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58226670&amp;ptid=2075178" target="_blank">奥F特 发表于 2022-11-1 17:51</a>
+
+看假吧护的人已经把这片吹成 日本左派作者绝唱了 然后被一堆人喷</blockquote>
+那帖子我朋友给我看了，所以刚刚也回了两句话233
+

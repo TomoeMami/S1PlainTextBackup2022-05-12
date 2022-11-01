@@ -725,3 +725,31 @@ wtf...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6655#       发表于 2022-11-1 19:52
+
+唉
+
+<img src="https://img.saraba1st.com/forum/202211/01/195219x2gtqth4tmf290sr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C1322050-2A01-4A65-A959-6377223E9D2F.jpeg</strong> (120.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-1 19:52 上传
+
+*****
+
+####  星踪幻影  
+##### 6656#       发表于 2022-11-1 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227604&amp;ptid=1959558" target="_blank">沙茶酱 发表于 2022-11-1 18:47</a>
+
+能不能灯继续配雪菜，然后让雪菜转型像侑那样的不要表演的角色，其他角色加入 ...</blockquote>
+换人已经是损失最低的方案了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
