@@ -55,3 +55,13 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真无氪表示你说的这些都太遥远了
 抽卡黑点，没有同卡可以突破的情况下，凑个120级顶天了，什么卡资源，不存在的，资源都多的用不完，无卡可养，每天上线收完菜我都懒得往角色那栏点，究极摆烂
 
+
+
+*****
+
+####  osore  
+##### 102#       发表于 2022-11-1 08:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是bug送了几百小时的红石无课120都拉不满的
+所以真的没活动吗，9-28感觉能卡我两星期
+

@@ -16101,3 +16101,35 @@ vol.18タイムテーブル公开👏👏
 
 五厕这个可可的表情真传神 6cƠᴗƠ∂
 
+
+
+*****
+
+####  Kfly  
+##### 8936#       发表于 2022-11-1 08:24
+
+ 本帖最后由 Kfly 于 2022-11-1 08:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58215851&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-11-1 02:46</a>
+说起来，昨天看到了个挺……那啥的分析。
+就是说，从一期第5集小千手机上的日程表能看出来当时是2021年，这 ...</blockquote>
+这些和现实接轨的设定不少都不能细想，或者说没必要帮它们想那么多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+其实剧情本身足够优秀的话，这些观众都大可以忽略掉的，像“可可做的王冠怎么这么轻”这件事，也就当时吐槽下，之后也没见到太多对王冠物理性质的分析啥的啊。
+现在就是剧情感动不起来，观众才会过于纠结这些相对细枝末节的地方。比如另一个有人提到的点：过年的时候堇身为神社巫女应该去帮自己家干活（缪时期希还有伙伴来帮忙），结果明显这个设定也为了剧情忽略掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+（不过薇恩高中生这件事实在有种事后找补的感觉，第九集说薇恩身为“初中生”可以参加，让人觉得前三代全都是高中生的设定废了，第十一集又用文字的方式隐晦地解释薇恩已经是高中生了，说明学院偶像还是有高中生的前提条件，你哪怕倔强一点说初中生就是可以参赛呢？事后找补的味道太重。而且你把观众忽悠了两周，是压根没考虑单集评价吧？（不过我觉得就算第九集就把这个设定拿出来也还是要被喷，“snp轻易退场”这事本身就很有问题，几乎可以说是把这个唯心故事的内核给否定掉了，反正我看的时候挺不是滋味<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">snp还是吃了先手的亏，但凡薇恩提前嘴臭大赛几句，薇恩连预选都进不了）
+
+*****
+
+####  ruffian  
+##### 8937#       发表于 2022-11-1 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58216653&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-11-01 08:24:09</a>
+这些和现实接轨的设定不少都不能细想，或者说没必要帮它们想那么多）</blockquote>
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aoaoaodedede  
+##### 8938#       发表于 2022-11-1 08:31
+
+这种细枝末节就没必要揪了，可可这个角色它们都没用心塑造了，这种细节揪出来也没什么好说的
+
