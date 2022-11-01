@@ -13970,3 +13970,12 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  mayu5583639  
+##### 1271#       发表于 2022-11-1 15:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">全幸运推图昨晚打到第四章开头被小怪两下秒了，是时候换一种推图加点方式了
+

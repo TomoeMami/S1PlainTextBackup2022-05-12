@@ -16638,3 +16638,27 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">海选估计就再摇个铃原或者之前落选再战的吧，要搁我刚15、6岁有那个能力又想加入LL的话我肯定等下一波企划争个C，可不乐意第三年加入来给人当个只能喝点汤的垫子
 
+
+
+*****
+
+####  saya1892  
+##### 8982#       发表于 2022-11-1 15:27
+
+ 本帖最后由 saya1892 于 2022-11-1 15:28 编辑 
+
+虽然LL史上因为喜欢学园偶像而来当学园偶像的其实不多，但裂啦也真是够裂啦
+
+除了芽衣别人真就一点兴趣一点了解都没有
+
+我现在相信千当上部长是为了留学的时候不让其他人牵制香帝了
+
+香帝自己说的也是我不在你们也要继续裂啦呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 8983#       发表于 2022-11-1 15:29
+
+嗨呀，企划那边各个利益方虎视眈眈分这ip的肉吃，一不小心就表现到动画上了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
