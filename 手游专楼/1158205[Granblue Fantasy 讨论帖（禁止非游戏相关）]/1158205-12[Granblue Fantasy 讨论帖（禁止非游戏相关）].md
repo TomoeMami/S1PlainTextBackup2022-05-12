@@ -208,3 +208,15 @@
 
 现在对比风方的撑血勺子和风龙刀，风老王目前已经有的优质撑血武器+少有的增伤暴击2，即便带着风龙刀负重前行应该也能跟风方拉开差距了
 
+
+
+*****
+
+####  shinitakute  
+##### 17155#       发表于 2022-11-1 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58223085&amp;ptid=1158205" target="_blank">areklose 发表于 2022-11-1 14:25</a>
+3层被动，如果放在主召唤开局3层。主角50独立攻击，50TA，必DA，20上限。主动召唤50降防，受伤害增加10W ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">什么鬼效果
+不枉我黑卡换了
+
