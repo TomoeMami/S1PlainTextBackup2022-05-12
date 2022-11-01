@@ -226,3 +226,12 @@ c9和小蜜蜂总会搞点大的，习惯了。上次不是液体抬了一手，
 
 C9这队伍是真的没指望，乐、若、霍总有1-2个，是拉的没边的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我都习惯了
 
+
+
+*****
+
+####  Suny08  
+##### 2655#       发表于 2022-11-1 17:02
+
+现在1-1组4个强队小蜜蜂vp黑豹og ，0-2还有个c9，大概率要互相打生死局了
+
