@@ -928,3 +928,17 @@ wtf...
 
 下次编号把楠木灯找来，和加人一样整个入部仪式——也挺傻的
 
+
+
+*****
+
+####  rosental  
+##### 6674#       发表于 2022-11-1 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58231094&amp;ptid=1959558" target="_blank">光宗薫 发表于 2022-11-1 22:38</a>
+
+不行最后整个托孤仪式吧，灯露亲手把雪菜交给新人，逼着粉丝以诸葛亮的心态支持新人工作
+
+—— 来自 HUAWEI ...</blockquote>
+这就很像邦的R团lisa交接了（嗯那个也是5th）
+
