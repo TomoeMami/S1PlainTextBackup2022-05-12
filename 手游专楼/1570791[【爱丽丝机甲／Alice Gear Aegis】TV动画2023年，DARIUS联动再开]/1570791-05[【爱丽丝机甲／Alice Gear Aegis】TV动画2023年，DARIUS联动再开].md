@@ -320,3 +320,12 @@ pc版听了一次没听爽，换手机版登录进门怎么不说了.......
 
 第一次切人就有。但，貌似只有FA有<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  madcow  
+##### 7422#       发表于 2022-11-1 19:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">睦海声优这是社恐？
+
