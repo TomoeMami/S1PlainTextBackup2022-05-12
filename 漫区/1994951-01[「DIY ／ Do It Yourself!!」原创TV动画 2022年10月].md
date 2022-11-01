@@ -3658,3 +3658,28 @@ Do It Your Radio!! 第 2 回里有提到 11 月 16 日发售的「Do It Yourself
 
 其实落后时代的还有布丁和job子对app的看法，她们似乎完全不在意app本身叫什么，是哪个公司做的，在意的反而是在哪可以下载。完全暴露脚本自己也没搞懂手机应用和商店的关系是啥样的，让这俩科技潮流人的人设看着有点尬……
 
+
+
+*****
+
+####  千恋万花  
+##### 291#       发表于 2022-11-1 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58223151&amp;ptid=1994951" target="_blank">pzk 发表于 2022-11-1 14:29</a>
+
+换个角度看，把不讨喜天才萝莉当成雌小鬼，是不是突然就赶潮流了（
+
+其实落后时代的还有布丁和job ...</blockquote>
+Job 子倒是提到过这是些还没发布的 APP，大概是她自己 / 她老爸公司开发的还在测试中的那种吧
+
+*****
+
+####  风速前进mo  
+##### 292#       发表于 2022-11-1 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58223151&amp;ptid=1994951" target="_blank">pzk 发表于 2022-11-1 14:29</a>
+换个角度看，把不讨喜天才萝莉当成雌小鬼，是不是突然就赶潮流了（
+
+其实落后时代的还有布丁和job ...</blockquote>
+我觉得还好吧，这app不是job子公司内部开发的先行版吗？外面下不到的。而且一般人看到好用的软件也不会太去注意开发商什么的
+
