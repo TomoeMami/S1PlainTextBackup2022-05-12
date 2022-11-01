@@ -3618,3 +3618,14 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 查了查，今年新增的常驻5星只有高达，去年起码有两只，太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3324#       发表于 2022-11-1 22:48
+
+这不二点七要开了嘛，又是一堆新从者入池<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+话说去年是谁，太公和手办娘？
+
