@@ -349,3 +349,17 @@ Liyuu【TRUE FOOL LOVE】弦乐四重奏cover 夫妇以上，恋人未满 OP
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  player3960  
+##### 9037#       发表于 2022-11-2 07:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58234111&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-11-02 03:10:24</a>
+还记得樱花大战的ova有一话就是神奇堇的隐退公演吧。其实雪菜也可以照搬？
+
+----发送自  ...</blockquote>神崎堇引退那可真是高规格待遇，专门出个ova动画，现实中也同步办了引退歌谣秀，只能说广井王子那帮人，从主创到声优是真的热爱，情怀和赚钱两不误，还让粉丝很感动，不过后来富泽美智惠又回归了。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
