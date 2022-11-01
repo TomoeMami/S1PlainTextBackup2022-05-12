@@ -13979,3 +13979,15 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">全幸运推图昨晚打到第四章开头被小怪两下秒了，是时候换一种推图加点方式了
 
+
+
+*****
+
+####  adw667  
+##### 1272#       发表于 2022-11-1 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58224037&amp;ptid=2098044" target="_blank">mayu5583639 发表于 2022-11-1 15:23</a>
+
+全幸运推图昨晚打到第四章开头被小怪两下秒了，是时候换一种推图加点方式了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">全幸运会打怪必掉素材吗
+

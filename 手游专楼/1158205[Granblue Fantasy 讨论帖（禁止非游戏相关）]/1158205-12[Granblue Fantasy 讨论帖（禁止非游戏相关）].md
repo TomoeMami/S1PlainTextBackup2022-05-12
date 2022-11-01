@@ -181,3 +181,17 @@
 
 大概丢6钢能组出来1枪1刀2剑2短的配置吧 没啥额外投入 有坚守应该还是会舒服点
 
+
+
+*****
+
+####  phoenixxj  
+##### 17153#       发表于 2022-11-1 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58225270&amp;ptid=1158205" target="_blank">windlikeman 发表于 2022-11-1 16:35</a>
+
+我水团就是变身坚守老王的 实际上玩起来还是会死角色
+
+而且我风方只有一勺子 日常玩起来就很不舒服了 总感 ...</blockquote>
+6钢这样感觉可以了。肯定比一打蛋器风方舒服。
+
