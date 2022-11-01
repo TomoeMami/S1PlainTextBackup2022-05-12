@@ -997,3 +997,34 @@ boss三条血，怎么也会被破防一次，维持不了血线...心累
 
 活动兑换过于弱智，勾选框太小很容易误触然后弹窗，而且勾选之后想全兑换还得一个个拉满<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">体验吊差
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 83#         楼主| 发表于 2022-11-2 00:39
+
+<img src="https://img.saraba1st.com/forum/202211/02/003632v14iqxqg8iiigqb8.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221102003544.png</strong> (206.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-2 00:36 上传
+
+VH2星了，被破防了一次红血奶不回来了
+
+后面再调整装备试试能不能混到3星
+
+<img src="https://img.saraba1st.com/forum/202211/02/003637x17mdmv6daudsd6a.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221102003611.png</strong> (232.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-2 00:36 上传
+
+阵容就是平时用的练度最高的队换上活动SSR
+
+所以练活动SSR是真的有用，兄弟们冲啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

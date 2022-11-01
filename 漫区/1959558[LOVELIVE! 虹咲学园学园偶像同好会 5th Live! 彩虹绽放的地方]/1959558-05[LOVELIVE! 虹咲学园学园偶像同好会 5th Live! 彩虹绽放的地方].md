@@ -964,3 +964,12 @@ wtf...
 初代的长谷优里奈那是被开除吧……后面还更是各种大嘴巴。</blockquote>
 嗯，但有交接仪式<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sxcluck  
+##### 6677#       发表于 2022-11-2 00:31
+
+love live和偶像大师不一样，真的不适合换cv，官方做个人吧，把cv和角色绑定过深的是你，现在cv出问题又不想放弃人气角色的还是你<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">
+

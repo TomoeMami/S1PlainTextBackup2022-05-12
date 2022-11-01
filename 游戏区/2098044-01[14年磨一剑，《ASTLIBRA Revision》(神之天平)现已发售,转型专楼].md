@@ -14180,3 +14180,16 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 现在到第八章出发前，传送回去打伊里西恩那边的神，只能吃两下攻击，在不断死亡重开的过程中逐步发现大雨有挡板可以挡和其他几个技能的应对方式，在食物和耐性的较量下打了1个多小时打过了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">，这游戏真好玩。
 
+
+
+*****
+
+####  linc555  
+##### 1290#       发表于 2022-11-2 00:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58232910&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-2 00:30</a>
+现在到第八章出发前，传送回去打伊里西恩那边的神，只能吃两下攻击，在不断死亡重开的过程中逐步发现大雨有 ...</blockquote>
+打神其实开狂暴会更好打 反正也挨不了两下，还不如输出高点几下砍死
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
