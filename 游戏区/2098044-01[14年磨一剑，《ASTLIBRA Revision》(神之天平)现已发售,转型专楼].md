@@ -13907,3 +13907,19 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 打到七章了，昨晚回头去刷前几章的材料买剩的装备，第四章海蛇洞窟进不去了，鮟鱇鱼肝和另外一种鱼肉是不是 ...</blockquote>
 你走到船那不就进去了...
 
+
+
+*****
+
+####  llysander  
+##### 1266#       发表于 2022-11-1 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58049641&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-10-23 08:33</a>
+
+刚打完第五章，有些剧情上的疑问
+
+第五章主角将历史改变后，第四章的剧情相当于没发生过，那黑的病在第五章 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 重新想了下，救小黑的药草是天平把主角塞回去的次元锚，天平逻辑脚本正常的话应该不允许嵌套把那个关键跟自己的相遇回溯掉，药草相关必须发生。
+
+结果上就是单纯白票了妹子两晚上<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
