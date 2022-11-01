@@ -942,3 +942,25 @@ wtf...
 —— 来自 HUAWEI ...</blockquote>
 这就很像邦的R团lisa交接了（嗯那个也是5th）
 
+
+
+*****
+
+####  LeonsCat  
+##### 6675#       发表于 2022-11-1 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58231315&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-1 22:52</a>
+
+其实偶像大师的雪步就是这&amp;# ...</blockquote>
+初代的长谷优里奈那是被开除吧……后面还更是各种大嘴巴。
+
+*****
+
+####  星踪幻影  
+##### 6676#       发表于 2022-11-1 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58231854&amp;ptid=1959558" target="_blank">LeonsCat 发表于 2022-11-1 23:24</a>
+
+初代的长谷优里奈那是被开除吧……后面还更是各种大嘴巴。</blockquote>
+嗯，但有交接仪式<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

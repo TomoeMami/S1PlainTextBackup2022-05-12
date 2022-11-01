@@ -326,3 +326,15 @@ Touch怎么说呢，我觉得这首歌鲤鱼唱的太尖，还有就是烂铁这
 
 希望这首歌能有中文版
 
+
+
+*****
+
+####  starring  
+##### 9035#       发表于 2022-11-1 23:23
+
+Liyuu【TRUE FOOL LOVE】弦乐四重奏cover 夫妇以上，恋人未满 OP
+[https://www.bilibili.com/video/B ... 57abfcd502f2db10b76](https://www.bilibili.com/video/BV1TV4y137zf/?vd_source=3e77e8355e8d757abfcd502f2db10b76)
+
+推荐一个，很好听
+
