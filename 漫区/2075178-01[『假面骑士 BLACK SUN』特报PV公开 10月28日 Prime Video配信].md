@@ -2998,3 +2998,12 @@ OP展示了这俩人从出生一直玩到成年，大概是认为这样你们就
 
 整部剧变成下九流ZZ闹剧     女主最后重生之我是重房信子………………<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eyeego  
+##### 273#       发表于 2022-11-1 12:55
+
+说起来这作帝王石的设定不是塞进肚子里去了吗 后面怎么排出体外的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
