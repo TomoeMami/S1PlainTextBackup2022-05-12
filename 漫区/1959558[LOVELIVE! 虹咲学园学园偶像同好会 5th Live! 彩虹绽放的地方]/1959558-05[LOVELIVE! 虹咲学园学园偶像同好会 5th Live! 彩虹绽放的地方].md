@@ -381,3 +381,86 @@ wtf...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saverok  
+##### 6619#       发表于 2022-11-1 18:00
+
+我的灯<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这毛病不光是影响跳舞了啊
+
+*****
+
+####  馬斯特壺  
+##### 6620#       发表于 2022-11-1 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rainknine  
+##### 6621#       发表于 2022-11-1 18:00
+
+还以为5th live会是步上正轨的信号<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Vacuolar  
+##### 6622#       发表于 2022-11-1 18:00
+
+愿未来平安
+
+*****
+
+####  abckuil678  
+##### 6623#       发表于 2022-11-1 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">再见了，灯灯的优木雪菜
+
+*****
+
+####  梶原ひかり  
+##### 6624#       发表于 2022-11-1 18:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  NZ-333  
+##### 6625#       发表于 2022-11-1 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 6626#       发表于 2022-11-1 18:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saverok  
+##### 6627#       发表于 2022-11-1 18:05
+
+此外，若是因为一些其他原因导致出现了轻度外伤的话也有可能引发此病，有少数患者会出现智力低下的情况，而大部分患者患上此病以后，都会在20岁前因为出血而结束生命，目前在临床上所有关于此病的病例不超过200例。
+
+这也太<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星踪幻影  
+##### 6628#       发表于 2022-11-1 18:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">虽然有心理准备。。。
+
+*****
+
+####  虹虹人lanzhu  
+##### 6629#       发表于 2022-11-1 18:09
+
+最不愿意看到的事发生了啊，live不参加都好，这换人太难受了。没人能替代的了灯的雪菜啊。
+

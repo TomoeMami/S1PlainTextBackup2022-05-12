@@ -118,3 +118,48 @@
 
 确实是把角色退了更能抚慰粉丝一点，但我对LL这个企划不抱任何期望，明年大概率是招个新人上去抡，大家别别扭扭看几个月，到了live上一起哭一场，粉丝心里不管有多少疙瘩都得被迫和解，资本家无非多挨两句骂，人家不在乎……
 
+
+
+*****
+
+####  沙茶酱  
+##### 9015#       发表于 2022-11-1 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58226671&amp;ptid=2078110" target="_blank">starring 发表于 2022-11-1 17:51</a>
+身体健康这种不可抗逆的原因，只能说理解。但是换CV这种事，只能说运营还想用雪菜这个角色赚钱不考虑其它方 ...</blockquote>
+让角色跟着声优一起毕业感觉不好吧，这不可行吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 9016#       发表于 2022-11-1 18:05
+
+Bd2 9000，我觉得是个好消息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9017#       发表于 2022-11-1 18:08
+
+群里一片哀嚎 毕竟国内很多粉是一次她的live现场都没看过<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 9018#       发表于 2022-11-1 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58226890&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-11-1 18:02</a>
+让角色跟着声优一起毕业感觉不好吧，这不可行吧
+
+—— 来自 S1Fun</blockquote>
+LL企划不一直都说声优和角色高度绑定嘛，因为不可抗逆原因让角色和声优一起毕业也是一种做法，还多一份人情味少一份骂名，只是赚钱工具也少一份（这里是星楼不多说了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 9019#       发表于 2022-11-1 18:11
+
+身体好比什么都重要。话说她明年一月的拼盘咋办？那场就4个演出嘉宾，一个人也要半小时至少吧
+
