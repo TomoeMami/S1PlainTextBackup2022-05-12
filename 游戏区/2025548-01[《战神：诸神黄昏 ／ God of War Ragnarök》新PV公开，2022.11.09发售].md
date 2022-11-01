@@ -8964,3 +8964,12 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  医生狼多  
+##### 937#       发表于 2022-11-1 10:36
+
+看它的名字就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然不是冈古尼尔但也是奥丁的武器
+

@@ -977,3 +977,14 @@ boss战太难了 打不过 求个攻略</blockquote>
 是能打过16k了，但是没法保证半血，拿不到三星，无法扫荡...
 boss三条血，怎么也会被破防一次，维持不了血线...心累
 
+
+
+*****
+
+####  darksunshine  
+##### 81#       发表于 2022-11-1 10:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">主力队伍是一队wave的人看到4个风boss眼泪直接流下来……
+
+晚上加紧练了3个SSR暗和一个SSR光的队伍，堆到40级过了hard，叠完buff活动卡一个必杀可以打8w多，吓人。
+

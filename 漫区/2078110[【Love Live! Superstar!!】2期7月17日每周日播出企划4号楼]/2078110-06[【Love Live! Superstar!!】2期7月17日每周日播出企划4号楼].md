@@ -16217,3 +16217,26 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 怀揣着高远志向、有理想有追求又专注比赛的人输给了一个从始至终都没有正视大赛、甚至没有成长的人，这还是发生在一个唯心的作品里……制作组黑角色的能力我一直是很认可的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 以及这真的适合给小孩子看吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 8946#       发表于 2022-11-1 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58218101&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-01 09:57:59</a>
+让可可比正常小学入学年龄提早一年并有一年跳级，中日年级差问题就解决了，反正我学霸，咋滴嘛。 ...</blockquote>这个话题还真是讨论vn年龄时被连带出来的，这么一搞可可和vn的年龄都不清不楚的了。可可本来可能是2005年7月出生的，2020年6月初中毕业，不留学的话正好15岁上高中18岁上大学。但是整这么一出之后，天王老子来了可可也得2021年才毕业，好家伙直接小了一岁老二变老幺了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+他们在纠结vn是不是只比香音小一岁，按这说法可可和vn同龄了，妈耶高三的和高一的同岁，写剧本的你没把自己绕晕吗？就是说非要提那学制差干啥啊，硬气点就初中生破例参加ll了怎么着吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 8947#       发表于 2022-11-1 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58218851&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-11-01 10:35:50</a>
+这个话题还真是讨论vn年龄时被连带出来的，这么一搞可可和vn的年龄都不清不楚的了。可可本来可能是2005年7 ...</blockquote>虽然我不知道他们为啥会纠结这个，编剧根本没多想吧？就说这逼动画顾头不顾腚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
