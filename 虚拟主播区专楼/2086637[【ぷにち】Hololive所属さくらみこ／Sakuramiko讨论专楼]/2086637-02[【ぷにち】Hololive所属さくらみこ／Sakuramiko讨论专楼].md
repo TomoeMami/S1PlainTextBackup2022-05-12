@@ -12950,3 +12950,22 @@ miko想来真的，兔子不愿意
 
 今晚这黄组练习时间跟官方番组撞的感觉就非常是故意安排的
 
+
+
+*****
+
+####  holoan  
+##### 2748#         楼主| 发表于 2022-11-1 17:12
+
+<img src="https://img.saraba1st.com/forum/202211/01/171214sbzvztwyo1v0vuaa.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (103.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-1 17:12 上传
+
+这次是纯VR了
+
+我的app还是进不去
+

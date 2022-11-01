@@ -3597,3 +3597,15 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 笑 都可以笑  下次直接换成肃正</blockquote>
 这么不想让人过 干脆直接伤害耐性100% <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3322#       发表于 2022-11-1 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58224743&amp;ptid=2084912" target="_blank">千里快哉风 发表于 2022-11-1 16:06</a>
+
+这么不想让人过 干脆直接伤害耐性100%</blockquote>
+诅咒队：请，好好的看着我<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

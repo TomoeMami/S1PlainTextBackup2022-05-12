@@ -13991,3 +13991,33 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 全幸运推图昨晚打到第四章开头被小怪两下秒了，是时候换一种推图加点方式了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">全幸运会打怪必掉素材吗
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 1273#       发表于 2022-11-1 17:13
+
+问问漏油一周目最终boss前推荐的刷晶体地点，门口的机甲boss群好是好就是缺了绿色和白色的晶体
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  A1LI  
+##### 1274#       发表于 2022-11-1 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58225469&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-1 16:45</a>
+
+全幸运会打怪必掉素材吗</blockquote>
+没必要，后期有嘉隆技能提升素材掉率。
+
+*****
+
+####  dookiee  
+##### 1275#       发表于 2022-11-1 17:16
+
+宰相的弟弟是谁，剧情里有没有提到
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
