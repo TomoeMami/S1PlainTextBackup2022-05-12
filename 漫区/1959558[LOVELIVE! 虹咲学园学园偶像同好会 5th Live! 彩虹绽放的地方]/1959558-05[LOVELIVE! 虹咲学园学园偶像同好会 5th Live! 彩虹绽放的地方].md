@@ -534,3 +534,34 @@ wtf...
 
 说是关节型，自然是汇诊之后排除了其它类型啊
 
+
+
+*****
+
+####  虹虹人lanzhu  
+##### 6636#       发表于 2022-11-1 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227050&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-1 18:12</a>
+
+换人虽然非常难受，但封存&amp;# ...</blockquote>
+这个新人要去顶替灯压力也大的狠啊
+
+*****
+
+####  仓颉北拳  
+##### 6637#       发表于 2022-11-1 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  星踪幻影  
+##### 6638#       发表于 2022-11-1 18:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227191&amp;ptid=1959558" target="_blank">虹虹人lanzhu 发表于 2022-11-1 18:21</a>
+
+这个新人要去顶替灯压力也大的狠啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">万南旗下企划也不是处理过换人事件，能怎么办总比角色消失疙瘩小
+

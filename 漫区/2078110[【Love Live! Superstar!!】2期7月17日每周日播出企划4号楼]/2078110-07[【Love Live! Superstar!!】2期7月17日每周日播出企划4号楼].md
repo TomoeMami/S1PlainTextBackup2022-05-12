@@ -197,3 +197,16 @@ LL企划不一直都说声优和角色高度绑定嘛，因为不可抗逆原因
 
 貌似3卷场地还可以，看看这五六话的逆天剧情能否抗衡无脑抽选党了，星是总能给点新乐子
 
+
+
+*****
+
+####  player3960  
+##### 9024#       发表于 2022-11-1 18:24
+
+突发情况，但不想对隔壁的事多做评价，祝当事人身体健康吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+来楼里只是想说，下期裂垃圾有鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
