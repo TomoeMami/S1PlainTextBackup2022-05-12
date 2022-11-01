@@ -85,3 +85,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">吗呀，这个出包片场的为什么不穿内裤
 
+
+
+*****
+
+####  pe_nimnul.a  
+##### 105#       发表于 2022-11-1 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58217187&amp;ptid=2068560" target="_blank">leafS 发表于 2022-11-1 09:03</a>
+红石头是真能卡死人，运气好把俩强力卡升SR+了，现在还是100级，就是凑不出1500的红石头
+
+另外问问是 ...</blockquote>
+链接角色可以超过等级上限，所以是拉上限最高而且属性尽量不同的五个，现在大家都是红石卡140左右，不够狗的话后期大概率都是拉五个2星卡极限拉到160链接其他角色混绝大部分日子，时空那硬币量，一队lr简直梦里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
