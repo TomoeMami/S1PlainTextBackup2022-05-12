@@ -14351,3 +14351,14 @@ ex boss给的装备精通后给石头，石头合成变成变石，变石在面�
 请教一下第六章雪山的宝物图鉴，倒数第二个要怎么搞？骑枪，拉达曼迪斯盾，塔纳托斯和雷神之锤都有了，商店 ...</blockquote>
 就是花戒，宝箱图纸装备，幸运拉满刷宝箱去吧
 
+
+
+*****
+
+####  Retro_Gamer  
+##### 1299#       发表于 2022-11-2 06:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57758689&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-10-4 19:25</a>
+本作是个人开发者KEIZO历时14年开发的免费同人游戏ASTLIBRA的商业化重制版，重制版相较原版，支持宽屏与高 ...</blockquote>
+登陆ns吗
+
