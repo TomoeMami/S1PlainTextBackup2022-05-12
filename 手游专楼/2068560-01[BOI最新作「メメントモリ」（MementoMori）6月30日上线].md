@@ -65,3 +65,14 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是bug送了几百小时的红石无课120都拉不满的
 所以真的没活动吗，9-28感觉能卡我两星期
 
+
+
+*****
+
+####  leafS  
+##### 103#       发表于 2022-11-1 09:03
+
+红石头是真能卡死人，运气好把俩强力卡升SR+了，现在还是100级，就是凑不出1500的红石头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+另外问问是不是只要随便养5个角色等级然后链接别的角色就够了，不需要像别的游戏都养吧？
+

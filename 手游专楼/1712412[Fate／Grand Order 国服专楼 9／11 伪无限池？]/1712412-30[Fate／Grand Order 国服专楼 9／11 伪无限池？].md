@@ -456,3 +456,14 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">呼符全是绿方块 GG
 
+
+
+*****
+
+####  體育老師  
+##### 43680#       发表于 2022-11-1 09:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">金圈杀阶！
+
+周照<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
