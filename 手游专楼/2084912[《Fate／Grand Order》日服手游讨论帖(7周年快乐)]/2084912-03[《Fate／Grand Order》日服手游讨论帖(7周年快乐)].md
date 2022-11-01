@@ -3609,3 +3609,12 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 这么不想让人过 干脆直接伤害耐性100%</blockquote>
 诅咒队：请，好好的看着我<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 3323#       发表于 2022-11-1 17:34
+
+查了查，今年新增的常驻5星只有高达，去年起码有两只，太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
