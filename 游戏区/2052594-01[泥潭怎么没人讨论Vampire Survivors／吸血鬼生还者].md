@@ -4664,3 +4664,14 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 
 一些烂武器还是很难用，部分塔罗牌还是比较凑数，找不到合适的方式挖掘潜力，等更新再玩
 
+
+
+*****
+
+####  wcorvo  
+##### 429#       发表于 2022-11-1 23:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天终于全成就叻
+
+看了下居然玩了100多小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（虽然有4个小时左右是挂金币）
+
