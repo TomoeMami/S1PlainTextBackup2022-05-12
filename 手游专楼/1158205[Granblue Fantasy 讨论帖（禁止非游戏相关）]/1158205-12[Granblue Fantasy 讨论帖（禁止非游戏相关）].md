@@ -107,3 +107,17 @@
 
 现在100级正在刷大天司球，满凸到终突会提升多少啊
 
+
+
+*****
+
+####  areklose  
+##### 17147#       发表于 2022-11-1 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58222454&amp;ptid=1158205" target="_blank">shinitakute 发表于 2022-11-1 13:47</a>
+
+巴尔泽布这个召唤具体是什么效果，没终突看不到，为什么都说这个召唤太强
+
+现在100级正在刷大天司球 ...</blockquote>
+3层被动，如果放在主召唤开局3层。主角50独立攻击，50TA，必DA，20上限。主动召唤50降防，受伤害增加10W，等于2把巫妖斧得1技能。然后还驱散3个BUFF。还有接近600W+的伤害
+

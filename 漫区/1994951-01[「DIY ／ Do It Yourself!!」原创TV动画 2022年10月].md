@@ -3644,3 +3644,17 @@ Do It Your Radio!! 第 2 回里有提到 11 月 16 日发售的「Do It Yourself
 
 如果是十年前的动画，女主可能就只是所谓的冒失娘…但放在现在却会让人联想到ADHD，看来是时代变了orz
 
+
+
+*****
+
+####  pzk  
+##### 290#       发表于 2022-11-1 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58222564&amp;ptid=1994951" target="_blank">韩子 发表于 2022-11-1 13:54</a>
+
+为了作画努力看到第四话，画面色彩作画真的可爱，视觉享受，还有我最爱的男声佐仓，但看到第四话真的很煎熬 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">换个角度看，把不讨喜天才萝莉当成雌小鬼，是不是突然就赶潮流了（
+
+其实落后时代的还有布丁和job子对app的看法，她们似乎完全不在意app本身叫什么，是哪个公司做的，在意的反而是在哪可以下载。完全暴露脚本自己也没搞懂手机应用和商店的关系是啥样的，让这俩科技潮流人的人设看着有点尬……
+
