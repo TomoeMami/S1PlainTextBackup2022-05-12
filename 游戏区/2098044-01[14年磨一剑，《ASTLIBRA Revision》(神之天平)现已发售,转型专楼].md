@@ -14193,3 +14193,37 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 —— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  管住键政的手  
+##### 1291#       发表于 2022-11-2 01:05
+
+终于白金了，地狱难度68小时，新章这个刷爱心真的非常体贴，没刷爱心之前打普通结局最终boss两下打死我，我磨了20分钟吃了30个药才过，看完普通结局重刷完爱心后已经是99级一身+40，格挡条长达半个屏幕，除了激光以外的所有攻击都是给我挠痒，基本等于用脚吊打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  管住键政的手  
+##### 1292#       发表于 2022-11-2 01:09
+
+ 本帖最后由 管住键政的手 于 2022-11-2 01:11 编辑 
+
+发两个自用天平，战斗装应该该有的都有了，除了最没用的麻痹抗性以外抗性拉满，精力回复一个空抱大概能回5-600；打钱装反正一趟深渊3能刷四万也差不多，就没装小的。
+
+<img src="https://img.saraba1st.com/forum/202211/02/010940s6z8c2waxb02788z.png" referrerpolicy="no-referrer">
+
+<strong>天平1.png</strong> (120.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-2 01:09 上传
+
+<img src="https://img.saraba1st.com/forum/202211/02/010944wftrnowpw539itt2.png" referrerpolicy="no-referrer">
+
+<strong>天平2.png</strong> (113.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-2 01:09 上传
+
