@@ -16394,3 +16394,30 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 支离破碎前言不搭后语是这样的啦
 要想理解，建议回到三岁这一目标年龄段完全尽兴感受动画气氛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 8959#       发表于 2022-11-1 13:07
+
+我觉得是cp推和堇推合理化自己推奇怪行为的找补而已，顺便又踩一脚，这跟国内一些人天天哔的可可一开始就这样有啥区别，高低情商说法罢了，我不信，真这样有种也反对大香几次，我就认了。而且真是如此那一些人说的拉拉没有坏孩子就是纯寄吧笑话了，请问给人安天邪鬼做底层是什么好孩子？
+
+*****
+
+####  nufawneafg  
+##### 8960#       发表于 2022-11-1 13:09
+
+还好吧，谁接受这一套谁买账就行了，都是deadgame了这种程度的踩算什么呢
+
+*****
+
+####  darkendless  
+##### 8961#       发表于 2022-11-1 13:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58221497&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-11-1 12:50</a>
+小小一个挂件，竟酿成二十一集（截止S2E9）惨剧
+你说这些谁懂呀.jpg</blockquote>
+确实是一开始就决定好的路线，哪怕1期引起了争议也一点都没改，2是还是按照原定的路线发展。
+感觉还是某些人更离谱一点，愣把唱反调恶意夸张到加害行为，已经不是语文水平差能解释的了，头脑简单心胸狭隘罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

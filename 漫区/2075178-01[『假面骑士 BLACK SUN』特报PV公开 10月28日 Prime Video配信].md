@@ -3007,3 +3007,15 @@ OP展示了这俩人从出生一直玩到成年，大概是认为这样你们就
 
 说起来这作帝王石的设定不是塞进肚子里去了吗 后面怎么排出体外的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wingzerocos  
+##### 274#       发表于 2022-11-1 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58221574&amp;ptid=2075178" target="_blank">eyeego 发表于 2022-11-1 12:55</a>
+说起来这作帝王石的设定不是塞进肚子里去了吗 后面怎么排出体外的？ ...</blockquote>
+感觉是先在体内埋了变身器，再埋石头进变身器。
+不知道为啥他俩（加螳螂）能变身器外现，不过既然腰带出来了那打开应该就能取石头出来。取出来后丝毫不影响能力也是很神奇。
+
