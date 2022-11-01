@@ -16499,3 +16499,15 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 
 三单cw真不错
 
+
+
+*****
+
+####  ruffian  
+##### 8970#       发表于 2022-11-1 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58222213&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-11-01 13:30:59</a>
+不信+1，这期可堇争议大的根源之一就是明明一期已经和解了，为什么二期又回档了？这不是天邪鬼能解释的。而 ...</blockquote>而且一个天邪鬼帽子扣过来，pay放映会上那句“我很害怕堇被当成坏孩子，堇真的不是坏孩子”就更让我唏嘘了……并没有针对别的角色的意思，就是想替我推问句凭啥？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
