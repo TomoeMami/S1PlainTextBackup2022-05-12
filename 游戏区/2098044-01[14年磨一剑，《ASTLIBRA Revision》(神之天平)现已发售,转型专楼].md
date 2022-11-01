@@ -14093,3 +14093,30 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 后来用世界树滴露去的
 
+
+
+*****
+
+####  十字骷髅高达  
+##### 1282#       发表于 2022-11-1 19:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">谁知道魔王最后阶段从天而降光球怎么躲
+
+*****
+
+####  格林卡罗尔  
+##### 1283#       发表于 2022-11-1 19:20
+
+石化摇杆推最大摇两圈就解了
+
+*****
+
+####  redsouris  
+##### 1284#       发表于 2022-11-1 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227492&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-1 18:39</a>
+冥界的那个龙神怎么打阿，一发石化凝视就把我格挡打断，然后扭曲我就直接死了 ...</blockquote>
+实在不行可以先推主线，后期龙神随便秒了，啥也放不出来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

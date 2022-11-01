@@ -219,3 +219,20 @@ LL企划不一直都说声优和角色高度绑定嘛，因为不可抗逆原因
 
 下期有鱼和青山，有可恋，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 9026#       发表于 2022-11-1 19:12
+
+アニソンレーベルLantisによる新しいライブイベント“Lantis Girls Fes「TRY→ANGLE」”开催决定！
+
+2023年2月23日（木・祝）山野ホール
+
+昼公演：14：00开演
+
+夜公演：18：00开演
+
+出演者：熊田茜音 / 铃木爱奈 / ニノミヤユイ / Liyuu
+

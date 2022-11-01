@@ -631,3 +631,41 @@ wtf...
 
 —— 来自 HUAWEI TAS-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  makece  
+##### 6646#       发表于 2022-11-1 19:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227604&amp;ptid=1959558" target="_blank">沙茶酱 发表于 2022-11-1 18:47</a>
+
+能不能灯继续配雪菜，然后让雪菜转型像侑那样的不要表演的角色，其他角色加入 ...</blockquote>
+不可能，LL角色声优高度绑定，动画里跳舞真人也必须得跳，演唱会上不参演剧情上也得解释
+
+*****
+
+####  沙茶酱  
+##### 6647#       发表于 2022-11-1 19:15
+
+ 本帖最后由 沙茶酱 于 2022-11-1 19:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58228014&amp;ptid=1959558" target="_blank">makece 发表于 2022-11-1 19:13</a>
+
+不可能，LL角色声优高度绑定，动画里跳舞真人也必须得跳，演唱会上不参演剧情上也得解释 ...</blockquote>
+确实想不出只唱不跳的理由。
+
+*****
+
+####  虹虹人lanzhu  
+##### 6648#       发表于 2022-11-1 19:17
+
+虹其她声优感想，<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/01/191729ch32ddldiin3r5d3.png" referrerpolicy="no-referrer">
+
+<strong>U_CU2~NU{V${DZYHEKXWR]I.png</strong> (423 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-1 19:17 上传
+
