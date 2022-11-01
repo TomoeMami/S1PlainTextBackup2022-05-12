@@ -98,3 +98,14 @@
 另外问问是 ...</blockquote>
 链接角色可以超过等级上限，所以是拉上限最高而且属性尽量不同的五个，现在大家都是红石卡140左右，不够狗的话后期大概率都是拉五个2星卡极限拉到160链接其他角色混绝大部分日子，时空那硬币量，一队lr简直梦里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  posion  
+##### 106#       发表于 2022-11-1 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">窝草，原来魔装神装词条也能继承
+
+处理过气装备炼出了魔装不能再炼了，还想着要如何处理
+
