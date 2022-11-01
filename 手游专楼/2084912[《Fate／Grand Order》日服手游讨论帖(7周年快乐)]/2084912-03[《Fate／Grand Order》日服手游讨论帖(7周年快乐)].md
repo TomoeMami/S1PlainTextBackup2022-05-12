@@ -3585,3 +3585,15 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说第一张礼装的本都比较菜
 
+
+
+*****
+
+####  千里快哉风  
+##### 3321#       发表于 2022-11-1 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58211111&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-10-31 19:36</a>
+
+笑 都可以笑  下次直接换成肃正</blockquote>
+这么不想让人过 干脆直接伤害耐性100% <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

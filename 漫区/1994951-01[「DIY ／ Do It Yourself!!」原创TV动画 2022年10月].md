@@ -3683,3 +3683,34 @@ Job 子倒是提到过这是些还没发布的 APP，大概是她自己 / 她老
 其实落后时代的还有布丁和job ...</blockquote>
 我觉得还好吧，这app不是job子公司内部开发的先行版吗？外面下不到的。而且一般人看到好用的软件也不会太去注意开发商什么的
 
+
+
+*****
+
+####  千恋万花  
+##### 293#       发表于 2022-11-1 16:12
+
+【すてっぷ⑤】ＤＩＹって、どこかに・いばしょが・ようやく
+
+隣の高校の生徒、幸希心（しー）が、ＤＩＹ部に突然やってきた。
+
+彼女は隣の校舎から、よくせるふたちを見ていて、何かいつも面白そうなことをしていると、興味を持っていたのだった。
+
+せるふたちが、ＤＩＹ部だと知り、楽しそうだから混ぜてくれというしー。
+
+せるふたちはあっさりと受け入れるが、くれいは、違う学校の生徒と一緒に活動なんて、そう簡単にＯＫできないという。
+
+しーはここにいる誰よりも力持ちだから、ＤＩＹに役に立つというが、くれいはそれを聞き流せなかった。
+
+しーとくれい、どちらが力持ちなのか、腕相撲対決が始まる。
+
+脚本：筆安一幸
+
+絵コンテ・演出：伊礼えり
+
+作画監督：新井博慧<img src="https://p.sda1.dev/8/21c13a6af5568190922295ec0e13d574/diy_anime-1587355455432445954-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/960bdf4825d2f5c04651ee02b9063a6a/diy_anime-1587355455432445954-img2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/01b7fc6aad4f7e8b439d47a6bea0eae2/diy_anime-1587355455432445954-img3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/5cedff8f4229a80fe018820e38a717f9/diy_anime-1587355455432445954-img4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2fba934b18371ef34b630d48493e8c50/6c2c53ae1160f3a609fe942011079ba9f4d7e766_63564e5aa0ec9.jpg" referrerpolicy="no-referrer">
+
