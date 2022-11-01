@@ -678,3 +678,27 @@ wtf...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">五年走过来 这么不容易 没想到2022年却会变成这样...
 
+
+
+*****
+
+####  三明治  
+##### 6650#       发表于 2022-11-1 19:31
+
+不知道该说些什么……
+
+*****
+
+####  JhIenog  
+##### 6651#       发表于 2022-11-1 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/01/193034y5vnl9tnl5lvz8lv.jpg" referrerpolicy="no-referrer">
+
+<strong>-63d1b2911c155991.jpg</strong> (131.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-1 19:30 上传
+
