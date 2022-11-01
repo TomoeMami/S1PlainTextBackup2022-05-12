@@ -149,3 +149,35 @@
 
 准备变成丐版风老王了 至少有坚守打起来舒服点
 
+
+
+*****
+
+####  phoenixxj  
+##### 17151#       发表于 2022-11-1 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58225121&amp;ptid=1158205" target="_blank">windlikeman 发表于 2022-11-1 16:27</a>
+
+准备变成丐版风老王了 至少有坚守打起来舒服点</blockquote>
+讲道理，我感觉看可能不如方阵+龙武舒服。如果没有足够打蛋器，风方血量可能3w都不到，那是有点难受。
+
+当然了 风的防御角色不够强也是一个问题。
+
+实际水团 厚脂肪安承担了所有，以至于当初双觉醒机神刀根本没出场余地，4w+血就硬干200。
+
+*****
+
+####  windlikeman  
+##### 17152#       发表于 2022-11-1 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58225210&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2022-11-1 16:31</a>
+
+讲道理，我感觉看可能不如方阵+龙武舒服。如果没有足够打蛋器，风方血量可能3w都不到，那是有点难受。
+
+当 ...</blockquote>
+我水团就是变身坚守老王的 实际上玩起来还是会死角色
+
+而且我风方只有一勺子 日常玩起来就很不舒服了 总感觉别扭
+
+大概丢6钢能组出来1枪1刀2剑2短的配置吧 没啥额外投入 有坚守应该还是会舒服点
+

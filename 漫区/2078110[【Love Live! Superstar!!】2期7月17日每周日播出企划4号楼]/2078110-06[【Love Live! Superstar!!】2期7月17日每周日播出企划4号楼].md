@@ -16741,3 +16741,42 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 
 只能说再接再厉，BD也是创造历史首次跌下五位数，甚至要破九，地域再怎么debuff也不如烂动画消磨热情来得厉害。隔壁蒜还能两万起步呢，这真不能怪市场。
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 8993#       发表于 2022-11-1 16:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">见证历史了我去 居然1w都没
+
+*****
+
+####  优妮可  
+##### 8994#       发表于 2022-11-1 16:35
+
+人家好歹美少女打枪，这边什么年代还传统偶像（
+
+*****
+
+####  稀勢のささ  
+##### 8995#       发表于 2022-11-1 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别急，累计肯定还能过万，要累平下1w估计得看星3
+
+*****
+
+####  阿姆罗二世  
+##### 8996#       发表于 2022-11-1 16:39
+
+好似喵<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">粪作应有的下场
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 8997#       发表于 2022-11-1 16:42
+
+草，鲤鱼的唠嗑抽选码一张1000
+
