@@ -464,3 +464,73 @@ wtf...
 
 最不愿意看到的事发生了啊，live不参加都好，这换人太难受了。没人能替代的了灯的雪菜啊。
 
+
+
+*****
+
+####  星踪幻影  
+##### 6630#       发表于 2022-11-1 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58226998&amp;ptid=1959558" target="_blank">虹虹人lanzhu 发表于 2022-11-1 18:09</a>
+
+最不愿意看到的事发生了啊，live不参加都好，这换人太难受了。没人能替代的了灯的雪菜啊。
+
+ ...</blockquote>
+换人虽然非常难受，但封存角色作为还在舞台的团来说比换人伤害更大……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  Skyline_R  
+##### 6631#       发表于 2022-11-1 18:13
+
+放平心态。再见。祝各自精彩。
+
+*****
+
+####  山岚夜雨  
+##### 6632#       发表于 2022-11-1 18:15
+
+ 本帖最后由 山岚夜雨 于 2022-11-1 18:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58226936&amp;ptid=1959558" target="_blank">saverok 发表于 2022-11-1 18:05</a>
+此外，若是因为一些其他原因导致出现了轻度外伤的话也有可能引发此病，有少数患者会出现智力低下的情况，而 ...</blockquote>
+你这段太危言耸听了
+“根据临床表现，实验室检查和其他辅助检查。以及遗传学和病理改变的不同，可将本征分为7个类型，即重症型、轻症型、良性过动型、出血型、伴性型、眼症状型、先天性多发性关节弛缓症
+Ⅳ型EDS病人通常死于心脏并发症，大多数死于20岁以前。
+其他亚型病人在无其他并发症情况下，寿命大多与正常人一样。”
+只要不是特定型且预防并发症，还是没到生命危险的地步的。不过这病是遗传病，目前没有根治的办法。
+
+*****
+
+####  damian-wade  
+##### 6633#       发表于 2022-11-1 18:16
+
+以为5th会是一个好的开始，没想到还是结局了啊……为阿灯惋惜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+不过从另一个角度来说，虹应该还有比较长的活跃期，不然真没必要换人
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  一个陆仁贾  
+##### 6634#       发表于 2022-11-1 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58226936&amp;ptid=1959558" target="_blank">saverok 发表于 2022-11-1 18:05</a>
+此外，若是因为一些其他原因导致出现了轻度外伤的话也有可能引发此病，有少数患者会出现智力低下的情况，而 ...</blockquote>
+你说的那是血管型的，和灯不是同一种
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  DarthAka  
+##### 6635#       发表于 2022-11-1 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58226936&amp;ptid=1959558" target="_blank">saverok 发表于 2022-11-1 18:05</a>
+
+此外，若是因为一些其他原因导致出现了轻度外伤的话也有可能引发此病，有少数患者会出现智力低下的情况，而 ...</blockquote>
+您这都看得啥啊？[https://b23.tv/Gydlyo8](https://b23.tv/Gydlyo8)
+
+说是关节型，自然是汇诊之后排除了其它类型啊
+
