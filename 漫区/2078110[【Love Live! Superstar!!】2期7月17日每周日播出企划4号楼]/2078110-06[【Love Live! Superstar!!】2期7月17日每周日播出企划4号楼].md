@@ -16168,3 +16168,16 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 
 二期生四个有三个都明确是落选的，我后知后觉，才意识到素质最高的yabu是唯一不是被一期生淘汰下来的那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">企划运营可千万别再整进来一个落选的了，三期给我好好选
 
+
+
+*****
+
+####  2148214  
+##### 8942#       发表于 2022-11-1 09:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+最后一话，snp来看LIVE：“第一次觉得舞台离得那么远。”
+
+杀人诛心，是个脑子正常的人都必给差评。
+
