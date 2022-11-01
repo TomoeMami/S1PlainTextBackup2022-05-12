@@ -3732,3 +3732,17 @@ Job 子倒是提到过这是些还没发布的 APP，大概是她自己 / 她老
 
 金毛萝莉还好吧，泥潭喜欢的瑞贝卡才刚过
 
+
+
+*****
+
+####  韩子  
+##### 296#       发表于 2022-11-1 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58223151&amp;ptid=1994951" target="_blank">pzk 发表于 2022-11-1 14:29</a>
+
+换个角度看，把不讨喜天才萝莉当成雌小鬼，是不是突然就赶潮流了（
+
+其实落后时代的还有布丁和job ...</blockquote>
+两个应该是geek的角色对话时的内容和气氛确实…我是看得有些尬的
+

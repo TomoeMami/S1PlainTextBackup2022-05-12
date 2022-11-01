@@ -565,3 +565,42 @@ wtf...
 这个新人要去顶替灯压力也大的狠啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">万南旗下企划也不是处理过换人事件，能怎么办总比角色消失疙瘩小
 
+
+
+*****
+
+####  虹虹人lanzhu  
+##### 6639#       发表于 2022-11-1 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227251&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-1 18:26</a>
+
+万南旗下企划也不是处理&amp;#x ...</blockquote>
+不过这是ll第一个啊，这可比加人的新人压力大多了，这个企划当然还要继续下去，但是有很多人肯定还是很难接受了（包括我）<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  光宗薫  
+##### 6640#       发表于 2022-11-1 18:32
+
+好聚好散
+
+也希望楠木灯能够身体健康，长命百岁
+
+*****
+
+####  屑屑代沟尼亚  
+##### 6641#       发表于 2022-11-1 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不能上台可以理解 
+
+没想到配音都一起切了啊
+
+祝好
+
+*****
+
+####  jag0713_plus  
+##### 6642#       发表于 2022-11-1 18:39
+
+好惨呐
+
