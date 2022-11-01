@@ -14045,3 +14045,36 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 冥界的那个龙神怎么打阿，一发石化凝视就把我格挡打断，然后扭曲我就直接死了
 
+
+
+*****
+
+####  pf67  
+##### 1278#       发表于 2022-11-1 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227492&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-1 18:39</a>
+冥界的那个龙神怎么打阿，一发石化凝视就把我格挡打断，然后扭曲我就直接死了 ...</blockquote>
+把石化抗性加高，石化攻击不要防御，等石化过了防御扭曲
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  quanlix  
+##### 1279#       发表于 2022-11-1 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227492&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-1 18:39</a>
+
+冥界的那个龙神怎么打阿，一发石化凝视就把我格挡打断，然后扭曲我就直接死了 ...</blockquote>
+提前吃圣水，用了之后有50秒左右的石化无效，不心疼摇杆硬摇也是能强行解石化的
+
+*****
+
+####  何处分可  
+##### 1280#       发表于 2022-11-1 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227731&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-11-1 18:56</a>
+
+提前吃圣水，用了之后有50秒左右的石化无效，不心疼摇杆硬摇也是能强行解石化的 ...</blockquote>
+原来如此，我都是石化了才开吃
+
