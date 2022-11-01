@@ -14171,3 +14171,12 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 有人说说第八章最后boss原版就是加布料的版本吗？晚上打完总觉得胸前那布料是硬加上去的<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  otakun  
+##### 1289#       发表于 2022-11-2 00:30
+
+现在到第八章出发前，传送回去打伊里西恩那边的神，只能吃两下攻击，在不断死亡重开的过程中逐步发现大雨有挡板可以挡和其他几个技能的应对方式，在食物和耐性的较量下打了1个多小时打过了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">，这游戏真好玩。
+

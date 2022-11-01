@@ -4675,3 +4675,14 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 
 看了下居然玩了100多小时<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（虽然有4个小时左右是挂金币）
 
+
+
+*****
+
+####  tpsg  
+##### 430#       发表于 2022-11-2 00:29
+
+刚刚刷完全成就
+
+试了下叠满诅咒玩inverse模式，有点难翻了好几次，女王武器中后期小怪都刮不动，还得全靠烟花刷十字架。
+

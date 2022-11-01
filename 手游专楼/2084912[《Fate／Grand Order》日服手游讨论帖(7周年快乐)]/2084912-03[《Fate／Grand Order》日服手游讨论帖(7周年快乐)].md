@@ -3638,3 +3638,15 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">报，fate吧爆炸了
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3326#       发表于 2022-11-2 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58231341&amp;ptid=2084912" target="_blank">格雷殿下 发表于 2022-11-1 22:53</a>
+
+报，fate吧爆炸了</blockquote>
+啊？刚回来，感觉一切正常
+
