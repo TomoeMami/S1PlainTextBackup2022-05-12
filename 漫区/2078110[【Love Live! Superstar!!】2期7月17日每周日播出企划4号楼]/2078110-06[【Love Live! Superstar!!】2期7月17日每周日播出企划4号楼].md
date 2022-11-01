@@ -16421,3 +16421,22 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 确实是一开始就决定好的路线，哪怕1期引起了争议也一点都没改，2是还是按照原定的路线发展。
 感觉还是某些人更离谱一点，愣把唱反调恶意夸张到加害行为，已经不是语文水平差能解释的了，头脑简单心胸狭隘罢了。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  darkendless  
+##### 8962#       发表于 2022-11-1 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58221792&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-1 13:07</a>
+我觉得是cp推和堇推合理化自己推奇怪行为的找补而已，顺便又踩一脚，这跟国内一些人天天哔的可可一开始就这 ...</blockquote>
+我觉得这个得从企划底层的一些立意开始追究，另外不只是可可有负面的部分，其他角色也都有，哪怕是被场外造神的堇在登场之初也是暴躁老姐的形象，更别说后续还有监禁作弊偷听分裂团队之类的行为。那些锐评堇的台词可是脚本在很清醒的前提下写出来的。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+场内其实大家都有问题，场外舆论要复杂多了，某些垃圾话不看是最好的。
+
+*****
+
+####  a92063256  
+##### 8963#       发表于 2022-11-1 13:22
+
+这个天邪鬼的帽子看得反胃
+
