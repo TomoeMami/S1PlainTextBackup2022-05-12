@@ -245,3 +245,33 @@ LL企划不一直都说声优和角色高度绑定嘛，因为不可抗逆原因
 
 工作都安排到二月底了
 
+
+
+*****
+
+####  adw667  
+##### 9028#       发表于 2022-11-1 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">心疼灯灯之余突然想起小百合的嗓子……
+
+*****
+
+####  Enakina  
+##### 9029#       发表于 2022-11-1 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227996&amp;ptid=2078110" target="_blank">stygian 发表于 2022-11-1 19:12</a>
+アニソンレーベルLantisによる新しいライブイベント“Lantis Girls Fes「TRY→ANGLE」”开催决定！
+
+2023年 ...</blockquote>
+这个组合刚好是一起出道的那几个，话说二之宫之前不是修养了还是怎么了吗，已经好了吗
+
+*****
+
+####  aoaoaodedede  
+##### 9030#       发表于 2022-11-1 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58228761&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-11-1 20:06</a>
+
+这个组合刚好是一起出道的那几个，话说二之宫之前不是修养了还是怎么了吗，已经好了吗 ...</blockquote>
+前几天逛了逛H社的官网，看到好像是新冠吧，上个月25号报告好了
+

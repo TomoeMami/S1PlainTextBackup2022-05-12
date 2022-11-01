@@ -14120,3 +14120,12 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  何处分可  
+##### 1285#       发表于 2022-11-1 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">在终章之前把那些所有神都打了一遍，出了龙神一开始没摸懂意外其他大的都挺轻松的。开始最终章
+

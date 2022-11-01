@@ -753,3 +753,12 @@ wtf...
 能不能灯继续配雪菜，然后让雪菜转型像侑那样的不要表演的角色，其他角色加入 ...</blockquote>
 换人已经是损失最低的方案了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 6657#       发表于 2022-11-1 20:09
+
+也就是说之后所有雪菜配音都不是她了是么
+
