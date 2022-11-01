@@ -4699,3 +4699,17 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 试了下叠满诅咒玩inverse模式，有点难翻了好几次，女王武器中后期小怪都刮不动，还得全靠烟 ...</blockquote>
 女王单武器 用塔罗牌禁呀 随便刷吧
 
+
+
+*****
+
+####  tpsg  
+##### 432#       发表于 2022-11-2 07:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58233207&amp;ptid=2052594" target="_blank">方舟失智博士 发表于 2022-11-2 00:50</a>
+
+女王单武器 用塔罗牌禁呀 随便刷吧</blockquote>
+我是用新的隐藏角色Avatar试Cappella magna那图，不太能随便刷，感觉一些早期解锁角色在inverse模式存活15分钟都难。
+
+这图好像改了？删了蓝死神，和一开始出现圆环。
+
