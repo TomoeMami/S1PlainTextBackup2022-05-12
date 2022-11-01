@@ -290,3 +290,28 @@ LL企划不一直都说声优和角色高度绑定嘛，因为不可抗逆原因
 
 2022-11-1 20:29 上传
 
+
+
+*****
+
+####  星踪幻影  
+##### 9032#       发表于 2022-11-1 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58226180&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-11-1 17:24</a>
+
+这种时候才体会到减人可比较加人难受多了，我觉得把雪菜直接一起毕业掉比较好，不然新cv什么遭遇我都不敢想 ...</blockquote>
+雪菜毕业虹团会致命伤的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 9033#       发表于 2022-11-1 21:11
+
+<img src="https://img.saraba1st.com/forum/202211/01/211145qdthrrfr99vkuk9k.jpg" referrerpolicy="no-referrer">
+
+<strong>图像.jpg</strong> (394.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-1 21:11 上传
+
