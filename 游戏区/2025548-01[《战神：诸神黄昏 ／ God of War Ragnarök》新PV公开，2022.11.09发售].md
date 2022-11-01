@@ -8942,3 +8942,25 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 但那是那种大锤子，感觉还没有做过这种小锤子的游戏？
 
+
+
+*****
+
+####  SergeGlenn  
+##### 935#       发表于 2022-11-1 10:28
+
+看到一些剧透意思是这玩意儿本质不是枪，只是能变成枪，还能变成剑，是个戒指
+
+*****
+
+####  jy000129  
+##### 936#       发表于 2022-11-1 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58218692&amp;ptid=2025548" target="_blank">SergeGlenn 发表于 2022-11-1 10:28</a>
+看到一些剧透意思是这玩意儿本质不是枪
+
+ ...</blockquote>
+懂了，是尼
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
