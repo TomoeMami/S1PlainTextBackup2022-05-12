@@ -988,3 +988,12 @@ boss三条血，怎么也会被破防一次，维持不了血线...心累
 
 晚上加紧练了3个SSR暗和一个SSR光的队伍，堆到40级过了hard，叠完buff活动卡一个必杀可以打8w多，吓人。
 
+
+
+*****
+
+####  精英级自演乙  
+##### 82#       发表于 2022-11-1 11:45
+
+活动兑换过于弱智，勾选框太小很容易误触然后弹窗，而且勾选之后想全兑换还得一个个拉满<img src="https://static.saraba1st.com/image/smiley/face2017/226.png" referrerpolicy="no-referrer">体验吊差
+

@@ -13923,3 +13923,17 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 结果上就是单纯白票了妹子两晚上<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  A1LI  
+##### 1267#       发表于 2022-11-1 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58218216&amp;ptid=2098044" target="_blank">Leona_Akari 发表于 2022-11-1 10:04</a>
+
+打到最终迷宫了，给我一种感觉，这个续章除了填坑以外就是为了这个最终迷宫包的饺子
+
+论坛助手,iPho ...</blockquote>
+不是吧，整个续章剧情上把这游戏一周目的世界观都重新塑造了。
+
