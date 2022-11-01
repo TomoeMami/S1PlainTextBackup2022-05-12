@@ -16133,3 +16133,29 @@ vol.18タイムテーブル公开👏👏
 
 这种细枝末节就没必要揪了，可可这个角色它们都没用心塑造了，这种细节揪出来也没什么好说的
 
+
+
+*****
+
+####  ruffian  
+##### 8939#       发表于 2022-11-1 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58216653&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-11-01 08:24:09</a>
+）</blockquote>（刚才没发出来）皇冠那个，平时经常做手工的应该知道ova板之类的材料有多轻，真搓出了个金属皇冠才是不合常理吧？堇没有在家里帮忙可以是帮了只是没有写出来，也可以是父母和妹妹可以忙得过来让堇先忙她自己的事。这些其实都还好。
+vn这个初中生变高中生真的补丁感强到让我不适了，说不定他们还觉得初中生能参加ll是个悬念，最后反转得很精彩呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  saya1892  
+##### 8940#       发表于 2022-11-1 09:19
+
+考虑一下动画制作周期啊，不可能观众对此有疑问才事后打补丁的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+星2不合理的地方太多了也不差这一个，我倾向于就是像香帝如何一天往返神津岛一样其实做了但说明不足
+
+当然你要按拉板的说法那就是「脚本の人はそこまで考えてないよ」
+
+毕竟是一个宁可冬天穿着露肩短袖练习服也要在屋顶开被炉就为了エモエモ的恋恋的神经病动画
+
