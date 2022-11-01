@@ -16340,3 +16340,15 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 
 不论是想看理想世界的传统偶像厨，还是想看纯萌萌哒中国角色的，都快跑吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8955#       发表于 2022-11-1 12:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58220635&amp;ptid=2078110" target="_blank">adw667 发表于 2022-11-1 11:59</a>
+
+得亏这是个积极向上的动画，不然搁现实里一个对着大赛口出狂言被冠军队打败的选手第二年宣布加入冠 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">然后下一季花他个3456集慢慢讲心路历程  计划通
+

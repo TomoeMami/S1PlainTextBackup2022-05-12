@@ -13937,3 +13937,23 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 论坛助手,iPho ...</blockquote>
 不是吧，整个续章剧情上把这游戏一周目的世界观都重新塑造了。
 
+
+
+*****
+
+####  quanlix  
+##### 1268#       发表于 2022-11-1 12:13
+
+普通结局打完，最后有点盖塔的味道，今天晚上刷爱情打真结局
+
+*****
+
+####  redsouris  
+##### 1269#       发表于 2022-11-1 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58217236&amp;ptid=2098044" target="_blank">shimotsuki14 发表于 2022-11-1 09:06</a>
+打到七章了，昨晚回头去刷前几章的材料买剩的装备，第四章海蛇洞窟进不去了，鮟鱇鱼肝和另外一种鱼肉是不是 ...</blockquote>
+村里往右走上船就是去海蛇洞
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
