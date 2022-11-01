@@ -13957,3 +13957,16 @@ steam70小时，存档50小时全成就打完了。由于经常挂着游戏吃�
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Leona_Akari  
+##### 1270#       发表于 2022-11-1 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58220387&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-1 11:46</a>
+不是吧，整个续章剧情上把这游戏一周目的世界观都重新塑造了。</blockquote>
+我不是说剧情不好啥的，就是意思这个终章的刷刷刷配合+99和装备盘让这个一章的份量在游戏性上也重了很多
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
