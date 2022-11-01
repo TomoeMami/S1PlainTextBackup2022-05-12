@@ -3629,3 +3629,12 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 话说去年是谁，太公和手办娘？
 
+
+
+*****
+
+####  格雷殿下  
+##### 3325#       发表于 2022-11-1 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">报，fate吧爆炸了
+

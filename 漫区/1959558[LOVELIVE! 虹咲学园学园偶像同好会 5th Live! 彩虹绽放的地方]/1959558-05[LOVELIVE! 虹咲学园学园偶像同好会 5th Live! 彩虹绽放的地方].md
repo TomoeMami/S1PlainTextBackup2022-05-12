@@ -907,3 +907,24 @@ wtf...
 
 —— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  星踪幻影  
+##### 6672#       发表于 2022-11-1 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58231094&amp;ptid=1959558" target="_blank">光宗薫 发表于 2022-11-1 22:38</a>
+
+不行最后整个托孤仪式吧，灯露亲手把雪菜交给新人，逼着粉丝以诸葛亮的心态支持新人工作
+
+—— 来自 HUAWEI ...</blockquote>
+其实偶像大师的雪步就是这样的
+
+*****
+
+####  DarthAka  
+##### 6673#       发表于 2022-11-1 22:54
+
+下次编号把楠木灯找来，和加人一样整个入部仪式——也挺傻的
+
