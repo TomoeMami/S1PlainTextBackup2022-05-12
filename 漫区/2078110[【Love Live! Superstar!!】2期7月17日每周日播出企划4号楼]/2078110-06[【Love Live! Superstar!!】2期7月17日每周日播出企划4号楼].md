@@ -16259,3 +16259,17 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 鱼的三单C/W好听的啊<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 [鲤鱼三单C/W曲 Touch歌词翻译及平假名标音](https://www.bilibili.com/read/cv19449864)
 
+
+
+*****
+
+####  ViyViy  
+##### 8950#       发表于 2022-11-1 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58218851&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-11-1 10:35</a>
+
+这个话题还真是讨论vn年龄时被连带出来的，这么一搞可可和vn的年龄都不清不楚的了。可可本来可能是2005年7 ...</blockquote>
+我记得拉拉大赛有年龄规则？
+
+年龄不变的情况下只能提前入学时间了，现在只有一种可能，可可是在大陆上过高中的，而且如果按正常轨迹20年9月甚至是高二了，一期那段过去的画面其实是高一的可可，可可是来日本为了偶像重新读的高中，反正我未满18且还是高中学历，我凭什么不能参赛？
+
