@@ -16702,3 +16702,12 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 
 十一月都没有消息，今年应该真的没有跨年live，可是三团最后两三天也没有公布活动，做梦奶一个星上红白<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 8988#       发表于 2022-11-1 16:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bd2初动9009  这张塞得啥啊
+
