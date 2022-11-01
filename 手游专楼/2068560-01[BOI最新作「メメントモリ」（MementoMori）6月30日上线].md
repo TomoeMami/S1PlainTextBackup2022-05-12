@@ -76,3 +76,12 @@
 
 另外问问是不是只要随便养5个角色等级然后链接别的角色就够了，不需要像别的游戏都养吧？
 
+
+
+*****
+
+####  osore  
+##### 104#       发表于 2022-11-1 14:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">吗呀，这个出包片场的为什么不穿内裤
+
