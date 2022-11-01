@@ -16594,3 +16594,47 @@ vn这个初中生变高中生真的补丁感强到让我不适了，说不定他
 啊，难道不就是想到哪写到哪嘛，最后反复横跳不就是最好的例子嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 现在还对这动画抱有耐心愿意一点一点抠的我还是挺佩服的。人家根本不在乎观众感受把观众当三岁小孩逗，还要自己给自己找不痛快<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 8978#       发表于 2022-11-1 15:12
+
+ 本帖最后由 Kfly 于 2022-11-1 15:14 编辑 
+
+感觉现在基本是偶尔拿出来吐槽的程度了吧，说的其实都是以前就产生的想法，可不敢和制作组较真，星二在我眼中就是个同人创作，还是非常失败的那一类<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+除非第三季直接丢掉第二季的烂设定，来个平行世界，否则我也不抱期望，因为想象不到要怎样才能原封不动地接下第二季的烂摊子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 8979#       发表于 2022-11-1 15:15
+
+ 本帖最后由 nufawneafg 于 2022-11-1 15:16 编辑 
+
+如果是其他动画腰斩束之高阁是最好结局，大家都体面些<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+可是没办法，这还有那么多人等着登场呢
+那就硬着头皮熬制不明分泌物互相折磨呗<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 8980#       发表于 2022-11-1 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58223838&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-11-1 15:12</a>
+
+感觉现在基本是偶尔拿出来吐槽的程度了吧，说的其实都是以前就产生的想法，可不敢和制作组较真，星二在我眼 ...</blockquote>
+不必要接下烂摊子，遗忘式塑造就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只要我表现出之前的剧情不存在，那么想写什么就写什么，想是什么关系发展那就是什么关系发展<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+割裂感什么的不是习以为常了么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 8981#       发表于 2022-11-1 15:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">海选估计就再摇个铃原或者之前落选再战的吧，要搁我刚15、6岁有那个能力又想加入LL的话我肯定等下一波企划争个C，可不乐意第三年加入来给人当个只能喝点汤的垫子
+

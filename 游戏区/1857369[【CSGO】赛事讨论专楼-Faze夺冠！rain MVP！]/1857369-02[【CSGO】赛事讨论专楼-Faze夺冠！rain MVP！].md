@@ -194,3 +194,13 @@ c9打勾八呢连灰狗都输<img src="https://static.saraba1st.com/image/smiley
 
 之前狂喷pgl，这ESL办比赛还不是垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还大砍刀把下半年比赛砍的就剩几个了
 
+
+
+*****
+
+####  ispep  
+##### 2652#       发表于 2022-11-1 15:17
+
+玩机器的作业也没什么问题，最多big3-0的概率没有另外两个可能晋级的队大，
+c9输灰狗真的大家都没有想到吧……本来灰狗真的是最菜的，ihc都不如的，不写灰狗就要写00nation或者imperial了，还是c9太搞了
+
