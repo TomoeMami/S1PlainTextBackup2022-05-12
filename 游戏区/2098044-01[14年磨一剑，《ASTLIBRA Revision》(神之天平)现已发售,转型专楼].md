@@ -14595,3 +14595,15 @@ MAGICUS
 神之天平这终章的几个boss战力设计的还挺合理的，几个科技就是比前面的几个神难打，怪不得能弑神 ...</blockquote>
 终章最难打的不是女神本人嘛。
 
+
+
+*****
+
+####  帆影FX  
+##### 1321#       发表于 2022-11-2 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58237522&amp;ptid=2098044" target="_blank">索非亚 发表于 2022-11-2 11:04</a>
+
+这装备盘替换是3选1随机的么？好像没看到能挪位置的键</blockquote>
+看了眼最新的更新，现在可以手动选了
+
