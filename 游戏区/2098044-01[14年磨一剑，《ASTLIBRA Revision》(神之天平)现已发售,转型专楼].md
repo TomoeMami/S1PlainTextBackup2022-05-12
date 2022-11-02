@@ -14393,3 +14393,14 @@ ex boss给的装备精通后给石头，石头合成变成变石，变石在面�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">ns出了再买一份
 
+
+
+*****
+
+####  黒長直姫  
+##### 1303#       发表于 2022-11-2 09:12
+
+肯尼晨勃，好起来了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
