@@ -1174,3 +1174,14 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 改人设也不行，live总要开的。</blockquote>
 是啊，偶像企划live是核心，声优也终归还是为角色服务，这种情况下没有两全的办法，也许从病情严重开始就注定有这一天了吧
 
+
+
+*****
+
+####  仟音一心  
+##### 6696#       发表于 2022-11-2 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58238118&amp;ptid=1959558" target="_blank">菱0零 发表于 2022-11-2 11:34</a>
+是啊，偶像企划live是核心，声优也终归还是为角色服务，这种情况下没有两全的办法，也许从病情严重开始就 ...</blockquote>
+企划角度上换人就是损失最小的方法，没有之一。
+
