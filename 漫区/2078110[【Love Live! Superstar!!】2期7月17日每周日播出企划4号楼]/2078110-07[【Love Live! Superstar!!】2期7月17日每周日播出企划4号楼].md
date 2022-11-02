@@ -705,3 +705,14 @@ ONCE MORE SMILE, TWICE MORE CHIME
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58238705&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-2 12:11</a></blockquote>
 红色毛衣这张有点像约尔啊
 
+
+
+*****
+
+####  优妮可  
+##### 9057#       发表于 2022-11-2 13:00
+
+<blockquote>emmer 发表于 2022-11-2 12:52
+红色毛衣这张有点像约尔啊</blockquote>
+有一张更像的，群友之前也说算是提前cos了
+
