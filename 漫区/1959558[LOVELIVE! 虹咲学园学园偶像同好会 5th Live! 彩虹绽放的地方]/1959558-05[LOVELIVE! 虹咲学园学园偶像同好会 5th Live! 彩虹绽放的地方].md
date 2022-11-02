@@ -1205,3 +1205,32 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 
 想了半天也就中岛由贵还算符合角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但也不能总让她当第二任
 
+
+
+*****
+
+####  hijack997  
+##### 6699#       发表于 2022-11-2 13:01
+
+中岛由贵加入的话爱马仕，邦邦，LL三大企划全有了。
+
+*****
+
+####  makece  
+##### 6700#       发表于 2022-11-2 13:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58239129&amp;ptid=1959558" target="_blank">yevvet 发表于 2022-11-2 12:38</a>
+
+想了半天也就中岛由贵还算符合角色但也不能总让她当第二任</blockquote>
+日野森志步顶替宵崎奏是吧
+
+*****
+
+####  makece  
+##### 6701#       发表于 2022-11-2 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58239446&amp;ptid=1959558" target="_blank">hijack997 发表于 2022-11-2 13:01</a>
+
+中岛由贵加入的话爱马仕，邦邦，LL三大企划全有了。</blockquote>
+还有PJSK
+

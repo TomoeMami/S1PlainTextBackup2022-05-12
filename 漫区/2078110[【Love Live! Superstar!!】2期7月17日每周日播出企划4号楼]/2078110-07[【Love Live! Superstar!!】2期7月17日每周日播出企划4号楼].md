@@ -716,3 +716,12 @@ ONCE MORE SMILE, TWICE MORE CHIME
 红色毛衣这张有点像约尔啊</blockquote>
 有一张更像的，群友之前也说算是提前cos了
 
+
+
+*****
+
+####  lj205  
+##### 9058#       发表于 2022-11-2 13:10
+
+红毛衣和地毯上那张<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
