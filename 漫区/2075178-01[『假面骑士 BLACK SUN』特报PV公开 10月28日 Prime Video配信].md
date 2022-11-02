@@ -3279,3 +3279,15 @@ OST：
 
 而黑日好歹是着名IP改编重制，受众就不一样。
 
+
+
+*****
+
+####  Lorraine_Kinney  
+##### 299#       发表于 2022-11-2 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58235561&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-11-2 09:22</a>
+
+那腰带的设定很意味不明，按照剧情这片的怪人都是生物改造，是异变，根本不该存在科技系的腰带 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">腰带好像是做改造手术埋肚子里放石头的装置，其他人开膛的时候也隐隐约约能看见有个像井盖的东西，至于为什么两主角+女主会露出来，可能是主角团吧
+
