@@ -225,3 +225,15 @@
 
 壊灭的な作画…
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1976#       发表于 2022-11-3 07:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58250213&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-11-3 02:21</a>
+
+前七分钟差不多和解了，纯夏出场也还行，大尉做中队介绍的时候其他人小崩，207b食堂全崩了 祭拜小麻 ...</blockquote>
+真是美乃莉的话小麻就不会死了（悲）
+
