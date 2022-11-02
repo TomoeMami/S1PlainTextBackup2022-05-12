@@ -3206,3 +3206,14 @@ csm和shf这种商品就是收割核心粉圈的，无论怎么不走心那群�
 
 看知乎还有人提超人幻想的，md，这片子讲的那么烂，有什么资格碰瓷超人幻想的<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 294#         楼主| 发表于 2022-11-2 16:31
+
+OST：
+
+分享松隈ケンタ的专辑《『仮面ライダーBLACK SUN』オリジナル・サウンドトラック》:&amp;#xA0;[http://music.163.com/album/154133508/?userid=629854897&amp;#xA0;](http://music.163.com/album/154133508/?userid=629854897&amp;#xA0;)
+
