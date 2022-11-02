@@ -13185,3 +13185,21 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 2766#         楼主| 发表于 2022-11-2 19:01
+
+成品还是用手机拍吧
+
+摄像头的画质……
+
+*****
+
+####  holoan  
+##### 2767#         楼主| 发表于 2022-11-2 19:01
+
+摆盘有点意思了
+
