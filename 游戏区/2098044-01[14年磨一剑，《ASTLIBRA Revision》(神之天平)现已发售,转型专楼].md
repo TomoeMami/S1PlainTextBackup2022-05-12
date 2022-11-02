@@ -14441,3 +14441,17 @@ ex boss给的装备精通后给石头，石头合成变成变石，变石在面�
 
 这装备盘替换是3选1随机的么？好像没看到能挪位置的键<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 1308#       发表于 2022-11-2 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58237522&amp;ptid=2098044" target="_blank">索非亚 发表于 2022-11-2 11:04</a>
+
+这装备盘替换是3选1随机的么？好像没看到能挪位置的键</blockquote>
+不记得是按当前盘装备123位置出还是全装备123位置出了 确实是不能自选放的位置的
+
+不想后面紫盘冲突的话比较好的做法是非当前用装备的盘子不紫甚至是不满意不放 这样的话可以保证3盘都是比较厉害的水准（然而没有必要）
+

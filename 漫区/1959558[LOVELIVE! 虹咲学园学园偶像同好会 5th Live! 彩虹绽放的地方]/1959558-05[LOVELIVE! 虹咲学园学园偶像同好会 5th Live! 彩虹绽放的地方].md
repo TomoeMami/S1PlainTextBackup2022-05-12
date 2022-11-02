@@ -1196,3 +1196,12 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 
 希望之后还能看到灯灯
 
+
+
+*****
+
+####  yevvet  
+##### 6698#       发表于 2022-11-2 12:38
+
+想了半天也就中岛由贵还算符合角色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但也不能总让她当第二任
+
