@@ -3795,3 +3795,13 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 强化幕间都减半 可以清一波了
 
+
+
+*****
+
+####  exiaexa  
+##### 3343#       发表于 2022-11-2 18:41
+
+全民老婆王姐又双叒叕复刻，到底是谁还没有摩根
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
