@@ -14362,3 +14362,25 @@ ex boss给的装备精通后给石头，石头合成变成变石，变石在面�
 本作是个人开发者KEIZO历时14年开发的免费同人游戏ASTLIBRA的商业化重制版，重制版相较原版，支持宽屏与高 ...</blockquote>
 登陆ns吗
 
+
+
+*****
+
+####  蓝雉  
+##### 1300#         楼主| 发表于 2022-11-2 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58234272&amp;ptid=2098044" target="_blank">苏西踩我了 发表于 2022-11-2 05:05</a>
+简单写个攻略，1，游戏全收集时长约60个小时，共有序章，12345678章，终章，以上也称一周目。
+
+以及新章，也 ...</blockquote>
+好评<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+*****
+
+####  蓝雉  
+##### 1301#         楼主| 发表于 2022-11-2 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58234386&amp;ptid=2098044" target="_blank">Retro_Gamer 发表于 2022-11-2 06:56</a>
+登陆ns吗</blockquote>
+有打算
+
