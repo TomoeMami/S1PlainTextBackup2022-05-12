@@ -467,3 +467,23 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 周照<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  日蚀之阳  
+##### 43681#       发表于 2022-11-2 18:52
+
+关于活动要结束了还有摸鱼御主差二十万点数这件事<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+没错，就是我
+
+*****
+
+####  日蚀之阳  
+##### 43682#       发表于 2022-11-2 18:52
+
+关于活动要结束了还有摸鱼御主差二十万点数这件事<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+没错，就是我
+

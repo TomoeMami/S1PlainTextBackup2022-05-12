@@ -13174,3 +13174,14 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 终于开煎了
 
+
+
+*****
+
+####  rs5621  
+##### 2765#       发表于 2022-11-2 18:52
+
+焦了点，不过还能吃
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

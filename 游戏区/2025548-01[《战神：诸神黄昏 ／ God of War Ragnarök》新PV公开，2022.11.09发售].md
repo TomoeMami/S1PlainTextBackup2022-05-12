@@ -9072,3 +9072,17 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 啊还有一周 
 
+
+
+*****
+
+####  一个过路的  
+##### 948#       发表于 2022-11-2 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58241448&amp;ptid=2025548" target="_blank">医生狼多 发表于 2022-11-2 15:16</a>
+
+草草草
+
+【儿童游戏[并不简单]】PlayStation日本公开了《战神 诸神黄昏》的新宣传片，宣传片使用了儿童节目 ...</blockquote>
+民纳——狗偷物，拉格纳no咕噜大
+
