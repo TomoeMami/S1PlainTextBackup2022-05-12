@@ -14706,3 +14706,14 @@ MAGICUS
 
 装备盘这个设计简直天才，既扩展了装备能力还提供了一个巨大空间的可刷因素<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  quanlix  
+##### 1331#       发表于 2022-11-3 00:47
+
+爱情刷不出来，要命啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
