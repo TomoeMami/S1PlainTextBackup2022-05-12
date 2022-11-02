@@ -3777,3 +3777,12 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 传说的摩根祭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3341#       发表于 2022-11-2 18:12
+
+结果还真不开啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
