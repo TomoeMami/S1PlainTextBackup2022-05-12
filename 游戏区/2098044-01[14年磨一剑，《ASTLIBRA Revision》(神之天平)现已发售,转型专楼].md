@@ -14527,3 +14527,17 @@ MAGICUS
 
 就没有战斗了 堪比D3旋风蛮
 
+
+
+*****
+
+####  沙发果冻  
+##### 1315#       发表于 2022-11-2 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58244351&amp;ptid=2098044" target="_blank">君子殉凶 发表于 2022-11-2 18:13</a>
+
+自从开始擒抱加剑舞  后期擒抱加暗黑龙鳞以后
+
+就没有战斗了 堪比D3旋风蛮</blockquote>
+也不能这么说，勇者四人队和群星这两场还是需要操作的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3805,3 +3805,12 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 全民老婆王姐又双叒叕复刻，到底是谁还没有摩根
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3344#       发表于 2022-11-2 18:50
+
+摩根又复刻了，虽然我没有但我选择不抽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
