@@ -4822,3 +4822,17 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 话说那个贴图错乱的死神是什么鬼，没伤害没范围的，纯玩梗角色？</blockquote>
 属性每把都随机 可能随机到很变态的属性
 
+
+
+*****
+
+####  Bhagavan  
+##### 443#       发表于 2022-11-2 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58238017&amp;ptid=2052594" target="_blank">wthall 发表于 2022-11-2 11:27</a>
+
+难道是我选了高速模式？ 但是我看时间也才28分钟啊</blockquote>
+跟模式没关系的
+
+大概是挂机突然暴毙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

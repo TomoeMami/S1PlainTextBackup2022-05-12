@@ -3689,3 +3689,15 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 今天晚上是不是就能看见超级加倍的毛毛了
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3331#       发表于 2022-11-2 12:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58236003&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2022-11-2 09:48</a>
+
+凎，活动今天结束了？我商店居然还没搬空商店？是这回商店东西多了还是我掉落礼装带少了，以往这种活动不是 ...</blockquote>
+自己没上的话一般得全程抱大腿满破掉落吧
+
