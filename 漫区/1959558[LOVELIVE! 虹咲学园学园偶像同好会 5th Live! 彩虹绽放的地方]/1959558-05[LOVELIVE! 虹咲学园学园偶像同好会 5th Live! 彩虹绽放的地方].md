@@ -1256,3 +1256,15 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 换人无非就是运营草台的另一种体现罢了。说来这个企划角色和声优早已高度融合你换人无异于直接杀死这个角色，况且没有她们前期的演绎哪里会有后面的高强度厨力放出。反正昨天的降板公告发出后在我心里的优木せつ菜的热情似乎已经燃烧殆尽了，所剩时日无多二月份的unit live仿佛就像是出殡一样，真的非常讨厌这种感觉。
 既然运营还要保留这个皮，不用想也知道二代目必然是个带着拙劣的模仿内心空洞的人偶罢了，既然这样你还不如告诉我优木せつ菜的本体是台场秘密研发的人形机器人接下来登场的是名为ys78-2的版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星踪幻影  
+##### 6704#       发表于 2022-11-2 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58241580&amp;ptid=1959558" target="_blank">HACHIMAN 发表于 2022-11-2 15:23</a>
+
+换人无非就是运营草台的另一种体现罢了。说来这个企划角色和声优早已高度融合你换人无异于直接杀死这个角色 ...</blockquote>
+有一点还是要说下，现在问题就是灯无法高度融合雪菜这角色了。除非改人设以及轮椅战神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
