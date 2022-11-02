@@ -1142,3 +1142,24 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 
 <img src="https://p.sda1.dev/8/49f1eb455cc5f095b59d24a3e12cbaa7/20221102_100505.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6693#       发表于 2022-11-2 11:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58234505&amp;ptid=1959558" target="_blank">新HGCG 发表于 2022-11-2 07:38</a>
+当年FGO玛修换人时粉丝是怎样的情况</blockquote>
+换得时间很早，前期FGO剧情又不咋地，到后面好感度爆棚时已经是高桥李依了。
+和陪伴了虹咲5年的灯完全不能相提并论。
+
+*****
+
+####  仟音一心  
+##### 6694#       发表于 2022-11-2 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58235633&amp;ptid=1959558" target="_blank">菱0零 发表于 2022-11-2 09:26</a>
+如果能对雪菜的人设进行改动，那就不会换声优了吧。说到底live上的雪菜也是一个由人扮演的人设，灯的压力也 ...</blockquote>
+改人设也不行，live总要开的。
+

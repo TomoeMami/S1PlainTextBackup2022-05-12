@@ -14432,3 +14432,12 @@ ex boss给的装备精通后给石头，石头合成变成变石，变石在面�
 就是花戒，宝箱图纸装备，幸运拉满刷宝箱去吧</blockquote>
 3Q,宝箱是这个区域所有怪都有可能掉吧？
 
+
+
+*****
+
+####  索非亚  
+##### 1307#       发表于 2022-11-2 11:04
+
+这装备盘替换是3选1随机的么？好像没看到能挪位置的键<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
