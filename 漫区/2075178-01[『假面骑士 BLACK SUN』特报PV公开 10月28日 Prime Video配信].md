@@ -3332,3 +3332,20 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 既然是讲故事，而且还是相似的议题，相似的背景，相似的叙事，那自然能拿来比了
 
+
+
+*****
+
+####  嘟帝  
+##### 302#       发表于 2022-11-3 00:29
+
+看完了，除了剧情薄弱和打的不够炫以外，算是非常不错的一部假面骑士了，期待第二季
+
+*****
+
+####  Piano-Forest  
+##### 303#         楼主| 发表于 2022-11-3 00:31
+
+[https://twitter.com/KSUWABE/status/1587778928432668673](https://twitter.com/KSUWABE/status/1587778928432668673)
+<img src="https://p.sda1.dev/8/6c329b0ec1951fe4b0dabba8af39968b/illust_102463317_20221103_003107.jpg" referrerpolicy="no-referrer">
+
