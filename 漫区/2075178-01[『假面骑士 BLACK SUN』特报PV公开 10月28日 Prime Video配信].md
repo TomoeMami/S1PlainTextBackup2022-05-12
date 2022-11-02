@@ -3262,3 +3262,20 @@ OST：
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  8aa8aa8aa  
+##### 298#       发表于 2022-11-2 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58244865&amp;ptid=2075178" target="_blank">zxc4563982 发表于 2022-11-2 18:43</a>
+当然可以比了，超人幻想好看的只有第一季，第二季实际上跟黑日差不多
+
+一样的搞插叙，都是魔改全共斗背景 ...</blockquote>
+你自己不就说了，好歹超人幻想会烧个大烟花大家乐呵乐呵。
+而且非主线故事的单元剧大多挺有意思的。
+而且超人幻想不就明显是骨头社要浪一把的产品，自带观众筛选。注定是极小众。
+
+而黑日好歹是着名IP改编重制，受众就不一样。
+
