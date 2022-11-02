@@ -1286,3 +1286,12 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 
 千春咋样。不算新人也不算老人，长得好看，有偶像经验，武士道关系户，缺作品、擅长燃曲。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天姬Angelotte  
+##### 6707#       发表于 2022-11-2 16:08
+
+要不让雪菜当p，让侑顶上去
+
