@@ -13272,3 +13272,14 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">miko的日语很好？真的假的。
 
+
+
+*****
+
+####  holoan  
+##### 2775#         楼主| 发表于 2022-11-2 20:24
+
+明天合同练习
+
+之前推特有其他人提到过是哪组来着忘了
+
