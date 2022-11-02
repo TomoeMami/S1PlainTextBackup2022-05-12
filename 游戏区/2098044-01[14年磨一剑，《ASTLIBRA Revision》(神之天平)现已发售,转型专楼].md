@@ -14574,3 +14574,12 @@ MAGICUS
 
 神之天平这终章的几个boss战力设计的还挺合理的，几个科技就是比前面的几个神难打，怪不得能弑神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  妄想中毒  
+##### 1319#       发表于 2022-11-2 22:13
+
+这游戏有些设计纯粹是有病，第二章我把木骷髅扔湖里选错了，去商店重新买一个骷髅居然要1000块钱
+
