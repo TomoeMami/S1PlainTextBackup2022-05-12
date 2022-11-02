@@ -3755,3 +3755,18 @@ Job 子倒是提到过这是些还没发布的 APP，大概是她自己 / 她老
 
 人人都看不起diy的世界观，竟然还有厂家生产diy工具
 
+
+
+*****
+
+####  Piano-Forest  
+##### 298#         楼主| 发表于 2022-11-2 17:46
+
+『Do It Yourself!! -どぅー・いっと・ゆあせるふ-』
+
+せるふのお母さんとぷりんママの設定をご紹介
+
+すてっぷ５は本日２４時～放送です
+<img src="https://p.sda1.dev/8/80cb92794be8b81550dcea9d2a08d254/20221102_174515.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/8f68beb8980e11bf83b99e0a72e01d41/20221102_174517.jpg" referrerpolicy="no-referrer">
+

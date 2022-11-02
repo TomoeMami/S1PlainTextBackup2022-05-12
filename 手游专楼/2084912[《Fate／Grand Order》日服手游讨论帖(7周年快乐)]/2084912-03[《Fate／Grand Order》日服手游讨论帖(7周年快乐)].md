@@ -3768,3 +3768,12 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 2.6复刻不开的话那我岂不是没法抽奥伯龙了，可恶
 
+
+
+*****
+
+####  khxooo  
+##### 3340#       发表于 2022-11-2 17:51
+
+传说的摩根祭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
