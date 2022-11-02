@@ -789,3 +789,15 @@ ONCE MORE SMILE, TWICE MORE CHIME
 得亏这是个积极向上的动画，不然搁现实里一个对着大赛口出狂言被冠军队打败的选手第二年宣布加入冠 ...</blockquote>
 打不过就加入<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  emmer  
+##### 9063#       发表于 2022-11-2 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58239433&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-2 13:00</a>
+
+有一张更像的，群友之前也说算是提前cos了</blockquote>
+哪一张呀，好哥哥指个路
+
