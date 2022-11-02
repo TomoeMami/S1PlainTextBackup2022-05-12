@@ -13214,3 +13214,37 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 2769#         楼主| 发表于 2022-11-2 19:51
+
+黄油的直播许可很难获得以及R18内容的问题基本现阶段没办法直播
+
+没办法了拿夸黄油来替代播吧
+
+*****
+
+####  holoan  
+##### 2770#         楼主| 发表于 2022-11-2 19:57
+
+年内还有live！？什么玩意
+
+*****
+
+####  rs5621  
+##### 2771#       发表于 2022-11-2 19:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶紧播吧，等不及看了
+
+*****
+
+####  holoan  
+##### 2772#         楼主| 发表于 2022-11-2 20:00
+
+反正下周的事情了
+
+而且夸游还有正式版和体验版的区分体验版没有选项
+
