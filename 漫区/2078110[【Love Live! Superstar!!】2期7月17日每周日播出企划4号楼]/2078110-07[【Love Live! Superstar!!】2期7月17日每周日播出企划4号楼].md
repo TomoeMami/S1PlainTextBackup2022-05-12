@@ -409,3 +409,22 @@ Liyuu【TRUE FOOL LOVE】弦乐四重奏cover 夫妇以上，恋人未满 OP
 不用说什么乌鸦嘴，毕业制还在不说百试百灵起码十拿九稳的毒奶清单里呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 有讨论余地的就是面对几乎难以为继的窘境，他还有没有这么多的决心把自己的一厢情愿继续下去，这是我最期待看的
 
+
+
+*****
+
+####  cat1230  
+##### 9043#       发表于 2022-11-2 10:20
+
+毕业也没啥，缪几个除了个人身份活跃的外，剩下也是糊，有没有缪成员的身份无关紧要了。师傅领进门修行靠个人，大家赶紧做跳板搞个活吧。5人组现在就Nako比较尴尬，其他人还好。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  nufawneafg  
+##### 9044#       发表于 2022-11-2 10:22
+
+商业成绩上倒觉得还好吧，糊不糊的倒是都凑合过
+我觉得看拉拉看到现在，尤其是主要推星的，在乎商业成绩就很怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
