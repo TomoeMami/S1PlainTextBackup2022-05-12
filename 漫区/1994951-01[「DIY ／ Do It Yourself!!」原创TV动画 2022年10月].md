@@ -3770,3 +3770,23 @@ Job 子倒是提到过这是些还没发布的 APP，大概是她自己 / 她老
 <img src="https://p.sda1.dev/8/80cb92794be8b81550dcea9d2a08d254/20221102_174515.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/8f68beb8980e11bf83b99e0a72e01d41/20221102_174517.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pzk  
+##### 299#       发表于 2022-11-2 17:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">两位妈妈都好可爱
+
+*****
+
+####  Piano-Forest  
+##### 300#         楼主| 发表于 2022-11-2 18:01
+
+#少女手工#将于11月2日 20:00 bilibili播出！
+
+从零开始的手工生活！女子高中生和制造工具的奇妙火花~
+
+追番传送门：[https://www.bilibili.com/bangumi/play/ss43155](https://www.bilibili.com/bangumi/play/ss43155) 
+
