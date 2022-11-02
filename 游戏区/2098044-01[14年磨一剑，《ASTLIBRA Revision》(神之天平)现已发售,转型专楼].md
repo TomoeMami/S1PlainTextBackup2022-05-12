@@ -14735,3 +14735,29 @@ MAGICUS
 
 点出能量吸收别说区区遗迹兵了，天克所有boss。后期boss那离谱的弹幕量，开个冷弹凭依技当加血包。
 
+
+
+*****
+
+####  tgwing  
+##### 1334#       发表于 2022-11-3 07:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58234272&amp;ptid=2098044" target="_blank">苏西踩我了 发表于 2022-11-2 05:05</a>
+简单写个攻略，1，游戏全收集时长约60个小时。共有序章，12345678章，终章，以上也称一周目。
+
+以及新章，也 ...</blockquote>
+好评<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  redsouris  
+##### 1335#       发表于 2022-11-3 07:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58249498&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-3 00:18</a>
+女神本人不难啊，乱杀。难度我觉得不如锁女神的机器</blockquote>
+那个玩意烦的只是总在天上飞吧
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
