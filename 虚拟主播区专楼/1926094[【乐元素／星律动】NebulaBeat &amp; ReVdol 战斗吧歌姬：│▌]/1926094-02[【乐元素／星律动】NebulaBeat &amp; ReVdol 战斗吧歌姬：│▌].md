@@ -9694,3 +9694,14 @@ kino的千舰即得
 
 不知道厂长有没有后悔  感觉这直播间味太足了...
 
+
+
+*****
+
+####  天青月白  
+##### 2525#       发表于 2022-11-2 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58245972&amp;ptid=1926094" target="_blank">dreamenory 发表于 2022-11-2 19:57</a>
+不知道厂长有没有后悔  感觉这直播间味太足了...</blockquote>
+什么意思？
+

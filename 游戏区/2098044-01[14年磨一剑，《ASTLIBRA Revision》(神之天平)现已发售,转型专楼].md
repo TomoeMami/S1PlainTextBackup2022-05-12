@@ -14633,3 +14633,39 @@ MAGICUS
 
 刷到装备盘随便换的时候，已经没有更高难度的挑战了，过段时间重开一局最高难度试试。
 
+
+
+*****
+
+####  mayu5583639  
+##### 1325#       发表于 2022-11-2 22:55
+
+<img src="https://img.saraba1st.com/forum/202211/02/225445qpbg7afga66575t7.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (358.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-2 22:54 上传
+
+<img src="https://img.saraba1st.com/forum/202211/02/225450jocyste3izzdnd2s.png" referrerpolicy="no-referrer">
+
+<strong>2.png</strong> (308.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-2 22:54 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我是不是BUG了？？？
+
+*****
+
+####  linc555  
+##### 1326#       发表于 2022-11-2 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58248454&amp;ptid=2098044" target="_blank">mayu5583639 发表于 2022-11-2 22:55</a>
+我是不是BUG了？？？</blockquote>
+用弓射
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
