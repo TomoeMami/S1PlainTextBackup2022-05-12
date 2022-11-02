@@ -1384,3 +1384,18 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 一看到谜语人就脑壳疼，哎<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  游蜓  
+##### 729#       发表于 2022-11-2 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58232307&amp;ptid=2040765" target="_blank">athena_1982 发表于 2022-11-1 23:50</a>
+感觉这话的主要目的是为了展示迷你旁顿的手办吧……
+
+这集也有点谜语人（果然是因为某人要回归了么），旁顿 ...</blockquote>
+庞顿烧的
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -1028,3 +1028,12 @@ VH2星了，被破防了一次红血奶不回来了
 
 所以练活动SSR是真的有用，兄弟们冲啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tuichu0425  
+##### 84#       发表于 2022-11-2 09:33
+
+卡load卡到影响游戏体验的看下是不是没下载全部资源包，下完之后还算好
+

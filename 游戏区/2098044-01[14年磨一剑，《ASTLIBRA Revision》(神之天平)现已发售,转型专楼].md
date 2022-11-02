@@ -14404,3 +14404,12 @@ ex boss给的装备精通后给石头，石头合成变成变石，变石在面�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  quanlix  
+##### 1304#       发表于 2022-11-2 09:35
+
+跑去玩作者的手游了，没刷爱情，今天一定要看真结局
+
