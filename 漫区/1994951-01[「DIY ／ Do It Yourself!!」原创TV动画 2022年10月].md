@@ -3855,3 +3855,22 @@ Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加
 
 怎么人设图看着头都特别大...正片倒没什么感觉
 
+
+
+*****
+
+####  千恋万花  
+##### 305#       发表于 2022-11-2 23:25
+
+<blockquote>さすがニンジャオンミツクノイチ！</blockquote><blockquote>それはどうかにゃ～</blockquote><blockquote>それはそれ　これはこれだ</blockquote>
+合着しー也是外国人（東南アジア），治子老师不愧是古典美人（東北の豪商），你们社都是些有钱人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+关系户就是好，假设外部社员算半个正式社员的话，再来一个（布丁）就能算一个正式社员了（
+
+想要最新操作系统的水母
+
+这集没有虐猪！这集小己没有受伤！
+
+必可活用
+<img src="https://p.sda1.dev/8/1146c70204981ba144499736b16f89d7/img1.jpg" referrerpolicy="no-referrer">
+

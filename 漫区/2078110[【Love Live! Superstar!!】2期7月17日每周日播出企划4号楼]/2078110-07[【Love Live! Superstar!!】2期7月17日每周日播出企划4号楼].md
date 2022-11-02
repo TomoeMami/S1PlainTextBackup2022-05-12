@@ -1003,3 +1003,12 @@ ONCE MORE SMILE, TWICE MORE CHIME
 
 中了签售满足了，这次唠嗑抽选太可怕，还是放弃吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 9075#       发表于 2022-11-2 23:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我咋记得有资源的啊
+
