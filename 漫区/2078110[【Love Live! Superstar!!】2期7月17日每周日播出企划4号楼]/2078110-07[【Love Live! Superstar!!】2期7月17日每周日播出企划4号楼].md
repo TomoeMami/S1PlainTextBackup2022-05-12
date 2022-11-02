@@ -383,3 +383,29 @@ Liyuu【TRUE FOOL LOVE】弦乐四重奏cover 夫妇以上，恋人未满 OP
 这还有个裂拉48的远景目标等着呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 有钱建议多为社会做“贡献”，辗转腾挪之间就把自己送上绝路了
 
+
+
+*****
+
+####  优妮可  
+##### 9040#       发表于 2022-11-2 10:03
+
+身体原因确实没办法，人命第一。其它什么措施对比起来都是下策，只能祝福尊重了。
+
+*****
+
+####  starring  
+##### 9041#       发表于 2022-11-2 10:05
+
+星这边还有X期生的做法，乌鸦嘴一句哪天搞毕业也有理由借口，甚至连Liella的意义也给你说了，以后就算有Liella48期生也不要觉得惊讶
+
+*****
+
+####  nufawneafg  
+##### 9042#       发表于 2022-11-2 10:11
+
+ 本帖最后由 nufawneafg 于 2022-11-2 10:12 编辑 
+
+不用说什么乌鸦嘴，毕业制还在不说百试百灵起码十拿九稳的毒奶清单里呢<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+有讨论余地的就是面对几乎难以为继的窘境，他还有没有这么多的决心把自己的一厢情愿继续下去，这是我最期待看的
+

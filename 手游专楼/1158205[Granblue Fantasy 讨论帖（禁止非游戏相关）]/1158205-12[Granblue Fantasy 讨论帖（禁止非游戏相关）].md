@@ -279,3 +279,17 @@
 
 实际紫苑这得意感觉好难凑。那这盾真的和没一样。而且也没有奶嘴给减cd，完全没有办法和波比。
 
+
+
+*****
+
+####  Ky·Kiske  
+##### 17160#       发表于 2022-11-2 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58235858&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2022-11-2 09:41</a>
+
+我觉得紫苑这角色如果看做防御也太弱了。也恰恰说明风现在存在的生存难题。
+
+因为实际除了预防盾这块，实 ...</blockquote>
+打了再说吧，200HL算是风人的劫难，你方阵不好过，老王一点东西没补照样也不好过
+
