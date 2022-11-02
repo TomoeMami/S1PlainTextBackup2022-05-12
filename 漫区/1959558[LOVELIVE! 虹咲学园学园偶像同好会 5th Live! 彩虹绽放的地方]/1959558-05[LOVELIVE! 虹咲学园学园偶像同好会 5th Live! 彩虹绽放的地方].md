@@ -1334,3 +1334,12 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 心态不是和第一季第三集的完全一致么，至于身体状况那是先天的那没辙。她可以淡出舞台但不该以这种方式 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦，之前观众那啥逼逼可不少的
 
+
+
+*****
+
+####  syj742  
+##### 6712#       发表于 2022-11-2 18:30
+
+还不如拉个新人，然后找个借口让雪菜退下和侑一样当策划算了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

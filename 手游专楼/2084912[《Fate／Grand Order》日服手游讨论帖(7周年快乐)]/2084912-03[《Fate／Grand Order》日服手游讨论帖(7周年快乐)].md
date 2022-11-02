@@ -3786,3 +3786,12 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 结果还真不开啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 3342#       发表于 2022-11-2 18:24
+
+强化幕间都减半 可以清一波了
+

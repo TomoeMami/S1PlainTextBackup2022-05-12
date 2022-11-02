@@ -3806,3 +3806,26 @@ Job 子倒是提到过这是些还没发布的 APP，大概是她自己 / 她老
 
 一个是从小就有DIY爱好的，现在都能自制手机的天才别扭小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  库德里尔  
+##### 302#       发表于 2022-11-2 18:31
+
+ 本帖最后由 库德里尔 于 2022-11-2 18:32 编辑 
+
+就我个人看到对结爱せるふ的译名：
+
+己（萌娘百科）
+
+予（Billion Meta Lab）
+
+自（B站）
+
+世瑠风（九九组）
+
+赛儿芙（wikipedia）
+
+晕了
+
