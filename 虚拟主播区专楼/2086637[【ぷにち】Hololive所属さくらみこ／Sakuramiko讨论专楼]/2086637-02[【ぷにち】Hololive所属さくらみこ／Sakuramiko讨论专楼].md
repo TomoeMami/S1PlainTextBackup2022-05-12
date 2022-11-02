@@ -13203,3 +13203,14 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 摆盘有点意思了
 
+
+
+*****
+
+####  rs5621  
+##### 2768#       发表于 2022-11-2 19:23
+
+<img src="https://p.sda1.dev/8/0408bc371a28cd226e7d7bbf1a13d357/CMP_20221102192302990.jpg" referrerpolicy="no-referrer">照骗！
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
