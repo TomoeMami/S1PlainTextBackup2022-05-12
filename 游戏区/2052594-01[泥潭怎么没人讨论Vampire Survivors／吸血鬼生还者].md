@@ -4788,3 +4788,37 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 死神是30分钟才会出场的啊</blockquote>
 难道是我选了高速模式？ 但是我看时间也才28分钟啊
 
+
+
+*****
+
+####  女神アイギス  
+##### 440#       发表于 2022-11-2 11:33
+
+<blockquote>wthall 发表于 2022-11-2 10:01
+问下怎么才能用斧头哥活过30分钟，新手问题，最高活到28分钟，突然冒出来个死神把我噶了。
+
+因为在挂 ...</blockquote>
+不要挂机，看着打，斧头哥除了自带一点诅咒之外并没有什么不同之处
+
+28分钟应该不会有死神的，可能是普通boss带霸体冲到你身上了
+
+*****
+
+####  otakun  
+##### 441#       发表于 2022-11-2 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58236001&amp;ptid=2052594" target="_blank">平等云雾 发表于 2022-11-2 09:48</a>
+话说那个贴图错乱的死神是什么鬼，没伤害没范围的，纯玩梗角色？</blockquote>
+贴图错误的死神你每次进选人界面他的属性都会变化，变化范围还有负数的。如果生命是负数，那么进图后就是无敌<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">。移动速度负数会上下左右颠倒移动，很有意思。
+
+*****
+
+####  椎名mahuyo  
+##### 442#       发表于 2022-11-2 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58236001&amp;ptid=2052594" target="_blank">平等云雾 发表于 2022-11-2 09:48</a>
+
+话说那个贴图错乱的死神是什么鬼，没伤害没范围的，纯玩梗角色？</blockquote>
+属性每把都随机 可能随机到很变态的属性
+

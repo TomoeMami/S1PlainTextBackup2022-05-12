@@ -1163,3 +1163,14 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 如果能对雪菜的人设进行改动，那就不会换声优了吧。说到底live上的雪菜也是一个由人扮演的人设，灯的压力也 ...</blockquote>
 改人设也不行，live总要开的。
 
+
+
+*****
+
+####  菱0零  
+##### 6695#       发表于 2022-11-2 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58237546&amp;ptid=1959558" target="_blank">仟音一心 发表于 2022-11-2 11:05</a>
+改人设也不行，live总要开的。</blockquote>
+是啊，偶像企划live是核心，声优也终归还是为角色服务，这种情况下没有两全的办法，也许从病情严重开始就注定有这一天了吧
+
