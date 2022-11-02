@@ -216,3 +216,12 @@
 情怀部分很好，但是这集作画从回去以后真的好烂啊，世界的参差吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">赶火车式剧情让整个女武神中队都脸谱化了，水月这什么知心老大姐，甚至介绍都是分批进行的，看来除了水月遥宗像其他人基本龙套了？管人就这种定位也好吧
 最后这集bpart除了个别片段一直都是迷之昂扬乃至轻松愉快的氛围，配上大量女角色感觉在看奇怪的龙傲天后宫番，虽然好像确实如此啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1975#       发表于 2022-11-3 06:46
+
+壊灭的な作画…
+
