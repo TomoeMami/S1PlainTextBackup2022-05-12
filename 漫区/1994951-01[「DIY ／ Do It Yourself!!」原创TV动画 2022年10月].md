@@ -3790,3 +3790,19 @@ Job 子倒是提到过这是些还没发布的 APP，大概是她自己 / 她老
 
 追番传送门：[https://www.bilibili.com/bangumi/play/ss43155](https://www.bilibili.com/bangumi/play/ss43155) 
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 301#       发表于 2022-11-2 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58227558&amp;ptid=1994951" target="_blank">Yeaha123 发表于 2022-11-1 18:44</a>
+
+人人都看不起diy的世界观，竟然还有厂家生产diy工具</blockquote>
+没有人人看不起DIY的世界观吧，现有说看不起DIY的就两个：
+
+一个擅长精细活，目标产业升级的蹭的累高材生
+
+一个是从小就有DIY爱好的，现在都能自制手机的天才别扭小鬼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
