@@ -14583,3 +14583,15 @@ MAGICUS
 
 这游戏有些设计纯粹是有病，第二章我把木骷髅扔湖里选错了，去商店重新买一个骷髅居然要1000块钱
 
+
+
+*****
+
+####  管住键政的手  
+##### 1320#       发表于 2022-11-2 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58246370&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-2 20:20</a>
+
+神之天平这终章的几个boss战力设计的还挺合理的，几个科技就是比前面的几个神难打，怪不得能弑神 ...</blockquote>
+终章最难打的不是女神本人嘛。
+
