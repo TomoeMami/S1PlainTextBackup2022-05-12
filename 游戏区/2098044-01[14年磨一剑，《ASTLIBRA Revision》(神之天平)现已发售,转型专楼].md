@@ -14669,3 +14669,12 @@ MAGICUS
 
 —— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  otakun  
+##### 1327#       发表于 2022-11-3 00:09
+
+一晚上把连续把贤者塔，地下，井下的boss 都干掉了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，十分刺激，可以开始打第八章了。游戏里是一共六个这种隐藏boss 吗
+

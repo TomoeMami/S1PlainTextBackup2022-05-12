@@ -1012,3 +1012,15 @@ ONCE MORE SMILE, TWICE MORE CHIME
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我咋记得有资源的啊
 
+
+
+*****
+
+####  starring  
+##### 9076#       发表于 2022-11-3 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58248818&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-11-2 23:23</a>
+
+不知为何找不到跨年bdrip的资源………………tsdm也找不到，想回味一下我咋记得有资源的啊 ...</blockquote>
+当初存了一份提取版，私信了
+
