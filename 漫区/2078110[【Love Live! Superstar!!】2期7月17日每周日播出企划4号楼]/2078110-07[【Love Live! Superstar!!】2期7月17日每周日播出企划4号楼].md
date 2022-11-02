@@ -428,3 +428,12 @@ Liyuu【TRUE FOOL LOVE】弦乐四重奏cover 夫妇以上，恋人未满 OP
 商业成绩上倒觉得还好吧，糊不糊的倒是都凑合过
 我觉得看拉拉看到现在，尤其是主要推星的，在乎商业成绩就很怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 9045#       发表于 2022-11-2 10:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最骚的贷款：星要真的有毕业，可能只搞表面的角色毕业，中之人还担角色音声，但是没有团体歌舞live了，每年生日出solo碟收米；时不时当广播生放的嘉宾营造一种团内大前辈回来看后辈的氛围。
+
