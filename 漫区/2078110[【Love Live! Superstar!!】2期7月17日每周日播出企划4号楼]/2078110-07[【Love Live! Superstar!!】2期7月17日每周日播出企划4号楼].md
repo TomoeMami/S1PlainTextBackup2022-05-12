@@ -766,3 +766,15 @@ ONCE MORE SMILE, TWICE MORE CHIME
 
 2022-11-2 13:52 上传
 
+
+
+*****
+
+####  ruffian  
+##### 9061#       发表于 2022-11-2 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58239221&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-02 12:45:05</a>
+这会导致脚小？</blockquote>不是，扁平足是足弓塌陷，也没啥，可能比较容易驼背，然后久站步行更容易累受伤的风险更大点
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
