@@ -367,3 +367,12 @@
 
 我查了英文wiki，的确有这个说明。
 
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17166#       发表于 2022-11-2 12:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正团战boss平A是aoe 该重铸bba荣光了
+
