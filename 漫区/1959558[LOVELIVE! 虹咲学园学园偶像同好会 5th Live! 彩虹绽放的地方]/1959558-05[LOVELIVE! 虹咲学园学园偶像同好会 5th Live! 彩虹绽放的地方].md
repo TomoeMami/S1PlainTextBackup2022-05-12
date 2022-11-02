@@ -1234,3 +1234,15 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 中岛由贵加入的话爱马仕，邦邦，LL三大企划全有了。</blockquote>
 还有PJSK
 
+
+
+*****
+
+####  hijack997  
+##### 6702#       发表于 2022-11-2 13:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58239562&amp;ptid=1959558" target="_blank">makece 发表于 2022-11-2 13:10</a>
+
+还有PJSK</blockquote>
+只差赛马娘就全满贯了。
+
