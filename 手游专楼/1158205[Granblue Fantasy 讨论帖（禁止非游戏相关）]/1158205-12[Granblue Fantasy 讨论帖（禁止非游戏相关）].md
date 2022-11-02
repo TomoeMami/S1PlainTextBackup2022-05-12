@@ -293,3 +293,44 @@
 因为实际除了预防盾这块，实 ...</blockquote>
 打了再说吧，200HL算是风人的劫难，你方阵不好过，老王一点东西没补照样也不好过
 
+
+
+*****
+
+####  Sylpheed  
+##### 17161#       发表于 2022-11-2 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58235858&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2022-11-2 09:41</a>
+我觉得紫苑这角色如果看做防御也太弱了。也恰恰说明风现在存在的生存难题。
+
+因为实际除了预防盾这块，实 ...</blockquote>
+兄弟，盘子的扣血是强制的，死祝不能变回血，方阵200带猫琴等于紫砂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Sylpheed  
+##### 17162#       发表于 2022-11-2 10:34
+
+ 本帖最后由 Sylpheed 于 2022-11-2 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58235858&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2022-11-2 09:41</a>
+
+我觉得紫苑这角色如果看做防御也太弱了。也恰恰说明风现在存在的生存难题。
+
+因为实际除了预防盾这块，实 ...</blockquote>还有你后备放皇帝想回血也是没用的，皇帝逆位有DB给的是独立<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  phoenixxj  
+##### 17163#       发表于 2022-11-2 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58236768&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2022-11-2 10:27</a>
+
+兄弟，盘子的扣血是强制的，死祝不能变回血，方阵200带猫琴等于紫砂
+
+—— 来自 Sony J9110, Andr ...</blockquote>
+1、我还没有。
+
+2、纳尼这不科学，这种回合扣血为啥不是死祝对象！
+

@@ -437,3 +437,28 @@ Liyuu【TRUE FOOL LOVE】弦乐四重奏cover 夫妇以上，恋人未满 OP
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最骚的贷款：星要真的有毕业，可能只搞表面的角色毕业，中之人还担角色音声，但是没有团体歌舞live了，每年生日出solo碟收米；时不时当广播生放的嘉宾营造一种团内大前辈回来看后辈的氛围。
 
+
+
+*****
+
+####  nufawneafg  
+##### 9046#       发表于 2022-11-2 10:36
+
+ 本帖最后由 nufawneafg 于 2022-11-2 10:38 编辑 
+
+那和现在区别不大吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只不过现在是换个团名不明着搞角色毕业而已
+
+*****
+
+####  优妮可  
+##### 9047#       发表于 2022-11-2 10:41
+
+<img src="https://img.saraba1st.com/forum/202211/02/104103d1ptauo3l3zejkra.jpg" referrerpolicy="no-referrer">
+
+<strong>20221102_104012.jpg</strong> (269.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-2 10:41 上传
+
