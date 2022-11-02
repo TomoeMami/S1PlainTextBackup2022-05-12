@@ -778,3 +778,14 @@ ONCE MORE SMILE, TWICE MORE CHIME
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  蒸汽投石BuBu車  
+##### 9062#       发表于 2022-11-2 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58220635&amp;ptid=2078110" target="_blank">adw667 发表于 2022-11-1 11:59</a>
+得亏这是个积极向上的动画，不然搁现实里一个对着大赛口出狂言被冠军队打败的选手第二年宣布加入冠 ...</blockquote>
+打不过就加入<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
