@@ -14678,3 +14678,31 @@ MAGICUS
 
 一晚上把连续把贤者塔，地下，井下的boss 都干掉了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，十分刺激，可以开始打第八章了。游戏里是一共六个这种隐藏boss 吗
 
+
+
+*****
+
+####  蓝雉  
+##### 1328#         楼主| 发表于 2022-11-3 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58249406&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-3 00:09</a>
+一晚上把连续把贤者塔，地下，井下的boss 都干掉了，十分刺激，可以开始打第八章了。游戏里是一共六 ...</blockquote>
+是的
+
+*****
+
+####  何处分可  
+##### 1329#       发表于 2022-11-3 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58248065&amp;ptid=2098044" target="_blank">管住键政的手 发表于 2022-11-2 22:25</a>
+
+终章最难打的不是女神本人嘛。</blockquote>
+女神本人不难啊，乱杀。难度我觉得不如锁女神的机器
+
+*****
+
+####  何处分可  
+##### 1330#       发表于 2022-11-3 00:20
+
+装备盘这个设计简直天才，既扩展了装备能力还提供了一个巨大空间的可刷因素<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
