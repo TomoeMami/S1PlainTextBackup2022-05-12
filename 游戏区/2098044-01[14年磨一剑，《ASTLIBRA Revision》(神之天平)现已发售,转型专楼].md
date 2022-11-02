@@ -14717,3 +14717,12 @@ MAGICUS
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  adw667  
+##### 1332#       发表于 2022-11-3 00:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能量吸收天克遗迹兵啊，玩好了跟充电宝似的
+
