@@ -3130,3 +3130,16 @@ OP展示了这俩人从出生一直玩到成年，大概是认为这样你们就
 
 结局莫名其妙
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 287#       发表于 2022-11-2 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58235561&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-11-2 09:22</a>
+那腰带的设定很意味不明，按照剧情这片的怪人都是生物改造，是异变，根本不该存在科技系的腰带 ...</blockquote>
+我只能自己脑补为女主在墓碑那里拿到的研究资料里有腰带的相关资料，然后联合手搓出来一个
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

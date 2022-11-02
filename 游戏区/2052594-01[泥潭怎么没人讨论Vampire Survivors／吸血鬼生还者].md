@@ -4776,3 +4776,15 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 因为在挂 ...</blockquote>
 死神是30分钟才会出场的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wthall  
+##### 439#       发表于 2022-11-2 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58237450&amp;ptid=2052594" target="_blank">Bhagavan 发表于 2022-11-2 11:01</a>
+
+死神是30分钟才会出场的啊</blockquote>
+难道是我选了高速模式？ 但是我看时间也才28分钟啊
+
