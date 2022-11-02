@@ -3174,3 +3174,17 @@ OP展示了这俩人从出生一直玩到成年，大概是认为这样你们就
 一方面不想在剧情里推销商品，一方面万代又还还要卖CSM腰带，卖皮套人SHF和可动食玩，不知所谓 ...</blockquote>
 csm和shf这种商品就是收割核心粉圈的，无论怎么不走心那群人都会买
 
+
+
+*****
+
+####  米列希安  
+##### 291#       发表于 2022-11-2 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58240170&amp;ptid=2075178" target="_blank">浅川雏羽 发表于 2022-11-2 13:50</a>
+
+csm和shf这种商品就是收割核心粉圈的，无论怎么不走心那群人都会买</blockquote>
+我在的群里那个检证特摄佬看完表示很乐呵检证的很开心但CSM直接不打算买了
+
+他本来CSM都打算预定的
+
