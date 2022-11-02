@@ -13248,3 +13248,27 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 而且夸游还有正式版和体验版的区分体验版没有选项
 
+
+
+*****
+
+####  holoan  
+##### 2773#         楼主| 发表于 2022-11-2 20:15
+
+<img src="https://img.saraba1st.com/forum/202211/02/201439dmzxdfqvntbrrqcr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (8.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-2 20:14 上传
+
+最优秀的观众：主动学习理解主播的语言
+
+*****
+
+####  rs5621  
+##### 2774#       发表于 2022-11-2 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">miko的日语很好？真的假的。
+

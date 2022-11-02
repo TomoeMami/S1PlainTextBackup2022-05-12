@@ -452,3 +452,20 @@ nrk这新衣装设计思路源于黑色婚纱啊
 
 为什么VTA两周都无事发生的样子开心过万圣，真的除了三期追加招募外没点别的发表吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kokichi  
+##### 17675#       发表于 2022-11-2 20:13
+
+<img src="https://p.sda1.dev/8/76637b9b1c8c03bc6a97932f070879b1/CMP_20221102211206236.jpg" referrerpolicy="no-referrer">
+omg……
+
+*****
+
+####  FCCHua  
+##### 17676#       发表于 2022-11-2 20:18
+
+终究还是参加了，两眼一黑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

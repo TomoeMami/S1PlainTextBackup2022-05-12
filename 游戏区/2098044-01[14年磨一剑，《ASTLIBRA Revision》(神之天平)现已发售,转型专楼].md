@@ -14565,3 +14565,12 @@ MAGICUS
 本区域怪都有可能掉</blockquote>
 已经出了，感谢！
 
+
+
+*****
+
+####  何处分可  
+##### 1318#       发表于 2022-11-2 20:20
+
+神之天平这终章的几个boss战力设计的还挺合理的，几个科技就是比前面的几个神难打，怪不得能弑神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
