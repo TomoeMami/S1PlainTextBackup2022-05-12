@@ -3719,3 +3719,43 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 肯定无缝长草啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3334#       发表于 2022-11-2 17:05
+
+居然没开回忆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3335#       发表于 2022-11-2 17:05
+
+2.6回顾居然不开，下个活动都叫妖精骑士杯了为什么不开2.6回顾
+
+*****
+
+####  alucardcz  
+##### 3336#       发表于 2022-11-2 17:07
+
+虽然没26回忆 但王姐又复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3337#       发表于 2022-11-2 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58243236&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-11-2 17:05</a>
+
+2.6回顾居然不开，下个活动都叫妖精骑士杯了为什么不开2.6回顾</blockquote>
+虽然不开但是王姐还是复刻了
+
+*****
+
+####  qixinno2  
+##### 3338#       发表于 2022-11-2 17:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 王姐又复刻了
+

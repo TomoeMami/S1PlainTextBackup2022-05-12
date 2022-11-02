@@ -14467,3 +14467,36 @@ ex boss给的装备精通后给石头，石头合成变成变石，变石在面�
 3Q,宝箱是这个区域所有怪都有可能掉吧？</blockquote>
 本区域怪都有可能掉
 
+
+
+*****
+
+####  A1LI  
+##### 1310#       发表于 2022-11-2 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58234272&amp;ptid=2098044" target="_blank">苏西踩我了 发表于 2022-11-2 05:05</a>
+
+简单写个攻略，1，游戏全收集时长约60个小时。共有序章，12345678章，终章，以上也称一周目。
+
+以及新章，也 ...</blockquote>
+不对吧，电池那把剑喂完爱情然后去酒馆聊个天就给了啊，装备上直接刷出来就有了，怎么还真二周目……
+
+*****
+
+####  lazycat233  
+##### 1311#       发表于 2022-11-2 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58235766&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-11-02 09:35:47</a>
+跑去玩作者的手游了，没刷爱情，今天一定要看真结局</blockquote>作者的手游是啥
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  管住键政的手  
+##### 1312#       发表于 2022-11-2 17:07
+
+<blockquote>索非亚 发表于 2022-11-2 11:04
+这装备盘替换是3选1随机的么？好像没看到能挪位置的键</blockquote>
+随机，不能换位。
+

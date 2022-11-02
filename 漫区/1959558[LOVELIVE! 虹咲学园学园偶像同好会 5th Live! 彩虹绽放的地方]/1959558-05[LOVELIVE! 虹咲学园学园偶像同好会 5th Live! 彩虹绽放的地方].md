@@ -1311,3 +1311,14 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 
 新声优估计还是SMA的吧。
 
+
+
+*****
+
+####  HACHIMAN  
+##### 6710#       发表于 2022-11-2 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58241801&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-2 15:37</a>
+有一点还是要说下，现在问&amp;# ...</blockquote>
+心态不是和第一季第三集的完全一致么，至于身体状况那是先天的那没辙。她可以淡出舞台但不该以这种方式
+

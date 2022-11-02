@@ -863,3 +863,14 @@ ONCE MORE SMILE, TWICE MORE CHIME
 
 2022-11-2 16:53 上传
 
+
+
+*****
+
+####  player3960  
+##### 9068#       发表于 2022-11-2 17:11
+
+鲤鱼三单首日O榜第五，没出数字，等周榜了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
