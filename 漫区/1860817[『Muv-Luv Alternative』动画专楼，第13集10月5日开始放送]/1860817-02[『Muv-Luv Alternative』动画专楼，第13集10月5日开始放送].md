@@ -133,3 +133,86 @@
 
 纯夏和冥夜二选一我是真的选不出来
 
+
+
+*****
+
+####  jerryoq1  
+##### 1967#       发表于 2022-11-3 02:21
+
+ 本帖最后由 jerryoq1 于 2022-11-3 02:51 编辑 
+
+前七分钟差不多和解了，纯夏出场也还行，大尉做中队介绍的时候其他人小崩，207b食堂全崩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 祭拜小麻时又还行
+
+管人和白川美乃莉人设挺类似的 原以为能凑点关系的 
+
+*****
+
+####  nt2013  
+##### 1968#       发表于 2022-11-3 02:55
+
+虽然说看到快从银幕消失了20年的角色回归很高兴 但是鸡总的心眼也太小了吧 人栗林也唱了op 就不能让人配回原来的角色么<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  再买自检星剁手  
+##### 1969#       发表于 2022-11-3 02:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58250290&amp;ptid=1860817" target="_blank">nt2013 发表于 2022-11-3 02:55</a>
+虽然说看到快从银幕消失了20年的角色回归很高兴 但是鸡总的心眼也太小了吧 人栗林也唱了op 就不能让人配回 ...</blockquote>
+尽量选新生代是资方要求的啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，这锅不在他身上
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  再买自检星剁手  
+##### 1970#       发表于 2022-11-3 02:57
+
+风怒
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  再买自检星剁手  
+##### 1971#       发表于 2022-11-3 03:01
+
+ 本帖最后由 再买自检星剁手 于 2022-11-3 03:05 编辑 
+
+偷电环节居然用上了原版BGM，那樱花作战就能期待未来への咆哮了
+
+就是大段情节只能听声音，脸崩得没法看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+新生代声音那是挺还原的，只可惜作画太寒酸<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+下面的分镜不明白为什么白银会是这个表情<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/8/f08f9a60efb91ed48f2432084e1614b5/CMP_20221103030430183.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  再买自检星剁手  
+##### 1972#       发表于 2022-11-3 03:36
+
+<img src="https://p.sda1.dev/8/a13be2eed318daf0710f373993c81f03/CMP_20221103033556937.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  KOPKOM  
+##### 1973#         楼主| 发表于 2022-11-3 03:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一直觉得狐狸和武爷这对挺好磕的，不择手段的腹黑天才配上傻白甜肌肉硬汉，所以从以前就坚信TDA是UN狐狸线的后续
+
+*****
+
+####  菱0零  
+##### 1974#       发表于 2022-11-3 05:36
+
+情怀部分很好，但是这集作画从回去以后真的好烂啊，世界的参差吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">赶火车式剧情让整个女武神中队都脸谱化了，水月这什么知心老大姐，甚至介绍都是分批进行的，看来除了水月遥宗像其他人基本龙套了？管人就这种定位也好吧
+最后这集bpart除了个别片段一直都是迷之昂扬乃至轻松愉快的氛围，配上大量女角色感觉在看奇怪的龙傲天后宫番，虽然好像确实如此啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -14726,3 +14726,12 @@ MAGICUS
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能量吸收天克遗迹兵啊，玩好了跟充电宝似的
 
+
+
+*****
+
+####  baizhi  
+##### 1333#       发表于 2022-11-3 02:28
+
+点出能量吸收别说区区遗迹兵了，天克所有boss。后期boss那离谱的弹幕量，开个冷弹凭依技当加血包。
+
