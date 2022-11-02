@@ -3248,3 +3248,17 @@ OST：
 
 唯一办法就是纯属当成背景板，然后讲自己的小故事
 
+
+
+*****
+
+####  扑克脸军曹  
+##### 297#       发表于 2022-11-2 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58221816&amp;ptid=2075178" target="_blank">wingzerocos 发表于 2022-11-1 13:08</a>
+感觉是先在体内埋了变身器，再埋石头进变身器。
+不知道为啥他俩（加螳螂）能变身器外现，不过既然腰带出 ...</blockquote>
+前面随随便便拿出来，最后信彦拿给光太郎又好像自残一样掏出来，着实有点让人摸不着头脑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
