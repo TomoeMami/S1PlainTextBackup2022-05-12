@@ -334,3 +334,20 @@
 
 2、纳尼这不科学，这种回合扣血为啥不是死祝对象！
 
+
+
+*****
+
+####  Sylpheed  
+##### 17164#       发表于 2022-11-2 10:42
+
+ 本帖最后由 Sylpheed 于 2022-11-2 10:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58236980&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2022-11-2 10:38</a>
+
+1、我还没有。
+
+2、纳尼这不科学，这种回合扣血为啥不是死祝对象！</blockquote>
+能解释的就是机制不同，盘子扣血不属于dot<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+同属于盘子的大马杖朱雀琴之流也是一样不能被死祝转换的
+

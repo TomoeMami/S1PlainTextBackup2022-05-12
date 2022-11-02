@@ -244,3 +244,14 @@ C9这队伍是真的没指望，乐、若、霍总有1-2个，是拉的没边的
 
 哈哈，我赛前确实不看好00，但没敢选
 
+
+
+*****
+
+####  Rainwedell  
+##### 2657#       发表于 2022-11-2 10:44
+
+作业应该g了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
