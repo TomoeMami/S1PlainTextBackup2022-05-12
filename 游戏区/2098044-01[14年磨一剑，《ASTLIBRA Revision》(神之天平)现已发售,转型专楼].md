@@ -14553,3 +14553,15 @@ MAGICUS
 也不能这么说，勇者四人队和群星这两场还是需要操作的</blockquote>
 换成盾猛加贯射 继续一键
 
+
+
+*****
+
+####  浴缸子  
+##### 1317#       发表于 2022-11-2 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58242906&amp;ptid=2098044" target="_blank">苏西踩我了 发表于 2022-11-2 16:45</a>
+
+本区域怪都有可能掉</blockquote>
+已经出了，感谢！
+
