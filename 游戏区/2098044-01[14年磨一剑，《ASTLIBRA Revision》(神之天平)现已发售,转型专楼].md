@@ -14500,3 +14500,19 @@ ex boss给的装备精通后给石头，石头合成变成变石，变石在面�
 这装备盘替换是3选1随机的么？好像没看到能挪位置的键</blockquote>
 随机，不能换位。
 
+
+
+*****
+
+####  quanlix  
+##### 1313#       发表于 2022-11-2 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58243207&amp;ptid=2098044" target="_blank">lazycat233 发表于 2022-11-2 17:03</a>
+
+作者的手游是啥
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+MAGICUS
+
+三消rpg，日区谷歌商店360日元
+

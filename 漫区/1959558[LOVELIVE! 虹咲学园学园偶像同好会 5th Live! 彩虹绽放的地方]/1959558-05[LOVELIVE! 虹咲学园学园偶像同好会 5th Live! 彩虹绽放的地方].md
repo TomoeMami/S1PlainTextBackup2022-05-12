@@ -1322,3 +1322,15 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 有一点还是要说下，现在问&amp;# ...</blockquote>
 心态不是和第一季第三集的完全一致么，至于身体状况那是先天的那没辙。她可以淡出舞台但不该以这种方式
 
+
+
+*****
+
+####  星踪幻影  
+##### 6711#       发表于 2022-11-2 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58243321&amp;ptid=1959558" target="_blank">HACHIMAN 发表于 2022-11-2 17:10</a>
+
+心态不是和第一季第三集的完全一致么，至于身体状况那是先天的那没辙。她可以淡出舞台但不该以这种方式 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦，之前观众那啥逼逼可不少的
+
