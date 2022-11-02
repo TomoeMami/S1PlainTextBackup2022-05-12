@@ -684,3 +684,24 @@ ONCE MORE SMILE, TWICE MORE CHIME
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58238990&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-2 12:29</a></blockquote>
 红毛衣这张真的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 9055#       发表于 2022-11-2 12:45
+
+<blockquote>ruffian 发表于 2022-11-2 12:30
+鱼是不是有点扁平足？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+这会导致脚小？
+
+*****
+
+####  emmer  
+##### 9056#       发表于 2022-11-2 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58238705&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-2 12:11</a></blockquote>
+红色毛衣这张有点像约尔啊
+
