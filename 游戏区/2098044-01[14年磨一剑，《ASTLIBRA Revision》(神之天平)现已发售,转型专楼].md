@@ -14455,3 +14455,15 @@ ex boss给的装备精通后给石头，石头合成变成变石，变石在面�
 
 不想后面紫盘冲突的话比较好的做法是非当前用装备的盘子不紫甚至是不满意不放 这样的话可以保证3盘都是比较厉害的水准（然而没有必要）
 
+
+
+*****
+
+####  苏西踩我了  
+##### 1309#       发表于 2022-11-2 16:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58236425&amp;ptid=2098044" target="_blank">浴缸子 发表于 2022-11-2 10:09</a>
+
+3Q,宝箱是这个区域所有怪都有可能掉吧？</blockquote>
+本区域怪都有可能掉
+
