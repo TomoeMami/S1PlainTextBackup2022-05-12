@@ -351,3 +351,19 @@
 
 同属于盘子的大马杖朱雀琴之流也是一样不能被死祝转换的
 
+
+
+*****
+
+####  phoenixxj  
+##### 17165#       发表于 2022-11-2 10:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58237043&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2022-11-2 10:42</a>
+
+能解释的就是机制不同，盘子扣血不属于dot
+
+同属于盘子的大马杖朱雀琴之流也是一样不能被死祝转换的 ...</blockquote>
+理解了
+
+我查了英文wiki，的确有这个说明。
+

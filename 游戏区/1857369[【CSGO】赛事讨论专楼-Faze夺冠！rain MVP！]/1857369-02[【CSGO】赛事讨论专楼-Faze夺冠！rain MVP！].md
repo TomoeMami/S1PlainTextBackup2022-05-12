@@ -255,3 +255,22 @@ C9这队伍是真的没指望，乐、若、霍总有1-2个，是拉的没边的
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Niyah  
+##### 2658#       发表于 2022-11-2 10:51
+
+若大厦这追赛点的发挥可太疯狂了
+
+*****
+
+####  我开P918  
+##### 2659#       发表于 2022-11-2 10:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58220876&amp;ptid=1857369" target="_blank">ml1642879 发表于 2022-11-1 12:12</a>
+
+第二轮不敢抄玩机器作业了</blockquote>
+第一轮我也抄了，不过仔细想想，GL，小蜜蜂和C9，正常人都翻车吧
+

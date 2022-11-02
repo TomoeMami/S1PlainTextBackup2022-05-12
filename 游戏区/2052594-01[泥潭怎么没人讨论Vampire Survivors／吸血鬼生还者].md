@@ -4762,3 +4762,17 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 
 这游戏有毒 时间流逝的贼快，吓得我赶紧删了。
 
+
+
+*****
+
+####  Bhagavan  
+##### 438#       发表于 2022-11-2 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58236262&amp;ptid=2052594" target="_blank">wthall 发表于 2022-11-2 10:01</a>
+
+问下怎么才能用斧头哥活过30分钟，新手问题，最高活到28分钟，突然冒出来个死神把我噶了。
+
+因为在挂 ...</blockquote>
+死神是30分钟才会出场的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
