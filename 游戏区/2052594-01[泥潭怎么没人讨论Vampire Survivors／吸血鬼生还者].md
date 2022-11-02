@@ -4836,3 +4836,19 @@ boss会没收塔罗牌和金蛋，也没有宝箱进化，我是用狼人打的�
 
 大概是挂机突然暴毙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wthall  
+##### 444#       发表于 2022-11-2 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58238111&amp;ptid=2052594" target="_blank">女神アイギス 发表于 2022-11-2 11:33</a>
+
+不要挂机，看着打，斧头哥除了自带一点诅咒之外并没有什么不同之处
+
+28分钟应该不会有死神的，可能是普通b ...</blockquote>
+挂机就会刷死神吗？
+
+我清楚的记得我第一次见到死神是17分钟，在第三张图，突然就冒出来把我杀了， 高速秒杀。
+
