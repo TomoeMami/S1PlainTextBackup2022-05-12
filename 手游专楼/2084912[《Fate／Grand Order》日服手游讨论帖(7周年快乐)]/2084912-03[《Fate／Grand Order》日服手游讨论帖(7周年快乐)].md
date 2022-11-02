@@ -3671,3 +3671,12 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 凎，活动今天结束了？我商店居然还没搬空商店？是这回商店东西多了还是我掉落礼装带少了，以往这种活动不是应该自然回体就能搬空的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3329#       发表于 2022-11-2 09:55
+
+这次90++的掉落真的少，破逼活动点数也抠掉落数也抠
+
