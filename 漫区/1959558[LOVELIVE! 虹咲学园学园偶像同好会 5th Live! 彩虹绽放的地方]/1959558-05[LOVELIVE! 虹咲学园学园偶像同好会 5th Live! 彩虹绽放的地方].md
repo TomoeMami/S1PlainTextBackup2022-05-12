@@ -1268,3 +1268,21 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 换人无非就是运营草台的另一种体现罢了。说来这个企划角色和声优早已高度融合你换人无异于直接杀死这个角色 ...</blockquote>
 有一点还是要说下，现在问题就是灯无法高度融合雪菜这角色了。除非改人设以及轮椅战神<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 6705#       发表于 2022-11-2 15:44
+
+资本不会创造内容，资本只是对内容进行包装和推广
+
+希望复读之前搞清楚这件事情
+
+*****
+
+####  yevvet  
+##### 6706#       发表于 2022-11-2 15:49
+
+千春咋样。不算新人也不算老人，长得好看，有偶像经验，武士道关系户，缺作品、擅长燃曲。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
