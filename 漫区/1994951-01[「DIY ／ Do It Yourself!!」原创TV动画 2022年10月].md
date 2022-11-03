@@ -3923,3 +3923,22 @@ DIY 社顺利地收集着制作『秘密基地』的材料。
 Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加机翻整出来的（不然怎么可能 翻译 校对 打 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">栩栩如生不就是说是人造品的意思吗
 
+
+
+*****
+
+####  renkan119  
+##### 310#       发表于 2022-11-3 21:17
+
+B站第一话上线了 看开头是东电代理感觉糟了 东电在隔壁达伊里连金属人碎了都要打码的…
+
+*****
+
+####  101stroad  
+##### 311#       发表于 2022-11-3 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261770&amp;ptid=1994951" target="_blank">renkan119 发表于 2022-11-3 21:17</a>
+
+B站第一话上线了 看开头是东电代理感觉糟了 东电在隔壁达伊里连金属人碎了都要打码的… ...</blockquote>
+切手的镜头被cut了，连血都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

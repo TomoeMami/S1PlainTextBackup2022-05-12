@@ -15299,3 +15299,29 @@ MAGICUS
 —— 来自 Xiaomi M2011K2C, Android 11 ...</blockquote>
 但第八章开头主城那里嘉隆老师叫我别管边界外的怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1380#       发表于 2022-11-3 21:17
+
+打完湿地才入手雷帐 这空挥几下才能命中怪么
+我以为会自动劈到怪
+
+
+
+*****
+
+####  管住键政的手  
+##### 1381#       发表于 2022-11-3 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261434&amp;ptid=2098044" target="_blank">弯弓射山猪 发表于 2022-11-3 20:44</a>
+
+请问怎么加点？
+
+全加幸运感觉打怪逐渐打不动了
+
+第二章了</blockquote>
+砍不动就补攻，等升几级觉得砍起来轻松了再补回幸运，洗点非常简单也没成本。
+
