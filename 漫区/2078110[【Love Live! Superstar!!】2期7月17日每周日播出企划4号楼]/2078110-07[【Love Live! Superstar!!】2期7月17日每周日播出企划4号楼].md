@@ -1089,3 +1089,27 @@ ONCE MORE SMILE, TWICE MORE CHIME
   -- 来自 有 ...</blockquote>
 我也是扁平足，四舍五入我跟鲤鱼贴贴
 
+
+
+*****
+
+####  ruffian  
+##### 9082#       发表于 2022-11-3 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58253137&amp;ptid=2078110" target="_blank">emmer 发表于 2022-11-03 11:01:02</a>
+我也是扁平足，四舍五入我跟鲤鱼贴贴</blockquote>等等，我是疑问句啊，没说鱼是啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  emmer  
+##### 9083#       发表于 2022-11-3 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58253403&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-11-3 11:16</a>
+
+等等，我是疑问句啊，没说鱼是啊
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+管他呢，扁平足贴得更近
+

@@ -3911,3 +3911,15 @@ DIY 社顺利地收集着制作『秘密基地』的材料。
 
 这个新人身体有点强悍，上树那段作画比好多战斗番都要好看
 
+
+
+*****
+
+####  pzk  
+##### 309#       发表于 2022-11-3 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58248528&amp;ptid=1994951" target="_blank">嘴上名作粉碎锤 发表于 2022-11-2 23:00</a>
+
+Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加机翻整出来的（不然怎么可能 翻译 校对 打 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">栩栩如生不就是说是人造品的意思吗
+
