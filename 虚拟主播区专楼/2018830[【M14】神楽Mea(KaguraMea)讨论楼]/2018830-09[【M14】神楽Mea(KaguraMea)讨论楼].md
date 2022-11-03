@@ -8672,3 +8672,15 @@ mc大逃杀还行，有点意思。
 —— 来自 S1Fun</blockquote>
 天开司后面补了条推特说未来明因为身体不适缺席，所以他的搭档可能一开始定的是未来明吧
 
+
+
+*****
+
+####  gongge666  
+##### 12822#       发表于 2022-11-3 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58258062&amp;ptid=2018830" target="_blank">路人庚 发表于 2022-11-3 16:47</a>
+
+你咩姐竟然在游戏联动里开窗</blockquote>
+以前大多都是朋友一起玩，吧人气全引流很正常，这次关系没这么好自己开台
+

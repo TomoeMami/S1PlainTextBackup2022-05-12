@@ -3908,3 +3908,19 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 丑旧怒战6宝也是无事发生，nmd为什么
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3354#       发表于 2022-11-3 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58259136&amp;ptid=2084912" target="_blank">廖化 发表于 2022-11-3 17:57</a>
+
+我抽卡回来了.jpg
+
+李庄狗到了日服还是李庄狗……</blockquote>
+李庄人觉得很淦<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+顺带一提很久没抽到up的五星礼装了，连续两次活动没氪金加成了
+
