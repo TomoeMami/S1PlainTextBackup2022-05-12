@@ -9306,3 +9306,19 @@ UCG这打分感觉特严格的给了10，游民给9.5，也是少见
 
 怎么都在提剧情，听测评怎么感觉犯了游戏王arc-v的毛病
 
+
+
+*****
+
+####  糖然君  
+##### 969#       发表于 2022-11-4 01:06
+
+好急<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  SergeGlenn  
+##### 970#       发表于 2022-11-4 01:07
+
+这游戏PS5的画面提升明显不如地平线2
+
