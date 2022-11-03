@@ -9221,3 +9221,33 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58260263&amp;ptid=2025548" target="_blank">Kojimaru 发表于 2022-11-3 19:22</a></blockquote>
 HFR是什么意思？
 
+
+
+*****
+
+####  宫本喵  
+##### 961#       发表于 2022-11-4 00:05
+
+A9都只给了9.5，对剧情和演出有点担心了
+
+*****
+
+####  Piano-Forest  
+##### 962#         楼主| 发表于 2022-11-4 00:06
+
+IGN 10：
+[https://www.ign.com/articles/god-of-war-ragnarok-review](https://www.ign.com/articles/god-of-war-ragnarok-review)
+
+GS 9：
+[https://www.gamespot.com/reviews ... -tyrs/1900-6417993/](https://www.gamespot.com/reviews/god-of-war-ragnarok-review-blood-sweat-and-tyrs/1900-6417993/)
+
+MC 94 63评：
+[https://www.metacritic.com/game/playstation-5/god-of-war-ragnarok](https://www.metacritic.com/game/playstation-5/god-of-war-ragnarok)
+
+*****
+
+####  kuker53  
+##### 963#       发表于 2022-11-4 00:10
+
+这IGN GS和MC，好像和一代完全一致
+
