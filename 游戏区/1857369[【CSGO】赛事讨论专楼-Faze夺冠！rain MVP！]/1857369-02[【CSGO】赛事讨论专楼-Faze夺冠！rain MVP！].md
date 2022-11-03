@@ -367,3 +367,15 @@ og倒也没那么强，我个人感觉是他们ct很多细节处理都不太行�
 借楼问下最近除了打bot经常vac断连，刚跟朋友打搭档又被断连登上去已经竞技冷却24小时了，有啥解决方法吗？ ...</blockquote>
 出现这个可能是各种问题，我有一次遇到，过了一个月自动好了
 
+
+
+*****
+
+####  Niyah  
+##### 2669#       发表于 2022-11-3 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58259113&amp;ptid=1857369" target="_blank">六道仙鱼 发表于 2022-11-3 17:55</a>
+
+出现这个可能是各种问题，我有一次遇到，过了一个月自动好了</blockquote>
+感谢，我用了两个命令提示符的方法修好了，好像是steam的问题
+

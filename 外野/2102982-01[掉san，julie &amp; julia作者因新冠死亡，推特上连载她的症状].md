@@ -1149,3 +1149,36 @@ https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg</blockquote>
 
 just a flu
 
+
+
+*****
+
+####  Vzero  
+##### 108#       发表于 2022-11-3 22:08
+
+哎等下，不是说症状不如流感，几天自己就会好的呢？
+
+*****
+
+####  不想活  
+##### 109#       发表于 2022-11-3 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261835&amp;ptid=2102982" target="_blank">痴货 发表于 2022-11-3 21:20</a>
+
+几个知名西媒都报道了这个作者的死讯，然而死亡原因只字未提，这都是事先串好词了吧，属实不利于共 ...</blockquote>
+南+上的加南大共存派意思是都是小问题
+
+反而是微博的防疫爱好者老是抓外国个例放大<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  HZLJ  
+##### 110#       发表于 2022-11-3 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261835&amp;ptid=2102982" target="_blank">痴货 发表于 2022-11-3 21:20</a>
+
+几个知名西媒都报道了这个作者的死讯，然而死亡原因只字未提，这都是事先串好词了吧，属实不利于共 ...</blockquote>
+确实，看了一圈CNN, CBS, MSNBC，全是讲Julie死了，生前出书如何如何，死因只字未提
+
+属实不利于共存的不要发<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
