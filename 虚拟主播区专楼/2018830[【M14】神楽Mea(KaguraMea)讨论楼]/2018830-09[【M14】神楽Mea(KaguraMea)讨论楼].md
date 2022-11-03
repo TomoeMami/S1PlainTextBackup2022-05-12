@@ -8794,3 +8794,28 @@ mc大逃杀还行，有点意思。
 
 坐牢了，tm的要是葛叶舞元敢这么快杀吗。
 
+
+
+*****
+
+####  往世雷书  
+##### 12835#       发表于 2022-11-3 23:31
+
+别这么小心眼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古战场亡魂  
+##### 12836#       发表于 2022-11-3 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58263566&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-11-3 23:31</a>
+
+别这么小心眼
+
+—— 来自 S1Fun</blockquote>
+第二场开场5秒钟杀了mea，换同社的舞元干不出来的，换成人气高的，他应该已经直接炎上的跪下了。
+
+游戏不是这么玩的。
+
