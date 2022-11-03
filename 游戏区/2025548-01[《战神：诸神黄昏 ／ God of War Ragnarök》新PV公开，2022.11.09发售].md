@@ -9211,3 +9211,13 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  葵  
+##### 960#       发表于 2022-11-3 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58260263&amp;ptid=2025548" target="_blank">Kojimaru 发表于 2022-11-3 19:22</a></blockquote>
+HFR是什么意思？
+
