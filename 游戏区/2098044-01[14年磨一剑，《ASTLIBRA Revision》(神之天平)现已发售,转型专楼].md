@@ -15419,3 +15419,26 @@ MAGICUS
   -- 来自 能看大图的 S ...</blockquote>
 明白了，哎，这玩意也不在技能那里实时显示一下。。。。
 
+
+
+*****
+
+####  御坂MKII  
+##### 1391#       发表于 2022-11-4 02:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 第八章怪突然数值高了好多啊
+
+发现第七章的爱情漏了 让我翻翻还有没有第七章的存档在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  モナド  
+##### 1392#       发表于 2022-11-4 02:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58264791&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-4 02:03</a>
+
+第八章怪突然数值高了好多啊
+
+发现第七章的爱情漏了 让我翻翻还有没有第七章的存档在 ...</blockquote>
+爱情末期可以刷，感觉爆率不低，剧情遗漏不影响
+

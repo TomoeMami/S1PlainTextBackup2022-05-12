@@ -4041,3 +4041,14 @@ TMD 全扔进去甚至连个四星从者都没有 滚了</blockquote>
 
 非特攻摩根水枪喊了很久吧..也就lga那群人老是喊着摩根万能解了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3366#       发表于 2022-11-4 02:20
+
+ 本帖最后由 RiesbyfeAtlasia 于 2022-11-4 02:22 编辑 
+
+半夜看贴吧然后冲了三宝，晚上还是应该早点睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不过faker也二宝了感觉还挺赚的
+
