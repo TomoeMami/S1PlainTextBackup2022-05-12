@@ -914,3 +914,16 @@ Julie 的原推文是Black Hairy Tongue
 论坛助手,iPhone</blockquote>
 都快三年了……一开始就是看着精神还好好的突然就倒下了，倒杯水还没喝人突然死了
 
+
+
+*****
+
+####  cloudinsky  
+##### 86#       发表于 2022-11-3 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58255868&amp;ptid=2102982" target="_blank">ttks 发表于 2022-11-3 14:14</a>
+缺氧早期看不出来甚至本人也无感，待到后期多脏器衰竭，那就是神仙也救不了了。
+
+血氧计要常备</blockquote>
+watch的血氧检测有用么
+

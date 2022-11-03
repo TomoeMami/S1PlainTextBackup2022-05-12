@@ -307,3 +307,16 @@
 再有就是心痛了。记忆中活泼开朗的 ...</blockquote>
 不过没想到动画居然是随便走进来…来个正面特写，脸藏在阴影里逐渐浮现，和武逐步震惊的脸来回对切的镜头不好么……
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1982#       发表于 2022-11-3 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257328&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-11-3 15:53</a>
+不过没想到动画居然是随便走进来…来个正面特写，脸藏在阴影里逐渐浮现，和武逐步震惊的脸来回对切的镜头 ...</blockquote>
+演出灾难<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

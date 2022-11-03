@@ -356,3 +356,14 @@ og倒也没那么强，我个人感觉是他们ct很多细节处理都不太行�
 
 我都怀疑小蜜蜂总有人会成为巨人的罪魁祸首可能就是他。
 
+
+
+*****
+
+####  六道仙鱼  
+##### 2668#       发表于 2022-11-3 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58215202&amp;ptid=1857369" target="_blank">Niyah 发表于 2022-11-1 00:37</a>
+借楼问下最近除了打bot经常vac断连，刚跟朋友打搭档又被断连登上去已经竞技冷却24小时了，有啥解决方法吗？ ...</blockquote>
+出现这个可能是各种问题，我有一次遇到，过了一个月自动好了
+

@@ -3885,3 +3885,14 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 420石5宝达成，本来准备了1800 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这下甚至可以继续等奥伯龙了
 
+
+
+*****
+
+####  廖化  
+##### 3352#       发表于 2022-11-3 17:57
+
+我抽卡回来了.jpg
+
+李庄狗到了日服还是李庄狗……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
