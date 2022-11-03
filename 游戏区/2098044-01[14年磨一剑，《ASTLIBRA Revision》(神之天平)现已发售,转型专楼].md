@@ -14903,3 +14903,17 @@ MAGICUS
 装备的技能是不是都要练一遍
 初使树棍是有特殊说法
 
+
+
+*****
+
+####  pf67  
+##### 1348#       发表于 2022-11-3 14:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58255740&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-3 14:03</a>
+
+装备的技能是不是都要练一遍
+
+初使树棍是有特殊说法</blockquote>
+基本上都是要练的，有技能的给技能，性能提升的给宝石
+
