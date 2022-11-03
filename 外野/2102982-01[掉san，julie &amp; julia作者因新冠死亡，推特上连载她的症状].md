@@ -1330,3 +1330,17 @@ BQ1.1 - Cerberus - 地狱三头犬
 
 低情商 屁用没有
 
+
+
+*****
+
+####  lvcha  
+##### 122#       发表于 2022-11-4 07:02
+
+<blockquote>陈寿 发表于 2022-11-3 20:40
+有道理。。
+
+https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg
+</blockquote>
+forbidden
+
