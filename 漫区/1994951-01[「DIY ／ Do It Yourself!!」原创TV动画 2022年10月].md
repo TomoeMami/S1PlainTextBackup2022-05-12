@@ -3960,3 +3960,59 @@ B站第一话上线了 看开头是东电代理感觉糟了 东电在隔壁达�
 
 这集女主没受伤猪猪也没被迫害<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 314#         楼主| 发表于 2022-11-4 01:31
+
+すてっぷ５より、作監修正をご紹介
+<img src="https://p.sda1.dev/8/9186143dad80acc61932ec75511caf7c/20221104_013115.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/39da5d169d3330e28c5255945042e0f8/20221104_013117.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/c523a660f62db83dc0b49ee68f9bf71f/20221104_013119.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/b57ed563e570e4acd2d484056825ca61/20221104_013121.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 315#         楼主| 发表于 2022-11-4 01:39
+
+[https://twitter.com/plus_plus09/status/1587828915024035841](https://twitter.com/plus_plus09/status/1587828915024035841)
+
+5話動画1カットだけ参加しました！
+<img src="https://p.sda1.dev/8/f986bce54880a0ab81e9a4b0fa043479/20221104_013257.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/atwomaru/status/1587930047486128130](https://twitter.com/atwomaru/status/1587930047486128130)
+
+「Do It Yourself!! -どぅー・いっと・ゆあせるふ-」すてっぷ５より、
+
+原画で参加させていただきました！！
+
+制作の築山さん演出の伊礼さん作監の新井さんそして色々監修してくださったLeyinさん、
+
+本当にありがとうございました…！！
+<img src="https://p.sda1.dev/8/b3eb7fa0877ed3a9ee62069b11961c21/20221104_013303.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/umakunaritai2/status/1587904832534614016](https://twitter.com/umakunaritai2/status/1587904832534614016)
+
+「Do It Yourself!! -どぅー・いっと・ゆあせるふ-」５話
+
+原画で参加しました！
+
+演出の伊礼さんと作監の新井さんそれからENISIYAの五十嵐さんありがとうございます、、、
+
+よろしくお願いします！
+<img src="https://p.sda1.dev/8/edbec2358e2716bdaa38b4401f2fc09c/20221104_013405.jpg" referrerpolicy="no-referrer">
+
+[https://m.weibo.cn/detail/4831517433661357](https://m.weibo.cn/detail/4831517433661357)
+
+DIY!! #05 大島塔也
+[https://twitter.com/igaguri_rashi/status/1587829887561306113](https://twitter.com/igaguri_rashi/status/1587829887561306113)
+
+「Do It Yourself!! -どぅー・いっと・ゆあせるふ-」すてっぷ５より
+
+一部線撮動画を紹介させていただきます！
+
+作画担当は大島塔也！！！
+

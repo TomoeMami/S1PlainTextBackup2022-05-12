@@ -411,3 +411,12 @@ og倒也没那么强，我个人感觉是他们ct很多细节处理都不太行�
 
 哦0010了，真是白给新纪录了吧，0-10有很多，adr0的真不好找吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ispep  
+##### 2674#       发表于 2022-11-4 01:36
+
+apex的指挥真的很难看，不过能换谁呢。对于蜜蜂的作用感觉就是关键分的神经枪，记得看到好几次了
+
