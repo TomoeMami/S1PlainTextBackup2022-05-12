@@ -4020,3 +4020,15 @@ TMD 全扔进去甚至连个四星从者都没有 滚了</blockquote>
 
 心心念念的王姐+双杀狐周回队这伤害也太低了吧，第三面才单体13W <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3364#       发表于 2022-11-4 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58262892&amp;ptid=2084912" target="_blank">ネコカイザー 发表于 2022-11-3 22:37</a>
+
+心心念念的王姐+双杀狐周回队这伤害也太低了吧，第三面才单体13W</blockquote>
+非特攻没奥伯龙是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+

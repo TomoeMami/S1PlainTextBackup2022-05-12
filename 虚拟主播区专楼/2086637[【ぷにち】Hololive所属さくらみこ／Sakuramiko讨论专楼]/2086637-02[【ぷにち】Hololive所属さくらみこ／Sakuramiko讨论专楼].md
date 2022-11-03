@@ -13493,3 +13493,14 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 回顾一下前两年那时候她时不时有冒出一些想法在直播里说，不过那时的条件可能还做不了吧，所以我一直觉得她很有想法但是总是不敢做，怕这怕那的
 
+
+
+*****
+
+####  Map-2  
+##### 2790#       发表于 2022-11-4 00:24
+
+答案是：用厄介红SC不断殴打她直到yuzusoft 12th作品主角是樱巫女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我知道她之前搞过一个小ADV，但今年才算是木口游戏元年，出的游戏可不再是小打小闹的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
