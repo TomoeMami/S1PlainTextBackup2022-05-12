@@ -1037,3 +1037,28 @@ VH2星了，被破防了一次红血奶不回来了
 
 卡load卡到影响游戏体验的看下是不是没下载全部资源包，下完之后还算好
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 85#         楼主| 发表于 2022-11-3 10:17
+
+<img src="https://img.saraba1st.com/forum/202211/03/101618tuuq80jqzp68bq9e.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221103101555.png</strong> (206.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-3 10:16 上传
+
+<img src="https://img.saraba1st.com/forum/202211/03/101624n7w6w233uk35c3kk.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221103101544.png</strong> (187.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-3 10:16 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">打满了，贴一个练度给参考一下
+
