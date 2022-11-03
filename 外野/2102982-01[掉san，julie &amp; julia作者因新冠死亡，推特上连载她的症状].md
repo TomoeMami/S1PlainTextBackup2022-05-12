@@ -1182,3 +1182,25 @@ just a flu
 
 属实不利于共存的不要发<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mrzc  
+##### 111#       发表于 2022-11-3 22:15
+
+<blockquote>Vzero 发表于 2022-11-3 22:08
+哎等下，不是说症状不如流感，几天自己就会好的呢？</blockquote>
+这人应该今年是第三次感染，一个多月都没有好，所以就
+
+*****
+
+####  shimotsuki14  
+##### 112#       发表于 2022-11-3 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261367&amp;ptid=2102982" target="_blank">陈寿 发表于 2022-11-3 20:40</a>
+有道理。。
+
+https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg</blockquote>
+厚里谢特
+
