@@ -3896,3 +3896,15 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 李庄狗到了日服还是李庄狗……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 3353#       发表于 2022-11-3 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58258972&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-3 17:44</a>
+萌新怒战3宝无事发生  为什么会这样</blockquote>
+丑旧怒战6宝也是无事发生，nmd为什么
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
