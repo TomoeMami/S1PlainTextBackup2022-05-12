@@ -9086,3 +9086,14 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 【儿童游戏[并不简单]】PlayStation日本公开了《战神 诸神黄昏》的新宣传片，宣传片使用了儿童节目 ...</blockquote>
 民纳——狗偷物，拉格纳no咕噜大
 
+
+
+*****
+
+####  clover293  
+##### 949#       发表于 2022-11-3 09:14
+
+[https://www.youtube.com/watch?v=BCk4E0me2GE](https://www.youtube.com/watch?v=BCk4E0me2GE)
+
+索尼更新了俩music track
+
