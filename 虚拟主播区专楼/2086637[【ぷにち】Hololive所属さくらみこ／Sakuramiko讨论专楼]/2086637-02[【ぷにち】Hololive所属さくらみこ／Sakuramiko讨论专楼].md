@@ -13409,3 +13409,33 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 查看全部评分
 
+
+
+*****
+
+####  qesto  
+##### 2784#       发表于 2022-11-3 23:28
+
+要不你说不办了？以miko的性格你觉得有可能吗，除非真的遇到很大的不可抗力
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qesto  
+##### 2785#       发表于 2022-11-3 23:31
+
+这东西已经变成烫手的山芋力<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+你说不办的话肯定也会出问题，要丢出去，运营也不会完全接
+
+*****
+
+####  holoan  
+##### 2786#         楼主| 发表于 2022-11-3 23:32
+
+这话是我上个月运动会前说的吧
+
+你现在再看看什么情况，参与成员没有热情，观众已经腻了，主催本人身体也受不了了
+
+那还办个鸡儿呢，今年搞完就直接结了得了，准备准备明年搞点其他新企划吧
+
