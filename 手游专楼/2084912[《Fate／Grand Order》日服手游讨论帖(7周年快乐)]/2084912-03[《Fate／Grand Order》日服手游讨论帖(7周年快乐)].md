@@ -3869,3 +3869,19 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 四张呼符二宝了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">二宝百级应该够了吧
 
+
+
+*****
+
+####  alucardcz  
+##### 3350#       发表于 2022-11-3 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新怒战3宝无事发生  为什么会这样
+
+*****
+
+####  ネコカイザー  
+##### 3351#       发表于 2022-11-3 17:45
+
+420石5宝达成，本来准备了1800 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这下甚至可以继续等奥伯龙了
+
