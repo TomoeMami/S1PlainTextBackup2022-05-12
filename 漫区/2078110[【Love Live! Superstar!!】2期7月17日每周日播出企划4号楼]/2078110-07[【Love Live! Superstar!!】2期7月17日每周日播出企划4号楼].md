@@ -1041,3 +1041,26 @@ ONCE MORE SMILE, TWICE MORE CHIME
 
 着实拿捏到了
 
+
+
+*****
+
+####  Kfly  
+##### 9078#       发表于 2022-11-3 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58251722&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-11-3 09:40</a>
+着实拿捏到了</blockquote>
+抓到精髓了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 9079#       发表于 2022-11-3 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58251722&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-11-03 09:40:16</a>
+着实拿捏到了</blockquote>二期大熊说是Liella的粉的时候我还觉得有点营业味。
+
+但是三期如果选出个Liella粉我反而不会太意外了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
