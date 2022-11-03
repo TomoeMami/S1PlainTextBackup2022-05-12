@@ -13504,3 +13504,29 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 我知道她之前搞过一个小ADV，但今年才算是木口游戏元年，出的游戏可不再是小打小闹的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 2791#         楼主| 发表于 2022-11-4 00:33
+
+但是真的要出游戏吗？昨天miko直播里还提到夸游说可以想象这个游戏的台本量有多大毕竟她自己经历过的
+
+真的要出要变得像夸一样几个月半年不直播吗？
+
+*****
+
+####  Map-2  
+##### 2792#       发表于 2022-11-4 00:41
+
+ 本帖最后由 Map-2 于 2022-11-4 00:42 编辑 
+
+企划要搞，直播也要搞才能称得上健全的话
+
+不断翻唱直到唱出35的phony/像神一样啊？
+
+暂时想不出来
+
+或许等杏神火了之后将35做成人权卡......<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

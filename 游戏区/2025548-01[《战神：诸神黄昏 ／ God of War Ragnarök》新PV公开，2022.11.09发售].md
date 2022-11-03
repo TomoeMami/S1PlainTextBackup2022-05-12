@@ -9279,3 +9279,12 @@ UCG这打分感觉特严格的给了10，游民给9.5，也是少见
 
 纠结这个0.5没意义，圣莫尼卡叙事水平本来就没那么高，我之前就觉得媒体会因为这个扣分。
 
+
+
+*****
+
+####  percy1234  
+##### 966#       发表于 2022-11-4 00:35
+
+二柄这个评测说的也太多了，求生欲拉满<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
