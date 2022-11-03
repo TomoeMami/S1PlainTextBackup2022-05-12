@@ -15061,3 +15061,43 @@ MAGICUS
 
 这游戏手柄键位好奇怪啊 摇杆向下格挡 我看了下键位设置也不能改 打起来突出一个整天误触<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  redsouris  
+##### 1362#       发表于 2022-11-3 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256062&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-3 14:28</a>
+树枝的经验条特别长 
+
+9级进洞打第一只龙是关底BOSS吧 打不过现在出来练武器了 ...</blockquote>
+练装备的经验和打怪经验是一样的，中后期怪经验高了好练很多
+树枝技能是装备经验x1.3倍
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  真实之影  
+##### 1363#       发表于 2022-11-3 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257502&amp;ptid=2098044" target="_blank">skgaminger1988 发表于 2022-11-3 16:06</a>
+
+这游戏手柄键位好奇怪啊 摇杆向下格挡 我看了下键位设置也不能改 打起来突出一个整天误触 ...</blockquote>
+用十字键玩吧，其实这还算好的
+
+我记得有个银河城游戏更麻烦，防御是下，冲刺是下+左右方向，这游戏还TM有需要连续冲刺的限时机关<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  redsouris  
+##### 1364#       发表于 2022-11-3 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257502&amp;ptid=2098044" target="_blank">skgaminger1988 发表于 2022-11-3 16:06</a>
+这游戏手柄键位好奇怪啊 摇杆向下格挡 我看了下键位设置也不能改 打起来突出一个整天误触 ...</blockquote>
+把那个随时可以格挡的技能练出来就装着吧
+双手武器按↓期间也有强减伤和免疫异常效果
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -491,3 +491,13 @@ omg……
 那也太背了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 不过确实你虹也该出新人了吧。
 
+
+
+*****
+
+####  hulaoda007  
+##### 17679#       发表于 2022-11-3 17:17
+
+那估计曲早就做好了，都开始做pv了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+毕竟田中10月就做了最后一首曲，以后不再作曲了。
+
