@@ -4034,3 +4034,17 @@ DIY!! #05 大島塔也
 
 第四集这个角色配音让我有点恶心,卖萌卖的太油腻了,毁了这部番的氛围
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 318#       发表于 2022-11-4 06:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58222669&amp;ptid=1994951" target="_blank">韩子 发表于 2022-11-1 14:01</a>
+
+如果是十年前的动画，女主可能就只是所谓的冒失娘…但放在现在却会让人联想到ADHD，看来是时代变了orz ...</blockquote>
+搞一身伤的冒失娘真不多吧 别人顶多平地摔一下
+
+而且这作里明显还舞刀弄枪的，感觉随时会溅一身血<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
