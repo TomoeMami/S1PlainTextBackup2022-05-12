@@ -14761,3 +14761,12 @@ MAGICUS
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  PigMourne  
+##### 1336#       发表于 2022-11-3 09:28
+
+麻了，第一章的木弓没拿到，后面还能补救吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
