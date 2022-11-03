@@ -4011,3 +4011,12 @@ TMD 全扔进去甚至连个四星从者都没有 滚了</blockquote>
 这一看就是没在C阶福袋追过梦 or 一发就圆梦的欧佬</blockquote>
 纯白嫖
 
+
+
+*****
+
+####  ネコカイザー  
+##### 3363#       发表于 2022-11-3 22:37
+
+心心念念的王姐+双杀狐周回队这伤害也太低了吧，第三面才单体13W <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+

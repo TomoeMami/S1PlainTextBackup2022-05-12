@@ -1204,3 +1204,15 @@ just a flu
 https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg</blockquote>
 厚里谢特
 
+
+
+*****
+
+####  abcbuzhiming  
+##### 113#       发表于 2022-11-3 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58262462&amp;ptid=2102982" target="_blank">Vzero 发表于 2022-11-3 22:08</a>
+
+哎等下，不是说症状不如流感，几天自己就会好的呢？</blockquote>
+扔筛子，确实有一部分人的症状很轻。说白了就是赌自己是欧皇还是非酋
+
