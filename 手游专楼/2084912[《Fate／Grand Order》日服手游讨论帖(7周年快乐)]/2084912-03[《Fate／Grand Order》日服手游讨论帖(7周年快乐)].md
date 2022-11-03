@@ -3848,3 +3848,15 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这是无限池吗。最近忙到死啊
 
+
+
+*****
+
+####  alucardcz  
+##### 3348#       发表于 2022-11-3 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257540&amp;ptid=2084912" target="_blank">areklose 发表于 2022-11-3 16:07</a>
+
+这是无限池吗。最近忙到死啊</blockquote>
+90++出来不是每次都是无限池吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
