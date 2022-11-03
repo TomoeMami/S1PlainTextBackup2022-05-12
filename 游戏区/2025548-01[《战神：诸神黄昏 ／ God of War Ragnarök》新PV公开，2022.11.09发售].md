@@ -9117,3 +9117,41 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 刚才重打战神2018，才发现这游戏居然有offset<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 之前真是白玩了
 
+
+
+*****
+
+####  conanoysq  
+##### 952#       发表于 2022-11-3 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58254600&amp;ptid=2025548" target="_blank">Kazepollar 发表于 2022-11-3 12:30</a>
+
+刚才重打战神2018，才发现这游戏居然有offset
+
+之前真是白玩了</blockquote>
+请问如何操作<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kazepollar  
+##### 953#       发表于 2022-11-3 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256197&amp;ptid=2025548" target="_blank">conanoysq 发表于 2022-11-3 14:38</a>
+ 请问如何操作</blockquote>
+就是闪避不断连招啊，比如双刀的轻轻轻轻重这种长派生，中间接垫步是不会中断的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  一个过路的  
+##### 954#       发表于 2022-11-3 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58254600&amp;ptid=2025548" target="_blank">Kazepollar 发表于 2022-11-3 12:30</a>
+
+刚才重打战神2018，才发现这游戏居然有offset
+
+之前真是白玩了</blockquote>
+新战神offset用处不大，因为它的攻防主打一个短平快，出伤害快。魔女招式很长，敌人进攻迅猛，更需要见缝插针打输出。
+
+双刀最后两层的乱舞和猛刺，配合offset倒是能增加输出，还能玩点花活。
+[https://www.bilibili.com/video/BV1yt411Z71u](https://www.bilibili.com/video/BV1yt411Z71u)
+
