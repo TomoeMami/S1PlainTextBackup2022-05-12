@@ -1227,3 +1227,18 @@ https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg</blockquote>
 话说小时候受到的教育都是不能轻视流感，西方人视流感为大敌云云的，突显一个国内健康意识淡薄，结果新冠“ ...</blockquote>
 西方重视契约/法治社会/重视生命……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ywuwuuw  
+##### 115#       发表于 2022-11-3 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261367&amp;ptid=2102982" target="_blank">陈寿 发表于 2022-11-3 20:40</a>
+有道理。。
+
+https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg</blockquote>
+403拒绝访问....
+
+— from vivo V1813A, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
