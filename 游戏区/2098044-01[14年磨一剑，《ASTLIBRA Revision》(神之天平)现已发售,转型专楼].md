@@ -15214,3 +15214,15 @@ MAGICUS
 流程里会有些错过就拿不到的道具，但大部分都是获取途径多、获取难度低的消耗品（例如你提到的宝箱里的钥 ...</blockquote>
 感谢，我到时候注意下，另外每章的设计图是不是只能在自己地图里用
 
+
+
+*****
+
+####  tsubaki  
+##### 1373#       发表于 2022-11-3 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58260289&amp;ptid=2098044" target="_blank">佛狗 发表于 2022-11-3 19:24</a>
+
+感谢，我到时候注意下，另外每章的设计图是不是只能在自己地图里用</blockquote>
+当关设计图只能同章区域的房屋里面做（序章武器可以主城做）
+
