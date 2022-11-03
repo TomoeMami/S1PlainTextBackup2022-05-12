@@ -15286,3 +15286,16 @@ MAGICUS
 第二章了</blockquote>
 我0幸运箱子图纸一样随便爆
 
+
+
+*****
+
+####  otakun  
+##### 1379#       发表于 2022-11-3 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261397&amp;ptid=2098044" target="_blank">战术核辣条 发表于 2022-11-3 20:42</a>
+一周目流程谨记一句话，嘉隆老师第一印象叫你怎么做你就怎么做（
+
+—— 来自 Xiaomi M2011K2C, Android 11 ...</blockquote>
+但第八章开头主城那里嘉隆老师叫我别管边界外的怪啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
