@@ -975,3 +975,21 @@ watch的血氧检测有用么
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  cloudinsky  
+##### 91#       发表于 2022-11-3 19:19
+
+yuyue的8f-3zw咋样
+
+3L，到是真的想买一台
+
+*****
+
+####  commcody  
+##### 92#       发表于 2022-11-3 19:22
+
+她打过疫苗没？
+
