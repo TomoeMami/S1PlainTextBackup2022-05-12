@@ -15166,3 +15166,17 @@ MAGICUS
 
 刚开始玩打到第二章已经沉迷了，怕剧透不敢爬楼，有两个问题，请问流程中有没有错过就无法再获得的东西？比如第一章商店后的宝箱和第二章狗挖的技能卡。还有就是平时推图是不是全点幸运啊？
 
+
+
+*****
+
+####  pf67  
+##### 1370#       发表于 2022-11-3 19:04
+
+ 本帖最后由 pf67 于 2022-11-3 19:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58259784&amp;ptid=2098044" target="_blank">佛狗 发表于 2022-11-3 18:49</a>
+刚开始玩打到第二章已经沉迷了，怕剧透不敢爬楼，有两个问题，请问流程中有没有错过就无法再获得的东西？比 ...</blockquote>
+有，但是都不关键，推图建议幸运适当加点就行，死了才是血亏。
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

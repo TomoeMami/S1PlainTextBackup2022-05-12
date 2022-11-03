@@ -947,3 +947,31 @@ watch的血氧检测有用么
 
 这么快就忘记当初的路倒了。20年武汉抗疫医生就发现血氧会突然下降，人很快就没了。后面传到全世界各地，美洲那个路倒视频传的很广的。
 
+
+
+*****
+
+####  伊萨的终结  
+##### 89#       发表于 2022-11-3 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256108&amp;ptid=2102982" target="_blank">螺纹 发表于 2022-11-3 14:32</a>
+手指夹式血氧仪随便买吧，鱼跃、三诺、可孚之类的，或者你认识的贵一点的国外牌子（但可能贴牌），好些手 ...</blockquote>
+制氧机是有用的
+
+问题在于5L只是基础，如果病情重，需要10L甚至15L，而市面上只有5L的，后面两种个人很难买到
+
+到最后就是像印度，人人求购氧气钢瓶
+
+—— 来自 samsung SM-G9750, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Lacsiess  
+##### 90#       发表于 2022-11-3 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58255944&amp;ptid=2102982" target="_blank">暗月杀人兔 发表于 2022-11-3 14:21</a>
+那么血氧仪和制氧器什么牌子比较靠谱？有推荐的吗</blockquote>
+一般人家里能配得起的血氧仪/呼吸机对新冠都没蛋用。。。。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -8684,3 +8684,17 @@ mc大逃杀还行，有点意思。
 你咩姐竟然在游戏联动里开窗</blockquote>
 以前大多都是朋友一起玩，吧人气全引流很正常，这次关系没这么好自己开台
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12823#       发表于 2022-11-3 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58259688&amp;ptid=2018830" target="_blank">gongge666 发表于 2022-11-3 18:43</a>
+
+以前大多都是朋友一起玩，吧人气全引流很正常，这次关系没这么好自己开台 ...</blockquote>
+你可垃倒吧，这次联动的她哪个不认识。
+
+比这不熟几倍的没开太台的多了去了了。
+
