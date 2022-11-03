@@ -15032,3 +15032,14 @@ MAGICUS
  ...</blockquote>
 一形态打着打着就死了，我甚至还没摸清楚他有啥攻击模式<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  战术核辣条  
+##### 1359#       发表于 2022-11-3 15:52
+
+女神一阶段就是一大号大贤者，瞬移撤退然后埋个炸弹
+
+难倒是不难就是折磨
+

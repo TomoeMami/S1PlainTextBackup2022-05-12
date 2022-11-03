@@ -793,3 +793,17 @@ XBB - Gryphon - 狮鹫
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  skyuni  
+##### 75#       发表于 2022-11-3 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58255272&amp;ptid=2102982" target="_blank">theloved 发表于 2022-11-3 13:21</a>
+
+孤落寡闻了，黑毛舌这个症状第一次听说，居然还是常见症状？</blockquote>
+老早看圆脸的视频就有了，印度那边用大剂量激素治疗新冠，导致人体免疫力缺陷，出院后随便来个霉菌（健康人可食用的）都能把人弄到要挖眼截肢，很恐怖，就是传播MAX的小型HIV
+
+即便不滥用激素，反复得新冠也迟早击穿免疫力
+
