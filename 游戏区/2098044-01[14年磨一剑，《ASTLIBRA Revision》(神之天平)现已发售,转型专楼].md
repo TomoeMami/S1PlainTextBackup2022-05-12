@@ -14881,3 +14881,15 @@ MAGICUS
 
 这个哑巴主角的塑造还挺有意思的，几次老婆被骂秒炸毛太乐了
 
+
+
+*****
+
+####  pf67  
+##### 1346#       发表于 2022-11-3 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58249498&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-3 00:18</a>
+
+女神本人不难啊，乱杀。难度我觉得不如锁女神的机器</blockquote>
+还是难的，因为死了要从第一形态开始打
+
