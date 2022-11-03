@@ -3977,3 +3977,26 @@ TMD 全扔进去甚至连个四星从者都没有 滚了</blockquote>
 萌新不服气 直接all in了  结果出了个 妖。。。。妖僧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 我没有妖僧
 
+
+
+*****
+
+####  森兰丸  
+##### 3360#       发表于 2022-11-3 21:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">设计最新的3个アドバンスドクエスト的是出了什么毛病....相比起之前的简单过头了吧
+
+无脑带打手和拐就都能一回合打死
+
+
+
+*****
+
+####  xunit  
+##### 3361#       发表于 2022-11-3 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58260818&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-3 19:59</a>
+
+欧 羡慕 我没有妖僧</blockquote>
+这一看就是没在C阶福袋追过梦 or 一发就圆梦的欧佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
