@@ -927,3 +927,23 @@ Julie 的原推文是Black Hairy Tongue
 血氧计要常备</blockquote>
 watch的血氧检测有用么
 
+
+
+*****
+
+####  星零影  
+##### 87#       发表于 2022-11-3 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58255947&amp;ptid=2102982" target="_blank">雷修特 发表于 2022-11-3 14:21</a>
+共存派的人呢</blockquote>
+在共存<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  blazeryc  
+##### 88#       发表于 2022-11-3 18:53
+
+这么快就忘记当初的路倒了。20年武汉抗疫医生就发现血氧会突然下降，人很快就没了。后面传到全世界各地，美洲那个路倒视频传的很广的。
+
