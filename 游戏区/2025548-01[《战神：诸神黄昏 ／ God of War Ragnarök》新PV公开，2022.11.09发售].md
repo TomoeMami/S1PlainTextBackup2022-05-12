@@ -9097,3 +9097,13 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 
 索尼更新了俩music track
 
+
+
+*****
+
+####  JudgmentEye  
+##### 950#       发表于 2022-11-3 12:20
+
+大概率全版本都有中文字幕，当然日配还是日版独占
+[https://sms.playstation.com/stor ... ok-language-support](https://sms.playstation.com/stories/god-of-war-ragnarok-language-support)
+
