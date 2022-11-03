@@ -14782,3 +14782,15 @@ MAGICUS
 麻了，第一章的木弓没拿到，后面还能补救吗</blockquote>
 可以的 
 
+
+
+*****
+
+####  jy000129  
+##### 1338#       发表于 2022-11-3 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58248454&amp;ptid=2098044" target="_blank">mayu5583639 发表于 2022-11-2 22:55</a>
+
+我是不是BUG了？？？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你竟然有耐心解密，我都是直接炸弹走快速通道
+
