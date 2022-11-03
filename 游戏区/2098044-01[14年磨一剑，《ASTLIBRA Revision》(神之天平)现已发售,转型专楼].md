@@ -15334,3 +15334,29 @@ MAGICUS
 
 推新图把攻防血点到衰减界限，否则砍不动怪又容易死根本没效率，推完剧情回来刷的时候再点幸运，综合效率最高
 
+
+
+*****
+
+####  adw667  
+##### 1383#       发表于 2022-11-4 00:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都知道第七章要用远程武器隔山打牛，但是没人告诉我用量很大，大概算了一下需要差不多300支箭，如果有火把可以再少点
+
+*****
+
+####  quanlix  
+##### 1384#       发表于 2022-11-4 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58264054&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-4 00:11</a>
+
+都知道第七章要用远程武器隔山打牛，但是没人告诉我用量很大，大概算了一下需要差不多300支箭，如果 ...</blockquote>
+可以蓄力扔剑攒精力然后用天使和雷姬阵打
+
+*****
+
+####  vidomina  
+##### 1385#       发表于 2022-11-4 00:20
+
+咨询个凭依技的问题，我的精力和最大精力都已经够了，为何还是有的技能放不了？
+

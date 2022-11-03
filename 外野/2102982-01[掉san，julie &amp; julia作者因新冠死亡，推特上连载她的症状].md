@@ -1267,3 +1267,39 @@ https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg</blockquote>
 
 看了照片感觉人都不好了
 
+
+
+*****
+
+####  星零影  
+##### 118#       发表于 2022-11-4 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261367&amp;ptid=2102982" target="_blank">陈寿 发表于 2022-11-3 20:40</a>
+有道理。。
+
+https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这™
+
+—— 来自 HONOR FNE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  纸皮  
+##### 119#       发表于 2022-11-4 00:15
+
+ 本帖最后由 纸皮 于 2022-11-4 00:16 编辑 
+
+去看了她的推，9月初自述老公感染了自己也感染了，中间痛苦了一段时间，20号的时候说好了
+
+中间的不知道是不是和新冠有关，各种伤病，另外她膝盖受伤了，好像有抑郁症
+
+10月8日又发老公病了所以自己病了：well, Eric got sick and so now I'm sick of course. I think it's just the flu.不太懂是之前没好全还是又得
+
+然后就没好起来
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">https://twitter.com/licjulie/status/1443967802541551618
+
+然后因为她说过反疫苗反口罩的人死的对，现在这批人觉得她是死于疫苗（或者业力）
+
+（虽然和新冠没关系，但在搜索中看到有红迪帖子说她和书里第一个丈夫出轨闹掰了？还把自己的情人写第二本书里之类的……然后精神状况也不是很好，我没看过这个电影，看帖子印象就是那种实际不怎么美好的家庭）
+
