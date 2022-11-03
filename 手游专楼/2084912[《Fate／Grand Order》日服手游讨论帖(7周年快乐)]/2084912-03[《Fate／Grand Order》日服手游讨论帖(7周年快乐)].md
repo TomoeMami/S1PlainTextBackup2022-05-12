@@ -3945,3 +3945,35 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 TMD 全扔进去甚至连个四星从者都没有 滚了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧  哦不 非 不羡慕
 
+
+
+*****
+
+####  qixinno2  
+##### 3357#       发表于 2022-11-3 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58260652&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-3 19:47</a>
+
+欧  哦不 非 不羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难受 感觉永远攒不住石头
+
+*****
+
+####  alucardcz  
+##### 3358#       发表于 2022-11-3 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58260800&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-3 19:58</a>
+
+难受 感觉永远攒不住石头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新不服气 直接all in了  结果出了个 妖。。。。妖僧
+
+*****
+
+####  qixinno2  
+##### 3359#       发表于 2022-11-3 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58260808&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-3 19:58</a>
+
+萌新不服气 直接all in了  结果出了个 妖。。。。妖僧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 我没有妖僧
+
