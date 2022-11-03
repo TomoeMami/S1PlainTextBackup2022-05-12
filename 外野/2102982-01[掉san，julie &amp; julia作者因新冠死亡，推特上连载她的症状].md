@@ -862,3 +862,17 @@ Julie 的原推文是Black Hairy Tongue
 
 还是更常见的 舌头发黑 
 
+
+
+*****
+
+####  卡普空  
+##### 82#       发表于 2022-11-3 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58254956&amp;ptid=2102982" target="_blank">2474089352 发表于 2022-11-3 12:54</a>
+
+（广义）无症状/轻症然后直接致死？这么恐怖吗？？
+
+论坛助手,iPhone</blockquote>
+你可以查一下日本死亡人数里面有多少是轻症直接死亡的，新冠一大特点就是病症转化特别快，一两个小时就能从轻症转重症，没有救治就等死吧。这也是为什么国家会需要方舱管理，一是隔离阳性，二是方便救人
+
