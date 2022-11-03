@@ -286,3 +286,15 @@ C9这队伍是真的没指望，乐、若、霍总有1-2个，是拉的没边的
 生死局蜜蜂打OG，这要是进不了传奇组，🐝要变阵了吧，杜要是再拉真要给踢了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 谁能想到载出道那段时间，法国csgo直接断档了，换人也想不到什么合适的，米和巨人二线比赛都打不明白
 
+
+
+*****
+
+####  曼陀罗肥  
+##### 2661#       发表于 2022-11-3 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58255630&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-11-3 13:53</a>
+生死局蜜蜂打OG，这要是进不了传奇组，🐝要变阵了吧，杜要是再拉真要给踢了
+谁能想到载出道那段时间 ...</blockquote>
+基本g了，小蜜蜂rt上1的除了载物就只有昨晚虐菜把数据刷上来的阿杜，剩下三个人0.97，太离谱了。这样真不如淘汰回去变阵给人看得有希望。
+

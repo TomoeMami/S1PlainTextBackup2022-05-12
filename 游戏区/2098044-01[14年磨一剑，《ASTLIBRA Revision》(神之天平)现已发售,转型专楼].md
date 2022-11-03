@@ -14917,3 +14917,31 @@ MAGICUS
 初使树棍是有特殊说法</blockquote>
 基本上都是要练的，有技能的给技能，性能提升的给宝石
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1349#       发表于 2022-11-3 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58255886&amp;ptid=2098044" target="_blank">pf67 发表于 2022-11-3 14:15</a>
+
+基本上都是要练的，有技能的给技能，性能提升的给宝石</blockquote>
+树枝的经验条特别长 
+
+9级进洞打第一只龙是关底BOSS吧 打不过现在出来练武器了
+
+*****
+
+####  真实之影  
+##### 1350#       发表于 2022-11-3 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256062&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-3 14:28</a>
+
+树枝的经验条特别长 
+
+9级进洞打第一只龙是关底BOSS吧 打不过现在出来练武器了 ...</blockquote>
+树枝给的技能是“加速技能经验获得”
+
+太早刷出来其实没足够宝石槽装
+
