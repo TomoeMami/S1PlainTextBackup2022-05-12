@@ -260,3 +260,16 @@
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  菱0零  
+##### 1979#       发表于 2022-11-3 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58254473&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-11-3 12:21</a>
+楠木灯小姐是出了什么事情，还能配音吗？
+
+—— 来自 OnePlus HD1900, Android 13上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+近期确诊了埃勒斯-当洛斯综合症，无法剧烈运动，偶像生涯中止，声优和歌手还会继续，下周还预订会上抹布动画的广播来着，这边片场还是不受影响的
+
