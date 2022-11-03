@@ -237,3 +237,26 @@
 前七分钟差不多和解了，纯夏出场也还行，大尉做中队介绍的时候其他人小崩，207b食堂全崩了 祭拜小麻 ...</blockquote>
 真是美乃莉的话小麻就不会死了（悲）
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1977#       发表于 2022-11-3 12:21
+
+楠木灯小姐是出了什么事情，还能配音吗？
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  UnrealApartheid  
+##### 1978#       发表于 2022-11-3 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58254473&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-11-03 12:21:03</a>
+楠木灯小姐是出了什么事情，还能配音吗？
+
+—— 来自 OnePlus HD1900, Android 13上的  v2.5.4 ...</blockquote>还能配音但是不能再继续剧烈运动
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

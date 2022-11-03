@@ -9107,3 +9107,13 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 大概率全版本都有中文字幕，当然日配还是日版独占
 [https://sms.playstation.com/stor ... ok-language-support](https://sms.playstation.com/stories/god-of-war-ragnarok-language-support)
 
+
+
+*****
+
+####  Kazepollar  
+##### 951#       发表于 2022-11-3 12:30
+
+刚才重打战神2018，才发现这游戏居然有offset<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+之前真是白玩了
+
