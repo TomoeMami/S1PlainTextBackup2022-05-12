@@ -15369,3 +15369,53 @@ MAGICUS
 
 我还以为放凭依技能不能用道具是设定呢，为了不让无敌时间吃药，结果现在打补丁修正了
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1387#       发表于 2022-11-4 00:43
+
+这游戏微妙的上头 下午四点一口气玩到半夜十二点多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  quanlix  
+##### 1388#       发表于 2022-11-4 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58264132&amp;ptid=2098044" target="_blank">vidomina 发表于 2022-11-04 00:20:23</a>
+咨询个凭依技的问题，我的精力和最大精力都已经够了，为何还是有的技能放不了？ ...</blockquote>有些被动会加魔法的精力消耗，比如放魔法消弹幕和放魔法过程中免疫异常状态这样的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kaornao  
+##### 1389#       发表于 2022-11-4 00:48
+
+新章还挺有意思的
+
+<img src="https://img.saraba1st.com/forum/202211/04/004802ztwjlb9bwuj9lcwj.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1667493034932.jpg</strong> (280.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-4 00:48 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  vidomina  
+##### 1390#       发表于 2022-11-4 00:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58264379&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-11-4 00:45</a>
+
+有些被动会加魔法的精力消耗，比如放魔法消弹幕和放魔法过程中免疫异常状态这样的
+
+  -- 来自 能看大图的 S ...</blockquote>
+明白了，哎，这玩意也不在技能那里实时显示一下。。。。
+

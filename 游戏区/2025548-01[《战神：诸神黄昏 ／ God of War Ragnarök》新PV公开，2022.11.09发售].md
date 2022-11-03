@@ -9288,3 +9288,12 @@ UCG这打分感觉特严格的给了10，游民给9.5，也是少见
 
 二柄这个评测说的也太多了，求生欲拉满<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jokertx  
+##### 967#       发表于 2022-11-4 00:49
+
+二柄这评测剧情画面太多了，还是篝火和UCG的评测好
+
