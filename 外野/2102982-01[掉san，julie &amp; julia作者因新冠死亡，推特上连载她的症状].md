@@ -830,3 +830,35 @@ XBB - Gryphon - 狮鹫
 
 你这个死法有什么目的？
 
+
+
+*****
+
+####  theloved  
+##### 79#       发表于 2022-11-3 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257190&amp;ptid=2102982" target="_blank">skyuni 发表于 2022-11-3 15:44</a>
+老早看圆脸的视频就有了，印度那边用大剂量激素治疗新冠，导致人体免疫力缺陷，出院后随便来个霉菌（健康 ...</blockquote>
+霉菌病是记得，没想到是舌头上也能有，而且当时症状比例还没达到常见
+
+*****
+
+####  物理毒狗  
+##### 80#       发表于 2022-11-3 16:20
+
+我转这图有什么目的！<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+*****
+
+####  HZLJ  
+##### 81#       发表于 2022-11-3 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257662&amp;ptid=2102982" target="_blank">theloved 发表于 2022-11-3 16:17</a>
+
+霉菌病是记得，没想到是舌头上也能有，而且当时症状比例还没达到常见</blockquote>
+Julie 的原推文是Black Hairy Tongue
+
+没图片，很难说真的是继发霉菌感染引起的字面意义上的“舌头长黑毛”，毕竟这种霉菌感染还是很罕见的
+
+还是更常见的 舌头发黑 
+
