@@ -3933,3 +3933,15 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 全扔进去甚至连个四星从者都没有 滚了
 
+
+
+*****
+
+####  alucardcz  
+##### 3356#       发表于 2022-11-3 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58260496&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-3 19:37</a>
+
+TMD 全扔进去甚至连个四星从者都没有 滚了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧  哦不 非 不羡慕
+

@@ -8698,3 +8698,17 @@ mc大逃杀还行，有点意思。
 
 比这不熟几倍的没开太台的多了去了了。
 
+
+
+*****
+
+####  gongge666  
+##### 12824#       发表于 2022-11-3 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58260030&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-11-3 19:07</a>
+
+你可垃倒吧，这次联动的她哪个不认识。
+
+比这不熟几倍的没开太台的多了去了了。 ...</blockquote>
+关系没那么好=不认识？这次联动换成犬山主持你觉得她会开台么
+
