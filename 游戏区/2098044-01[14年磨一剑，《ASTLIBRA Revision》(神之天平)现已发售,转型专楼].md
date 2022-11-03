@@ -14794,3 +14794,12 @@ MAGICUS
 我是不是BUG了？？？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你竟然有耐心解密，我都是直接炸弹走快速通道
 
+
+
+*****
+
+####  Hanzong  
+##### 1339#       发表于 2022-11-3 10:42
+
+刚开始玩，目前第二章，不懂就问，这个天平咋用啊
+
