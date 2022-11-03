@@ -15128,3 +15128,32 @@ MAGICUS
 如果剧情瞎jb选是会打到最后是坏结局，还是进普通结局 ...</blockquote>
 实际上什么选项都不影响结局，最终结局的区别只取决于你有没有喂女主13还是14个爱情
 
+
+
+*****
+
+####  十点半  
+##### 1367#       发表于 2022-11-3 18:27
+
+ 本帖最后由 十点半 于 2022-11-3 18:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58259415&amp;ptid=2098044" target="_blank">pf67 发表于 2022-11-3 18:21</a>
+
+实际上什么选项都不影响结局，最终结局的区别只取决于你有没有喂女主13还是14个爱情 ...</blockquote>
+那也就是说我可以瞎jb选，想进真结局只需要在ed前刷一下就行了吗？
+
+那真是太好了。
+
+*****
+
+####  pf67  
+##### 1368#       发表于 2022-11-3 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58259478&amp;ptid=2098044" target="_blank">十点半 发表于 2022-11-3 18:27</a>
+
+那也就是说我可以瞎jb选，只需要在结局前刷一下就行了吗？
+
+那真是太好了。
+
+ ...</blockquote>
+是这样的，只是中间剧情可能会根据你的选择有一些变化，最终都不会有啥影响。
+
