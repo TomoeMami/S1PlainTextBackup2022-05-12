@@ -1064,3 +1064,14 @@ ONCE MORE SMILE, TWICE MORE CHIME
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ruffian  
+##### 9080#       发表于 2022-11-3 10:45
+
+熊说自己是缪水箱推的时候我感觉是场面话，毕竟她之前都不是拉拉人，可能只看过两眼动画其他都没怎么关注，没说虹只是虹的前辈还没到。但她要是liella推我还真信，毕竟落选之后这一年肯定一直在关注了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -14803,3 +14803,26 @@ MAGICUS
 
 刚开始玩，目前第二章，不懂就问，这个天平咋用啊
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1340#       发表于 2022-11-3 10:44
+
+刚入手过了序章 剧情太长跳了 
+但似乎不应该跳么
+加点是先➕幸运？
+
+*****
+
+####  lazycat233  
+##### 1341#       发表于 2022-11-3 10:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58252830&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-03 10:44:06</a>
+刚入手过了序章 剧情太长跳了 
+但似乎不应该跳么
+加点是先➕幸运？</blockquote>剧情是这游戏的精华，除了op(看一次就行)和天平动画最好不要跳
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
