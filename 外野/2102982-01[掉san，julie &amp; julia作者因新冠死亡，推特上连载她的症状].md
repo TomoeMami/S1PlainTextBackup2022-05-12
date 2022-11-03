@@ -732,3 +732,24 @@ XBB - Gryphon - 狮鹫
 
 这推特隔几天发个情况，直播死亡可比方方那编的日记杀伤力打多了。如果直接病死了，那感染力也不大。
 
+
+
+*****
+
+####  idler1984  
+##### 70#       发表于 2022-11-3 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58255051&amp;ptid=2102982" target="_blank">高龙 发表于 2022-11-3 13:02</a>
+
+很多人可能忘记了，最初的新冠就有突然转重然后快速器官衰竭的特征。有两个大夫就是突然重症，重症状态下 ...</blockquote>
+懂哥又来了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+胡卫锋和易凡医生是由中日友好医院的支援力量救治的，上了ECMO，并使用了多粘菌素B进行抗菌治疗。多粘菌素B可能导致头面部黑色素沉积，所以面部发黑。另外治疗过程中肝功能受损也可能是原因之一。可惜胡卫锋医生最终还是离世，直接原因是脑出血。
+
+*****
+
+####  博叔  
+##### 71#       发表于 2022-11-3 15:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">流感也要死人。
+
