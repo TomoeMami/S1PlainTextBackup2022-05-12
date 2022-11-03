@@ -15052,3 +15052,12 @@ MAGICUS
 
 新章的法师系真是强得逆天，我连强化都没动，靠天使的奶和暗黑加伤加上嗯堆魔力防御轻松打完了竞技场
 
+
+
+*****
+
+####  skgaminger1988  
+##### 1361#       发表于 2022-11-3 16:06
+
+这游戏手柄键位好奇怪啊 摇杆向下格挡 我看了下键位设置也不能改 打起来突出一个整天误触<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
