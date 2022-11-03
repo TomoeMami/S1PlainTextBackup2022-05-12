@@ -9,3 +9,12 @@
 
 我只想吐槽莱因哈特在莫尔德这事上确实不做个人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宝儿  
+##### 5499#       发表于 2022-11-4 07:48
+
+tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺水推舟，杨提督这边束手束脚好难受啊 看得我！
+
