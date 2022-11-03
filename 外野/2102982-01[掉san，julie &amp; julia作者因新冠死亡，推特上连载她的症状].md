@@ -1028,3 +1028,13 @@ yuyue的8f-3zw咋样
 
 不要尬黑，共存第一定律有讲：如果没有防控，共存派生病了只要上网喊冤就能原地刷新医护和物资，一点不慌笑死。小心有人来喷你们制造恐慌噢！
 
+
+
+*****
+
+####  陈寿  
+##### 96#         楼主| 发表于 2022-11-3 20:13
+
+找到一张黑舌苔（black hairy tongue）的图片
+有点震到我了，不知道该不该给大家发出来看看<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
