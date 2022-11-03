@@ -14770,3 +14770,15 @@ MAGICUS
 
 麻了，第一章的木弓没拿到，后面还能补救吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黒長直姫  
+##### 1337#       发表于 2022-11-3 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58251563&amp;ptid=2098044" target="_blank">PigMourne 发表于 2022-11-3 09:28</a>
+
+麻了，第一章的木弓没拿到，后面还能补救吗</blockquote>
+可以的 
+
