@@ -13530,3 +13530,12 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 或许等杏神火了之后将35做成人权卡......<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 2793#       发表于 2022-11-4 01:18
+
+新歌回的时候就说要出专辑,到现在为止都没啥新消息,估计要等到明年才能揭晓
+

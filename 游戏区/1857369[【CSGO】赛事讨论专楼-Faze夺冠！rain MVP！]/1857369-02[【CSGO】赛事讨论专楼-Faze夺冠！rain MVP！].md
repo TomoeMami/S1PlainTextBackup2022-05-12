@@ -388,3 +388,26 @@ og倒也没那么强，我个人感觉是他们ct很多细节处理都不太行�
 
 🐝这小镇能不能ban了啊，又菜又爱玩，而且这状态赢了也去传奇组送菜
 
+
+
+*****
+
+####  cwlo  
+##### 2671#       发表于 2022-11-4 01:11
+
+这沙二好看啊，配合现场爽起来了
+
+*****
+
+####  朔方原的星  
+##### 2672#         楼主| 发表于 2022-11-4 01:18
+
+009 adr0 apex这菜比浓度直冲无穷大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 2673#         楼主| 发表于 2022-11-4 01:19
+
+哦0010了，真是白给新纪录了吧，0-10有很多，adr0的真不好找吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
