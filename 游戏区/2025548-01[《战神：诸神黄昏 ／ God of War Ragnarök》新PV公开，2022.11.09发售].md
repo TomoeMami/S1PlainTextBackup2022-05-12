@@ -9155,3 +9155,15 @@ boss泄露其实没啥的，要我说索尼能把索尔战放出来说不定预�
 双刀最后两层的乱舞和猛刺，配合offset倒是能增加输出，还能玩点花活。
 [https://www.bilibili.com/video/BV1yt411Z71u](https://www.bilibili.com/video/BV1yt411Z71u)
 
+
+
+*****
+
+####  conanoysq  
+##### 955#       发表于 2022-11-3 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256253&amp;ptid=2025548" target="_blank">Kazepollar 发表于 2022-11-3 14:42</a>
+
+就是闪避不断连招啊，比如双刀的轻轻轻轻重这种长派生，中间接垫步是不会中断的 ...</blockquote>
+这不和贝姐一模一样么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

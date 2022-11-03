@@ -14975,3 +14975,16 @@ MAGICUS
 
 村子被毁了原来看见但拿不到箱子就没了么
 
+
+
+*****
+
+####  黒長直姫  
+##### 1354#       发表于 2022-11-3 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256350&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-3 14:49</a>
+村子被毁了原来看见但拿不到箱子就没了么</blockquote>
+天平村那个箱子是的，里面东西没用就是了，实在纠结的话新章还可以拿
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -661,3 +661,31 @@ XBB - Gryphon - 狮鹫
 
 我家里老人本来下午就缺氧血氧只有90，买个也不亏。
 
+
+
+*****
+
+####  梦·花火  
+##### 63#       发表于 2022-11-3 14:55
+
+往往这种时候，新冠爱好者们就不敢说话了
+
+*****
+
+####  yweili99  
+##### 64#       发表于 2022-11-3 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256434&amp;ptid=2102982" target="_blank">梦·花火 发表于 2022-11-3 14:55</a>
+
+往往这种时候，新冠爱好者们就不敢说话了</blockquote>
+拍帮主辛辛苦苦搬数据啃论文写的长篇科普没人看，还得上小作文，属于是魔法打败魔法了。
+
+原博日常一篇博文评论转发不过百，这篇热度强了十倍多。
+
+*****
+
+####  equion  
+##### 65#       发表于 2022-11-3 15:03
+
+不利于共存的话不要说，自觉遵守<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
