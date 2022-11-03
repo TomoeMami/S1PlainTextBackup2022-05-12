@@ -1038,3 +1038,21 @@ yuyue的8f-3zw咋样
 找到一张黑舌苔（black hairy tongue）的图片
 有点震到我了，不知道该不该给大家发出来看看<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cavalierc  
+##### 97#       发表于 2022-11-3 20:23
+
+<blockquote>vampiar 发表于 2022-11-3 13:39
+不过坡县卫生部的新信息里开始xbb下降了，说是已经渡过峰值，是应感尽感，还是有个未命名的新怪物出现了？ ...</blockquote>
+看起来是降了，感染人数不如7月的BA5
+
+*****
+
+####  kidcomp  
+##### 98#       发表于 2022-11-3 20:28
+
+反思党人呢？
+
