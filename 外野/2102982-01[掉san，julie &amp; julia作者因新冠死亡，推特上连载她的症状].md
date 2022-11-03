@@ -689,3 +689,46 @@ XBB - Gryphon - 狮鹫
 
 不利于共存的话不要说，自觉遵守<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人类  
+##### 66#       发表于 2022-11-3 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58255786&amp;ptid=2102982" target="_blank">毒菇 发表于 2022-11-3 14:07</a>
+这人是治疗无效还是没去治疗？看起来是某个畅销作品的作家，应该不是缺钱人群吧 ...</blockquote>
+病人太多忙不过来，只治疗是个人都觉得对方马上要死的，其他都算轻症。
+
+这种轻症拖一下也死了。
+
+*****
+
+####  intuitus  
+##### 67#       发表于 2022-11-3 15:08
+
+躺匪的躺是他人死活与我无关，我的病了必须立刻就诊的躺，和过去表现出的精致利己主义别无二致<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  失落之翼  
+##### 68#       发表于 2022-11-3 15:10
+
+新冠踹开你免疫系统的门了然后走了，看似平平安安，实则空门大开，然后这些因为其他病的不会算在新冠病例里吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  古战场亡魂  
+##### 69#       发表于 2022-11-3 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256510&amp;ptid=2102982" target="_blank">yweili99 发表于 2022-11-3 15:00</a>
+
+拍帮主辛辛苦苦搬数据啃论文写的长篇科普没人看，还得上小作文，属于是魔法打败魔法了。
+
+原博日常一篇博 ...</blockquote>
+主要是得是知名人士，加上她一路的心路历程。
+
+这推特隔几天发个情况，直播死亡可比方方那编的日记杀伤力打多了。如果直接病死了，那感染力也不大。
+

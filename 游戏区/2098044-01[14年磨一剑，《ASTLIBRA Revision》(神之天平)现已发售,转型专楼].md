@@ -14988,3 +14988,23 @@ MAGICUS
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  何处分可  
+##### 1355#       发表于 2022-11-3 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256350&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-3 14:49</a>
+村子被毁了原来看见但拿不到箱子就没了么</blockquote>
+我记得是三个铜钥匙，不拿就不拿了
+
+*****
+
+####  何处分可  
+##### 1356#       发表于 2022-11-3 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58255718&amp;ptid=2098044" target="_blank">pf67 发表于 2022-11-3 14:02</a>
+还是难的，因为死了要从第一形态开始打，如果药没带够又死了很多次，不得已读档那还要从机器那开始。。。 ...</blockquote>
+我女神双形态都一次过，吃的药可能就4～6个，压力真没有第一个机械那么大，我在激光那个地方翻了好几次车
+
