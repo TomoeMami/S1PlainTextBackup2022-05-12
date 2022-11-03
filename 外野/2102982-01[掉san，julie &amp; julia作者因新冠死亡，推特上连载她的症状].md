@@ -1216,3 +1216,14 @@ https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg</blockquote>
 哎等下，不是说症状不如流感，几天自己就会好的呢？</blockquote>
 扔筛子，确实有一部分人的症状很轻。说白了就是赌自己是欧皇还是非酋
 
+
+
+*****
+
+####  wuxan94  
+##### 114#       发表于 2022-11-3 22:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261797&amp;ptid=2102982" target="_blank">sdhgak1234 发表于 2022-11-3 21:18</a>
+话说小时候受到的教育都是不能轻视流感，西方人视流感为大敌云云的，突显一个国内健康意识淡薄，结果新冠“ ...</blockquote>
+西方重视契约/法治社会/重视生命……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
