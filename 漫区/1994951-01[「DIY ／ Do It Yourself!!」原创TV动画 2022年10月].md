@@ -3942,3 +3942,12 @@ B站第一话上线了 看开头是东电代理感觉糟了 东电在隔壁达�
 B站第一话上线了 看开头是东电代理感觉糟了 东电在隔壁达伊里连金属人碎了都要打码的… ...</blockquote>
 切手的镜头被cut了，连血都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  leleq  
+##### 312#       发表于 2022-11-3 21:33
+
+这集女主展现了一点 画画天赋 果然女主床头的奖杯是画画的奖么 
+
