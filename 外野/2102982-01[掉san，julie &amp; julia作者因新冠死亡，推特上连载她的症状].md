@@ -753,3 +753,43 @@ XBB - Gryphon - 狮鹫
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">流感也要死人。
 
+
+
+*****
+
+####  深渊魔王  
+##### 72#       发表于 2022-11-3 15:34
+
+<blockquote>dmasdfdmazz 发表于 2022-11-3 13:18
+国内吹哨人不就这样吗？
+
+对心血管之类的损伤不是外表能看出来的</blockquote>
+新冠最可怕的是不知不觉的低血氧，往常可能只是略微劳累，甚至没感觉的事情，得了新冠再去做说不定直接挂了。
+
+所以我在泥潭反反复复的说，天朝如果选择躺平，结果必然会和国外大不一样，搞不好会刷出一波震撼世界的青壮年死亡率。
+
+毕竟我们是能堂而皇之的说时代呼唤低需氧人才的国家。
+
+毕竟有那么多人是“手停口停”
+
+问问你自己，你对加班有抵抗力吗？
+
+*****
+
+####  名守居  
+##### 73#       发表于 2022-11-3 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256764&amp;ptid=2102982" target="_blank">博叔 发表于 2022-11-3 15:18</a>
+流感也要死人。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">现在日本流感就不怎么死人了，有些月份死亡甚至是0
+防新冠的时候顺手把流感打死了
+
+*****
+
+####  ohi  
+##### 74#       发表于 2022-11-3 15:39
+
+曾经去爬雪山的时候有过血氧骤降的经历，坐缆车上去后走几步一看血氧已经降到五六十，突然感觉一阵眩晕，还好我手里拿着氧气瓶赶紧吸上了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

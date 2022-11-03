@@ -15019,3 +15019,16 @@ MAGICUS
 我女神双形态都一次过，吃的药可能就4～6个，压力真没有第一个机械那么大，我在激光那个地方翻了好几次车 ...</blockquote>
 我机械随便打，女神第一形态翻了好几次车，基本都是砍花的时候被碰瓷雷碰死的，第二形态倒是用脚打。
 
+
+
+*****
+
+####  何处分可  
+##### 1358#       发表于 2022-11-3 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256883&amp;ptid=2098044" target="_blank">管住键政的手 发表于 2022-11-3 15:24</a>
+我机械随便打，女神第一形态翻了好几次车，基本都是砍花的时候被碰瓷雷碰死的，第二形态倒是用脚打。
+
+ ...</blockquote>
+一形态打着打着就死了，我甚至还没摸清楚他有啥攻击模式<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
