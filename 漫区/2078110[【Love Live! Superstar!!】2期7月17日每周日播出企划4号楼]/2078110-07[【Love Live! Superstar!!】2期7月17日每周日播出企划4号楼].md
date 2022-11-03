@@ -1075,3 +1075,17 @@ ONCE MORE SMILE, TWICE MORE CHIME
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  emmer  
+##### 9081#       发表于 2022-11-3 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58240635&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-11-2 14:22</a>
+
+不是，扁平足是足弓塌陷，也没啥，可能比较容易驼背，然后久站步行更容易累受伤的风险更大点
+
+  -- 来自 有 ...</blockquote>
+我也是扁平足，四舍五入我跟鲤鱼贴贴
+
