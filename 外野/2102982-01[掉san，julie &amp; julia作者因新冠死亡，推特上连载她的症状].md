@@ -1103,3 +1103,15 @@ yuyue的8f-3zw咋样
 https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg</blockquote>
 艹，这舌头还能用？
 
+
+
+*****
+
+####  陈寿  
+##### 103#         楼主| 发表于 2022-11-3 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261386&amp;ptid=2102982" target="_blank">bdangel 发表于 2022-11-3 20:41</a>
+
+艹，这舌头还能用？</blockquote>
+我觉得肯定不能用了，味觉丧失都是小事
+

@@ -15248,3 +15248,41 @@ MAGICUS
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  战术核辣条  
+##### 1376#       发表于 2022-11-3 20:42
+
+一周目流程谨记一句话，嘉隆老师第一印象叫你怎么做你就怎么做（
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  弯弓射山猪  
+##### 1377#       发表于 2022-11-3 20:44
+
+请问怎么加点？
+
+全加幸运感觉打怪逐渐打不动了
+
+第二章了
+
+是不是要加点攻击或者敏捷？
+
+*****
+
+####  baizhi  
+##### 1378#       发表于 2022-11-3 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261434&amp;ptid=2098044" target="_blank">弯弓射山猪 发表于 2022-11-3 20:44</a>
+
+请问怎么加点？
+
+全加幸运感觉打怪逐渐打不动了
+
+第二章了</blockquote>
+我0幸运箱子图纸一样随便爆
+
