@@ -3924,3 +3924,12 @@ TMD我不想的 我真的只想抽个C元帅啊</blockquote>
 
 顺带一提很久没抽到up的五星礼装了，连续两次活动没氪金加成了
 
+
+
+*****
+
+####  qixinno2  
+##### 3355#       发表于 2022-11-3 19:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">TMD 全扔进去甚至连个四星从者都没有 滚了
+

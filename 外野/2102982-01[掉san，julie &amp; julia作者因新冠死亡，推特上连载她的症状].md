@@ -993,3 +993,20 @@ yuyue的8f-3zw咋样
 
 她打过疫苗没？
 
+
+
+*****
+
+####  伊萨的终结  
+##### 93#       发表于 2022-11-3 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257190&amp;ptid=2102982" target="_blank">skyuni 发表于 2022-11-3 15:44</a>
+老早看圆脸的视频就有了，印度那边用大剂量激素治疗新冠，导致人体免疫力缺陷，出院后随便来个霉菌（健康 ...</blockquote>
+这个东西的可怕在于，病毒和细菌还能勉强防一防
+
+真菌是尼玛防不住的，人每天吸进去几千个孢子跟玩儿一样
+
+平时免疫力在线，屁事没有，新冠把免疫力搞到连真菌都能感染的时候，死亡只是个时间问题
+
+—— 来自 samsung SM-G9750, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
