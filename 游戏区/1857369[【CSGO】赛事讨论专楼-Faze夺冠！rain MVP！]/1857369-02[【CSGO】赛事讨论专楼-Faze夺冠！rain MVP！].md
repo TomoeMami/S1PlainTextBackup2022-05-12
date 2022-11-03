@@ -321,3 +321,24 @@ og倒也没那么强，我个人感觉是他们ct很多细节处理都不太行�
 
 社恐本来就是玩梗吧，本质问题还是线下经验少，慢慢积累起来就好了
 
+
+
+*****
+
+####  曼陀罗肥  
+##### 2665#       发表于 2022-11-3 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58258614&amp;ptid=1857369" target="_blank">iam_hcl 发表于 2022-11-3 17:21</a>
+
+og倒也没那么强，我个人感觉是他们ct很多细节处理都不太行。总的来说我还看好蜜蜂一点，看看老头能不能在生 ...</blockquote>
+主要小蜜蜂就没个稳定的点，不管是apex指挥的问题还是他们状态的问题，表现出来的就是除载物外进攻默认做不明白犯病，防守枪软磕不过，只能靠个人能力枪法爆发赢比赛。这样的状态就算进了major第一第二轮打navi，faze也是直接回家，真不如现在淘汰了回去变阵，长痛不如短痛。
+
+*****
+
+####  朔方原的星  
+##### 2666#         楼主| 发表于 2022-11-3 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58258784&amp;ptid=1857369" target="_blank">曼陀罗肥 发表于 2022-11-3 17:32</a>
+主要小蜜蜂就没个稳定的点，不管是apex指挥的问题还是他们状态的问题，表现出来的就是除载物外进攻默认做 ...</blockquote>
+我对apex没有任何信任可言，一个指挥总是做出糟糕至极的个人决策这让人对他的指挥能力很难产生一丝信任
+
