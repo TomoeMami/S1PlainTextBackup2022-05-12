@@ -1056,3 +1056,50 @@ yuyue的8f-3zw咋样
 
 反思党人呢？
 
+
+
+*****
+
+####  bdangel  
+##### 99#       发表于 2022-11-3 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261036&amp;ptid=2102982" target="_blank">陈寿 发表于 2022-11-3 20:13</a>
+
+找到一张黑舌苔（black hairy tongue）的图片
+
+有点震到我了，不知道该不该给大家发出来看看 ...</blockquote>
+给连接
+
+*****
+
+####  比亚迪  
+##### 100#       发表于 2022-11-3 20:38
+
+看完黑底白字，整个屏幕都是黑条
+
+*****
+
+####  陈寿  
+##### 101#         楼主| 发表于 2022-11-3 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261277&amp;ptid=2102982" target="_blank">bdangel 发表于 2022-11-3 20:33</a>
+
+给连接</blockquote>
+有道理。。
+
+[https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg](https://wx2.sinaimg.cn/mw2000/006GUPURgy1h7rz6ogdtyj30hv0ert9y.jpg)
+
+慎点，8个月婴儿的黑舌苔
+
+*****
+
+####  bdangel  
+##### 102#       发表于 2022-11-3 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261367&amp;ptid=2102982" target="_blank">陈寿 发表于 2022-11-3 20:40</a>
+
+有道理。。
+
+https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg</blockquote>
+艹，这舌头还能用？
+

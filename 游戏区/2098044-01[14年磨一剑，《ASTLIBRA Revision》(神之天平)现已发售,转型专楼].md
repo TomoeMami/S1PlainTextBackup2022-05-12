@@ -15235,3 +15235,16 @@ MAGICUS
 
 第二章boss战是连战存档后出不去了 好像少合一个装备后面能补么
 
+
+
+*****
+
+####  redsouris  
+##### 1375#       发表于 2022-11-3 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261102&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-3 20:19</a>
+第二章boss战是连战存档后出不去了 好像少合一个装备后面能补么</blockquote>
+每章都可以回去补的
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
