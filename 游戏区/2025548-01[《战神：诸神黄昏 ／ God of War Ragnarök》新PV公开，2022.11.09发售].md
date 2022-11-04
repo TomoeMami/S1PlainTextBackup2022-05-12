@@ -9591,3 +9591,30 @@ A9这个视频半个小时？真能做<img src="https://static.saraba1st.com/ima
 说起来现在初代二代有什么比较方便能玩到的吗？</blockquote>
 psv
 
+
+
+*****
+
+####  轨迹老实人  
+##### 997#       发表于 2022-11-4 11:27
+
+量大管饱我最爱<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+一周目战神难度疯狂受苦，每天攻略一个战点，节奏也适合上班族
+
+战神的剧情…不如本身北欧这个噱头
+
+*****
+
+####  ads147147  
+##### 998#       发表于 2022-11-4 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58267334&amp;ptid=2025548" target="_blank">zhangzlo 发表于 2022-11-4 10:34</a>
+
+都有。
+
+总之就是浓浓的一股“战神5应该有大变化，大动作，才对得起战神这个名字”的味道。
+
+和当初美末2日 ...</blockquote>
+续作还做大改动，怕不是现在轮子都做不出来。
+
