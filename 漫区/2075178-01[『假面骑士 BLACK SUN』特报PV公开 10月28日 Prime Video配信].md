@@ -3369,3 +3369,12 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这些怪人是否有点弱了，弱得我觉得阿月要当创世王都有点搞了。。
 
+
+
+*****
+
+####  dio999  
+##### 306#       发表于 2022-11-4 12:58
+
+创世王就一抽精工具人，谁tm要当啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

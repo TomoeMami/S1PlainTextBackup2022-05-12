@@ -1142,3 +1142,23 @@ genlib还在，毕竟是毛子的站，美国应该暂时动不了
 其实我更好奇坛友会下什么类型的书</blockquote>
 技术类 英文原版很全
 
+
+
+*****
+
+####  igetahiroe23  
+##### 132#       发表于 2022-11-4 12:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58268264&amp;ptid=2103152" target="_blank">回旋泼桶 发表于 2022-11-4 11:23</a>
+真有这么多人给这网站洗，里面还有轮子的书啊</blockquote>
+啥逻辑？ 中国现在还有轮子 意思是你不爱国 你反动<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> jjs人死心不死 谁指使你的？
+
+*****
+
+####  takitaki  
+##### 133#       发表于 2022-11-4 12:57
+
+bookszlibb74ugqojhzhg2a63w5i2atv5bqarulgczawnbmsb6s6qead
+
+且用且珍惜吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">前两个月刚扩充了一波收藏，虽然短时间内不会受到什么影响。中亚和zlib都倒了libgen也独木难支
+
