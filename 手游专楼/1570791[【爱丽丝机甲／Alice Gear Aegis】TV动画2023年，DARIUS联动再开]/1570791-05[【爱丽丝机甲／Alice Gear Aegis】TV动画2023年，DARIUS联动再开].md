@@ -414,3 +414,55 @@ ps:桃歌的新便服，绝对垫了，都到会长的水准了
 
 居委会组还好说，电波神婆能联动啥啊
 
+
+
+*****
+
+####  LEOKO~  
+##### 7432#       发表于 2022-11-4 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257879&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2022-11-3 16:35</a>
+
+居委会组还好说，电波神婆能联动啥啊</blockquote>
+巫女和下町组的单位在现实应该存在吧，所以剩下那个该会不会也...
+
+*****
+
+####  LEOKO~  
+##### 7433#       发表于 2022-11-4 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257879&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2022-11-3 16:35</a>
+
+居委会组还好说，电波神婆能联动啥啊</blockquote>
+巫女和下町组的单位在现实应该存在吧，所以剩下那个该会不会也...
+
+*****
+
+####  LEOKO~  
+##### 7434#       发表于 2022-11-4 15:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257879&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2022-11-3 16:35</a>
+
+居委会组还好说，电波神婆能联动啥啊</blockquote>
+巫女和下町组的单位在现实应该存在吧，所以剩下那个该会不会也...
+
+*****
+
+####  LEOKO~  
+##### 7435#       发表于 2022-11-4 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257879&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2022-11-3 16:35</a>
+
+居委会组还好说，电波神婆能联动啥啊</blockquote>
+巫女和下町组的单位在现实存在吧，所以剩下那个该会不会也...
+
+*****
+
+####  LEOKO~  
+##### 7436#       发表于 2022-11-4 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58257879&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2022-11-3 16:35</a>
+
+居委会组还好说，电波神婆能联动啥啊</blockquote>
+巫女和下町组的单位在现实存在吧，所以剩下那个该会不会也...
+
