@@ -1242,3 +1242,26 @@ eh也不行了<img src="https://static.saraba1st.com/image/smiley/face2017/068.p
 真有这么多人给这网站洗，里面还有轮子的书啊</blockquote>
 差不多得乐，书籍上传又没审核，不服你该去揍轮子
 
+
+
+*****
+
+####  Quelaan  
+##### 143#       发表于 2022-11-4 13:24
+
+其他地方看到的，到九月末为止的zlib磁链资源，转发一下
+
+Z-Library种子+书目20220929.zip
+[https://www.aliyundrive.com/s/aKkfjv7bpi3](https://www.aliyundrive.com/s/aKkfjv7bpi3) 2
+
+提取码: gh34
+
+点击链接保存，或者复制本段内容，打开「阿里云盘」APP ，无需下载极速在线查看，视频原画倍速播放。
+
+*****
+
+####  桐江  
+##### 144#       发表于 2022-11-4 13:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">太丧了
+
