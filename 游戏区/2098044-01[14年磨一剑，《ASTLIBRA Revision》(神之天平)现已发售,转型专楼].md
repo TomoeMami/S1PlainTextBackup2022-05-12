@@ -15689,3 +15689,25 @@ MAGICUS
 新章给武器加等级，之前道具的点数都好低啊，这个也是要刷的吗？还是说后面的道具点数更高？还是说其实武器 ...</blockquote>
 后头开箱子和挖矿能拿着专门强化装备的道具，武器等级强化上去之后基础的面板差异就没那么重要了，挑用着顺手，带强力被动的一直强化就行，全身+50之后基本就是横着走了
 
+
+
+*****
+
+####  Leomai  
+##### 1415#       发表于 2022-11-4 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271733&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-11-4 14:57</a>
+还有一颗石头是竞技场还是徽章兑换的武器的熟练度奖励
+
+应该是要到终章才能拿到 ...</blockquote>
+那只能先继续往下推了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+所以正确的拿心天平和神杀剑的姿势应该是到终章才对吧
+
+*****
+
+####  方舟失智博士  
+##### 1416#       发表于 2022-11-4 15:10
+
+怎么知道一个区域的图纸都拿完了呢
+等金银箱子都开出素材么
+
