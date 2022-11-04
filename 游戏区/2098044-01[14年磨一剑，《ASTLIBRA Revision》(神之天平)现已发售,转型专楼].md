@@ -15560,3 +15560,18 @@ MAGICUS
 而且只有boss箱出</blockquote>
 装备盘掉率不关爱情的事啊……
 
+
+
+*****
+
+####  Ravio  
+##### 1404#       发表于 2022-11-4 12:33
+
+ 本帖最后由 Ravio 于 2022-11-4 12:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58269470&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-4 12:29</a>
+
+装备盘掉率不关爱情的事啊……</blockquote>
+社区看的玄学，实测打完（大概一共8次boss）我认为靠谱，建议不掉的试试而已
+
+其中有2次是5箱出2
+

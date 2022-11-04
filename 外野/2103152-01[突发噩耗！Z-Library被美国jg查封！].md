@@ -1001,3 +1001,79 @@ Z-Library is a mirror of  Library Genesis
 
 美国佬我操你们妈<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  haohaoh4  
+##### 118#       发表于 2022-11-4 12:32
+
+[http://es.b-ok.lat/](http://es.b-ok.lat/)
+
+该域名已被美国邮政检查局根据法院命令没收。
+
+*****
+
+####  Flyfish233  
+##### 119#       发表于 2022-11-4 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58268029&amp;ptid=2103152" target="_blank">Arhjoy 发表于 2022-11-4 11:12</a>
+艹，上次看到这个还是kickassto</blockquote>
+早转生了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  御风沐雪  
+##### 120#       发表于 2022-11-4 12:32
+
+亚历山大图书馆失火了来自: iPhone客户端
+
+
+
+*****
+
+####  深色主题已停用  
+##### 121#       发表于 2022-11-4 12:33
+
+tor 能上能登录，只是慢。硬盘没被查封就行
+
+*****
+
+####  绕指流光  
+##### 122#       发表于 2022-11-4 12:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58269140&amp;ptid=2103152" target="_blank">Glaceon丶 发表于 2022-11-4 12:08</a>
+
+不要啊…
+
+咋有种已经彻底被橄榄了的感觉，我现在连楼主图上那个页面都看不到</blockquote>
+这个也已经寄了，小号2和3还活着，只有计算机类了
+
+*****
+
+####  Lorraine_Kinney  
+##### 123#       发表于 2022-11-4 12:38
+
+ 本帖最后由 Lorraine_Kinney 于 2022-11-4 12:40 编辑 
+
+还好，[Library Genesis](http://libgen.rs/)还活着
+
+下外文教材就靠它了
+
+*****
+
+####  Quelaan  
+##### 124#       发表于 2022-11-4 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58269620&amp;ptid=2103152" target="_blank">Lorraine_Kinney 发表于 2022-11-4 12:38</a>
+
+我超 genius library呢？</blockquote>
+genlib还在，毕竟是毛子的站，美国应该暂时动不了
+
+*****
+
+####  友善用户  
+##### 125#       发表于 2022-11-4 12:41
+
+好事，狠狠地打击海盗党。
+
