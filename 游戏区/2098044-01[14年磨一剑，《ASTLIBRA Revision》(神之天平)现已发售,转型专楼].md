@@ -15973,3 +15973,15 @@ MAGICUS
 
 我在第四章蛇身洞窟 怎么商人没有火药买了 我之前没注意就用送的三个在村子就用完了
 
+
+
+*****
+
+####  Sannapolis  
+##### 1442#       发表于 2022-11-4 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58278047&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-4 21:40</a>
+我在第四章蛇身洞窟 怎么商人没有火药买了 我之前没注意就用送的三个在村子就用完了 ...</blockquote>
+火药在小猪商店买
+没有的话可能是bug
+
