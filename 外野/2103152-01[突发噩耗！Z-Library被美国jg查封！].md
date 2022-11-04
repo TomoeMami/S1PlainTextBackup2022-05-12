@@ -1699,3 +1699,12 @@ cnm cnm
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">重建相对容易吧，毕竟资料其实就160tb，没多大…希望没事
 
+
+
+*****
+
+####  Idea  
+##### 193#       发表于 2022-11-4 16:42
+
+软件也打不开了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

@@ -556,3 +556,16 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 这次活动没有啥打的必要了，正好咸鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布伦史塔德  
+##### 43690#       发表于 2022-11-4 16:32
+
+该搓胜杯了
+
+前年搞了一个亿友情点
+
+暂时没有想升120的，也许摩根
+
