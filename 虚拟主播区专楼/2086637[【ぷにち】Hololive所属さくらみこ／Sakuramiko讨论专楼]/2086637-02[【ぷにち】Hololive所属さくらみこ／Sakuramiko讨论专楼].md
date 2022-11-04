@@ -13836,3 +13836,14 @@ fbk这几天很积极在会场帮忙 做了很多建筑推上的图
 
 明天早上的ohasuba好像有嘉宾跟运动会有关，明天两个运营都要起早出门去工作室所以有可能两个人都出场直播，留意一下
 
+
+
+*****
+
+####  rs5621  
+##### 2823#       发表于 2022-11-5 01:41
+
+七字母真是的……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
