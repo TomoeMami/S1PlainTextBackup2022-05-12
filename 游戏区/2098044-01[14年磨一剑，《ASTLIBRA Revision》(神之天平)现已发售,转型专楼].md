@@ -15795,3 +15795,18 @@ MAGICUS
 而且终章才有后面的斗技场，一些小徽章和出石头的装 ...</blockquote>
 搜完了，检查了一下宝物清单，还有一个在斗技场报酬里，看了一下wiki终章斗技场也有一枚，应该是那个吧。
 
+
+
+*****
+
+####  redsouris  
+##### 1424#       发表于 2022-11-4 15:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58272288&amp;ptid=2098044" target="_blank">tsubaki 发表于 2022-11-4 15:27</a>
+石头只有光剑是竞技场挑战给的（那关没法吃药），其余几个都是隐藏BOSS
+
+都弄完找老头还不给剑的话看下扭蛋 ...</blockquote>
+海蛇洞和魔王城两个隐藏宝箱的铠甲也容易漏
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
