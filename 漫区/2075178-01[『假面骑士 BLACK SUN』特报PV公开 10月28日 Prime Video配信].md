@@ -3401,3 +3401,17 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 哪怕是号称最强的黑日影月在2战感觉都很难存活 所以这怪人军队的想法真是太土嗨了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉和阿妈粽半斤八两的强度啊，影月这想法放在其他片场都有看头，但是在这。。
 
+
+
+*****
+
+####  翼宿一  
+##### 309#       发表于 2022-11-4 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58270734&amp;ptid=2075178" target="_blank">武男 发表于 2022-11-4 13:49</a>
+感觉和阿妈粽半斤八两的强度啊，影月这想法放在其他片场都有看头，但是在这。。 ...</blockquote>
+不如 Amazon，Amazon 的单体战斗力不弱的，粽子第一季第一集出场的 Rank D 蜘蛛都要整个驱逐班围剿，Rank A 的蝙蝠和 Rank B 的蜘蛛直接能把主角入队前的驱逐班团灭，在人类搞出降雨计划之前基本无法解决 Amazon，更别说后面还有人类感染后突变的溶原性细胞 Amazon。
+黑日里的普通怪人能被两枪击毙、能被数个人类直接殴打致死，有战斗力的仅限那些上级怪人，而且不少上级怪人也仅仅只是持平 Rank A 的 Amazon（能肉身抵抗专用弹药）。可以说黑日的怪人之所以能活下来就是因为对人类没有威胁……信彦用炽热天堂养出来的敢死队都是被特种部队几下突突完的水平，更别说其他普通怪人了，原先还以为是怪人隐忍但最后发现大多数怪人的战斗力也就尼哥水平，无法呼吸是正常的。
+
+—— 来自 Google Pixel 4, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
