@@ -4154,3 +4154,13 @@ Snipaste_2022-11-04_12-51-58.png
 秋アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第5話放送後インタビュー：しー役 高橋花林さん&amp;#xD7;ジョブ子役 大森日雅さん｜二人がDIY部のメンバーを分析、この親にして“せるふ”あり！
 [https://www.animatetimes.com/news/details.php?id=1667524952](https://www.animatetimes.com/news/details.php?id=1667524952)
 
+
+
+*****
+
+####  用户名已注册  
+##### 327#       发表于 2022-11-4 17:09
+
+双十一买了个“周边”：12V锂电钻。
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

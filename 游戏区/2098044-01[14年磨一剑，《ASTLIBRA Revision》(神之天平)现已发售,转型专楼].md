@@ -15825,3 +15825,13 @@ MAGICUS
 
 总之，真是款好游戏。
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1426#       发表于 2022-11-4 17:01
+
+刚打完第三章好玩的很
+用的魔杖在那磨 最后发现拿起双刀猛砍就行了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
