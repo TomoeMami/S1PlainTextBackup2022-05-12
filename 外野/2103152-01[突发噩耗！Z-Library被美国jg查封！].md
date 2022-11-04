@@ -1983,3 +1983,41 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 我一直想知道jg到底是什么缩写</blockquote>
 ‮⁢方⁢警
 
+
+
+*****
+
+####  Diabolosis  
+##### 222#       发表于 2022-11-4 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58279028&amp;ptid=2103152" target="_blank">回忆and无语 发表于 2022-11-4 23:08</a>
+‮⁢方⁢警</blockquote>
+你这是怎么打出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">逆序？
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ArthurFyc  
+##### 223#       发表于 2022-11-4 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58278631&amp;ptid=2103152" target="_blank">duanrenduanren 发表于 2022-11-4 22:33</a>
+电报机器人已经复活 体积小于50mb书籍可以直接下载。以上的需要使用tor浏览器下载。 
+
+网站还是有复活的希 ...</blockquote>
+现在好像账号绑定不了telegram了。。。后悔之前没绑
+
+*****
+
+####  isummon  
+##### 224#       发表于 2022-11-4 23:55
+
+插眼关注，这情况没想到啊
+
+*****
+
+####  ArowRocher  
+##### 225#       发表于 2022-11-4 23:57
+
+用过下载过但没看，不知道他亏了还是我亏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
