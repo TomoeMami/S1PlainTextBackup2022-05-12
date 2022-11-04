@@ -15897,3 +15897,12 @@ MAGICUS
 
 试玩了一会儿demo，感觉没太get到点子上，能不能说说这游戏好评如潮的原因？考虑要不要入坑试试
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1434#       发表于 2022-11-4 19:40
+
+卧槽药草的伏笔第一章就埋下了么<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">神了
+
