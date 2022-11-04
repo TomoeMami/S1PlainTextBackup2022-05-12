@@ -4096,3 +4096,25 @@ FguGwNXVsAAhJlZ.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果原型真的是妖精女王这部叙事诗的登场人物的话，里面会是个妹子
 
+
+
+*****
+
+####  alucardcz  
+##### 3371#       发表于 2022-11-4 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277511&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-11-4 20:57</a>
+
+如果原型真的是妖精女王这部叙事诗的登场人物的话，里面会是个妹子</blockquote>
+奥若拉：是我（
+
+*****
+
+####  保罗赫伯特  
+##### 3372#       发表于 2022-11-4 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277598&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-4 21:03</a>
+
+奥若拉：是我（</blockquote>
+太巨魔了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

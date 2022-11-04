@@ -15940,3 +15940,15 @@ MAGICUS
 
 感觉差不多该放弃刷出第二个无限开箱把这盾牌换下去的幻想了，装备盘的技能看晶石的排序感觉是有稀有度划分的
 
+
+
+*****
+
+####  baizhi  
+##### 1439#       发表于 2022-11-4 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58276929&amp;ptid=2098044" target="_blank">s3080722703 发表于 2022-11-4 20:12</a>
+
+想问一下，是所有的武器和防具都要刷满级吗？</blockquote>
+前期没必要去刷，越到后期小怪给的熟练度越多，我到了新章之后，跟着流程随便打打就把所有装备都精通了。
+
