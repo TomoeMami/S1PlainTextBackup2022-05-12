@@ -1469,3 +1469,15 @@ forbidden
 —— 来自 S1Fun</blockquote>
 共存派心善，见不得这些，只当是又一个不相干的人死了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  enrin  
+##### 132#       发表于 2022-11-4 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58266350&amp;ptid=2102982" target="_blank">琥珀拾芥 发表于 2022-11-04 09:27:41</a>
+这事最恶心的还是你明明得了病，周围的人、医院、网上的人都在跟你说没什么大不了的，只是感冒，只是小病。 ...</blockquote>一种另类的煤气灯效应
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

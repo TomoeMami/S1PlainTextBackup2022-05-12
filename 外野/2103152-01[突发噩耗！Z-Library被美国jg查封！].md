@@ -830,3 +830,86 @@ cnm cnm
 
 现在版权完全是为了资本服务，什么时候干死啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ashzolo  
+##### 98#       发表于 2022-11-4 12:02
+
+瞬间觉得手里的kpw是废品<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  情商  
+##### 99#       发表于 2022-11-4 12:04
+
+版权问题？
+
+*****
+
+####  胧楼  
+##### 100#       发表于 2022-11-4 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58268914&amp;ptid=2103152" target="_blank">东郃子 发表于 2022-11-4 11:56</a>
+
+其实我更好奇坛友会下什么类型的书</blockquote>
+历史研究类，没了zl真不知道去哪里找了。
+
+*****
+
+####  Omic  
+##### 101#       发表于 2022-11-4 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58267814&amp;ptid=2103152" target="_blank">桂子荷花 发表于 2022-11-4 11:02</a>
+
+wiki如是说</blockquote>
+美国倒了至少俄罗斯的没问题, 哈哈哈,果然还是要在对立国放服务器.
+
+*****
+
+####  Glaceon丶  
+##### 102#       发表于 2022-11-4 12:08
+
+不要啊…<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+咋有种已经彻底被橄榄了的感觉，我现在连楼主图上那个页面都看不到来自: iPhone客户端
+
+*****
+
+####  masonknight  
+##### 103#       发表于 2022-11-4 12:09
+
+艹了啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ysys  
+##### 104#       发表于 2022-11-4 12:09
+
+说好的网络自由呢
+
+*****
+
+####  比乐  
+##### 105#       发表于 2022-11-4 12:09
+
+麻了，我微信读书今天才到期
+
+*****
+
+####  ccccch  
+##### 106#       发表于 2022-11-4 12:11
+
+美帝哈哈了
+
+这网站我专门用来找历史资料，网盘现在想找资料太麻烦
+
+*****
+
+####  ビッチ  
+##### 107#       发表于 2022-11-4 12:11
+
+哎 下过不少 凑合过吧 总感觉好不了
+
