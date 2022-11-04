@@ -2096,3 +2096,12 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 
 艹了，泥潭屏蔽词体系破防了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asergh0630rx  
+##### 232#       发表于 2022-11-5 07:07
+
+插个眼，md两个月前刚捐了10美元。
+
