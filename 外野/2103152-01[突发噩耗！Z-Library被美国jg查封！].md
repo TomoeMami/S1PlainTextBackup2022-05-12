@@ -1162,3 +1162,26 @@ bookszlibb74ugqojhzhg2a63w5i2atv5bqarulgczawnbmsb6s6qead
 
 且用且珍惜吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">前两个月刚扩充了一波收藏，虽然短时间内不会受到什么影响。中亚和zlib都倒了libgen也独木难支
 
+
+
+*****
+
+####  五岳盟主左冷禅  
+##### 134#       发表于 2022-11-4 13:04
+
+踏🐴的美国佬<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  koemi  
+##### 135#       发表于 2022-11-4 13:05
+
+难怪打不开了 我还以为是日常抽风<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  nekomimimode  
+##### 136#       发表于 2022-11-4 13:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">acg图书类看来只能去eh了
+

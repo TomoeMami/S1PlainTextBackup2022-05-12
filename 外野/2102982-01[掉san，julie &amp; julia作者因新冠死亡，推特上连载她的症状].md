@@ -1493,3 +1493,16 @@ forbidden
 forbidden</blockquote>
 已修正
 
+
+
+*****
+
+####  这个碧池是谁？  
+##### 134#       发表于 2022-11-4 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58266926&amp;ptid=2102982" target="_blank">雷修特 发表于 2022-11-4 10:06</a>
+都2天了，共存派人呢？
+
+—— 来自 S1Fun</blockquote>
+在核酸自费楼里团建呢
+

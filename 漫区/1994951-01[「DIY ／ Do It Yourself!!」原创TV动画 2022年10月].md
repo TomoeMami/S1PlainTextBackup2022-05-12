@@ -4077,3 +4077,16 @@ Snipaste_2022-11-04_12-51-58.png
 
 <img src="https://img.saraba1st.com/forum/202211/04/125225g000middnpoldgox.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 321#       发表于 2022-11-4 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58269881&amp;ptid=1994951" target="_blank">tpsg 发表于 2022-11-4 12:52</a>
+从op看应该没有新角色登场了，所有最后还是没招满本校5人
+
+下集能收布丁吗？</blockquote>
+根据下集文字预告，DIY 社要去海边，布丁在不知道这是社团活动的情况下跟 Job 子一起去了，应该会有进展吧
+

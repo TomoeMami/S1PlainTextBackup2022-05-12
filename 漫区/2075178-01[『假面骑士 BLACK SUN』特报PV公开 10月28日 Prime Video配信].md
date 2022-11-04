@@ -3378,3 +3378,14 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 创世王就一抽精工具人，谁tm要当啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eyeego  
+##### 307#       发表于 2022-11-4 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58263782&amp;ptid=2075178" target="_blank">武男 发表于 2022-11-3 23:46</a>
+这些怪人是否有点弱了，弱得我觉得阿月要当创世王都有点搞了。。</blockquote>
+哪怕是号称最强的黑日影月在2战感觉都很难存活 所以这怪人军队的想法真是太土嗨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
