@@ -1077,3 +1077,68 @@ genlib还在，毕竟是毛子的站，美国应该暂时动不了
 
 好事，狠狠地打击海盗党。
 
+
+
+*****
+
+####  Arhjoy  
+##### 126#       发表于 2022-11-4 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58269515&amp;ptid=2103152" target="_blank">Flyfish233 发表于 2022-11-4 12:32</a>
+早转生了</blockquote>
+我知道啊，我说楼主贴的那个图上次是在kat的主页上看到的
+
+*****
+
+####  snarc1  
+##### 127#       发表于 2022-11-4 12:42
+
+美国佬，wcnm<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Glaceon丶  
+##### 128#       发表于 2022-11-4 12:44
+
+ 本帖最后由 Glaceon丶 于 2022-11-4 12:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58269618&amp;ptid=2103152" target="_blank">绕指流光 发表于 2022-11-4 12:38</a>
+这个也已经寄了，小号2和3还 ...</blockquote>
+没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">我刚试了在1那下本书还可以的
+
+行吧 如果之前没打开过现在已经显示不存在了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  绕指流光  
+##### 129#       发表于 2022-11-4 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58269717&amp;ptid=2103152" target="_blank">Glaceon丶 发表于 2022-11-4 12:44</a>
+
+没有吧我刚试了在1那下本书还可以的
+
+论坛助手,iPhone</blockquote>
+可能是关注了的还能下，但是链接已经无此ID了
+
+*****
+
+####  晨曦之下  
+##### 130#       发表于 2022-11-4 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58268846&amp;ptid=2103152" target="_blank">tima_rua 发表于 2022-11-4 11:52</a>
+下那么多书看得完吗？
+
+— from Google Pixel 5, Android 13 of S1 Next Goose v2.5.4</blockquote>
+就是看不完才要站点的存在随时能看 
+不然就得把可能想看的都下下来
+
+*****
+
+####  晨曦之下  
+##### 131#       发表于 2022-11-4 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58268914&amp;ptid=2103152" target="_blank">东郃子 发表于 2022-11-4 11:56</a>
+其实我更好奇坛友会下什么类型的书</blockquote>
+技术类 英文原版很全
+
