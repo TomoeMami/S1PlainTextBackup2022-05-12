@@ -1440,3 +1440,19 @@ forbidden
 
 该祝福才对
 
+
+
+*****
+
+####  wszweill  
+##### 130#       发表于 2022-11-4 11:45
+
+ 本帖最后由 wszweill 于 2022-11-3 22:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58254956&amp;ptid=2102982" target="_blank">2474089352 发表于 2022-11-2 23:54</a>
+
+（广义）无症状/轻症然后直接致死？这么恐怖吗？？
+
+论坛助手,iPhone</blockquote>z
+
+原版就有的情况，轻症直接转低血氧一波GG。因此就算是轻症/无症状住放舱也是很有意义的，否则自己独居在家里不一定能撑到救护车到来，普通人也把握不住啥时候GG。当然了，总体上仍然是个概率问题，身边统计学肯定是P用没有，觉得住放舱也就观察吃药，没啥意义，毕竟轻症不roll'到重症就是自愈（（
+

@@ -18,3 +18,15 @@
 
 tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺水推舟，杨提督这边束手束脚好难受啊 看得我！
 
+
+
+*****
+
+####  yixiaqqq  
+##### 5500#       发表于 2022-11-4 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58265472&amp;ptid=1502023" target="_blank">宝儿 发表于 2022-11-4 07:48</a>
+
+tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺水推舟，杨提督这边束手束脚好难受啊 看得我！ ...</blockquote>
+杨就是不想接触这次金毛的选择题才做咸鱼的啊，没办法。
+
