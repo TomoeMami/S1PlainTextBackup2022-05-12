@@ -4112,3 +4112,26 @@ Snipaste_2022-11-04_12-51-58.png
 现在好像只有女主比较尴尬 ，最新一集看完感觉只有画画厉害点，其他基本一窍不通，虽然天然呆和自来熟的性 ...</blockquote>
 全集会员是当年被优酷搞出来的遗留问题了
 
+
+
+*****
+
+####  千恋万花  
+##### 324#       发表于 2022-11-4 16:01
+
+|||◤キャラクター設定公開|
+|　　 　&amp;#x1F528; #しー ⚙️　　◢|||
+
+制服全身・表情設定を公開✨
+
+&amp;#x1F4F9;キャラクターPVｰしーｰ(cv #高橋花林 )
+[https://youtu.be/ke0jUZLfvJc](https://youtu.be/ke0jUZLfvJc)
+
+&amp;#x1F4FA;TVアニメ好評放送･配信中!
+[https://diy-anime.com/onair/](https://diy-anime.com/onair/)
+
+&amp;#x1F4BF;CD･BD予約受付中!
+[https://diy-anime.com/bd-cd/](https://diy-anime.com/bd-cd/)
+<img src="https://p.sda1.dev/8/ad2bfca00763546a10fe1d7c9669bd83/diy_anime-1588440922177605634-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/9e10ade8ee533edfa7ee7f28745a3fc9/diy_anime-1588440922177605634-img2.jpg" referrerpolicy="no-referrer">
+
