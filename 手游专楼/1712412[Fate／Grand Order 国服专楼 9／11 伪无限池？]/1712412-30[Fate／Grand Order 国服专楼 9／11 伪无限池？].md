@@ -598,3 +598,19 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 友情点不多直接抽完了
 
+
+
+*****
+
+####  SAGA0Arcueid  
+##### 43694#       发表于 2022-11-4 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261044&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2022-11-3 20:14</a>
+
+这个龟龟不是一与啊
+
+之前还以为一与是弟弟，搞半天是弟子</blockquote>
+这个活动最后开始挖坑，最后落地和师傅抢男人
+
+然而由于师傅人气实在太低导致她其实是个ML的事情基本上没多少玩家知道，离谱
+

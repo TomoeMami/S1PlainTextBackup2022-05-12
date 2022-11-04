@@ -4164,3 +4164,14 @@ Snipaste_2022-11-04_12-51-58.png
 双十一买了个“周边”：12V锂电钻。
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  亚瑟邓特  
+##### 328#       发表于 2022-11-4 22:33
+
+什么婆罗门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

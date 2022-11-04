@@ -1923,3 +1923,18 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">我看到这个消息真的整个人麻了，太吓人了，好像家里的牛群全没了
 
+
+
+*****
+
+####  duanrenduanren  
+##### 217#       发表于 2022-11-4 22:33
+
+ 本帖最后由 duanrenduanren 于 2022-11-4 22:35 编辑 
+
+<img src="https://p.sda1.dev/8/d87f657a16a563b71e2e13e62b14e288/IMG_20221104_223025.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0b56d01f2338459e17b32ca0b7c0d917/IMG_20221104_222956.jpg" referrerpolicy="no-referrer">
+[电报机器人](https://t.me/firstlibrarybot)已经复活 体积小于50mb书籍可以直接下载。以上的需要使用tor浏览器下载。 
+
+网站还是有复活的希望的。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

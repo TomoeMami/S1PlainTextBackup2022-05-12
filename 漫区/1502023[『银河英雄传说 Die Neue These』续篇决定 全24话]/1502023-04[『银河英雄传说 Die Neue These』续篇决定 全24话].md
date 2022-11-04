@@ -85,3 +85,22 @@ tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺
 刚想问，结果一查发现nyaa有，估计是没发布到国内常见的几个站吧</blockquote>
 兄弟方便来个B国际的磁力么，刚好梯子坏了上不去
 
+
+
+*****
+
+####  silversor  
+##### 5506#       发表于 2022-11-4 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58278470&amp;ptid=1502023" target="_blank">马琳厨 发表于 2022-11-4 22:16</a>
+
+兄弟方便来个B国际的磁力么，刚好梯子坏了上不去</blockquote>magnet:?xt=urn:btih:519dab8b30c5a809f3071f374b8e742db2099059&amp;dn=%5BNC-Raws%5D%20%E9%93%B6%E6%B2%B3%E8%8B%B1%E9%9B%84%E4%BC%A0%E8%AF%B4%EF%BC%9A%E5%85%A8%E6%96%B0%E5%91%BD%E9%A2%98%20%E7%AD%96%E8%B0%8B%20%2F%20Gineiden%3A%20Sakubou%20-%2006%20%28B-Global%201920x1080%20HEVC%20AAC%20MKV%29&amp;tr=http%3A%2F%2Fnyaa.tracker.wf%3A7777%2Fannounce&amp;tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&amp;tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce复制代码
+
+*****
+
+####  马琳厨  
+##### 5507#       发表于 2022-11-4 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58278641&amp;ptid=1502023" target="_blank">silversor 发表于 2022-11-4 22:33</a></blockquote>
+谢谢兄弟！
+
