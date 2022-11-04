@@ -1416,3 +1416,14 @@ forbidden
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  雷修特  
+##### 128#       发表于 2022-11-4 10:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">都2天了，共存派人呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
