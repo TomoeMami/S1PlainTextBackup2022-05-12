@@ -2045,3 +2045,14 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  脸宽  
+##### 228#       发表于 2022-11-5 00:34
+
+插眼等后续
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
