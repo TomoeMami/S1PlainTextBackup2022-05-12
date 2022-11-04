@@ -15471,3 +15471,43 @@ MAGICUS
 不对啊我都打到第七章还是第八章了怎么没见过装备盘这个东西</blockquote>
 装备盘是新章的东西
 
+
+
+*****
+
+####  vidomina  
+##### 1396#       发表于 2022-11-4 10:31
+
+一周目没有换神杀剑，请问新章里还有机会吗？
+
+*****
+
+####  redsouris  
+##### 1397#       发表于 2022-11-4 10:34
+
+ 本帖最后由 redsouris 于 2022-11-4 10:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58266491&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-4 09:37</a>
+天平上是放最好的道具么 保持平衡 还是有这么特殊组合</blockquote>
+觉得现在最需要的能力是什么，就按能力筛选优先把相关的道具放上去，然后再根据重量调整放其他次要道具
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  quanlix  
+##### 1398#       发表于 2022-11-4 10:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58264880&amp;ptid=2098044" target="_blank">モナド 发表于 2022-11-4 02:34</a>
+
+爱情末期可以刷，感觉爆率不低，剧情遗漏不影响</blockquote>
+我盖亚杀穿三次都没见过。。
+
+*****
+
+####  tmmd  
+##### 1399#       发表于 2022-11-4 10:37
+
+<blockquote>方舟失智博士 发表于 2022-11-4 09:37
+天平上是放最好的道具么 保持平衡 还是有这么特殊组合</blockquote>
+一般是放各种蛋糕
+
