@@ -1374,3 +1374,16 @@ Kirara已经很久了...跟病无关 纯粹游戏用户不多了..撑到孤独�
 而且灯露 这个月还有 SACRA MUSIC FES 12月还有自己Hall Tour 1月还是Lisani Live
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不过去年开始的病 的确对事业生涯有很大影响
 
+
+
+*****
+
+####  dozen  
+##### 6715#       发表于 2022-11-4 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58274238&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-4 17:14</a>
+kirara那边的工作也要无了
+
+所以&amp;#x5C ...</blockquote>
+kirara你说是因为麻里佳都比说是因为灯靠点谱、、
+
