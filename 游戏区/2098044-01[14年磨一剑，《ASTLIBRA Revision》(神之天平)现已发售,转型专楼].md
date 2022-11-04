@@ -16026,3 +16026,21 @@ MAGICUS
 
 不过这个操作真的别扭，虽然说可以改设置但还是别扭，这游戏真的，手发归宿应该是NS，实在完美契合
 
+
+
+*****
+
+####  六至九  
+##### 1447#       发表于 2022-11-5 01:58
+
+主角的身份要到新章最后才说明的吧，这初章就能猜到也太厉害了
+
+*****
+
+####  Rainwedell  
+##### 1448#       发表于 2022-11-5 02:37
+
+刚进第二章，体验真好啊，要是能被窝打就更好了。这个月就靠这个了，魔女三放一放<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
