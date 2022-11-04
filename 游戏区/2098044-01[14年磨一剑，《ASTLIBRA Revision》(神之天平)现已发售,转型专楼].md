@@ -16044,3 +16044,20 @@ MAGICUS
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1449#       发表于 2022-11-5 07:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58280022&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-5 00:36</a>
+这位做了非常详细的攻略
+
+《神之天平》全流程图文攻略（上）
+
+《神之天平》全流程图文攻略（下）</blockquote>
+这个攻略好 而且没剧透
+玩到教会剧情才看到这个
+之前玩有点抓瞎 不过游戏很有意思 
+
