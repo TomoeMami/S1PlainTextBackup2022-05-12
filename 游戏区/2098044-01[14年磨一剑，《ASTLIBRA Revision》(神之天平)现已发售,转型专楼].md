@@ -15632,3 +15632,60 @@ MAGICUS
 
 我现在第八章打完全部ex，石头也刷完了，可是不知道去哪里合成变石啊。。。还是说要终章才行？
 
+
+
+*****
+
+####  Sannapolis  
+##### 1410#       发表于 2022-11-4 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271296&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-4 14:31</a>
+
+新章给武器加等级，之前道具的点数都好低啊，这个也是要刷的吗？还是说后面的道具点数更高？还是说其实武器 ...</blockquote>
+我觉得不是最优先的，有没有开出装备盘对装备性能的影响更大
+
+装备升级系统可能就是给多余的素材道具一个处理去向而已
+
+
+
+*****
+
+####  vidomina  
+##### 1411#       发表于 2022-11-4 14:56
+
+<blockquote>tsubaki 发表于 2022-11-4 14:25
+新章去换需要开研究所以后，因为新章没去老家的剧情，只能用世界树种子传送回去 ...</blockquote>
+感谢，不然准备弃了。
+
+*****
+
+####  AeonsTorn  
+##### 1412#       发表于 2022-11-4 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271580&amp;ptid=2098044" target="_blank">Leomai 发表于 2022-11-4 14:49</a>
+
+我现在第八章打完全部ex，石头也刷完了，可是不知道去哪里合成变石啊。。。还是说要终章才行？ ...</blockquote>
+竞技场送的高等炼金合成手册（差不多是这个名字），素材是所有exboss的武器练满熟练度送的
+
+*****
+
+####  Sannapolis  
+##### 1413#       发表于 2022-11-4 14:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271580&amp;ptid=2098044" target="_blank">Leomai 发表于 2022-11-4 14:49</a>
+
+我现在第八章打完全部ex，石头也刷完了，可是不知道去哪里合成变石啊。。。还是说要终章才行？ ...</blockquote>
+还有一颗石头是竞技场还是徽章兑换的武器的熟练度奖励
+
+应该是要到终章才能拿到
+
+*****
+
+####  quanlix  
+##### 1414#       发表于 2022-11-4 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271296&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-4 14:31</a>
+
+新章给武器加等级，之前道具的点数都好低啊，这个也是要刷的吗？还是说后面的道具点数更高？还是说其实武器 ...</blockquote>
+后头开箱子和挖矿能拿着专门强化装备的道具，武器等级强化上去之后基础的面板差异就没那么重要了，挑用着顺手，带强力被动的一直强化就行，全身+50之后基本就是横着走了
+
