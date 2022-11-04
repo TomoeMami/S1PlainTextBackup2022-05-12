@@ -1506,3 +1506,18 @@ forbidden</blockquote>
 —— 来自 S1Fun</blockquote>
 在核酸自费楼里团建呢
 
+
+
+*****
+
+####  漆黑之花  
+##### 135#       发表于 2022-11-4 14:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58266926&amp;ptid=2102982" target="_blank">雷修特 发表于 2022-11-4 10:06</a>
+都2天了，共存派人呢？
+
+—— 来自 S1Fun</blockquote>
+泥潭的共存派见到标题就把这贴子拉黑了，看不到就是不存在
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

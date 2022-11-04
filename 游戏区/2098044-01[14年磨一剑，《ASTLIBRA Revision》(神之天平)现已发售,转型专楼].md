@@ -15602,3 +15602,15 @@ MAGICUS
 初期的手感实在太挫了，打击 ...</blockquote>
 村里就几个人，所有人对话一遍看看说了啥，这要求不过分吧
 
+
+
+*****
+
+####  tsubaki  
+##### 1407#       发表于 2022-11-4 14:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58267287&amp;ptid=2098044" target="_blank">vidomina 发表于 2022-11-4 10:31</a>
+
+一周目没有换神杀剑，请问新章里还有机会吗？</blockquote>
+新章去换需要开研究所以后，因为新章没去老家的剧情，只能用世界树种子传送回去
+
