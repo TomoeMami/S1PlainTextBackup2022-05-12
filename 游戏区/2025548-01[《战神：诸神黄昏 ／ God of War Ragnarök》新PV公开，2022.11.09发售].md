@@ -9371,3 +9371,21 @@ cory你把剧本大佬都拐跑了在做什么！
 
 Santa Monica编剧就那样，老战神就虎头蛇尾，战神3一开始盖亚就跳反显得编剧无能，只能让角色降智，我看这次能不能做到至少自圆其说
 
+
+
+*****
+
+####  a2042312  
+##### 976#       发表于 2022-11-4 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58263976&amp;ptid=2025548" target="_blank">宫本喵 发表于 2022-11-4 00:05</a>
+A9都只给了9.5，对剧情和演出有点担心了</blockquote>
+A9上一作只给9分，这么一看是不是进步了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hkguty  
+##### 977#       发表于 2022-11-4 08:46
+
+看了下一些评测，洛基甚至有跟xx或其亲属组队打怪的剧情……看来锅全让奥丁背了，虚假的北欧神王，大家都讨厌你，赶紧爬
+
