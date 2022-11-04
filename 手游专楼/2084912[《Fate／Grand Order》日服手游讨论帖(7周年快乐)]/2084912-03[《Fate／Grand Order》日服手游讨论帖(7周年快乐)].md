@@ -4070,3 +4070,29 @@ FguGwNXVsAAhJlZ.jpg
 
 <img src="https://img.saraba1st.com/forum/202211/04/204421sz2fvposki6nqkqo.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3368#       发表于 2022-11-4 20:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 竟然是高达 有点后悔追摩根用光石头了
+
+*****
+
+####  alucardcz  
+##### 3369#       发表于 2022-11-4 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277456&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-4 20:52</a>
+
+艹 竟然是高达 有点后悔追摩根用光石头了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧皇 又要暴跳了吗
+
+*****
+
+####  黑上シグマ  
+##### 3370#       发表于 2022-11-4 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果原型真的是妖精女王这部叙事诗的登场人物的话，里面会是个妹子
+

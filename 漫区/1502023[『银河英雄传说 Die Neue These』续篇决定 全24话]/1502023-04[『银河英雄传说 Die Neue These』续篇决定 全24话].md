@@ -39,3 +39,16 @@ tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺
 
 金发小子不做人的事还差莫德尔这一件？当初对核弹置若罔闻开始就已经停不下来了<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宝儿  
+##### 5502#       发表于 2022-11-4 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58270313&amp;ptid=1502023" target="_blank">liu461 发表于 2022-11-4 13:21</a>
+金发小子不做人的事还差莫德尔这一件？当初对核弹置若罔闻开始就已经停不下来了 ...</blockquote>
+主要是莱恩哈特这件事没有任何坏处 无本万利
+
+杨文里一个人单挑就算了后面还有拖后腿的 简直是玩你妈
+
