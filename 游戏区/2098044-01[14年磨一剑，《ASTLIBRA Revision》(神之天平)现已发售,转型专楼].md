@@ -15888,3 +15888,12 @@ MAGICUS
 
 这群小怪为啥都没硬直啊 我一直被所有怪按着打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  IRIS虹  
+##### 1433#       发表于 2022-11-4 19:32
+
+试玩了一会儿demo，感觉没太get到点子上，能不能说说这游戏好评如潮的原因？考虑要不要入坑试试
+
