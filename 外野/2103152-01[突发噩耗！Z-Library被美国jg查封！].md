@@ -1377,3 +1377,46 @@ Z-Library种子+书目20220929.zip
 
 啊！？
 
+
+
+*****
+
+####  Kazuhira  
+##### 159#       发表于 2022-11-4 14:03
+
+风怒七楼草生
+
+*****
+
+####  kara2000  
+##### 160#       发表于 2022-11-4 14:06
+
+ 本帖最后由 kara2000 于 2022-11-4 14:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58268764&amp;ptid=2103152" target="_blank">Saikou 发表于 2022-11-4 11:47</a>
+
+这个网站算法会自动推，你要第一次上大概率会看到那几本书，应该是有轮子在上面刷。说实话本来一个好好的 ...</blockquote>
+要看你挂的ip，比如挂了个日本的梯子，第一次打开上面全是写真集和漫画技法。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+然后你搜历史政治类，大概率就会开始推轮子的作品了，不过用不了多久也会被正常类书籍覆盖掉的。
+
+反正我是感觉看不完了，上半年每天10本把计算机还有无线电相关，各类推荐和相关丛书系列都下得差不多了，该开始消化了。
+
+*****
+
+####  脑毛大黄台吉  
+##### 161#       发表于 2022-11-4 14:11
+
+美帝罪大恶极<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  许我向你看  
+##### 162#       发表于 2022-11-4 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58270350&amp;ptid=2103152" target="_blank">Quelaan 发表于 2022-11-4 13:24</a>
+
+其他地方看到的，到九月末为止的zlib磁链资源，转发一下
+
+Z-Library种子+书目20220929.zip</blockquote>
+mark一下
+
