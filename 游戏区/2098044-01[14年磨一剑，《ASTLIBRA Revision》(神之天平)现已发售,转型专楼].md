@@ -15906,3 +15906,28 @@ MAGICUS
 
 卧槽药草的伏笔第一章就埋下了么<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">神了
 
+
+
+*****
+
+####  mlfans  
+##### 1435#       发表于 2022-11-4 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58276402&amp;ptid=2098044" target="_blank">IRIS虹 发表于 2022-11-4 19:32</a>
+试玩了一会儿demo，感觉没太get到点子上，能不能说说这游戏好评如潮的原因？考虑要不要入坑试试 ...</blockquote>
+剧情好，系统比较有深度，战斗爽快，然后endgame刷刷刷也能消磨时间。
+
+*****
+
+####  s3080722703  
+##### 1436#       发表于 2022-11-4 20:12
+
+想问一下，是所有的武器和防具都要刷满级吗？
+
+*****
+
+####  沙发果冻  
+##### 1437#       发表于 2022-11-4 20:18
+
+这游戏刷的程度我觉得把握的挺好的，处于稍微刷下就能收集齐那种，收集齐之后难度都不高
+
