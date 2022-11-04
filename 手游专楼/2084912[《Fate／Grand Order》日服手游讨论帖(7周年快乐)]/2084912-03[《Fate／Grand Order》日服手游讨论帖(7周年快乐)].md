@@ -4052,3 +4052,21 @@ TMD 全扔进去甚至连个四星从者都没有 滚了</blockquote>
 
 半夜看贴吧然后冲了三宝，晚上还是应该早点睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">不过faker也二宝了感觉还挺赚的
 
+
+
+*****
+
+####  jaicka  
+##### 3367#       发表于 2022-11-4 20:44
+
+新角
+
+FguGwNXVsAAhJlZ.jpg
+(87.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-4 20:44 上传
+
+<img src="https://img.saraba1st.com/forum/202211/04/204421sz2fvposki6nqkqo.jpg" referrerpolicy="no-referrer">
+
