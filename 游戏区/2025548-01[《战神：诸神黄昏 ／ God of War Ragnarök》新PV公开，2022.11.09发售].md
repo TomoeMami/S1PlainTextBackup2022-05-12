@@ -9451,3 +9451,61 @@ B站各种评测视频弹幕剧透的太多了，要看的话记得关
 
 数毛社的各种质量模式性能模式看蒙了，不想用VRR，是不是只用40帧模式比较好
 
+
+
+*****
+
+####  黑修士  
+##### 984#       发表于 2022-11-4 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58263976&amp;ptid=2025548" target="_blank">宫本喵 发表于 2022-11-4 00:05</a>
+
+A9都只给了9.5，对剧情和演出有点担心了</blockquote>
+叙事割裂，转折生硬是存在的，但应该不用太过担心
+
+[https://www.bilibili.com/video/BV1cG4y18779?t=445](https://www.bilibili.com/video/BV1cG4y18779?t=445)
+
+*****
+
+####  clover293  
+##### 985#       发表于 2022-11-4 09:46
+
+A9这个视频半个小时？真能做<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  你号又双叒没了  
+##### 986#       发表于 2022-11-4 09:50
+
+三天内又把新战神通了一遍<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">预热了
+
+*****
+
+####  Sayuki1025  
+##### 987#       发表于 2022-11-4 09:51
+
+单纯为了这部战神值得买ps5吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+*****
+
+####  conanoysq  
+##### 988#       发表于 2022-11-4 09:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58266544&amp;ptid=2025548" target="_blank">maiyunfei 发表于 2022-11-4 09:41</a>
+
+数毛社的各种质量模式性能模式看蒙了，不想用VRR，是不是只用40帧模式比较好 ...</blockquote>
+质量模式稳定4k30帧，阴影质量更好，贴图更清晰。
+
+性能模式稳定60帧 基本上是稳定在1872p，如果不是即时和质量模式对比，根本看不出来和质量模式的细节差距。
+
+40帧的模式，动态1800~2160P，对比性能模式的1872P提升不大
+
+个人感觉40帧模式没有太大意义，性能模式表现太好，我就直接性能模式就行了
+
+*****
+
+####  SergeGlenn  
+##### 989#       发表于 2022-11-4 09:53
+
+前作就有好几个明显演出有问题的地方，比如开始杀巨魔儿子发疯这段，后面儿子第一回杀人这段，奎爷被摩迪暗算这段，以及很明显的阿特柔斯自大这段。演出和剧本与顽皮狗差距还是很明显的
+
