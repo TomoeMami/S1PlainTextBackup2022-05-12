@@ -4181,3 +4181,19 @@ FguGwNXVsAAhJlZ.jpg
 活动会给 欧皇怕什么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非拿命续费 不然明显没那个欧气去出货了 
 
+
+
+*****
+
+####  白金口袋  
+##### 3379#       发表于 2022-11-4 23:04
+
+明明尼禄祭和闪闪祭都没出新角，为啥摩根祭出了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 3380#       发表于 2022-11-4 23:06
+
+600石头下去就出了1个王姐，好在20个呼符下去又出了2个，不亏
+

@@ -1952,3 +1952,34 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 网站还是有复活的希 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">书的编号怎么获取啊
 
+
+
+*****
+
+####  duanrenduanren  
+##### 219#       发表于 2022-11-4 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58278938&amp;ptid=2103152" target="_blank">筒井彩芽 发表于 2022-11-4 23:00</a>
+
+书的编号怎么获取啊，原来要连接账号啊</blockquote>
+/bookxxxxx就是每本书的编号啊  先输入书名，然后会显示搜索结果，你把对应书籍下面的一串儿编号再发给机器人
+
+*****
+
+####  郭富城  
+##### 220#       发表于 2022-11-4 23:05
+
+难顶，插眼。
+
+整个人都不好了……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  回忆and无语  
+##### 221#       发表于 2022-11-4 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277894&amp;ptid=2103152" target="_blank">peshing 发表于 2022-11-4 21:26</a>
+
+我一直想知道jg到底是什么缩写</blockquote>
+‮⁢方⁢警
+
