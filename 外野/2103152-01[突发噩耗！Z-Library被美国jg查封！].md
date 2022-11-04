@@ -1882,3 +1882,35 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 
 其实对于分享不是一件坏事。
 
+
+
+*****
+
+####  peshing  
+##### 212#       发表于 2022-11-4 21:26
+
+我一直想知道jg到底是什么缩写来自: iPhone客户端
+
+*****
+
+####  儛進  
+##### 213#       发表于 2022-11-4 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277894&amp;ptid=2103152" target="_blank">peshing 发表于 2022-11-4 21:26</a>
+我一直想知道jg到底是什么缩写</blockquote>
+警官 jg 警察  你说呢
+
+*****
+
+####  futamn  
+##### 214#       发表于 2022-11-4 21:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">才开始用这个网站没几天，真是赶上好时候了
+
+*****
+
+####  guanliang  
+##### 215#       发表于 2022-11-4 21:30
+
+从前几年关注这个网站，陆续下了不少，最近一次就是国庆前的充值5美元无限下载1个月活动，刚才看了看，大概下载有上万本了吧。原来有朋友还说免费一天10本足够了，这个真说不清，说封就封没有一点预兆。
+

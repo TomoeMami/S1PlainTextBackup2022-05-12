@@ -4137,3 +4137,35 @@ FguGwNXVsAAhJlZ.jpg
 欧皇 又要暴跳了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">零石头要拿什么豹跳啊
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3375#       发表于 2022-11-4 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277798&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-4 21:17</a>
+
+零石头要拿什么豹跳啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那当然是呼符啊
+
+*****
+
+####  qixinno2  
+##### 3376#       发表于 2022-11-4 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277874&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-11-4 21:24</a>
+
+那当然是呼符啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">石头都是零了 理所当然的呼符也没有了啊
+
+*****
+
+####  alucardcz  
+##### 3377#       发表于 2022-11-4 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277893&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-4 21:26</a>
+
+石头都是零了 理所当然的呼符也没有了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活动会给 欧皇怕什么
+
