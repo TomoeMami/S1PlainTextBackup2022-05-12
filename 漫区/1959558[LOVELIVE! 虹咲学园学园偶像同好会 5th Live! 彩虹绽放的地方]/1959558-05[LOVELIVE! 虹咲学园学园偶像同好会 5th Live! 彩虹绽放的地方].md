@@ -1343,3 +1343,17 @@ love live和偶像大师不一样，真的不适合换cv，官方做个人吧，
 
 还不如拉个新人，然后找个借口让雪菜退下和侑一样当策划算了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星踪幻影  
+##### 6713#       发表于 2022-11-4 17:14
+
+kirara那边的工作也要无了
+
+所以就不要脑补其他所谓办法了
+
+灯身体问题确实很大。完。
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

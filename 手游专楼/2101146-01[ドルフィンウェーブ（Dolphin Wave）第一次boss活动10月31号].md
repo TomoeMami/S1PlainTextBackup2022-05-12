@@ -1062,3 +1062,12 @@ VH2星了，被破防了一次红血奶不回来了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">打满了，贴一个练度给参考一下
 
+
+
+*****
+
+####  心之光  
+##### 86#       发表于 2022-11-4 17:15
+
+活动角色挺强的，练了一下，今天过了活动BOSS，可以用SKIP票了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

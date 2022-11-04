@@ -501,3 +501,13 @@ omg……
 那估计曲早就做好了，都开始做pv了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 毕竟田中10月就做了最后一首曲，以后不再作曲了。
 
+
+
+*****
+
+####  FCCHua  
+##### 17680#       发表于 2022-11-4 17:12
+
+18号，连轴转是吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2431851ef405368d57b095fe156cf2ea/CMP_20221104171128738.jpg" referrerpolicy="no-referrer">
+

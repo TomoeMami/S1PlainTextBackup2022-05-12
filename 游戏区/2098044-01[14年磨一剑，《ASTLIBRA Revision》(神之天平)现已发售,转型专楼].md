@@ -15835,3 +15835,12 @@ MAGICUS
 刚打完第三章好玩的很
 用的魔杖在那磨 最后发现拿起双刀猛砍就行了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  十字骷髅高达  
+##### 1427#       发表于 2022-11-4 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这个雷法杖好像没啥用吧，攻击也太随机了，但是为什么它的武器槽那么难打满
+
