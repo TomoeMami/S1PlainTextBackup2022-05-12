@@ -1456,3 +1456,16 @@ forbidden
 
 原版就有的情况，轻症直接转低血氧一波GG。因此就算是轻症/无症状住放舱也是很有意义的，否则自己独居在家里不一定能撑到救护车到来，普通人也把握不住啥时候GG。当然了，总体上仍然是个概率问题，身边统计学肯定是P用没有，觉得住放舱也就观察吃药，没啥意义，毕竟轻症不roll'到重症就是自愈（（
 
+
+
+*****
+
+####  tansapple  
+##### 131#       发表于 2022-11-4 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58266926&amp;ptid=2102982" target="_blank">雷修特 发表于 2022-11-4 10:06</a>
+都2天了，共存派人呢？
+
+—— 来自 S1Fun</blockquote>
+共存派心善，见不得这些，只当是又一个不相干的人死了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
