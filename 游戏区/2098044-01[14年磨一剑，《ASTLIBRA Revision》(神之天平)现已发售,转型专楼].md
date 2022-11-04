@@ -15844,3 +15844,31 @@ MAGICUS
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这个雷法杖好像没啥用吧，攻击也太随机了，但是为什么它的武器槽那么难打满
 
+
+
+*****
+
+####  otakun  
+##### 1428#       发表于 2022-11-4 18:44
+
+终章除了竞技场的武器外，还有新装备获得吗？刚兑换了心天平，找魔导师还是没兑换到<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sannapolis  
+##### 1429#       发表于 2022-11-4 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58275796&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-4 18:44</a>
+
+终章除了竞技场的武器外，还有新装备获得吗？刚兑换了心天平，找魔导师还是没兑换到 ...</blockquote>
+小徽章会兑换一个盾牌
+
+*****
+
+####  otakun  
+##### 1430#       发表于 2022-11-4 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58275824&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-11-4 18:46</a>
+小徽章会兑换一个盾牌</blockquote>
+是终章的徽章吗？的确看图鉴好像终章还有2个小徽章，还以为出了炼金书就没装备了。
+

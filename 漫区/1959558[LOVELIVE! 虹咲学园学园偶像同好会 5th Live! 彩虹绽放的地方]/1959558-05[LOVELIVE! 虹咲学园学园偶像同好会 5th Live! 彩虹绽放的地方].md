@@ -1387,3 +1387,17 @@ kirara那边的工作也要无了
 所以&amp;#x5C ...</blockquote>
 kirara你说是因为麻里佳都比说是因为灯靠点谱、、
 
+
+
+*****
+
+####  星踪幻影  
+##### 6716#       发表于 2022-11-4 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58275170&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-4 18:00</a>
+
+kirara你说是因为麻里佳都比说是因为灯靠点谱、、</blockquote>
+其实都一回事，只不过灯暂时还可以动……
+
+如果退虹团其他工作“毫无影响”的话，可以脑补那些所谓办法以及阴谋论，但是的确有些影响了
+
