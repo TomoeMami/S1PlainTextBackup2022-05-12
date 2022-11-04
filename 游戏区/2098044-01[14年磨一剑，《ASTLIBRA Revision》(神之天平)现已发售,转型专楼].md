@@ -15536,3 +15536,27 @@ MAGICUS
 
 而且只有boss箱出
 
+
+
+*****
+
+####  A1LI  
+##### 1402#       发表于 2022-11-4 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58267332&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-11-4 10:34</a>
+
+我盖亚杀穿三次都没见过。。</blockquote>
+就打最后一层就行了。
+
+*****
+
+####  A1LI  
+##### 1403#       发表于 2022-11-4 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58269198&amp;ptid=2098044" target="_blank">Ravio 发表于 2022-11-4 12:12</a>
+
+戴加装备盘掉率那个饰品
+
+而且只有boss箱出</blockquote>
+装备盘掉率不关爱情的事啊……
+

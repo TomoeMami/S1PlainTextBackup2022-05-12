@@ -945,3 +945,59 @@ wiki如是说</blockquote>
 
 暗网网址可以访问,用推送方式还可以下载
 
+
+
+*****
+
+####  寺川愛美  
+##### 112#       发表于 2022-11-4 12:24
+
+Z-Library is a mirror of  Library Genesis
+
+ Library Genesis 还未寄,请稍移玉步<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tourbillion  
+##### 113#       发表于 2022-11-4 12:26
+
+科学无国界
+
+自由贸易
+
+互联网精神
+
+不作恶
+
+你看过去丑国宣扬的都被自己踩在脚下了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nargleas  
+##### 114#       发表于 2022-11-4 12:26
+
+一瞬间我以为libz被干掉了
+
+*****
+
+####  哈迪斯兜帽  
+##### 115#       发表于 2022-11-4 12:27
+
+之前kindle中国要关闭的帖子里，有不少人都“无所谓，有xxx”<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+就能不能多想一下xxx的书是怎么来的，xxx会不会也寄了。
+
+*****
+
+####  CAPPUCCINO  
+##### 116#       发表于 2022-11-4 12:28
+
+洋葱还能用吧
+
+*****
+
+####  asakusaku  
+##### 117#       发表于 2022-11-4 12:29
+
+美国佬我操你们妈<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
