@@ -4101,3 +4101,14 @@ Snipaste_2022-11-04_12-51-58.png
 
 突然发现b站上线几天了播放还没过10w，第一集就要会员有点逆天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  renkan119  
+##### 323#       发表于 2022-11-4 14:33
+
+<blockquote>CharlieZ- 发表于 2022-11-4 13:49
+现在好像只有女主比较尴尬 ，最新一集看完感觉只有画画厉害点，其他基本一窍不通，虽然天然呆和自来熟的性 ...</blockquote>
+全集会员是当年被优酷搞出来的遗留问题了
+

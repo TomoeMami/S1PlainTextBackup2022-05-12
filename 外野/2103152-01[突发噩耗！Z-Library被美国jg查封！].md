@@ -1467,3 +1467,64 @@ https://1lib.ink/
 还能下吗？我下载提示连接关闭 【ERR_CONNECTION_CLOSED】</blockquote>
 应该是都不能直接下或者登录了，目前摸索了一下只有TOR后发邮箱推kindle好使，先凑合一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  豌豆者  
+##### 168#       发表于 2022-11-4 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58270977&amp;ptid=2103152" target="_blank">kara2000 发表于 2022-11-4 14:06</a>
+要看你挂的ip，比如挂了个日本的梯子，第一次打开上面全是写真集和漫画技法。
+
+然后你搜历史政治类 ...</blockquote>
+还能下写真集吗<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+知道晚了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  chinesepy  
+##### 169#       发表于 2022-11-4 14:33
+
+tor + send to email 亲测可行，看来资源正常，只是解析寄了。
+
+*****
+
+####  kara2000  
+##### 170#       发表于 2022-11-4 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271316&amp;ptid=2103152" target="_blank">豌豆者 发表于 2022-11-4 14:33</a>
+
+还能下写真集吗
+
+知道晚了</blockquote>
+**之类的都有人上传<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kara2000  
+##### 171#       发表于 2022-11-4 14:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58270350&amp;ptid=2103152" target="_blank">Quelaan 发表于 2022-11-4 13:24</a>
+
+其他地方看到的，到九月末为止的zlib磁链资源，转发一下
+
+Z-Library种子+书目20220929.zip</blockquote>
+连接错误请重试
+
+*****
+
+####  troopera123  
+##### 172#       发表于 2022-11-4 14:39
+
+前俩月法国封过一轮不就有苗头了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雪映风影  
+##### 173#       发表于 2022-11-4 14:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">zlib看黄书好用极了
+
