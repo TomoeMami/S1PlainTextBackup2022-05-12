@@ -1401,3 +1401,14 @@ kirara你说是因为麻里佳都比说是因为灯靠点谱、、</blockquote>
 
 如果退虹团其他工作“毫无影响”的话，可以脑补那些所谓办法以及阴谋论，但是的确有些影响了
 
+
+
+*****
+
+####  dozen  
+##### 6717#       发表于 2022-11-4 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58275892&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-4 18:52</a>
+其实都一回事，只不过灯暂&amp;# ...</blockquote>
+就像楼上说的，kirara这例子根本看不出有灯的影响，而提到的那些live有没有受影响才是更为直观的
+
