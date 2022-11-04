@@ -547,3 +547,12 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 —— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yznmd  
+##### 43689#       发表于 2022-11-4 13:46
+
+这次活动没有啥打的必要了，正好咸鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+

@@ -15588,3 +15588,17 @@ MAGICUS
 
 初期的手感实在太挫了，打击的连续感是有的，但是此外就是一团乱，人物能动作更流畅一点，比例再小点就好多了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pf67  
+##### 1406#       发表于 2022-11-4 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58270362&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-4 13:25</a>
+
+玩了个开头，体会到一些系统了，感觉剧情谜题很大，顶着防剧透进来说几句感想
+
+初期的手感实在太挫了，打击 ...</blockquote>
+村里就几个人，所有人对话一遍看看说了啥，这要求不过分吧
+
