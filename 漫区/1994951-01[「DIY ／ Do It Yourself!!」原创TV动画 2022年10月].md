@@ -4144,3 +4144,13 @@ Snipaste_2022-11-04_12-51-58.png
 
 唐突在叔叔那边上线了
 
+
+
+*****
+
+####  千恋万花  
+##### 326#       发表于 2022-11-4 17:00
+
+秋アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第5話放送後インタビュー：しー役 高橋花林さん&amp;#xD7;ジョブ子役 大森日雅さん｜二人がDIY部のメンバーを分析、この親にして“せるふ”あり！
+[https://www.animatetimes.com/news/details.php?id=1667524952](https://www.animatetimes.com/news/details.php?id=1667524952)
+
