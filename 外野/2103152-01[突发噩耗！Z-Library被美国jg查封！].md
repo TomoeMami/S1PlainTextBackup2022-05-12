@@ -1583,3 +1583,42 @@ zlib看黄书好用极了</blockquote>
 
 美国真是人类毒瘤
 
+
+
+*****
+
+####  青窃苍谋  
+##### 180#       发表于 2022-11-4 15:18
+
+这下给我整无语了
+
+
+
+*****
+
+####  takitaki  
+##### 181#       发表于 2022-11-4 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271715&amp;ptid=2103152" target="_blank">wsktcy 发表于 2022-11-4 14:56</a>
+
+zlib也需要一个摩尔多瓦啊
+
+作为赛博亚历山大图书馆，无论是装载人类智识的还是记录自由xp的，都需要一片能 ...</blockquote>
+e润到摩尔多瓦面对版权炮也是该删删<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kalahara  
+##### 182#       发表于 2022-11-4 15:20
+
+每次捐赠只能续一个月就一直有种危机意识<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 希望可以救起来，我真的很需要
+
+*****
+
+####  wsktcy  
+##### 183#       发表于 2022-11-4 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58272142&amp;ptid=2103152" target="_blank">takitaki 发表于 2022-11-4 15:19</a>
+e润到摩尔多瓦面对版权炮也是该删删</blockquote>
+没办法啊，能活下来就很不容易了，菠萝和那些管理员也被折腾怕了
+

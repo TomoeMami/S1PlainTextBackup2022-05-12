@@ -15711,3 +15711,64 @@ MAGICUS
 怎么知道一个区域的图纸都拿完了呢
 等金银箱子都开出素材么
 
+
+
+*****
+
+####  永远的访客  
+##### 1417#       发表于 2022-11-4 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58270654&amp;ptid=2098044" target="_blank">pf67 发表于 2022-11-4 13:45</a>
+
+村里就几个人，所有人对话一遍看看说了啥，这要求不过分吧</blockquote>
+习惯就行了，一开始还当刷刷刷出门就干，其实顺序是听村姑委托进山洞-&gt;进山洞发现要火炬-&gt;去商店发现卖光了-&gt;去酒馆打听到2个组合-&gt;回到村姑家知道腊在湖那边取-&gt;拿回蜡。这个过程以现在的标准来说是够曲折的了。我自己摸索完这个过程游戏时间已经是30分钟了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sannapolis  
+##### 1418#       发表于 2022-11-4 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271960&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-4 15:10</a>
+
+怎么知道一个区域的图纸都拿完了呢
+
+等金银箱子都开出素材么</blockquote>
+每个章节能开5张图纸，2武器1盾1铠甲1饰品
+
+之前章节没开出的图纸在后面章节也能开到
+
+*****
+
+####  quanlix  
+##### 1419#       发表于 2022-11-4 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271960&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-4 15:10</a>
+
+怎么知道一个区域的图纸都拿完了呢
+
+等金银箱子都开出素材么</blockquote>
+第六章斗技场有个叫狙击的任务，打完给宝物图鉴，会把每章的装备和小徽章列出来
+
+*****
+
+####  redsouris  
+##### 1420#       发表于 2022-11-4 15:16
+
+ 本帖最后由 redsouris 于 2022-11-4 15:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271580&amp;ptid=2098044" target="_blank">Leomai 发表于 2022-11-4 14:49</a>
+我现在第八章打完全部ex，石头也刷完了，可是不知道去哪里合成变石啊。。。还是说要终章才行？ ...</blockquote>
+炼金术书是小徽章抽扭蛋出的，看看小徽章搜完了没有
+而且终章才有后面的斗技场，一些小徽章和出石头的装备都要打出来
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tsubaki  
+##### 1421#       发表于 2022-11-4 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58271580&amp;ptid=2098044" target="_blank">Leomai 发表于 2022-11-4 14:49</a>
+
+我现在第八章打完全部ex，石头也刷完了，可是不知道去哪里合成变石啊。。。还是说要终章才行？ ...</blockquote>
+扭蛋机25次给合成炼金术书籍，那个上面有
+
