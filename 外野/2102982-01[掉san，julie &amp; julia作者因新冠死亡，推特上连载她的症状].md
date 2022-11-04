@@ -1427,3 +1427,16 @@ forbidden
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  gpx234mqx  
+##### 129#       发表于 2022-11-4 11:42
+
+<blockquote>abcbuzhiming 发表于 2022-11-3 22:40
+扔筛子，确实有一部分人的症状很轻。说白了就是赌自己是欧皇还是非酋</blockquote>
+只要不停氪金，最后总能抽到5星
+
+该祝福才对
+
