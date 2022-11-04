@@ -4197,3 +4197,14 @@ FguGwNXVsAAhJlZ.jpg
 
 600石头下去就出了1个王姐，好在20个呼符下去又出了2个，不亏
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3381#       发表于 2022-11-5 01:09
+
+我奶一口，是妖精骑士莫德雷德，或者之前网传的绿骑士<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+九号晚上中了踢我
+
