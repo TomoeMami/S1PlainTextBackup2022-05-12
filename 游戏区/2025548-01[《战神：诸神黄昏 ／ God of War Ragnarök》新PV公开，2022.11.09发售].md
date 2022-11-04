@@ -9398,3 +9398,19 @@ A9上一作只给9分，这么一看是不是进步了<img src="https://static.s
 
 B站各种评测视频弹幕剧透的太多了，要看的话记得关
 
+
+
+*****
+
+####  死线  
+##### 979#       发表于 2022-11-4 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58265917&amp;ptid=2025548" target="_blank">hkguty 发表于 2022-11-4 08:46</a>
+
+看了下一些评测，洛基甚至有跟xx或其亲属组队打怪的剧情……看来锅全让奥丁背了，虚假的北欧神王，大家都讨 ...</blockquote>
+虽然我想说这不和3代一样的套路么……
+
+但是转念一想，难道要让洛基头上长角跳出来灭世？想想看如果美末2的剧情是玩家幸苦养大的艾莉突然黑化，乔尔含泪一板砖拍下去……<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+算了，还是老套一点保险……
+
