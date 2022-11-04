@@ -4118,3 +4118,22 @@ FguGwNXVsAAhJlZ.jpg
 奥若拉：是我（</blockquote>
 太巨魔了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rooarr  
+##### 3373#       发表于 2022-11-4 21:12
+
+高达里面怎么能是妹子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3374#       发表于 2022-11-4 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277495&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-4 20:56</a>
+
+欧皇 又要暴跳了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">零石头要拿什么豹跳啊
+

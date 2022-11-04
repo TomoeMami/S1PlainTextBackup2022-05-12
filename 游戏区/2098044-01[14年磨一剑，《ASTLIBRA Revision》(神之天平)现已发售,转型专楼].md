@@ -15952,3 +15952,15 @@ MAGICUS
 想问一下，是所有的武器和防具都要刷满级吗？</blockquote>
 前期没必要去刷，越到后期小怪给的熟练度越多，我到了新章之后，跟着流程随便打打就把所有装备都精通了。
 
+
+
+*****
+
+####  h1r0  
+##### 1440#       发表于 2022-11-4 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58276174&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-4 19:17</a>
+
+雷魔杖在竞技场疯狂逃课，太好用了</blockquote>
+雷杖其实不如最早的土系魔法杖，雷杖只能打屏幕内的，土杖的上方攻击能打屏幕外的，而且攻击效率更高
+
