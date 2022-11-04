@@ -1265,3 +1265,21 @@ Z-Library种子+书目20220929.zip
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">太丧了
 
+
+
+*****
+
+####  marquez  
+##### 145#       发表于 2022-11-4 13:41
+
+服务器还活着，只是网址被封了，可以绕过去继续上zlib的。
+
+这个贴里已经有人给出连上去的方法了，亲测可用，请参见116、121、133楼。<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mindclicer  
+##### 146#       发表于 2022-11-4 13:41
+
+操，才下了基本将资本主义怎么坏的书，<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
