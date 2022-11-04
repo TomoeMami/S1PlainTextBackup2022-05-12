@@ -464,3 +464,12 @@ apex指挥真没那么差，但是个人发挥犯病是很严重，指挥是枪�
 
 阿乐这180度螺旋跳锁也太有节目效果了，还是13平的关键局，真倒霉啊对面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2680#       发表于 2022-11-4 11:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">传奇组上来就有navi打小蜜蜂哈哈哈哈
+

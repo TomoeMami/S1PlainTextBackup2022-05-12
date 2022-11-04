@@ -9580,3 +9580,14 @@ A9这个视频半个小时？真能做<img src="https://static.saraba1st.com/ima
 
 说起来现在初代二代有什么比较方便能玩到的吗？
 
+
+
+*****
+
+####  byisme001  
+##### 996#       发表于 2022-11-4 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58267558&amp;ptid=2025548" target="_blank">renkan119 发表于 2022-11-4 10:48</a>
+说起来现在初代二代有什么比较方便能玩到的吗？</blockquote>
+psv
+
