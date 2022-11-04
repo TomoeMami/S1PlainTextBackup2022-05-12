@@ -525,3 +525,14 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 编辑
 
+
+
+*****
+
+####  Kon-El  
+##### 43687#       发表于 2022-11-4 08:10
+
+半夜醒了想不开点了一发十一连，卑弥呼到手，不算福袋今年第二个五星<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

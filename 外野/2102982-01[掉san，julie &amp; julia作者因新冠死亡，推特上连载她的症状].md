@@ -1344,3 +1344,14 @@ https://wx2.sinaimg.cn/mw2000/00 ... gdtyj30hv0ert9y.jpg
 </blockquote>
 forbidden
 
+
+
+*****
+
+####  吴怀在  
+##### 123#       发表于 2022-11-4 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58265170&amp;ptid=2102982" target="_blank">桐野心音 发表于 2022-11-4 05:20</a>
+所以她打没打疫苗？</blockquote>
+看你楼上的转的推特翻译，应该是打了
+
