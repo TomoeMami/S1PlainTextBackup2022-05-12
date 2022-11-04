@@ -8834,3 +8834,18 @@ mc大逃杀还行，有点意思。
 
 2022-11-4 00:18 上传
 
+
+
+*****
+
+####  往世雷书  
+##### 12838#       发表于 2022-11-4 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58263633&amp;ptid=2018830" target="_blank">古战场亡魂 发表于 2022-11-3 23:37</a>
+第二场时长2小时不到，mea死的时候开局3分钟左右。普通狼人杀一局40分钟开局死了就够坐牢了。
+
+第二场舞元 ...</blockquote>
+她也可以哭一个多小时卖惨，然后可能舞元会被炎上，只不过她做不来这种事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
