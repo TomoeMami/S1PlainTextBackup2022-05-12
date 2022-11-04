@@ -61,3 +61,15 @@ tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺
 
 这周停播吗，怎么没有巴哈跟B国际的资源搬运了
 
+
+
+*****
+
+####  silversor  
+##### 5504#       发表于 2022-11-4 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277930&amp;ptid=1502023" target="_blank">马琳厨 发表于 2022-11-4 21:29</a>
+
+这周停播吗，怎么没有巴哈跟B国际的资源搬运了</blockquote>
+刚想问，结果一查发现nyaa有，估计是没发布到国内常见的几个站吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
