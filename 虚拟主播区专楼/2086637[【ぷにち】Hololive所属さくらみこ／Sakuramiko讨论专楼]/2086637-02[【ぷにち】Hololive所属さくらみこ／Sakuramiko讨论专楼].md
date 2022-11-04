@@ -13584,3 +13584,14 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 35倒是挺适合那种甜甜可爱小偶像风的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 2799#         楼主| 发表于 2022-11-4 11:10
+
+甜甜可爱小偶像谁都能扮，没什么特别的意思说实话
+
+而且她平时掐的这个声线去唱歌根本没法好好唱你又不是不知道
+
