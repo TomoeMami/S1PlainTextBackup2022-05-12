@@ -15451,3 +15451,12 @@ MAGICUS
 
 天平上是放最好的道具么 保持平衡 还是有这么特殊组合
 
+
+
+*****
+
+####  adw667  
+##### 1394#       发表于 2022-11-4 10:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">不对啊我都打到第七章还是第八章了怎么没见过装备盘这个东西
+
