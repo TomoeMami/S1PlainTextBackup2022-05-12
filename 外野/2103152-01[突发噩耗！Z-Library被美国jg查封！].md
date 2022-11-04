@@ -913,3 +913,35 @@ wiki如是说</blockquote>
 
 哎 下过不少 凑合过吧 总感觉好不了
 
+
+
+*****
+
+####  核中核小团体  
+##### 108#       发表于 2022-11-4 12:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江南映月  
+##### 109#       发表于 2022-11-4 12:20
+
+卧槽，靠这个下刘备啊
+
+*****
+
+####  儛進  
+##### 110#       发表于 2022-11-4 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58268264&amp;ptid=2103152" target="_blank">回旋泼桶 发表于 2022-11-4 11:23</a>
+真有这么多人给这网站洗，里面还有轮子的书啊</blockquote>
+里面上千万本书，又不是网站特意恶心你的，它就是收集了互联网上面非常非常多的书，方便大家找资源。什么洗不洗的大可不必
+
+*****
+
+####  ybtao  
+##### 111#       发表于 2022-11-4 12:21
+
+暗网网址可以访问,用推送方式还可以下载
+

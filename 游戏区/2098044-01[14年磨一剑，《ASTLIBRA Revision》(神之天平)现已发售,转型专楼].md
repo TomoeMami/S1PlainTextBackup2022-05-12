@@ -15522,3 +15522,17 @@ MAGICUS
 新章还挺有意思的</blockquote>
 光说不练的雌小鬼，有本事就炫我嘴里！<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ravio  
+##### 1401#       发表于 2022-11-4 12:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58267332&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-11-4 10:34</a>
+
+我盖亚杀穿三次都没见过。。</blockquote>
+戴加装备盘掉率那个饰品
+
+而且只有boss箱出
+
