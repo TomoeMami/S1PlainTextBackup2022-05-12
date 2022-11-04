@@ -1809,3 +1809,23 @@ z-lib的洋葱地址是什么？
 
 看了帖子试了试洋葱浏览器，发现连不来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猪突猛进  
+##### 205#       发表于 2022-11-4 20:05
+
+[https://docs.qq.com/doc/DU1RBT0d0RnRyaHhN](https://docs.qq.com/doc/DU1RBT0d0RnRyaHhN)
+
+*****
+
+####  绕指流光  
+##### 206#       发表于 2022-11-4 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58276790&amp;ptid=2103152" target="_blank">Leliel 发表于 2022-11-4 20:01</a>
+看了帖子试了试洋葱浏览器，发现连不来</blockquote>
+国内肯定不能直连，设置里开brige
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
