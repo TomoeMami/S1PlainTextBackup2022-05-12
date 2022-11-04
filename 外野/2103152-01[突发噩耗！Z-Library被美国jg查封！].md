@@ -1719,3 +1719,12 @@ z-lib的洋葱地址是什么？
 
 —— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Harugawa  
+##### 195#       发表于 2022-11-4 17:40
+
+能不能改host直接连到IP地址
+
