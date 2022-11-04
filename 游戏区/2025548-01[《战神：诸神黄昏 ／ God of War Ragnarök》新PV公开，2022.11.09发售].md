@@ -9414,3 +9414,24 @@ B站各种评测视频弹幕剧透的太多了，要看的话记得关
 
 算了，还是老套一点保险……
 
+
+
+*****
+
+####  ads147147  
+##### 980#       发表于 2022-11-4 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58265917&amp;ptid=2025548" target="_blank">hkguty 发表于 2022-11-4 08:46</a>
+
+看了下一些评测，洛基甚至有跟xx或其亲属组队打怪的剧情……看来锅全让奥丁背了，虚假的北欧神王，大家都讨 ...</blockquote>
+复仇者联盟，集结（笑死
+
+其实本来希腊那边全员跳反都是用潘多拉盒子这种无聊的东西强行加的，北欧这边奥丁背负所有已经算处理得好了，快想想奎秃子去埃及的时候怎么办吧，真是亲善大使了？
+
+*****
+
+####  clover293  
+##### 981#       发表于 2022-11-4 09:31
+
+笑死，tlou2之后大家都去求稳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
