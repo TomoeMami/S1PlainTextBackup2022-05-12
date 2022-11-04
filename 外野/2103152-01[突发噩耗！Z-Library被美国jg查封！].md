@@ -2021,3 +2021,27 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 
 用过下载过但没看，不知道他亏了还是我亏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ArowRocher  
+##### 226#       发表于 2022-11-5 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58278631&amp;ptid=2103152" target="_blank">duanrenduanren 发表于 2022-11-4 22:33</a>
+电报机器人已经复活 体积小于50mb书籍可以直接下载。以上的需要使用tor浏览器下载。 
+
+网站还是有复活的希 ...</blockquote>
+链接账号的链接打不开，求教
+
+*****
+
+####  oskneo  
+##### 227#       发表于 2022-11-5 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58268392&amp;ptid=2103152" target="_blank">shikiki 发表于 2022-11-4 11:28</a>
+所以国内才会被墙，但事物要分开看，一个免费的下载图书馆，只要你不去搜，他也没在首页上逼着你 ...</blockquote>
+推用得少不知道，但youtube和原生安卓经常在首页看到。偶都不知道按了多少次不感兴趣
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

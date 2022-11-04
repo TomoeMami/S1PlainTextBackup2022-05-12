@@ -556,3 +556,15 @@ omg……
 
 终戦
 
+
+
+*****
+
+####  wenz  
+##### 17686#       发表于 2022-11-5 00:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277567&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-11-04 21:01:12</a>
+确实是有些不懂月之的交友状况了，咋生日凸的时候不请来聊聊</blockquote>live上说了想请的，但星姐那时喉咙做了手术出不了声
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
