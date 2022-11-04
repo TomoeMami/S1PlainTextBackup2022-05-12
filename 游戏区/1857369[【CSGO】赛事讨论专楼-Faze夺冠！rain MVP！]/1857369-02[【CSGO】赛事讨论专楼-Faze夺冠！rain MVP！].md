@@ -473,3 +473,14 @@ apex指挥真没那么差，但是个人发挥犯病是很严重，指挥是枪�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">传奇组上来就有navi打小蜜蜂哈哈哈哈
 
+
+
+*****
+
+####  dev2ce  
+##### 2681#       发表于 2022-11-4 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58267765&amp;ptid=1857369" target="_blank">灰色的狐狸 发表于 2022-11-4 11:00</a>
+传奇组上来就有navi打小蜜蜂哈哈哈哈</blockquote>
+默认0-1开局了，甚至现在连蜜蜂的强图是哪张都说不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
