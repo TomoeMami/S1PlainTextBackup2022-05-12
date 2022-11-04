@@ -9524,3 +9524,17 @@ A9这个视频半个小时？真能做<img src="https://static.saraba1st.com/ima
 
 但他是不是搞错了什么，续作要的就是四平八稳啊。。。
 
+
+
+*****
+
+####  wgoenitz  
+##### 991#       发表于 2022-11-4 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58266851&amp;ptid=2025548" target="_blank">zhangzlo 发表于 2022-11-4 10:02</a>
+
+韩国ign这个评语的机翻看完了。
+
+反正大概意思都能看明白。</blockquote>
+我看机翻的意思好像是说，新战神的节奏把握很好（懂得在一定游戏量后改变走向，让玩家再腻味前体验到转折），但诸神黄昏在加量的前提下没有同样调控节奏，导致很多地方显得得臃肿乏味，吃太撑。
+

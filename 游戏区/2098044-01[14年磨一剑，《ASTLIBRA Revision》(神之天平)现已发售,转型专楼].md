@@ -15460,3 +15460,14 @@ MAGICUS
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">不对啊我都打到第七章还是第八章了怎么没见过装备盘这个东西
 
+
+
+*****
+
+####  何处分可  
+##### 1395#       发表于 2022-11-4 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58267123&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-4 10:20</a>
+不对啊我都打到第七章还是第八章了怎么没见过装备盘这个东西</blockquote>
+装备盘是新章的东西
+
