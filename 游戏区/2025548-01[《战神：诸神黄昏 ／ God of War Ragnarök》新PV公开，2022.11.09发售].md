@@ -9563,3 +9563,20 @@ A9这个视频半个小时？真能做<img src="https://static.saraba1st.com/ima
 
 期待每一作都重造整个或半个轮子这种事儿在3A制作领域基本就是做梦，两到三作轮子大改一次比较现实
 
+
+
+*****
+
+####  sunnyjee  
+##### 994#       发表于 2022-11-4 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58260263&amp;ptid=2025548" target="_blank">Kojimaru 发表于 2022-11-3 19:22</a></blockquote>
+所以质量模式配合vrr能超过40帧吗
+
+*****
+
+####  renkan119  
+##### 995#       发表于 2022-11-4 10:48
+
+说起来现在初代二代有什么比较方便能玩到的吗？
+

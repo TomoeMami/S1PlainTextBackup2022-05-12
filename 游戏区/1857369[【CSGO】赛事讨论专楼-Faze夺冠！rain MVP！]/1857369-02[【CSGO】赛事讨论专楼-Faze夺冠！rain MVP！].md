@@ -455,3 +455,12 @@ apex指挥真没那么差，但是个人发挥犯病是很严重，指挥是枪�
 
 豆的指挥有点想法，但是感觉没啥体系，很容易上头。同时他自己的发挥还会让自己指挥泡汤<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逆袭的红有三  
+##### 2679#       发表于 2022-11-4 10:45
+
+阿乐这180度螺旋跳锁也太有节目效果了，还是13平的关键局，真倒霉啊对面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

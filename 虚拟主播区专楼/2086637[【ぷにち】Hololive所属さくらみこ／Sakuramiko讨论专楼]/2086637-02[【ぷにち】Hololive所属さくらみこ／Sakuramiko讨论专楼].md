@@ -13575,3 +13575,12 @@ M(361A2]%Z[%_XXWJSQ8]6B.PNG
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">我反正是觉得直播外看不到什么大活了。sololive这事她惦记了好多年吧，年初那会就想着5周年开sololive呢，不过她这出歌速度，明年才开始推歌吗？
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 2798#       发表于 2022-11-4 10:46
+
+35倒是挺适合那种甜甜可爱小偶像风的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
