@@ -16321,3 +16321,15 @@ boss战也太刮痧了
 第5章魔王城打完了 把魔女丢城门口没带回来是不是要重新读档。。。。。。。 ...</blockquote>
 be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  caupollen  
+##### 1475#       发表于 2022-11-5 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58285699&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-5 15:28</a>
+
+第5章魔王城打完了 把魔女丢城门口没带回来是不是要重新读档。。。。。。。 ...</blockquote>
+可以不读，会少东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
