@@ -169,3 +169,21 @@ air玩很舒适
 
 B站那个攻略标的图 我怎么找不到那个地方 
 
+
+
+*****
+
+####  Ravio  
+##### 1515#       发表于 2022-11-5 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58290747&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-5 22:02</a>
+
+这第六章的绿色符文在哪 
+
+紫红蓝都找到了
+
+B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
+打机神兵前面的水晶前面那张图（左下有个奥义宝箱那张）中间下去往右走（有2个坑）
+
+需要带2个炸弹并摸黑过半个区域
+

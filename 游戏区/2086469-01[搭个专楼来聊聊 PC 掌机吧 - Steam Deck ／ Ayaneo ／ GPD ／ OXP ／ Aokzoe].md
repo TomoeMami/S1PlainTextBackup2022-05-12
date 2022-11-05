@@ -117,3 +117,14 @@ gpd虽然营销low但是也是国内最早做win掌机的厂家吧，我当年�
 
 这次双十一各个pc掌机厂商的声势很小啊，是拿不到6800h芯片不能大批量出货吗？
 
+
+
+*****
+
+####  医生狼多  
+##### 487#       发表于 2022-11-5 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58290784&amp;ptid=2086469" target="_blank">nordicvan 发表于 2022-11-5 22:04</a>
+这次双十一各个pc掌机厂商的声势很小啊，是拿不到6800h芯片不能大批量出货吗？ ...</blockquote>
+深圳那边受影响了吧
+
