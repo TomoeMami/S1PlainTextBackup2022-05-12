@@ -16262,3 +16262,23 @@ boss战也太刮痧了
 
 顺便第五章的魔王城机关那里应该有个苹果可以自己留下的，我手贱给送出去了，有必要重打去拿吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓝雉  
+##### 1469#         楼主| 发表于 2022-11-5 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58285379&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-5 15:02</a>
+顺便第五章的魔王城机关那里应该有个苹果可以自己留下的，我手贱给送出去了，有必要重打去拿吗 ...</blockquote>
+扭蛋会给
+
+*****
+
+####  苏西踩到我了  
+##### 1470#       发表于 2022-11-5 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58285379&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-5 15:02</a>
+顺便第五章的魔王城机关那里应该有个苹果可以自己留下的，我手贱给送出去了，有必要重打去拿吗 ...</blockquote>
+抽奖会给
+
