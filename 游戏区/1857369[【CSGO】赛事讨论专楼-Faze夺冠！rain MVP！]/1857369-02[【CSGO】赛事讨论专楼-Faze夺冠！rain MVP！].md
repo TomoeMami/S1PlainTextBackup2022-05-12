@@ -564,3 +564,12 @@ C9又醒一个，别后面阿乐也醒了直接冠了吧<img src="https://static
 
 不过Navi的Mirage强度现在也不是很高
 
+
+
+*****
+
+####  朔方原的星  
+##### 2691#         楼主| 发表于 2022-11-6 01:17
+
+完了，这把小蜜蜂打得还真还行，结果载物拉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

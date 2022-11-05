@@ -303,3 +303,26 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 斗技场，不过第二本配方书的材料和内容都是6章以后的了</blockquote>
 所以第二章那些武器素材所需的料理到底要如何...?
 
+
+
+*****
+
+####  black1991518  
+##### 1527#       发表于 2022-11-6 01:13
+
+前期的合成材料所需的料理就在最基础的合成配方里
+
+其实前期不怎么缺料理，缺的反而是怪物掉落的素材
+
+*****
+
+####  yla  
+##### 1528#       发表于 2022-11-6 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58293160&amp;ptid=2098044" target="_blank">gh1023 发表于 2022-11-6 01:03</a>
+
+所以第二章那些武器素材所需的料理到底要如何...?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鸡蛋黄油小麦粉奶酪面包牛奶，这些食材按章节放在小怪和障碍物的掉落里...
+
+面包蛋糕之类的，封印城的面包屋也有卖一部分
+

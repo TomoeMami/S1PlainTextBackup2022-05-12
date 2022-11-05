@@ -4270,3 +4270,15 @@ Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加
 
 现实里铁t真的很喜欢跟人掰手腕证明力气大<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  最强惠酱  
+##### 337#       发表于 2022-11-6 01:21
+
+那个房间的球动的好强啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+话说翘木板没有锤子还挺难把翘棍插进去的，各种工具大开眼界，布丁女士gkd啊
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
