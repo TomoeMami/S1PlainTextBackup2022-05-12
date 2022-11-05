@@ -16363,3 +16363,28 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 
 2022-11-5 17:20 上传
 
+
+
+*****
+
+####  为了mf注册  
+##### 1478#       发表于 2022-11-5 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287129&amp;ptid=2098044" target="_blank">xifeilu 发表于 2022-11-5 17:20</a>
+
+有没有大佬给我解惑一下，这游戏里这些靶子怎么用箭射中，是不是后期有弓箭
+
+我初期直接使用弓箭根本没法射 ...</blockquote>
+后面有弩，可以调节角度直射，你也可以算时间在空中用箭射，但比较麻烦
+
+*****
+
+####  苏西踩到我了  
+##### 1479#       发表于 2022-11-5 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287129&amp;ptid=2098044" target="_blank">xifeilu 发表于 2022-11-5 17:20</a>
+有没有大佬给我解惑一下，这游戏里这些靶子怎么用箭射中，是不是后期有弓箭
+
+我初期直接使用弓箭根本没法射 ...</blockquote>
+竞技场有弩，自由调射击角度
+
