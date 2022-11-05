@@ -1550,3 +1550,17 @@ forbidden</blockquote>
 
 我最近和同事辩论有了个很好的对照组，来说明病毒没有变弱。美国3亿人3年死100万，香港700万人1年死1万。换算到14亿人就是3年450万，或者1年200万3年600万，所以病毒没有变弱，你们打算决定谁去死。美国新冠后遗症2400万，400万人因为新冠后遗症导致不能工作而失业，换算到中国1800万，你们谁来养。数据准不准确没关系，反正气势足，这帮共存派根本没这个行动力查数据，都是听说xx的xx在外国咳嗽了几天就好了这种水准的话来鼓吹的。
 
+
+
+*****
+
+####  jackpot!  
+##### 139#       发表于 2022-11-5 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58264086&amp;ptid=2102982" target="_blank">纸皮 发表于 2022-11-4 00:15</a>
+
+去看了她的推，9月初自述老公感染了自己也感染了，中间痛苦了一段时间，20号的时候说好了
+
+中间的不知道是不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">看评论一堆好似喵
+
