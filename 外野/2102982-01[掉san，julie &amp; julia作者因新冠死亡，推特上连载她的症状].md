@@ -1576,3 +1576,15 @@ forbidden</blockquote>
 看评论一堆好似喵</blockquote>
 你对于这些人的道德和智商水平有啥过度的期待么？这帮人搞不好连兔死狐悲这个成语的意思都搞不懂，没轮到自己之前他们永远可以找到一个理由去嘲弄别人，这份蜜汁自信也是让人服气
 
+
+
+*****
+
+####  idler1984  
+##### 141#       发表于 2022-11-5 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261402&amp;ptid=2102982" target="_blank">陈寿 发表于 2022-11-3 20:42</a>
+
+我觉得肯定不能用了，味觉丧失都是小事</blockquote>
+黑舌苔看着可怕，但是实际上危害很小。真正值得警惕的是她描述的下半身（屁股/脚/膝盖）症状，弄不好已经有血栓了。
+
