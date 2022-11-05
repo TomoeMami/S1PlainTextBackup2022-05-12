@@ -3552,3 +3552,12 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这剧情对不起这腰带和皮套啊草，还有那么好的演员阵容，东映脑子里装的都是啥啊
 
+
+
+*****
+
+####  早乙女元气  
+##### 323#       发表于 2022-11-5 20:36
+
+制作其实是角川大映
+
