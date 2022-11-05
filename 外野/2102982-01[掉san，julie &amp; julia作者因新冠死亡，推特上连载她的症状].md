@@ -1564,3 +1564,15 @@ forbidden</blockquote>
 中间的不知道是不 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">看评论一堆好似喵
 
+
+
+*****
+
+####  WINGLORD  
+##### 140#       发表于 2022-11-5 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58283005&amp;ptid=2102982" target="_blank">jackpot! 发表于 2022-11-5 11:42</a>
+
+看评论一堆好似喵</blockquote>
+你对于这些人的道德和智商水平有啥过度的期待么？这帮人搞不好连兔死狐悲这个成语的意思都搞不懂，没轮到自己之前他们永远可以找到一个理由去嘲弄别人，这份蜜汁自信也是让人服气
+
