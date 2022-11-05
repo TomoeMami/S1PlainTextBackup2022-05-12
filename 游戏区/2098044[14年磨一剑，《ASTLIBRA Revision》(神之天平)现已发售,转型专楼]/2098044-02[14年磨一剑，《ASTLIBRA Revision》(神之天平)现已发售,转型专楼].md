@@ -326,3 +326,27 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 面包蛋糕之类的，封印城的面包屋也有卖一部分
 
+
+
+*****
+
+####  linc555  
+##### 1529#       发表于 2022-11-6 01:46
+
+真结局通了
+宝物图鉴里的勋章都拿齐了，扭蛋的成就还没完成
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  h1r0  
+##### 1530#       发表于 2022-11-6 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58293460&amp;ptid=2098044" target="_blank">linc555 发表于 2022-11-6 01:46</a>
+
+真结局通了
+
+宝物图鉴里的勋章都拿齐了，扭蛋的成就还没完成</blockquote>
+重开游戏读一次档就行，大概是某种Bug
+
