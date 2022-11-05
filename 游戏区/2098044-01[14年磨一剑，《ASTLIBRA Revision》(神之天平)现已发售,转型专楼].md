@@ -16580,3 +16580,12 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 后面个别几个弹幕太烦的带人鱼 ...</blockquote>
 我是第五章boss的时候用的很顺手，不打断平A的节奏，可能后面凭依发动的效率上去就用不到了
 
+
+
+*****
+
+####  otakun  
+##### 1495#       发表于 2022-11-5 18:45
+
+开新章了，感觉解锁盘之后升级防具都差不多，打算全程穿女装了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
