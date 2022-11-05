@@ -16589,3 +16589,22 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 
 开新章了，感觉解锁盘之后升级防具都差不多，打算全程穿女装了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AeonsTorn  
+##### 1496#       发表于 2022-11-5 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287984&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-5 18:36</a>
+
+雪山那个200重量的风雪怎么拿了雕像手里的石盾也过不去</blockquote>
+是不是天平带了减重的词条，我记得商店里的金锚是-9999敏捷吧
+
+*****
+
+####  AeonsTorn  
+##### 1497#       发表于 2022-11-5 19:19
+
+那个一次加150强化点的大碎片有没有可以刷的地方啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

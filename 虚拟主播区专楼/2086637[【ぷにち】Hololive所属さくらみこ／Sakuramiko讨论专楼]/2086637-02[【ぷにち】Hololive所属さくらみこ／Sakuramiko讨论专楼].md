@@ -13923,3 +13923,14 @@ fbk这几天很积极在会场帮忙 做了很多建筑推上的图
 
 万事俱备就等明天了
 
+
+
+*****
+
+####  rs5621  
+##### 2830#       发表于 2022-11-5 19:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">好好好
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

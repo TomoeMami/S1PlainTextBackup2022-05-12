@@ -132,3 +132,19 @@ tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺
 我只想吐槽莱因哈特在莫尔德这事上确实不做个人 ...</blockquote>
 摩顿这事，历史上比这黑的都挺多的，在下棋时牺牲自己人本来就是历史政治军事进程里的一员，比起威斯特法郎的袖手旁观，这个真得不算黑吧，摩特不能说没有责任，可能是因为小皇帝傀儡加上之前裁撤警备过的关系，所以被门阀钻了空子
 
+
+
+*****
+
+####  liu461  
+##### 5511#       发表于 2022-11-5 19:11
+
+老杨居然还嫌弃卡介伦做亲家，人家做长辈可比你靠谱多了<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stevenzero  
+##### 5512#       发表于 2022-11-5 19:18
+
+开会公然公款喝酒，这同盟药丸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
