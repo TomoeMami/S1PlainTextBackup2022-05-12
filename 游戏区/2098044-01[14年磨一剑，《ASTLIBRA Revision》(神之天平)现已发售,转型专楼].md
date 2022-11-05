@@ -16162,3 +16162,38 @@ boss战也太刮痧了
 这游戏高难度下玩法很固定，去每一章之前先把竞技场打了，把黄色小徽章兑换了，把每一章所有的装备都买了 ...</blockquote>
 原来是这样玩吗 怪不得我在火山被小怪打两下就死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lilod  
+##### 1460#       发表于 2022-11-5 13:27
+
+打完第一章了，boss站刮痧，战斗系统很硬，有点不想研究这个系统了，把难度调低
+
+从小成本游戏来看，作者做了不少系统，看起来很不错
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  A1LI  
+##### 1461#       发表于 2022-11-5 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58284249&amp;ptid=2098044" target="_blank">skgaminger1988 发表于 2022-11-5 13:21</a>
+
+原来是这样玩吗 怪不得我在火山被小怪打两下就死了</blockquote>
+是的，而且高难度下，就算你前一章能刷的全刷了，到了新的一章，一开始还是被吊打，这种系统非常有**rpg的味。
+
+*****
+
+####  A1LI  
+##### 1462#       发表于 2022-11-5 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58284310&amp;ptid=2098044" target="_blank">lilod 发表于 2022-11-5 13:27</a>
+
+打完第一章了，boss站刮痧，战斗系统很硬，有点不想研究这个系统了，把难度调低
+
+从小成本游戏来看，作者做 ...</blockquote>
+调低也没用，这游戏系统决定了你必须刷素材做装备，然后刷装备熟练度获得被动技能，技能越多你通关就越简单。
+
