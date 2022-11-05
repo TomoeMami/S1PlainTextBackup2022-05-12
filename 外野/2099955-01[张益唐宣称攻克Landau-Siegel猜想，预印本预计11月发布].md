@@ -780,3 +780,23 @@ On the Landau-Siegel Zeros Conjecture</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  drodchang  
+##### 73#       发表于 2022-11-5 22:42
+
+论文出来了，看来是有突破，但没有完全解决，和孪生素数差不多。
+
+*****
+
+####  枯风瘦雪02  
+##### 74#       发表于 2022-11-5 22:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291393&amp;ptid=2099955" target="_blank">drodchang 发表于 2022-11-5 22:42</a>
+论文出来了，看来是有突破，但没有完全解决，和孪生素数差不多。</blockquote>
+只看目前论文的结果，是证明了一个更弱的结论，但证明过程有没有错误或者gap需要更仔细的审视，离有定论还早
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
