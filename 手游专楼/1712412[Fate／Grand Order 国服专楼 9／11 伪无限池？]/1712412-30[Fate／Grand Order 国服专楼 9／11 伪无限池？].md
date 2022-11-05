@@ -661,3 +661,21 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 —— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  待宵  
+##### 43700#       发表于 2022-11-5 20:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287493&amp;ptid=1712412" target="_blank">星尘的记忆 发表于 2022-11-5 17:53</a>
+
+这次要把友情抽光？有什么说法吗？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+友情池信胜UP，从者币以后可以造圣杯
+
+另一方面就是礼装经验值
+
+现在抽友情池无疑是性价比最高的时候
+

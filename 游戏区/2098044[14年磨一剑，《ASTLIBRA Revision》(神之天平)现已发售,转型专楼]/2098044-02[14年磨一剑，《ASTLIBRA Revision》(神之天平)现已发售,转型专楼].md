@@ -56,3 +56,20 @@ air玩很舒适
 钥匙模具B可以分解成模具A
 前期模具比较缺的话开完5张设计图后后续出的金银箱子可以不开，也没什么好东西
 
+
+
+*****
+
+####  pf67  
+##### 1506#       发表于 2022-11-5 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58289153&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-5 20:10</a>
+问个问题，这游戏十里坡剑神和刷级大法好用吗？
+
+有没有常见的什么等级限制之类的。
+
+感觉这游戏明显是要刷刷 ...</blockquote>
+没有限制，基本就是如果你把武器图纸都打出来，还把武器技能练满，打这关boss已经比较轻松了。
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
