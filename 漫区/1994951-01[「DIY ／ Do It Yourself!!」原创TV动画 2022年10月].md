@@ -4202,3 +4202,15 @@ Snipaste_2022-11-04_12-51-58.png
 今晚的 アニゲー☆イレブン#36 ...</blockquote>
 稲垣好：布丁和小己之间的距离略有拉近，有个我非常喜欢的场景。
 
+
+
+*****
+
+####  yguygyu  
+##### 331#       发表于 2022-11-5 07:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58248528&amp;ptid=1994951" target="_blank">嘴上名作粉碎锤 发表于 2022-11-2 23:00</a>
+
+Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加机翻整出来的（不然怎么可能 翻译 校对 打 ...</blockquote>
+怎么 Bilibilion Meta Lab 的画面是灰蒙蒙的
+
