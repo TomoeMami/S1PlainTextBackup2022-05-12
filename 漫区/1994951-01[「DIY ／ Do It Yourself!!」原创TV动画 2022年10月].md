@@ -4233,3 +4233,12 @@ Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加
 [https://twitter.com/takesinobu/status/1587881960248324096](https://twitter.com/takesinobu/status/1587881960248324096)
 <img src="https://p.sda1.dev/8/7ac9c5b362ce7d3228d7e13c09443719/20221105_101541.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宝儿  
+##### 333#       发表于 2022-11-5 17:38
+
+黑皮妹子好可爱~ 
+

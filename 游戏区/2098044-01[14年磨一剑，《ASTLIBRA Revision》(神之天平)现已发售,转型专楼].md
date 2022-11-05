@@ -16388,3 +16388,17 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 我初期直接使用弓箭根本没法射 ...</blockquote>
 竞技场有弩，自由调射击角度
 
+
+
+*****
+
+####  5353  
+##### 1480#       发表于 2022-11-5 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287129&amp;ptid=2098044" target="_blank">xifeilu 发表于 2022-11-5 17:20</a>
+
+有没有大佬给我解惑一下，这游戏里这些靶子怎么用箭射中，是不是后期有弓箭
+
+我初期直接使用弓箭根本没法射 ...</blockquote>
+最开始这个可以直接扔中的,不需要工具.你找好角度.
+
