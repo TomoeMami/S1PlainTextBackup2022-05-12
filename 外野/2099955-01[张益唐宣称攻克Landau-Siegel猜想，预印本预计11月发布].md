@@ -737,3 +737,46 @@ On the Landau-Siegel Zeros Conjecture</blockquote>
 方向错了，知识越多越反动，又一个殖人有什么好关注的。</blockquote>
 别串了
 
+
+
+*****
+
+####  hr55qv  
+##### 69#       发表于 2022-11-5 22:33
+
+其实很大可能见到文章大家也不知道到底有没有解出来。
+
+*****
+
+####  枯风瘦雪02  
+##### 70#       发表于 2022-11-5 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291229&amp;ptid=2099955" target="_blank">hr55qv 发表于 2022-11-5 22:33</a>
+其实很大可能见到文章大家也不知道到底有没有解出来。</blockquote>
+论文不是给我们看的，是给他同行审议用的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  hr55qv  
+##### 71#       发表于 2022-11-5 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291243&amp;ptid=2099955" target="_blank">枯风瘦雪02 发表于 2022-11-5 22:34</a>
+
+论文不是给我们看的，是给他同行审议用的
+
+—— 来自 S1Fun</blockquote>
+我说的大家包括同行，我怀疑同行们到时候也不太能看懂。
+
+*****
+
+####  枯风瘦雪02  
+##### 72#       发表于 2022-11-5 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291278&amp;ptid=2099955" target="_blank">hr55qv 发表于 2022-11-5 22:36</a>
+我说的大家包括同行，我怀疑同行们到时候也不太能看懂。</blockquote>
+那不至于，张益唐的研究方法还是很传统的解析数论框架，核心对特定函数还是估计上下界为主，不是望月新一那种治学思路的。等上一段时间自然能有个定论给大家看了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

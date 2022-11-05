@@ -187,3 +187,19 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 需要带2个炸弹并摸黑过半个区域
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1516#       发表于 2022-11-5 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291141&amp;ptid=2098044" target="_blank">Ravio 发表于 2022-11-5 22:27</a>
+
+打机神兵前面的水晶前面那张图（左下有个奥义宝箱那张）中间下去往右走（有2个坑）
+
+需要带2个炸弹并摸黑 ...</blockquote>
+哦哦哦谢谢
+
+奥义卷轴我拿到了 我以为只有那边是隐藏
+
