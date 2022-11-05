@@ -2160,3 +2160,31 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 
 ----发送自 [realme RMX3560,Android 12](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  绕指流光  
+##### 238#       发表于 2022-11-5 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58279813&amp;ptid=2103152" target="_blank">ArowRocher 发表于 2022-11-5 00:12</a>
+链接账号的链接打不开，求教</blockquote>
+现在电报机器人给的链接是TOR的，普通浏览器肯定点不开
+其实不用那么麻烦，能登录的话，在编辑个人资料页面拉到最下面，有个按钮可以生成绑定链接，复制给机器人就能绑定
+而且电报和web的10次限制是分开的，相当于一天20次
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  绕指流光  
+##### 239#       发表于 2022-11-5 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58282167&amp;ptid=2103152" target="_blank">罗莉控 发表于 2022-11-5 10:28</a>
+连接账号那个页面打不开，如何处理
+
+----发送自 realme RMX3560,Android 12</blockquote>
+见楼上
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
