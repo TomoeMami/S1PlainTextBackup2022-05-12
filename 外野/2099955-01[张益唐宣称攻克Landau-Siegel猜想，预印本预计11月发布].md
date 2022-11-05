@@ -701,3 +701,19 @@ On the Landau-Siegel Zeros Conjecture</blockquote>
 
 论文出来了，似乎并没有证明他之前宣称的内容，应该算弱版本的猜想，但证明过程还没检查完。明天他会做个报告，听听再说。
 
+
+
+*****
+
+####  医生狼多  
+##### 65#       发表于 2022-11-5 19:26
+
+据说预发表了？
+
+*****
+
+####  nexus1  
+##### 66#       发表于 2022-11-5 19:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你b居然都有直播
+

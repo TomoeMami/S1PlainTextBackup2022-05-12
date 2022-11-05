@@ -16608,3 +16608,14 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 
 那个一次加150强化点的大碎片有没有可以刷的地方啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sannapolis  
+##### 1498#       发表于 2022-11-5 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58288519&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-5 19:19</a>
+那个一次加150强化点的大碎片有没有可以刷的地方啊</blockquote>
+盖亚迷宫挖矿
+
