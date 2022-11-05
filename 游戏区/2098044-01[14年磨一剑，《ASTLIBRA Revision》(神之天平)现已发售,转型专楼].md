@@ -16061,3 +16061,12 @@ MAGICUS
 玩到教会剧情才看到这个
 之前玩有点抓瞎 不过游戏很有意思 
 
+
+
+*****
+
+####  helix  
+##### 1450#       发表于 2022-11-5 08:11
+
+认为猜到嘉隆老师身份的后来都发现其实没猜到<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
