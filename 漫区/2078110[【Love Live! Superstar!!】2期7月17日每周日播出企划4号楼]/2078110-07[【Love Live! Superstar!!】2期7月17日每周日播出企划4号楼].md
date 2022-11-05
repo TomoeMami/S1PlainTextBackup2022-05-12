@@ -1516,3 +1516,48 @@ liyuu.jpg
 算了吧 我觉得要是跟有些整蛊节目那样整过分的活楼友只会更难接受<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 只是就这那就挺好了 至少也是有了个在电视上露脸的机会 没啥不好的
 
+
+
+*****
+
+####  player3960  
+##### 9119#       发表于 2022-11-5 21:40
+
+鲤鱼这组照片真美啊，拍出了一股昭和偶像的气质<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+liyuu01.jpg
+(282.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-5 21:36 上传
+
+<img src="https://img.saraba1st.com/forum/202211/05/213633vb5irsbicge5bbd4.jpg" referrerpolicy="no-referrer">
+
+liyuu02.jpg
+(212.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-5 21:36 上传
+
+<img src="https://img.saraba1st.com/forum/202211/05/213638ypasl9g2fd7777f8.jpg" referrerpolicy="no-referrer">
+
+liyuu03.jpg
+(222.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-5 21:36 上传
+
+<img src="https://img.saraba1st.com/forum/202211/05/213642cb8kmmi5yd1i51d5.jpg" referrerpolicy="no-referrer">
+
+liyuu04.jpg
+(454.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-5 21:36 上传
+
+<img src="https://img.saraba1st.com/forum/202211/05/213645a6388ok4d3kt3h88.jpg" referrerpolicy="no-referrer">
+
