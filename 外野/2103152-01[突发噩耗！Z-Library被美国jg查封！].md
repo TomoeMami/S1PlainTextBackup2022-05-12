@@ -2265,3 +2265,17 @@ tor可以访问，但是账号密码忘了，邮箱也收不到找回邮件
 50mb以上的tor也不行,扣了额度但是无法下载</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看群里讨论 可以转存到谷歌网盘  能支持200Mb以下的书籍。 不过在绑定谷歌账号时可能遇到问题。 
 
+
+
+*****
+
+####  duanrenduanren  
+##### 247#       发表于 2022-11-5 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58281237&amp;ptid=2103152" target="_blank">duskbird 发表于 2022-11-5 08:15</a>
+
+之前没有连接账号的，现在这个bot也没法用对吧</blockquote>
+[https://zh.singlelogin.me/](https://zh.singlelogin.me/)
+
+现在不需要使用tor来绑定bot了， 上面的域名复活啦  可以登录后绑定bot
+
