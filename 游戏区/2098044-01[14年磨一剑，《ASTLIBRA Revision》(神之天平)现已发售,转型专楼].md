@@ -16402,3 +16402,90 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 我初期直接使用弓箭根本没法射 ...</blockquote>
 最开始这个可以直接扔中的,不需要工具.你找好角度.
 
+
+
+*****
+
+####  Kaornao  
+##### 1481#       发表于 2022-11-5 18:04
+
+这个靶子调整一下位置就好了，后面学二段跳去第一章很多台阶有个矿脉的地方跳上去往右走打死大史莱姆爆的宝箱可以开一把弓，但是不能自动瞄准，第三章斗技场可以拿到弩，但是有的靶子还是可以挑战一下的，卡时间跳起来反方向搓弓箭，他会旋转一圈朝你丢的反方向飞出去，我第一章那个一堆史莱姆很高的靶子就是靠这个方法打的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  zhangzlo  
+##### 1482#       发表于 2022-11-5 18:06
+
+这游戏难吗？
+
+*****
+
+####  真实之影  
+##### 1483#       发表于 2022-11-5 18:07
+
+ 本帖最后由 真实之影 于 2022-11-5 18:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58284396&amp;ptid=2098044" target="_blank">lilod 发表于 2022-11-5 13:34</a>
+
+有关于系统的讲解么？
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+就是你刷的不够
+
+被动技能和被动配装的宝石主要靠武器和护具熟练度出
+
+魔法要走格子解锁，而解锁格子的素材要对应属性敌人或者使用技能掉落
+
+所以本质就是个正常经验升级+走格子解锁的双升级配上武器技能的系统
+
+想那么多没用，千变万化就是让你刷
+
+*****
+
+####  helix  
+##### 1484#       发表于 2022-11-5 18:09
+
+感觉还是装备最重要，好几章成长盘没点满也能暴打boss
+尽量点出宝物/技能就差不多了
+
+*****
+
+####  Ravio  
+##### 1485#       发表于 2022-11-5 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287635&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-5 18:06</a>
+
+这游戏难吗？</blockquote>
+2-3章开始都是刷满站撸boss，小怪看情况切下远程武器或者法杖。
+
+开局最难有点磨，不过boss攻击频率低可以用药耗过去
+
+*****
+
+####  zhangzlo  
+##### 1486#       发表于 2022-11-5 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287687&amp;ptid=2098044" target="_blank">Ravio 发表于 2022-11-5 18:10</a>
+
+2-3章开始都是刷满站撸boss，小怪看情况切下远程武器或者法杖。
+
+开局最难有点磨，不过boss攻击频率低可以 ...</blockquote>
+那还行。
+
+那么，这游戏剧情是什么类型的？没啥剧情还是宏大叙事还是亲亲热热还是黑深残？
+
+我不怕剧透
+
+*****
+
+####  格林卡罗尔  
+##### 1487#       发表于 2022-11-5 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287129&amp;ptid=2098044" target="_blank">xifeilu 发表于 2022-11-5 17:20</a>
+
+有没有大佬给我解惑一下，这游戏里这些靶子怎么用箭射中，是不是后期有弓箭
+
+我初期直接使用弓箭根本没法射 ...</blockquote>
+很多时候弩都不好使，这种隐藏就是要你慢慢调整位置试的
+
