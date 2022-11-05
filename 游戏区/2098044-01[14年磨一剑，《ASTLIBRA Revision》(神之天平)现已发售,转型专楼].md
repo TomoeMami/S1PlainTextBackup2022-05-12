@@ -16489,3 +16489,38 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 我初期直接使用弓箭根本没法射 ...</blockquote>
 很多时候弩都不好使，这种隐藏就是要你慢慢调整位置试的
 
+
+
+*****
+
+####  Ravio  
+##### 1488#       发表于 2022-11-5 18:14
+
+ 本帖最后由 Ravio 于 2022-11-5 18:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287704&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-5 18:12</a>
+
+那还行。
+
+那么，这游戏剧情是什么类型的？没啥剧情还是宏大叙事还是亲亲热热还是黑深残？
+
+我不怕剧透 ...</blockquote>
+标准的jrpg。boymeetsgirl，男主为了一点个人感情最终走向发掘世界真相并拯救世界。
+
+亲热有一点点，黑深残有一点点，不影响总体happy。鸦兄吐槽段子很多。
+
+宏大叙事...jrpg平均水平吧，没有政治概念内容
+
+*****
+
+####  Ravio  
+##### 1489#       发表于 2022-11-5 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287129&amp;ptid=2098044" target="_blank">xifeilu 发表于 2022-11-5 17:20</a>
+
+有没有大佬给我解惑一下，这游戏里这些靶子怎么用箭射中，是不是后期有弓箭
+
+我初期直接使用弓箭根本没法射 ...</blockquote>
+竞技场2-1给弩，然后全都能打。
+
+新章有2个需要反重力贴脸开弩的
+
