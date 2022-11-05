@@ -1588,3 +1588,32 @@ forbidden</blockquote>
 我觉得肯定不能用了，味觉丧失都是小事</blockquote>
 黑舌苔看着可怕，但是实际上危害很小。真正值得警惕的是她描述的下半身（屁股/脚/膝盖）症状，弄不好已经有血栓了。
 
+
+
+*****
+
+####  blazeryc  
+##### 142#       发表于 2022-11-5 12:36
+
+<blockquote>Headless 发表于 2022-11-5 11:26
+我最近和同事辩论有了个很好的对照组，来说明病毒没有变弱。美国3亿人3年死100万，香港700万人1年死1万。换 ...</blockquote>
+以新冠前五年评论数据为基准算超额死亡，美国应该死了180w左右了，每年60w左右，中国不算人均医疗资源比不上，每年都得额外死240w，这还不算没有分诊，一起去大医院医疗挤兑的，大部分普通人怕是连医院门都进不去
+
+*****
+
+####  avsojason  
+##### 143#       发表于 2022-11-5 12:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58283140&amp;ptid=2102982" target="_blank">WINGLORD 发表于 2022-11-5 11:54</a>
+你对于这些人的道德和智商水平有啥过度的期待么？这帮人搞不好连兔死狐悲这个成语的意思都搞不懂，没轮到 ...</blockquote>
+<img src="https://p.sda1.dev/8/6f0c9df9f5dbccacff2054607784242b/CMP_20221105123558372.jpg" referrerpolicy="no-referrer">最后一条推的评论下面，有人说他老婆之前得新冠后死亡，然后被事主嘲笑。。。
+
+*****
+
+####  lhw369  
+##### 144#       发表于 2022-11-5 12:41
+
+just a flu。这种人死在多国外也不会重视。
+
+—— 来自 HONOR HPB-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
