@@ -16333,3 +16333,12 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 第5章魔王城打完了 把魔女丢城门口没带回来是不是要重新读档。。。。。。。 ...</blockquote>
 可以不读，会少东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tpsg  
+##### 1476#       发表于 2022-11-5 16:30
+
+第三章的石化一条街把我这横版苦手恶心坏了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
