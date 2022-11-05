@@ -148,3 +148,15 @@ tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺
 
 开会公然公款喝酒，这同盟药丸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TTAA  
+##### 5513#       发表于 2022-11-5 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58288235&amp;ptid=1502023" target="_blank">aptx8285144 发表于 2022-11-5 18:57</a>
+
+摩顿这事，历史上比这黑的都挺多的，在下棋时牺牲自己人本来就是历史政治军事进程里的一员，比起威斯特法 ...</blockquote>
+这两件事我觉得还是不太一样，莫尔德是主动牺牲，坐视核爆行星那次是不作为，核爆行星那会儿金毛还打算和吉尔菲艾斯狡辩。不过这里也能看出吉尔菲艾斯死后对金毛影响之大，从帝国平叛结束后雷厉风行般在奥丁开展夺权清洗行动，再到这里主动设局，明知道会牺牲一个无辜人、祸害一个孩童还不去避免，红毛还在就绝不可能有这种事发生。
+
