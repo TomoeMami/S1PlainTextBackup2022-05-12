@@ -16070,3 +16070,12 @@ MAGICUS
 
 认为猜到嘉隆老师身份的后来都发现其实没猜到<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JoelBirch  
+##### 1451#       发表于 2022-11-5 08:17
+
+爽，昨天刮痧火山神把左手大拇指搓肿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
