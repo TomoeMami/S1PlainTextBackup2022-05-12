@@ -16342,3 +16342,24 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 
 第三章的石化一条街把我这横版苦手恶心坏了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xifeilu  
+##### 1477#       发表于 2022-11-5 17:20
+
+有没有大佬给我解惑一下，这游戏里这些靶子怎么用箭射中，是不是后期有弓箭
+
+我初期直接使用弓箭根本没法射中靶心，完全没法预测距离，我想了想感觉要是没个弓箭应该是不合理的吧
+
+还是有其他解法
+
+<img src="https://img.saraba1st.com/forum/202211/05/172036oa1t05atapxxzkpv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221105171919.png</strong> (44.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-5 17:20 上传
+
