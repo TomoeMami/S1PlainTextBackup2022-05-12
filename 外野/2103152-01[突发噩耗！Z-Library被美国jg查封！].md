@@ -2279,3 +2279,14 @@ tor可以访问，但是账号密码忘了，邮箱也收不到找回邮件
 
 现在不需要使用tor来绑定bot了， 上面的域名复活啦  可以登录后绑定bot
 
+
+
+*****
+
+####  sdhf028397  
+##### 248#       发表于 2022-11-5 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277894&amp;ptid=2103152" target="_blank">peshing 发表于 2022-11-4 21:26</a>
+我一直想知道jg到底是什么缩写</blockquote>
+其实开始是贴吧的黑话晶哥
+
