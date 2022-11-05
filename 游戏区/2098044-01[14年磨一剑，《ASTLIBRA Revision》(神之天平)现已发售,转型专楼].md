@@ -16550,3 +16550,33 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 
 后面个别几个弹幕太烦的带人鱼
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1492#       发表于 2022-11-5 18:36
+
+雪山那个200重量的风雪怎么拿了雕像手里的石盾也过不去
+
+*****
+
+####  Ravio  
+##### 1493#       发表于 2022-11-5 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287984&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-5 18:36</a>
+
+雪山那个200重量的风雪怎么拿了雕像手里的石盾也过不去</blockquote>
+基础敏捷太高就只能买金项链了
+
+*****
+
+####  電子器官依存  
+##### 1494#       发表于 2022-11-5 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287911&amp;ptid=2098044" target="_blank">Ravio 发表于 2022-11-5 18:29</a>
+凭依消弹个人感觉没什么用，少点消耗可以多点凭依无敌时间和回血机会。
+
+后面个别几个弹幕太烦的带人鱼 ...</blockquote>
+我是第五章boss的时候用的很顺手，不打断平A的节奏，可能后面凭依发动的效率上去就用不到了
+
