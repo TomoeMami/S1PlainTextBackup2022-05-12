@@ -4307,3 +4307,24 @@ wtf，nga怎么关了，出啥事了
 
 —— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Diabolosis  
+##### 487#       发表于 2022-11-5 12:44
+
+EM的OWL证道在3年后终于完成了,虽然人员进进出出有所变化
+
+能在303版本打放狗的队伍<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">最终证明了自己的高速版本掌控力
+
+评价为5年最好看的一届
+
+<img src="https://img.saraba1st.com/forum/202211/05/124316rirvjpo8rzkyq9x8.png" referrerpolicy="no-referrer">
+
+<strong>EM.png</strong> (225.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-5 12:43 上传
+
