@@ -4261,3 +4261,12 @@ Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加
 <img src="https://p.sda1.dev/8/a102b7f147c6b33f195a993c563a7135/1343434.jpg" referrerpolicy="no-referrer">
 [https://twitter.com/GinsanSecond/status/1587860131366064128](https://twitter.com/GinsanSecond/status/1587860131366064128)
 
+
+
+*****
+
+####  吃货红毛  
+##### 336#       发表于 2022-11-6 00:38
+
+现实里铁t真的很喜欢跟人掰手腕证明力气大<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
