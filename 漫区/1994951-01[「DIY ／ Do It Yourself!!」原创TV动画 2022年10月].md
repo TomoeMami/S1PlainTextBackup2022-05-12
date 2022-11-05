@@ -4251,3 +4251,13 @@ Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加
 
 布丁女士还能嘴硬到何时
 
+
+
+*****
+
+####  zzf111  
+##### 335#       发表于 2022-11-5 23:16
+
+<img src="https://p.sda1.dev/8/a102b7f147c6b33f195a993c563a7135/1343434.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/GinsanSecond/status/1587860131366064128](https://twitter.com/GinsanSecond/status/1587860131366064128)
+
