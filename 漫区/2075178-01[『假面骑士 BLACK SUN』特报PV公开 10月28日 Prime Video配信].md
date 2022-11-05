@@ -3604,3 +3604,17 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 那个就是纯粹不动脑子致敬原作 原作是鲸鱼一族祖传的秘药 现在是啥都不解释就在那浇
 而且最迷惑的不是鲸鱼把黑日带到水底下干嘛吗 看着像水底的秘密基地结果没过一会那群人全从外面进来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zxc4563982  
+##### 328#       发表于 2022-11-5 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58292020&amp;ptid=2075178" target="_blank">eyeego 发表于 2022-11-5 23:31</a>
+
+那个就是纯粹不动脑子致敬原作 原作是鲸鱼一族祖传的秘药 现在是啥都不解释就在那浇
+
+而且最迷惑的不是鲸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怪人尸体可能会被检查站卡关吧，反正是死人了，直接走水路运输
+
