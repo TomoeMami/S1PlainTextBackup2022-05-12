@@ -2308,3 +2308,17 @@ tor可以访问，但是账号密码忘了，邮箱也收不到找回邮件
 
 戴 tor 已经可以直接下载，至少70MB一本的没问题
 
+
+
+*****
+
+####  jdu2159  
+##### 251#       发表于 2022-11-6 01:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58279863&amp;ptid=2103152" target="_blank">oskneo 发表于 2022-11-5 00:19</a>
+
+推用得少不知道，但youtube和原生安卓经常在首页看到。偶都不知道按了多少次不感兴趣
+
+—— 来自 HUAWEI  ...</blockquote>
+Youtube第三方前端invidious没有Youtube肮脏的"个性化"推荐机制,推荐比较正常也更好.
+
