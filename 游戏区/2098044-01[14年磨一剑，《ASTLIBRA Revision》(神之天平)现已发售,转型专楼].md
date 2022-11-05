@@ -16079,3 +16079,23 @@ MAGICUS
 
 爽，昨天刮痧火山神把左手大拇指搓肿了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  JoelBirch  
+##### 1452#       发表于 2022-11-5 09:26
+
+幸运拉高能提高装备图纸的爆率吗？霉逼哭了
+
+*****
+
+####  電子器官依存  
+##### 1453#       发表于 2022-11-5 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58281070&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-5 07:17</a>
+这个攻略好 而且没剧透
+玩到教会剧情才看到这个
+之前玩有点抓瞎 不过游戏很有意思  ...</blockquote>
+对，后边有几个解密我都翻出来看了一下，还画了地图，做的太用心了
+

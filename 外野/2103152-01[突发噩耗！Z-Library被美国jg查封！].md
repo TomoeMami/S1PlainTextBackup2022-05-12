@@ -2137,3 +2137,15 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 
 啊这
 
+
+
+*****
+
+####  太平梳打  
+##### 236#       发表于 2022-11-5 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58281237&amp;ptid=2103152" target="_blank">duskbird 发表于 2022-11-5 08:15</a>
+
+之前没有连接账号的，现在这个bot也没法用对吧</blockquote>
+可以，现在仍然可以建立连接
+
