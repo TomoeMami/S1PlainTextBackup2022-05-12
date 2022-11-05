@@ -1504,3 +1504,15 @@ liyuu.jpg
 
 就这？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  D麦林  
+##### 9118#       发表于 2022-11-5 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58289183&amp;ptid=2078110" target="_blank">lj205 发表于 2022-11-5 20:14</a>
+就这？</blockquote>
+算了吧 我觉得要是跟有些整蛊节目那样整过分的活楼友只会更难接受<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+只是就这那就挺好了 至少也是有了个在电视上露脸的机会 没啥不好的
+
