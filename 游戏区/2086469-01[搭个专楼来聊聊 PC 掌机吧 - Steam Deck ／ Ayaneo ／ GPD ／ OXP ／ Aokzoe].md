@@ -45,3 +45,55 @@ gpd虽然营销low但是也是国内最早做win掌机的厂家吧，我当年�
 
 这家最大优点是给你修，出了毛病花点时间总是能给你修好，不过要是在国外就有点要命了
 
+
+
+*****
+
+####  cc-2  
+##### 482#       发表于 2022-11-5 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58286637&amp;ptid=2086469" target="_blank">ttks 发表于 2022-11-5 16:45</a>
+
+新批次肯定比旧批次强
+
+第一批一个普遍的问题就是sd卡与tf读卡器断联重载</blockquote>
+说起来，321是什么的代号？看贴吧里也有出现类似的数字
+
+批次？
+
+*****
+
+####  ttks  
+##### 483#       发表于 2022-11-5 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58289560&amp;ptid=2086469" target="_blank">cc-2 发表于 2022-11-5 20:41</a>
+
+说起来，321是什么的代号？看贴吧里也有出现类似的数字
+
+批次？</blockquote>
+32g内存，1t硬盘，wifi版的意思呗
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| cc-2| + 1|原来如此啊，有必要上32么，貌似有些人说3A.|
+
+查看全部评分
+
+*****
+
+####  cc-2  
+##### 484#       发表于 2022-11-5 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58289595&amp;ptid=2086469" target="_blank">ttks 发表于 2022-11-5 20:44</a>
+
+32g内存，1t硬盘，wifi版的意思呗</blockquote>
+看来内存有必要上32啊
+
+看贴吧说有些3A 16G内存会爆？
+
