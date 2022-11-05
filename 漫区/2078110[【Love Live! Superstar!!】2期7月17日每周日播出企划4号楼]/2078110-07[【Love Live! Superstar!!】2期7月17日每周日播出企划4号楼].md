@@ -1470,3 +1470,28 @@ liyuu.jpg
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 9114#       发表于 2022-11-5 19:57
+
+草这看起来就像是nagi把猴子给吓到了一样
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  csolfans  
+##### 9115#       发表于 2022-11-5 19:59
+
+猴子被nagi吓到才是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 9116#       发表于 2022-11-5 20:00
+
+这整蛊没太过分还好，怎么看猴子才是被吓到那个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
