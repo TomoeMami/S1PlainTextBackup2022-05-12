@@ -2188,3 +2188,15 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 
 —— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  ArowRocher  
+##### 240#       发表于 2022-11-5 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58282255&amp;ptid=2103152" target="_blank">绕指流光 发表于 2022-11-5 10:38</a>
+现在电报机器人给的链接是TOR的，普通浏览器肯定点不开
+其实不用那么麻烦，能登录的话，在编辑个人资料页 ...</blockquote>
+谢谢
+

@@ -16130,3 +16130,17 @@ boss战也太刮痧了
 
 —— 来自 HUAWEI BAL-AL00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  A1LI  
+##### 1457#       发表于 2022-11-5 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58283808&amp;ptid=2098044" target="_blank">无攻不受鹿 发表于 2022-11-5 12:51</a>
+
+boss战也太刮痧了
+
+—— 来自 HUAWEI BAL-AL00, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
+这游戏高难度下玩法很固定，去每一章之前先把竞技场打了，把黄色小徽章兑换了，把每一章所有的装备都买了然后熟练度刷满出技能，然后在把成长盘里魔法买了，打boss就不刮了。然后下一章循环。
+
