@@ -726,3 +726,14 @@ On the Landau-Siegel Zeros Conjecture</blockquote>
 
 听说论文发了
 
+
+
+*****
+
+####  Vzero  
+##### 68#       发表于 2022-11-5 21:53
+
+<blockquote>橘子红了 发表于 2022-10-16 23:14
+方向错了，知识越多越反动，又一个殖人有什么好关注的。</blockquote>
+别串了
+

@@ -586,3 +586,19 @@ omg……
 
 reid怎么又和sumire搞上了，我要是vspo粉丝已经急死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17689#       发表于 2022-11-5 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58279800&amp;ptid=1972669" target="_blank">wenz 发表于 2022-11-5 00:11</a>
+
+live上说了想请的，但星姐那时喉咙做了手术出不了声
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+那看来是休止期间的来往，更神秘了...
+
+省一楼，郡郡真是用管人生命践行“你enkr管不着我”，二次vsponiji麻将人选：郡葵如月和辣个女人！
+
