@@ -219,3 +219,33 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 正式版继承试玩记录吗
 
+
+
+*****
+
+####  tsubaki  
+##### 1519#       发表于 2022-11-5 23:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291950&amp;ptid=2098044" target="_blank">gh1023 发表于 2022-11-5 23:26</a>
+
+买了雷电仗，发现刷经验比想象的困难...是必须要用棒子敲才算吃到经验么？还是说雷电仗就是这么难专精？ ...</blockquote>
+这玩意本来就慢，我困难开的也是刷到四章海神洞后才满（加经验速度跟树枝差不多德行，装了刀匠也快不了多少）
+
+*****
+
+####  六至九  
+##### 1520#       发表于 2022-11-5 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291950&amp;ptid=2098044" target="_blank">gh1023 发表于 2022-11-5 23:26</a>
+买了雷电仗，发现刷经验比想象的困难...是必须要用棒子敲才算吃到经验么？还是说雷电仗就是这么难专精？ ...</blockquote>
+建议放到后面几章再练熟练度，满了也只给个水晶
+
+*****
+
+####  六至九  
+##### 1521#       发表于 2022-11-5 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58292007&amp;ptid=2098044" target="_blank">gogoex 发表于 2022-11-5 23:30</a>
+正式版继承试玩记录吗</blockquote>
+继承
+

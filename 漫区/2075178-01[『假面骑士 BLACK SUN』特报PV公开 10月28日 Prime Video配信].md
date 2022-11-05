@@ -3591,3 +3591,16 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 终于看完了！什么玩意儿？设定各种交待不清，行为逻辑一团雾水，人物立场既转变生硬又反复横跳，打戏既少又 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">给剑圣一个面具会死么
 
+
+
+*****
+
+####  eyeego  
+##### 327#       发表于 2022-11-5 23:31
+
+ 本帖最后由 eyeego 于 2022-11-5 23:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291874&amp;ptid=2075178" target="_blank">华发夜眼[CN] 发表于 2022-11-5 23:21</a>
+终于看完了，感觉啥都没交代清楚，最后救黑日那个黄水是啥？是精华吗？为什么一开始没用女主浇就有用？ ...</blockquote>
+那个就是纯粹不动脑子致敬原作 原作是鲸鱼一族祖传的秘药 现在是啥都不解释就在那浇
+而且最迷惑的不是鲸鱼把黑日带到水底下干嘛吗 看着像水底的秘密基地结果没过一会那群人全从外面进来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
