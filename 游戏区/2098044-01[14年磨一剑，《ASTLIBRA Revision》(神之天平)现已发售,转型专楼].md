@@ -16310,3 +16310,14 @@ boss战也太刮痧了
 扭蛋会给</blockquote>
 好的好的
 
+
+
+*****
+
+####  電子器官依存  
+##### 1474#       发表于 2022-11-5 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58285699&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-5 15:28</a>
+第5章魔王城打完了 把魔女丢城门口没带回来是不是要重新读档。。。。。。。 ...</blockquote>
+be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
