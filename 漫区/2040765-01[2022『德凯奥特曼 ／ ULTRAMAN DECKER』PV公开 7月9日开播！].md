@@ -1447,3 +1447,12 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 体重：4万トン
 <img src="https://p.sda1.dev/8/7552dc652d3412195518faad678234a0/img_gomes-s.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RainbowSealife  
+##### 733#       发表于 2022-11-5 10:51
+
+内部调查局局长竟然也是个梅特龙星人，还是个草台班子里的只看数据，不懂变通的死板领导，👊硬了！10米哥美斯以现在人类科技还能应对，没看到这是40m的？又是一集总集篇，接下来还是。。。哥哥们，现在情况紧急，让我们把gzz久弥直树杀了吧！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

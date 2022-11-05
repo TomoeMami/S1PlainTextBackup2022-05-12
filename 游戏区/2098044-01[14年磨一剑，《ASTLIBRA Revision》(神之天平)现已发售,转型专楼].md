@@ -16108,3 +16108,14 @@ MAGICUS
 
 有没有哪里能看做装备那些素材的出产地呀 百度了一下好像没有
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1455#       发表于 2022-11-5 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58282200&amp;ptid=2098044" target="_blank">skgaminger1988 发表于 2022-11-5 10:32</a>
+有没有哪里能看做装备那些素材的出产地呀 百度了一下好像没有</blockquote>
+当时的装备只能在当时那个地图出 所以不用啥出处 刷几次就知道了 不会跑出当前地图的
+
