@@ -291,3 +291,15 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 请教下，除了第一章杂货店老板给的配方书以外，第二章的配方书在哪里拿呢？现在已经到了图纸都做不了的程度 ...</blockquote>
 斗技场，不过第二本配方书的材料和内容都是6章以后的了
 
+
+
+*****
+
+####  gh1023  
+##### 1526#       发表于 2022-11-6 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58293101&amp;ptid=2098044" target="_blank">yla 发表于 2022-11-6 00:57</a>
+
+斗技场，不过第二本配方书的材料和内容都是6章以后的了</blockquote>
+所以第二章那些武器素材所需的料理到底要如何...?
+

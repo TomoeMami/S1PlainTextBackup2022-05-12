@@ -550,3 +550,17 @@ C9又醒一个，别后面阿乐也醒了直接冠了吧<img src="https://static
 
 小蜜蜂和Navi又打mirage，这有可能赢吗……不如说小蜜蜂的mirage真的有一次打好过吗
 
+
+
+*****
+
+####  andychen  
+##### 2690#       发表于 2022-11-6 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58292978&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-11-6 00:46</a>
+
+小蜜蜂和Navi又打mirage，这有可能赢吗……不如说小蜜蜂的mirage真的有一次打好过吗 ...</blockquote>
+我还记得之前小蜜蜂和A队的惊天抽象Mirage……
+
+不过Navi的Mirage强度现在也不是很高
+
