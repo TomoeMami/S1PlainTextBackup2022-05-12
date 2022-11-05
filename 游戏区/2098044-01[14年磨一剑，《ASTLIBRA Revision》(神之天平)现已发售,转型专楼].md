@@ -16144,3 +16144,21 @@ boss战也太刮痧了
 —— 来自 HUAWEI BAL-AL00, Android 11上的 S1Next-鹅版 v2.5.4</blockquote>
 这游戏高难度下玩法很固定，去每一章之前先把竞技场打了，把黄色小徽章兑换了，把每一章所有的装备都买了然后熟练度刷满出技能，然后在把成长盘里魔法买了，打boss就不刮了。然后下一章循环。
 
+
+
+*****
+
+####  manyin1  
+##### 1458#       发表于 2022-11-5 13:14
+
+技能等级怎么提升呀？我打到八章了还是2级
+
+*****
+
+####  skgaminger1988  
+##### 1459#       发表于 2022-11-5 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58284043&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-5 13:06</a>
+这游戏高难度下玩法很固定，去每一章之前先把竞技场打了，把黄色小徽章兑换了，把每一章所有的装备都买了 ...</blockquote>
+原来是这样玩吗 怪不得我在火山被小怪打两下就死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

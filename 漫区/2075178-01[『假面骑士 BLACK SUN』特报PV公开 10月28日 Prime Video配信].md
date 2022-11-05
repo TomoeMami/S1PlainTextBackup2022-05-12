@@ -3458,3 +3458,18 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 关于可里是卧底这个说是首相故意刺激影月编出来的吧，提议绑架的是她，提议杀死创世王的也是她，这要是卧底也入戏太深
 
+
+
+*****
+
+####  拆骨羊肉2  
+##### 314#       发表于 2022-11-5 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58261395&amp;ptid=2075178" target="_blank">macos 发表于 2022-11-3 20:41</a>
+黑日好看吗，重新看rx真欢乐
+
+—— 来自 HUAWEI KKG-AN00, Android 10上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+还是保留看black和rx的美好回忆吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
