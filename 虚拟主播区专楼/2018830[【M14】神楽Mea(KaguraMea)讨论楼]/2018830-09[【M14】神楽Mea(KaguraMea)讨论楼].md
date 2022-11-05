@@ -8884,3 +8884,20 @@ mc大逃杀还行，有点意思。
 
 她还不如把lol卸载得了。
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12842#       发表于 2022-11-5 21:01
+
+估计是打游戏然后无缝看决赛直播。
+
+<img src="https://img.saraba1st.com/forum/202211/05/210000k9m2u8mnr7r488z6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-5 21:00 上传
+
