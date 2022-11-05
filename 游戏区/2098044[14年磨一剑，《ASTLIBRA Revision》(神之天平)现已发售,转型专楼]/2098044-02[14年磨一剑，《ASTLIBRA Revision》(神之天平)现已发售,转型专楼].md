@@ -409,3 +409,12 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 第二章这个要贴在右边台阶上使用哥布林的石板钥匙打开。
 
+
+
+*****
+
+####  御坂MKII  
+##### 1535#       发表于 2022-11-6 06:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">最后额大龙30万血，招还很疼 明天再打了
+
