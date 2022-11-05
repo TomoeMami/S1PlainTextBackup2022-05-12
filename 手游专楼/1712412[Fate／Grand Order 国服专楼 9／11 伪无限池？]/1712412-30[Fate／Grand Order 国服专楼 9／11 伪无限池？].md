@@ -650,3 +650,14 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 第一天怎么卡粘土卡那么厉害....
 
+
+
+*****
+
+####  星尘的记忆  
+##### 43699#       发表于 2022-11-5 17:53
+
+这次要把友情抽光？有什么说法吗？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
