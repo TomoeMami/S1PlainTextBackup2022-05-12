@@ -1080,3 +1080,12 @@ VH2星了，被破防了一次红血奶不回来了
 
 活动角色强，活动资源兑换也良心，目前感觉是个能开心白嫖的游戏啊
 
+
+
+*****
+
+####  孫光龍  
+##### 88#       发表于 2022-11-5 08:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">nikke刷完首抽回来发现这个才是良心游戏了
+
