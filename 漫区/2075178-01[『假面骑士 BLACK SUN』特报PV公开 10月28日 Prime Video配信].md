@@ -3427,3 +3427,12 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 不如 Amazon，Amazon 的单体战斗力不弱的，粽子第一季第一集出场的 Rank D 蜘蛛都要整个驱逐班围剿，Rank ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">结局那个我不能呼吸是真的。。总之我眼里算是和阿妈粽差不多，卧龙凤雏。阿月那个目标还是换成在霓虹建立一个怪人自治地区比较靠谱，再说下去我只能用范大将军的名言了。
 
+
+
+*****
+
+####  无敌のpeach  
+##### 311#       发表于 2022-11-5 08:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没人觉得怪人称呼自己为怪人也太奇怪了吗？这片从开头几分钟开始就是一股脱离现实的味道。
+

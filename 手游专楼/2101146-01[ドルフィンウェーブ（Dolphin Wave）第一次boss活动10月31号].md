@@ -1071,3 +1071,12 @@ VH2星了，被破防了一次红血奶不回来了
 
 活动角色挺强的，练了一下，今天过了活动BOSS，可以用SKIP票了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  羽出  
+##### 87#       发表于 2022-11-5 08:40
+
+活动角色强，活动资源兑换也良心，目前感觉是个能开心白嫖的游戏啊
+
