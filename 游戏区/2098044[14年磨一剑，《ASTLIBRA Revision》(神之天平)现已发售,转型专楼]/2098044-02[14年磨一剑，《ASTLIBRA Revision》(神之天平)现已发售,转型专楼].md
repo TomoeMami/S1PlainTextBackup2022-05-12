@@ -249,3 +249,25 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 正式版继承试玩记录吗</blockquote>
 继承
 
+
+
+*****
+
+####  何处分可  
+##### 1522#       发表于 2022-11-6 00:44
+
+<img src="https://p.sda1.dev/8/611d213fae0fa47c78195cfd424b15a4/1379198396.jpg" referrerpolicy="no-referrer">
+勃起🤗
+
+*****
+
+####  Ravio  
+##### 1523#       发表于 2022-11-6 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291950&amp;ptid=2098044" target="_blank">gh1023 发表于 2022-11-5 23:26</a>
+
+买了雷电仗，发现刷经验比想象的困难...是必须要用棒子敲才算吃到经验么？还是说雷电仗就是这么难专精？ ...</blockquote>
+和身上的装备一样杀怪就算，怪经验多攒得就快。大部分装备包括武器都建议有大范围凭依技之后在七八章怪多经验高的地方再特意刷，法杖穿轻一点攒精力很快，飞弹随便蹭蹭主要靠凭依技打
+
+个人推荐至少出岩灾或剑舞之后
+

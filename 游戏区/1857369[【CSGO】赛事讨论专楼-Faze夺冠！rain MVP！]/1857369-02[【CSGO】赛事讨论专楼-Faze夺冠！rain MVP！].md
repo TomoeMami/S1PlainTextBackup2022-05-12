@@ -541,3 +541,12 @@ C9这三分拿的猛啊
 
 C9又醒一个，别后面阿乐也醒了直接冠了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2689#         楼主| 发表于 2022-11-6 00:46
+
+小蜜蜂和Navi又打mirage，这有可能赢吗……不如说小蜜蜂的mirage真的有一次打好过吗
+
