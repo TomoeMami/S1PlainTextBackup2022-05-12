@@ -3531,3 +3531,24 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">新粽子按照设定的话黑日里面这批怪人也就是口粮的级别...........吃普通子弹就嗝屁，不吃人肉混合果冻就没再生力拿头和恰汉堡和鸡蛋就自我再生以及打碎70m岩盘的粽子打.......................双方就不是一个级别的战斗力
 
+
+
+*****
+
+####  roxas.sora  
+##### 321#       发表于 2022-11-5 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58205941&amp;ptid=2075178" target="_blank">米列希安 发表于 2022-10-31 14:26</a>
+
+另外这片应该有第二季，因为宣传PV里有个关键词是太阳之子
+
+结合信彦现在留了全尸，让他在第二部里当主角变 ...</blockquote>
+西岛秀俊还有档期拍么..............影帝来拍了个工具人真是浪费，好可惜
+
+*****
+
+####  roxas.sora  
+##### 322#       发表于 2022-11-5 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这剧情对不起这腰带和皮套啊草，还有那么好的演员阵容，东映脑子里装的都是啥啊
+
