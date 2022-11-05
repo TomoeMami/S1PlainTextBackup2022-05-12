@@ -1098,3 +1098,12 @@ VH2星了，被破防了一次红血奶不回来了
 
 活动VH我上的3个moon一个gear，2w1战力也打完了，活动boss不算难，克制大过天。
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 90#         楼主| 发表于 2022-11-5 12:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在唯二不爽的可能就是清体力太烦，还有淘汰赛不能扫荡了，不过淘汰赛上那些服装搭配都玩得挺花的，有点意思。
+
