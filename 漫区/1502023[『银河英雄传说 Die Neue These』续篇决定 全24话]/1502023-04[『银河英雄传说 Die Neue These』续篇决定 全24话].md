@@ -104,3 +104,31 @@ tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58278641&amp;ptid=1502023" target="_blank">silversor 发表于 2022-11-4 22:33</a></blockquote>
 谢谢兄弟！
 
+
+
+*****
+
+####  aptx8285144  
+##### 5508#       发表于 2022-11-5 18:51
+
+这话的文戏各种拉满，几个对话通过声优们表现是真不错，所以即使重置找已经成名的声优们是保险的
+
+*****
+
+####  aptx8285144  
+##### 5509#       发表于 2022-11-5 18:52
+
+而且有回忆杀里的幼年先叔<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，旧版动画有吗，至少第四卷那里印象不深
+
+*****
+
+####  aptx8285144  
+##### 5510#       发表于 2022-11-5 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58245449&amp;ptid=1502023" target="_blank">TTAA 发表于 2022-11-2 19:19</a>
+
+逼站银英底下咋还限评论？发了两条都没找到
+
+我只想吐槽莱因哈特在莫尔德这事上确实不做个人 ...</blockquote>
+摩顿这事，历史上比这黑的都挺多的，在下棋时牺牲自己人本来就是历史政治军事进程里的一员，比起威斯特法郎的袖手旁观，这个真得不算黑吧，摩特不能说没有责任，可能是因为小皇帝傀儡加上之前裁撤警备过的关系，所以被门阀钻了空子
+
