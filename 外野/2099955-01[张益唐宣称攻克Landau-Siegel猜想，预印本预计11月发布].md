@@ -800,3 +800,19 @@ On the Landau-Siegel Zeros Conjecture</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  AraTurambar  
+##### 75#       发表于 2022-11-6 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291440&amp;ptid=2099955" target="_blank">枯风瘦雪02 发表于 2022-11-5 22:46</a>
+
+只看目前论文的结果，是证明了一个更弱的结论，但证明过程有没有错误或者gap需要更仔细的审视，离有定论 ...</blockquote>
+他这篇最后的意思是这个-2022是个象征性的数字随便放在那儿的，但是最后很难降低到-1。
+
+孪生素数现在改进到246，也很难再继续下降了。
+
+他的套路非常正统，就是硬估上下界，够用应该是够用的吧，但是一路走到彻底解决有点困难。
+
