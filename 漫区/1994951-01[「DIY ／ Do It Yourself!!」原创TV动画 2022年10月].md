@@ -4214,3 +4214,22 @@ Snipaste_2022-11-04_12-51-58.png
 Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加机翻整出来的（不然怎么可能 翻译 校对 打 ...</blockquote>
 怎么 Bilibilion Meta Lab 的画面是灰蒙蒙的
 
+
+
+*****
+
+####  Piano-Forest  
+##### 332#         楼主| 发表于 2022-11-5 10:17
+
+[https://twitter.com/Ollll_nnn/status/1588011960863715334](https://twitter.com/Ollll_nnn/status/1588011960863715334)
+<img src="https://p.sda1.dev/8/0c4a685a85fc633a1fa2a35d69da82b3/20221105_100745.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/tanakasan1199/status/1587936077385302016](https://twitter.com/tanakasan1199/status/1587936077385302016)
+<img src="https://p.sda1.dev/8/f3383c58163ed1689b9b7abd8f5c3d75/20221105_100819.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/dnkb11/status/1586261670992543744](https://twitter.com/dnkb11/status/1586261670992543744)
+<img src="https://p.sda1.dev/8/2e7253421ed7e3faa484cade41465562/20221105_101508.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/takesinobu/status/1587881960248324096](https://twitter.com/takesinobu/status/1587881960248324096)
+<img src="https://p.sda1.dev/8/7ac9c5b362ce7d3228d7e13c09443719/20221105_101541.jpg" referrerpolicy="no-referrer">
+
