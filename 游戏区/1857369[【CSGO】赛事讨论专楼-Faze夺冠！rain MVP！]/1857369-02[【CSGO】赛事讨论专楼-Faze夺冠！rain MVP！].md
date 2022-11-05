@@ -484,3 +484,44 @@ apex指挥真没那么差，但是个人发挥犯病是很严重，指挥是枪�
 传奇组上来就有navi打小蜜蜂哈哈哈哈</blockquote>
 默认0-1开局了，甚至现在连蜜蜂的强图是哪张都说不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zpl123  
+##### 2682#       发表于 2022-11-6 00:24
+
+返航<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 2683#       发表于 2022-11-6 00:24
+
+C9这三分拿的猛啊
+
+*****
+
+####  liva  
+##### 2684#       发表于 2022-11-6 00:26
+
+宇宙舰队又漏油了 ，A大3个人点不掉一个全白的狙，还特么让他跑了
+
+*****
+
+####  heseran  
+##### 2685#       发表于 2022-11-6 00:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58292713&amp;ptid=1857369" target="_blank">liva 发表于 2022-11-6 00:26</a>
+宇宙舰队又漏油了 ，A大3个人点不掉一个全白的狙，还特么让他跑了</blockquote>
+还被打死一个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 2686#       发表于 2022-11-6 00:28
+
+牛的c9<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，k肯定要想一下了，这进攻打的确实屎
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

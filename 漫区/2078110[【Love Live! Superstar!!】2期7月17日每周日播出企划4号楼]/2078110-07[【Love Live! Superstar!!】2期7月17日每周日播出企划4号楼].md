@@ -1579,3 +1579,16 @@ liyuu04.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说这个整蛊有完整视频吗？（指包含其他明星的）
 
+
+
+*****
+
+####  愛さ実  
+##### 9122#       发表于 2022-11-6 00:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58292375&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-11-6 00:00</a>
+话说这个整蛊有完整视频吗？（指包含其他明星的）</blockquote>
+【【芸能人が本気で考えたドッキリGP】20221105_生肉-哔哩哔哩】 https://b23.tv/M19vW7d
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
