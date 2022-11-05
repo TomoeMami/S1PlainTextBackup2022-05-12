@@ -3636,3 +3636,14 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 这片子很明显暴露出国内大部分现今受众都没看过原作TV的事实了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 331#       发表于 2022-11-6 07:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291906&amp;ptid=2075178" target="_blank">roxas.sora 发表于 2022-11-5 23:23</a>
+给剑圣一个面具会死么</blockquote>
+剑圣原版就没戴面具只是涂了脸，但是全剧的皮套都是写实风就他一个这样特别尬。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
