@@ -1399,3 +1399,12 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 —— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Aeroblast  
+##### 730#       发表于 2022-11-5 09:09
+
+这个数据主义有点蠢，体型这么大的变量不考虑，证言好像也没调查就直接承认了。
+
