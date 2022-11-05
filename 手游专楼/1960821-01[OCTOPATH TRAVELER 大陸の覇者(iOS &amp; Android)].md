@@ -6654,3 +6654,14 @@ A（羊驼结局）简直是皆大欢喜完美结局，但是被猫猫狠狠吐�
 
 这个月底终于有中文了。
 
+
+
+*****
+
+####  Vladimeow  
+##### 656#       发表于 2022-11-5 10:02
+
+有中文准备玩了，不过明年的2更期待<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2168A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

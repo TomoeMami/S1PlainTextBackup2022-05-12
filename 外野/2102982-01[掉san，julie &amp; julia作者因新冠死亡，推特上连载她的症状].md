@@ -1530,3 +1530,14 @@ forbidden</blockquote>
 
 看到很多因为黑舌苔破防的，果然和猴痘一样毁容了才有人关心
 
+
+
+*****
+
+####  niyikaowo  
+##### 137#       发表于 2022-11-5 09:54
+
+小感冒而已啦，死的都是旧疾并发症啦，2022的新冠已经不会死人的啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9810, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
