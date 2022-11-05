@@ -717,3 +717,12 @@ On the Landau-Siegel Zeros Conjecture</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你b居然都有直播
 
+
+
+*****
+
+####  shqingda_  
+##### 67#       发表于 2022-11-5 21:20
+
+听说论文发了
+
