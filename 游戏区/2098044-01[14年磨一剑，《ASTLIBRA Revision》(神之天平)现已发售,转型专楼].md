@@ -16524,3 +16524,29 @@ be了，我也读了一次档<img src="https://static.saraba1st.com/image/smiley
 
 新章有2个需要反重力贴脸开弩的
 
+
+
+*****
+
+####  zhangzlo  
+##### 1490#       发表于 2022-11-5 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58287730&amp;ptid=2098044" target="_blank">Ravio 发表于 2022-11-5 18:14</a>
+
+标准的jrpg。boymeetsgirl，男主为了一点个人感情最终走向发掘世界真相并拯救世界。
+
+亲热有一点点，黑深残 ...</blockquote>
+那我就买了 谢谢
+
+*****
+
+####  Ravio  
+##### 1491#       发表于 2022-11-5 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58284383&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-5 13:33</a>
+
+我在困难难度推到第五章，基本就是楼上说的那样，竞技场或本章的商店会给对策的饰品跟武器，影响还是挺大的 ...</blockquote>
+凭依消弹个人感觉没什么用，少点消耗可以多点凭依无敌时间和回血机会。
+
+后面个别几个弹幕太烦的带人鱼
+
