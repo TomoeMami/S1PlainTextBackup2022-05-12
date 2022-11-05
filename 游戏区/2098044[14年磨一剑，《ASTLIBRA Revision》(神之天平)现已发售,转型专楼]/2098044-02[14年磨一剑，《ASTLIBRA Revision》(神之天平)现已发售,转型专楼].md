@@ -128,3 +128,12 @@ air玩很舒适
 
 最终八九十级成长基本点完的时候无饰品只靠强化一半的天平就可以满抗性，整个游戏强度富余是很大的。
 
+
+
+*****
+
+####  Quelaan  
+##### 1511#       发表于 2022-11-5 21:48
+
+一口气把试玩版打完了，有点好玩，等个打折<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
