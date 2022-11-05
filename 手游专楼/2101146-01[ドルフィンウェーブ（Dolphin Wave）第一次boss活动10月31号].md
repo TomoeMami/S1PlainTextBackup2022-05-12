@@ -1089,3 +1089,12 @@ VH2星了，被破防了一次红血奶不回来了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">nikke刷完首抽回来发现这个才是良心游戏了
 
+
+
+*****
+
+####  darksunshine  
+##### 89#       发表于 2022-11-5 11:22
+
+活动VH我上的3个moon一个gear，2w1战力也打完了，活动boss不算难，克制大过天。
+
