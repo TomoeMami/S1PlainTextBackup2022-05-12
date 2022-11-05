@@ -3627,3 +3627,12 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">顺带吐槽下既然最开始打算当兵器好歹按粽子那规格造吧，念力这玩意全剧就三个会，神官，王，影月，再生力和肉体强度都被粽子爆了
 
+
+
+*****
+
+####  卡罗斯  
+##### 330#       发表于 2022-11-6 02:27
+
+这片子很明显暴露出国内大部分现今受众都没看过原作TV的事实了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

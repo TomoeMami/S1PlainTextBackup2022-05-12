@@ -338,3 +338,37 @@
 
 这崩的妈妈都不认识了
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1985#       发表于 2022-11-6 03:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57702616&amp;ptid=1860817" target="_blank">禦厨三九二 发表于 2022-9-29 23:15</a>
+
+OP2还行啊
+
+PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外的还行，游戏立绘是真的有点，完全没 ...</blockquote>
+我觉得是游戏画风问题
+
+<img src="https://img.saraba1st.com/forum/202211/06/032846qs45b9i9999kbnzz.jpg" referrerpolicy="no-referrer">
+
+<strong>illust_92431068_20210907_012916.jpg</strong> (502.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-6 03:28 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 蓝泽玲| + 1||
+
+查看全部评分
+

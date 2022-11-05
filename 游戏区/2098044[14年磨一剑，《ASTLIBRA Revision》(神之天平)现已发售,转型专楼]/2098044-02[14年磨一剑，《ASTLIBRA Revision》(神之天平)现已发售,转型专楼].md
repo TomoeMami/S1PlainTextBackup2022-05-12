@@ -350,3 +350,62 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 宝物图鉴里的勋章都拿齐了，扭蛋的成就还没完成</blockquote>
 重开游戏读一次档就行，大概是某种Bug
 
+
+
+*****
+
+####  御坂MKII  
+##### 1531#       发表于 2022-11-6 01:57
+
+图鉴里铁娘子的两个抽奖的小徽章是在哪里。。。那5关都打掉了，现在是在终章门口
+
+*****
+
+####  redsouris  
+##### 1532#       发表于 2022-11-6 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58293511&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-6 01:57</a>
+图鉴里铁娘子的两个抽奖的小徽章是在哪里。。。那5关都打掉了，现在是在终章门口 ...</blockquote>
+第二个区域的全灭宝箱，还有最后存档点左上有个箭靶
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  御坂MKII  
+##### 1533#       发表于 2022-11-6 03:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来是在终章里
+
+<img src="https://img.saraba1st.com/forum/202211/06/031825unywjca2c5cv5vwd.jpg" referrerpolicy="no-referrer">
+
+<strong>20221106031316_1.jpg</strong> (595.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-6 03:18 上传
+
+<img src="https://img.saraba1st.com/forum/202211/06/031825v379gowsgzc60zks.jpg" referrerpolicy="no-referrer">
+
+<strong>20221106031440_1.jpg</strong> (511.2 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-6 03:18 上传
+
+这两个地方应该也都是小石头？都没找到过去的办法。。
+
+*****
+
+####  baizhi  
+##### 1534#       发表于 2022-11-6 03:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58293776&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-6 03:18</a>
+
+原来是在终章里
+
+这两个地方应该也都是小石头？都没找到过去的办法。。</blockquote>
+雪山这个在水晶旁边的两个雪地小台阶能走下去
+
+第二章这个要贴在右边台阶上使用哥布林的石板钥匙打开。
+
