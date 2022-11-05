@@ -2232,3 +2232,24 @@ zlib这种商业网站吸引了很多本应给非营利项目libgen的捐款和�
 
 tor可以访问，但是账号密码忘了，邮箱也收不到找回邮件
 
+
+
+*****
+
+####  mj0017  
+##### 244#       发表于 2022-11-5 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58278631&amp;ptid=2103152" target="_blank">duanrenduanren 发表于 2022-11-4 22:33</a>
+
+电报机器人已经复活 体积小于50mb书籍可以直接下载。以上的需要使用tor浏览器下载。 
+
+网站还是有复活的希 ...</blockquote>
+50mb以上的tor也不行,扣了额度但是无法下载
+
+*****
+
+####  一般通过广纤  
+##### 245#       发表于 2022-11-5 16:48
+
+之前还有人说中亚噶了以后Z-Library上的中文新书估计不会很多，这下好了，死在中亚前面了
+
