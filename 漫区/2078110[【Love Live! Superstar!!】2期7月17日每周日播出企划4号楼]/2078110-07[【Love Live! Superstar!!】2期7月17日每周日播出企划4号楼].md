@@ -1397,3 +1397,14 @@ liyuu.jpg
 
 2022-11-5 17:36 上传
 
+
+
+*****
+
+####  ruffian  
+##### 9107#       发表于 2022-11-5 17:47
+
+虽然不太能get到，不过应该不用太担心nagi能不能接受的了，当初nako一提鼻钩其他人一脸秒懂，如果是整蛊道具意义上的，至少说明她们的阈值可比咱高多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
