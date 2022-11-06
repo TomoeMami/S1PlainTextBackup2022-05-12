@@ -1150,3 +1150,16 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  redsouris  
+##### 1602#       发表于 2022-11-6 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58307351&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-6 21:11</a>
+万圣节女巫给的那个魔杖说是最厉害的魔杖但重量600多挥都挥不动</blockquote>
+这个魔杖挥一次三个小火球，点敏捷加天平减重是可以挥的动的，后期堆堆魔导力一个火球上千伤害，确实是非常作弊的武器
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
