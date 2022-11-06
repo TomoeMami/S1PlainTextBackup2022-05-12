@@ -3667,3 +3667,24 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 确实白瞎了演员皮套，不达预期
 
+
+
+*****
+
+####  roxas.sora  
+##### 334#       发表于 2022-11-6 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58294019&amp;ptid=2075178" target="_blank">仟音一心 发表于 2022-11-6 07:01</a>
+
+剑圣原版就没戴面具只是涂了脸，但是全剧的皮套都是写实风就他一个这样特别尬。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">而且剑圣演员的身材比较魁梧，这皮套设计不好，看起来很臃肿，再搞个露脸的头盔就没啥威严感和压迫力，很滑稽
+
+*****
+
+####  白玫瑰之夜  
+##### 335#       发表于 2022-11-6 10:58
+
+很想知道剧里的天堂剧组是拿啥做的不会真是果冻吧，看起来很q弹的样子<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
