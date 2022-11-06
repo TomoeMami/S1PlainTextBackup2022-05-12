@@ -795,3 +795,19 @@ C9最后一轮对heroric，以前红星时代打他们输多胜少，不过现�
 c9上来连打两个我是没想到的，faze上来连输两把我也是没想到的
 想看faze和nip都0-3大家一起死的剧本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fkf90  
+##### 2719#       发表于 2022-11-6 23:20
+
+液体居然翻盘navi，谁不会当ct啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpl123  
+##### 2720#       发表于 2022-11-6 23:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小蜜蜂NAVI一齐1-2
+
