@@ -811,3 +811,33 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 已经进新章了</blockquote>
 拿那个无限传送的道具可以传回以前的地图吧，应该没什么影响
 
+
+
+*****
+
+####  電子器官依存  
+##### 1573#       发表于 2022-11-6 19:26
+
+第六章拿了监牢钥匙，打完boss之后的强度刚好够顺畅推进城镇内那个挂画的房间，房间里还就有一个用监牢钥匙开的门，这个数值控制的太好了。
+
+顺便第六章boss门前这张图的道具怎么拿
+
+<img src="https://img.saraba1st.com/forum/202211/06/192646k7uru22fu327q2r2.png" referrerpolicy="no-referrer">
+
+<strong>[66)]27F%[NN0V`VB((A0PI.png</strong> (246.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-6 19:26 上传
+
+*****
+
+####  redsouris  
+##### 1574#       发表于 2022-11-6 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58305103&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-6 19:26</a>
+第六章拿了监牢钥匙，打完boss之后的强度刚好够顺畅推进城镇内那个挂画的房间，房间里还就有一个用监牢钥匙 ...</blockquote>
+对那两个杯子一样的东西乱砍一阵就出宝箱
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
