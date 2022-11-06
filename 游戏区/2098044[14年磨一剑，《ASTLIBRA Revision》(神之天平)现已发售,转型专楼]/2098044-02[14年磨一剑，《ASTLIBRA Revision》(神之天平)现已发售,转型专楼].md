@@ -685,3 +685,12 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  otakun  
+##### 1561#       发表于 2022-11-6 18:18
+
+新章刷得真爽，一路按住跳加攻击A过去全程不带停<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">，不够血了开个变化后的斗神技能，感觉弹幕回血不够的还可以补个药
+

@@ -336,3 +336,26 @@ tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺
 人家又不傻，那个形势情况下莱皇最起码夺位概率极高，是改朝换代还是继续用高登巴姆的旗号，看看莱皇对待 ...</blockquote>
 黄金树王朝历史上权臣当道也不是一两次了，之后有什么变数未知，从龙之功非同小可。
 
+
+
+*****
+
+####  aptx8285144  
+##### 5529#       发表于 2022-11-6 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58303439&amp;ptid=1502023" target="_blank">卡奥斯·克斯拉 发表于 2022-11-6 17:59</a>
+
+黄金树王朝历史上权臣当道也不是一两次了，之后有什么变数未知，从龙之功非同小可。 ...</blockquote>
+
+反正摩顿，还有很多中下层军人，就是类似于第二卷那个发工资的人吐槽的那样，无论上面的人怎么换来换去，我们还是要混口饭吃的<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 5530#       发表于 2022-11-6 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58303705&amp;ptid=1502023" target="_blank">aptx8285144 发表于 2022-11-6 18:13</a>
+
+反正摩顿，还有很多中下层军人，就是类似于第二卷那个发工资的人吐槽的那样，无论上面的人怎么换来换去， ...</blockquote>
+中将也不算中下层了，禁卫军编制撤销后已经是皇宫守卫的最高负责人了。
+
