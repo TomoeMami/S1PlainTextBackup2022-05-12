@@ -776,3 +776,12 @@ C9最后一轮对heroric，以前红星时代打他们输多胜少，不过现�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，感觉黑豹要冠军组了
 
+
+
+*****
+
+####  ml1642879  
+##### 2717#       发表于 2022-11-6 14:31
+
+我的0-3和3-0都死了，下面7个有两位已经0-2，以后还是抄作业吧，我承认我不懂csgo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -1684,3 +1684,12 @@ twi：_CelticWhite_
 
 Nagi这反应我感觉都是算计好的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9130#       发表于 2022-11-6 14:38
+
+反正美人做什么都很好看，nagi本来就是这样日综能力过剩的人，看鲤鱼一路笑大概率是真临场反应吧，越发觉得之前外景里nagi被吓到趴着出鬼屋才是演的，哪有那么夸张。
+
