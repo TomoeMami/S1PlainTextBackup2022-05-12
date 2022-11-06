@@ -14239,3 +14239,17 @@ miko这声音是哭过了？
 
 这听着明年还要搞的样子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 2860#       发表于 2022-11-6 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58307967&amp;ptid=2086637" target="_blank">holoan 发表于 2022-11-6 21:38</a>
+
+……
+
+那也就是说以后再也没有某字母的位置了</blockquote>
+哎,这是说八字母嘛?我刚到家看到消息一脸懵逼
+
