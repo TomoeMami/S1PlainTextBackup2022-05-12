@@ -507,3 +507,15 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 伊里西恩走西方尽头进门 向左用大条和空刃能到左边一个门 里面是超高等级的过 本来是补一个装备收集的，然后跑酷进去BOSS是个爱神 一招就秒了
 
+
+
+*****
+
+####  lilod  
+##### 1546#       发表于 2022-11-6 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58297823&amp;ptid=2098044" target="_blank">李喜睡 发表于 2022-11-06 13:27:48</a>
+打到第六章受不了了，直接调简单难度了</blockquote>我第一章就调轻松了，没必要浪费时间
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
