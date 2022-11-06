@@ -4294,3 +4294,12 @@ Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加
 原来中间那位是稲垣好配的
 <img src="https://p.sda1.dev/8/8057edb1c6f2d40a90b3c5a7cc4c6ae5/toaSoku-1589150147866656769-img1.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  普罗茶  
+##### 339#       发表于 2022-11-6 18:27
+
+东南亚为什么是个日文名「幸希 心（こうき こころ）」啊，有什么典故吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
