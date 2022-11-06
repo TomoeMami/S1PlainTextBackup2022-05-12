@@ -825,3 +825,12 @@ On the Landau-Siegel Zeros Conjecture</blockquote>
 
 并不是能大肆宣传的突破，那就是有点把牛批吹大了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  纯狐娘娘  
+##### 77#       发表于 2022-11-6 13:11
+
+论文瞄了一眼，还是给专业人士看吧，到时候直接看结论<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
