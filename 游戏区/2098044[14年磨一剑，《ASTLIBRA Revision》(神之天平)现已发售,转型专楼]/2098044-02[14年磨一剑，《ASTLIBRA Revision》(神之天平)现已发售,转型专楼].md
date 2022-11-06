@@ -953,3 +953,55 @@ v2.5.4</blockquote>我玩到现在感觉天平就是小而美的2d冗长演出�
 第一章的蓝色宝珠在哪啊 卡关了 一搜攻略 要用蓝宝珠替换红宝珠 可是根本地图跑了个遍也没看到蓝宝 ...</blockquote>
 BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
+
+
+*****
+
+####  cym887  
+##### 1584#       发表于 2022-11-6 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58306705&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-6 20:39</a>
+
+回天平村路过小水池的时候他会自己掉下来就变蓝了，一开始我还以为是扔到水里还跑到湖边，结果只能在村里 ...</blockquote>
+……不是 我取下红球就被石墙锁着出不去 攻略说要用个篮球替换红球 然后把红球回小溪变篮球后放回去 问题是那个替换用的篮球我找不到啊
+
+*****
+
+####  yla  
+##### 1585#       发表于 2022-11-6 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58306755&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-6 20:42</a>
+
+……不是 我取下红球就被石&amp; ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">红球那图前一面，走上面是红球，走下面是蓝球
+
+*****
+
+####  cym887  
+##### 1586#       发表于 2022-11-6 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58306819&amp;ptid=2098044" target="_blank">yla 发表于 2022-11-6 20:45</a>
+
+红球那图前一面，走上面是红球，走下面是蓝球</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下面我进去就被墙压死了
+
+*****
+
+####  管住键政的手  
+##### 1587#       发表于 2022-11-6 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58306755&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-6 20:42</a>
+
+……不是 我取下红球就被石&amp; ...</blockquote>
+在最里面见到他爹的地方。
+
+*****
+
+####  yla  
+##### 1588#       发表于 2022-11-6 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58306883&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-6 20:48</a>
+
+下面我进去就被墙压死了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">旁边有个隐藏门....过场对话时候应该暗示的挺明显了
+
