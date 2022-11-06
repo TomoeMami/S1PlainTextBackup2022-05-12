@@ -3744,3 +3744,12 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 30年代的技术你在期待啥，本来就是落后的兵器。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">都现代了应该技术迭代才对啊，起码有粽子那种水平才配生物武器吧，或者按昭和版black的设定写
 
+
+
+*****
+
+####  肉搏光头  
+##### 341#       发表于 2022-11-6 15:15
+
+黑太阳,再加上恐龙和月球基地就是那部恶搞大作钢铁苍穹了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
