@@ -1619,3 +1619,17 @@ liyuu04.jpg
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ddy2811  
+##### 9126#       发表于 2022-11-6 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58295708&amp;ptid=2078110" target="_blank">player3960 发表于 2022-11-6 11:03</a>
+
+日综只看月曜夜未央，这个比较戳我笑点
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+月曜讲的东西大多数比较亲切，哪怕是外国的事也挺好理解的，甚至能找到国内的对应版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
