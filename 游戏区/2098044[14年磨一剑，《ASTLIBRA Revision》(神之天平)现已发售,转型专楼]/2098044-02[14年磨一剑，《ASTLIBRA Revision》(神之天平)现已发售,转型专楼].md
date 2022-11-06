@@ -874,3 +874,36 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  何处分可  
+##### 1578#       发表于 2022-11-6 20:30
+
+<img src="https://img.saraba1st.com/forum/202211/06/202904apeeu22eqewinvd7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (186.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-6 20:29 上传
+
+<img src="https://img.saraba1st.com/forum/202211/06/202920kuti9zttzeuuwt98.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (195.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-6 20:29 上传
+
+<img src="https://img.saraba1st.com/forum/202211/06/202934h1ys383snbyh22n2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (208.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-6 20:29 上传
+
+嘉隆这三个技能是从哪整的，还有光剑看攻击力挺低啊，有什么说法吗
+
