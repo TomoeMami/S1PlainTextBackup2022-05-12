@@ -1005,3 +1005,40 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 下面我进去就被墙压死了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">旁边有个隐藏门....过场对话时候应该暗示的挺明显了
 
+
+
+*****
+
+####  白軍浪  
+##### 1589#       发表于 2022-11-6 20:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58306506&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-6 20:30</a>
+
+嘉隆这三个技能是从哪整的，还有光剑看攻击力挺低啊，有什么说法吗</blockquote>
+八门是一个风锤子，第六章
+
+神盾第一章
+
+霸气第二章
+
+*****
+
+####  妄想中毒  
+##### 1590#       发表于 2022-11-6 21:00
+
+这游戏我最不理解的一点是为什么做装备都要用到料理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  白軍浪  
+##### 1591#       发表于 2022-11-6 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58305383&amp;ptid=2098044" target="_blank">dookiee 发表于 2022-11-6 19:38</a>
+
+通关完天平又ed了，有什么小而美的rpg推荐，不想看3d的冗长演出
+
+—— 来自 Xiaomi 22081212C, Andr ...</blockquote>
+废都物语
+
