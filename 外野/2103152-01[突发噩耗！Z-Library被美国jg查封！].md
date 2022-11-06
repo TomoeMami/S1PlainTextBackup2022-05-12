@@ -2322,3 +2322,12 @@ tor可以访问，但是账号密码忘了，邮箱也收不到找回邮件
 —— 来自 HUAWEI  ...</blockquote>
 Youtube第三方前端invidious没有Youtube肮脏的"个性化"推荐机制,推荐比较正常也更好.
 
+
+
+*****
+
+####  blunder  
+##### 252#       发表于 2022-11-6 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">学习了tor使用方法 可以下载了
+
