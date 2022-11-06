@@ -1329,3 +1329,14 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 打到第四章蛇村，他们这是中了幻术把村子屠了吧。男主也就罢了，小黑一个大魔法师魔抗这么低的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对面是神啊，哪怕邪神也是真神
 
+
+
+*****
+
+####  zhangzlo  
+##### 1618#       发表于 2022-11-7 07:31
+
+<blockquote>センコウ 发表于 2022-11-7 07:20
+对面是神啊，哪怕邪神也是真神</blockquote>
+唉。
+
