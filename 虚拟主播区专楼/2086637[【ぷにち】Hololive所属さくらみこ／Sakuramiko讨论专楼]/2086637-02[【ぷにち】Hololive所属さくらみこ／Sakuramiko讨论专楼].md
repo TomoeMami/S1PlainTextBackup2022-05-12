@@ -14288,3 +14288,14 @@ miko这声音是哭过了？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">直接跳过这两个月画明年的饼了，看你能出什么企划。今年我有印象的也就年初的mikorone24小时。
 
+
+
+*****
+
+####  holoan  
+##### 2864#         楼主| 发表于 2022-11-6 23:05
+
+korone已经被某公司绑死了，运动会都参加不了不用说做其他事了
+
+这个基本没可能
+
