@@ -1310,3 +1310,22 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  zhangzlo  
+##### 1616#       发表于 2022-11-7 07:17
+
+打到第四章蛇村，他们这是中了幻术把村子屠了吧。男主也就罢了，小黑一个大魔法师魔抗这么低的
+
+*****
+
+####  センコウ  
+##### 1617#       发表于 2022-11-7 07:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58312324&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-7 07:17</a>
+
+打到第四章蛇村，他们这是中了幻术把村子屠了吧。男主也就罢了，小黑一个大魔法师魔抗这么低的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对面是神啊，哪怕邪神也是真神
+
