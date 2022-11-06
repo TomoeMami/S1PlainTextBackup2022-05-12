@@ -625,3 +625,12 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 —— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  御坂MKII  
+##### 1556#       发表于 2022-11-6 17:05
+
+看了下日文wiki，一周目应该就是9个挂盘吧
+
