@@ -66,3 +66,23 @@
 
 又是**情233
 
+
+
+*****
+
+####  Slime_  
+##### 378#       发表于 2022-11-6 23:53
+
+怎么最后不是互相理解的HE呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  子夜微雪  
+##### 379#       发表于 2022-11-6 23:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58310517&amp;ptid=2018235" target="_blank">Slime_ 发表于 2022-11-6 23:53</a>
+怎么最后不是互相理解的HE呜呜呜</blockquote>
+这次没有死一个已经是非常之进步了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
