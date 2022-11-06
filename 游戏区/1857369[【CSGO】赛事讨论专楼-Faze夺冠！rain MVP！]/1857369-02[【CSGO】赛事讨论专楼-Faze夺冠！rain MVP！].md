@@ -952,3 +952,28 @@ g2没进32强，然后16强小蜜蜂navi1-2，faze直接回家
 
 大的也太多了
 
+
+
+*****
+
+####  ispep  
+##### 2738#       发表于 2022-11-7 07:47
+
+一觉起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Cushaw  
+##### 2739#       发表于 2022-11-7 07:51
+
+战舰爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  dev2ce  
+##### 2740#       发表于 2022-11-7 07:52
+
+米人打老东家能不能硬起来
+
