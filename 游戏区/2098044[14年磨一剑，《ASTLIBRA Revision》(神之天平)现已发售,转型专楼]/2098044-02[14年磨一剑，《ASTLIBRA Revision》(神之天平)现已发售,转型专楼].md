@@ -1096,3 +1096,57 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 霸气第二章</blockquote>
 我说是我空出来的三个啊
 
+
+
+*****
+
+####  BQlin  
+##### 1597#       发表于 2022-11-6 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58307351&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-6 21:11</a>
+
+万圣节女巫给的那个魔杖说是最厉害的魔杖但重量600多挥都挥不动</blockquote>
+后面敏捷起来了才用得起
+
+攻速拉满确实很厉害
+
+*****
+
+####  蓝雉  
+##### 1598#         楼主| 发表于 2022-11-6 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58307129&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-6 21:00</a>
+这游戏我最不理解的一点是为什么做装备都要用到料理</blockquote>
+答案是给猪猪吃的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何处分可  
+##### 1599#       发表于 2022-11-6 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58307415&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-11-6 21:14</a>
+
+第一章设计图盔甲、魔王城分苹果位置的隐藏宝箱盔甲、集齐装备后大贤者给的弑神剑 ...</blockquote>
+谢了，终于集齐了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  管住键政的手  
+##### 1600#       发表于 2022-11-6 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58307258&amp;ptid=2098044" target="_blank">Farlight 发表于 2022-11-6 21:06</a>
+
+不是，火山守护兽到底怎么打啊，就找机会近身硬刮？</blockquote>
+雷杖点，月光砍。
+
+*****
+
+####  swordofsoul1  
+##### 1601#       发表于 2022-11-6 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58307129&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-6 21:00</a>
+这游戏我最不理解的一点是为什么做装备都要用到料理</blockquote>
+小猪爱吃
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

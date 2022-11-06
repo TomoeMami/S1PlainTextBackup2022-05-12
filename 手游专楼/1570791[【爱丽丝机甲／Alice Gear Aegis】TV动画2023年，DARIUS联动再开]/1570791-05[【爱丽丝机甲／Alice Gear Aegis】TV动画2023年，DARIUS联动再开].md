@@ -489,3 +489,12 @@ ps:桃歌的新便服，绝对垫了，都到会长的水准了
 
 —— 来自 Xiaomi Redmi K30i 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Laie  
+##### 7439#       发表于 2022-11-6 21:51
+
+发现chatnoir都好久没更新了，之前没抽尾长想补下4星的剧情都没地方看了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
