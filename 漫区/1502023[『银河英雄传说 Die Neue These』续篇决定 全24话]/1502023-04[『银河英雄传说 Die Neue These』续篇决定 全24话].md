@@ -278,3 +278,25 @@ tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺
 
 先寇布：我的品味才不像波普兰那么差。
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 5524#       发表于 2022-11-6 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58296881&amp;ptid=1502023" target="_blank">yunxyz 发表于 2022-11-6 12:25</a>
+
+摩顿这个其实虽然是旧臣，但实际上算个纯臣，克斯拉能用他，金毛也知道这个人是个老派军人没有政治野心，所 ...</blockquote>
+摩特应该是原禁卫军体系的，禁卫军被整体撤销了
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 5525#       发表于 2022-11-6 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58297379&amp;ptid=1502023" target="_blank">aptx8285144 发表于 2022-11-6 13:01</a>
+
+只要没参加贵族军的军政人员，对于和大公一起内心发誓过要建立公平公正社会的莱皇而言都是“自己人”，新 ...</blockquote>
+摩特明显是效忠的黄金树啊
+
