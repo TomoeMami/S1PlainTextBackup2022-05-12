@@ -9666,3 +9666,15 @@ psv
 听机核的电台，应该是新战神1代有的那些问题，2代也有，1代好的地方，2代加倍 ...</blockquote>
 希望换皮这个别延续到诸神黄昏，其他倒是无所谓
 
+
+
+*****
+
+####  JudgmentEye  
+##### 1004#       发表于 2022-11-7 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58267558&amp;ptid=2025548" target="_blank">renkan119 发表于 2022-11-4 10:48</a>
+
+说起来现在初代二代有什么比较方便能玩到的吗？</blockquote>
+ps3模拟器
+

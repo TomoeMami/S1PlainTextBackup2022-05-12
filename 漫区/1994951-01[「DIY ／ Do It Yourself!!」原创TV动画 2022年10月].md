@@ -4385,3 +4385,27 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 
 拿动画这个画风画的插画感觉效果也不错啊，没有影子但也不会觉得完成度低，动画人设是哪位啊，真乃神人也
 
+
+
+*****
+
+####  最强惠酱  
+##### 347#       发表于 2022-11-7 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58310711&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-11-7 00:07</a>
+看到这个「三代目」就想起&amp;#x ...</blockquote>
+什么黑童话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  普罗茶  
+##### 348#       发表于 2022-11-7 00:15
+
+ 本帖最后由 普罗茶 于 2022-11-7 00:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58310731&amp;ptid=1994951" target="_blank">CharlieZ- 发表于 2022-11-7 00:09</a>
+
+拿动画这个画风画的插画感觉效果也不错啊，没有影子但也不会觉得完成度低，动画人设是哪位啊，真乃神人也 ...</blockquote>
+当然是松尾佑辅啊，不靠过多的线条和影来表现人物确实挺厉害的，也方便原画发挥。（想吐槽下泥潭这个简繁转换还转异体字吗）
+
