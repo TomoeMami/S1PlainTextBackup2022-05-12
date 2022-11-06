@@ -3647,3 +3647,23 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 给剑圣一个面具会死么</blockquote>
 剑圣原版就没戴面具只是涂了脸，但是全剧的皮套都是写实风就他一个这样特别尬。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  電子器官依存  
+##### 332#       发表于 2022-11-6 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58293638&amp;ptid=2075178" target="_blank">卡罗斯 发表于 2022-11-6 02:27</a>
+这片子很明显暴露出国内大部分现今受众都没看过原作TV的事实了</blockquote>
+完全可以把国内两个字去掉，这片子节奏奇怪有很大一部分原因都和鲸鱼相关，不由分说加进去一些完全不解释的致敬内容没有任何好处
+
+*****
+
+####  pandaman7777  
+##### 333#       发表于 2022-11-6 09:17
+
+前面挺好，后半段越来越不对劲，IP皮套特摄都是服务于主创政治主张表达的工具
+
+确实白瞎了演员皮套，不达预期
+
