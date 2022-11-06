@@ -14155,3 +14155,14 @@ ENID组是都来了
 
 看来还没回家
 
+
+
+*****
+
+####  rs5621  
+##### 2852#       发表于 2022-11-6 19:34
+
+很困还要直播，她真的……
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

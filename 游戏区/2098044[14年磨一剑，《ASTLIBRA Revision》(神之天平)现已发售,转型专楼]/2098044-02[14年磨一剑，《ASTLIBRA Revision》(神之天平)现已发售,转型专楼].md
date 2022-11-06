@@ -841,3 +841,36 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  DarkDancer  
+##### 1575#       发表于 2022-11-6 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58305103&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-6 19:26</a>
+
+第六章拿了监牢钥匙，打完boss之后的强度刚好够顺畅推进城镇内那个挂画的房间，房间里还就有一个用监牢钥匙 ...</blockquote>
+对着右边墙敲
+
+*****
+
+####  電子器官依存  
+##### 1576#       发表于 2022-11-6 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58305153&amp;ptid=2098044" target="_blank">redsouris 发表于 2022-11-6 19:29</a>
+
+对那两个杯子一样的东西乱砍一阵就出宝箱，下一章有没有这玩意体验差距很大哦
+
+—— 来自 HUAWEI CDY-AN9 ...</blockquote>
+有了有了，右边的墙上有东西砍掉就好了，感谢坛友
+
+*****
+
+####  dookiee  
+##### 1577#       发表于 2022-11-6 19:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">通关完天平又ed了，有什么小而美的rpg推荐，不想看3d的冗长演出
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -4315,3 +4315,22 @@ Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加
 东南亚为什么是个日文名「幸希 心（こうき こころ）」啊，有什么典故吗 ...</blockquote>
 大概是混血吧（爸爸日本人）名字本身是「好奇心」化作的
 
+
+
+*****
+
+####  woui003woui  
+##### 341#       发表于 2022-11-6 19:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">女主性格……导致看这部一直都感觉很紧绷……
+
+*****
+
+####  豚厨二象性  
+##### 342#       发表于 2022-11-6 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58291818&amp;ptid=1994951" target="_blank">zzf111 发表于 2022-11-5 23:16</a>
+
+https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
