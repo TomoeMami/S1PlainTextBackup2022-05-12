@@ -634,3 +634,15 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 看了下日文wiki，一周目应该就是9个挂盘吧
 
+
+
+*****
+
+####  AeonsTorn  
+##### 1557#       发表于 2022-11-6 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58302358&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-6 17:05</a>
+
+看了下日文wiki，一周目应该就是9个挂盘吧</blockquote>
+重制版版十个，之前的楼里面位置说的很清楚了，9个的是免费版
+
