@@ -4259,3 +4259,15 @@ FguGwNXVsAAhJlZ.jpg
 
 怎么又在活动周的周常里要求刷狗粮，是不是有病啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 3386#       发表于 2022-11-7 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58310677&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2022-11-7 00:05</a>
+
+怎么又在活动周的周常里要求刷狗粮，是不是有病啊</blockquote>
+还有一个更神经病的，特别任务要打三次掉落礼装本，就算你打过了也要再打一次<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
+
