@@ -1633,3 +1633,16 @@ liyuu04.jpg
   -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
 月曜讲的东西大多数比较亲切，哪怕是外国的事也挺好理解的，甚至能找到国内的对应版本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 9127#       发表于 2022-11-6 12:47
+
+<blockquote>愛さ実 发表于 2022-11-6 00:30
+【【芸能人が本気で考えたドッキリGP】20221105_生肉-哔哩哔哩】 https://b23.tv/M19vW7d
+
+—— 来自 S1F ...</blockquote>
+谢谢老铁(原来猴子整蛊才这么一小段的吗
+

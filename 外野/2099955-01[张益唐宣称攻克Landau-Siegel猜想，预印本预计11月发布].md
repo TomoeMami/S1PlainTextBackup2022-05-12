@@ -816,3 +816,12 @@ On the Landau-Siegel Zeros Conjecture</blockquote>
 
 他的套路非常正统，就是硬估上下界，够用应该是够用的吧，但是一路走到彻底解决有点困难。
 
+
+
+*****
+
+####  manyin1  
+##### 76#       发表于 2022-11-6 12:48
+
+并不是能大肆宣传的突破，那就是有点把牛批吹大了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
