@@ -767,3 +767,12 @@ C9最后一轮对heroric，以前红星时代打他们输多胜少，不过现�
 
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  灰色的狐狸  
+##### 2716#       发表于 2022-11-6 13:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，感觉黑豹要冠军组了
+

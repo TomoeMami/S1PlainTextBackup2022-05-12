@@ -472,3 +472,29 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 村正给的时间点也太晚了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没心机刷装备盘了，还是老样子上杀神剑了
 
+
+
+*****
+
+####  skgaminger1988  
+##### 1542#       发表于 2022-11-6 13:23
+
+主角肾应该挺好的 磕了数不清的枸杞<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  李喜睡  
+##### 1543#       发表于 2022-11-6 13:27
+
+打到第六章受不了了，直接调简单难度了
+
+*****
+
+####  沙发果冻  
+##### 1544#       发表于 2022-11-6 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58297664&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-6 13:20</a>
+
+村正给的时间点也太晚了没心机刷装备盘了，还是老样子上杀神剑了</blockquote>
+村正有光波之后伤害高得夸张，杀神剑就攻击距离有点优势而已
+
