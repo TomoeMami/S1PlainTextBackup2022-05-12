@@ -694,3 +694,69 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 新章刷得真爽，一路按住跳加攻击A过去全程不带停<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">，不够血了开个变化后的斗神技能，感觉弹幕回血不够的还可以补个药
 
+
+
+*****
+
+####  管住键政的手  
+##### 1562#       发表于 2022-11-6 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58303469&amp;ptid=2098044" target="_blank">DarkDancer 发表于 2022-11-6 18:00</a>
+
+荒谬25小时全要素通关了
+
+怀疑前三章至少打了我5-6个小时，这游戏开荒确实容易把新玩家劝退，后期完全就是 ...</blockquote>
+我刷箱子应该都不止刷了25小时，你这什么欧皇手气？
+
+*****
+
+####  管住键政的手  
+##### 1563#       发表于 2022-11-6 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58299382&amp;ptid=2098044" target="_blank">李喜睡 发表于 2022-11-6 15:00</a>
+
+另外我觉得这游戏战斗中吃药的体验真的很差...得想办法整那种读条短的药才行 ...</blockquote>
+天平必备的就是使用速度、精力上升量和效果时间。
+
+*****
+
+####  DarkDancer  
+##### 1564#       发表于 2022-11-6 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58304048&amp;ptid=2098044" target="_blank">管住键政的手 发表于 2022-11-6 18:32</a>
+
+我刷箱子应该都不止刷了25小时，你这什么欧皇手气？</blockquote>
+高难度有掉率加成的 
+
+*****
+
+####  管住键政的手  
+##### 1565#       发表于 2022-11-6 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58304103&amp;ptid=2098044" target="_blank">DarkDancer 发表于 2022-11-6 18:35</a>
+
+高难度有掉率加成的</blockquote>
+我也就低一个难度啊，而且基本都点幸运点到了每章刮痧的地步，说起来光演出就有十来个小时吧<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarkDancer  
+##### 1566#       发表于 2022-11-6 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58304134&amp;ptid=2098044" target="_blank">管住键政的手 发表于 2022-11-6 18:36</a>
+
+我也就低一个难度啊，而且基本都点幸运点到了每章刮痧的地步，说起来光演出就有十来个小时吧 ...</blockquote>
+高难度感觉不需要点幸运，我全程都没点过幸运，演出肯定跳过的 我又不是初见了
+
+*****
+
+####  A1LI  
+##### 1567#       发表于 2022-11-6 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58303469&amp;ptid=2098044" target="_blank">DarkDancer 发表于 2022-11-6 18:00</a>
+
+荒谬25小时全要素通关了
+
+怀疑前三章至少打了我5-6个小时，这游戏开荒确实容易把新玩家劝退，后期完全就是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兄弟，你这绝壁开挂了，不要不承认。
+

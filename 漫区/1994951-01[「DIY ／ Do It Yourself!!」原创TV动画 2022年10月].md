@@ -4303,3 +4303,15 @@ Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加
 
 东南亚为什么是个日文名「幸希 心（こうき こころ）」啊，有什么典故吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 340#       发表于 2022-11-6 18:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58303949&amp;ptid=1994951" target="_blank">普罗茶 发表于 2022-11-6 18:27</a>
+
+东南亚为什么是个日文名「幸希 心（こうき こころ）」啊，有什么典故吗 ...</blockquote>
+大概是混血吧（爸爸日本人）名字本身是「好奇心」化作的
+
