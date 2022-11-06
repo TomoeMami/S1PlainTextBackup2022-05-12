@@ -943,3 +943,12 @@ g2没进32强，然后16强小蜜蜂navi1-2，faze直接回家
 
 克拉科夫复刻是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  情商  
+##### 2737#       发表于 2022-11-7 07:32
+
+大的也太多了
+

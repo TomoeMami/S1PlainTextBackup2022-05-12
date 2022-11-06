@@ -93,3 +93,12 @@
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  やト  
+##### 17174#       发表于 2022-11-7 07:33
+
+现在有金牛，肉好刷多了
+
