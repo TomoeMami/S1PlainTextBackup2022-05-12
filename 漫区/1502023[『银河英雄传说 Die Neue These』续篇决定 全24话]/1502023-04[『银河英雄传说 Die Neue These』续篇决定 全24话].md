@@ -314,3 +314,25 @@ tmd  给杨文李穿起来架在架子上烤 ，对面莱恩哈特简直是顺
 
 人家又不傻，那个形势情况下莱皇最起码夺位概率极高，是改朝换代还是继续用高登巴姆的旗号，看看莱皇对待大贵族们的态度就能感觉到倾向性，忠于职守的老军人也不会誓死反对，默默地接受事实罢了（人家也不是原军务尚书这种职位极高面对新时代的来临必须辞职的人，很多中下层军人也就是混口饭吃）
 
+
+
+*****
+
+####  aptx8285144  
+##### 5527#       发表于 2022-11-6 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58296881&amp;ptid=1502023" target="_blank">yunxyz 发表于 2022-11-6 12:25</a>
+
+摩顿这个其实虽然是旧臣，但实际上算个纯臣，克斯拉能用他，金毛也知道这个人是个老派军人没有政治野心，所 ...</blockquote>
+这人这个时候与其说想清洗谁谁，倒不如说时不时想诱导莱皇当个狠人<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 5528#       发表于 2022-11-6 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58303214&amp;ptid=1502023" target="_blank">aptx8285144 发表于 2022-11-6 17:47</a>
+
+人家又不傻，那个形势情况下莱皇最起码夺位概率极高，是改朝换代还是继续用高登巴姆的旗号，看看莱皇对待 ...</blockquote>
+黄金树王朝历史上权臣当道也不是一两次了，之后有什么变数未知，从龙之功非同小可。
+
