@@ -544,3 +544,29 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 以后考虑打BOSS换难度了，过分刮实在有点影响过游戏的欲望
 
+
+
+*****
+
+####  gh1023  
+##### 1549#       发表于 2022-11-6 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58293296&amp;ptid=2098044" target="_blank">yla 发表于 2022-11-6 01:20</a>
+
+鸡蛋黄油小麦粉奶酪面包牛奶，这些食材按章节放在小怪和障碍物的掉落里...
+
+面包蛋糕之类的，封印 ...</blockquote>
+问题不在于素材而是配方啊...这游戏不是不支持无配方的盲合成么？那配方哪里找<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  A1LI  
+##### 1550#       发表于 2022-11-6 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58296831&amp;ptid=2098044" target="_blank">BQlin 发表于 2022-11-6 12:22</a>
+
+昨晚第一次打迷宫连出两个爱情，然后早上打了几轮都没掉
+
+感觉还是要靠队友给，还好前面剧情都有拿 ...</blockquote>
+其实一周目剧情的都拿了，新章结尾迷宫带上npc去刷好感度给10个，竞技场给1个，最后爱情的数量是正好足够的，不需要特别去刷。
+
