@@ -1273,3 +1273,25 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
   才开始玩，能不剧透的说一下，我在第一章的洞窟拿了两个石头之后回村合武器了，然后出现石头变成两个蓝的剧情，这是影响多结局的剧情吗？
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1613#       发表于 2022-11-7 06:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58312148&amp;ptid=2098044" target="_blank">415452356 发表于 2022-11-7 04:20</a>
+才开始玩，能不剧透的说一下，我在第一章的洞窟拿了两个石头之后回村合武器了，然后出现石头变成两个蓝的 ...</blockquote>
+不影响就是这么玩的
+
+*****
+
+####  415452356  
+##### 1614#       发表于 2022-11-7 06:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58312224&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-7 06:08</a>
+不影响就是这么玩的</blockquote>
+  我还以为上来就埋多结局的雷
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
