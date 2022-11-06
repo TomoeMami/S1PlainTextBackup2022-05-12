@@ -843,3 +843,94 @@ c9上来连打两个我是没想到的，faze上来连输两把我也是没想�
 
 FAZE打大厦是想家了吗
 
+
+
+*****
+
+####  shhekun  
+##### 2725#       发表于 2022-11-7 02:04
+
+总监救了这个家啊
+
+*****
+
+####  人別離苦  
+##### 2726#       发表于 2022-11-7 02:19
+
+返航！
+
+*****
+
+####  Damocles990609  
+##### 2727#       发表于 2022-11-7 02:19
+
+总监坐牢啊
+
+*****
+
+####  人別離苦  
+##### 2728#       发表于 2022-11-7 04:44
+
+不会真返航了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奈纪亚美  
+##### 2729#       发表于 2022-11-7 04:47
+
+再度启航！
+
+*****
+
+####  奈纪亚美  
+##### 2730#       发表于 2022-11-7 04:59
+
+返航？坠毁！
+
+
+
+*****
+
+####  Damocles990609  
+##### 2731#       发表于 2022-11-7 05:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼陀罗肥  
+##### 2732#       发表于 2022-11-7 05:00
+
+ 本帖最后由 曼陀罗肥 于 2022-11-7 05:23 编辑 
+
+这次major太离谱了
+g2没进32强，然后16强小蜜蜂navi1-2，faze直接回家
+
+*****
+
+####  AlphardAlSheya  
+##### 2733#       发表于 2022-11-7 05:07
+
+甲级战犯broky
+
+—— 来自 Xiaomi M2104K10AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rainwedell  
+##### 2734#       发表于 2022-11-7 05:07
+
+表哥的6月魔咒还是应验了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  andychen  
+##### 2735#       发表于 2022-11-7 05:39
+
+赛前说各家豪强战队经过人员调整实力都有所增强，这次会是群雄逐鹿
+真打起来就C9这个没换人的干上去了，其他几兄弟都在挣扎...液体现在2-1战绩倒是不错，狂哥发挥起来可能还能更上一层楼
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -9678,3 +9678,12 @@ psv
 说起来现在初代二代有什么比较方便能玩到的吗？</blockquote>
 ps3模拟器
 
+
+
+*****
+
+####  namelessashen  
+##### 1005#       发表于 2022-11-7 02:59
+
+ps4玩会怎么样，会不会帧数特别低画质不行<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

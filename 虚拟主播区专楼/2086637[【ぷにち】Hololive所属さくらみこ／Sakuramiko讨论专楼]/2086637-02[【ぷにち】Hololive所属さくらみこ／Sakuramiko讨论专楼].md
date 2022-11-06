@@ -14308,3 +14308,12 @@ korone已经被某公司绑死了，运动会都参加不了不用说做其他�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">越聊越精神!
 
+
+
+*****
+
+####  Map-2  
+##### 2866#       发表于 2022-11-7 02:14
+
+啊？但好像宫皇最近也没接世嘉什么大活吧，难道背地里藏东西了？
+
