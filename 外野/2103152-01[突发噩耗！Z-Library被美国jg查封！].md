@@ -2349,3 +2349,24 @@ Youtube第三方前端invidious没有Youtube肮脏的"个性化"推荐机制,推
 
 礼求问你们注册用的邮箱是哪家的 现在收不到验证邮件<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  junqqq999  
+##### 255#       发表于 2022-11-6 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58304329&amp;ptid=2103152" target="_blank">OrianaThomson 发表于 2022-11-6 18:47</a>
+
+礼求问你们注册用的邮箱是哪家的 现在收不到验证邮件</blockquote>
+用gmail试试~~~~
+
+*****
+
+####  skyuni  
+##### 256#       发表于 2022-11-6 18:56
+
+[https://zh.b-ok.asia/](https://zh.b-ok.asia/)
+
+这个也寄了
+

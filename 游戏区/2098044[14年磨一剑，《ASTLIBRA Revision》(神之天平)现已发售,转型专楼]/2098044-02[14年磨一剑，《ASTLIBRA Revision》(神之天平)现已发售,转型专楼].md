@@ -799,3 +799,15 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 重制版版十个，之前的楼里面位置说的很清楚了，9个的是免费版</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经进新章了
 
+
+
+*****
+
+####  AeonsTorn  
+##### 1572#       发表于 2022-11-6 18:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58304385&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-6 18:50</a>
+
+已经进新章了</blockquote>
+拿那个无限传送的道具可以传回以前的地图吧，应该没什么影响
+
