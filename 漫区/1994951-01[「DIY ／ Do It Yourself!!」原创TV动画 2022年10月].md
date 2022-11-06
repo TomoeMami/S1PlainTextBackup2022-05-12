@@ -4282,3 +4282,15 @@ Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加
 
 —— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  千恋万花  
+##### 338#       发表于 2022-11-6 15:05
+
+[https://twitter.com/toaSoku/status/1589150147866656769](https://twitter.com/toaSoku/status/1589150147866656769)
+
+原来中间那位是稲垣好配的
+<img src="https://p.sda1.dev/8/8057edb1c6f2d40a90b3c5a7cc4c6ae5/toaSoku-1589150147866656769-img1.jpg" referrerpolicy="no-referrer">
+

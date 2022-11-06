@@ -3732,3 +3732,15 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 30年代的技术你在期待啥，本来就是落后的兵器。</blockquote>
 哪怕是30年代创世王也顶不住密集炮火轰炸啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  roxas.sora  
+##### 340#       发表于 2022-11-6 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58297172&amp;ptid=2075178" target="_blank">vmon 发表于 2022-11-6 12:46</a>
+
+30年代的技术你在期待啥，本来就是落后的兵器。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">都现代了应该技术迭代才对啊，起码有粽子那种水平才配生物武器吧，或者按昭和版black的设定写
+
