@@ -16,3 +16,14 @@
 
 这集是病娇女友吗！！！
 
+
+
+*****
+
+####  6030sylar  
+##### 374#       发表于 2022-11-6 08:29
+
+人/兽恋太多了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

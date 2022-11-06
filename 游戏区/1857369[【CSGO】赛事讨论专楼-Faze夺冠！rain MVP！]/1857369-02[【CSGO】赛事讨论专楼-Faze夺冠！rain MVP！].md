@@ -735,3 +735,12 @@ C9和蜜蜂挑战者组发挥太差布分在传奇组是垫底，Faze和Navi是�
 
 龟龟 卫冕冠军0-2开局
 
+
+
+*****
+
+####  朔方原的星  
+##### 2713#         楼主| 发表于 2022-11-6 08:26
+
+薯薯打faze重拳出击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这回往下赛程好打不少了
+
