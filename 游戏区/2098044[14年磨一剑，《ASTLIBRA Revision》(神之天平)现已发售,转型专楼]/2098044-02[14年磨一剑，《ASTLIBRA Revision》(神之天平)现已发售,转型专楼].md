@@ -674,3 +674,14 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 玩下来感觉这个游戏最难的点还是魔王城对战4人队和竞技场的群星，简直是酸爽，这两个地方都卡了我差不多半小时。其他的地方倒都还好
 
+
+
+*****
+
+####  Rainwedell  
+##### 1560#       发表于 2022-11-6 18:03
+
+连肝25h困难到第四章打完蛇神了，刷一下确实无双<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
