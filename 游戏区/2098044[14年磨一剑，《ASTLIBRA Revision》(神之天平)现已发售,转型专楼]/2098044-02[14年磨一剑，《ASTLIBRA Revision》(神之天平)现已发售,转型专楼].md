@@ -612,3 +612,16 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 另外我觉得这游戏战斗中吃药的体验真的很差...得想办法整那种读条短的药才行
 
+
+
+*****
+
+####  御坂MKII  
+##### 1555#       发表于 2022-11-6 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58299372&amp;ptid=2098044" target="_blank">李喜睡 发表于 2022-11-6 14:59</a>
+为啥我伤害这么刮痧，天平我没咋琢磨，就随便弄了弄，会跟着这个有关系吗 ...</blockquote>
+数值是有点儿问题 最好是先把箱子里的图纸做出来
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
