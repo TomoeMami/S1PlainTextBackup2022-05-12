@@ -1058,3 +1058,25 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 我进第八章了 现在天平是7个盘子 是不是少了一个？
 
+
+
+*****
+
+####  Sannapolis  
+##### 1594#       发表于 2022-11-6 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58306506&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-6 20:30</a>
+
+嘉隆这三个技能是从哪整的，还有光剑看攻击力挺低啊，有什么说法吗</blockquote>
+第一章设计图盔甲、魔王城分苹果位置的隐藏宝箱盔甲、集齐装备后大贤者给的弑神剑
+
+*****
+
+####  沙发果冻  
+##### 1595#       发表于 2022-11-6 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58306506&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-6 20:30</a>
+
+嘉隆这三个技能是从哪整的，还有光剑看攻击力挺低啊，有什么说法吗</blockquote>
+光剑指村正么，村正的光波是按魔法计算的，魔法加伤的被动都能用，我通关时砍石头一下光波伤害就有五六千，魔导力是1500左右，加个魔法扫帚的buff，一下能有八千
+
