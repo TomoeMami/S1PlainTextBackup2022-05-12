@@ -582,3 +582,17 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 —— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yla  
+##### 1552#       发表于 2022-11-6 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58298865&amp;ptid=2098044" target="_blank">gh1023 发表于 2022-11-6 14:28</a>
+
+问题不在于素材而是配方啊...这游戏不是不支持无配方的盲合成么？那配方哪里找 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">不是，配方不都在第一本配方里吗？拿到道具就会亮对应的图标，你玩的和我玩的版本不一样吗...
+
+第二章掉落的武器合成需要的不就是面包鸡蛋这种合出来的松饼蛋糕吐司什么的么
+

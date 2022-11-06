@@ -372,3 +372,19 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 
 查看全部评分
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 1986#       发表于 2022-11-6 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58293795&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-11-6 03:28</a>
+
+我觉得是游戏画风问题</blockquote>
+虽然喜欢不上游戏粉毛（我不控萝莉）
+
+但是动画我觉得这头发给长大了的形象还行，现在就……
+
+）发型不是问题
+
