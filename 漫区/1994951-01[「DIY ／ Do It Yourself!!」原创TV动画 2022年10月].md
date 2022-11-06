@@ -4343,3 +4343,45 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 
 最近两集剧情格外子供番，不知道接下来能不能有点好玩的展开
 
+
+
+*****
+
+####  千恋万花  
+##### 344#       发表于 2022-11-7 00:03
+
+漫画版只在 マンガUP！ APP 上连载，不太方便看，之前就只看了可以在网页上试读的第 1 话。
+
+今晚单行本第一卷（内容到动画第 2 集结尾 Job 子出场）发售了，就去看了下。
+
+内容自然是跟动画版差不多，不过多了段布丁坐公交车回家时（动画中小己有台词说明布丁坐的应该是校车，但漫画里没有这句，感觉是普通的公交车）听见一个小朋友邀请另一个小朋友去家里玩，回忆起自己小时候也经常跟小己一起玩，本以为这种日子会一直持续下去（阅读顺序从右到左）。
+<img src="https://p.sda1.dev/8/0fa7f20968f4fa8e1254e563734923df/2022-11-06-2338_33.png" referrerpolicy="no-referrer">
+
+然后小己也感觉更主动一些，直接拉住布丁的手说自己想要做长椅。
+<img src="https://p.sda1.dev/8/582aed9772497e732e2d163c4975ad54/2022-11-06-2345_23.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/51212b4e1ca89b973b8e3a6dcbdea3f2/2022-11-06-2345_47.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/026b8a4019b05bc268493b65f0445aba/2022-11-06-2346_20.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2b53db081dbd7119ee420faac31ed581/2022-11-06-2346_53.png" referrerpolicy="no-referrer">
+
+顺道比较好玩的是小己家养的那头猪的名字，漫画第 1 话刚出来的时候给的是全名「三代目・j・ソウル・ミート」，后面 APP 端改成了的「ミート」（单行本也如此），全名自然是 NETA「三代目 J Soul Brothers」，但不知为何漫画后来要改掉（因为之前的[访谈](https://www.animatetimes.com/news/details.php?id=1665028048&amp;p=2)也直接给了全名，还提到狗、猫、猪分别是市ノ瀬、佐倉、和氣配的）。
+<img src="https://p.sda1.dev/8/49f4d03343ce91880eb56b801166a798/2022-11-07-0000_27.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/4aaeff0b51a2ccfceef14993aaba056f/2022-11-07-0000_47.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/19c0261efcb7468749a29c442de95f1b/2022-11-07-0001_44.png" referrerpolicy="no-referrer">
+
+*****
+
+####  千恋万花  
+##### 345#       发表于 2022-11-7 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58310646&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-11-7 00:03</a>
+
+漫画版只在 マンガUP！ APP 上连&amp;#x8; ...</blockquote>
+看到这个「三代目」就想起日本观众那边有个脑洞是前 4 集每集的猪都是不同的猪（因为前一只被小己妈妈做来吃了）
+
+*****
+
+####  CharlieZ-  
+##### 346#       发表于 2022-11-7 00:09
+
+拿动画这个画风画的插画感觉效果也不错啊，没有影子但也不会觉得完成度低，动画人设是哪位啊，真乃神人也
+
