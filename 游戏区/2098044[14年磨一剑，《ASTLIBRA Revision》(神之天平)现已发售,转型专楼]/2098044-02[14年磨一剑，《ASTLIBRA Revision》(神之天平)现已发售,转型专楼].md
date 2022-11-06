@@ -418,3 +418,14 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">最后额大龙30万血，招还很疼 明天再打了
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1536#       发表于 2022-11-6 11:51
+
+魔杖除了雷帐竞技场逃课其他有实际作用么
+
+感觉哪个都不好用
+
