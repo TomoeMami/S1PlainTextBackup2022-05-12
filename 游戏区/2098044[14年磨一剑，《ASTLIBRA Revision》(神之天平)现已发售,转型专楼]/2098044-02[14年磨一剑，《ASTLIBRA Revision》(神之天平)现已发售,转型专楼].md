@@ -1295,3 +1295,18 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  redsouris  
+##### 1615#       发表于 2022-11-7 06:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58312227&amp;ptid=2098044" target="_blank">415452356 发表于 2022-11-7 06:11</a>
+我还以为上来就埋多结局的雷
+
+—— 来自 S1Fun</blockquote>
+这里解谜就是需要两个蓝球
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
