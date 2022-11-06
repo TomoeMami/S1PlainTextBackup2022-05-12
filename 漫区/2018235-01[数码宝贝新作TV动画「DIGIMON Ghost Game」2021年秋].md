@@ -86,3 +86,17 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Slime_  
+##### 380#       发表于 2022-11-7 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58310553&amp;ptid=2018235" target="_blank">子夜微雪 发表于 2022-11-6 23:56</a>
+
+这次没有死一个已经是非常之进步了
+
+—— 来自 S1Fun</blockquote>
+这么一说确实，但是明明爱精灵是可以和人类好好相处的数码兽，好想要HE，前辈和海蜇兽的也行！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
