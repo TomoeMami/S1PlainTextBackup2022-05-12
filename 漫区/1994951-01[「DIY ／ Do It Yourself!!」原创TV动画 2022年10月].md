@@ -4334,3 +4334,12 @@ Billion Meta Lab 那个我觉得不算正规字幕组，更像是拿英肉再加
 https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  faniod  
+##### 343#       发表于 2022-11-6 21:03
+
+最近两集剧情格外子供番，不知道接下来能不能有点好玩的展开
+
