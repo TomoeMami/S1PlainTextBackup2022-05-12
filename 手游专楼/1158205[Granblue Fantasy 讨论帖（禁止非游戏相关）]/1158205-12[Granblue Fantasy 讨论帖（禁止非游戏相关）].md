@@ -43,3 +43,14 @@
 
 这种玩意啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，虽然他好像想做搞笑效果但是我只觉得他是想PUA我
 
+
+
+*****
+
+####  poor  
+##### 17170#       发表于 2022-11-6 21:21
+
+好久没打，现在刷45箱打100大概要多少肉
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
