@@ -82,3 +82,14 @@
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  poor  
+##### 17173#       发表于 2022-11-7 01:42
+
+感觉不太对，手算了下发现好像刷多了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">收工收工
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
