@@ -519,3 +519,28 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  白軍浪  
+##### 1547#       发表于 2022-11-6 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58296419&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-6 11:51</a>
+
+魔杖除了雷帐竞技场逃课其他有实际作用么
+
+感觉哪个都不好用</blockquote>
+技能盘里有一个武器兴风者，可以学嘉隆技魔法师，配上风加速就好用了
+
+*****
+
+####  xifeilu  
+##### 1548#       发表于 2022-11-6 14:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刮只天平，第一个BOSS没啥机制但楞是重复劳动差不多有接近半小时在重复劳动给BOSS刮痧，打得我人都麻了，就当我生无可恋磕完最后一个枸杞想着在不过今天就不玩了的时候终于过了
+
+然后都快被我麻木忘记的剧情这个时候狠狠给我来了一记，那个感觉真是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+以后考虑打BOSS换难度了，过分刮实在有点影响过游戏的欲望
+
