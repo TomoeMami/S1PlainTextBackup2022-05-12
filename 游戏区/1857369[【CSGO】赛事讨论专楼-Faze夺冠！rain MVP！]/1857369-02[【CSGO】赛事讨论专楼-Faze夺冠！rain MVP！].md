@@ -811,3 +811,26 @@ c9上来连打两个我是没想到的，faze上来连输两把我也是没想�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小蜜蜂NAVI一齐1-2
 
+
+
+*****
+
+####  ispep  
+##### 2721#       发表于 2022-11-6 23:28
+
+开局两把就抽象起来了，这传奇赛怎么这么抽象啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  朔方原的星  
+##### 2722#         楼主| 发表于 2022-11-6 23:30
+
+真就大家齐聚1-2吧都<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到重演克拉托夫
+
+*****
+
+####  曼陀罗肥  
+##### 2723#       发表于 2022-11-6 23:31
+
+这次major真顶级了
+
