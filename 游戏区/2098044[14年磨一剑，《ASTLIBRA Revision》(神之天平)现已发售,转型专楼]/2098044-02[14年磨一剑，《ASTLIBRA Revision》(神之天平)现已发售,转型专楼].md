@@ -760,3 +760,42 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 怀疑前三章至少打了我5-6个小时，这游戏开荒确实容易把新玩家劝退，后期完全就是 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">兄弟，你这绝壁开挂了，不要不承认。
 
+
+
+*****
+
+####  Quelaan  
+##### 1568#       发表于 2022-11-6 18:43
+
+这个投箭的手感实在是...后面有什么道具能救一下吗
+
+*****
+
+####  A1LI  
+##### 1569#       发表于 2022-11-6 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58304254&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-6 18:43</a>
+
+这个投箭的手感实在是...后面有什么道具能救一下吗</blockquote>
+后面弓和弩都有。
+
+*****
+
+####  AeonsTorn  
+##### 1570#       发表于 2022-11-6 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58304254&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-6 18:43</a>
+
+这个投箭的手感实在是...后面有什么道具能救一下吗</blockquote>
+第三章的竞技场第一关给弩，直线射击
+
+*****
+
+####  御坂MKII  
+##### 1571#       发表于 2022-11-6 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58302787&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-6 17:24</a>
+
+重制版版十个，之前的楼里面位置说的很清楚了，9个的是免费版</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">已经进新章了
+

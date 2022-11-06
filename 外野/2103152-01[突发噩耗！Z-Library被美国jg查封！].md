@@ -2340,3 +2340,12 @@ Youtube第三方前端invidious没有Youtube肮脏的"个性化"推荐机制,推
 
 做个记号~希望快点恢复
 
+
+
+*****
+
+####  OrianaThomson  
+##### 254#       发表于 2022-11-6 18:47
+
+礼求问你们注册用的邮箱是哪家的 现在收不到验证邮件<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
