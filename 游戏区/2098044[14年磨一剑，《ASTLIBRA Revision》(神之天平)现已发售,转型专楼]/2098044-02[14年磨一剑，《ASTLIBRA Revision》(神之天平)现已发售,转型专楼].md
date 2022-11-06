@@ -1179,3 +1179,28 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 这装备盘对装备的强化是怎么算的？纯随机么？我一把哥布林锤子拿了一个盘攻击力上1800了，杀神剑3个盘才1300多，道具背景颜色还是紫红的看起来就贼高级那种。然后拿了个箱子把中间的盘换了之后攻击力降到1230了，背景也绿了……问题是俩盘子看起来背景是一样的阿，技能也没变低级。
 
+
+
+*****
+
+####  pf67  
+##### 1605#       发表于 2022-11-6 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58309308&amp;ptid=2098044" target="_blank">darksunshine 发表于 2022-11-6 22:40</a>
+这装备盘对装备的强化是怎么算的？纯随机么？我一把哥布林锤子拿了一个盘攻击力上1800了，杀神剑3个盘才130 ...</blockquote>
+挥动慢的攻击高
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  tsubaki  
+##### 1606#       发表于 2022-11-6 22:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58309124&amp;ptid=2098044" target="_blank">Farlight 发表于 2022-11-6 22:32</a>
+
+第三章的屠龙剑圣乔治的材料，除了银锭另外两个要怎么获得？</blockquote>
+牛奶 +小麦粉 =泡芙 （第一个）
+
+路上碰到黑魔女一次的长图，之后去会刷新一个魔像怪（前面会有一头石化龙），掉的魔像碎片
+

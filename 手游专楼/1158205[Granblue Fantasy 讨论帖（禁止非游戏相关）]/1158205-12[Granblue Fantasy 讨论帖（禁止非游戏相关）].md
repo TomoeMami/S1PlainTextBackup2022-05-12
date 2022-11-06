@@ -68,3 +68,17 @@
 不对，还得刷两天95，那就一半95一半100吧</blockquote>
 现在没2天95了。第二天150 第三 四天开200.  我现在第一天基本赢得时候基本不打了。只FA后三天
 
+
+
+*****
+
+####  poor  
+##### 17172#       发表于 2022-11-6 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58309011&amp;ptid=1158205" target="_blank">areklose 发表于 2022-11-6 22:26</a>
+现在没2天95了。第二天150 第三 四天开200.  我现在第一天基本赢得时候基本不打了。只FA后三天 ...</blockquote>
+一人团没有150打的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+那么到底要多少肉<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">看了下计算器算一次3肉，现在肯定不止了吧
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
