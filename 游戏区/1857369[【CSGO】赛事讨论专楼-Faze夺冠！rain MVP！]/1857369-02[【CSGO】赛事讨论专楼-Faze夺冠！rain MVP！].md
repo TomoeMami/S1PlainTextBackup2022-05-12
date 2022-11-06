@@ -744,3 +744,14 @@ C9和蜜蜂挑战者组发挥太差布分在传奇组是垫底，Faze和Navi是�
 
 薯薯打faze重拳出击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这回往下赛程好打不少了
 
+
+
+*****
+
+####  rrtyui  
+##### 2714#       发表于 2022-11-6 09:45
+
+c9的op这进攻是真的丑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">每局直接拖到还剩40秒一看地图控制一点没有纯报团原地架枪还少人
+
+不过阿乐起来了啊，原友这个腱鞘炎复健也有点牛逼，我一直以为腱鞘炎对于职业选手相当于判死刑的来着
+
