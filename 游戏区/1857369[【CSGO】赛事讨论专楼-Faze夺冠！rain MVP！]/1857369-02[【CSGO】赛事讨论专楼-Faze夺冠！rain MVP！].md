@@ -755,3 +755,15 @@ c9的op这进攻是真的丑<img src="https://static.saraba1st.com/image/smiley/
 
 不过阿乐起来了啊，原友这个腱鞘炎复健也有点牛逼，我一直以为腱鞘炎对于职业选手相当于判死刑的来着
 
+
+
+*****
+
+####  andychen  
+##### 2715#       发表于 2022-11-6 13:14
+
+C9最后一轮对heroric，以前红星时代打他们输多胜少，不过现在士气正旺，打得又是bo3，感觉有点机会直接晋级了
+蜜蜂navi和faze这轮都是打弱队，不过蜜蜂赢了下轮又要撞c9和heroric的败者了
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

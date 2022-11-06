@@ -463,3 +463,12 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 原来村正精通后的光波是魔法，这刀物魔双修了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AeonsTorn  
+##### 1541#       发表于 2022-11-6 13:20
+
+村正给的时间点也太晚了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没心机刷装备盘了，还是老样子上杀神剑了
+
