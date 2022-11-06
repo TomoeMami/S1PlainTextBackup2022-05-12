@@ -785,3 +785,13 @@ C9最后一轮对heroric，以前红星时代打他们输多胜少，不过现�
 
 我的0-3和3-0都死了，下面7个有两位已经0-2，以后还是抄作业吧，我承认我不懂csgo<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ispep  
+##### 2718#       发表于 2022-11-6 14:55
+
+c9上来连打两个我是没想到的，faze上来连输两把我也是没想到的
+想看faze和nip都0-3大家一起死的剧本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
