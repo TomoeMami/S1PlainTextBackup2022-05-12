@@ -1745,3 +1745,21 @@ Nagi这反应我感觉都是算计好的<img src="https://static.saraba1st.com/i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 9136#       发表于 2022-11-6 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看唠嗑之余说个小笑话，是真有人知道うにゃ是可all然后画了几张可香不翻嵌了，没想到逸先帝那句真当自己大小姐2202还能发挥余热。
+
+*****
+
+####  ruffian  
+##### 9137#       发表于 2022-11-6 20:40
+
+这种也还能理解吧，同人里确实有人特别在意这个。但是うにゃ不是早就画过可香可千可恋了吗？最近还多了可夏，破防的有点晚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

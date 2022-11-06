@@ -907,3 +907,49 @@ B站那个攻略标的图 我怎么找不到那个地方  ...</blockquote>
 
 嘉隆这三个技能是从哪整的，还有光剑看攻击力挺低啊，有什么说法吗
 
+
+
+*****
+
+####  lilod  
+##### 1579#       发表于 2022-11-6 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58305383&amp;ptid=2098044" target="_blank">dookiee 发表于 2022-11-06 19:38:51</a>
+v2.5.4</blockquote>我玩到现在感觉天平就是小而美的2d冗长演出（也不差啦
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cym887  
+##### 1580#       发表于 2022-11-6 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第一章的蓝色宝珠在哪啊 卡关了 一搜攻略 要用蓝宝珠替换红宝珠 可是根本地图跑了个遍也没看到蓝宝珠
+
+*****
+
+####  電子器官依存  
+##### 1581#       发表于 2022-11-6 20:39
+
+拿了棒棒糖之后用大锤打破防也太爽了，舍不得推进度了，明天再爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  何处分可  
+##### 1582#       发表于 2022-11-6 20:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58306663&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-6 20:38</a>
+
+第一章的蓝色宝珠在哪啊 卡关了 一搜攻略 要用蓝宝珠替换红宝珠 可是根本地图跑了个遍也没看到蓝宝 ...</blockquote>
+回天平村路过小水池的时候他会自己掉下来就变蓝了，一开始我还以为是扔到水里还跑到湖边，结果只能在村里的水池那里触发
+
+*****
+
+####  tsubaki  
+##### 1583#       发表于 2022-11-6 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58306663&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-6 20:38</a>
+
+第一章的蓝色宝珠在哪啊 卡关了 一搜攻略 要用蓝宝珠替换红宝珠 可是根本地图跑了个遍也没看到蓝宝 ...</blockquote>
+BOSS房门口左下有个蓝球，拿走去换另外边的红球
+
