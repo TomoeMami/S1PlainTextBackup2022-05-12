@@ -9654,3 +9654,15 @@ psv
 
 好像这次繁简翻译还不一样，简体用奎托斯了
 
+
+
+*****
+
+####  cys_pitaten  
+##### 1003#       发表于 2022-11-6 15:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58268895&amp;ptid=2025548" target="_blank">lilod 发表于 2022-11-4 11:55</a>
+
+听机核的电台，应该是新战神1代有的那些问题，2代也有，1代好的地方，2代加倍 ...</blockquote>
+希望换皮这个别延续到诸神黄昏，其他倒是无所谓
+
