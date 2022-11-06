@@ -3697,3 +3697,15 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 豆瓣说不喜欢这片的都是来达姨姥，而喜欢这片的姨姥又说因为你不是姨姥所以才不喜欢这片，这种割裂就很黑日了。
 
+
+
+*****
+
+####  leitingkai  
+##### 337#       发表于 2022-11-6 12:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58295584&amp;ptid=2075178" target="_blank">roxas.sora 发表于 2022-11-6 10:51</a>
+而且剑圣演员的身材比较魁梧，这皮套设计不好，看起来很臃肿，再搞个露脸的头盔就没啥威严感和压 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实太滑稽了
+感觉像看yyut玩cosplay
+
