@@ -128,3 +128,17 @@ gpd虽然营销low但是也是国内最早做win掌机的厂家吧，我当年�
 这次双十一各个pc掌机厂商的声势很小啊，是拿不到6800h芯片不能大批量出货吗？ ...</blockquote>
 深圳那边受影响了吧
 
+
+
+*****
+
+####  crosz1985  
+##### 488#       发表于 2022-11-6 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58277818&amp;ptid=2086469" target="_blank">cc-2 发表于 2022-11-4 21:18</a>
+
+貌似onexplayer mini pro也出货了
+
+找了下没有拆机之类比较深度的评测，基本都是软广</blockquote>
+B站搜第一个就是翻车视频
+
