@@ -1834,3 +1834,27 @@ Nagi这反应我感觉都是算计好的<img src="https://static.saraba1st.com/i
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 9146#       发表于 2022-11-6 21:33
+
+<img src="https://img.saraba1st.com/forum/202211/06/213316z7bd56uzz022cl0x.jpg" referrerpolicy="no-referrer">
+
+<strong>20221106_212524.jpg</strong> (281.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-6 21:33 上传
+
+*****
+
+####  ruffian  
+##### 9147#       发表于 2022-11-6 21:38
+
+所以鱼说的（今天晚上）的liella节目其实是中午那个昭和翻唱吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
