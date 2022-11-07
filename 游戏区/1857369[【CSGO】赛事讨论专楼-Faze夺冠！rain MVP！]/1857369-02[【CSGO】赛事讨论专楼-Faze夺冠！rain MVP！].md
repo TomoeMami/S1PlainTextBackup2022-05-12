@@ -1011,3 +1011,12 @@ g2没进32强，然后16强小蜜蜂navi1-2，faze直接回家
 
 这次C9要是再拿major冠军，可是要素拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六道仙鱼  
+##### 2745#       发表于 2022-11-7 08:36
+
+c9这全员数据都拉满了，不会真要打我脸吧。不行，我还是不看好c9。这队会软的。
+

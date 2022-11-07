@@ -697,3 +697,12 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 抽友情太痛苦了。。。
 
+
+
+*****
+
+####  體育老師  
+##### 43703#       发表于 2022-11-7 08:32
+
+什么？原来只有我小安1宝么？还是上次抽哈贝喵的时候NEW的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
