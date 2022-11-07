@@ -135,3 +135,25 @@
 算 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是找个团得。反正我是找了一个不用打早团，本战不拉闸。随便FA得团
 
+
+
+*****
+
+####  poor  
+##### 17178#       发表于 2022-11-7 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58314047&amp;ptid=1158205" target="_blank">areklose 发表于 2022-11-7 09:53</a>
+还是找个团得。反正我是找了一个不用打早团，本战不拉闸。随便FA得团 ...</blockquote>
+算了算了，什么时候又A了都不好说，搞不好进去以后下次团就跑路了那多尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，我还是喜欢自己玩自己的自由点
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  poor  
+##### 17179#       发表于 2022-11-7 10:17
+
+贝法烧贝老头姐姐狐超限一个没有，试了下差十万八千里，想了想还是用上次的5键FA平A算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

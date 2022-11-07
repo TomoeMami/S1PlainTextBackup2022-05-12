@@ -1433,3 +1433,15 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 另外问一下有没有什么爽快的近战路？现在我杀怪也快，怪打我一下也挺疼的
 
+
+
+*****
+
+####  Ravio  
+##### 1629#       发表于 2022-11-7 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58314106&amp;ptid=2098044" target="_blank">darksunshine 发表于 2022-11-7 09:56</a>
+
+3个盘是要切换的，只能生效一个么……</blockquote>
+说的是上下的属性2选1，3个盘是加算
+

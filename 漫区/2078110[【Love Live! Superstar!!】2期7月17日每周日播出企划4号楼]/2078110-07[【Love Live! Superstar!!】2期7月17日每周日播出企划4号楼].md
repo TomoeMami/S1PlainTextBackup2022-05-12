@@ -1906,3 +1906,16 @@ don't 表情包， thank you！
 
 笑炸了
 
+
+
+*****
+
+####  ads147147  
+##### 9151#       发表于 2022-11-7 10:21
+
+想起菜宝吐槽自己被做成表情包。
+
+这是代代拉拉的传统w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
