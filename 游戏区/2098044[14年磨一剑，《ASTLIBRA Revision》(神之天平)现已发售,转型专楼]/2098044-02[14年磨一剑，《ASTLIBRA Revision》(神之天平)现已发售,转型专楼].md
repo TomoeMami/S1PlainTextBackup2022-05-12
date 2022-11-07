@@ -1879,3 +1879,21 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 对了，新章里面魔女馆的箱子怎么拿啊，从画里面也过不去，还是说那个门要后面什么道具才能开？ ...</blockquote>
 地牢钥匙
 
+
+
+*****
+
+####  yongze  
+##### 1668#       发表于 2022-11-7 14:30
+
+看到楼里有人说竞技场骷髅会长可以挑战拿爱情？我现在停在第8章结局前打完了所有杯赛但是没见到有新的挑战更新了
+
+*****
+
+####  otakun  
+##### 1669#       发表于 2022-11-7 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58318787&amp;ptid=2098044" target="_blank">yongze 发表于 2022-11-7 14:30</a>
+看到楼里有人说竞技场骷髅会长可以挑战拿爱情？我现在停在第8章结局前打完了所有杯赛但是没见到有新的挑战 ...</blockquote>
+新章还有得打
+
