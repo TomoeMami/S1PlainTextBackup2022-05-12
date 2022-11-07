@@ -1603,3 +1603,24 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  zhangzlo  
+##### 1645#       发表于 2022-11-7 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58315783&amp;ptid=2098044" target="_blank">Kaornao 发表于 2022-11-7 11:27</a>
+
+爱情只影响你能不能救青梅竹马，和武器道具全搜集，完美结局和普通结局的区别只是青梅竹马活不活还有要不 ...</blockquote>
+能剧透一下吗？
+
+可以反白剧透 
+
+*****
+
+####  crosz1985  
+##### 1646#       发表于 2022-11-7 11:41
+
+会出switch版吗
+
