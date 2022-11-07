@@ -1729,3 +1729,17 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 没事的，爱情后面新章开的迷宫可以刷，箱子里会出，而且ce也可以改，前面的章节打到后面你就会发现都是时 ...</blockquote>
 中
 
+
+
+*****
+
+####  jy000129  
+##### 1655#       发表于 2022-11-7 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58316702&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-7 12:22</a>
+
+昨晚又打到1点多，破防了，不是说这剧情破防，是这破引导逼得我决定冒剧透风险查资料的破防
+
+第2章 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记住，嘉隆老师说的话99%都要听，除了一句话
+
