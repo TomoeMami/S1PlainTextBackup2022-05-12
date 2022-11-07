@@ -2337,3 +2337,17 @@ yia ki sw可以多用弓弩白嫖
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JoelBirch  
+##### 1712#       发表于 2022-11-7 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325827&amp;ptid=2098044" target="_blank">mlfans 发表于 2022-11-7 21:56</a>
+
+我建议还是放宽心继续打，打到最后什么都不会错过。
+
+少的特殊道具也可以在最后一章刷出来. ...</blockquote>
+缓了缓，该打还是要打的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -14535,3 +14535,41 @@ mio在MTG期间不到半小时把曲子作出来了
 
 无话可说
 
+
+
+*****
+
+####  ZQXY2002  
+##### 2889#       发表于 2022-11-7 22:34
+
+没有在mc放个烟花啥的缺点仪式感。估计是忘了没精力造烟花了。
+
+*****
+
+####  holoan  
+##### 2890#         楼主| 发表于 2022-11-7 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326126&amp;ptid=2086637" target="_blank">zzp05402 发表于 2022-11-7 22:17</a>
+
+明年多几个人搞吧，不然太累了，运营也帮帮忙好了</blockquote>
+今年运营已经在帮了啊，剩下的事情不能再帮了，要不就变成运营主导企划了，关于这个话题昨晚miko也提到了
+
+*****
+
+####  holoan  
+##### 2891#         楼主| 发表于 2022-11-7 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326316&amp;ptid=2086637" target="_blank">ZQXY2002 发表于 2022-11-7 22:34</a>
+
+没有在mc放个烟花啥的缺点仪式感。估计是忘了没精力造烟花了。</blockquote>
+开催前几天miko自己有说想做烟花末尾放，把时间调整到夜晚然后放烟花，不知道是忘了还是和运营商量之后决定不做
+
+*****
+
+####  holoan  
+##### 2892#         楼主| 发表于 2022-11-7 22:40
+
+今年都做到这份上了看来明年很难不继续做了
+
+感觉真可怜这两人
+

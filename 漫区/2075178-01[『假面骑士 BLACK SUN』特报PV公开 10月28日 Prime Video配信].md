@@ -3977,3 +3977,34 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 但黑日这批怪人可以被多名警员按着反抗不能，体能有没常人多倍都是问题，最多也是下位黑衣战斗员级数，没有镰刀或飞行能力就是废
 
+
+
+*****
+
+####  gpx234mqx  
+##### 360#       发表于 2022-11-7 22:33
+
+ 本帖最后由 gpx234mqx 于 2022-11-7 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325613&amp;ptid=2075178" target="_blank">eilot 发表于 2022-11-7 21:42</a>
+
+黑日的怪人如果能点出手中镰刀，本身善战的话变成怪人应该还能砍杀不少修卡的支支兵
+
+但问题在于支支兵如 ...</blockquote>
+修卡普通战斗员，身体性能是普通人三倍，还能自爆
+
+我看战斗员比黑日这群废材怪人强多了，不会出现被人类制服的丢脸场景
+
+
+
+*****
+
+####  gpx234mqx  
+##### 361#       发表于 2022-11-7 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325731&amp;ptid=2075178" target="_blank">roxas.sora 发表于 2022-11-7 21:49</a>
+
+粽子点出了污染传染能力，怪人这爆兵速度必须做手术，修卡的战斗员也是要做手术xinao的吧 ...</blockquote>
+肉体强化加脑改造，简化版1号手术而已
+
+快的很，修卡的科学力还是可信的
+
