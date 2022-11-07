@@ -14400,3 +14400,19 @@ korone已经被某公司绑死了，运动会都参加不了不用说做其他�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不开mc专心尬聊啊。
 
+
+
+*****
+
+####  holoan  
+##### 2875#         楼主| 发表于 2022-11-7 21:31
+
+不知道为什么今年不开会场
+
+*****
+
+####  holoan  
+##### 2876#         楼主| 发表于 2022-11-7 21:37
+
+圣诞树，运营组真的不知道是鲸鱼搞得吗
+

@@ -1534,3 +1534,12 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 听到龙门那句森帕森头，勾起了一些不好的回忆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  athena_1982  
+##### 742#       发表于 2022-11-7 21:39
+
+有个地方没看懂，哥美斯好像没有远程技能吧，哈乃次郎的猎鹰号援助攻击的好好的怎么忽然就坠毁了？
+

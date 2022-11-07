@@ -3923,3 +3923,12 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 新女主就算给了腰带，但只是装饰品来，还以为能进化，是已经用光了成本吗
 
+
+
+*****
+
+####  roxas.sora  
+##### 356#       发表于 2022-11-7 21:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">能稳定产出粽子级别的杂鱼，高级单位能力夸张一点才有作为兵器的价值吧，就黑日的怪人也就只能给粽子当口粮，打不打得过the系列的修卡都不知道........
+
