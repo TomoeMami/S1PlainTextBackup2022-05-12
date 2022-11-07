@@ -2044,3 +2044,24 @@ yia ki sw可以多用弓弩白嫖
 
 第8章反而缺钱了 除了矿石是不是以前章节的素材也没用了
 
+
+
+*****
+
+####  A1LI  
+##### 1685#       发表于 2022-11-7 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58322728&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-7 18:11</a>
+
+第8章反而缺钱了 除了矿石是不是以前章节的素材也没用了</blockquote>
+那些红宝石蓝宝石钻石就是拿来卖的，第8章钻石很值钱，多开采一些。
+
+*****
+
+####  Sannapolis  
+##### 1686#       发表于 2022-11-7 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58322728&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-7 18:11</a>
+第8章反而缺钱了 除了矿石是不是以前章节的素材也没用了</blockquote>
+怪物素材可以在新章强化武器
+
