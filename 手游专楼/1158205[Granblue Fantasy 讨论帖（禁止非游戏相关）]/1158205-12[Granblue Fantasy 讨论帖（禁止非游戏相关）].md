@@ -102,3 +102,21 @@
 
 现在有金牛，肉好刷多了
 
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17175#       发表于 2022-11-7 08:02
+
+有无敌的风老头 风算是比较好刷牛的属性了
+
+*****
+
+####  鵺白  
+##### 17176#       发表于 2022-11-7 08:05
+
+没风天司，没烧贝，奥义追伤的几位一个都没，抠了半天盘子都差2%，最后换了个cb法才成了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">从未想过哪个属性打牛这么困难
+
+—— 来自 vivo V2024A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

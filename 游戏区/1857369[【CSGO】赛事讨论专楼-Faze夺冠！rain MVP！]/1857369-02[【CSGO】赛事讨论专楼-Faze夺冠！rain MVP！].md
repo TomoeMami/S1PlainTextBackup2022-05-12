@@ -977,3 +977,19 @@ g2没进32强，然后16强小蜜蜂navi1-2，faze直接回家
 
 米人打老东家能不能硬起来
 
+
+
+*****
+
+####  ml1642879  
+##### 2741#       发表于 2022-11-7 08:10
+
+我的作业竟然还有一线生机，只要fnc能赢big，以及选的其他队能赢回来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ispep  
+##### 2742#       发表于 2022-11-7 08:12
+
+接下来想看的剧本：bne淘汰navi，ence淘汰vitality<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
