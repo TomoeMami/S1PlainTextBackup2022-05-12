@@ -2082,3 +2082,12 @@ don't 表情包， thank you！
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9164#       发表于 2022-11-7 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
