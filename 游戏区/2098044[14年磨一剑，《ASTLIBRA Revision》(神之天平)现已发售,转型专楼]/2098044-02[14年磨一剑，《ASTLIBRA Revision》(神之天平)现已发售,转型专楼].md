@@ -1708,3 +1708,24 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 
 但是动作部分最多只能给7分，地形简单（场景卡死在一个高度页面里，造成平台数量少，没有办法做出复杂地形，画条路都画不清楚），敌人又多又肉，搭配难度简直手按得酸爽，学会用连发后又快速进入倦怠期，BOSS设计得花哨有余，动作趣味很少，可回避利用的地形少，就是刮痧然后躲角落嗑药然后继续回来刮痧，直接造成这次破防<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kaornao  
+##### 1653#       发表于 2022-11-7 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58316624&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-7 12:18</a>
+
+得 我没用嘴喂。而且我还真以为乌鸦就是青梅竹马了。</blockquote>
+没事的，爱情后面新章开的迷宫可以刷，箱子里会出，而且ce也可以改，前面的章节打到后面你就会发现都是时间的的尘埃罢了
+
+*****
+
+####  zhangzlo  
+##### 1654#       发表于 2022-11-7 12:28
+
+<blockquote>Kaornao 发表于 2022-11-7 12:26
+没事的，爱情后面新章开的迷宫可以刷，箱子里会出，而且ce也可以改，前面的章节打到后面你就会发现都是时 ...</blockquote>
+中
+
