@@ -51,3 +51,24 @@
 
 查看全部评分
 
+
+
+*****
+
+####  zris  
+##### 1908#       发表于 2022-11-7 18:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58319760&amp;ptid=2015700" target="_blank">asd235614 发表于 2022-11-7 15:25</a>
+
+准备在京东自营店上入一个，之前没操作过更换硬件，想问一下换硬盘的话有啥注意事项么，还一个就是 ...</blockquote>
+拔电池，但是现在电池有点恶心，难拔，注意别把电容给搞飞了就行
+
+*****
+
+####  zris  
+##### 1909#       发表于 2022-11-7 18:39
+
+顺便说一句，有不会的可以加群，群里多是大佬研究透了，不懂直接群里发问，马上解决<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+steam dick 交友群：498166847
+
