@@ -993,3 +993,12 @@ g2没进32强，然后16强小蜜蜂navi1-2，faze直接回家
 
 接下来想看的剧本：bne淘汰navi，ence淘汰vitality<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六道仙鱼  
+##### 2743#       发表于 2022-11-7 08:16
+
+一觉醒来，赛况这么有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
