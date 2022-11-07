@@ -1515,3 +1515,23 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 游戏内时间快59小时全成就了，今天晚上开始打外传
 
+
+
+*****
+
+####  adw667  
+##### 1637#       发表于 2022-11-7 10:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">发现强化武器不如强化宝石，这样只要刷一个带孔的装备盘就可以灵活转换强化效果，说起来有谁打算刷全装备盘吗
+
+*****
+
+####  redsouris  
+##### 1638#       发表于 2022-11-7 10:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58314336&amp;ptid=2098044" target="_blank">阿库鲁艾特 发表于 2022-11-7 10:09</a>
+现在已经打完雪山了，感觉要打二周目？</blockquote>
+少了一些剧情，但是后面不会有影响，新章某种意义上就是“二周目”
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
