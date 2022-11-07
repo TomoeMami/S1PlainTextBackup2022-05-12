@@ -120,3 +120,18 @@
 
 —— 来自 vivo V2024A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  areklose  
+##### 17177#       发表于 2022-11-7 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58309475&amp;ptid=1158205" target="_blank">poor 发表于 2022-11-6 22:49</a>
+
+一人团没有150打的
+那么到底要多少肉看了下计算器算一次3肉，现在肯定不止了吧
+
+算 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是找个团得。反正我是找了一个不用打早团，本战不拉闸。随便FA得团
+

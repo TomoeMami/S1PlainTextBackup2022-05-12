@@ -1369,3 +1369,17 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 问一下魔王城白被魔王掐死了有回避方法吗？</blockquote>
 有，进魔王城的时候不要带白，然后和盖乌会合后去入口找回白带去打boss
 
+
+
+*****
+
+####  darksunshine  
+##### 1622#       发表于 2022-11-7 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58311021&amp;ptid=2098044" target="_blank">Ravio 发表于 2022-11-7 00:34</a>
+
+打击武器普遍比同级突刺武器面板高攻击速度低
+
+盘都是有属性的，3*4个2选1，在装备那里按Y自己切换。好武器 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">3个盘是要切换的，只能生效一个么……
+
