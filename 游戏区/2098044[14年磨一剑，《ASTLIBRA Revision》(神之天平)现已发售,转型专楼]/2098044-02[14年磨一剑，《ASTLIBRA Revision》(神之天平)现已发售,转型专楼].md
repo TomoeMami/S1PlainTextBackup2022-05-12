@@ -2279,3 +2279,26 @@ yia ki sw可以多用弓弩白嫖
 
 通关！还差几个成就没做，但一时间也没啥动力了。可以说是非常优秀的作品了，很难想象是一个人完成的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mlfans  
+##### 1707#       发表于 2022-11-7 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58324437&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-7 20:10</a>
+想起来了，这游戏一股手冢治虫的火鸟味儿。</blockquote>
+还有风之谷
+
+*****
+
+####  mlfans  
+##### 1708#       发表于 2022-11-7 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58324750&amp;ptid=2098044" target="_blank">JoelBirch 发表于 2022-11-7 20:34</a>
+昨天没刹住闸几乎搞了个通宵，从第三章一路刷到第七章，爽死了；
+
+想看看大伙什么评价以及评估下流程还有多 ...</blockquote>
+我建议还是放宽心继续打，打到最后什么都不会错过。
+少的特殊道具也可以在最后一章刷出来.
+
