@@ -1990,3 +1990,36 @@ yia ki sw可以多用弓弩白嫖
 
 顺便铁娘子4个BOSS跟梦神几个形态最早都外传里的
 
+
+
+*****
+
+####  yongze  
+##### 1680#       发表于 2022-11-7 16:02
+
+面包房妹子长啥样谁玩了的贴个图看看，我看镇民都说是国色天香前凸后翘
+
+
+
+*****
+
+####  zhangzlo  
+##### 1681#       发表于 2022-11-7 16:03
+
+别的不说。
+
+今年游戏，我一口气废寝忘食的就是老头环和神之天平这两个JRPG。
+
+真尼玛太好了。
+
+*****
+
+####  redsouris  
+##### 1682#       发表于 2022-11-7 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58320417&amp;ptid=2098044" target="_blank">yongze 发表于 2022-11-7 16:02</a>
+面包房妹子长啥样谁玩了的贴个图看看，我看镇民都说是国色天香前凸后翘</blockquote>
+外传免费的自己下个去看呗
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
