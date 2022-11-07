@@ -1020,3 +1020,19 @@ g2没进32强，然后16强小蜜蜂navi1-2，faze直接回家
 
 c9这全员数据都拉满了，不会真要打我脸吧。不行，我还是不看好c9。这队会软的。
 
+
+
+*****
+
+####  朔方原的星  
+##### 2746#         楼主| 发表于 2022-11-7 08:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在就希望强队都快死，谁也别想拿钻石币！
+
+*****
+
+####  迈达斯之手  
+##### 2747#       发表于 2022-11-7 08:50
+
+这下作业全烂了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
