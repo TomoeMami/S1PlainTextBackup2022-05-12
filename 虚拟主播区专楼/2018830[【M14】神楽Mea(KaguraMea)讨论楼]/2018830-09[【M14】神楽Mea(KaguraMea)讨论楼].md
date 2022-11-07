@@ -9062,3 +9062,14 @@ Jia you a xiao ma
 
 爆杀社畜
 
+
+
+*****
+
+####  pei23333  
+##### 12859#       发表于 2022-11-7 11:28
+
+开始lol坐牢
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -1578,3 +1578,28 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 外传是什么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kaornao  
+##### 1643#       发表于 2022-11-7 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58315586&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-7 11:17</a>
+我只要小黑以及女主（乌鸦）的话呢？</blockquote>
+爱情只影响你能不能救青梅竹马，和武器道具全搜集，完美结局和普通结局的区别只是青梅竹马活不活还有要不要打不打最后一个boss，小黑和乌鸦我就不多剧透了，只能说乌鸦才是真女♂主！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kaornao  
+##### 1644#       发表于 2022-11-7 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58315677&amp;ptid=2098044" target="_blank">何处分可 发表于 2022-11-7 11:21</a>
+外传是什么</blockquote>
+https://freegame-mugen.jp/action/game_4223.html#reviewVote
+贴一下前面漏油发的链接
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
