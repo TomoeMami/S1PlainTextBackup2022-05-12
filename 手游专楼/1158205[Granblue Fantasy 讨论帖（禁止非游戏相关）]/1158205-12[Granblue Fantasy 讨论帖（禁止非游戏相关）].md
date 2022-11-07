@@ -193,3 +193,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次boss技能和db给我一种不好的预感
 
+
+
+*****
+
+####  nthrt  
+##### 17184#       发表于 2022-11-8 02:28
+
+风团前把所有素材都用来做隐者了，结果万圣池子井了风巫妖说皇帝才是best match<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

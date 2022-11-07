@@ -101,3 +101,14 @@ steam dick 交友群：498166847
 
 中环显示等待清关已经一周多了，这还要清多久
 
+
+
+*****
+
+####  sunnyjee  
+##### 1913#       发表于 2022-11-8 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326928&amp;ptid=2015700" target="_blank">akane3000 发表于 2022-11-7 23:22</a>
+ 中环显示等待清关已经一周多了，这还要清多久</blockquote>
+一般要2周
+

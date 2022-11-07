@@ -9781,3 +9781,22 @@ ps4玩会怎么样，会不会帧数特别低画质不行</blockquote>
 目前来看日版美版都有中文</blockquote>
 那不错，日版便宜多了
 
+
+
+*****
+
+####  namelessashen  
+##### 1015#       发表于 2022-11-8 02:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58319341&amp;ptid=2025548" target="_blank">kuker53 发表于 2022-11-7 15:02</a>
+
+1080P 30帧，PRO有45~50帧</blockquote>
+谢了，那还勉强能玩一玩，体验一下
+
+*****
+
+####  风景很好  
+##### 1016#       发表于 2022-11-8 05:34
+
+儿子配音怎么怪怪？
+

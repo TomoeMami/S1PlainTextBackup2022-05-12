@@ -4033,3 +4033,12 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 快的很，修卡的科学力还是可信的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我看不出那些战斗员和怪人比强在哪...........都挺拉的
 
+
+
+*****
+
+####  haruhiismer  
+##### 364#       发表于 2022-11-8 04:48
+
+差评合理吧，一上来啥前期提要没有，但是也没有铺垫讲故事的能力看的贼懵
+

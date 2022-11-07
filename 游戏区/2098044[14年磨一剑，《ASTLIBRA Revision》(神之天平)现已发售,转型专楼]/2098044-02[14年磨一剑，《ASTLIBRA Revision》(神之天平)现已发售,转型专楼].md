@@ -2448,3 +2448,14 @@ yia ki sw可以多用弓弩白嫖
 
 第5章最后把白带进魔王boss战对剧情有影响吗？？ （就是打了那个 M 字 boss
 
+
+
+*****
+
+####  御坂MKII  
+##### 1722#       发表于 2022-11-8 03:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">新章没地方卖回2000血的药了吗
+
+家里商店最高是+900，野外店直接+4000<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
