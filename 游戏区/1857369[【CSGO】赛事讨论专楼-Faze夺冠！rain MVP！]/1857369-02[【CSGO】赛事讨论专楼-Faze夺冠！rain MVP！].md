@@ -1036,3 +1036,33 @@ c9这全员数据都拉满了，不会真要打我脸吧。不行，我还是不
 
 这下作业全烂了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ispep  
+##### 2748#       发表于 2022-11-7 08:54
+
+其实漏油想过就算这轮过了淘汰赛怎么写吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ml1642879  
+##### 2749#       发表于 2022-11-7 08:58
+
+8强我赌黑豹C9决赛然后黑豹夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  反方向的波  
+##### 2750#       发表于 2022-11-7 09:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">奶一口马体
+
+*****
+
+####  rrtyui  
+##### 2751#       发表于 2022-11-7 09:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐疯了
+
