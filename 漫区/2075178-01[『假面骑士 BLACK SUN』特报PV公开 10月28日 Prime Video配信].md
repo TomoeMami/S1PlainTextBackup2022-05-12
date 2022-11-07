@@ -3856,3 +3856,33 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 片中也表示现代唯一的商业价值就是卖给福瑞控有钱人 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">因为技术没迭代，怪人战斗力比较弱，和昭和那批数据怪没得比，只能当宠物了
 
+
+
+*****
+
+####  haruhiismer  
+##### 351#       发表于 2022-11-7 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58322447&amp;ptid=2075178" target="_blank">roxas.sora 发表于 2022-11-7 17:50</a>
+因为技术没迭代，怪人战斗力比较弱，和昭和那批数据怪没得比，只能当宠物了 ...</blockquote>
+那也只适合反恐巷战，现代武器就不缺当量火力要解决其他毕竟重要
+
+*****
+
+####  roxas.sora  
+##### 352#       发表于 2022-11-7 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58322492&amp;ptid=2075178" target="_blank">haruhiismer 发表于 2022-11-7 17:53</a>
+
+那也只适合反恐巷战，现代武器就不缺当量火力要解决其他毕竟重要</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看风都侦探动画掺杂体战斗的动静，怪人如果速度力量达到这种程度，配合特殊能力还是可以的，看编剧怎么设定咯，都有念力了，范围大一点就超级aoe了，昭和创世王我记得可以摧毁天体
+
+*****
+
+####  haruhiismer  
+##### 353#       发表于 2022-11-7 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58322553&amp;ptid=2075178" target="_blank">roxas.sora 发表于 2022-11-7 17:56</a>
+看风都侦探动画掺杂体战斗的动静，怪人如果速度力量达到这种程度，配合特殊能力还是可以的，看编 ...</blockquote>
+假装不玄幻只是超人力霸王（没达到勇次郎水平）那种要是会超能力那真可以
+

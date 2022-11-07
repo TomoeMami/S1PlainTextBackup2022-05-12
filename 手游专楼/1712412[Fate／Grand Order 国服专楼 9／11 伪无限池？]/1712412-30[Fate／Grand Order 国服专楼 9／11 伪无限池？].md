@@ -706,3 +706,12 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 什么？原来只有我小安1宝么？还是上次抽哈贝喵的时候NEW的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET  
+##### 43704#       发表于 2022-11-7 17:55
+
+柱子好适合刷QB啊，刷了几下感受到了富有
+
