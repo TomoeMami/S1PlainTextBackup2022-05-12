@@ -2315,3 +2315,25 @@ yia ki sw可以多用弓弩白嫖
 
 这白毛太帅了。
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1710#       发表于 2022-11-7 22:24
+
+服装店那个衣服要变石换 变石的配方哪里来
+
+
+
+*****
+
+####  redsouris  
+##### 1711#       发表于 2022-11-7 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326203&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-7 22:24</a>
+服装店那个衣服要变石换 变石的配方哪里来</blockquote>
+25个小徽章扭蛋出炼金术书
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

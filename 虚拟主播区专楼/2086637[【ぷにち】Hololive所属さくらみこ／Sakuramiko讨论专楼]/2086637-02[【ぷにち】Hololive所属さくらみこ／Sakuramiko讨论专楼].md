@@ -14510,3 +14510,28 @@ koyo进入时机完美wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下真的变成固定企划了
 
+
+
+*****
+
+####  holoan  
+##### 2887#         楼主| 发表于 2022-11-7 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326127&amp;ptid=2086637" target="_blank">ZQXY2002 发表于 2022-11-7 22:17</a>
+
+难怪今年请了导播摄影团队，有goods回本。</blockquote>
+今年出血是历年的数十倍
+
+除了要请导播团队之外还有外借工作室的费用，这些巨额费用到底最后谁在付就
+
+*****
+
+####  holoan  
+##### 2888#         楼主| 发表于 2022-11-7 22:28
+
+草
+
+mio在MTG期间不到半小时把曲子作出来了
+
+无话可说
+
