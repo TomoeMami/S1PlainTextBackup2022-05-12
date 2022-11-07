@@ -439,3 +439,13 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 
 画面是真的万策尽了<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jerryoq1  
+##### 1992#       发表于 2022-11-7 23:59
+
+前面都还行，顶多算便宜动画，后面食堂那几张笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+怀疑是因为有翼所以后面就效率论了
+

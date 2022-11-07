@@ -2378,3 +2378,25 @@ yia ki sw可以多用弓弩白嫖
 第2章 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">连发是啥，晚上趁着老婆睡着打，狂搓手柄真遭不住。
 
+
+
+*****
+
+####  linc555  
+##### 1715#       发表于 2022-11-7 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58327175&amp;ptid=2098044" target="_blank">魔法少女大头 发表于 2022-11-7 23:43</a>
+连发是啥，晚上趁着老婆睡着打，狂搓手柄真遭不住。</blockquote>
+铜剑应该第二章就有了吧？
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rainwedell  
+##### 1716#       发表于 2022-11-7 23:58
+
+问下41级左右第7章斗技场怎么搞，难度暴涨<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

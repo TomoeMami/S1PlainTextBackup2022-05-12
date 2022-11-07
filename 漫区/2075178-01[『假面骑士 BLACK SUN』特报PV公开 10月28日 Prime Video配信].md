@@ -4019,3 +4019,17 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 看了WIKI，最早期修卡的黑衣战斗员都是靠洗XX脑XX普通人，平均才得3倍常人体能，上级红衣或骨头版就有10倍 ...</blockquote>
 早期修卡战斗员 都能被小学生打爆 战斗力先过自行车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  roxas.sora  
+##### 363#       发表于 2022-11-7 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326351&amp;ptid=2075178" target="_blank">gpx234mqx 发表于 2022-11-7 22:37</a>
+
+肉体强化加脑改造，简化版1号手术而已
+
+快的很，修卡的科学力还是可信的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我看不出那些战斗员和怪人比强在哪...........都挺拉的
+
