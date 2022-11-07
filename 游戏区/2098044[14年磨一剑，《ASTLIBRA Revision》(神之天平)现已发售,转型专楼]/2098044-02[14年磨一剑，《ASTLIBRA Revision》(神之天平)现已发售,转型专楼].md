@@ -2439,3 +2439,12 @@ yia ki sw可以多用弓弩白嫖
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  lilod  
+##### 1721#       发表于 2022-11-8 01:27
+
+第5章最后把白带进魔王boss战对剧情有影响吗？？ （就是打了那个 M 字 boss
+
