@@ -550,3 +550,17 @@ AN米娅应该这次落地了吧
 
 [https://twitter.com/Sophie_Albatou/status/1589624295617351680](https://twitter.com/Sophie_Albatou/status/1589624295617351680)
 
+
+
+*****
+
+####  Rincewind  
+##### 7446#       发表于 2022-11-8 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58323628&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2022-11-7 19:12</a>
+现在跨页BUG都要三贴往后才能看到了</blockquote>
+考虑开个二号楼吗
+反正楼主已经是立派的云玩家了，换个人开也没问题吧
+
+—— 来自 Xiaomi Redmi K30i 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
