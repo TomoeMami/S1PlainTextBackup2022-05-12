@@ -423,3 +423,19 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 看到食堂那一段实在看不下去 ...</blockquote>
 其实宣布动画化的时候我的预期是AL的每一集都是这一集水平，所以现在我觉得已经赚大了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hahaha111  
+##### 1990#       发表于 2022-11-7 14:07
+
+声优都挺卖力的，特别是男主声优，可以感觉到他真的挺珍惜这份主役的
+
+*****
+
+####  liu461  
+##### 1991#       发表于 2022-11-7 14:10
+
+画面是真的万策尽了<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
+
