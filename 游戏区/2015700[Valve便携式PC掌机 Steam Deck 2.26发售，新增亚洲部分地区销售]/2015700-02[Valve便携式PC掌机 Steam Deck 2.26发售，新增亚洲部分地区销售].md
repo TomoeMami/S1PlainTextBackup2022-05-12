@@ -81,3 +81,14 @@ steam dick 交友群：498166847
 
 京东自营那个纯杀猪价
 
+
+
+*****
+
+####  maninhole  
+##### 1911#       发表于 2022-11-7 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58323252&amp;ptid=2015700" target="_blank">Litccc 发表于 2022-11-7 18:47</a>
+京东自营那个纯杀猪价</blockquote>
+闲鱼上一般也是三千六七……
+
