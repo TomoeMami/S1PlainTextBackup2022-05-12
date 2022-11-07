@@ -1942,3 +1942,29 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 这第七章的虫虫是什么妖魔鬼怪啊，伤害好离谱。</blockquote>
 yia ki sw可以多用弓弩白嫖
 
+
+
+*****
+
+####  shangfire  
+##### 1675#       发表于 2022-11-7 15:23
+
+面包房里面的两个npc怎么才能对到话呢，莫不又是某外传的neta吧
+
+*****
+
+####  quanlix  
+##### 1676#       发表于 2022-11-7 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58319722&amp;ptid=2098044" target="_blank">shangfire 发表于 2022-11-7 15:23</a>
+
+面包房里面的两个npc怎么才能对到话呢，莫不又是某外传的neta吧</blockquote>
+面包房的几个门和那两个npc都是外传才有用的，本篇就是摆设
+
+*****
+
+####  quanlix  
+##### 1677#       发表于 2022-11-7 15:28
+
+中午摸了下外传，面包妹机体能力比男主强，后头能力拿全估计用起来比男主强不少，就是游戏要转区软件稍微麻烦点
+

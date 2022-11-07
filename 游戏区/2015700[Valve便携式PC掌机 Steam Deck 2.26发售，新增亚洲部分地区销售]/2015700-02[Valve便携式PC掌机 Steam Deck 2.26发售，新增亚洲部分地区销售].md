@@ -18,3 +18,12 @@
 
 8月底开始发货昨天才到，中环转运真闹不住
 
+
+
+*****
+
+####  asd235614  
+##### 1906#       发表于 2022-11-7 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">准备在京东自营店上入一个，之前没操作过更换硬件，想问一下换硬盘的话有啥注意事项么，还一个就是对于一些需要加速的游戏能在steamOS上使用加速器么
+
