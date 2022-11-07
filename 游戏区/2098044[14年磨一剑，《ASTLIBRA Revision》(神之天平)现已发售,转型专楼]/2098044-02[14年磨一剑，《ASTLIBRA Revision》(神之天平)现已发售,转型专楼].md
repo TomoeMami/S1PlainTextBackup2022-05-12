@@ -1906,3 +1906,19 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 
 我觉得暗黑龙鳞比较好用啊，南瓜我倒是用起来不太顺手
 
+
+
+*****
+
+####  费罗米隆  
+##### 1671#       发表于 2022-11-7 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这第七章的虫虫是什么妖魔鬼怪啊，伤害好离谱。
+
+*****
+
+####  電子器官依存  
+##### 1672#       发表于 2022-11-7 14:52
+
+装备全买竞技场全打，到第七章大概43级，看几次小怪的抬手和飞弹类型，装上能量吸收已经可以无双了
+
