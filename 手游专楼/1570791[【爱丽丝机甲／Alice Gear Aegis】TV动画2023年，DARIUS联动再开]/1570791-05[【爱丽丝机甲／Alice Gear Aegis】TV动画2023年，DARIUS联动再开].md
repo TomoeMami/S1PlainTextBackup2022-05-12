@@ -498,3 +498,12 @@ ps:桃歌的新便服，绝对垫了，都到会长的水准了
 
 发现chatnoir都好久没更新了，之前没抽尾长想补下4星的剧情都没地方看了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  madcow  
+##### 7440#       发表于 2022-11-7 18:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这新活动是啥
+
