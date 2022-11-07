@@ -2196,3 +2196,59 @@ yia ki sw可以多用弓弩白嫖
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  redsouris  
+##### 1699#       发表于 2022-11-7 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325084&amp;ptid=2098044" target="_blank">愛の唄 发表于 2022-11-7 21:03</a>
+打到第四章了，前面章节的怪物素材后面会掉么，第2章的大红花也太难掉了，幸运是不是能增加素材掉率 ...</blockquote>
+幸运大概100点多10%，高难度掉率高
+后面有加掉落的被动可以装
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zhangzlo  
+##### 1700#       发表于 2022-11-7 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58324533&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-7 20:17</a>
+
+第四章打完大蛇男主依然穿着女装小黑依然穿着贝壳泳装，剧情也没个解释</blockquote>
+因为你不想脱啊，而且你慢慢看剧情就会发现，小黑是个闷骚。
+
+*****
+
+####  Farlight  
+##### 1701#       发表于 2022-11-7 21:14
+
+无限方阵的团子的米糕怎么获得？
+
+*****
+
+####  redsouris  
+##### 1702#       发表于 2022-11-7 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58324533&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-7 20:17</a>
+第四章打完大蛇男主依然穿着女装小黑依然穿着贝壳泳装，剧情也没个解释</blockquote>
+剧情里回去有说自己同样衣服多，送给主角了，至于她自己为啥要换比基尼嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  方舟失智博士  
+##### 1703#       发表于 2022-11-7 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325254&amp;ptid=2098044" target="_blank">Farlight 发表于 2022-11-7 21:14</a>
+
+无限方阵的团子的米糕怎么获得？</blockquote>
+[https://www.bilibili.com/read/cv19511254](https://www.bilibili.com/read/cv19511254)
+
+这是全素材道具攻略
+
+其实一般来说你把手册所有的东西合了都有 装备都是当前地图的素材
+
