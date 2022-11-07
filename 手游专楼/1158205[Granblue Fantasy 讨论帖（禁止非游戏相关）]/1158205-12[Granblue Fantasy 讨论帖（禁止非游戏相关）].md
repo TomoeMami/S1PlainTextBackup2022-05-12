@@ -166,3 +166,12 @@
 
 这也太肝了，我单人团都不鸟团战的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 17181#       发表于 2022-11-7 10:57
+
+团战还行吧。我恨不得第一天开200.  然后随便FA收菜。讲真。现在牛得效率提高。加上200。体验比以前好很多了。
+

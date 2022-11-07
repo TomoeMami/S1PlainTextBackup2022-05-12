@@ -1535,3 +1535,12 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  zhangzlo  
+##### 1639#       发表于 2022-11-7 11:00
+
+对了，问一下，完美结局是后宫结局？
+
