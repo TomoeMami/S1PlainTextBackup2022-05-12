@@ -1093,3 +1093,17 @@ c9这全员数据都拉满了，不会真要打我脸吧。不行，我还是不
 
 一觉醒来世界线变动了
 
+
+
+*****
+
+####  andychen  
+##### 2755#       发表于 2022-11-7 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58315328&amp;ptid=1857369" target="_blank">Suny08 发表于 2022-11-7 11:04</a>
+无法接受fncbig老鼠这些队能2-1</blockquote>
+big和fnc接下来有滚粗的风险
+老鼠虽然我也不看好，不过昨天是干了蜜蜂的
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
