@@ -2183,3 +2183,16 @@ yia ki sw可以多用弓弩白嫖
 
 打到第四章了，前面章节的怪物掉落物后面会掉么，第2章的大红花也太难掉了
 
+
+
+*****
+
+####  redsouris  
+##### 1698#       发表于 2022-11-7 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58324885&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-7 20:45</a>
+这游戏有多少内容啊 城里那个井下去区域有多大啊 现在打起来还是有点吃力  然后伊锡利恩左边还有个花园  等 ...</blockquote>
+井下那些杂兵很烦人，最好直接冲到底去打BOSS
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
