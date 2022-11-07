@@ -9730,3 +9730,24 @@ ps4玩会怎么样，会不会帧数特别低画质不行</blockquote>
 
 战神4除了换皮和敲钟我觉得没啥问题了，这作解决了换皮问题，解密还能简化，对我说就是没问题了
 
+
+
+*****
+
+####  Yason  
+##### 1010#       发表于 2022-11-7 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58324796&amp;ptid=2025548" target="_blank">h122h 发表于 2022-11-7 20:37</a>
+这次语言怎么分的，是都有中文吗？如果是就买日版了。</blockquote>
+全区中文
+
+*****
+
+####  DelayNoMore  
+##### 1011#       发表于 2022-11-7 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326957&amp;ptid=2025548" target="_blank">Yason 发表于 2022-11-7 23:25</a>
+
+全区中文</blockquote>
+日版有中文？
+

@@ -2116,3 +2116,23 @@ don't 表情包， thank you！
 
 鱼腿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 9168#       发表于 2022-11-7 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">好好好
+
+*****
+
+####  iuhehc  
+##### 9169#       发表于 2022-11-7 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325634&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-11-7 21:43</a>
+………你谁？</blockquote>
+这p的我以为进错楼
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
