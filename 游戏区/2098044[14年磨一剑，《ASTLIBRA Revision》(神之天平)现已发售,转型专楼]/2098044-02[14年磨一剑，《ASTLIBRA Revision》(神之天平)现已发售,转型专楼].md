@@ -1624,3 +1624,33 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 
 会出switch版吗
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1647#       发表于 2022-11-7 11:47
+
+蛋糕配方不是有个情人节礼盒消耗爱情么 会影响数量么
+
+*****
+
+####  redsouris  
+##### 1648#       发表于 2022-11-7 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58316162&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-7 11:47</a>
+蛋糕配方不是有个情人节礼盒消耗爱情么 会影响数量么</blockquote>
+可以分解拆回来的
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  管住键政的手  
+##### 1649#       发表于 2022-11-7 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58316162&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-7 11:47</a>
+
+蛋糕配方不是有个情人节礼盒消耗爱情么 会影响数量么</blockquote>
+爱情可以刷出来的。
+
