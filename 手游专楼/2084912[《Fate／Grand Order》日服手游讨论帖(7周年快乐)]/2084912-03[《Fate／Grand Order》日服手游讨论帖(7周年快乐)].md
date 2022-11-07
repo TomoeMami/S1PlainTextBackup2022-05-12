@@ -4271,3 +4271,12 @@ FguGwNXVsAAhJlZ.jpg
 怎么又在活动周的周常里要求刷狗粮，是不是有病啊</blockquote>
 还有一个更神经病的，特别任务要打三次掉落礼装本，就算你打过了也要再打一次<img src="https://static.saraba1st.com/image/smiley/face2017/264.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 3387#       发表于 2022-11-7 10:24
+
+虚数竟然要再开地图<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+

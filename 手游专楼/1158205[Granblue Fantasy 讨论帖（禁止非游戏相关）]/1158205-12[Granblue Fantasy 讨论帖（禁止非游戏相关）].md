@@ -157,3 +157,12 @@
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  里村紅葉  
+##### 17180#       发表于 2022-11-7 10:21
+
+这也太肝了，我单人团都不鸟团战的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
