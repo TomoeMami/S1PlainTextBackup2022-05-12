@@ -1830,3 +1830,23 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 
 所以那堆破烂装备要留在身上
 
+
+
+*****
+
+####  llysander  
+##### 1664#       发表于 2022-11-7 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58314295&amp;ptid=2098044" target="_blank">十字骷髅高达 发表于 2022-11-7 10:07</a>
+
+每章把装备图纸全刷，我困难难度已经无双了，建议多用凭依技能</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">有几个逆大天的东西， 
+
+1，火舞改良南瓜炸弹，演出极快并且下来直接可以攒气（大部分凭依技是演出完才能继续攒气的）空中泥头车的速度根本停不下来
+
+2，斗神改良，在空中赖超级久
+
+3，人鱼改良公主，持续吐泡泡消弹幕
+
+4，天使改良再生，这个就是消耗纯粹凹
+
