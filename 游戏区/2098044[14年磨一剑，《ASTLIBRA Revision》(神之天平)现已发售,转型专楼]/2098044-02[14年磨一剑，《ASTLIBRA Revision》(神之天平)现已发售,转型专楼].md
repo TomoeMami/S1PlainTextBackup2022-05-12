@@ -2411,3 +2411,20 @@ yia ki sw可以多用弓弩白嫖
  问下41级左右第7章斗技场怎么搞，难度暴涨。  —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next ...</blockquote>
 用弩射吧怪 怪伤害太高了
 
+
+
+*****
+
+####  otakun  
+##### 1718#       发表于 2022-11-8 00:14
+
+全成就通关了，结局真完满啊，所有角色都交代了，难得的佳作<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">。
+最后拿着荧光棒，带剑气技能变形后的增加发射物伤害和增加追加伤害的饰品，开好buff 一刀剑气4200+伤害，我就是平行世界里筛选出来的最强弑神者<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ravio  
+##### 1719#       发表于 2022-11-8 00:20
+
+一切平台关或者怪伤害太高/无伤的问题都可以用狂暴+凭依无敌/法杖/弩解决
+

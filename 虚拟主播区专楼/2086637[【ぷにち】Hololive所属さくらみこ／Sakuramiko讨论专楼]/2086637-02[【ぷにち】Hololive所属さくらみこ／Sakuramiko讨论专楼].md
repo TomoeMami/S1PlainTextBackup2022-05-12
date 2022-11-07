@@ -14593,3 +14593,19 @@ mio在MTG期间不到半小时把曲子作出来了
 
 而且认真地说，这个周边不是运动会周边而是歌曲发表纪念周边，说白了就是仅此一次明年就没有这个名义的周边了，又不是说真的为了卖周边开的运动会，开开玩笑就算了不会真有人这么认为吧，用脑子想一下好把
 
+
+
+*****
+
+####  rs5621  
+##### 2895#       发表于 2022-11-8 00:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326238&amp;ptid=2086637" target="_blank">holoan 发表于 2022-11-7 22:28</a>
+
+草
+
+mio在MTG期间不到半小时把曲子作出来了
+
+无话可说</blockquote>
+卧槽,这么牛
+
