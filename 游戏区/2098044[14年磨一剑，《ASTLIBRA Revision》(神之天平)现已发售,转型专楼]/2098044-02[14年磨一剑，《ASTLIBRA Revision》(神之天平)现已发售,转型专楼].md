@@ -1850,3 +1850,32 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 
 4，天使改良再生，这个就是消耗纯粹凹
 
+
+
+*****
+
+####  vidomina  
+##### 1665#       发表于 2022-11-7 14:13
+
+<blockquote>llysander 发表于 2022-11-7 14:00
+因为，老头在追章剧情不一样，追章要打到快结束才有机会像以前那样跟老头对话
+
+所以那堆破烂装备要留在身 ...</blockquote>
+留就留吧，反正也是打算全部装备都刷出装备盘的。。。。
+
+*****
+
+####  vidomina  
+##### 1666#       发表于 2022-11-7 14:15
+
+对了，新章里面魔女馆的箱子怎么拿啊，从画里面也过不去，还是说那个门要后面什么道具才能开？
+
+*****
+
+####  otakun  
+##### 1667#       发表于 2022-11-7 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58318584&amp;ptid=2098044" target="_blank">vidomina 发表于 2022-11-7 14:15</a>
+对了，新章里面魔女馆的箱子怎么拿啊，从画里面也过不去，还是说那个门要后面什么道具才能开？ ...</blockquote>
+地牢钥匙
+
