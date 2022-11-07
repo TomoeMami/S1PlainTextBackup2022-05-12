@@ -1383,3 +1383,53 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 盘都是有属性的，3*4个2选1，在装备那里按Y自己切换。好武器 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">3个盘是要切换的，只能生效一个么……
 
+
+
+*****
+
+####  十字骷髅高达  
+##### 1623#       发表于 2022-11-7 10:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每章把装备图纸全刷，我困难难度已经无双了，建议多用凭依技能
+
+*****
+
+####  cym887  
+##### 1624#       发表于 2022-11-7 10:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">话说是不是章节过了 前面章节的图纸就刷不出来了
+
+*****
+
+####  何处分可  
+##### 1625#       发表于 2022-11-7 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58314312&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-7 10:08</a>
+话说是不是章节过了 前面章节的图纸就刷不出来了</blockquote>
+用天平可以回去刷
+
+*****
+
+####  阿库鲁艾特  
+##### 1626#       发表于 2022-11-7 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58314009&amp;ptid=2098044" target="_blank">布里兰特 发表于 2022-11-7 09:51</a>
+有，进魔王城的时候不要带白，然后和盖乌会合后去入口找回白带去打boss</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在已经打完雪山了，感觉要打二周目？
+
+*****
+
+####  otakun  
+##### 1627#       发表于 2022-11-7 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58314312&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-7 10:08</a>
+话说是不是章节过了 前面章节的图纸就刷不出来了</blockquote>
+不是，但我体感雪地-伊里西恩那关图纸特别难出，我还没出齐图纸就出一堆其他东西，怀疑是同一章但图纸分开两地出。我常驻100幸福加点。
+
+*****
+
+####  阿库鲁艾特  
+##### 1628#       发表于 2022-11-7 10:10
+
+另外问一下有没有什么爽快的近战路？现在我杀怪也快，怪打我一下也挺疼的
+
