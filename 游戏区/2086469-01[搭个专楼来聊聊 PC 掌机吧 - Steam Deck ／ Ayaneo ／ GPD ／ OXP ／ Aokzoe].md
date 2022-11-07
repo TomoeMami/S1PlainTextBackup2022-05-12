@@ -181,3 +181,12 @@ B站搜第一个就是翻车视频</blockquote>
 综合下来SD还是挺 ...</blockquote>
 就直接插电玩呗
 
+
+
+*****
+
+####  医生狼多  
+##### 492#       发表于 2022-11-8 00:26
+
+比我预想的要大点，但实际显示面积和sd差不多<img src="https://p.sda1.dev/8/995107718435a29651c3bd4ae9e9454d/CMP_20221108002556350.jpg" referrerpolicy="no-referrer">
+

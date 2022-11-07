@@ -2428,3 +2428,14 @@ yia ki sw可以多用弓弩白嫖
 
 一切平台关或者怪伤害太高/无伤的问题都可以用狂暴+凭依无敌/法杖/弩解决
 
+
+
+*****
+
+####  Rainwedell  
+##### 1720#       发表于 2022-11-8 00:23
+
+试试，斗技场前面全是拿大砍刀莽过去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
