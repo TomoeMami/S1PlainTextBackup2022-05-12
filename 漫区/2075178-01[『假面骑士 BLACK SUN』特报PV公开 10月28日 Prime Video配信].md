@@ -3794,3 +3794,30 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">都怪人了不去开发怪人能力去搞kb技能配养是不是点错技能点了
 
+
+
+*****
+
+####  eilot  
+##### 346#       发表于 2022-11-7 17:31
+
+平民版的怪人感觉就像强殖装甲已经变天后的平民强化怪
+
+都是能自订外表的纸老虎，所以也不求有甚么强度，就是体能比普通人强些少，但一样会比常X规武X器射X杀，又或者被钝X器X打X死或烧X死
+
+不过考虑黑日过了50年还有严重岐视问题，也没有明确告知怪人的来源
+
+这和强殖装甲那批都是普通人争着去转生的风气完全不同
+
+*****
+
+####  gpx234mqx  
+##### 347#       发表于 2022-11-7 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58284261&amp;ptid=2075178" target="_blank">拆骨羊肉2 发表于 2022-11-5 13:22</a>
+
+还是保留看black和rx的美好回忆吧
+
+—— 来自 vivo V2183A, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+这次是跳过RX吧，还是RX欢乐
+
