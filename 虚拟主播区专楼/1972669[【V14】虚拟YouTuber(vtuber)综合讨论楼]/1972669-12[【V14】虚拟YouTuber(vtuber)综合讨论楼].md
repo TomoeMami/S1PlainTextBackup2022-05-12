@@ -665,3 +665,12 @@ live上说了想请的，但星姐那时喉咙做了手术出不了声
 
 为什么总感觉来过holo本社的彩虹人都在说holo的staff很会照顾人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 17695#       发表于 2022-11-7 23:46
+
+dola应该是第二个原创曲出了。
+
