@@ -399,3 +399,27 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  ssIms  
+##### 1988#       发表于 2022-11-7 13:22
+
+看楼里有人说这集作画崩了，想到自己看过那么多垃圾动漫区区画崩算什么<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+看到食堂那一段实在看不下去了，
+
+明明在点开前还鼓励自己一定要看完<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  KOPKOM  
+##### 1989#         楼主| 发表于 2022-11-7 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58317689&amp;ptid=1860817" target="_blank">ssIms 发表于 2022-11-7 13:22</a>
+看楼里有人说这集作画崩了，想到自己看过那么多垃圾动漫区区画崩算什么
+
+看到食堂那一段实在看不下去 ...</blockquote>
+其实宣布动画化的时候我的预期是AL的每一集都是这一集水平，所以现在我觉得已经赚大了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

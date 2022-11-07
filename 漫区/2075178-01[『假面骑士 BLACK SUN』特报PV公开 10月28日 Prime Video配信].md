@@ -3773,3 +3773,15 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 别的不说，光把安倍脑袋砍下来我就得给高分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  浅川雏羽  
+##### 344#       发表于 2022-11-7 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58311744&amp;ptid=2075178" target="_blank">Patlain 发表于 2022-11-7 01:51</a>
+
+看完了，结尾真是一言难尽，我理解作为一部成人向的特摄他对社会对政治的描写需求，抛开一些政治过家家环节 ...</blockquote>
+和凹凸曼不太一样，有腰带的坏比幪面超人哪怕在晨间档也多了去了
+

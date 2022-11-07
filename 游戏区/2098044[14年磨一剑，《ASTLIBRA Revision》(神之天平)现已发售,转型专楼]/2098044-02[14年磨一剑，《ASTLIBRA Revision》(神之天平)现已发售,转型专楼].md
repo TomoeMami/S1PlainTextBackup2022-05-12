@@ -1743,3 +1743,12 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 第2章 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">记住，嘉隆老师说的话99%都要听，除了一句话
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1656#       发表于 2022-11-7 13:26
+
+魔物攻城那里嫖三个boss是➕5吧 不过出城我也没出
+
