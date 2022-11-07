@@ -726,3 +726,12 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  DET  
+##### 43706#       发表于 2022-11-7 20:44
+
+虽然柱子的确没啥人打，但是枪阶的差那么多肯定是因为位置的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
