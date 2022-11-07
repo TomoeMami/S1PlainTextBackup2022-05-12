@@ -3785,3 +3785,12 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 看完了，结尾真是一言难尽，我理解作为一部成人向的特摄他对社会对政治的描写需求，抛开一些政治过家家环节 ...</blockquote>
 和凹凸曼不太一样，有腰带的坏比幪面超人哪怕在晨间档也多了去了
 
+
+
+*****
+
+####  roxas.sora  
+##### 345#       发表于 2022-11-7 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">都怪人了不去开发怪人能力去搞kb技能配养是不是点错技能点了
+
