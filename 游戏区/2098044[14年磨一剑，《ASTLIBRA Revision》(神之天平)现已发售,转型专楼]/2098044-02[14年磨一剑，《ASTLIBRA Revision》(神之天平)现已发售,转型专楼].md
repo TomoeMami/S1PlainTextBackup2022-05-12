@@ -2364,3 +2364,17 @@ yia ki sw可以多用弓弩白嫖
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  魔法少女大头  
+##### 1714#       发表于 2022-11-7 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58316702&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-7 12:22</a>
+
+昨晚又打到1点多，破防了，不是说这剧情破防，是这破引导逼得我决定冒剧透风险查资料的破防
+
+第2章 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">连发是啥，晚上趁着老婆睡着打，狂搓手柄真遭不住。
+

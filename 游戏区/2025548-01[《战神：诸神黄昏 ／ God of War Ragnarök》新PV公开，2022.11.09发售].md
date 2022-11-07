@@ -9751,3 +9751,33 @@ ps4玩会怎么样，会不会帧数特别低画质不行</blockquote>
 全区中文</blockquote>
 日版有中文？
 
+
+
+*****
+
+####  医生狼多  
+##### 1012#       发表于 2022-11-7 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326992&amp;ptid=2025548" target="_blank">DelayNoMore 发表于 2022-11-7 23:29</a>
+日版有中文？</blockquote>
+目前来看日版美版都有中文
+
+*****
+
+####  crosz1985  
+##### 1013#       发表于 2022-11-7 23:37
+
+全区中文美服注册一个号就能充值吗，美服点卡便宜很多啊
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  DelayNoMore  
+##### 1014#       发表于 2022-11-7 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58327067&amp;ptid=2025548" target="_blank">医生狼多 发表于 2022-11-7 23:34</a>
+
+目前来看日版美版都有中文</blockquote>
+那不错，日版便宜多了
+
