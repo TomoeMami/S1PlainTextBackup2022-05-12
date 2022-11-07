@@ -184,3 +184,12 @@
 
 看了下之前的计算器3月以来就没更新了，也没好心人续上，你游凉的厉害
 
+
+
+*****
+
+####  刹海之绊  
+##### 17183#       发表于 2022-11-7 13:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次boss技能和db给我一种不好的预感
+
