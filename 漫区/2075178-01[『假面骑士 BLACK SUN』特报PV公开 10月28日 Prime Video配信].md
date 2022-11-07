@@ -3821,3 +3821,38 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 —— 来自 vivo V2183A, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 这次是跳过RX吧，还是RX欢乐
 
+
+
+*****
+
+####  leitingkai  
+##### 348#       发表于 2022-11-7 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58299413&amp;ptid=2075178" target="_blank">roxas.sora 发表于 2022-11-6 15:01</a>
+都现代了应该技术迭代才对啊，起码有粽子那种水平才配生物武器吧，或者按昭和版black的设定写 ...</blockquote>
+现代了不需要这些兵器了
+片中也表示现代唯一的商业价值就是卖给福瑞控有钱人
+
+*****
+
+####  Patlain  
+##### 349#       发表于 2022-11-7 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58317765&amp;ptid=2075178" target="_blank">浅川雏羽 发表于 2022-11-7 13:28</a>
+和凹凸曼不太一样，有腰带的坏比幪面超人哪怕在晨间档也多了去了</blockquote>
+我是反low逼不是反坏逼，坏逼骑士是优良传统谁不知道呢
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  roxas.sora  
+##### 350#       发表于 2022-11-7 17:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58322387&amp;ptid=2075178" target="_blank">leitingkai 发表于 2022-11-7 17:47</a>
+
+现代了不需要这些兵器了
+
+片中也表示现代唯一的商业价值就是卖给福瑞控有钱人 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">因为技术没迭代，怪人战斗力比较弱，和昭和那批数据怪没得比，只能当宠物了
+
