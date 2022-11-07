@@ -14353,3 +14353,12 @@ korone已经被某公司绑死了，运动会都参加不了不用说做其他�
 
 不出意外昨晚本来是运动会回顾会结果切片到现在最多的话题依然是七字母
 
+
+
+*****
+
+####  rs5621  
+##### 2870#       发表于 2022-11-7 13:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的喷了，一堆七字母的切片！就没看到一个有关说设施的
+
