@@ -1752,3 +1752,15 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 
 魔物攻城那里嫖三个boss是➕5吧 不过出城我也没出
 
+
+
+*****
+
+####  llysander  
+##### 1657#       发表于 2022-11-7 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58256196&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-3 14:38</a>
+
+遇到了bug，第三章最后火山底层，打败火山神之后的演出，黑和白的角色模型看不到了，空气对话 ...</blockquote>
+空气人队友场合还挺多的，最新补丁，追章也能确认有各种各样的 
+
