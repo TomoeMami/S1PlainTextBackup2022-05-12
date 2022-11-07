@@ -1002,3 +1002,12 @@ g2没进32强，然后16强小蜜蜂navi1-2，faze直接回家
 
 一觉醒来，赛况这么有趣了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雨中曲  
+##### 2744#       发表于 2022-11-7 08:30
+
+这次C9要是再拿major冠军，可是要素拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
