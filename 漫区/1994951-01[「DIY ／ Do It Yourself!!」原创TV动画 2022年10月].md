@@ -4409,3 +4409,20 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 拿动画这个画风画的插画感觉效果也不错啊，没有影子但也不会觉得完成度低，动画人设是哪位啊，真乃神人也 ...</blockquote>
 当然是松尾佑辅啊，不靠过多的线条和影来表现人物确实挺厉害的，也方便原画发挥。（想吐槽下泥潭这个简繁转换还转异体字吗）
 
+
+
+*****
+
+####  RainbowSealife  
+##### 349#       发表于 2022-11-7 15:00
+
+<img src="https://img.saraba1st.com/forum/202211/07/145840pk78rqzkaekryq88.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (241.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-7 14:58 上传
+
+漫画版，self，世瑠风
+
