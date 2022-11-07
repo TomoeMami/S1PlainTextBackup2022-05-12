@@ -1557,3 +1557,24 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  zhangzlo  
+##### 1641#       发表于 2022-11-7 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58315460&amp;ptid=2098044" target="_blank">redsouris 发表于 2022-11-7 11:11</a>
+
+完美结局15个爱情
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+我只要小黑以及女主（乌鸦）的话呢？
+
+*****
+
+####  何处分可  
+##### 1642#       发表于 2022-11-7 11:21
+
+外传是什么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
