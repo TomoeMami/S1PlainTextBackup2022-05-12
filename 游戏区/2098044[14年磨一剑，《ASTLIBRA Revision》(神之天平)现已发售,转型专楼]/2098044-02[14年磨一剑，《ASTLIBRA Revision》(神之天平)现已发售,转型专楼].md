@@ -1931,3 +1931,14 @@ https://freegame-mugen.jp/action/game_4223.html#reviewVote
 
 这剧情真的很棒。日本那边就没有大手管人玩玩么，这不卖个一百万50万太白瞎了。
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1674#       发表于 2022-11-7 15:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58319097&amp;ptid=2098044" target="_blank">费罗米隆 发表于 2022-11-7 14:48</a>
+这第七章的虫虫是什么妖魔鬼怪啊，伤害好离谱。</blockquote>
+yia ki sw可以多用弓弩白嫖
+

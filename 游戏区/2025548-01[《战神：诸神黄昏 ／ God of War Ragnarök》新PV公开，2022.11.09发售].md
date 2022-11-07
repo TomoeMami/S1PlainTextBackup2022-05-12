@@ -9687,3 +9687,15 @@ ps3模拟器
 
 ps4玩会怎么样，会不会帧数特别低画质不行<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuker53  
+##### 1006#       发表于 2022-11-7 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58312038&amp;ptid=2025548" target="_blank">namelessashen 发表于 2022-11-7 02:59</a>
+
+ps4玩会怎么样，会不会帧数特别低画质不行</blockquote>
+1080P 30帧，PRO有45~50帧
+
