@@ -1494,3 +1494,24 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 现在已经打完雪山了，感觉要打二周目？</blockquote>
 对话和剧情略有差异，少的boss杯会在新章跳，不影响
 
+
+
+*****
+
+####  Ravio  
+##### 1635#       发表于 2022-11-7 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58314721&amp;ptid=2098044" target="_blank">目鱼 发表于 2022-11-7 10:31</a>
+
+副武器是哪个装备给的技能啊</blockquote>
+魔王城门口的小猪店下面被树挡住的入口，恶魔城neta
+
+新章这里还加个宝箱
+
+*****
+
+####  quanlix  
+##### 1636#       发表于 2022-11-7 10:39
+
+游戏内时间快59小时全成就了，今天晚上开始打外传
+
