@@ -202,3 +202,12 @@
 
 风团前把所有素材都用来做隐者了，结果万圣池子井了风巫妖说皇帝才是best match<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yueyut  
+##### 17185#       发表于 2022-11-8 07:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没火贝又要吃瘪了，全队反击造成的伤害是一方面，火贝本身这个db可以开局触发逆位皇帝也求之不得
+
