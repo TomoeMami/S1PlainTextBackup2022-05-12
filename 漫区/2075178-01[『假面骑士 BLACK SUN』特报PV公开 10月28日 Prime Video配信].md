@@ -3932,3 +3932,31 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">能稳定产出粽子级别的杂鱼，高级单位能力夸张一点才有作为兵器的价值吧，就黑日的怪人也就只能给粽子当口粮，打不打得过the系列的修卡都不知道........
 
+
+
+*****
+
+####  eilot  
+##### 357#       发表于 2022-11-7 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325473&amp;ptid=2075178" target="_blank">roxas.sora 发表于 2022-11-7 21:31</a>
+
+能稳定产出粽子级别的杂鱼，高级单位能力夸张一点才有作为兵器的价值吧，就黑日的怪人也就只能给粽 ...</blockquote>
+黑日的怪人如果能点出手中镰刀，本身善战的话变成怪人应该还能砍杀不少修卡的支支兵
+
+但问题在于支支兵如果进入写实设定，那他们的神X风X自X爆产生的爆炸及范围，每次只是1~3名(每次镜头就是得那么多)一起自X爆就能一波带走不少怪人，如果还能炸到附近易燃品的话更...
+
+黑日的怪人完全靠创世主的精X来生产，产兵量超慢，而对方支支兵有完善教育、保障制度，确保杂兵数量，量比量都输吧...
+
+*****
+
+####  roxas.sora  
+##### 358#       发表于 2022-11-7 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325613&amp;ptid=2075178" target="_blank">eilot 发表于 2022-11-7 21:42</a>
+
+黑日的怪人如果能点出手中镰刀，本身善战的话变成怪人应该还能砍杀不少修卡的支支兵
+
+但问题在于支支兵如 ...</blockquote>
+粽子点出了污染传染能力，怪人这爆兵速度必须做手术，修卡的战斗员也是要做手术xinao的吧
+

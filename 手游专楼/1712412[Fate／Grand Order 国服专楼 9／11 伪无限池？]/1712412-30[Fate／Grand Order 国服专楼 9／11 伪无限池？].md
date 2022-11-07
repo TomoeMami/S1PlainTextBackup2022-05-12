@@ -735,3 +735,12 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 虽然柱子的确没啥人打，但是枪阶的差那么多肯定是因为位置的原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kazemitoya  
+##### 43707#       发表于 2022-11-7 21:42
+
+第二次抽哈吉咩酱，又没抽到，我抽完了所有的石头和护符，土方都来了，哈吉咩却没有……唉。
+
