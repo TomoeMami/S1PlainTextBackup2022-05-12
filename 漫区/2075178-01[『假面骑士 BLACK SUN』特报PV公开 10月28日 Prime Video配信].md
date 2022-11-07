@@ -4008,3 +4008,14 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 快的很，修卡的科学力还是可信的
 
+
+
+*****
+
+####  奥F特  
+##### 362#       发表于 2022-11-7 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326176&amp;ptid=2075178" target="_blank">eilot 发表于 2022-11-7 22:21</a>
+看了WIKI，最早期修卡的黑衣战斗员都是靠洗XX脑XX普通人，平均才得3倍常人体能，上级红衣或骨头版就有10倍 ...</blockquote>
+早期修卡战斗员 都能被小学生打爆 战斗力先过自行车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

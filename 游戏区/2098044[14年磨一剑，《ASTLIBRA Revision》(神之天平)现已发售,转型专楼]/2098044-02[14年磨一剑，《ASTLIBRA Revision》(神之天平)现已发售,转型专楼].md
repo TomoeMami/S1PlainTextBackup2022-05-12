@@ -2351,3 +2351,16 @@ yia ki sw可以多用弓弩白嫖
 少的特殊道具也可以在最后一章刷出来. ...</blockquote>
 缓了缓，该打还是要打的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kaornao  
+##### 1713#       发表于 2022-11-7 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326337&amp;ptid=2098044" target="_blank">JoelBirch 发表于 2022-11-7 22:35</a>
+缓了缓，该打还是要打的</blockquote>
+没事的，虽然我是正常的流程，但如果按照剧情逻辑来讲，前面的选择应该不会影响新章的剧情，到新章会强制带白，你应该可以打一次m腿boss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
