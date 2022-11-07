@@ -2400,3 +2400,14 @@ yia ki sw可以多用弓弩白嫖
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  目鱼  
+##### 1717#       发表于 2022-11-8 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58327361&amp;ptid=2098044" target="_blank">Rainwedell 发表于 2022-11-7 23:58</a>
+ 问下41级左右第7章斗技场怎么搞，难度暴涨。  —— 来自 Xiaomi 22041211AC, Android 12上的 S1Next ...</blockquote>
+用弩射吧怪 怪伤害太高了
+

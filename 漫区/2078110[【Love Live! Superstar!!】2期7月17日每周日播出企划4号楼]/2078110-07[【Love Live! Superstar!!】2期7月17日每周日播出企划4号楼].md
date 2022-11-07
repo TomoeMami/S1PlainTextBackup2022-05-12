@@ -2136,3 +2136,12 @@ don't 表情包， thank you！
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lj205  
+##### 9170#       发表于 2022-11-8 00:08
+
+还是**的略胜一筹<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
