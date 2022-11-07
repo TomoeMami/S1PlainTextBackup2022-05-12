@@ -1544,3 +1544,16 @@ BOSS房门口左下有个蓝球，拿走去换另外边的红球
 
 对了，问一下，完美结局是后宫结局？
 
+
+
+*****
+
+####  redsouris  
+##### 1640#       发表于 2022-11-7 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58315257&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-7 11:00</a>
+对了，问一下，完美结局是后宫结局？</blockquote>
+完美结局15个爱情<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
