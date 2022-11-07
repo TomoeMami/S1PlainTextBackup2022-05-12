@@ -1974,3 +1974,31 @@ don't 表情包， thank you！
 
 回去挂网页了，说要更新也不知道啥更新。抖音也好久没更了，丢网页省事。
 
+
+
+*****
+
+####  emmer  
+##### 9157#       发表于 2022-11-7 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58320168&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-11-7 15:48</a>
+
+应该是纯粹用来看的号吧，毕竟b站微博推特几个同步就挺麻烦的。
+
+话说开小号干嘛不直接用别的名字。 ...</blockquote>
+占坑吧，怕被人冒充
+
+*****
+
+####  cat1230  
+##### 9158#       发表于 2022-11-7 16:28
+
+名无しで叶える物语：2022/11/07(月) 12:00:47.99 ID:E/5h8EZh0.net
+昨夜の配信より 
+よく小红书（RED BOOK）での美容情报を参考してるらしい 
+なんか「纯欲风」のメイクがやりたいと何回も言ってた 
+いや…あんな胸じゃ纯欲风って言われてもなぁ… 
+笑死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
