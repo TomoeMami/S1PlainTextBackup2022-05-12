@@ -14432,3 +14432,43 @@ koyo进入时机完美wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 
 连续的质！！！！！！！！！！！！！！！！
 
+
+
+*****
+
+####  holoan  
+##### 2879#         楼主| 发表于 2022-11-7 22:05
+
+这后夜祭凸太质了
+
+把运动会话题人物和neta全齐活了
+
+*****
+
+####  holoan  
+##### 2880#         楼主| 发表于 2022-11-7 22:07
+
+早漏
+
+卖周边了
+
+[https://shop.hololivepro.com/products/happyfeverhololive_release](https://shop.hololivepro.com/products/happyfeverhololive_release)
+
+
+
+*****
+
+####  holoan  
+##### 2881#         楼主| 发表于 2022-11-7 22:08
+
+风间！？
+
+*****
+
+####  Map-2  
+##### 2882#       发表于 2022-11-7 22:09
+
+所以这就是运动会不得不办的理由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以明年还会有，就当是工商好了
+

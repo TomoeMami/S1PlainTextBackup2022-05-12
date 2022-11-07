@@ -2302,3 +2302,16 @@ yia ki sw可以多用弓弩白嫖
 我建议还是放宽心继续打，打到最后什么都不会错过。
 少的特殊道具也可以在最后一章刷出来.
 
+
+
+*****
+
+####  zhangzlo  
+##### 1709#       发表于 2022-11-7 22:05
+
+草拟吗，白毛老弟真尼玛等了2000年，燃了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+哦不对，应该叫老前辈。
+
+这白毛太帅了。
+
