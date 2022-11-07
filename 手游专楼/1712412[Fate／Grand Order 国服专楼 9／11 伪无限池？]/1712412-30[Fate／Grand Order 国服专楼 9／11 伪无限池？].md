@@ -744,3 +744,15 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 第二次抽哈吉咩酱，又没抽到，我抽完了所有的石头和护符，土方都来了，哈吉咩却没有……唉。
 
+
+
+*****
+
+####  DET  
+##### 43708#       发表于 2022-11-7 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325620&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-7 21:42</a>
+
+第二次抽哈吉咩酱，又没抽到，我抽完了所有的石头和护符，土方都来了，哈吉咩却没有……唉。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没事，白情和明年唠唠叨叨在卡池里的，不要抽上头就行
+

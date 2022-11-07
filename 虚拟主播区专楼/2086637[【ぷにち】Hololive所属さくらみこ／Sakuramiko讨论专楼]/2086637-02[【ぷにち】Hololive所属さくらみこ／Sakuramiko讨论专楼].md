@@ -14472,3 +14472,41 @@ koyo进入时机完美wwwwwwwwwwwwwwwwwwwwwwwwwwwwwwwww
 
 所以明年还会有，就当是工商好了
 
+
+
+*****
+
+####  holoan  
+##### 2883#         楼主| 发表于 2022-11-7 22:16
+
+按5ch的说法今年出周边是因为出费太多了要出周边回点血
+
+或是已经运营深度介入了
+
+确实有点道理
+
+说是工商就算了，你见过个人准备半年以上的工商吗，那都是运营准备的
+
+*****
+
+####  zzp05402  
+##### 2884#       发表于 2022-11-7 22:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明年多几个人搞吧，不然太累了，运营也帮帮忙好了
+
+*****
+
+####  ZQXY2002  
+##### 2885#       发表于 2022-11-7 22:17
+
+ 本帖最后由 ZQXY2002 于 2022-11-7 22:20 编辑 
+
+难怪今年请了导播摄影团队，有goods回本。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 2886#       发表于 2022-11-7 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下真的变成固定企划了
+

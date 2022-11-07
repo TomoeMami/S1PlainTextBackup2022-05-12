@@ -2062,3 +2062,12 @@ don't 表情包， thank you！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这p的………………磨皮加倍了
 
+
+
+*****
+
+####  starring  
+##### 9162#       发表于 2022-11-7 22:18
+
+前两张照片P过头，最后两张才认出来（换个发型好看不少
+
