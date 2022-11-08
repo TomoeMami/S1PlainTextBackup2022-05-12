@@ -1261,3 +1261,23 @@ navi赢了我就还有机会争钻石币<img src="https://static.saraba1st.com/i
 
 刚准备看，场馆停电了可还行
 
+
+
+*****
+
+####  dev2ce  
+##### 2773#       发表于 2022-11-9 00:41
+
+设备表示不是s级比赛不打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没意外重返a队第一场比赛就是卡托playin了
+
+*****
+
+####  朔方原的星  
+##### 2774#         楼主| 发表于 2022-11-9 00:42
+
+数天前，缺席一线赛事已久的丹麦选手device宣布回归Astralis。对于Astralis而言，此次变阵标志着他们有能力在一线赛场上再度打出不俗的成绩。然而今日Astralis俱乐部于社媒上称，device将不会随队参加该战队本年度的最后一场赛事——Elisa大师赛。
+
+在其官方公告中，Astralis称：“device已经迅速成为了队内的重要一环。尽管我们都很希望能够让他立刻上场打比赛，但最终还是决定再多花些时间以重回正轨。”
+
+此外，Astralis将携青训选手Kristou随队征战。现年20岁的Kristou也是继MistR之后第二位从青训队提拔至主队阵容的选手。
+

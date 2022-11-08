@@ -10241,3 +10241,23 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 只有PS4,但是考虑一下未来嘛</blockquote>
 加钱升级
 
+
+
+*****
+
+####  CharlieZ-  
+##### 1059#       发表于 2022-11-9 00:37
+
+有游玩感想不，韩国ign是有道理还是瞎扯
+
+*****
+
+####  陈词与芍药  
+##### 1060#       发表于 2022-11-9 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58344563&amp;ptid=2025548" target="_blank">CharlieZ- 发表于 2022-11-8 11:37</a>
+有游玩感想不，韩国ign是有道理还是瞎扯</blockquote>
+认同部分观点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -3315,3 +3315,17 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 之前打完了最终boss 又回来拿缺的徽了 
 挺爽的 还没进新章 缓缓 好久没这么肝游戏了上次肝还是xb3 没想到80块的游戏这么投入 甚至steam上的余额还没用完<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  skgaminger1988  
+##### 1794#       发表于 2022-11-9 00:40
+
+ 本帖最后由 skgaminger1988 于 2022-11-9 00:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58339064&amp;ptid=2098044" target="_blank">aka523 发表于 2022-11-8 18:33</a>
+那个连续波要怎么跳过去?我是在boss放这招前用雷枪穿到它背后躲的</blockquote>
+稳定处理是放波前背对哥布林防御 防下第一下后后跳 
+
+然后就可以在背后正常输出了
+
