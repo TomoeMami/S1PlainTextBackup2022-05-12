@@ -3003,3 +3003,14 @@ yia ki sw可以多用弓弩白嫖
 哥布林王这个boss最恶心的地方就是地图中间放了个台子，好卡我位子气死我了 ...</blockquote>
 艹，它不是boss啊，连着打沼泽之王吃不消啊，死档了干
 
+
+
+*****
+
+####  shangfire  
+##### 1767#       发表于 2022-11-8 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58337413&amp;ptid=2098044" target="_blank">aka523 发表于 2022-11-8 16:56</a>
+哥布林王这个boss最恶心的地方就是地图中间放了个台子，好卡我位子气死我了 ...</blockquote>
+这台子不就是用来让你站上面跳起来躲连续波的吗
+
