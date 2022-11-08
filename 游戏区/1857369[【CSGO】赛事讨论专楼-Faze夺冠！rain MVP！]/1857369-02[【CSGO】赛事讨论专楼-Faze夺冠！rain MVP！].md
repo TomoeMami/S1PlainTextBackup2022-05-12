@@ -1173,3 +1173,12 @@ niko的夜店major就差小森了
 好，就等谁抬走Navi和x队了</blockquote>
 navi打big随便赢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ml1642879  
+##### 2764#       发表于 2022-11-8 08:35
+
+哦牛批，fnc争气了小蜜蜂滚了，这下可以宣布银币比钻石币好看了
+
