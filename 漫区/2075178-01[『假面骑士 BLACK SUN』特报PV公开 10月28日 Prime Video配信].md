@@ -4042,3 +4042,15 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 差评合理吧，一上来啥前期提要没有，但是也没有铺垫讲故事的能力看的贼懵
 
+
+
+*****
+
+####  gpx234mqx  
+##### 365#       发表于 2022-11-8 08:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58326706&amp;ptid=2075178" target="_blank">奥F特 发表于 2022-11-7 23:05</a>
+
+早期修卡战斗员 都能被小学生打爆 战斗力先过自行车</blockquote>
+脑子不行吧，**后遗症
+
