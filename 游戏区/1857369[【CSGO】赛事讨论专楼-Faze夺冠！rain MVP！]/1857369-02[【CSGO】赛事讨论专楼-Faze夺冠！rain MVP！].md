@@ -1162,3 +1162,14 @@ niko的夜店major就差小森了
 
 不意外，这下就剩年末blast总决赛最后一个赛事了，感觉🐝也不一定会换人，而且最近没换人的c9、黑豹直接3-0冠军组了
 
+
+
+*****
+
+####  dev2ce  
+##### 2763#       发表于 2022-11-8 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58328645&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-11-8 07:31</a>
+好，就等谁抬走Navi和x队了</blockquote>
+navi打big随便赢吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
