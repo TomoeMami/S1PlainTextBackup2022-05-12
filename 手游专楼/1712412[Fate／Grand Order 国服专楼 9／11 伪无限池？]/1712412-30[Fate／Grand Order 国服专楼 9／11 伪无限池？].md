@@ -825,3 +825,14 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  onezer0618  
+##### 43716#       发表于 2022-11-8 22:12
+
+叔叔打响指了？
+
+—— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
