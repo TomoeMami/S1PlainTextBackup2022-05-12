@@ -2873,3 +2873,19 @@ yia ki sw可以多用弓弩白嫖
 
 我前几天也问过这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  llysander  
+##### 1756#       发表于 2022-11-8 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58332338&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-8 11:55</a>
+
+6。
+
+感谢。
+
+具体就不有再说了哈。虽然这种框架已经挺常见了，但打到新章后，目前来看，无论是逻辑还是演出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">宇宙，盖亚相关是追章新加的， 不知道是否在作者原计划中 ，感觉是不在的，  所以续着多少有点别扭比方说把免费版最后直接给梦结局了，免费版就到最后一次真-重启再也没有篡改历史个人感觉也是挺好的收尾有始有终
+
