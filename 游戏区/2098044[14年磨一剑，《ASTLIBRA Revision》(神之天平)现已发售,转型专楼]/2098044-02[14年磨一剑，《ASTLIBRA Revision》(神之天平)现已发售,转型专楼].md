@@ -3304,3 +3304,14 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 因为刷得太多导致打隐藏BOSS变成了顺手就做了的事</blockquote>
 这是剧情性<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">，你是平行世界里最强的一个主角，隐藏boss 切菜啦
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1793#       发表于 2022-11-9 00:07
+
+快50小时才拿到弑神剑 
+之前打完了最终boss 又回来拿缺的徽了 
+挺爽的 还没进新章 缓缓 好久没这么肝游戏了上次肝还是xb3 没想到80块的游戏这么投入 甚至steam上的余额还没用完<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
