@@ -2957,3 +2957,17 @@ yia ki sw可以多用弓弩白嫖
 追章里面 板子镶嵌的宝石为什么我一直打不到</blockquote>
 地图固定位置捡的，每种属性唯一一个，算是宝物
 
+
+
+*****
+
+####  llysander  
+##### 1763#       发表于 2022-11-8 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58334840&amp;ptid=2098044" target="_blank">woodcoin 发表于 2022-11-8 14:37</a>
+
+追章里面 板子镶嵌的宝石为什么我一直打不到</blockquote>
+不是打的 ， 都在固定位置 每种一个
+
+大部分都塞在原流程里的关键地点，追章剧情又没理由经过的地方
+
