@@ -10198,3 +10198,46 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 抬头显示器：默认即可。</blockquote>
 
+
+
+*****
+
+####  Yason  
+##### 1054#       发表于 2022-11-9 00:22
+
+不是说有首日补丁吗，咋没有
+
+*****
+
+####  amanohanei  
+##### 1055#       发表于 2022-11-9 00:23
+
+这几天加班都忘了,买PS4版的 PS5的解锁吗?
+
+只有PS4,但是考虑一下未来嘛
+
+*****
+
+####  sunnyjee  
+##### 1056#       发表于 2022-11-9 00:24
+
+画质调了半天 vrr配合高帧太爽了 区别我真的看不出来<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fox  
+##### 1057#       发表于 2022-11-9 00:25
+
+启动游戏后系统菜单开始鬼畜，有没有一样的？
+
+*****
+
+####  heimu  
+##### 1058#       发表于 2022-11-9 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58344386&amp;ptid=2025548" target="_blank">amanohanei 发表于 2022-11-9 00:23</a>
+这几天加班都忘了,买PS4版的 PS5的解锁吗?
+
+只有PS4,但是考虑一下未来嘛</blockquote>
+加钱升级
+
