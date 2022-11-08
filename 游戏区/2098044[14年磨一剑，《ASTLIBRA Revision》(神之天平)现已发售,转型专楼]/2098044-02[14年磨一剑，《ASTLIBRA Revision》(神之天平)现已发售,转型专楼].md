@@ -3238,3 +3238,19 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 刚打完终章BOSS 是个终章存档 还没继续 倒也 ...</blockquote>
 你竞技场没打吗，竞技场给收集图鉴，也有几个徽章
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1788#       发表于 2022-11-8 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58341297&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-11-8 21:12</a>
+
+你竞技场没打吗，竞技场给收集图鉴，也有几个徽章</blockquote>
+看了下好像雪山漏了两个。。。。
+
+然后最后一个铁娘子还漏了一个
+
+铁娘子杯我打完了
+
