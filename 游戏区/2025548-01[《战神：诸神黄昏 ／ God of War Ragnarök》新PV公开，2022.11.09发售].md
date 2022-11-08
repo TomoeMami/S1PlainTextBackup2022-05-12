@@ -10261,3 +10261,14 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  咪姆  
+##### 1061#       发表于 2022-11-9 00:47
+
+这中文字体也太磕碜了吧，锯齿太多了
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
