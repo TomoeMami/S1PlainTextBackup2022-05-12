@@ -606,3 +606,17 @@ AN米娅应该这次落地了吧
 刚才夜露发了消息 邀请各位无人机去看月食； 都去给我看 ：）</blockquote>
 晒FA夜露的可恶家伙<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  madcow  
+##### 7451#       发表于 2022-11-8 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58341063&amp;ptid=1570791" target="_blank">江戸前ルナ 发表于 2022-11-8 20:51</a>
+
+晒FA夜露的可恶家伙</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">是系统通知那个吧
+
+顺便问下这种怎么看全啊，我是安卓的，每次只能显示一部分，点一下就没了
+

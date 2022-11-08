@@ -810,3 +810,18 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 4宝和5宝也差不了太多吧.....应该是我单体爆破能力最强的卡了，比起那些一宝五星来说
 
+
+
+*****
+
+####  电波系腑海林  
+##### 43715#       发表于 2022-11-8 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">ＢＢ 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情</blockquote>
+我超叔叔的阴兵突然发力，上游戏发现柱子快没了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -4555,3 +4555,13 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 
 怎么这就入团了，上集不是才做木屋吗
 
+
+
+*****
+
+####  千恋万花  
+##### 360#       发表于 2022-11-8 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58341179&amp;ptid=1994951" target="_blank">Alicest 发表于 2022-11-8 21:01</a>
+怎么这就入团了，上集不是才做木屋吗</blockquote><blockquote>得知 Job 子要去海边，布丁在不知道这是 DIY 社活动的情况下跟着参加了。</blockquote>暂时还没加入，只是一起玩
+

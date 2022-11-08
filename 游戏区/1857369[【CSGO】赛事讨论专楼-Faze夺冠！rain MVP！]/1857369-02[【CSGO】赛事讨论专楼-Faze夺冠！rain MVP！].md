@@ -1241,3 +1241,14 @@ navi赢了我就还有机会争钻石币<img src="https://static.saraba1st.com/i
 
 昨晚看到4点，开心的目送了小蜜蜂回家，大番薯回家局不杀人，SPINX血妈C都救不回来，赶紧多练练吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2771#         楼主| 发表于 2022-11-8 22:00
+
+斗鱼怎么又整了个超低配vrchat的傻逼功能
+
+小扎都快被元宇宙干死了这时候还入场是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

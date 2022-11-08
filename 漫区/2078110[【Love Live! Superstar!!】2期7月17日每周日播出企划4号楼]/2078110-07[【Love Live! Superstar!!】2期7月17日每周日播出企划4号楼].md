@@ -2325,3 +2325,12 @@ nagi ins直播中~
 
 <img src="https://img.saraba1st.com/forum/202211/08/214828b9wctuqlw5l50qe2.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kata魂  
+##### 9182#       发表于 2022-11-8 22:05
+
+s1没折叠有点吓人了啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
