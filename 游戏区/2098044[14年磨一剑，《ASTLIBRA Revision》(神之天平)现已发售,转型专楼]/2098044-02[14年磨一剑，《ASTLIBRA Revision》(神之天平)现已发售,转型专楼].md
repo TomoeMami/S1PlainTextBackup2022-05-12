@@ -3360,3 +3360,18 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 
 我怕剧透没爬楼
 
+
+
+*****
+
+####  redsouris  
+##### 1798#       发表于 2022-11-9 06:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58345481&amp;ptid=2098044" target="_blank">你知道我的 发表于 2022-11-9 04:25</a>
+求问有不同结局么？一周目能好结局么？
+
+我怕剧透没爬楼</blockquote>
+放心打，最后都是好结局
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
