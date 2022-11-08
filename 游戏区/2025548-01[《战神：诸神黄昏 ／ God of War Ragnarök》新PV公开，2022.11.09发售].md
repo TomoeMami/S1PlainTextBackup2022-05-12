@@ -9861,3 +9861,15 @@ ps5美区也有中文么
 
 我港服买了游戏，注册个新西兰新号在我ps5上，能不能提前玩我港服号的游戏。。。
 
+
+
+*****
+
+####  kuker53  
+##### 1024#       发表于 2022-11-8 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58331654&amp;ptid=2025548" target="_blank">ads147147 发表于 2022-11-8 11:19</a>
+
+我港服买了游戏，注册个新西兰新号在我ps5上，能不能提前玩我港服号的游戏。。。 ...</blockquote>
+哪可能这样...
+

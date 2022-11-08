@@ -1222,3 +1222,13 @@ navi赢了我就还有机会争钻石币<img src="https://static.saraba1st.com/i
 别急，社恐狙神必秒小森！</blockquote>
 社恐前几个赛事挺拉的，感觉要不是德国没什么狙击手都有失业危机了，而且不裹森还是强的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dev2ce  
+##### 2769#       发表于 2022-11-8 11:33
+
+蜜蜂今年还有一个冠军，只是豆啊，别红温了，家门口major至少进个淘汰赛吧
+而且蜜蜂csgo分部预算不多，也想不到人来换
+

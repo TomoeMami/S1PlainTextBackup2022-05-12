@@ -221,3 +221,24 @@ B站搜第一个就是翻车视频</blockquote>
 
 我的电源键好像会断，长按强制重启的时候屏幕会休眠点亮休眠点亮这样然后重启，这个是系统特性还是确实断了？
 
+
+
+*****
+
+####  医生狼多  
+##### 496#       发表于 2022-11-8 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58331822&amp;ptid=2086469" target="_blank">403page 发表于 2022-11-8 11:27</a>
+你的aya已经到货了？我上周刚退货</blockquote>
+不是我的啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你看图片右下角水印，现在连发货消息都没有
+
+*****
+
+####  403page  
+##### 497#       发表于 2022-11-8 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58331953&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-11-8 11:34</a>
+
+不是我的啊你看图片右下角水印，现在连发货消息都没有</blockquote>
+我就是估计发货要排到年后才退款的，换steamdeck得了
+
