@@ -1202,3 +1202,12 @@ navi打big随便赢吧</blockquote>
 
 小森会不定时手感拉没根本打不死人的 谁知道就不是恰好这会儿呢 
 
+
+
+*****
+
+####  ispep  
+##### 2767#       发表于 2022-11-8 10:12
+
+navi赢了我就还有机会争钻石币<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">加油呀，红温胖球
+

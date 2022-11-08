@@ -2555,3 +2555,22 @@ yia ki sw可以多用弓弩白嫖
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  redsouris  
+##### 1731#       发表于 2022-11-8 10:17
+
+ 本帖最后由 redsouris 于 2022-11-8 10:19 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58330262&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-8 10:02</a>
+终于肝到终章了 还没推进度 在打挑战BOSS 
+
+伊西利昂的左边那个花园BOSS女神挑战是有什么机制么
+
+为啥会有DOT ...</blockquote>
+妖精有几招不能防御，种蘑菇会禁凭依技
+另外下雨那招时间很长，每一滴都扣血还看不清楚，最好躲在两个台子下面打
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
