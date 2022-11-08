@@ -620,3 +620,17 @@ AN米娅应该这次落地了吧
 
 顺便问下这种怎么看全啊，我是安卓的，每次只能显示一部分，点一下就没了
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 7452#       发表于 2022-11-8 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58342168&amp;ptid=1570791" target="_blank">madcow 发表于 2022-11-8 22:09</a>
+
+是系统通知那个吧
+
+顺便问下这种怎么看全啊，我是安卓的，每次只能显示一部分，点一下就没了 ...</blockquote>
+手机没收到……<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+

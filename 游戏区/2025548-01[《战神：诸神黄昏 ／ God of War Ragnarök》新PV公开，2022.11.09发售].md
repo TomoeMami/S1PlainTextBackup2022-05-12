@@ -10108,3 +10108,20 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 预载好了，不着急玩，黎轨2打穿在玩。
 
+
+
+*****
+
+####  JudgmentEye  
+##### 1049#       发表于 2022-11-8 23:11
+
+有人试了，日版100%有中文
+
+<img src="https://img.saraba1st.com/forum/202211/08/231135urb233rdhg3hrbmr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (84.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-8 23:11 上传
+
