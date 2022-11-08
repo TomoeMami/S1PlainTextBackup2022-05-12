@@ -4078,3 +4078,26 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  eilot  
+##### 368#       发表于 2022-11-8 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58332275&amp;ptid=2075178" target="_blank">仟音一心 发表于 2022-11-8 11:51</a>
+
+还是期待一下远方的痞子来打吧
+
+这部和痞子奥的方向完全两个极端，全是私货影射路人观众或许还能看个 ...</blockquote>
+真哥总还是不错，有逐步逐步令观众紧张气氛，但真奥特曼剧情就非常赶，将一季内容塞在一集电影，每一幕刚想做出一些内容就转场
+
+不知道下套真骑士会如何
+
+*****
+
+####  游蜓  
+##### 369#       发表于 2022-11-8 13:08
+
+新奥最大的缺点还是打的不爽，预算支撑不了全cg的打戏，可惜
+

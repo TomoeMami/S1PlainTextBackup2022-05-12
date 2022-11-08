@@ -1232,3 +1232,12 @@ navi赢了我就还有机会争钻石币<img src="https://static.saraba1st.com/i
 蜜蜂今年还有一个冠军，只是豆啊，别红温了，家门口major至少进个淘汰赛吧
 而且蜜蜂csgo分部预算不多，也想不到人来换
 
+
+
+*****
+
+####  liva  
+##### 2770#       发表于 2022-11-8 13:02
+
+昨晚看到4点，开心的目送了小蜜蜂回家，大番薯回家局不杀人，SPINX血妈C都救不回来，赶紧多练练吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
