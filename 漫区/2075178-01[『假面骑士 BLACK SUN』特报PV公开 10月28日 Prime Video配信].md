@@ -4101,3 +4101,15 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 
 新奥最大的缺点还是打的不爽，预算支撑不了全cg的打戏，可惜
 
+
+
+*****
+
+####  仟音一心  
+##### 370#       发表于 2022-11-8 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58333503&amp;ptid=2075178" target="_blank">eilot 发表于 2022-11-8 13:06</a>
+
+真哥总还是不错，有逐步逐步令观众紧张气氛，但真奥特曼剧情就非常赶，将一季内容塞在一集电影，每一幕刚 ...</blockquote>
+新骑士主要是痞子自己导演了，应该有更好的处理办法
+
