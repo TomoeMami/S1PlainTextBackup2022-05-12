@@ -211,3 +211,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没火贝又要吃瘪了，全队反击造成的伤害是一方面，火贝本身这个db可以开局触发逆位皇帝也求之不得
 
+
+
+*****
+
+####  poor  
+##### 17186#       发表于 2022-11-8 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58328214&amp;ptid=1158205" target="_blank">nthrt 发表于 2022-11-8 02:28</a>
+风团前把所有素材都用来做隐者了，结果万圣池子井了风巫妖说皇帝才是best match ...</blockquote>
+我正相反，前面做了皇帝猎金其实也没猎几次，结果这次打牛吃鳖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
