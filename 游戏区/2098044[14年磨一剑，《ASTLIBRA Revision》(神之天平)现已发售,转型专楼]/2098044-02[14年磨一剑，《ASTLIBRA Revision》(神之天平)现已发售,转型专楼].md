@@ -3139,3 +3139,21 @@ yia ki sw可以多用弓弩白嫖
 
 BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shangfire  
+##### 1779#       发表于 2022-11-8 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58339883&amp;ptid=2098044" target="_blank">aka523 发表于 2022-11-8 19:22</a>
+哪里来的二段跳，怎么拿的?</blockquote>
+二段跳是初始乌鸦就带的，只不过要四个水晶
+
+*****
+
+####  Farlight  
+##### 1780#       发表于 2022-11-8 19:54
+
+第四章剧情太草了
+
