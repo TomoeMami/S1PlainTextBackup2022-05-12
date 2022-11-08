@@ -3179,3 +3179,24 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 
 装备盘是固定的吗，刷出三个之后，还能不能再刷把之前的替换掉
 
+
+
+*****
+
+####  tsubaki  
+##### 1783#       发表于 2022-11-8 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58340521&amp;ptid=2098044" target="_blank">jbtc2224052 发表于 2022-11-8 20:10</a>
+
+装备盘是固定的吗，刷出三个之后，还能不能再刷把之前的替换掉</blockquote>
+带KEIZO徽章会经常出主武器装备盘，可以重复顶替
+
+*****
+
+####  方舟失智博士  
+##### 1784#       发表于 2022-11-8 20:39
+
+终于打完终章了 隐藏挑战BOSS都打掉了 但我没有炼金书的配方 买不到服装店的衣服
+
+小徽章也要新章节才能获取开的吧
+
