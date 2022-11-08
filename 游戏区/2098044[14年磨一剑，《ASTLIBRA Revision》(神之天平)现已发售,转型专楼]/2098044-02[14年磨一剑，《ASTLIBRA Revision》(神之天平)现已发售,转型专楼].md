@@ -2913,3 +2913,36 @@ yia ki sw可以多用弓弩白嫖
 
 原来不是在海蛇洞窟 逛了好久原来在这里 要怎么下去
 
+
+
+*****
+
+####  九门惠  
+##### 1759#       发表于 2022-11-8 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58334940&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-8 14:42</a>
+
+原来不是在海蛇洞窟 逛了好久原来在这里 要怎么下去</blockquote>
+桥右边有个位置能到下层桥面 从下层桥面走到这一侧
+
+*****
+
+####  rio1563  
+##### 1760#       发表于 2022-11-8 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58334940&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-8 14:42</a>
+
+原来不是在海蛇洞窟 逛了好久原来在这里 要怎么下去</blockquote>
+走右边的桥，仔细观察一下右边山边上有个用哥布林石板开的门，开门进去走下面那条桥回到左边即可
+
+*****
+
+####  redsouris  
+##### 1761#       发表于 2022-11-8 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58334423&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-8 14:09</a>
+晚上试试，空中擒抱一直用不顺手</blockquote>
+那玩意你等它上头，原地盾防盾击也很容易破防
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
