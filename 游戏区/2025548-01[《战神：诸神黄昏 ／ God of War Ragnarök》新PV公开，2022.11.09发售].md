@@ -10016,3 +10016,12 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  kuker53  
+##### 1040#       发表于 2022-11-8 19:20
+
+豪华版的装备应该也能在游戏里收集到吧
+

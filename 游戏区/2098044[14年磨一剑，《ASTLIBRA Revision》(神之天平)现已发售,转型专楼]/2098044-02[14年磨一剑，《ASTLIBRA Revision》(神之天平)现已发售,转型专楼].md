@@ -3114,3 +3114,28 @@ yia ki sw可以多用弓弩白嫖
 只看作者的设计意图，那么明显个台子肯定是有用的，要把哥布林打下台子，他发波的时候你在台子上，就可以 ...</blockquote>
 哪里来的二段跳，怎么拿的?
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1777#       发表于 2022-11-8 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58339883&amp;ptid=2098044" target="_blank">aka523 发表于 2022-11-8 19:22</a>
+
+哪里来的二段跳，怎么拿的?</blockquote>
+二段跳是乌鸦自带的吧
+
+出门就有啊
+
+你嘉荣那里点亮
+
+*****
+
+####  black1991518  
+##### 1778#       发表于 2022-11-8 19:29
+
+哥布林的连续波可以用升龙邪道打过去，
+
+BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
