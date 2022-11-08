@@ -1182,3 +1182,14 @@ navi打big随便赢吧<img src="https://static.saraba1st.com/image/smiley/face20
 
 哦牛批，fnc争气了小蜜蜂滚了，这下可以宣布银币比钻石币好看了
 
+
+
+*****
+
+####  朔方原的星  
+##### 2765#         楼主| 发表于 2022-11-8 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58328864&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-11-8 08:12</a>
+navi打big随便赢吧</blockquote>
+别急，社恐狙神必秒小森！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
