@@ -10286,3 +10286,32 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 —— 来自 S1Fun</blockquote>
 草，不太妙啊，老头环要赢？
 
+
+
+*****
+
+####  轨迹老实人  
+##### 1063#       发表于 2022-11-9 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58344108&amp;ptid=2025548" target="_blank">医生狼多 发表于 2022-11-9 00:07</a></blockquote>
+上一作初始就有战神难度
+
+首发就有
+
+*****
+
+####  轨迹老实人  
+##### 1064#       发表于 2022-11-9 01:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完熊 连续弹反我最爱
+
+虽然只打了一些小兵 不过感觉难度比前作低了
+
+上一作一周目战神难度我在前几个战点死了很多次…
+
+这次感觉重击性能强多了 敌人攻击欲望也不那么强
+
+魔化后敌人也有硬直… 跟没魔化区别不大… 只是补个血
+
+不过敌人伤害还是很攒劲的… 战神难度大概小兵两刀半砍死老父亲样子
+
