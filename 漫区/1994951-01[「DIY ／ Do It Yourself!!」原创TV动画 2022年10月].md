@@ -4426,3 +4426,18 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 
 漫画版，self，世瑠风
 
+
+
+*****
+
+####  千恋万花  
+##### 350#       发表于 2022-11-8 12:21
+
+凌晨播放的 あにレコTV 请到了高橋花林和大森日雅。
+
+问了松尾祐輔第 6 集尤其花力气做的场景是什么，松尾说是后半小己与布丁的交谈，想表现出布丁帮小己扎头发后小己和往常不同的感觉。
+<img src="https://p.sda1.dev/8/422609a60fd1e4995cef5b0de63e4016/2022-11-08-1159_31.jpg" referrerpolicy="no-referrer">
+
+特别公开的新画面：
+<img src="https://p.sda1.dev/8/f63aae7ad2ef18f0f688a5cfbf94a87e/clipboard0-tile.jpg" referrerpolicy="no-referrer">
+
