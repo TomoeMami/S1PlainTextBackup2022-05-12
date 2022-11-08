@@ -3026,3 +3026,15 @@ yia ki sw可以多用弓弩白嫖
 哥布林王这个boss最恶心的地方就是地图中间放了个台子，好卡我位子气死我了 ...</blockquote>
 升龙卡到版边，然后一直挑空就脚打了。
 
+
+
+*****
+
+####  llysander  
+##### 1769#       发表于 2022-11-8 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58337413&amp;ptid=2098044" target="_blank">aka523 发表于 2022-11-8 16:56</a>
+
+哥布林王这个boss最恶心的地方就是地图中间放了个台子，好卡我位子气死我了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">没有这个台子刚到这里的时候，连续出波越来越快肯定跳不过了， 随后斗技场里的双哥布林又很体贴给了台子
+
