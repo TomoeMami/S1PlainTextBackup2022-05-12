@@ -683,3 +683,24 @@ dola应该是第二个原创曲出了。
 
 月奈时不时就忘记加桑叫selly，偶尔还互动一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 17697#       发表于 2022-11-8 20:44
+
+ 本帖最后由 FCCHua 于 2022-11-8 20:48 编辑 
+
+cpt真的只选择了想和谁一起玩，完全没考虑角色的构成，现在每个人都要玩的比较别扭，kmt只会chamber限制太大了，悲观来讲希望正赛不要倒一吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 17698#       发表于 2022-11-8 20:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58146630&amp;ptid=1972669" target="_blank">Porsche 发表于 2022-10-28 16:06</a>
+崩批好似</blockquote>
+不知道有没有找错人，找错了先抱歉了。
+我记得保时捷你们那个讨论群好像有个vtb唱片销量表的，请问有最新版本吗？我留的链接里面的数据好像全没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
