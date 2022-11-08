@@ -2852,3 +2852,24 @@ yia ki sw可以多用弓弩白嫖
 
 同样词条不重复，同类的 普通 强 极 重复
 
+
+
+*****
+
+####  adretyu67  
+##### 1754#       发表于 2022-11-8 14:20
+
+海蛇洞怎么回去？渔村两边都没有过去的路。
+
+*****
+
+####  shimotsuki14  
+##### 1755#       发表于 2022-11-8 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58334585&amp;ptid=2098044" target="_blank">adretyu67 发表于 2022-11-8 14:20</a>
+海蛇洞怎么回去？渔村两边都没有过去的路。</blockquote>
+到村子边上船
+或者直接世界树滴露
+
+我前几天也问过这个问题<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
