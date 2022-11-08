@@ -10053,3 +10053,12 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 这次sony国内公关提前发了这么多人游戏码吗？连谷大白话也写了几千字的评测。
 
+
+
+*****
+
+####  芷雅居  
+##### 1043#       发表于 2022-11-8 20:59
+
+全区中文？那我要跨日服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -3200,3 +3200,16 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 
 小徽章也要新章节才能获取开的吧
 
+
+
+*****
+
+####  蓝雉  
+##### 1785#         楼主| 发表于 2022-11-8 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58340912&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-8 20:39</a>
+终于打完终章了 隐藏挑战BOSS都打掉了 但我没有炼金书的配方 买不到服装店的衣服
+
+小徽章也要新章节才能获取 ...</blockquote>
+炼金书一周目可以获得的，肯定是漏徽章了
+

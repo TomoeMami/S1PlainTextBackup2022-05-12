@@ -704,3 +704,15 @@ cpt真的只选择了想和谁一起玩，完全没考虑角色的构成，现�
 不知道有没有找错人，找错了先抱歉了。
 我记得保时捷你们那个讨论群好像有个vtb唱片销量表的，请问有最新版本吗？我留的链接里面的数据好像全没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17699#       发表于 2022-11-8 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58281917&amp;ptid=1972669" target="_blank">noHentai 发表于 2022-11-5 10:03</a>
+不是说都没怎么聊过么，请了干啥，真就虚拟投降啊</blockquote>
+请问那个vtuber唱片销量榜还有在记录吗？
+我留链接的那个在线文件好像只剩德龙的了，不知道为什么<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

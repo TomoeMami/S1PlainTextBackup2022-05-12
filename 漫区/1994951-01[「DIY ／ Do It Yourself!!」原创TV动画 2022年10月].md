@@ -4527,3 +4527,22 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 
 —— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  很久就在那边l  
+##### 357#       发表于 2022-11-8 20:52
+
+创可贴怎么没了
+
+*****
+
+####  豚厨二象性  
+##### 358#       发表于 2022-11-8 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58341070&amp;ptid=1994951" target="_blank">很久就在那边l 发表于 2022-11-8 20:52</a>
+
+创可贴怎么没了</blockquote>
+说不定海边就要被贝壳划伤呢，总得留点位置吧
+

@@ -774,3 +774,14 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 草，月神、元素转换、卡姆兰之战的卡面又要恢复了
 
+
+
+*****
+
+####  Ousia  
+##### 43711#       发表于 2022-11-8 20:52
+
+我也是想捞hajime，结果卑弥呼和冲田小姐都补宝了，赶紧停手<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+上次捞美游上头了4单才出，结果后面每日又出了俩……现在在妄想这次每日是不是也能给我捞出来（
+

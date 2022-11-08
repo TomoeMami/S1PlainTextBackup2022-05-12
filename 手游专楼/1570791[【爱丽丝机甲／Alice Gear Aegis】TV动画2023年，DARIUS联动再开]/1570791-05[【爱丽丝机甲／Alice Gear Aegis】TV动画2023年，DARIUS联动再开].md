@@ -594,3 +594,15 @@ AN米娅应该这次落地了吧
 
 刚才夜露发了消息 邀请各位无人机去看月食； 都去给我看 ：）
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 7450#       发表于 2022-11-8 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58340911&amp;ptid=1570791" target="_blank">RioShiina 发表于 2022-11-8 20:39</a>
+
+刚才夜露发了消息 邀请各位无人机去看月食； 都去给我看 ：）</blockquote>
+晒FA夜露的可恶家伙<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
