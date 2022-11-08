@@ -4280,3 +4280,16 @@ FguGwNXVsAAhJlZ.jpg
 
 虚数竟然要再开地图<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3388#       发表于 2022-11-8 11:24
+
+明天中午，幕间本和强化本的减半就要结束了。
+
+另外限时任务“通关三个进阶任务（掉道具加成礼装那些机制本）”也同期结束，没打的可以做一下，白芙芙各5个加三百万QP。
+
+然后明天下午可能开活动，周常的狗粮任务可以提前做防止忘了。
+

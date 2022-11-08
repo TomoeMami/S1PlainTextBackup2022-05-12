@@ -1211,3 +1211,14 @@ navi打big随便赢吧</blockquote>
 
 navi赢了我就还有机会争钻石币<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">加油呀，红温胖球
 
+
+
+*****
+
+####  dev2ce  
+##### 2768#       发表于 2022-11-8 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58330182&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-11-8 09:57</a>
+别急，社恐狙神必秒小森！</blockquote>
+社恐前几个赛事挺拉的，感觉要不是德国没什么狙击手都有失业危机了，而且不裹森还是强的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -2596,3 +2596,37 @@ yia ki sw可以多用弓弩白嫖
 
 有没有知道主角长啥样？
 
+
+
+*****
+
+####  llysander  
+##### 1734#       发表于 2022-11-8 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58324696&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-7 20:30</a>
+
+竞技场第9关铁娘子杯的第四关要求不受伤害怎么打</blockquote>
+所有不受伤关卡都能装狂暴数值压过去， 还有打障碍物的关
+
+*****
+
+####  lilod  
+##### 1735#       发表于 2022-11-8 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58330824&amp;ptid=2098044" target="_blank">yla 发表于 2022-11-8 10:33</a>
+
+白有没有带回去影响一部分剧情和对话，以及第六还是第七章时候白会不会作为队友入队。对于整个完整剧情来 ...</blockquote>
+好的，差点以为自己立了不好的旗子（
+
+*****
+
+####  llysander  
+##### 1736#       发表于 2022-11-8 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325428&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-7 21:27</a>
+
+剧情讨论    男主连着两次跳跃时空 没选青梅竹马，这是把青梅竹马惹毛了吧 这青梅竹马的愤怒是不是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">全要 心态是挺有问题的，从头到尾天平，包括阿努比斯计划就是在反复说天平一边下去一边就会上来，有得有失无法两全，以及力量一定有代价。还是要坚持全要这也是主角脑子最轴的地方。
+
+选不选青梅的地方也有选项，给了两次就这么结束happy ending的机会。
+

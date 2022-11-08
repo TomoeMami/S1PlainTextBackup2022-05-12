@@ -202,3 +202,22 @@ B站搜第一个就是翻车视频</blockquote>
 比我预想的要大点，但实际显示面积和sd差不多</blockquote>
 无边框看起来真的舒服啊。
 
+
+
+*****
+
+####  403page  
+##### 494#       发表于 2022-11-8 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58327658&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-11-8 00:26</a>
+
+比我预想的要大点，但实际显示面积和sd差不多</blockquote>
+你的aya已经到货了？我上周刚退货
+
+*****
+
+####  distrowatch  
+##### 495#       发表于 2022-11-8 11:29
+
+我的电源键好像会断，长按强制重启的时候屏幕会休眠点亮休眠点亮这样然后重启，这个是系统特性还是确实断了？
+
