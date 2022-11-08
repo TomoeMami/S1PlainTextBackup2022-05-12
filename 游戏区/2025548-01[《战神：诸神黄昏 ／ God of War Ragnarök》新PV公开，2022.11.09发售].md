@@ -10272,3 +10272,17 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 —— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  CharlieZ-  
+##### 1062#       发表于 2022-11-9 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58344581&amp;ptid=2025548" target="_blank">陈词与芍药 发表于 2022-11-9 00:39</a>
+
+认同部分观点
+
+—— 来自 S1Fun</blockquote>
+草，不太妙啊，老头环要赢？
+
