@@ -2946,3 +2946,14 @@ yia ki sw可以多用弓弩白嫖
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  AeonsTorn  
+##### 1762#       发表于 2022-11-8 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58334840&amp;ptid=2098044" target="_blank">woodcoin 发表于 2022-11-8 14:37</a>
+追章里面 板子镶嵌的宝石为什么我一直打不到</blockquote>
+地图固定位置捡的，每种属性唯一一个，算是宝物
+
