@@ -4064,3 +4064,17 @@ AMAZONS的TV剧情感官比较好，就是因为核心的“杀光AMAZONS，一�
 还是期待一下远方的痞子来打吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 这部和痞子奥的方向完全两个极端，全是私货影射路人观众或许还能看个热闹，对来打厨来说简直是噩梦。痞子则是作为一个死忠特摄厨在拍新特摄系列，路人观感可能照顾不到，但核心厨还是能看爽的。
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 367#       发表于 2022-11-8 12:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58332275&amp;ptid=2075178" target="_blank">仟音一心 发表于 2022-11-8 11:51</a>
+还是期待一下远方的痞子来打吧
+这部和痞子奥的方向完全两个极端，全是私货影射路人观众或许还能看个 ...</blockquote>
+就怕坐一起开会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
