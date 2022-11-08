@@ -9998,3 +9998,21 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 不管了，港版比美版解锁早太多，在买早享受<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yason  
+##### 1038#       发表于 2022-11-8 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这作所有装备都能升级，我想整豪华版了但是已经预购了普通版怎么破
+
+*****
+
+####  Avantasi  
+##### 1039#       发表于 2022-11-8 19:13
+
+退了重新弄吧
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

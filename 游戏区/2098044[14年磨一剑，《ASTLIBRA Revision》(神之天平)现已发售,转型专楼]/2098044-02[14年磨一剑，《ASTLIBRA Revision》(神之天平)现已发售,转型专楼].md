@@ -3103,3 +3103,14 @@ yia ki sw可以多用弓弩白嫖
 只看作者的设计意图，那么明显个台子肯定是有用的，要把哥布林打下台子，他发波的时候你在台子上，就可以 ...</blockquote>
 大牛
 
+
+
+*****
+
+####  aka523  
+##### 1776#       发表于 2022-11-8 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58339405&amp;ptid=2098044" target="_blank">shangfire 发表于 2022-11-8 18:52</a>
+只看作者的设计意图，那么明显个台子肯定是有用的，要把哥布林打下台子，他发波的时候你在台子上，就可以 ...</blockquote>
+哪里来的二段跳，怎么拿的?
+
