@@ -9969,3 +9969,23 @@ ps5美区也有中文么
 
 等解锁
 
+
+
+*****
+
+####  kuker53  
+##### 1035#       发表于 2022-11-8 18:24
+
+提前几小时，情绪稳定，只要不是像之前那个叫什么来着游戏提前几个礼拜都直播上了就行
+
+*****
+
+####  JudgmentEye  
+##### 1036#       发表于 2022-11-8 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58337043&amp;ptid=2025548" target="_blank">余情自取 发表于 2022-11-8 16:35</a>
+
+好像新区并没有中文还是乖乖等12点解锁了</blockquote>
+全区中文，新西兰区就是欧版
+https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
+

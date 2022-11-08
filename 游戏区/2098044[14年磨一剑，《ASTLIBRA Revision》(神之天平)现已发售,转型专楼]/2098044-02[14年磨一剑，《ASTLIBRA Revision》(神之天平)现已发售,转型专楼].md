@@ -3050,3 +3050,23 @@ yia ki sw可以多用弓弩白嫖
 艹，它不是boss啊，连着打沼泽之王吃不消啊，死档了干</blockquote>
 狗子钻胯下用土杖逃课打满额，只有一个连续两连挺胸的攻击可以打到你 前摇非常明显很容易回避掉
 
+
+
+*****
+
+####  aka523  
+##### 1771#       发表于 2022-11-8 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58338246&amp;ptid=2098044" target="_blank">shangfire 发表于 2022-11-8 17:40</a>
+这台子不就是用来让你站上面跳起来躲连续波的吗</blockquote>
+那个连续波跳起来也能被打到吧?
+
+*****
+
+####  aka523  
+##### 1772#       发表于 2022-11-8 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58338726&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-8 18:09</a>
+没有这个台子刚到这里的时候，连续出波越来越快肯定跳不过了， 随后斗技场里的双哥布林又很体贴给 ...</blockquote>
+那个连续波要怎么跳过去?我是在boss放这招前用雷枪穿到它背后躲的
+
