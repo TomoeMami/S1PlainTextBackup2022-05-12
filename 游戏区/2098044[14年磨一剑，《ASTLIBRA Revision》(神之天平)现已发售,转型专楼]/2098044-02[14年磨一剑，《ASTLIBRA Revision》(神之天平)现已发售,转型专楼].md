@@ -2971,3 +2971,15 @@ yia ki sw可以多用弓弩白嫖
 
 大部分都塞在原流程里的关键地点，追章剧情又没理由经过的地方
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1764#       发表于 2022-11-8 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58335060&amp;ptid=2098044" target="_blank">rio1563 发表于 2022-11-8 14:48</a>
+走右边的桥，仔细观察一下右边山边上有个用哥布林石板开的门，开门进去走下面那条桥回到左边即可 ...</blockquote>
+谢谢 找到了 这个箱子是水晶 
+我少的那个海蛇洞的衣服其实自己早有了 但当时没练<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer"> 太傻了
+
