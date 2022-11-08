@@ -3038,3 +3038,15 @@ yia ki sw可以多用弓弩白嫖
 哥布林王这个boss最恶心的地方就是地图中间放了个台子，好卡我位子气死我了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">没有这个台子刚到这里的时候，连续出波越来越快肯定跳不过了， 随后斗技场里的双哥布林又很体贴给了台子
 
+
+
+*****
+
+####  llysander  
+##### 1770#       发表于 2022-11-8 18:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58338058&amp;ptid=2098044" target="_blank">aka523 发表于 2022-11-8 17:29</a>
+
+艹，它不是boss啊，连着打沼泽之王吃不消啊，死档了干</blockquote>
+狗子钻胯下用土杖逃课打满额，只有一个连续两连挺胸的攻击可以打到你 前摇非常明显很容易回避掉
+
