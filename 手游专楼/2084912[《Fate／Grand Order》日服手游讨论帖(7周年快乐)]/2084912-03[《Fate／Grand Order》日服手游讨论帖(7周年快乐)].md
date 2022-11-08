@@ -4326,3 +4326,15 @@ FguGwNXVsAAhJlZ.jpg
 
 希望不要太早贬值<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3392#       发表于 2022-11-8 20:31
+
+清大海战地图打着打着突然就跳回初始界面了
+怪打完了地图就不给看了还行<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

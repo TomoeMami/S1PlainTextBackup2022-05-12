@@ -674,3 +674,12 @@ live上说了想请的，但星姐那时喉咙做了手术出不了声
 
 dola应该是第二个原创曲出了。
 
+
+
+*****
+
+####  poipanchao  
+##### 17696#       发表于 2022-11-8 20:22
+
+月奈时不时就忘记加桑叫selly，偶尔还互动一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

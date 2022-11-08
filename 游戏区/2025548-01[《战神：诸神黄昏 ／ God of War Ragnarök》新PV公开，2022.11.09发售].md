@@ -10044,3 +10044,12 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  chizuru  
+##### 1042#       发表于 2022-11-8 20:27
+
+这次sony国内公关提前发了这么多人游戏码吗？连谷大白话也写了几千字的评测。
+

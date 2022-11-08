@@ -4500,3 +4500,17 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 
 —— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  豚厨二象性  
+##### 355#       发表于 2022-11-8 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58340666&amp;ptid=1994951" target="_blank">最强惠酱 发表于 2022-11-8 20:20</a>
+
+淦，布丁好涩
+
+—— 来自 samsung SM-G981N, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+穿工装裤的时候尤其<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
