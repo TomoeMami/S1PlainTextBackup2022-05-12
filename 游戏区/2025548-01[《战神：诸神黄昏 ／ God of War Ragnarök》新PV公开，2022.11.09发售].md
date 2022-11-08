@@ -10062,3 +10062,22 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 全区中文？那我要跨日服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  livelive  
+##### 1044#       发表于 2022-11-8 21:09
+
+用PS4PRO可以跑几帧？
+
+*****
+
+####  JudgmentEye  
+##### 1045#       发表于 2022-11-8 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58341265&amp;ptid=2025548" target="_blank">livelive 发表于 2022-11-8 21:09</a>
+
+用PS4PRO可以跑几帧？</blockquote>
+有人说40多
+

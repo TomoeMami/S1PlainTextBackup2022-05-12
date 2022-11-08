@@ -3213,3 +3213,28 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 小徽章也要新章节才能获取 ...</blockquote>
 炼金书一周目可以获得的，肯定是漏徽章了
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1786#       发表于 2022-11-8 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58341129&amp;ptid=2098044" target="_blank">蓝雉 发表于 2022-11-8 20:57</a>
+
+炼金书一周目可以获得的，肯定是漏徽章了</blockquote>
+有办法看漏了几个么 我知道25个出书 我现在喂了几个能看到么
+
+刚打完终章BOSS 是个终章存档 还没继续 倒也可以重打
+
+*****
+
+####  蓝雉  
+##### 1787#         楼主| 发表于 2022-11-8 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58341270&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-8 21:09</a>
+有办法看漏了几个么 我知道25个出书 我现在喂了几个能看到么
+
+刚打完终章BOSS 是个终章存档 还没继续 倒也 ...</blockquote>
+你竞技场没打吗，竞技场给收集图鉴，也有几个徽章
+
