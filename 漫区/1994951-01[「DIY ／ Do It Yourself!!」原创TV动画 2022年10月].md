@@ -4489,3 +4489,14 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 
 好耶
 
+
+
+*****
+
+####  最强惠酱  
+##### 354#       发表于 2022-11-8 20:20
+
+淦，布丁好涩<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
