@@ -3269,3 +3269,20 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 铁娘子杯我打完了 ...</blockquote>
 铁娘子头两个区域各有一个全清宝箱
 
+
+
+*****
+
+####  redsouris  
+##### 1790#       发表于 2022-11-8 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58341357&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-8 21:17</a>
+看了下好像雪山漏了两个。。。。
+
+然后最后一个铁娘子还漏了一个
+
+铁娘子杯我打完了 ...</blockquote>
+铁娘子一个徽章是全清宝箱，一个是最后存档点房间左上有个箭靶
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

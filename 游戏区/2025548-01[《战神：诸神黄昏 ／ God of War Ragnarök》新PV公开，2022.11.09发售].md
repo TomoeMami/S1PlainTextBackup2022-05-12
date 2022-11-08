@@ -10081,3 +10081,14 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 用PS4PRO可以跑几帧？</blockquote>
 有人说40多
 
+
+
+*****
+
+####  clover293  
+##### 1046#       发表于 2022-11-8 22:25
+
+索尼把sop和showcase的钱都给国内up主发码了吗？
+
+笑死
+
