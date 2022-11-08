@@ -9852,3 +9852,12 @@ ps5美区也有中文么
 
 索尼不能转区吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">感觉麻烦的要死
 
+
+
+*****
+
+####  ads147147  
+##### 1023#       发表于 2022-11-8 11:19
+
+我港服买了游戏，注册个新西兰新号在我ps5上，能不能提前玩我港服号的游戏。。。
+
