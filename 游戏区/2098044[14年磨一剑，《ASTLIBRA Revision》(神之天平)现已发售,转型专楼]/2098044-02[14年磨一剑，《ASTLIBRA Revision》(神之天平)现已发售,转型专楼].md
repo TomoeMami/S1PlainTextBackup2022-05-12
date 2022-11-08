@@ -2690,3 +2690,22 @@ yia ki sw可以多用弓弩白嫖
 
 抱头螃蟹好烦，还得抡大锤
 
+
+
+*****
+
+####  jy000129  
+##### 1741#       发表于 2022-11-8 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58332218&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-8 11:49</a>
+
+不是，但盖亚是宇宙漂流过来定居星球，一心想引导物种多样性让星球的演化续下去的神（）洛夫克拉夫特语境 ...</blockquote>
+神是造物主造物，受造物主控制，不能反抗造物主和限制器，而人类是现在的神造物，不受造物主直接控制，可以对造物主和限制器出手，男主只是神之天平计划培养出来的最强战士而已，说特殊当然也特殊，但整个人族对神来说都是特殊的
+
+*****
+
+####  永远的访客  
+##### 1742#       发表于 2022-11-8 12:21
+
+昨晚把第3章的装备全做出来再练到精通，顺便练了1级，加了一堆点数解放了几个新凭依，轻松把boss给剁了，感想就想骂粪设计骗我时间，今晚继续<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

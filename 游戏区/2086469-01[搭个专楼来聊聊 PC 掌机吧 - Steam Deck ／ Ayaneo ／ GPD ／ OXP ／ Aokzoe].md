@@ -242,3 +242,16 @@ B站搜第一个就是翻车视频</blockquote>
 不是我的啊你看图片右下角水印，现在连发货消息都没有</blockquote>
 我就是估计发货要排到年后才退款的，换steamdeck得了
 
+
+
+*****
+
+####  luffyzhou  
+##### 498#       发表于 2022-11-8 12:25
+
+ 本帖最后由 luffyzhou 于 2022-11-8 12:26 编辑 
+
+我的sd已经到了，和air pro比真大，我的aya2还没退，不过和重量差不多的aya 2021比手感确实好，同样是玩哈迪斯和p5r，sd的屏幕和oled的air比确实太淡了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9360, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
