@@ -634,3 +634,28 @@ AN米娅应该这次落地了吧
 顺便问下这种怎么看全啊，我是安卓的，每次只能显示一部分，点一下就没了 ...</blockquote>
 手机没收到……<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RioShiina  
+##### 7453#       发表于 2022-11-8 23:11
+
+<blockquote>madcow 发表于 2022-11-8 22:09
+是系统通知那个吧
+
+顺便问下这种怎么看全啊，我是安卓的，每次只能显示一部分，点一下就没了 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202211/08/230956m08x111a0znat5jw.jpg" referrerpolicy="no-referrer">
+
+<strong>20221108_230915.jpg</strong> (89.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-8 23:09 上传
+
+截图吧大概 ：（  
+
+弹出消息不小心点开就看不到了..
+
