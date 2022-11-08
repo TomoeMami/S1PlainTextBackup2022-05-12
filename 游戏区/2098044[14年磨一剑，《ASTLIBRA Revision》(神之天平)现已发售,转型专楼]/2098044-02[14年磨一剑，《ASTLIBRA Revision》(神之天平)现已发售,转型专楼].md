@@ -3082,3 +3082,24 @@ yia ki sw可以多用弓弩白嫖
 那个连续波要怎么跳过去?我是在boss放这招前用雷枪穿到它背后躲的</blockquote>
 穿背、石盾加盾挡、挑空到屏幕外。
 
+
+
+*****
+
+####  shangfire  
+##### 1774#       发表于 2022-11-8 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58339064&amp;ptid=2098044" target="_blank">aka523 发表于 2022-11-8 18:33</a>
+那个连续波要怎么跳过去?我是在boss放这招前用雷枪穿到它背后躲的</blockquote>
+只看作者的设计意图，那么明显个台子肯定是有用的，要把哥布林打下台子，他发波的时候你在台子上，就可以跳躲波了，而且还有一个经典老套路，不要贪二段跳，因为二段跳滞空太久，一段跳是刚好节奏合适的
+至于逃课你就看别的**怎么说的了
+
+*****
+
+####  shangfire  
+##### 1775#       发表于 2022-11-8 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58339405&amp;ptid=2098044" target="_blank">shangfire 发表于 2022-11-8 18:52</a>
+只看作者的设计意图，那么明显个台子肯定是有用的，要把哥布林打下台子，他发波的时候你在台子上，就可以 ...</blockquote>
+大牛
+
