@@ -564,3 +564,12 @@ AN米娅应该这次落地了吧
 
 —— 来自 Xiaomi Redmi K30i 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yygundam  
+##### 7447#       发表于 2022-11-8 17:51
+
+又进入了无池想抽的阶段。什么时候再来个联动吧，反正你游超过1/3的角色都是联动角色了，不在乎再多几个（
+
