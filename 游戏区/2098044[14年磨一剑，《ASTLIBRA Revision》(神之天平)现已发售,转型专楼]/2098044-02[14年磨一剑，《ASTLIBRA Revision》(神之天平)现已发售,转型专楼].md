@@ -2765,3 +2765,39 @@ yia ki sw可以多用弓弩白嫖
 抱头螃蟹好烦，还得抡大锤</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">起跳空中泥头车克抱头蟹 全判定都撞身上一秒break
 
+
+
+*****
+
+####  llysander  
+##### 1748#       发表于 2022-11-8 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58333301&amp;ptid=2098044" target="_blank">shangfire 发表于 2022-11-8 12:53</a>
+
+重开荒谬难度刚打完第一章，有几个问题问一下
+
+属性相克是怎样的，为啥我14级全力量再加风属性提升，用风匕 ...</blockquote>
+属性两两相克（但是掉force不一定是自己的属性不能这么来区分，基本只记什么东西是什么属性就行了）
+
+然后希尔弗 伊弗列特那一系要用“克制的属性”打才增伤
+
+升级的成长衰减跟等级有关，比方说10级点14到17攻防成长最高 18开始下降之类，词条上的衰减会往18+n
+
+*****
+
+####  llysander  
+##### 1749#       发表于 2022-11-8 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58333434&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-8 13:02</a>
+
+终章门口了 
+
+想问下新章是继承的概念么然后终章门口差3个技能大佬帮帮看漏了啥
+
+隐藏挑战差个花园的女武神没 ...</blockquote>
+状态应该是 强健 ，比较前期的铠甲上的 好像海蛇洞 
+
+技能最下面是 无限反重力 ex面里给的甲上的
+
+特殊最后一个是 收集全武器铠甲盾后老头给的剑上
+
