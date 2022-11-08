@@ -1563,3 +1563,25 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 2022-11-8 17:47 上传
 
+
+
+*****
+
+####  athena_1982  
+##### 744#       发表于 2022-11-9 03:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58338358&amp;ptid=2040765" target="_blank">Case 发表于 2022-11-8 17:47</a>
+
+目测大概这样，冲过去帮德凯。但飞的太近被一尾巴抽下去了。</blockquote>
+感谢灵魂画师<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+*****
+
+####  carrasco21  
+##### 745#       发表于 2022-11-9 05:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58338358&amp;ptid=2040765" target="_blank">Case 发表于 2022-11-8 17:47</a>
+
+目测大概这样，冲过去帮德凯。但飞的太近被一尾巴抽下去了。</blockquote>
+哇浪，你好会画兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

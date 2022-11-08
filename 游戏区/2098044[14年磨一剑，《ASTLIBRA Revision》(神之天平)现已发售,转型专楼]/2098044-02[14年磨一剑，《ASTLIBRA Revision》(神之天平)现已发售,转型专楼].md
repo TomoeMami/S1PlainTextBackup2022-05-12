@@ -3338,3 +3338,25 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 
 最终boss刮的也太折磨了，少拿一把神杀剑，新章再说吧
 
+
+
+*****
+
+####  pf67  
+##### 1796#       发表于 2022-11-9 03:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58343681&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-8 23:44</a>
+因为刷得太多导致打隐藏BOSS变成了顺手就做了的事</blockquote>
+新章甚至从剧情上解释了这点。
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  你知道我的  
+##### 1797#       发表于 2022-11-9 04:25
+
+求问有不同结局么？一周目能好结局么？
+
+我怕剧透没爬楼
+

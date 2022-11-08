@@ -10367,3 +10367,69 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 演出也很好 无限看好
 
+
+
+*****
+
+####  amanohanei  
+##### 1070#       发表于 2022-11-9 01:52
+
+为什么我这的字幕和UI字都颗粒感好强,设置里把胶片那栏调最低也没用
+
+是因为2K显示器 但我只能输出1080吗?
+
+*****
+
+####  Fuero  
+##### 1071#       发表于 2022-11-9 02:05
+
+<blockquote>amanohanei 发表于 2022-11-9 01:52
+为什么我这的字幕和UI字都颗粒感好强,设置里把胶片那栏调最低也没用
+
+是因为2K显示器 但我只能输出1080吗? ...</blockquote>
+风格如此吧，我4K120和4K60、4K40都试过，都是一股锯齿感，英文字体也如此
+
+*****
+
+####  amanohanei  
+##### 1072#       发表于 2022-11-9 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58345213&amp;ptid=2025548" target="_blank">Fuero 发表于 2022-11-9 02:05</a>
+
+风格如此吧，我4K120和4K60、4K40都试过，都是一股锯齿感，英文字体也如此</blockquote>
+那就好,感谢解惑
+
+*****
+
+####  kilkilo  
+##### 1073#       发表于 2022-11-9 02:14
+
+ps4 pro怎么风扇狂转的，声音打到影响正常游戏了，有坛友知道这是正常情况吗？还是说我买来就没清理过需要清一下
+
+*****
+
+####  Leona_Akari  
+##### 1074#       发表于 2022-11-9 02:36
+
+序章打完了，一如既往，目前确实有点1.5的感觉，优点还是优点，这一镜到底在ps5上就有点蠢了，传送这故意走一大段<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  系色可符香  
+##### 1075#       发表于 2022-11-9 04:57
+
+双刀比前作强，打人形怪很好用，有点上瘾了
+
+*****
+
+####  无动于衷  
+##### 1076#       发表于 2022-11-9 05:40
+
+<blockquote>小妹 发表于 2022-11-8 23:42
+日服psn点卡涨价了吗…怀念416
+
+—— 来自 S1Fun</blockquote>
+这游戏日服是Z级恐怕不能用点卡
+

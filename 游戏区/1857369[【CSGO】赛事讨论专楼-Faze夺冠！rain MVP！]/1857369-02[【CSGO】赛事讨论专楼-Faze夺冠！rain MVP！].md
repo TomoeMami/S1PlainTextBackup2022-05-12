@@ -1281,3 +1281,32 @@ navi赢了我就还有机会争钻石币<img src="https://static.saraba1st.com/i
 
 此外，Astralis将携青训选手Kristou随队征战。现年20岁的Kristou也是继MistR之后第二位从青训队提拔至主队阵容的选手。
 
+
+
+*****
+
+####  Rainwedell  
+##### 2775#       发表于 2022-11-9 02:56
+
+不是这设备是什么活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，还能这样玩的？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  CharlieZ-  
+##### 2776#       发表于 2022-11-9 03:27
+
+faze除了broky还有没有二号战犯，总感觉他们拿了冠军度完假之后状态就不对劲了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 2777#       发表于 2022-11-9 03:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58345419&amp;ptid=1857369" target="_blank">CharlieZ- 发表于 2022-11-9 03:27</a>
+faze除了broky还有没有二号战犯，总感觉他们拿了冠军度完假之后状态就不对劲了 ...</blockquote>
+你一定要说的话其实是大表哥，甚至比broky锅更大<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">，选图和进攻是这次faze最烂的两个点，k肯定负主要责任，与其说生死局broky烂了，不如想想为什么进生死局。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
