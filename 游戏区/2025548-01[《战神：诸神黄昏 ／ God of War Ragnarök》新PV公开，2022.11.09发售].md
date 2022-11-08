@@ -9895,3 +9895,35 @@ ps5美区也有中文么
 游戏买在哪个服就是哪个时间解锁。我一直都是买游戏在我朋友的港服号上，然后用我自己的日服号玩，只能等 ...</blockquote>
 哎，反正几年就那么几次，全平台游戏可以直接xbox当新西兰人，就索尼这里最麻烦。
 
+
+
+*****
+
+####  clover293  
+##### 1027#       发表于 2022-11-8 16:32
+
+话说索尼还不发launch trailer啊
+
+*****
+
+####  余情自取  
+##### 1028#       发表于 2022-11-8 16:35
+
+好像新区并没有中文<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是乖乖等12点解锁了
+
+*****
+
+####  lazycat233  
+##### 1029#       发表于 2022-11-8 16:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">好讨厌厂商给主播提前解锁
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  clover293  
+##### 1030#       发表于 2022-11-8 16:40
+
+突然觉得终极版提前解锁还是有那么点市场的，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
