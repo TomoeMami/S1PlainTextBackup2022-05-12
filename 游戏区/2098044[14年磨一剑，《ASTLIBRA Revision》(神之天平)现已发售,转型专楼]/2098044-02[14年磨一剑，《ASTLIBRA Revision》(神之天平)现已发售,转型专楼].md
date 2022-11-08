@@ -2739,3 +2739,17 @@ yia ki sw可以多用弓弩白嫖
 终章门口了 
 想问下新章是继承的概念么
 
+
+
+*****
+
+####  zhangzlo  
+##### 1746#       发表于 2022-11-8 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58332218&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-8 11:49</a>
+
+不是，但盖亚是宇宙漂流过来定居星球，一心想引导物种多样性让星球的演化续下去的神（）洛夫克拉夫特语境 ...</blockquote>
+在工会天天蹭饮料的那哥们就这么没了？
+
+感觉他挺神秘来着。。
+
