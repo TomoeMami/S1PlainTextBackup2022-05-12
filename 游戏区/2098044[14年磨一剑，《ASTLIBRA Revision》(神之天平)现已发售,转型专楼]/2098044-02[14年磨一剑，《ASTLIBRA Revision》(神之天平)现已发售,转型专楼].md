@@ -3157,3 +3157,25 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 
 第四章剧情太草了
 
+
+
+*****
+
+####  aka523  
+##### 1781#       发表于 2022-11-8 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58339936&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-8 19:26</a>
+二段跳是乌鸦自带的吧
+
+出门就有啊
+
+你嘉荣那里点亮</blockquote>
+艹，我一直不知道
+
+*****
+
+####  jbtc2224052  
+##### 1782#       发表于 2022-11-8 20:10
+
+装备盘是固定的吗，刷出三个之后，还能不能再刷把之前的替换掉
+

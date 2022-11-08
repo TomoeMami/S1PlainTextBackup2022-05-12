@@ -14712,3 +14712,29 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 会限提醒邮件没找到
 
+
+
+*****
+
+####  holoan  
+##### 2905#         楼主| 发表于 2022-11-8 20:05
+
+[https://youtu.be/wkYmeEkQ4lU](https://youtu.be/wkYmeEkQ4lU)
+
+推上有人发了
+
+*****
+
+####  ZQXY2002  
+##### 2906#       发表于 2022-11-8 20:05
+
+地址有啊，我为了证实答案翻了社区才发的。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=wkYmeEkQ4lU](https://www.youtube.com/watch?v=wkYmeEkQ4lU)
+
+*****
+
+####  holoan  
+##### 2907#         楼主| 发表于 2022-11-8 20:06
+
+2年前的东西社区还能翻得到呢 我是没去翻
+
