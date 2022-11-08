@@ -2983,3 +2983,12 @@ yia ki sw可以多用弓弩白嫖
 谢谢 找到了 这个箱子是水晶 
 我少的那个海蛇洞的衣服其实自己早有了 但当时没练<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer"> 太傻了
 
+
+
+*****
+
+####  aka523  
+##### 1765#       发表于 2022-11-8 16:56
+
+哥布林王这个boss最恶心的地方就是地图中间放了个台子，好卡我位子气死我了
+
