@@ -9873,3 +9873,25 @@ ps5美区也有中文么
 我港服买了游戏，注册个新西兰新号在我ps5上，能不能提前玩我港服号的游戏。。。 ...</blockquote>
 哪可能这样...
 
+
+
+*****
+
+####  banjia0815  
+##### 1025#       发表于 2022-11-8 11:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58331654&amp;ptid=2025548" target="_blank">ads147147 发表于 2022-11-8 11:19</a>
+
+我港服买了游戏，注册个新西兰新号在我ps5上，能不能提前玩我港服号的游戏。。。 ...</blockquote>
+游戏买在哪个服就是哪个时间解锁。我一直都是买游戏在我朋友的港服号上，然后用我自己的日服号玩，只能等港服12点解锁，按岛国时区我得到1点才能玩。现在全区游戏越来越多，想弄个新西兰小号了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 1026#       发表于 2022-11-8 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58332127&amp;ptid=2025548" target="_blank">banjia0815 发表于 2022-11-8 11:45</a>
+
+游戏买在哪个服就是哪个时间解锁。我一直都是买游戏在我朋友的港服号上，然后用我自己的日服号玩，只能等 ...</blockquote>
+哎，反正几年就那么几次，全平台游戏可以直接xbox当新西兰人，就索尼这里最麻烦。
+
