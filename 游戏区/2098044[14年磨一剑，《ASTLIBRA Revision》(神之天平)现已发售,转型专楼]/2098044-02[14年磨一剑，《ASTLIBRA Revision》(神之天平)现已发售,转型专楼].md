@@ -3070,3 +3070,15 @@ yia ki sw可以多用弓弩白嫖
 没有这个台子刚到这里的时候，连续出波越来越快肯定跳不过了， 随后斗技场里的双哥布林又很体贴给 ...</blockquote>
 那个连续波要怎么跳过去?我是在boss放这招前用雷枪穿到它背后躲的
 
+
+
+*****
+
+####  管住键政的手  
+##### 1773#       发表于 2022-11-8 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58339064&amp;ptid=2098044" target="_blank">aka523 发表于 2022-11-8 18:33</a>
+
+那个连续波要怎么跳过去?我是在boss放这招前用雷枪穿到它背后躲的</blockquote>
+穿背、石盾加盾挡、挑空到屏幕外。
+

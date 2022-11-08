@@ -14620,3 +14620,55 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 想了一下是大半年以前制作的东西了，梗都馊了也没什么意思……
 
+
+
+*****
+
+####  holoan  
+##### 2897#         楼主| 发表于 2022-11-8 18:40
+
+<img src="https://img.saraba1st.com/forum/202211/08/184004tz5atm77x7rr7z7e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (41.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-8 18:40 上传
+
+<img src="https://img.saraba1st.com/forum/202211/08/183908hf0j0fz5088c8ef5.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-8 18:39 上传
+
+为什么这张配图有粉丝看到突然哭了？看看有没有人懂
+
+*****
+
+####  rs5621  
+##### 2898#       发表于 2022-11-8 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">当年病快好的时候用的封面
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 2899#       发表于 2022-11-8 18:45
+
+不知道现在的新粉，还会不会看几年前的档
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 2900#       发表于 2022-11-8 18:45
+
+ 本帖最后由 rs5621 于 2022-11-8 18:48 编辑 
+
+深夜的时候，还时不时翻老档看，以前的声线很软没现在这么嚣张，当背景音还挺带感的。
+
