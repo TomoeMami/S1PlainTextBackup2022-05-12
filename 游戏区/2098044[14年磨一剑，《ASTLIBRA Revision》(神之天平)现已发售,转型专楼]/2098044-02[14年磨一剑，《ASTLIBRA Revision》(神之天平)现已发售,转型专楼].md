@@ -2474,3 +2474,17 @@ yia ki sw可以多用弓弩白嫖
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  onlv星骸  
+##### 1724#       发表于 2022-11-8 08:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58328346&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-8 03:52</a>
+
+新章没地方卖回2000血的药了吗
+
+家里商店最高是+900，野外店直接+4000 ...</blockquote>
+没有卖的，带上道具增强嘉隆和体力恢复上升的天平恰900的血药还是能一口1500+的，凑合用吧
+
