@@ -2574,3 +2574,16 @@ yia ki sw可以多用弓弩白嫖
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yla  
+##### 1732#       发表于 2022-11-8 10:33
+
+ 本帖最后由 yla 于 2022-11-8 10:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58328013&amp;ptid=2098044" target="_blank">lilod 发表于 2022-11-8 01:27</a>
+
+第5章最后把白带进魔王boss战对剧情有影响吗？？ （就是打了那个 M 字 boss</blockquote>
+白有没有带回去影响一部分剧情和对话，以及第六还是第七章时候白会不会作为队友入队。对于整个完整剧情来说，没影响
+

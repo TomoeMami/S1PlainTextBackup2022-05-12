@@ -143,3 +143,14 @@ steam dick 交友群：498166847
 
 这nm联系个毛
 
+
+
+*****
+
+####  cqc1021  
+##### 1917#       发表于 2022-11-8 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58324582&amp;ptid=2015700" target="_blank">maninhole 发表于 2022-11-7 20:21</a>
+闲鱼上一般也是三千六七……</blockquote>
+京东自营都4000了，而且换了硬盘后也不用指望京东能提供售后了，那还干嘛在京东买。
+
