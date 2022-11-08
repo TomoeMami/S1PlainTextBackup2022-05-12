@@ -2154,3 +2154,12 @@ don't 表情包， thank you！
 
 别学樱花妹穿那么多长裙，长腿的优势都凸显不了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 9172#       发表于 2022-11-8 14:13
+
+CD到了，然后我发现放外置光驱的盒子变成了蚂蚁窝<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+

@@ -2821,3 +2821,34 @@ yia ki sw可以多用弓弩白嫖
 
 前面两个果然有个是低级的 我还对照看了半天都没注意到是海蛇宝箱 这么刷还是漏了一个
 
+
+
+*****
+
+####  aka523  
+##### 1751#       发表于 2022-11-8 14:05
+
+这个天平有什么作用，该怎么用啊？
+
+*****
+
+####  電子器官依存  
+##### 1752#       发表于 2022-11-8 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58334051&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-8 13:42</a>
+
+起跳空中泥头车克抱头蟹 全判定都撞身上一秒break</blockquote>
+晚上试试，空中擒抱一直用不顺手
+
+*****
+
+####  llysander  
+##### 1753#       发表于 2022-11-8 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58334361&amp;ptid=2098044" target="_blank">aka523 发表于 2022-11-8 14:05</a>
+
+这个天平有什么作用，该怎么用啊？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">左右的karma值配平效果最大，每差1 全效果下降10% 
+
+同样词条不重复，同类的 普通 强 极 重复
+
