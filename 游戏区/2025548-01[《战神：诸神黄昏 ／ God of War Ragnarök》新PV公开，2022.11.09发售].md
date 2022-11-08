@@ -9989,3 +9989,12 @@ ps5美区也有中文么
 全区中文，新西兰区就是欧版
 https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
+
+
+*****
+
+####  mimighost  
+##### 1037#       发表于 2022-11-8 18:32
+
+不管了，港版比美版解锁早太多，在买早享受<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+

@@ -573,3 +573,15 @@ AN米娅应该这次落地了吧
 
 又进入了无池想抽的阶段。什么时候再来个联动吧，反正你游超过1/3的角色都是联动角色了，不在乎再多几个（
 
+
+
+*****
+
+####  孫光龍  
+##### 7448#       发表于 2022-11-8 18:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58327927&amp;ptid=1570791" target="_blank">Rincewind 发表于 2022-11-8 01:07</a>
+考虑开个二号楼吗
+反正楼主已经是立派的云玩家了，换个人开也没问题吧</blockquote>
+什么？楼主终于彻底投身原神放弃阿噶了吗
+
