@@ -255,3 +255,20 @@ B站搜第一个就是翻车视频</blockquote>
 
 —— 来自 samsung SM-F9360, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  cc-2  
+##### 499#       发表于 2022-11-8 12:36
+
+aya neo2和onexplayer mini pro大小感觉差不多
+
+也都是7寸屏
+
+最近搜索发现onexplayer mini pro价格还挺稳定
+
+但是GPD WIN MAX2价格涨了不少
+
+看来是产能不足啊
+
