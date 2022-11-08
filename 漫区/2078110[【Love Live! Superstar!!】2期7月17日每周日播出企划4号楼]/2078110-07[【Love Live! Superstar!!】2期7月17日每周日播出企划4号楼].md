@@ -2163,3 +2163,14 @@ don't 表情包， thank you！
 
 CD到了，然后我发现放外置光驱的盒子变成了蚂蚁窝<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a92063256  
+##### 9173#       发表于 2022-11-8 16:05
+
+4888，开香槟咯<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

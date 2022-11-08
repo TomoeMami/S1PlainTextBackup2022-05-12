@@ -4450,3 +4450,33 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 
 真的球球不要再拽英语了，看的头大
 
+
+
+*****
+
+####  千恋万花  
+##### 352#       发表于 2022-11-8 16:02
+
+【すてっぷ⑥】ＤＩＹって、どうでも・いいもの・やくにたつ！
+
+ＤＩＹ部で『秘密基地』を作るための材料集めは順調に進んでいた。
+
+休日、せるふたちは、海へ行くことにする。
+
+海で、木の枝や、貝殻や、はたまた鉄パイプなど、秘密基地作りに役に立ちそうなものはもとより、ＤＩＹでペンダントやブローチなどの小物を作るための材料をまかなうためである。
+
+それら小物をＤＩＹして売ることで、部費だけは足りないが、どうしても新品で調達しなければならない秘密基地作りの部品を調達しようというのだ。
+
+ジョブ子が海に行くと知ったぷりんは、ＤＩＹ部の活動とは知らずに参加し、共に過ごすはめになる。
+
+脚本：筆安一幸
+
+絵コンテ・演出：安藤尚也
+
+作画監督：松尾祐輔
+<img src="https://p.sda1.dev/8/fd57cc5cd3c838ca8cee56c7ba071127/diy_anime-1589890473140928512-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/98dfd68d3ba02f6cb72aeece1ea1d804/diy_anime-1589890473140928512-img2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0d8b7dddc4128048c88978110a817199/diy_anime-1589890473140928512-img3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/f3ff54a61193f13212ecbda7677526dc/diy_anime-1589890473140928512-img4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/c3faa8ecc7253527a334f7e6b54d5d16/cb65fc980edf84a009b09a3952caf9e0270b42ed_63651009d3468.jpg" referrerpolicy="no-referrer">
+
