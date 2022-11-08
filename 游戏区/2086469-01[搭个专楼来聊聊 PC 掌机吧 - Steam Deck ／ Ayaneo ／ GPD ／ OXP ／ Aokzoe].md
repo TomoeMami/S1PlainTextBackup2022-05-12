@@ -190,3 +190,15 @@ B站搜第一个就是翻车视频</blockquote>
 
 比我预想的要大点，但实际显示面积和sd差不多<img src="https://p.sda1.dev/8/995107718435a29651c3bd4ae9e9454d/CMP_20221108002556350.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bypass  
+##### 493#         楼主| 发表于 2022-11-8 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58327658&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-11-8 00:26</a>
+
+比我预想的要大点，但实际显示面积和sd差不多</blockquote>
+无边框看起来真的舒服啊。
+
