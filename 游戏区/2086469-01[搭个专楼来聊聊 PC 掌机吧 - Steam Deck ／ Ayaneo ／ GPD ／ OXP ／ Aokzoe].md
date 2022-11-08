@@ -272,3 +272,15 @@ aya neo2和onexplayer mini pro大小感觉差不多
 
 看来是产能不足啊
 
+
+
+*****
+
+####  bypass  
+##### 500#         楼主| 发表于 2022-11-8 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58331857&amp;ptid=2086469" target="_blank">distrowatch 发表于 2022-11-8 11:29</a>
+我的电源键好像会断，长按强制重启的时候屏幕会休眠点亮休眠点亮这样然后重启，这个是系统特性还是确实 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 没关系这边也可以讨论 Deck，不过专楼的确更适合问问题。
+
