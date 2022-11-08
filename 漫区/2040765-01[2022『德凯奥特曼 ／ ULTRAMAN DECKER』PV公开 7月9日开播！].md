@@ -1543,3 +1543,23 @@ canata演技真棒啊，一时间以为自己在看平成奈克瑟斯tv，就是
 
 有个地方没看懂，哥美斯好像没有远程技能吧，哈乃次郎的猎鹰号援助攻击的好好的怎么忽然就坠毁了？
 
+
+
+*****
+
+####  Case  
+##### 743#       发表于 2022-11-8 17:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58325587&amp;ptid=2040765" target="_blank">athena_1982 发表于 2022-11-7 21:39</a>
+
+有个地方没看懂，哥美斯好像没有远程技能吧，哈乃次郎的猎鹰号援助攻击的好好的怎么忽然就坠毁了？ ...</blockquote>
+目测大概这样，冲过去帮德凯。但飞的太近被一尾巴抽下去了。
+
+<img src="https://img.saraba1st.com/forum/202211/08/174723gssgsxmdxoswtbdy.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221108174922.png</strong> (55.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-8 17:47 上传
+
