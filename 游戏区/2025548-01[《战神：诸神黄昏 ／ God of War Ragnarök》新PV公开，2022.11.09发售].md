@@ -10125,3 +10125,14 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 2022-11-8 23:11 上传
 
+
+
+*****
+
+####  小妹  
+##### 1050#       发表于 2022-11-8 23:42
+
+日服psn点卡涨价了吗…怀念416<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

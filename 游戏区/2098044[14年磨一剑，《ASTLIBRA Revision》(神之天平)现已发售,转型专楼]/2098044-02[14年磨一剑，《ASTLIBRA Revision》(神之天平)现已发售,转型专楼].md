@@ -3286,3 +3286,21 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 1791#       发表于 2022-11-8 23:44
+
+因为刷得太多导致打隐藏BOSS变成了顺手就做了的事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otakun  
+##### 1792#       发表于 2022-11-8 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58343681&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-8 23:44</a>
+因为刷得太多导致打隐藏BOSS变成了顺手就做了的事</blockquote>
+这是剧情性<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">，你是平行世界里最强的一个主角，隐藏boss 切菜啦
+
