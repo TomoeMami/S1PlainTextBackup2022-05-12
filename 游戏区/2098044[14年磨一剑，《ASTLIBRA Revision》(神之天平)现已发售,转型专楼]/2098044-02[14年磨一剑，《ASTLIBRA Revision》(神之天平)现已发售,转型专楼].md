@@ -2515,3 +2515,43 @@ yia ki sw可以多用弓弩白嫖
 
 （如果有回答的话麻烦反白因为有人不需要剧透谢谢哈）因为之前看过宇宙截图。所以说，难道是到最后，战女神和第一个小镇那群人其实都是守护地球的神，地球人未来人白毛老少年战女神他们都是为了打外星人？
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1728#       发表于 2022-11-8 10:02
+
+终于肝到终章了 还没推进度 在打挑战BOSS 
+
+伊西利昂的左边那个花园BOSS女神挑战是有什么机制么
+
+为啥会有DOT一样后面直接跳死 
+
+*****
+
+####  jy000129  
+##### 1729#       发表于 2022-11-8 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58330262&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-8 10:02</a>
+
+终于肝到终章了 还没推进度 在打挑战BOSS 
+
+伊西利昂的左边那个花园BOSS女神挑战是有什么机制么
+
+为啥会有DOT ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BOSS下的雨每一滴都有伤害。建议带加攻击范围被动躲平台下斜劈
+
+*****
+
+####  Rainwedell  
+##### 1730#       发表于 2022-11-8 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58327629&amp;ptid=2098044" target="_blank">Rainwedell 发表于 2022-11-8 00:23</a>
+试试，斗技场前面全是拿大砍刀莽过去的
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 ...</blockquote>
+昨晚试了试，还是高攻击范围配凭依技回血拼血条好用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
