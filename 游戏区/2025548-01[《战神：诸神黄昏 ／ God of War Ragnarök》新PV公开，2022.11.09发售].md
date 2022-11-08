@@ -10315,3 +10315,16 @@ https://store.playstation.com/en-nz/product/EP9000-CUSA34386_00-GOWRAGNAROK00000
 
 不过敌人伤害还是很攒劲的… 战神难度大概小兵两刀半砍死老父亲样子
 
+
+
+*****
+
+####  陈词与芍药  
+##### 1065#       发表于 2022-11-9 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58344773&amp;ptid=2025548" target="_blank">CharlieZ- 发表于 2022-11-8 11:58</a>
+草，不太妙啊，老头环要赢？</blockquote>
+你打到后面就懂了，这是我通关后的感受，不过绝对没有6分这么低。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
