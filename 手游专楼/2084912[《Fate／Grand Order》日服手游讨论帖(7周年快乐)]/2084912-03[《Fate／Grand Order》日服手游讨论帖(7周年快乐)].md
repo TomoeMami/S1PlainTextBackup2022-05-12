@@ -4952,3 +4952,12 @@ FguGwNXVsAAhJlZ.jpg
 
 奥伯隆何时重开啊...希望2池就有他
 
+
+
+*****
+
+####  里村紅葉  
+##### 3455#       发表于 2022-11-9 23:08
+
+这新五星被动就一个对魔力，也太朴素了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

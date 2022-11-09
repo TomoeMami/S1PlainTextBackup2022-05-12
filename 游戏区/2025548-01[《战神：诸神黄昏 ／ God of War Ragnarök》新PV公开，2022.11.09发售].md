@@ -11339,3 +11339,14 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 不用想，配音演员肯定是黑人，如果不是曝出来战神5马上要口碑狂跌销量暴死。政治正确版本早就已经是非“ ...</blockquote>
 其实奎爷的声优也是个黑人啊.....当时我看直播的时候弹幕里一堆人因为这段黑妹的情节而对黑人喊打喊杀喊种族灭绝的时候我发了条弹幕说奎爷的声优也是黑人，你们是不是不玩战神这个游戏了，于是弹幕的火力立即从黑人转向了我，说什么“有人急了”“调侃下怎么了，尼人就是玻璃心”“来了个精神尼人”....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  moonblackwh  
+##### 1168#       发表于 2022-11-9 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58359811&amp;ptid=2025548" target="_blank">蒋公卖萌 发表于 2022-11-09 22:56:40</a></blockquote>主要是丑，死亡循环黑妹我就没见过喷的。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
