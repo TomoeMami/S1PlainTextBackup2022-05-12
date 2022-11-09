@@ -4628,3 +4628,31 @@ FguGwNXVsAAhJlZ.jpg
 
 这黑骑士爆甲之后完全就是另一个人吧，一点甲胄的部件都没了，脱了还不如不脱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 3420#       发表于 2022-11-9 19:36
+
+30连连人带礼装都入手了，都2022年了，这强度也就只能抽一个放迦里拿来舔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  里村紅葉  
+##### 3421#       发表于 2022-11-9 19:37
+
+好家伙，这新妹子的装甲也太虎了，出货的时候以为歪了个源为朝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3422#       发表于 2022-11-9 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357114&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-11-9 19:37</a>
+
+好家伙，这新妹子的装甲也太虎了，出货的时候以为歪了个源为朝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你变了 你又欧了
+

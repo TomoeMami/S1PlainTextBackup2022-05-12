@@ -3731,3 +3731,19 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 我刷队友好感过程中前后爆了四个爱情，又一次甚至一口气出了两个，感觉还是很看脸
 
+
+
+*****
+
+####  zhangzlo  
+##### 1831#       发表于 2022-11-9 19:34
+
+笑死。
+
+“这个种族过分进化毁灭一切blablabla”
+
+卡隆“也是，人类是不是太过分了”
+
+“我没说人类”
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
