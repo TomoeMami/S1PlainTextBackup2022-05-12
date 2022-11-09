@@ -11306,3 +11306,36 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 关于洛基与黑人的那段政治正确的剧情处理的怎么样？是不是烂到看了这段剧情更狠黑人了？我看主播直播洛基与 ...</blockquote>
 打完奶奶后的一系列情绪转变也太怪了
 
+
+
+*****
+
+####  moonblackwh  
+##### 1165#       发表于 2022-11-9 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58359606&amp;ptid=2025548" target="_blank">蒋公卖萌 发表于 2022-11-9 22:37</a>
+
+关于洛基与黑人的那段政治正确的剧情处理的怎么样？是不是烂到看了这段剧情更恨黑人了？我看主播直播洛基与 ...</blockquote>
+不用想，配音演员肯定是黑人，如果不是曝出来战神5马上要口碑狂跌销量暴死。政治正确版本早就已经是非“少数群体”不准演“少数群体”的戏了
+
+*****
+
+####  一个过路的  
+##### 1166#       发表于 2022-11-9 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58359606&amp;ptid=2025548" target="_blank">蒋公卖萌 发表于 2022-11-9 22:37</a>
+
+关于洛基与黑妹的那段政治正确的剧情处理的怎么样？是不是烂到看了这段剧情更恨黑人了？我看主播直播洛基与 ...</blockquote>
+很长很闷，结束的时候感觉到解脱，后面当狗追着女人跑的时候好快乐。
+
+*****
+
+####  蒋公卖萌  
+##### 1167#       发表于 2022-11-9 22:56
+
+ 本帖最后由 蒋公卖萌 于 2022-11-9 22:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58359765&amp;ptid=2025548" target="_blank">moonblackwh 发表于 2022-11-9 22:52</a>
+
+不用想，配音演员肯定是黑人，如果不是曝出来战神5马上要口碑狂跌销量暴死。政治正确版本早就已经是非“ ...</blockquote>
+其实奎爷的声优也是个黑人啊.....当时我看直播的时候弹幕里一堆人因为这段黑妹的情节而对黑人喊打喊杀喊种族灭绝的时候我发了条弹幕说奎爷的声优也是黑人，你们是不是不玩战神这个游戏了，于是弹幕的火力立即从黑人转向了我，说什么“有人急了”“调侃下怎么了，尼人就是玻璃心”“来了个精神尼人”....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
