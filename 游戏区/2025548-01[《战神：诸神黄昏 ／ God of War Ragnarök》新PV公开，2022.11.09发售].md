@@ -11049,3 +11049,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 还在补前作的战神难度，诸神黄昏只能等到过年了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SergeGlenn  
+##### 1139#       发表于 2022-11-9 17:17
+
+我用无畏盾出处决挺快的，打起来感觉没有上代那么刮了
+
