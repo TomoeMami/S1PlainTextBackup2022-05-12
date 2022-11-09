@@ -10691,3 +10691,26 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 这游戏日服是Z级恐怕不能用点卡</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">那怎么买？港服支付宝OK吗
 
+
+
+*****
+
+####  SergeGlenn  
+##### 1101#       发表于 2022-11-9 11:33
+
+索尔这段节奏确实没有巴德尔舒服，但演出场面是更大了，我不知道是不是困难难度的原因，中间战斗时间有点太长了，陌生人战演出和战斗的比例更舒服些
+
+*****
+
+####  origen  
+##### 1102#       发表于 2022-11-9 11:38
+
+其他都还好 字体真是太丑了
+
+*****
+
+####  crosz1985  
+##### 1103#       发表于 2022-11-9 11:40
+
+美服有中文吗
+
