@@ -233,3 +233,15 @@
 
 现在每次团战最恶心我的还是被经常惨雾MISS<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  windlikeman  
+##### 17188#       发表于 2022-11-9 11:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348525&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2022-11-9 10:55</a>
+
+现在每次团战最恶心我的还是被经常惨雾MISS</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你需要300rank的lb
+

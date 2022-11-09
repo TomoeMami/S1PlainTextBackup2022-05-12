@@ -10643,3 +10643,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 有没有打的快的讲讲这代冲拳改哪儿去了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mikumiku831  
+##### 1096#       发表于 2022-11-9 11:05
+
+我觉得这代开头还挺难的 比第一部难
+
