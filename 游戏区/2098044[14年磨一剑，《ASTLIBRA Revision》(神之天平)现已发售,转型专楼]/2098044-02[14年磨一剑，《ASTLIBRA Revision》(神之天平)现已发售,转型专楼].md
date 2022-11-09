@@ -3632,3 +3632,16 @@ DNA这里就是让男主和青梅竹马的相遇从偶然变成必然而已，�
 幸运也不用堆了后面</blockquote>
 好的 谢谢！
 
+
+
+*****
+
+####  redsouris  
+##### 1822#       发表于 2022-11-9 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58349641&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-9 11:49</a>
+图纸是啥图纸？小怪就会掉么</blockquote>
+小怪掉的金宝箱银宝箱会出稀有武器装备图纸，每章都有固定的五种，比店里直接卖的强一个档次
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
