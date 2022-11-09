@@ -10763,3 +10763,26 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 没了1代的快速转身吗？
 
+
+
+*****
+
+####  SergeGlenn  
+##### 1110#       发表于 2022-11-9 12:26
+
+<blockquote>猫将军 发表于 2022-11-9 12:14
+没了1代的快速转身吗？</blockquote>
+有，变成L1+下了
+
+
+
+*****
+
+####  赤井稻妻  
+##### 1111#       发表于 2022-11-9 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58350108&amp;ptid=2025548" target="_blank">猫将军 发表于 2022-11-9 12:14</a>
+
+没了1代的快速转身吗？</blockquote>
+快速转身改成按住l1按下了，也可以改成左摇杆按住拉下，反正都不太舒服
+
