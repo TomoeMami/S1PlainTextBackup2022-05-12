@@ -3779,3 +3779,35 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 —— 来自  ...</blockquote>
 金宝箱银宝箱要怎么打开？出过一次银的但没有钥匙
 
+
+
+*****
+
+####  hukeyun  
+##### 1835#       发表于 2022-11-9 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357354&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-9 19:55</a>
+
+金宝箱银宝箱要怎么打开？出过一次银的但没有钥匙</blockquote>
+用合成书合成，还可以分解，金的可分成银。
+
+幸运可以点高些。
+
+*****
+
+####  Rainwedell  
+##### 1836#       发表于 2022-11-9 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357354&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-9 19:55</a>
+金宝箱银宝箱要怎么打开？出过一次银的但没有钥匙</blockquote>
+钥匙可以合成书合出来，需要钥匙磨具和矿石
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  skgaminger1988  
+##### 1837#       发表于 2022-11-9 20:08
+
+原来攻击力和防御力根本没卵用 怪不得总觉得幸运不够加<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+

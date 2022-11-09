@@ -4706,3 +4706,75 @@ FguGwNXVsAAhJlZ.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次全是0np礼装？ 6加成是不是难道爆增
 
+
+
+*****
+
+####  qixinno2  
+##### 3429#       发表于 2022-11-9 20:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然没抽到活动礼装 但90++本第一次打就掉礼装了
+
+*****
+
+####  千叶铁矢  
+##### 3430#       发表于 2022-11-9 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357441&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-9 20:02</a>
+这次全是0np礼装？ 6加成是不是难道爆增</blockquote>
+双狐妖兰或者双奥艾蕾，没有不换人6加成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3431#       发表于 2022-11-9 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357463&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-9 20:03</a>
+
+虽然没抽到活动礼装 但90++本第一次打就掉礼装了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
+*****
+
+####  白金口袋  
+##### 3432#       发表于 2022-11-9 20:05
+
+沉的彻底，算了不较劲了，等明年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3433#       发表于 2022-11-9 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357494&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-9 20:05</a>
+
+欧 羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你的石头呢 快去抽卡 我觉得你能出货
+
+*****
+
+####  alucardcz  
+##### 3434#       发表于 2022-11-9 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357586&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-9 20:08</a>
+
+你的石头呢 快去抽卡 我觉得你能出货</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">王姐120级失败  开始备战 2。7了
+
+*****
+
+####  黑上シグマ  
+##### 3435#       发表于 2022-11-9 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3星壮汉礼装的画师推上还放了张后续
+
+*****
+
+####  alucardcz  
+##### 3436#       发表于 2022-11-9 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357491&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-11-9 20:05</a>
+
+双狐妖兰或者双奥艾蕾，没有不换人6加成</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快告诉我狐奥兰可不可行
+

@@ -11252,3 +11252,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  SergeGlenn  
+##### 1159#       发表于 2022-11-9 20:03
+
+地图感觉也有提升，之前总说绝地武士地图爆这个，用链刃辅助做了些简单的纵深，以没有跳跃为前提来说算是尽力了。
+
