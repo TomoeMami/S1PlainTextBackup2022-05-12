@@ -4925,3 +4925,12 @@ FguGwNXVsAAhJlZ.jpg
 
 萌新哪来的狐狸奥贝冷！没有妖兰用狂兰可以吗！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">你们怎么什么都有我也没有氪金啊.jpg
 
+
+
+*****
+
+####  khxooo  
+##### 3452#       发表于 2022-11-9 22:39
+
+妈的，将加成礼装看成伤害倍卡满破了，我就奇怪伤害怎么不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
