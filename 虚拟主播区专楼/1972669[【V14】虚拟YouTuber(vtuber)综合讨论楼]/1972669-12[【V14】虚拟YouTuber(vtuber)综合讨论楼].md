@@ -716,3 +716,12 @@ cpt真的只选择了想和谁一起玩，完全没考虑角色的构成，现�
 请问那个vtuber唱片销量榜还有在记录吗？
 我留链接的那个在线文件好像只剩德龙的了，不知道为什么<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 17700#       发表于 2022-11-9 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">jasper队今天教练gon桑代打，没上帝视角指挥打得一塌糊涂，gon桑还各种紧张，违规用长枪和找不到暂停按钮这种低级错误各种犯，前途多舛啊
+
