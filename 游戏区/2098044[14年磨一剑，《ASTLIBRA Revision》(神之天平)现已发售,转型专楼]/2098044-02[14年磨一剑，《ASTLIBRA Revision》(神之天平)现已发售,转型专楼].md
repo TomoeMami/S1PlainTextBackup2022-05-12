@@ -3546,3 +3546,26 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 现在打到第4章，感觉要进入分支深水区了，更是不敢试了，一想到走错路线就代表要重打几天就头麻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sannapolis  
+##### 1815#       发表于 2022-11-9 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348967&amp;ptid=2098044" target="_blank">88is88 发表于 2022-11-9 11:18</a>
+
+通关后关于剧情感觉有个纰漏啊，有没有人注意到追章里面女主角说是因为男主角在追章里面女主角出生那时保护 ...</blockquote>
+DNA这里就是让男主和青梅竹马的相遇从偶然变成必然而已，但两人相遇的结果是没变的。
+梦神好像是外传引入的角色。就正传的表现来看，感觉是个对天平计划一知半解所以跑来阻挠男主得到真天平，被扁了一顿怀恨在心，所以尘埃落定后再来找男主麻烦的小丑恶人角色。
+
+*****
+
+####  yla  
+##### 1816#       发表于 2022-11-9 11:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348967&amp;ptid=2098044" target="_blank">88is88 发表于 2022-11-9 11:18</a>
+
+通关后关于剧情感觉有个纰漏啊</blockquote>
+天平的时间回溯范围只有主角这个岛，誓戒不受影响。誓戒可以认为是和玩家一个时间轴
+
