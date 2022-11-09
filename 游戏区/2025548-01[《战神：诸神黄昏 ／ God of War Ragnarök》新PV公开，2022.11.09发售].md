@@ -11113,3 +11113,28 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 不是说好9号才发售吗，怎么B站已经有完美通关视频，这么快的吗</blockquote>
 这次sony提前发了好多游戏码给国内大小网红做宣传
 
+
+
+*****
+
+####  qty  
+##### 1146#       发表于 2022-11-9 17:56
+
+看了直播，感觉这UI好难看啊，比起前作退步巨大
+
+*****
+
+####  574802531  
+##### 1147#       发表于 2022-11-9 17:58
+
+不知道是不是剧透看多了，感觉打完熊为止，没有那种激动人心的感觉
+
+*****
+
+####  khxooo  
+##### 1148#       发表于 2022-11-9 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58355349&amp;ptid=2025548" target="_blank">猫将军 发表于 2022-11-9 17:38</a>
+可以自定义按键</blockquote>
+那就好，真的不习惯R1R2这种战斗方式。
+
