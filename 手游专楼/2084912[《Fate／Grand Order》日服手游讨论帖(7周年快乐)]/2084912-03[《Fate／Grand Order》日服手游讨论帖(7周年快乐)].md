@@ -4516,3 +4516,81 @@ FguGwNXVsAAhJlZ.jpg
 
 七章下个月底那这中间还有个圣诞无限池？总不能嗯rts2.6长草一个月吧
 
+
+
+*****
+
+####  qixinno2  
+##### 3410#       发表于 2022-11-9 19:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这技能 经典30充绿卡枪光炮
+
+*****
+
+####  Jamaisvu  
+##### 3411#       发表于 2022-11-9 19:04
+
+ 本帖最后由 Jamaisvu 于 2022-11-9 19:12 编辑 
+
+新从者卡面：
+
+<img src="https://img.saraba1st.com/forum/202211/09/191209qos8vpv5vvo8p5bu.jpg" referrerpolicy="no-referrer">
+
+<strong>5C800805109EC84288C920DA876D004B.jpg</strong> (284.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-9 19:12 上传
+
+数据解包：
+
+<img src="https://img.saraba1st.com/forum/202211/09/190401ntpwgjewjggjzpy1.jpg" referrerpolicy="no-referrer">
+
+<strong>8DDD79070F4B04B4C68B6BD0E6B595E1.jpg</strong> (374.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-9 19:04 上传
+
+安定的30NP充能<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 3412#       发表于 2022-11-9 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58356594&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-11-9 18:59</a>
+
+七章下个月底那这中间还有个圣诞无限池？总不能嗯rts2.6长草一个月吧</blockquote>
+12月下旬2.7，可能上半个月复刻个轻量圣诞总编集？
+
+*****
+
+####  DARKGRAY  
+##### 3413#       发表于 2022-11-9 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58356594&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-11-9 18:59</a>
+
+七章下个月底那这中间还有个圣诞无限池？总不能嗯rts2.6长草一个月吧</blockquote>
+圣诞纯复刻不出新那可不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3414#       发表于 2022-11-9 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58356650&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-11-9 19:04</a>
+
+新从者数据解包：</blockquote>
+这是2022年的卡？  寄中寄<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 3415#       发表于 2022-11-9 19:08
+
+这宝具太草
+
+杀阶：NMDWSM
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

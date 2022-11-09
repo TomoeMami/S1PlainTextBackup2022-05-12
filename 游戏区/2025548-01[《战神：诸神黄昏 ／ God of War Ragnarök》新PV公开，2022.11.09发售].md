@@ -11208,3 +11208,15 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 拉塔托斯克一代有出场么？我怎么完全不记得了
 
+
+
+*****
+
+####  dfas0077  
+##### 1155#       发表于 2022-11-9 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58355709&amp;ptid=2025548" target="_blank">574802531 发表于 2022-11-9 17:58</a>
+
+不知道是不是剧透看多了，感觉打完熊为止，没有那种激动人心的感觉</blockquote>
+前作通关下来也说不上有什么激动人心的段落，估计这方面也延续前作基调，我现在对欧美游戏相当不满的一点就是真太缺乏亮眼的内容了，战神2里面巨马拉动岛屿这种超越想象的场面是再难出现了
+
