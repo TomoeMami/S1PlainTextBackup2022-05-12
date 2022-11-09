@@ -10597,3 +10597,24 @@ PS5这精度真吓人，高帧简直太屌
 
 打完第一场雷神，感觉战斗拖的太长，期间又被切的太碎，整体不如陌生人战节奏好（魄力也感觉一般般，雷神像个铁憨憨）。
 
+
+
+*****
+
+####  ybfelix  
+##### 1092#       发表于 2022-11-9 09:52
+
+看了下官方说法，似乎性能和画面的各种切换组合，其它特效没有差异。影响的只是目标帧率和渲染分辨率。电视支持VRR的话不锁帧上限。
+
+Performance: dynamic resolution between 1440/2160p target 60fps.
+
+Performance High Frame Rate: 1440p at 60fps framerate unlocked.
+
+Performance HFR VRR: 1440p 60fps target with framerate unlocked.
+
+Quality: 2160p (native) 30fps target.
+
+Quality High Frame Rate: 1800/2160p, target 40fps.
+
+Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
+
