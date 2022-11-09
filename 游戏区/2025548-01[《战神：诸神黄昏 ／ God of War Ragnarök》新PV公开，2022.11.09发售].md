@@ -11238,3 +11238,17 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 —— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  iqbsh38  
+##### 1158#       发表于 2022-11-9 19:30
+
+有没有合购ps4版的 游戏8700 
+9000点点卡现在正好450
+我买的话给我220就行
+有意的私聊吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

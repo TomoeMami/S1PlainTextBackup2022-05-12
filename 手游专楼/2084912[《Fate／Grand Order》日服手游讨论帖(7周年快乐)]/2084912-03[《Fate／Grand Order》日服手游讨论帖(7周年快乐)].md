@@ -4612,3 +4612,19 @@ FguGwNXVsAAhJlZ.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2宝了
 
+
+
+*****
+
+####  alucardcz  
+##### 3418#       发表于 2022-11-9 19:22
+
+90艹已经出了？
+
+*****
+
+####  保罗赫伯特  
+##### 3419#       发表于 2022-11-9 19:27
+
+这黑骑士爆甲之后完全就是另一个人吧，一点甲胄的部件都没了，脱了还不如不脱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
