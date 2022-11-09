@@ -11033,3 +11033,19 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 感觉普通难度有点不够打，但无情难度打一堆小怪又太刮了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  妄想中毒  
+##### 1137#       发表于 2022-11-9 17:08
+
+老版ps4还能玩这游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  芷雅居  
+##### 1138#       发表于 2022-11-9 17:09
+
+还在补前作的战神难度，诸神黄昏只能等到过年了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
