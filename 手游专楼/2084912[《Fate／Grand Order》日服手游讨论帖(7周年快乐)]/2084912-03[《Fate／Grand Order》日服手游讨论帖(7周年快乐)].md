@@ -4656,3 +4656,35 @@ FguGwNXVsAAhJlZ.jpg
 好家伙，这新妹子的装甲也太虎了，出货的时候以为歪了个源为朝</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你变了 你又欧了
 
+
+
+*****
+
+####  xiongxingyu  
+##### 3423#       发表于 2022-11-9 19:43
+
+完蛋了，某人不光性能被撕，连唯一作为卖点的色色都被完爆了，新布妹这满破卡面不能叫rsq了，根本就是直球卖，要不是手机是苹果，我还以为我把fanza客户端给打开了。这种卡面只能用寡廉鲜耻来形容......ygg赶快多来点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 3424#       发表于 2022-11-9 19:44
+
+我的这个5星枪，怎么头发是紫色的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yzj134100  
+##### 3425#       发表于 2022-11-9 19:44
+
+嗨呀  nikke沉的在废狗这边补回来了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 谁能拒绝机甲妹
+
+*****
+
+####  rooarr  
+##### 3426#       发表于 2022-11-9 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357199&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-11-9 19:44</a>
+ 我的这个5星枪，怎么头发是紫色的</blockquote>
+我错了，我一直以为福利多是发，认真看了下居然是黄发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
