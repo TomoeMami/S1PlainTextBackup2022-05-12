@@ -3387,3 +3387,15 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 昨晚把第3章的装备全做出来再练到精通，顺便练了1级，加了一堆点数解放了几个新凭依，轻松把boss给剁了，感 ...</blockquote>
 这游戏应该在打到新章之后允许把难度调到困难以上，不然实在对不起刷的这一身属性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  llysander  
+##### 1800#       发表于 2022-11-9 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58339064&amp;ptid=2098044" target="_blank">aka523 发表于 2022-11-8 18:33</a>
+
+那个连续波要怎么跳过去?我是在boss放这招前用雷枪穿到它背后躲的</blockquote>
+慢的时候可以一个一个跨，感觉快到一个临界点的时候要转为每两个一跨 这时候不站台子高度就不够（滑翔 后退回避赖一下滞空最后几下更好躲）
+
