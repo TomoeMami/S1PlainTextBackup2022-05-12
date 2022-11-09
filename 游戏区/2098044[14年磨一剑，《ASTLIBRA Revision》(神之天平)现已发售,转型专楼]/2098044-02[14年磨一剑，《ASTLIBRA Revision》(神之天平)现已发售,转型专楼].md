@@ -3811,3 +3811,22 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 原来攻击力和防御力根本没卵用 怪不得总觉得幸运不够加<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  管住键政的手  
+##### 1838#       发表于 2022-11-9 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357319&amp;ptid=2098044" target="_blank">Fuero 发表于 2022-11-9 19:52</a>
+
+困难打起来有些割草了，有啥推荐改的适中难度吗？地狱？</blockquote>
+我是困难转地狱，堆怪的地方痛苦点，其他还好。
+
+*****
+
+####  cym887  
+##### 1839#       发表于 2022-11-9 20:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">雪山半山腰那个隐藏宝箱触发点怎么下去啊
+

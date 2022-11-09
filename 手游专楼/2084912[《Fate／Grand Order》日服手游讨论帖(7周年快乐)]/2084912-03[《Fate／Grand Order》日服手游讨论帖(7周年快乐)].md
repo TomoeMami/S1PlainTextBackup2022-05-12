@@ -4778,3 +4778,35 @@ FguGwNXVsAAhJlZ.jpg
 双狐妖兰或者双奥艾蕾，没有不换人6加成</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快告诉我狐奥兰可不可行
 
+
+
+*****
+
+####  希望之花  
+##### 3437#       发表于 2022-11-9 20:14
+
+根本就是zion社的圣x天使<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3438#       发表于 2022-11-9 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们要求太低了 就这也叫瑟（
+
+*****
+
+####  千叶铁矢  
+##### 3439#       发表于 2022-11-9 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357635&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-9 20:11</a>
+快告诉我狐奥兰可不可行</blockquote>
+应该伤害不够，三面80w+24w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3440#       发表于 2022-11-9 20:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我艹 掉第二张了 出货率提升了么
+
