@@ -3701,3 +3701,15 @@ DNA这里就是让男主和青梅竹马的相遇从偶然变成必然而已，�
 我和你相反，我一直打困难，下次要我开新局甚至推荐新人一定要选低难度好好欣赏这个剧本，现在是每次出新 ...</blockquote>
 我也是低难度开的，而且每章也要刷一晚上才进下一章。我的意思就是应该允许玩家低难度打到新章之后把难度调到困难以上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jy000129  
+##### 1828#       发表于 2022-11-9 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348044&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-9 10:28</a>
+
+wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一个没拿到。。</blockquote>
+盖亚迷宫不刷怪，高速刷层，打完每层BOSS给的箱子才出爱情
+

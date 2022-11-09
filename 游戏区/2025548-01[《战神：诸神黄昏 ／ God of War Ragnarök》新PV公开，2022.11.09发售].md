@@ -11024,3 +11024,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 没事，这代芙蕾雅明显做的挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yason  
+##### 1136#       发表于 2022-11-9 16:44
+
+感觉普通难度有点不够打，但无情难度打一堆小怪又太刮了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
