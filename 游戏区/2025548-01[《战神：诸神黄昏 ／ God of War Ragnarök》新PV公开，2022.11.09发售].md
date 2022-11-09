@@ -11138,3 +11138,15 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 可以自定义按键</blockquote>
 那就好，真的不习惯R1R2这种战斗方式。
 
+
+
+*****
+
+####  hotsmile  
+##### 1149#       发表于 2022-11-9 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58355715&amp;ptid=2025548" target="_blank">khxooo 发表于 2022-11-9 17:58</a>
+
+那就好，真的不习惯R1R2这种战斗方式。</blockquote>
+你用过方块三角攻击，视角很难调整的吧？
+
