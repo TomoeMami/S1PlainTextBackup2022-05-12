@@ -10564,3 +10564,36 @@ PS5这精度真吓人，高帧简直太屌
 
 今晚继续
 
+
+
+*****
+
+####  wangxu9909  
+##### 1089#       发表于 2022-11-9 09:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58346713&amp;ptid=2025548" target="_blank">SergeGlenn 发表于 2022-11-9 09:03</a>
+感觉难度变简单了，或者说奎爷动作变得轻快了，困难难度打完熊还没死过，前作我记着第一场战斗就重试了几回 ...</blockquote>
+一代开局只能走位，最开始那一段比后面都要难。。。这次直接带盾，可以防御反击简单多了
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Avantasi  
+##### 1090#       发表于 2022-11-9 09:45
+
+ 本帖最后由 Avantasi 于 2022-11-9 09:48 编辑 
+
+打完矮人过度主线，这小逼崽子真的有点拉血压
+
+妈的前作只想从奎爷嘴里听实话，这逼崽子不是也没这么做
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  wgoenitz  
+##### 1091#       发表于 2022-11-9 09:50
+
+打完第一场雷神，感觉战斗拖的太长，期间又被切的太碎，整体不如陌生人战节奏好（魄力也感觉一般般，雷神像个铁憨憨）。
+
