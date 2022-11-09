@@ -10786,3 +10786,31 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 没了1代的快速转身吗？</blockquote>
 快速转身改成按住l1按下了，也可以改成左摇杆按住拉下，反正都不太舒服
 
+
+
+*****
+
+####  focus  
+##### 1112#       发表于 2022-11-9 12:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58350011&amp;ptid=2025548" target="_blank">性兽阿怪 发表于 2022-11-9 12:08</a>
+
+克瓦希尔护身符居然还成了套装效果，而且升到顶级也不会增加时间，真就是用什么砍什么 ...</blockquote>
+背叛护符还有吗？一代最喜欢用的
+
+*****
+
+####  hotsmile  
+##### 1113#       发表于 2022-11-9 12:32
+
+资源能刷吗？
+
+*****
+
+####  mimighost  
+##### 1114#       发表于 2022-11-9 12:38
+
+一来就打索尔我是没想到的
+
+不过老头环的洗礼现在我已经是地滚侠了，难不倒我lol
+
