@@ -11397,3 +11397,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 奎秃这作什么正能量好父亲，太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jakelee1985  
+##### 1174#       发表于 2022-11-10 00:20
+
+在a9，不能说ui不好看，字体丑，类大型DLC，没有1到2的进化，只要一说，铁定被追着咬
+
