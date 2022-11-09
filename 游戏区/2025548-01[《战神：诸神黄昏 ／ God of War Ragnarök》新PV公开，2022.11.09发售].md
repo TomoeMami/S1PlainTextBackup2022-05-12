@@ -11605,3 +11605,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 上代我也是全程困难通关，也没这么难打啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  系色可符香  
+##### 1198#       发表于 2022-11-10 06:48
+
+这作地图也太大了，华纳海姆打完BOSS居然才走了一半
+
