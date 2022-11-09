@@ -10754,3 +10754,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 克瓦希尔护身符居然还成了套装效果，而且升到顶级也不会增加时间，真就是用什么砍什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猫将军  
+##### 1109#       发表于 2022-11-9 12:14
+
+没了1代的快速转身吗？
+
