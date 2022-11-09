@@ -3569,3 +3569,17 @@ DNA这里就是让男主和青梅竹马的相遇从偶然变成必然而已，�
 通关后关于剧情感觉有个纰漏啊</blockquote>
 天平的时间回溯范围只有主角这个岛，誓戒不受影响。誓戒可以认为是和玩家一个时间轴
 
+
+
+*****
+
+####  llysander  
+##### 1817#       发表于 2022-11-9 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348967&amp;ptid=2098044" target="_blank">88is88 发表于 2022-11-9 11:18</a>
+
+通关后关于剧情感觉有个纰漏啊，有没有人注意到追章里面女主角说是因为男主角在追章里面女主角出生那时保护 ...</blockquote>
+这块大陆最终也会在阿斯特雷亚控制下重启，每次重启到最后都收束到未来东京的样子，都会发展出阿努比斯计划-因为是阿斯特蕾亚故意给人类的技术，前八章和追章不是同一次大重启隔了茫茫多的时间，部分单位的记忆被留了一部分-记忆循环积累才能造超级战士。
+
+上面这段是追章续的设定所以会有点硬<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，免费版到打完女神就结束了，要把免费版结局各个时间线的人混居在一起的happy ending否定掉就给梦结局了，所以变成追章开头那样。
+

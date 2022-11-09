@@ -10874,3 +10874,14 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 估计是给后面绿奥丁做铺垫，不能抢了freya的风头
 
+
+
+*****
+
+####  mimighost  
+##### 1121#       发表于 2022-11-9 13:23
+
+阿瑟神族全部说现代美语简直有些喜剧效果
+
+奥丁：my ex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
