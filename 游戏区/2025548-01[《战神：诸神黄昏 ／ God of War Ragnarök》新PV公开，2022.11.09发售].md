@@ -10936,3 +10936,25 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 —— 来自 S1Fun</blockquote>
 我觉得他们想搞那种复古残破的感觉，但弄成了模拟器滤镜的放大黏腻感……刚进去吓一跳，还以为分辨率不对，怎么字这么糊
 
+
+
+*****
+
+####  Yason  
+##### 1127#       发表于 2022-11-9 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348871&amp;ptid=2025548" target="_blank">武井咲 发表于 2022-11-9 11:13</a>
+这个字体真的好丑啊，繁中的不知道怎么样
+
+—— 来自 S1Fun</blockquote>
+繁中看起来好一些，不知道为什么简中字体要大一些，然后分辨率也低，
+
+*****
+
+####  椎名mahuyo  
+##### 1128#       发表于 2022-11-9 14:30
+
+[https://weibo.com/tv/show/1034:4 ... om=old_pc_videoshow](https://weibo.com/tv/show/1034:4833845942616104?from=old_pc_videoshow)
+
+看了下别人发的PS4版运行视频 直升机啊
+
