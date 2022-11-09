@@ -213,3 +213,17 @@ steam dick 交友群：498166847
 
 <img src="https://p.sda1.dev/8/ab01b44846050c4811118a0ed2392c98/CMP_20221108205849441.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  世界的膀胱者  
+##### 1923#       发表于 2022-11-9 17:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58334636&amp;ptid=2015700" target="_blank">zhjnppy 发表于 2022-11-8 14:23</a>
+准备入手 爬了最新的几页 现在最好的入手方式是闲鱼+低配自换硬盘？</blockquote>
+不在乎等两个礼拜的话淘宝礼品卡+FedEx直邮
+3000左右能到手
+
+—— 来自 samsung SM-G9910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
