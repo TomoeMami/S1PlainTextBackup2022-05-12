@@ -462,3 +462,21 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 剧情删改以后207小队真是败犬气息愈发浓厚了，不过女武神其他成员更惨除了大尉脸都没露
 以及再次感叹霞的作画真是精致得和其他人不像一个世界的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 1994#       发表于 2022-11-10 06:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58362180&amp;ptid=1860817" target="_blank">菱0零 发表于 2022-11-10 05:04</a>
+纯夏这什么奇怪的衣服还有系带内衣，谁的恶趣味啊
+剧情删改以后207小队真是败犬气息愈发浓厚了，不过女武神 ...</blockquote>
+毕竟最后都成了败犬（物理），只有霞笑到最后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看完这集的最大感受是不管特写还是远景，人物都难得地没崩
+
+和上一集比真是一个天上一个地下，不知道bd会不会修<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
