@@ -4688,3 +4688,21 @@ FguGwNXVsAAhJlZ.jpg
  我的这个5星枪，怎么头发是紫色的</blockquote>
 我错了，我一直以为福利多是发，认真看了下居然是黄发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3427#       发表于 2022-11-9 19:57
+
+40连爆死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+意思意思不抽了
+
+*****
+
+####  alucardcz  
+##### 3428#       发表于 2022-11-9 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次全是0np礼装？ 6加成是不是难道爆增
+
