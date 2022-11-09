@@ -2476,3 +2476,16 @@ s1没折叠有点吓人了啊<img src="https://static.saraba1st.com/image/smiley
 今年的FNS没了吗</blockquote>
 都反人类粪作了，真就按着日本全国人民的头喂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 9194#       发表于 2022-11-10 03:57
+
+<blockquote>nufawneafg 发表于 2022-11-9 23:59
+都反人类粪作了，真就按着日本全国人民的头喂啊
+
+只能说这波音乐部门的脸皮不是很厚，建议 ...</blockquote>
+FNS发生了啥
+

@@ -449,3 +449,16 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 前面都还行，顶多算便宜动画，后面食堂那几张笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 怀疑是因为有翼所以后面就效率论了
 
+
+
+*****
+
+####  菱0零  
+##### 1993#       发表于 2022-11-10 05:04
+
+ 本帖最后由 菱0零 于 2022-11-10 05:07 编辑 
+
+纯夏这什么奇怪的衣服还有系带内衣，谁的恶趣味啊
+剧情删改以后207小队真是败犬气息愈发浓厚了，不过女武神其他成员更惨除了大尉脸都没露
+以及再次感叹霞的作画真是精致得和其他人不像一个世界的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
