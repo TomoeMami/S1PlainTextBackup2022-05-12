@@ -10714,3 +10714,43 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 美服有中文吗
 
+
+
+*****
+
+####  rainsheep  
+##### 1104#       发表于 2022-11-9 12:02
+
+又用4slim玩的吗
+
+*****
+
+####  clover293  
+##### 1105#       发表于 2022-11-9 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58349487&amp;ptid=2025548" target="_blank">crosz1985 发表于 2022-11-9 11:40</a>
+
+美服有中文吗</blockquote>
+有的
+
+*****
+
+####  陈玉礼  
+##### 1106#       发表于 2022-11-9 12:07
+
+困难难度打boss真是刮痧啊，不知道后面数值升上去会不会好点
+
+*****
+
+####  忘却的记忆  
+##### 1107#       发表于 2022-11-9 12:07
+
+有无无赖找室友，这怪一跑出镜头老父亲就得死
+
+*****
+
+####  性兽阿怪  
+##### 1108#       发表于 2022-11-9 12:08
+
+克瓦希尔护身符居然还成了套装效果，而且升到顶级也不会增加时间，真就是用什么砍什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
