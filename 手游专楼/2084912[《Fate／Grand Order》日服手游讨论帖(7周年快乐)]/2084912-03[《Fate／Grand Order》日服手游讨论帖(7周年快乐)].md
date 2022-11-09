@@ -4979,3 +4979,12 @@ FguGwNXVsAAhJlZ.jpg
 
 我怎么打不死，你们都是带攻击加成礼装的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 3458#       发表于 2022-11-10 00:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">80W血。我人都傻了。不管了，明天一边打古战场一边思考怎样打吧
+

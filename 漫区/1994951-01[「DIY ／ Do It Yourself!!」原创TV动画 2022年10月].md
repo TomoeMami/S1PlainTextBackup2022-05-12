@@ -4702,3 +4702,23 @@ DIY＃６話も参加しました！！
 よろしくお願いします！！！
 <img src="https://p.sda1.dev/8/0ddb73890350c5543f6fb1d30ac55b13/20221110_000028.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 371#       发表于 2022-11-10 00:23
+
+ 本帖最后由 千恋万花 于 2022-11-10 00:27 编辑 
+
+アニメディア 2022年12月号 Do It Yourself!! 設定資料集
+<img src="https://p.sda1.dev/8/cf49cef7e41e50c94117dfec1288c10e/116.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/1a86d67912b72f512587419a031c8bfc/117.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/de563d637342872524f36d47d493140e/118.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/990c6678aece0ef5911194d6a42c0d84/119.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/9bfc3e4b934605f06c72e415193f8ad4/120.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/04295f9ab03053bc4a4e2d8a17ba08d5/121.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/43a372e2856c240d829d3bd46075f2ac/122.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/5132b73e1743eed811f37175e06f87f9/123.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/000ba2863adbdcd404fd706bd77b536a/124.png" referrerpolicy="no-referrer">
+

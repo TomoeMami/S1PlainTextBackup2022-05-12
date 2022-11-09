@@ -11406,3 +11406,22 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 在a9，不能说ui不好看，字体丑，类大型DLC，没有1到2的进化，只要一说，铁定被追着咬
 
+
+
+*****
+
+####  阳ノ下光  
+##### 1175#       发表于 2022-11-10 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360973&amp;ptid=2025548" target="_blank">jakelee1985 发表于 2022-11-10 00:20</a>
+
+在a9，不能说ui不好看，字体丑，类大型DLC，没有1到2的进化，只要一说，铁定被追着咬 ...</blockquote>
+你以为在这里不是吗
+
+*****
+
+####  hotsmile  
+##### 1176#       发表于 2022-11-10 00:24
+
+尼妹那段除了反衬洛基不开心的时候，两人的处理不同外（奎爷叫他训练，尼妹和他散心玩耍），还有引出世界蛇的由来，不知道后面有没有再利用到那些珠子的时候，不过那段的确太拖
+
