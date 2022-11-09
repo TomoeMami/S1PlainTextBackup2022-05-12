@@ -3689,3 +3689,15 @@ DNA这里就是让男主和青梅竹马的相遇从偶然变成必然而已，�
 草，又想到三段跳加弹跳鞋加失重，拿上一把法杖，竞技场不是横着走了</blockquote>
 斗技场主要卡点是限时关，而且拿到无限反重力的时候斗技场应该也差不多只剩boss杯了
 
+
+
+*****
+
+####  adw667  
+##### 1827#       发表于 2022-11-9 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58349673&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-9 11:50</a>
+
+我和你相反，我一直打困难，下次要我开新局甚至推荐新人一定要选低难度好好欣赏这个剧本，现在是每次出新 ...</blockquote>
+我也是低难度开的，而且每章也要刷一晚上才进下一章。我的意思就是应该允许玩家低难度打到新章之后把难度调到困难以上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

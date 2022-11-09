@@ -11015,3 +11015,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 奎爷老婆这长得不好看啊</blockquote>
 你看奎爷第一任老婆，和菲其实蛮像的。其实菲除了满头金发，还满符合奎爷的审美的，而且人家很强，奎爷还不一定打得过。
 
+
+
+*****
+
+####  Kazepollar  
+##### 1135#       发表于 2022-11-9 16:35
+
+没事，这代芙蕾雅明显做的挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
