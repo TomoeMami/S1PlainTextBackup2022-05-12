@@ -3399,3 +3399,22 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 那个连续波要怎么跳过去?我是在boss放这招前用雷枪穿到它背后躲的</blockquote>
 慢的时候可以一个一个跨，感觉快到一个临界点的时候要转为每两个一跨 这时候不站台子高度就不够（滑翔 后退回避赖一下滞空最后几下更好躲）
 
+
+
+*****
+
+####  llysander  
+##### 1801#       发表于 2022-11-9 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58346386&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-9 08:44</a>
+
+这游戏应该在打到新章之后允许把难度调到困难以上，不然实在对不起刷的这一身属性 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">后面相当膨胀，数值和性能都膨胀 ，敌方却没新机制了，所以越打越简单了
+
+*****
+
+####  zhangzlo  
+##### 1802#       发表于 2022-11-9 10:28
+
+wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一个没拿到。。
+
