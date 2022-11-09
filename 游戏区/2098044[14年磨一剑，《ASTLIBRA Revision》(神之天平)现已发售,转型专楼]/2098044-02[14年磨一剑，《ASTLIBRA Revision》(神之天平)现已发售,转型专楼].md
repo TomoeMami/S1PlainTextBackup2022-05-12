@@ -3418,3 +3418,12 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 
 wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一个没拿到。。
 
+
+
+*****
+
+####  skgaminger1988  
+##### 1803#       发表于 2022-11-9 10:53
+
+是不是越往后设计图越难刷啊 前面几章都是通关设计图就刷的差不多了 第六章都快把普通武器练满了还没见到设计图<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

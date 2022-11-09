@@ -224,3 +224,12 @@
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 17187#       发表于 2022-11-9 10:55
+
+现在每次团战最恶心我的还是被经常惨雾MISS<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
