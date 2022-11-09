@@ -11295,3 +11295,14 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 关于洛基与黑人的那段政治正确的剧情处理的怎么样？是不是烂到看了这段剧情更狠黑人了？我看主播直播洛基与黑妹的那段里弹幕中全是对黑人喊打喊杀喊种族灭绝的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ozymandias  
+##### 1164#       发表于 2022-11-9 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58359606&amp;ptid=2025548" target="_blank">蒋公卖萌 发表于 2022-11-9 22:37</a>
+关于洛基与黑人的那段政治正确的剧情处理的怎么样？是不是烂到看了这段剧情更狠黑人了？我看主播直播洛基与 ...</blockquote>
+打完奶奶后的一系列情绪转变也太怪了
+
