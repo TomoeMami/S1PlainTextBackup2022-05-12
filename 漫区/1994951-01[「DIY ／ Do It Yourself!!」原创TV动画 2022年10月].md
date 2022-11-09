@@ -4616,3 +4616,27 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 
 布丁上大分
 
+
+
+*****
+
+####  CharlieZ-  
+##### 365#       发表于 2022-11-9 23:39
+
+这番的观感太顶级了，观看舒适度应该能排十月前三<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+就是这讨论度实在是，只能说是实在没啥好聊的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  亚瑟邓特  
+##### 366#       发表于 2022-11-9 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360386&amp;ptid=1994951" target="_blank">CharlieZ- 发表于 2022-11-9 23:39</a>
+这番的观感太顶级了，观看舒适度应该能排十月前三
+
+就是这讨论度实在是，只能说是实在没啥好聊的吗[f ...</blockquote>
+泥潭作臀太少了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

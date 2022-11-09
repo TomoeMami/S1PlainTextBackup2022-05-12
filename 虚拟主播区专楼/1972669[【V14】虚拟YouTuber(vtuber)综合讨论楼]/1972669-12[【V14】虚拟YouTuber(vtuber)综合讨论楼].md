@@ -725,3 +725,12 @@ cpt真的只选择了想和谁一起玩，完全没考虑角色的构成，现�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">jasper队今天教练gon桑代打，没上帝视角指挥打得一塌糊涂，gon桑还各种紧张，违规用长枪和找不到暂停按钮这种低级错误各种犯，前途多舛啊
 
+
+
+*****
+
+####  rzrbtk  
+##### 17701#       发表于 2022-11-9 23:37
+
+因为上次nijivspo麻将赛的时候niji惨败，rion被发配到vspo去了（玩笑），这回郡道就跟如月顺着聊，结果阿葵也开玩笑说“从虹去vspo什么的不能接受啊，阿葵我的爱社心不能这样（略）”，结果有评论认真在问阿葵是不是和tsuna不仲，喷了
+
