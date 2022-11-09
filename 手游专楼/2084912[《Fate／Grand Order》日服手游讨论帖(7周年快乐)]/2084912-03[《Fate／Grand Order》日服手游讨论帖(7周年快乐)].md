@@ -5002,3 +5002,15 @@ FguGwNXVsAAhJlZ.jpg
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  alucardcz  
+##### 3460#       发表于 2022-11-10 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360761&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-11-10 00:05</a>
+
+我怎么打不死，你们都是带攻击加成礼装的吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都没几个礼装当然直接黑杯啊
+
