@@ -4859,3 +4859,32 @@ FguGwNXVsAAhJlZ.jpg
 
 艾雷+金时+W奥贝隆稳定3回合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3446#       发表于 2022-11-9 21:33
+
+这次宝具好怪，骑阶专杀枪
+
+骑乘特攻加骑阶特攻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这是抢杀阶工作是吧
+
+*****
+
+####  poor  
+##### 3447#       发表于 2022-11-9 21:34
+
+有没有一宝打手能用的配置，没有杀狐<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  廖化  
+##### 3448#       发表于 2022-11-9 21:42
+
+没有单体打手，90+和90++打不过……<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
