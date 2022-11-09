@@ -3375,3 +3375,15 @@ BOSS一直浮空根本打不到你<img src="https://static.saraba1st.com/image/s
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 1799#       发表于 2022-11-9 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58332809&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-8 12:21</a>
+
+昨晚把第3章的装备全做出来再练到精通，顺便练了1级，加了一堆点数解放了几个新凭依，轻松把boss给剁了，感 ...</blockquote>
+这游戏应该在打到新章之后允许把难度调到困难以上，不然实在对不起刷的这一身属性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -10467,3 +10467,27 @@ PS5这精度真吓人，高帧简直太屌
 
 雷神就是公事公办而已，奥丁给他的任务就是支开奎爷一段时间自己好给儿子灌迷魂汤
 
+
+
+*****
+
+####  JudgmentEye  
+##### 1081#       发表于 2022-11-9 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58344359&amp;ptid=2025548" target="_blank">Yason 发表于 2022-11-9 00:22</a>
+
+不是说有首日补丁吗，咋没有</blockquote>
+有，18g的2.0补丁
+
+*****
+
+####  JudgmentEye  
+##### 1082#       发表于 2022-11-9 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58344386&amp;ptid=2025548" target="_blank">amanohanei 发表于 2022-11-9 00:23</a>
+
+这几天加班都忘了,买PS4版的 PS5的解锁吗?
+
+只有PS4,但是考虑一下未来嘛</blockquote>
+10刀升级
+
