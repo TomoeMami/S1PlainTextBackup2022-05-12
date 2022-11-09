@@ -10679,3 +10679,15 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 搞到一个双刀刀柄，长按三角可以弹开远程攻击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小妹  
+##### 1100#       发表于 2022-11-9 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58345565&amp;ptid=2025548" target="_blank">无动于衷 发表于 2022-11-9 05:40</a>
+
+这游戏日服是Z级恐怕不能用点卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">那怎么买？港服支付宝OK吗
+
