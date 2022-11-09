@@ -10652,3 +10652,30 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 我觉得这代开头还挺难的 比第一部难
 
+
+
+*****
+
+####  clover293  
+##### 1097#       发表于 2022-11-9 11:11
+
+我觉得这个系统变的挺多吧，战斗明显比前代舒服了，三角蓄能也不错。
+
+但矮人这段，真的不是战神4没做完最后放进去的吗？
+
+*****
+
+####  武井咲  
+##### 1098#       发表于 2022-11-9 11:13
+
+这个字体真的好丑啊，繁中的不知道怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kazepollar  
+##### 1099#       发表于 2022-11-9 11:17
+
+搞到一个双刀刀柄，长按三角可以弹开远程攻击<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

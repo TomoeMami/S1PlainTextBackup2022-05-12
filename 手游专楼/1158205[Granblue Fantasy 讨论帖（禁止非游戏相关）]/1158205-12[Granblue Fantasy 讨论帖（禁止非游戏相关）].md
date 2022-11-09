@@ -245,3 +245,22 @@
 现在每次团战最恶心我的还是被经常惨雾MISS</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你需要300rank的lb
 
+
+
+*****
+
+####  poor  
+##### 17189#       发表于 2022-11-9 11:10
+
+打了下95，100没有弱体对策肉眼可见要完球<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  areklose  
+##### 17190#       发表于 2022-11-9 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348824&amp;ptid=1158205" target="_blank">poor 发表于 2022-11-9 11:10</a>
+
+打了下95，100没有弱体对策肉眼可见要完球</blockquote>
+2个C5，二选一
+
