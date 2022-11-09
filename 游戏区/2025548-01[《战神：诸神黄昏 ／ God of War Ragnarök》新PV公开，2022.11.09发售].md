@@ -10863,3 +10863,14 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 奎爷老婆这长得不好看啊</blockquote>
 第一眼看过去像是骑砍1跑出来的角色<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mimighost  
+##### 1120#       发表于 2022-11-9 13:20
+
+这老婆就是npc脸和身材，绝了。
+
+估计是给后面绿奥丁做铺垫，不能抢了freya的风头
+
