@@ -4810,3 +4810,32 @@ FguGwNXVsAAhJlZ.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我艹 掉第二张了 出货率提升了么
 
+
+
+*****
+
+####  qixinno2  
+##### 3441#       发表于 2022-11-9 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357623&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-9 20:11</a>
+
+王姐120级失败  开始备战 2。7了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经随缘了 石不过三很快乐
+
+*****
+
+####  exiaexa  
+##### 3442#       发表于 2022-11-9 20:25
+
+万万没想到，艹本伊吹又杀了回来
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 3443#       发表于 2022-11-9 20:26
+
+150石
+
+两隻妖精高文(宝5...)，1隻妖精骑士(但是枪兵...已长时间没见过灰卡变金卡)
+

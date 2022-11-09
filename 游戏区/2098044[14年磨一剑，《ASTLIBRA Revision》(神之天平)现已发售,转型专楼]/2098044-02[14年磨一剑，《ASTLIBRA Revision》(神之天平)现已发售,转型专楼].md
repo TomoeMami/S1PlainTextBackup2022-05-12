@@ -3830,3 +3830,14 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">雪山半山腰那个隐藏宝箱触发点怎么下去啊
 
+
+
+*****
+
+####  shangfire  
+##### 1840#       发表于 2022-11-9 20:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357778&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-9 20:20</a>
+雪山半山腰那个隐藏宝箱触发点怎么下去啊</blockquote>
+就在当前地图稍微靠右的地方可以钻进去，建议脱鞋
+
