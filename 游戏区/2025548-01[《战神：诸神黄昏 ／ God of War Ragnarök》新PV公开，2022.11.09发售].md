@@ -11450,3 +11450,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 还有什么DLC能游玩这么长时间麻烦举个例子看看 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个过路的  
+##### 1180#       发表于 2022-11-10 01:18
+
+发售前DLC论是可以单独拿出来说的，现在退而求其次，跟字体丑和UI差混在一起说试图增加说服力。
+
