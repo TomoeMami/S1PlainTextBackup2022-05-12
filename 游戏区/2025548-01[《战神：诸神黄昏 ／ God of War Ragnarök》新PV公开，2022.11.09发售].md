@@ -10921,3 +10921,18 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 有朋友知道按钮怎么改成PS5的纯白显示样式吗？现在显示的还是带颜色的三角方块，经常出戏。。。
 
+
+
+*****
+
+####  wgoenitz  
+##### 1126#       发表于 2022-11-9 14:15
+
+ 本帖最后由 wgoenitz 于 2022-11-9 14:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348871&amp;ptid=2025548" target="_blank">武井咲 发表于 2022-11-9 11:13</a>
+
+这个字体真的好丑啊，繁中的不知道怎么样
+
+—— 来自 S1Fun</blockquote>
+我觉得他们想搞那种复古残破的感觉，但弄成了模拟器滤镜的放大黏腻感……刚进去吓一跳，还以为分辨率不对，怎么字这么糊
+
