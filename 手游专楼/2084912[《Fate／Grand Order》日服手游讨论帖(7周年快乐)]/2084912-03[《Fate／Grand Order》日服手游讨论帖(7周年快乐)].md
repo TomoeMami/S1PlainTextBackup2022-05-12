@@ -4452,3 +4452,67 @@ FguGwNXVsAAhJlZ.jpg
 
 （另外这个特写还以为是SSR清姬...）
 
+
+
+*****
+
+####  qixinno2  
+##### 3402#       发表于 2022-11-9 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">枪阶太好了 最不需要的就是枪阶
+
+*****
+
+####  alucardcz  
+##### 3403#       发表于 2022-11-9 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58356505&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-9 18:53</a>
+
+枪阶太好了 最不需要的就是枪阶</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先把欧羡慕打好
+
+*****
+
+####  黑上シグマ  
+##### 3404#       发表于 2022-11-9 18:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">作为一个拥有所有枪阶的男人，我开始思考这波该不该抽……
+
+*****
+
+####  仰望神的括约肌  
+##### 3405#       发表于 2022-11-9 18:56
+
+今年最后一个从者 圣诞无了<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yangun22  
+##### 3406#       发表于 2022-11-9 18:56
+
+今年最后一个新角了，7章的要放到新年出了
+
+*****
+
+####  Sleipnirω  
+##### 3407#       发表于 2022-11-9 18:56
+
+怎么盔甲给脱了，我看你是根本就不懂啊
+
+*****
+
+####  qixinno2  
+##### 3408#       发表于 2022-11-9 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58356533&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-9 18:55</a>
+
+先把欧羡慕打好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧个毛线 只有6石连个四星礼装都抽不到
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3409#       发表于 2022-11-9 18:59
+
+七章下个月底那这中间还有个圣诞无限池？总不能嗯rts2.6长草一个月吧
+

@@ -1428,3 +1428,23 @@ navi感觉状态也不错啊，这下冠军人选有三个了，上一届相信n
 faze感觉是没了冲劲，安特卫普感觉是五个人都很想赢，有些小问题也被爆发掩盖掉，拿了冠军之后都有些懈怠了 ...</blockquote>
 总监是最想赢的
 
+
+
+*****
+
+####  dev2ce  
+##### 2789#       发表于 2022-11-9 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348543&amp;ptid=1857369" target="_blank">rrtyui 发表于 2022-11-9 10:56</a>
+设备都已经沦为笑柄了怎么还要这样搞</blockquote>
+说明复健还不满意吧，设备毕竟阔别职业赛场快一年了，而且当年为什么当叛忍不就是哥几个实在不行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 2790#       发表于 2022-11-9 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58356052&amp;ptid=1857369" target="_blank">ml1642879 发表于 2022-11-9 18:20</a>
+总监是最想赢的</blockquote>
+拿到里约就是双大满贯+双major，前无古人的荣誉吸引力还是大的，奈何队友摆了
+

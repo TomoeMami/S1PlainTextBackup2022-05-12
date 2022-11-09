@@ -11177,3 +11177,34 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 可惜太多场景只能看不能碰。。。
 
+
+
+*****
+
+####  crosz1985  
+##### 1152#       发表于 2022-11-9 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58356458&amp;ptid=2025548" target="_blank">mimighost 发表于 2022-11-9 18:49</a>
+
+高帧数+性能模式的体验是我感觉目前ps5最强表现力
+
+可惜太多场景只能看不能碰。。。 ...</blockquote>
+高帧数+性能模式是不是1440P90帧
+
+*****
+
+####  mimighost  
+##### 1153#       发表于 2022-11-9 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58356478&amp;ptid=2025548" target="_blank">crosz1985 发表于 2022-11-9 18:51</a>
+
+高帧数+性能模式是不是1440P90帧</blockquote>
+好像说是60帧不锁？
+
+*****
+
+####  vacuumsword  
+##### 1154#       发表于 2022-11-9 18:55
+
+拉塔托斯克一代有出场么？我怎么完全不记得了
+
