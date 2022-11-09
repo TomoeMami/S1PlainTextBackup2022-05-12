@@ -10842,3 +10842,24 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 不是说好9号才发售吗，怎么B站已经有完美通关视频，这么快的吗
 
+
+
+*****
+
+####  性兽阿怪  
+##### 1118#       发表于 2022-11-9 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58350429&amp;ptid=2025548" target="_blank">focus 发表于 2022-11-9 12:32</a>
+背叛护符还有吗？一代最喜欢用的</blockquote>
+目前没找到类似功能的武器，现在刚做完精灵国度的支线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  marisa233  
+##### 1119#       发表于 2022-11-9 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58350655&amp;ptid=2025548" target="_blank">白昼梦 发表于 2022-11-9 12:45</a>
+
+奎爷老婆这长得不好看啊</blockquote>
+第一眼看过去像是骑砍1跑出来的角色<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
