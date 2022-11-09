@@ -10491,3 +10491,31 @@ PS5这精度真吓人，高帧简直太屌
 只有PS4,但是考虑一下未来嘛</blockquote>
 10刀升级
 
+
+
+*****
+
+####  JudgmentEye  
+##### 1083#       发表于 2022-11-9 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58341149&amp;ptid=2025548" target="_blank">芷雅居 发表于 2022-11-8 20:59</a>
+
+全区中文？那我要跨日服了</blockquote>
+全区中文，日版独占日配，欧版独占欧洲配音
+
+<img src="https://img.saraba1st.com/forum/202211/09/085503js2q9qadd14bx0ff.png" referrerpolicy="no-referrer">
+
+<strong>YC`}QXP8C(4ZSHQ%ERY`AW6.png</strong> (135.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-9 08:55 上传
+
+<img src="https://img.saraba1st.com/forum/202211/09/085527e2fj651z79fk922v.png" referrerpolicy="no-referrer">
+
+<strong>AI{%Y0KTV@3FDGJ)8H66SQI.png</strong> (129.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-9 08:55 上传
+

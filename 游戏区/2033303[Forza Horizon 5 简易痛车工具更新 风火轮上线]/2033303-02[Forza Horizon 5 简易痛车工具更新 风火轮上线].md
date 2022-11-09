@@ -32,3 +32,12 @@ dlss超高性能没法用，跑分发车的前车屁股糊成一片，加一档�
 
 劲啊，天选2的残血3060在其他设置不变的情况下把光追调到超高，开夜间阴影，DLSS质量，分辨率用DLDSR拉到1440p基本不会掉到60帧以下了；把阴影从高调到低还可以把分辨率拉到1620p。原本1080p一进瓜托华纳帧数就没上过60<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  920619lqy  
+##### 2496#       发表于 2022-11-9 08:59
+
+新增成就的触发条件是不是有问题，steam这边是对的，但是关联xbox那边是错的，做made in mexico结果解锁的几个成就都是horizon origins的
+
