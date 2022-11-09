@@ -4661,3 +4661,44 @@ DIY 社的活动室里没有空调，非常闷热不适，导致小己等人的�
 
 接受这一提议的小己一行拜访了礼的家，她们饶有兴趣地走进礼的房间后，发现了礼意外的一面……
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 368#       发表于 2022-11-9 23:59
+
+除了suang口！，别无可说。
+
+*****
+
+####  Piano-Forest  
+##### 369#         楼主| 发表于 2022-11-10 00:00
+
+すてっぷ６より、作監修正をご紹介
+<img src="https://p.sda1.dev/8/9a46bf119d50333a148b96f1acc148b8/20221109_235947.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0be11fd68aa5d808f48678e5ae2467a7/20221109_235949.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d2dc9e1e4515ffae8012344d2051238e/20221109_235950.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0802ac248958a8ea5a1080685c6cba5f/20221109_235951.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 370#         楼主| 发表于 2022-11-10 00:01
+
+[https://twitter.com/708FNWP/status/1590366308432240641](https://twitter.com/708FNWP/status/1590366308432240641)
+
+DIY6話少し原画やってました。
+
+とても良い回に参加できて良かったです。
+<img src="https://p.sda1.dev/8/31489529ef242c027428905f427e0419/20221110_000025.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/Hamha_S/status/1590365484222140416](https://twitter.com/Hamha_S/status/1590365484222140416)
+
+DIY＃６話も参加しました！！
+
+海！！！！！最高！！！！！！！！！
+
+よろしくお願いします！！！
+<img src="https://p.sda1.dev/8/0ddb73890350c5543f6fb1d30ac55b13/20221110_000028.jpg" referrerpolicy="no-referrer">
+

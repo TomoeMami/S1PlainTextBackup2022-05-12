@@ -11368,3 +11368,19 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 我刚玩到矮人村，感觉玩着没前作开场那么激动了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  WoLodEstt  
+##### 1171#       发表于 2022-11-9 23:51
+
+开头的亮度描述没问题吗，我调到90多两边花纹差不多看不清，到后面矮人国大白天亮的眼睛快受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+*****
+
+####  独掉寒江  
+##### 1172#       发表于 2022-11-10 00:00
+
+尼妹剧情太拖沓了，人设还丑的一批，扣大分
+

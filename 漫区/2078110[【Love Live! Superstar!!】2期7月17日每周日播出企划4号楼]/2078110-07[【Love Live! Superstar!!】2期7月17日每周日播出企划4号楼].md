@@ -2458,3 +2458,21 @@ s1没折叠有点吓人了啊<img src="https://static.saraba1st.com/image/smiley
 
 拼盘
 
+
+
+*****
+
+####  lj205  
+##### 9192#       发表于 2022-11-9 23:55
+
+今年的FNS没了吗
+
+*****
+
+####  nufawneafg  
+##### 9193#       发表于 2022-11-9 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360606&amp;ptid=2078110" target="_blank">lj205 发表于 2022-11-9 23:55</a>
+今年的FNS没了吗</blockquote>
+都反人类粪作了，真就按着日本全国人民的头喂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
