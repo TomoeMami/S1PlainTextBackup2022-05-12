@@ -4594,3 +4594,21 @@ FguGwNXVsAAhJlZ.jpg
 杀阶：NMDWSM
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  風卷豹  
+##### 3416#       发表于 2022-11-9 19:18
+
+没圣诞节啊，那想必是“人类的，世界的命运交给你了”<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  黑上シグマ  
+##### 3417#       发表于 2022-11-9 19:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2宝了
+

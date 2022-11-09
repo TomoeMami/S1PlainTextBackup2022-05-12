@@ -11220,3 +11220,21 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 不知道是不是剧透看多了，感觉打完熊为止，没有那种激动人心的感觉</blockquote>
 前作通关下来也说不上有什么激动人心的段落，估计这方面也延续前作基调，我现在对欧美游戏相当不满的一点就是真太缺乏亮眼的内容了，战神2里面巨马拉动岛屿这种超越想象的场面是再难出现了
 
+
+
+*****
+
+####  ff2077  
+##### 1156#       发表于 2022-11-9 19:17
+
+平衡和无情选啥<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onezer0618  
+##### 1157#       发表于 2022-11-9 19:18
+
+请问ps4pro有几个模式，建议开什么模式，盘还没发货。。。
+
+—— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
