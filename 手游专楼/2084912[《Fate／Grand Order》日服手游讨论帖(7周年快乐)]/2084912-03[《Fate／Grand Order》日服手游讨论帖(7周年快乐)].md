@@ -4961,3 +4961,12 @@ FguGwNXVsAAhJlZ.jpg
 
 这新五星被动就一个对魔力，也太朴素了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 3456#       发表于 2022-11-9 23:48
+
+这五星只有第一张卡面能看……后面画风突变的都什么和什么呀，强度也……这到底是让谁抽呀
+

@@ -11359,3 +11359,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 尼妹这剧情也太畜生了，这也太畜生了，受不了了。<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  白昼梦  
+##### 1170#       发表于 2022-11-9 23:42
+
+我刚玩到矮人村，感觉玩着没前作开场那么激动了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

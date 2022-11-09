@@ -3928,3 +3928,31 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 有点折磨
 
+
+
+*****
+
+####  電子器官依存  
+##### 1849#       发表于 2022-11-9 23:45
+
+<img src="https://img.saraba1st.com/forum/202211/09/234518vma93qfztcm5ca66.png" referrerpolicy="no-referrer">
+
+<strong>)OI}[DO(T`1`$$C860UDYM6.png</strong> (364.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-9 23:45 上传
+
+这个箱子怎么拿？
+
+*****
+
+####  linc555  
+##### 1850#       发表于 2022-11-9 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360469&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-9 23:45</a>
+这个箱子怎么拿？</blockquote>
+中间可以上去
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
