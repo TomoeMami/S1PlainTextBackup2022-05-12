@@ -10885,3 +10885,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 奥丁：my ex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mimighost  
+##### 1122#       发表于 2022-11-9 13:35
+
+到矮人国了，不得不说…目前感觉这个gameplay的确和前作没啥变化
+

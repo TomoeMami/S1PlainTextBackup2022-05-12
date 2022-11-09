@@ -3583,3 +3583,24 @@ DNA这里就是让男主和青梅竹马的相遇从偶然变成必然而已，�
 
 上面这段是追章续的设定所以会有点硬<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，免费版到打完女神就结束了，要把免费版结局各个时间线的人混居在一起的happy ending否定掉就给梦结局了，所以变成追章开头那样。
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1818#       发表于 2022-11-9 13:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58349364&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-9 11:34</a>
+
+这游戏是不是得刷怪升级的，第一章那个龙的boss平砍都不掉血，喷火球几下就挂了 ...</blockquote>
+1-2章主角很弱 越后面就越强 其实后面男主才是BOSS了
+
+*****
+
+####  abbccc200  
+##### 1819#       发表于 2022-11-9 13:37
+
+刚打到八章，怎么感觉有点吃力
+
+后期的武器越来越重，减重堆满也挥得好慢，敏捷堆高可以缓解吗？
+
