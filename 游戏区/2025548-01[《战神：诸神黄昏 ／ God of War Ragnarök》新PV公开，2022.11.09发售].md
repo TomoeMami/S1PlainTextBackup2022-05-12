@@ -11150,3 +11150,30 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 那就好，真的不习惯R1R2这种战斗方式。</blockquote>
 你用过方块三角攻击，视角很难调整的吧？
 
+
+
+*****
+
+####  mimighost  
+##### 1150#       发表于 2022-11-9 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58355709&amp;ptid=2025548" target="_blank">574802531 发表于 2022-11-9 17:58</a>
+
+不知道是不是剧透看多了，感觉打完熊为止，没有那种激动人心的感觉</blockquote>
+我没看剧透
+
+也没觉得激动
+
+目前真的感觉像是原作的扩展，就是新的章节
+
+但是质量我是满意的，希望剧情不要拉胯（已经放低期待
+
+*****
+
+####  mimighost  
+##### 1151#       发表于 2022-11-9 18:49
+
+高帧数+性能模式的体验是我感觉目前ps5最强表现力
+
+可惜太多场景只能看不能碰。。。
+

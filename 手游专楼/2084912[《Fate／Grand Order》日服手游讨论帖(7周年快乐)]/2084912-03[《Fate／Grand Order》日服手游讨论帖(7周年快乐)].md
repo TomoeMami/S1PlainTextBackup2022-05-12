@@ -4351,3 +4351,104 @@ FguGwNXVsAAhJlZ.jpg
 
 有钉子和井盖，挺好。
 
+
+
+*****
+
+####  exiaexa  
+##### 3394#       发表于 2022-11-9 18:46
+
+又是0NP活动，王姐祭王姐加班是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 3395#       发表于 2022-11-9 18:46
+
+五星刻印和四星礼装上的金钻头都好好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">爆杀卡面。
+
+*****
+
+####  alucardcz  
+##### 3396#       发表于 2022-11-9 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58356413&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-11-9 18:46</a>
+
+又是0NP活动，王姐祭王姐加班是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该全员外星人了
+
+*****
+
+####  黑上シグマ  
+##### 3397#       发表于 2022-11-9 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理所当然的是妹子
+
+*****
+
+####  alucardcz  
+##### 3398#       发表于 2022-11-9 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">里面居然不是欧若拉（
+
+*****
+
+####  Jamaisvu  
+##### 3399#       发表于 2022-11-9 18:49
+
+<img src="https://img.saraba1st.com/forum/202211/09/184818occc72pcc7reh7cc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221109_184751_tv.danmaku.bili.jpg</strong> (312.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-9 18:48 上传
+
+<img src="https://img.saraba1st.com/forum/202211/09/184818bcde5qcza7375z14.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221109_184724_tv.danmaku.bili.jpg</strong> (119.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-9 18:48 上传
+
+<img src="https://img.saraba1st.com/forum/202211/09/184819p6p5zhmq110e606p.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221109_184730_tv.danmaku.bili.jpg</strong> (189.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-9 18:48 上传
+
+<img src="https://img.saraba1st.com/forum/202211/09/184820r9llb9zx4hybkur9.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221109_184733_tv.danmaku.bili.jpg</strong> (179.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-9 18:48 上传
+
+妖精骑士布拉达曼特（误）
+
+*****
+
+####  exiaexa  
+##### 3400#       发表于 2022-11-9 18:49
+
+只能说性癖对了，先抽为敬，圣诞安排个男人吧谢谢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 3401#       发表于 2022-11-9 18:51
+
+ 本帖最后由 Jamaisvu 于 2022-11-9 18:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58356451&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-11-9 18:49</a>
+
+妖精骑士布拉达曼特（误）</blockquote>
+看宝具动画，又是变身换装，大概率三阶共用一个<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">希望能看到高达形态的宝具吧...
+
+（另外这个特写还以为是SSR清姬...）
+
