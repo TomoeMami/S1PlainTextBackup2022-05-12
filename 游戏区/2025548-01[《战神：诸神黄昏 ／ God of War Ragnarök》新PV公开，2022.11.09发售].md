@@ -11441,3 +11441,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 战斗这一项就不可能只是什么dlc或者1.5了啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">整体节奏大改，稍微大点的战点设计也和前作完全不一样
 
+
+
+*****
+
+####  Mikumiku831  
+##### 1179#       发表于 2022-11-10 01:01
+
+还有什么DLC能游玩这么长时间麻烦举个例子看看 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

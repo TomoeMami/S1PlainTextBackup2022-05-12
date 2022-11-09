@@ -3965,3 +3965,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 一周目最终boss前绿色晶石去哪里刷效率点？感觉所有的升级都卡绿色
 
+
+
+*****
+
+####  tsubaki  
+##### 1852#       发表于 2022-11-10 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360894&amp;ptid=2098044" target="_blank">烧饼的愤怒 发表于 2022-11-10 00:14</a>
+
+一周目最终boss前绿色晶石去哪里刷效率点？感觉所有的升级都卡绿色</blockquote>
+7章前半回老家那边的路上 蚊子很多，那个都出绿块，带上1.3倍晶体徽章来回刷
+
