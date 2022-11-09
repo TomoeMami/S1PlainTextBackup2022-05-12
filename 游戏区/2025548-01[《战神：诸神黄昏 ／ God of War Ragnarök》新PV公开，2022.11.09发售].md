@@ -11384,3 +11384,16 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 尼妹剧情太拖沓了，人设还丑的一批，扣大分
 
+
+
+*****
+
+####  泉美  
+##### 1173#       发表于 2022-11-10 00:10
+
+七个半小时救完提尔。
+
+这作高低差设计看演示的时候觉得没啥意思，实际上手后意外地战斗和解谜都增趣不少。
+
+奎秃这作什么正能量好父亲，太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

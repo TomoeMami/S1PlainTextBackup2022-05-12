@@ -4970,3 +4970,12 @@ FguGwNXVsAAhJlZ.jpg
 
 这五星只有第一张卡面能看……后面画风突变的都什么和什么呀，强度也……这到底是让谁抽呀
 
+
+
+*****
+
+####  rooarr  
+##### 3457#       发表于 2022-11-10 00:05
+
+我怎么打不死，你们都是带攻击加成礼装的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
