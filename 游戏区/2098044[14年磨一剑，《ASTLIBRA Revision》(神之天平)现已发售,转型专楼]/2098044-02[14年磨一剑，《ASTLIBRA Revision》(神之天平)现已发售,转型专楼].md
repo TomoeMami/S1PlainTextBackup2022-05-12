@@ -3478,3 +3478,71 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 这游戏是不是得刷怪升级的，第一章那个龙的boss平砍都不掉血，喷火球几下就挂了
 
+
+
+*****
+
+####  redsouris  
+##### 1809#       发表于 2022-11-9 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58349364&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-9 11:34</a>
+这游戏是不是得刷怪升级的，第一章那个龙的boss平砍都不掉血，喷火球几下就挂了 ...</blockquote>
+刷图纸换装备练技能，升级加的属性不多
+那个守护兽身体不破防时候是打不掉血的，头平时也能打掉血，火球可以躲可以盾挡
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  zhangzlo  
+##### 1810#       发表于 2022-11-9 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58349364&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-9 11:34</a>
+
+这游戏是不是得刷怪升级的，第一章那个龙的boss平砍都不掉血，喷火球几下就挂了 ...</blockquote>
+这游戏最难得BOSS是第一章BOSS <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  管住键政的手  
+##### 1811#       发表于 2022-11-9 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348044&amp;ptid=2098044" target="_blank">zhangzlo 发表于 2022-11-9 10:28</a>
+
+wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一个没拿到。。</blockquote>
+体感大概40-50层掉一个。
+
+*****
+
+####  shangfire  
+##### 1812#       发表于 2022-11-9 11:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58349364&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-9 11:34</a>
+这游戏是不是得刷怪升级的，第一章那个龙的boss平砍都不掉血，喷火球几下就挂了 ...</blockquote>
+刷是要刷的，但刷的不是等级而是图纸跟熟练度，每章5个图纸以及该章所有武器防具的熟练度，刷完了再成长一下，强度就能媲美关底boss了，视所选难度甚至可能碾压，等级这东西只是添头
+不过我最近玩的荒谬难度，第一章刷全了14级去打那条龙，也一样是不破防，除了用大锤，感觉计算公式是首先得攻高过防才能造成伤害，至于龙的招数，作为第一个boss已经够简单了，一共就三招，注意躲一下就行
+
+*****
+
+####  nogi  
+##### 1813#       发表于 2022-11-9 11:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58349519&amp;ptid=2098044" target="_blank">redsouris 发表于 2022-11-9 11:43</a>
+
+刷图纸换装备练技能，升级加的属性不多
+
+那个守护兽身体不破防时候是打不掉血的，头平时也能打掉血，火球 ...</blockquote>
+图纸是啥图纸？小怪就会掉么
+
+*****
+
+####  永远的访客  
+##### 1814#       发表于 2022-11-9 11:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58346386&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-9 08:44</a>
+
+这游戏应该在打到新章之后允许把难度调到困难以上，不然实在对不起刷的这一身属性 ...</blockquote>
+我和你相反，我一直打困难，下次要我开新局甚至推荐新人一定要选低难度好好欣赏这个剧本，现在是每次出新章存盘点先刷个几小时再考虑推剧情，等推到了都甚至可能是第2天，前面细节都忘记了。
+
+现在打到第4章，感觉要进入分支深水区了，更是不敢试了，一想到走错路线就代表要重打几天就头麻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
