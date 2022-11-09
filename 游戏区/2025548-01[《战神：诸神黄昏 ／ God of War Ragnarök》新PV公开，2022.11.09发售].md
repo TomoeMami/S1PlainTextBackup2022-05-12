@@ -10814,3 +10814,31 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 不过老头环的洗礼现在我已经是地滚侠了，难不倒我lol
 
+
+
+*****
+
+####  mimighost  
+##### 1115#       发表于 2022-11-9 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58347438&amp;ptid=2025548" target="_blank">wgoenitz 发表于 2022-11-9 09:50</a>
+
+打完第一场雷神，感觉战斗拖的太长，期间又被切的太碎，整体不如陌生人战节奏好（魄力也感觉一般般，雷神像 ...</blockquote>
+嗯
+
+感觉这奥丁一家子老家怕不是在北欧而是密西西比吧lol，还是全家饭毒那种
+
+*****
+
+####  白昼梦  
+##### 1116#       发表于 2022-11-9 12:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奎爷老婆这长得不好看啊
+
+*****
+
+####  野山野林檎  
+##### 1117#       发表于 2022-11-9 12:46
+
+不是说好9号才发售吗，怎么B站已经有完美通关视频，这么快的吗
+
