@@ -3677,3 +3677,15 @@ DNA这里就是让男主和青梅竹马的相遇从偶然变成必然而已，�
 
 草，又想到三段跳加弹跳鞋加失重，拿上一把法杖，竞技场不是横着走了
 
+
+
+*****
+
+####  llysander  
+##### 1826#       发表于 2022-11-9 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58353755&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-9 16:04</a>
+
+草，又想到三段跳加弹跳鞋加失重，拿上一把法杖，竞技场不是横着走了</blockquote>
+斗技场主要卡点是限时关，而且拿到无限反重力的时候斗技场应该也差不多只剩boss杯了
+

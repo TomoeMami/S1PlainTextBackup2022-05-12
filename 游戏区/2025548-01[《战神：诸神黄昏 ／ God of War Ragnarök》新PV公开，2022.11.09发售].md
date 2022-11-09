@@ -10994,3 +10994,24 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 黑妹的观感比想象中的要好，但这章节奏真的太慢了，把那些干杂活删了会好很多
 
+
+
+*****
+
+####  猫将军  
+##### 1133#       发表于 2022-11-9 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58350312&amp;ptid=2025548" target="_blank">SergeGlenn 发表于 2022-11-9 12:26</a>
+有，变成L1+下了</blockquote>
+感谢，昨晚打完雷神还在纳闷
+
+*****
+
+####  ads147147  
+##### 1134#       发表于 2022-11-9 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58350655&amp;ptid=2025548" target="_blank">白昼梦 发表于 2022-11-9 12:45</a>
+
+奎爷老婆这长得不好看啊</blockquote>
+你看奎爷第一任老婆，和菲其实蛮像的。其实菲除了满头金发，还满符合奎爷的审美的，而且人家很强，奎爷还不一定打得过。
+
