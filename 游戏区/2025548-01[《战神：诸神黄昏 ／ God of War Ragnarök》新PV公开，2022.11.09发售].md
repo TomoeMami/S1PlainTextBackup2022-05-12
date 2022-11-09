@@ -10894,3 +10894,21 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 到矮人国了，不得不说…目前感觉这个gameplay的确和前作没啥变化
 
+
+
+*****
+
+####  Kazepollar  
+##### 1123#       发表于 2022-11-9 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58351456&amp;ptid=2025548" target="_blank">mimighost 发表于 2022-11-9 13:35</a>
+ 到矮人国了，不得不说…目前感觉这个gameplay的确和前作没啥变化</blockquote>
+后面战斗爽快程度翻倍了
+
+*****
+
+####  貓血発動機  
+##### 1124#       发表于 2022-11-9 13:48
+
+总觉得奎托斯和芙蕾雅会发生点什么中年人的第二春
+

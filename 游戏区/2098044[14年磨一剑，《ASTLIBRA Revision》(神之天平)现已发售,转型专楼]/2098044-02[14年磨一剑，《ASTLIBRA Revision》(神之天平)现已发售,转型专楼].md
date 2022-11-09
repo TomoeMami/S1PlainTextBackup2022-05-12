@@ -3604,3 +3604,31 @@ DNA这里就是让男主和青梅竹马的相遇从偶然变成必然而已，�
 
 后期的武器越来越重，减重堆满也挥得好慢，敏捷堆高可以缓解吗？
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1820#       发表于 2022-11-9 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58351487&amp;ptid=2098044" target="_blank">abbccc200 发表于 2022-11-9 13:37</a>
+
+刚打到八章，怎么感觉有点吃力
+
+后期的武器越来越重，减重堆满也挥得好慢，敏捷堆高可以缓解吗？ ...</blockquote>
+堆敏 还有个乌鸦天赋是改善重武器挥动下限
+
+幸运也不用堆了后面
+
+*****
+
+####  abbccc200  
+##### 1821#       发表于 2022-11-9 13:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58351567&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-9 13:42</a>
+
+堆敏 还有个乌鸦天赋是改善重武器挥动下限
+
+幸运也不用堆了后面</blockquote>
+好的 谢谢！
+
