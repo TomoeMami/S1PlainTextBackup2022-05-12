@@ -4988,3 +4988,17 @@ FguGwNXVsAAhJlZ.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">80W血。我人都傻了。不管了，明天一边打古战场一边思考怎样打吧
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3459#       发表于 2022-11-10 00:41
+
+<blockquote>引用第3455楼angelooo于2022-11-09 23:48发表的  :
+
+这五星只有第一张卡面能看……后面画风突变的都什么和什么呀，强度也……这到底是让谁抽呀</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你在说啥？这卡前几天名字公布的那一刻就注定了肯定脱甲变妹子，哪来什么画风突变
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
