@@ -3654,3 +3654,17 @@ DNA这里就是让男主和青梅竹马的相遇从偶然变成必然而已，�
 
 研究了一下加点，准备洗成纯敏捷猛男暴砍流，有点想回档拿神杀剑再爽一回最终boss了
 
+
+
+*****
+
+####  llysander  
+##### 1824#       发表于 2022-11-9 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58351487&amp;ptid=2098044" target="_blank">abbccc200 发表于 2022-11-9 13:37</a>
+
+刚打到八章，怎么感觉有点吃力
+
+后期的武器越来越重，减重堆满也挥得好慢，敏捷堆高可以缓解吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">  敏捷肯定要有点，天平里的减重也是基本一定要有，想要有正常体验保持装备重量0
+
