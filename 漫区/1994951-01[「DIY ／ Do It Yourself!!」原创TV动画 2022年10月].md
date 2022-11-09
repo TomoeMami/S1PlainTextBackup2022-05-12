@@ -4565,3 +4565,22 @@ https://twitter.com/GinsanSecond/status/1587860131366064128</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58341179&amp;ptid=1994951" target="_blank">Alicest 发表于 2022-11-8 21:01</a>
 怎么这就入团了，上集不是才做木屋吗</blockquote><blockquote>得知 Job 子要去海边，布丁在不知道这是 DIY 社活动的情况下跟着参加了。</blockquote>暂时还没加入，只是一起玩
 
+
+
+*****
+
+####  千恋万花  
+##### 361#       发表于 2022-11-9 16:53
+
+『Do It Yourself!! -どぅー・いっと・ゆあせるふ-』
+
+治子先生に関する設定と背景美術をご紹介&amp;#x1F528;
+
+すてっぷ６は本日２４時～放送です&amp;#x1F431;
+
+#diyアニメ #diy
+<img src="https://p.sda1.dev/8/27019c429987adeadbed32389f255977/PINEJAM_info-1590252858074693633-img1.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/54e537b4017c125085321698975a7bbb/PINEJAM_info-1590252858074693633-img2.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/4f832eccb7e653d928c0d31f5ea1dcae/PINEJAM_info-1590252858074693633-img3.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/68e98702dd0504da692ac7219f7ef41e/PINEJAM_info-1590252858074693633-img4.png" referrerpolicy="no-referrer">
+
