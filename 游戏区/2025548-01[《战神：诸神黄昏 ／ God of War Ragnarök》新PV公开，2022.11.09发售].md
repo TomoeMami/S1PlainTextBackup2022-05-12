@@ -10618,3 +10618,19 @@ Quality High Frame Rate: 1800/2160p, target 40fps.
 
 Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
+
+
+*****
+
+####  Kazepollar  
+##### 1093#       发表于 2022-11-9 10:36
+
+矮人国的那个三个塔的支线做完可以做一套装备，属性是晕眩值不减少和处决回血，感觉还行
+
+*****
+
+####  不中用  
+##### 1094#       发表于 2022-11-9 10:37
+
+这日配有点没绷住，还是换英配了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

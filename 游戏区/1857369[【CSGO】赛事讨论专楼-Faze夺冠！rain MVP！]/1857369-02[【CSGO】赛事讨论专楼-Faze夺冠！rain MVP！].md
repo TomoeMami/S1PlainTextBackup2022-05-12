@@ -1319,3 +1319,21 @@ faze除了broky还有没有二号战犯，总感觉他们拿了冠军度完假�
 
 9中4，哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dev2ce  
+##### 2779#       发表于 2022-11-9 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58344614&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-11-9 00:42</a>
+数天前，缺席一线赛事已久的丹麦选手device宣布回归Astralis。对于Astralis而言，此次变阵标志着他们有能力 ...</blockquote>
+陈哥一点机会都不给了吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 2780#       发表于 2022-11-9 10:38
+
+黑豹这3-0开局碰Navi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">寄
+
