@@ -11067,3 +11067,38 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 作为菜鸡，我准备平衡要么就宽容
 
+
+
+*****
+
+####  khxooo  
+##### 1141#       发表于 2022-11-9 17:31
+
+看到是R1R2战斗，能换回方框和三角吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白昼梦  
+##### 1142#       发表于 2022-11-9 17:33
+
+字体是真的难看，显得游戏很廉价，尤其是游戏还没开始，在设置界面的时候
+
+*****
+
+####  wgoenitz  
+##### 1143#       发表于 2022-11-9 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58354873&amp;ptid=2025548" target="_blank">妄想中毒 发表于 2022-11-9 17:08</a>
+
+老版ps4还能玩这游戏吗</blockquote>
+微博有人发视频，风扇发出飞机发动机的声音
+
+*****
+
+####  猫将军  
+##### 1144#       发表于 2022-11-9 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58355250&amp;ptid=2025548" target="_blank">khxooo 发表于 2022-11-9 17:31</a>
+看到是R1R2战斗，能换回方框和三角吗</blockquote>
+可以自定义按键
+
