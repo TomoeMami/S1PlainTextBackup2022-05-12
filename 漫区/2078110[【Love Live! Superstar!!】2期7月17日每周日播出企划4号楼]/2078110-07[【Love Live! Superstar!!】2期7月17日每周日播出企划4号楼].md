@@ -2598,3 +2598,47 @@ FNS发生了啥
 但是我觉得到现在再在地上波提这个动画是很巨魔的行为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 当然你要能这么巨魔我也没意见啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9203#       发表于 2022-11-10 14:24
+
+地上波一问香音你这个角色有什么亮点啊，反手来一句把维也纳当垫脚石就笑死了。
+
+我觉得星2剧情能洗的地方很多，就连可堇都能洗可可确实很讨厌民警最后星2才和好，就是维恩落榜生+洗脚婢的操作真的是前所未见，我觉得是个人都不应该在继续提星2这个鸟剧本了。
+
+*****
+
+####  nufawneafg  
+##### 9204#       发表于 2022-11-10 14:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58369635&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-11-10 14:24</a>
+地上波一问香音你这个角色有什么亮点啊，反手来一句把维也纳当垫脚石就笑死了。
+
+我觉得星2剧情能洗的地方 ...</blockquote>
+可惜这是多媒体企划，平常能瘸腿走走凑合过，想带着这个标签到业界台上还是得先锻炼抗压能力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 9205#       发表于 2022-11-10 14:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58369726&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-11-10 14:29</a>
+
+可惜这是多媒体企划，平常能瘸腿走走凑合过，想到带着这个标签到业界台上还是得先锻炼抗压能力 ...</blockquote>
+其实怎么应对我都想好了，以防剧透的名义做个简要版就行，反正大纲是好的嘛，大香老师给全世界带来笑容，就和榊游矢一样。况且后面结那作为大香老师的洗脚婢还要作为三期生加入呢，惜败大香老师都是人设的一部分了，自然也要进一步掩盖下，大家只是友好battle，绝没有赛前彪垃圾话哦。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nufawneafg| + 1|思路广|
+
+查看全部评分
+

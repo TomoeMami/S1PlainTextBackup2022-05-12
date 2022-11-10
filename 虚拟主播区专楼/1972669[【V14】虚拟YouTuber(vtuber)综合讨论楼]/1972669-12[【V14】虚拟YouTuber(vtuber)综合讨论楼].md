@@ -734,3 +734,29 @@ cpt真的只选择了想和谁一起玩，完全没考虑角色的构成，现�
 
 因为上次nijivspo麻将赛的时候niji惨败，rion被发配到vspo去了（玩笑），这回郡道就跟如月顺着聊，结果阿葵也开玩笑说“从虹去vspo什么的不能接受啊，阿葵我的爱社心不能这样（略）”，结果有评论认真在问阿葵是不是和tsuna不仲，喷了
 
+
+
+*****
+
+####  free  
+##### 17702#       发表于 2022-11-10 14:21
+
+／
+
+🎉 #Nornis 1st Live 开催决定
+
+＼
+
+#町田ちま #戌亥とこ #朝日南アカネ によるユニット Nornisの1st LIVEが2023年3月15日(水) グランキューブ大阪 メインホールにて开催决定！
+
+详细はこちら！▼
+[https://nornis.com](https://nornis.com)
+
+<img src="https://img.saraba1st.com/forum/202211/10/142130xz0mtt37bmmmrrkr.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (364.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-10 14:21 上传
+

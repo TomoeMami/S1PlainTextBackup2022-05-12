@@ -4736,3 +4736,17 @@ DIY＃６話も参加しました！！
 
 另外除了人名和OP歌词以外sweetsub跟阿B的翻译版本的很相近了，说明sweetsub翻得准确
 
+
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 373#       发表于 2022-11-10 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58281173&amp;ptid=1994951" target="_blank">yguygyu 发表于 2022-11-5 07:55</a>
+
+怎么 Bilibilion Meta Lab 的画面是灰蒙蒙的</blockquote>
+片源或压制问题，一个人干完所有的活，多少肯定会出点错
+
+不过让我推荐当然不选这家（个），毕竟不是正规字幕组，干活的也不是正儿八经日语系专业出身的……
+

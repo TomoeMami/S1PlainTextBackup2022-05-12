@@ -5146,3 +5146,12 @@ FguGwNXVsAAhJlZ.jpg
 
 5回合的话就是第4回合时一张狂娜卡都没有
 
+
+
+*****
+
+####  areklose  
+##### 3474#       发表于 2022-11-10 14:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我懒得研究了。出差在忙，还要打GBF团战。然后过几天又出新本了
+
