@@ -5099,3 +5099,17 @@ FguGwNXVsAAhJlZ.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这角色也太像厕纸轻小说里精灵了
 
+
+
+*****
+
+####  UNISONIA  
+##### 3470#       发表于 2022-11-10 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360504&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-11-9 23:48</a>
+
+这五星只有第一张卡面能看……后面画风突变的都什么和什么呀，强度也……这到底是让谁抽呀 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">川澄生放里还在骗氪
+
+顺带今年流水不咋地的，接下来一个半月没有新卡，就算复刻妖兰（初登场遇冷+复刻一般）奥伯龙（初登场还行但是不顶尖，没复刻过，强度拐）也不见得有多乐观
+

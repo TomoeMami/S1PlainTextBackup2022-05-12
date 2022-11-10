@@ -4159,3 +4159,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 是凭依技威力也影响buff幅度吗？</blockquote>
 恶魔怒和全爆发也有效，但总的来说数值buff类的凭依不好用
 
+
+
+*****
+
+####  llysander  
+##### 1869#       发表于 2022-11-10 11:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58365471&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-10 10:51</a>
+
+拿到了拿到了，无限悬浮的衣服真的很好用，竞技场打树芽那关和新章开护城河的箱子都能用到，坛友们可以参 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 几个护城河宽度的大沟还是设计得太仁慈了， 跳-&gt;空dash-&gt;跳-&gt;空dash-&gt;跳-&gt;空dash-&gt;升龙-&gt;空dash-&gt;转头回避 都能轻松过去
+
