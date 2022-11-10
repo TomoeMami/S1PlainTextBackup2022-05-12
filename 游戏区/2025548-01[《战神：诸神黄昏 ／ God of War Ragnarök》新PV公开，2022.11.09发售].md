@@ -12266,3 +12266,15 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 
 看不出来我觉得问题在你<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mikumiku831  
+##### 1261#       发表于 2022-11-10 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58373896&amp;ptid=2025548" target="_blank">SergeGlenn 发表于 2022-11-10 18:15</a>
+
+UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说有多惊艳，就是时时保持设计密度，探图开各种宝箱 ...</blockquote>
+光精灵那个反弹墙打怪爽爆了 
+

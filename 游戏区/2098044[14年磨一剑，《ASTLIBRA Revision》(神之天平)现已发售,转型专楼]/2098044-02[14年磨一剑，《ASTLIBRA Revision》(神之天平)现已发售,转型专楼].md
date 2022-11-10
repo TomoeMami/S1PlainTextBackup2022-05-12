@@ -4621,3 +4621,27 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 加时杯的两个树一直吹飞掉下去摔死有什么办法</blockquote>
 用法杖远程打死就好，上风加速和魔法师j很快的
 
+
+
+*****
+
+####  白軍浪  
+##### 1910#       发表于 2022-11-10 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58364684&amp;ptid=2098044" target="_blank">PNK 发表于 2022-11-10 10:13</a>
+
+暗黑有什么讲究？
+
+是凭依技威力也影响buff幅度吗？</blockquote>
+对，单单激活暗黑就可以增加很多，推荐暗黑加恶魔狂热，这样你先用空中擒抱打到启动，然后你用上平A就可以产生大量精力了，比空中擒抱涨的还快。空中擒抱有CD还需要跳起来，这个激活后你平A输出也好，用依凭也好都很强大
+
+*****
+
+####  白軍浪  
+##### 1911#       发表于 2022-11-10 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58370789&amp;ptid=2098044" target="_blank">pf67 发表于 2022-11-10 15:34</a>
+
+这个lowb神最后还对男主的强度感到惊讶，我怀疑这货压根就不知道天平计划的本质，属于众神里也是最low那 ...</blockquote>
+主角强度惊讶不是因为主角变黑了吗？
+

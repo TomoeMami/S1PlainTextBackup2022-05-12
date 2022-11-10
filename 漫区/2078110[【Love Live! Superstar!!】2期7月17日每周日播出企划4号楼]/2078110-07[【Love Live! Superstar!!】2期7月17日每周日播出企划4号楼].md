@@ -2767,3 +2767,16 @@ FNS发生了啥
 倒不是唱衰，我的意思是作为多媒体综合企划上这种年度综合向音番，总得把你的特色给大伙说出来，不能真就搞 ...</blockquote>
 那怕不是动画结束星直接腰斩了，企划都不在乎名声作为观众的我们急啥，音番不都这样走台本尬吹几句然后表演,年底分猪肉而已。
 
+
+
+*****
+
+####  player3960  
+##### 9217#       发表于 2022-11-10 19:26
+
+今天终于听到了三单两首的live版，满足了
+
+还有鲤鱼射箭姿势，拿箭的手居然放在弦里面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
