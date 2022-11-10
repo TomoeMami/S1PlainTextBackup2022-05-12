@@ -11951,3 +11951,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 二代完结也挺好的
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">下部作品直接科幻，看变化大不大，笑死
 
+
+
+*****
+
+####  hotsmile  
+##### 1230#       发表于 2022-11-10 12:45
+
+云个前几个小时就是dlc论，蠢不蠢，从可以控制儿子开始，新玩意一轮接一轮，这种人辩都懒得辩
+
