@@ -4280,3 +4280,12 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 后期武器攻击力真没什么卵用，除非刷得特别特别高，枪锤被动+魔杖的赚精力能力配合变种凭依技极其离谱 ...</blockquote>
 光研究怎么砍起来爽了，凭依技因为发动时不回条一直就用月光当作回避手段或者拍攻速和攻击力buff，爽一爽再研究精力回复吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cym887  
+##### 1879#       发表于 2022-11-10 14:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">钢剑巴鲁姆克 还有重生盾的第一个食物材料没有合成表 是第几章能拿到？
+
