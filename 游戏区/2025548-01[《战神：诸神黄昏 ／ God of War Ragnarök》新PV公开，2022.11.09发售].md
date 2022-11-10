@@ -12253,3 +12253,16 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 
 剧透讨论要不去剧透楼吧
 
+
+
+*****
+
+####  mimighost  
+##### 1260#       发表于 2022-11-10 19:14
+
+这个ui是真的丑，字丑特效也丑
+
+一代的ui是锐利的，这代怪古稀奇的，感觉是几个学生用ppt特效凑出来的
+
+看不出来我觉得问题在你<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

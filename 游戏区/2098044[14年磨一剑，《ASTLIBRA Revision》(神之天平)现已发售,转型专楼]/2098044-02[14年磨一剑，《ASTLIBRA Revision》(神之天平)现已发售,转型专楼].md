@@ -4583,3 +4583,41 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 在拿副武器那个地方</blockquote>
 找到了，副武器我也没捡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pf67  
+##### 1907#       发表于 2022-11-10 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374784&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-10 19:02</a>
+狗狗不是还说面包店的女儿实力很强 结果到盖亚门口都没看见人</blockquote>
+魔物入侵那里，隔着魔力屏障把那几个魔物打死，就能见面包房女儿了
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  方舟失智博士  
+##### 1908#       发表于 2022-11-10 19:16
+
+<img src="https://img.saraba1st.com/forum/202211/10/191612ijtha04gboeghh0o.png" referrerpolicy="no-referrer">
+
+<strong>1.png</strong> (149.05 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-10 19:16 上传
+
+难怪温泉的时候说黑好大
+
+*****
+
+####  白軍浪  
+##### 1909#       发表于 2022-11-10 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58359025&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-9 21:54</a>
+
+加时杯的两个树一直吹飞掉下去摔死有什么办法</blockquote>
+用法杖远程打死就好，上风加速和魔法师j很快的
+
