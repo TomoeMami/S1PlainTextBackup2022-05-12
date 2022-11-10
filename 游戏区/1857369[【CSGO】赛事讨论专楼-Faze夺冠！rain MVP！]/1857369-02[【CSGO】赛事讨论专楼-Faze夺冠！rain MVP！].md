@@ -1550,3 +1550,30 @@ apex的个人决策能叫风格吗？说森破的打法算他的风格是说他�
 体系是要靠人去实行的，把ZywOo安到设备位置确实不适合他，但这次major问题已经不只是体系了，豆指挥不行外加喜欢送，大番薯自己状态一般，魔杜两兄弟时好时坏，spinx米人化，不是沙2载的三枪鸟狙恐怕蜜蜂就要折戟挑战者组了
 而且就算a队原班人马体系还不是不行了，设备当叛忍就是哥几个老了，hltv18年还是选择了看rating，去nip年轻队伍冲个top1，结果两个1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2798#         楼主| 发表于 2022-11-10 20:53
+
+ 本帖最后由 朔方原的星 于 2022-11-10 20:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58376630&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-11-10 20:40</a>
+
+体系是要靠人去实行的，把ZywOo安到设备位置确实不适合他，但这次major问题已经不只是体系了，豆指挥不行外 ...</blockquote>
+我倒是觉得近期来看小蜜蜂还是有希望的，虽然那些抽象的地方还是很多
+
+但以结论来说的话打navi 森1.35载1.03拖了三加时，薯薯上半场不睡真能赢
+
+打faze这场不作数了，faze又拉薯薯又宰，就是暴打了
+
+打mouz托1.17 载1.00也拖了个长痛
+
+打ence更是SunPayus1.51 载0.94打了一场大分一场长痛
+
+在队内超级明星狙击手被对方狙击手严重压制的情况下能打出这样的比分来，用这几个样本不能说下一个怎样的结论吧，毕竟哥四个发挥还是不稳定的，对手本次major成绩也就那样，但还是可以说是能看到希望的算
+
+光把apex的突发性脑溢血治好都能有巨大提升
+
+a队倒是想想招能不能把zyphon鼓捣过来，汤都整回来了弄点大的别整天混比赛开摆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

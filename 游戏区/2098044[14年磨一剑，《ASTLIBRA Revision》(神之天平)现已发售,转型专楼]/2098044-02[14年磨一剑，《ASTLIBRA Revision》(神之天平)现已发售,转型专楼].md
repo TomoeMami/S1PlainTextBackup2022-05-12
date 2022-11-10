@@ -4791,3 +4791,38 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 我没有刻意刷，不喜欢用锤子，到第8章开头也解锁了</blockquote>
 我草，我都第2个档了，第一个档普通难度通关，第二个档困难难度也打到了新章，结果这成就还是没解……
 
+
+
+*****
+
+####  Sannapolis  
+##### 1925#       发表于 2022-11-10 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58376734&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-10 20:47</a>
+
+我草，我都第2个档了，第一个档普通难度通关，第二个档困难难度也打到了新章，结果这成就还是没解…… ...</blockquote>
+应该是看物品里战历之书里的数字给成就的
+
+不同难度存档的打击数不会叠加
+
+*****
+
+####  方舟失智博士  
+##### 1926#       发表于 2022-11-10 20:55
+
+草 等于这武器盘是有优劣的说法的？
+
+*****
+
+####  PNK  
+##### 1927#       发表于 2022-11-10 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58376734&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-10 20:47</a>
+
+我草，我都第2个档了，第一个档普通难度通关，第二个档困难难度也打到了新章，结果这成就还是没解…… ...</blockquote>
+那我不确定了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+我记得道具栏里有本战历之书（好像是扭蛋开出来的）可以看战斗相关记录来着
+
+你要不看看里面有没有写打击数？
+
