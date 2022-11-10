@@ -4866,3 +4866,43 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 问题是书里没有攻击次数的词条啊。</blockquote>
 第二页的攻击命中次数
 
+
+
+*****
+
+####  Quelaan  
+##### 1931#       发表于 2022-11-10 21:23
+
+这游戏的稀有度是不是和强度完全无关啊，第二章这个传说级的双蛇杖怎么这么菜<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  A1LI  
+##### 1932#       发表于 2022-11-10 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377336&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-10 21:23</a>
+
+这游戏的稀有度是不是和强度完全无关啊，第二章这个传说级的双蛇杖怎么这么菜 ...</blockquote>
+一周目法杖类武器就图一乐。
+
+*****
+
+####  白軍浪  
+##### 1933#       发表于 2022-11-10 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377336&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-10 21:23</a>
+
+这游戏的稀有度是不是和强度完全无关啊，第二章这个传说级的双蛇杖怎么这么菜 ...</blockquote>
+稀有度是这个章节里面的强度，下一章就不行了。所有的法杖都很强，不过需要能力和技能的支持
+
+*****
+
+####  redsouris  
+##### 1934#       发表于 2022-11-10 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377336&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-10 21:23</a>
+这游戏的稀有度是不是和强度完全无关啊，第二章这个传说级的双蛇杖怎么这么菜 ...</blockquote>
+法杖玩法和普通武器不一样，等有了技能支持的时候威力很离谱
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

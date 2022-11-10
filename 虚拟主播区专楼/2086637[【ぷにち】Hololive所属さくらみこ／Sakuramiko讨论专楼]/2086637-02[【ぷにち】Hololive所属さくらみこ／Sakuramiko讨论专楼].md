@@ -15076,3 +15076,16 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 连体人要疯，明天还有火建联动
 
+
+
+*****
+
+####  rs5621  
+##### 2940#       发表于 2022-11-10 21:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377300&amp;ptid=2086637" target="_blank">tesparu 发表于 2022-11-10 21:21</a>
+连体人要疯，明天还有火建联动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">好久没见你冒泡了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -10056,3 +10056,14 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 鸭鸭漏勺了7个人，不知道是指现场包括厂公有7个，还是未来还有2个新人？
 
+
+
+*****
+
+####  天青月白  
+##### 2564#       发表于 2022-11-10 21:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377229&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-11-10 21:18</a>
+鸭鸭漏勺了7个人，不知道是指现场包括厂公有7个，还是未来还有2个新人？</blockquote>
+怎么漏的，没看全程
+
