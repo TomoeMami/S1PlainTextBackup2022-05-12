@@ -12403,3 +12403,12 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 
 —— 来自 Lenovo TB-9707F, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  大弹涂鱼潜伏  
+##### 1275#       发表于 2022-11-11 06:26
+
+这游戏ps4slim能玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
