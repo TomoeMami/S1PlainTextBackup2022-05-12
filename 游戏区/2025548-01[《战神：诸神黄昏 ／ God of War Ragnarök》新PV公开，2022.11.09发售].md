@@ -12097,3 +12097,14 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 —— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
 
+
+
+*****
+
+####  噗呸破屁诚  
+##### 1244#       发表于 2022-11-10 17:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怎么记得之前有人说设置里可以开跳过解密，但实际上我只找的解密时间延长和解密瞄准自带跟踪……
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
