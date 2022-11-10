@@ -4180,3 +4180,38 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 啊，我才打到第二章，看到楼上说到竞技场，我忽然想起来我没去竞技场就出门送货了，应该没错过啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xifeilu  
+##### 1871#       发表于 2022-11-10 11:25
+
+ 本帖最后由 xifeilu 于 2022-11-10 11:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58365664&amp;ptid=2098044" target="_blank">bigraymond 发表于 2022-11-10 11:00</a>
+
+你没二段跳第一章怎么拿的红球
+
+论坛助手,iPhone</blockquote>
+拿红球什么时候需要二段跳了，这位置需要？
+
+<img src="https://img.saraba1st.com/forum/202211/10/112705avp1jiipkjjee5so.jpg" referrerpolicy="no-referrer">
+
+<strong>85c96ec75f586781ba3d816ab6c3505d47750bad.jpg@942w_531h_progressive.jpg</strong> (48.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-10 11:27 上传
+
+<img src="https://i0.hdslb.com/bfs/article/watermark/85c96ec75f586781ba3d816ab6c3505d47750bad.jpg@942w_531h_progressive.webp" referrerpolicy="no-referrer">
+
+*****
+
+####  管住键政的手  
+##### 1872#       发表于 2022-11-10 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58365966&amp;ptid=2098044" target="_blank">kyonkoism二号机 发表于 2022-11-10 11:16</a>
+
+啊，我才打到第二章，看到楼上说到竞技场，我忽然想起来我没去竞技场就出门送货了，应该没错过啥吧 ...</blockquote>
+打完竞技场再去打当前章会好打一点，竞技场逃课方法多。
+
