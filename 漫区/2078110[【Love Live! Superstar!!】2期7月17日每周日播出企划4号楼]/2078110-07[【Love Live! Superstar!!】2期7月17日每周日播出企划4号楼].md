@@ -2746,3 +2746,12 @@ FNS发生了啥
 
 可是LL的谷子受众都是宅宅，CD立牌吧唧这些又不好玩小友才不买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9215#       发表于 2022-11-10 16:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小友会买什么呢，购买部跳绳？
+

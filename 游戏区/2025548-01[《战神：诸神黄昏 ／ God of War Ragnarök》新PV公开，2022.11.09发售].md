@@ -12086,3 +12086,14 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Tomoyo1  
+##### 1243#       发表于 2022-11-10 16:31
+
+打完矿洞，全都是一个模式迷题，打吐了，ui也怪怪的，这真能10分？大型dlc罢了
+
+—— 来自 meizu 17, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.1
+
