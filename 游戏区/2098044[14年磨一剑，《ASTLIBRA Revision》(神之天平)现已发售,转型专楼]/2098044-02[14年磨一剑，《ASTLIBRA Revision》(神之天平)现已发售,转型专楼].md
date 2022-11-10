@@ -4645,3 +4645,20 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 这个lowb神最后还对男主的强度感到惊讶，我怀疑这货压根就不知道天平计划的本质，属于众神里也是最low那 ...</blockquote>
 主角强度惊讶不是因为主角变黑了吗？
 
+
+
+*****
+
+####  Quelaan  
+##### 1912#       发表于 2022-11-10 19:41
+
+这个箱子是得以后拿了什么能力才能开吗
+
+<img src="https://img.saraba1st.com/forum/202211/10/194109lc0izh0h8we8mie0.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (206.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-10 19:41 上传
+

@@ -5265,3 +5265,15 @@ https://www.bilibili.com/video/BV1614y1p7fW/
 欧 羡慕 我组不出这种队伍</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你少骗萌新了　
 
+
+
+*****
+
+####  alucardcz  
+##### 3485#       发表于 2022-11-10 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374372&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-10 18:41</a>
+
+满破了 最后被仇凛的强解偷BUFF搞死了 太恶心了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完了　第１个剑兰切死　　第２个太岁冲死了
+
