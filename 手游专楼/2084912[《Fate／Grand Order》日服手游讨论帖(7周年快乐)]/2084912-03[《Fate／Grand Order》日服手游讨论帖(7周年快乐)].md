@@ -5068,3 +5068,25 @@ FguGwNXVsAAhJlZ.jpg
 
 5宝100级妖兰双杀狐+奥的话1级活动礼装最多也就剩1，2万吧，剩8-10万是不是1技能没有开2次
 
+
+
+*****
+
+####  exiaexa  
+##### 3467#       发表于 2022-11-10 09:53
+
+这新卡感觉怪的原因，单纯就是松龙设计力太差
+
+全靠画工撑着最后的老脸
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 3468#       发表于 2022-11-10 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58364011&amp;ptid=2084912" target="_blank">yangun22 发表于 2022-11-10 09:39</a>
+
+5宝100级妖兰双杀狐+奥的话1级活动礼装最多也就剩1，2万吧，剩8-10万是不是1技能没有开2次 ...</blockquote>
+确实，是我脑抽了，应该t1开1技能的，反正np怎么都够
+

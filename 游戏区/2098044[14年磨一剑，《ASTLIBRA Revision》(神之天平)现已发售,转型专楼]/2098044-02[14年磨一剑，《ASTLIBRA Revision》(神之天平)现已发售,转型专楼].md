@@ -4006,3 +4006,25 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">我困难30小时全收集到第八章了，不是说总的就八章么，你们玩60小时的是因为后面还有很多剧情么
 
+
+
+*****
+
+####  電子器官依存  
+##### 1856#       发表于 2022-11-10 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58363800&amp;ptid=2098044" target="_blank">十字骷髅高达 发表于 2022-11-10 09:27</a>
+我困难30小时全收集到第八章了，不是说总的就八章么，你们玩60小时的是因为后面还有很多剧情么 ...</blockquote>
+我也是困难难度，剧情确实还不少，不过我是全收集的
+
+*****
+
+####  電子器官依存  
+##### 1857#       发表于 2022-11-10 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58362919&amp;ptid=2098044" target="_blank">PNK 发表于 2022-11-10 08:31</a>
+终于打到第8章了，开始清地图
+
+前期凭依技好用，后面感觉就不如开风精灵狂战士直接砍爆了 ...</blockquote>
+加隆的被动里点上暗黑，敏捷拉高，开风精灵狂战士，把上挑的奥义书封印，就可以闭眼按上➕攻击了
+

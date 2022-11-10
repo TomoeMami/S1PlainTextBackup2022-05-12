@@ -2504,3 +2504,33 @@ FNS发生了啥
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  saya1892  
+##### 9196#       发表于 2022-11-10 10:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360659&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-11-9 23:59</a>
+
+都反人类粪作了，真就按着日本全国人民的头喂啊
+
+只能说这波音乐部门的脸皮不是很厚，建议 ...</blockquote>
+你不要乱说，星目前点唱率第一可是被大家公认为副歌走下坡路的豹纹<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/10/095947nlly875ew7ep2zd7.jpg" referrerpolicy="no-referrer">
+
+<strong>6.jpg</strong> (224.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-10 09:59 上传
+
+<img src="https://img.saraba1st.com/forum/202211/10/095951k3klc3rl0kr3erct.jpg" referrerpolicy="no-referrer">
+
+<strong>7.jpg</strong> (205.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-10 09:59 上传
+
