@@ -1577,3 +1577,12 @@ apex的个人决策能叫风格吗？说森破的打法算他的风格是说他�
 
 a队倒是想想招能不能把zyphon鼓捣过来，汤都整回来了弄点大的别整天混比赛开摆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宝儿  
+##### 2799#       发表于 2022-11-10 21:19
+
+我寻思憨豆这次比赛没啥问题啊  
+

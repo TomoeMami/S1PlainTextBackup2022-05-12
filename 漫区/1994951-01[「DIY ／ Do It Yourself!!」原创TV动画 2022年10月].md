@@ -4917,3 +4917,19 @@ self有了我不知道的一面…</blockquote>
 布丁哪天把self推了self多半也会笑着说可以哦如果是布丁的话 ...</blockquote>
 这集看爽了，布丁和女主后面几乎一直在一块儿，就算是前面没一起行动的时候布丁也想着女主能不能适应diy部。这样的情谊真的听令人羡慕的
 
+
+
+*****
+
+####  阿棍风吟  
+##### 389#       发表于 2022-11-10 21:13
+
+布丁女士嘴好硬啊，self这么木头不打直球怎么行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hoyice  
+##### 390#       发表于 2022-11-10 21:13
+
+这集好香<img src="https://static.saraba1st.com/image/smiley/carton2017/357.png" referrerpolicy="no-referrer">
+

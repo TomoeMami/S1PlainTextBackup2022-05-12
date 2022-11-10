@@ -4854,3 +4854,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 不同难度存档的打击数不会叠加 ...</blockquote>
 问题是书里没有攻击次数的词条啊。
 
+
+
+*****
+
+####  Sannapolis  
+##### 1930#       发表于 2022-11-10 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377013&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-10 21:07</a>
+
+问题是书里没有攻击次数的词条啊。</blockquote>
+第二页的攻击命中次数
+
