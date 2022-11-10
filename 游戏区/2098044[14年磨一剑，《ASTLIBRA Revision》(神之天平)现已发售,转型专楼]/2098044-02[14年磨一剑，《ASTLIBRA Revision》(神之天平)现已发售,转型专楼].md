@@ -4327,3 +4327,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 超摸的就只有女主最后给的那个光剑
 
+
+
+*****
+
+####  pf67  
+##### 1883#       发表于 2022-11-10 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58365296&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-10 10:42</a>
+
+要说动机这些土着神唯一的合理动机只有“阿斯特雷亚说你是超级战士让我来试试，打不过我还谈拯救我”，天 ...</blockquote>
+<strong>这个lowb神最后还对男主的强度感到惊讶，我怀疑这货压根就不知道天平计划的本质，属于众神里也是最low那一档次，估计其他神也都没告诉他</strong>
+
