@@ -14,3 +14,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我日，淘汰才没法skip，这游戏要从最咸鱼一跃成为杀时间主力了吗
 
+
+
+*****
+
+####  心之光  
+##### 93#       发表于 2022-11-10 09:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这淘汰赛活动，不会也是一天只能打一次的那种吧
+
