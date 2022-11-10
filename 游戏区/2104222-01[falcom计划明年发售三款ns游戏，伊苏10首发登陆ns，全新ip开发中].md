@@ -636,3 +636,27 @@ ns那轨屎一样的销量竟然没劝退社长，可喜可贺。真 日本战�
 falcom有那个能力让新作上ns吗？
 说明明年有新ns？
 
+
+
+*****
+
+####  ky怪  
+##### 70#       发表于 2022-11-11 07:26
+
+稳中向好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/11/072506n8ris4sy540gug4m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6B9717D6-63B0-4470-BCD5-0E6D1CA02ACF.jpeg</strong> (118.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-11 07:25 上传
+
+*****
+
+####  ky怪  
+##### 71#       发表于 2022-11-11 07:26
+
+风怒
+
