@@ -4945,3 +4945,36 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 原来是单词 怪不得这天赋这么扭曲
 
+
+
+*****
+
+####  5353  
+##### 1938#       发表于 2022-11-10 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58378661&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-10 22:32</a>
+
+原来是单词 怪不得这天赋这么扭曲</blockquote>
+为了彩蛋牺牲了实用性.
+
+前面有段路很绕.
+
+*****
+
+####  方舟失智博士  
+##### 1939#       发表于 2022-11-10 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58378690&amp;ptid=2098044" target="_blank">5353 发表于 2022-11-10 22:34</a>
+
+为了彩蛋牺牲了实用性.
+
+前面有段路很绕.</blockquote>
+已经点满拉就剩下无限加的点了
+
+*****
+
+####  M27MD  
+##### 1940#       发表于 2022-11-10 22:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明明锤子这么好用
+

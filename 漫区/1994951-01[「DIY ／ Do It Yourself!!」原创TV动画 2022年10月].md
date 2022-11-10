@@ -4997,3 +4997,17 @@ self有了我不知道的一面…</blockquote>
 self不会是故意装傻钓布丁吧</blockquote>
 看傲娇被钓不是最有意思了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 397#       发表于 2022-11-10 22:39
+
+期待布丁动手做饰品送给小己（
+<img src="https://p.sda1.dev/8/b3b07a7f852aadf906b1066f8dd93fc6/2022-11-10-2236_21.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/b483c51aab4e033af9098f2681a3c2de/2022-11-10-2236_40.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/5e3087d07f6dcdffe0baaa1be46224ec/2022-11-10-2237_05.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/46f5793906b13a3b855f004b2e7a3576/2022-11-10-2238_12.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/6b5f687d718338c3e0f3a4ccf2fc6045/2022-11-10-2238_46.png" referrerpolicy="no-referrer">
+

@@ -193,3 +193,17 @@ https://www.zhihu.com/people/19-32-66-94
 其实我一直都怀疑他提这句诗有想和tg和解的意思，毕竟庾信是出了名的有家不能回 ...</blockquote>
 和解啥啊，他又不是因为政治原因不回国的，以前是因为在外面混的太惨了，不好意思联系家里
 
+
+
+*****
+
+####  camelia_vie2  
+##### 90#       发表于 2022-11-10 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377335&amp;ptid=2099955" target="_blank">烤烤鱼σ 发表于 2022-11-10 21:23</a>
+https://www.zhihu.com/people/19-32-66-94
+
+张益唐</blockquote>
+知乎逼格最高的回答了没有之一。。。庾信平生最萧瑟，暮年诗赋动江关。。。
+希望这次的结果是对的，感觉是近五十年最传奇的数学人物了
+

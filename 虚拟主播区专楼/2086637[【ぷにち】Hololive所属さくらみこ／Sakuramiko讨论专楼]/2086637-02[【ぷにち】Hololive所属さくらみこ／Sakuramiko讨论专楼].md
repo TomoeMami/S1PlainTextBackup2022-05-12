@@ -15103,3 +15103,12 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 —— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 七字母连体人看到联动就活过来了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 2942#         楼主| 发表于 2022-11-10 22:37
+
+我觉得，不玩这个游戏，直接玩一小时3D可能观众更爱看
+

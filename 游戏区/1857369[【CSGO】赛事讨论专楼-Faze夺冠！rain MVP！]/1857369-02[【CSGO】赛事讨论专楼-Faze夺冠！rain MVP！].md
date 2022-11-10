@@ -1586,3 +1586,14 @@ a队倒是想想招能不能把zyphon鼓捣过来，汤都整回来了弄点大�
 
 我寻思憨豆这次比赛没啥问题啊  
 
+
+
+*****
+
+####  朔方原的星  
+##### 2800#         楼主| 发表于 2022-11-10 22:37
+
+Dust2.dk新闻网消息，Astralis有望招入MASONIC队员Buzz
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
