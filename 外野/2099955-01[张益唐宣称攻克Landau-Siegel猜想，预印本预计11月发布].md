@@ -254,3 +254,16 @@ https://www.zhihu.com/people/19-32-66-94
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">引用诗句感觉主要还是感叹自己老大不小了混出个名堂，还很有可能是前后五十年最牛逼的名堂，不一定真想隐喻个什么东西
 他本身也不是被赶出去的，顶多口嗨了几句
 
+
+
+*****
+
+####  收缩压  
+##### 96#       发表于 2022-11-11 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58379355&amp;ptid=2099955" target="_blank">憧憬鲨 发表于 2022-11-10 23:07</a>
+引用诗句感觉主要还是感叹自己老大不小了混出个名堂，还很有可能是前后五十年最牛逼的名堂，不一定 ...</blockquote>
+这首诗最牛逼的其实是颔联：羯胡事主终无赖，词客哀时且未还。
+有一种阿美莉卡虽好终究是蛮夷之邦，我的心依然是中国心的暗示。
+结合他最近频繁与国内互动，这种复杂的情绪，很有意思。
+
