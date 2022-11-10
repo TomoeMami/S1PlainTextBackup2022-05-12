@@ -2725,3 +2725,24 @@ FNS发生了啥
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小盆友爱看的话谷子能卖出去倒也行
 
+
+
+*****
+
+####  ads147147  
+##### 9213#       发表于 2022-11-10 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58371109&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-11-10 15:52</a>
+
+小盆友爱看的话谷子能卖出去倒也行</blockquote>
+小朋友谷子不也得靠大人买，虽然国内小鬼的有钱程度令人惊叹，但是本子我觉得不至于。
+
+怕就是怕单纯的喜欢，谷子不买。
+
+*****
+
+####  starring  
+##### 9214#       发表于 2022-11-10 16:17
+
+可是LL的谷子受众都是宅宅，CD立牌吧唧这些又不好玩小友才不买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

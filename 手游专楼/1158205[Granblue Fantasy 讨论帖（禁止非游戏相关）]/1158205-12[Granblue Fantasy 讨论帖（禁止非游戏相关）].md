@@ -348,3 +348,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">150就被逼得祭出龙武了，200怎么打我不敢想
 
+
+
+*****
+
+####  areklose  
+##### 17199#       发表于 2022-11-10 16:13
+
+我打150是强行把输出压到第11T才打进去50里面，然后开帕拉丁的5回合的预防盾吃50到25的特动DB。我觉得我明天200的效率估计不如150了
+

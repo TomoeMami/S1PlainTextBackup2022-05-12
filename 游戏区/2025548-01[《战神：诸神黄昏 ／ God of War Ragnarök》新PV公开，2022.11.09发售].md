@@ -12067,3 +12067,22 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 所以最后结局是啥意思啊？就是翻版以后，奎托斯看到的板上画的是啥意思啊？
 
+
+
+*****
+
+####  conanoysq  
+##### 1242#       发表于 2022-11-10 16:17
+
+<img src="https://img.saraba1st.com/forum/202211/10/161457k56zvvvtm6lvcw6c.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_2022-11-10-16-01-24-736_com.scee.psxandroid.jpg</strong> (553.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-10 16:14 上传
+
+ 预购好评返现任务来了，加上之前预购送的568，一共2393分，离可换160港币的4000分不远了，四舍五入返现96港币，梦回468一个游戏的年代<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
