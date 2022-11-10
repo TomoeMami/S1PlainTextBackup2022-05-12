@@ -5443,3 +5443,18 @@ https://www.bilibili.com/video/BV1614y1p7fW/
 
 29池掉了4张，就是这29池的QP全部都吃完了，根本不够用。
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 3500#       发表于 2022-11-11 02:27
+
+ 本帖最后由 保罗赫伯特 于 2022-11-11 02:35 编辑 
+
+伯爵的新幕间是个小型回忆关卡，打平安京的伊吹和2.6的角神。点进去看到角神的时候心里咯噔了一下，有种走错房间的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+两个boss的血量应该是削过，但机制和伤害数值和主线差不多。强制第一排必须带两个系统提供的伯爵，虽然有buff和NP加成，和好友助战不冲突，但一下占了前排两个位置，还是变相增加了难度，搞的后排不能随意放角色混羁绊了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+现在提前把角神放在幕间物语里，不知道之后2.6回顾的时候还会不会有角神的关卡了，类似情况的宙斯机神战就没出现在2.52的回忆活动里<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
