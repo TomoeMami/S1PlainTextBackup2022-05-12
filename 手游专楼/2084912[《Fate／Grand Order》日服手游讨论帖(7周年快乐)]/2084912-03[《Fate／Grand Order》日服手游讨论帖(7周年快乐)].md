@@ -5201,3 +5201,37 @@ https://www.bilibili.com/video/BV1614y1p7fW/
 四宝小太阳太欧了 羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可能是４个王姐变的　　　血亏
 
+
+
+*****
+
+####  qixinno2  
+##### 3479#       发表于 2022-11-10 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58373719&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-10 18:07</a>
+
+这可能是４个王姐变的　　　血亏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新高难有没有菜B也能轻松打过的配置
+
+*****
+
+####  alucardcz  
+##### 3480#       发表于 2022-11-10 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374319&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-10 18:38</a>
+
+新高难有没有菜B也能轻松打过的配置</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倍卡还没满破呢　等满破再打
+
+
+
+*****
+
+####  qixinno2  
+##### 3481#       发表于 2022-11-10 18:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374329&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-10 18:38</a>
+
+我倍卡还没满破呢　等满破再打</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">满破了 最后被仇凛的强解偷BUFF搞死了 太恶心了
+
