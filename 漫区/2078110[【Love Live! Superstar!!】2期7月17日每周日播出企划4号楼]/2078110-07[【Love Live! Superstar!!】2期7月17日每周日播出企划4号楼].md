@@ -2534,3 +2534,18 @@ FNS发生了啥
 
 2022-11-10 09:59 上传
 
+
+
+*****
+
+####  starring  
+##### 9197#       发表于 2022-11-10 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58364031&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-11-10 09:41</a>
+
+草诶，居然是蓝发女路人。
+
+由贵这两年发展好像挺好的。</blockquote>
+刷番不多，但是手上有邦邦和啤酒烧烤两张长期饭票，露脸的机会也多，发展得还可以
+想起因为当年看V6她棒读的那句“わ☆た☆し~”才关注她<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
