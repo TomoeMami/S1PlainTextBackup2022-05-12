@@ -5049,3 +5049,12 @@ self不会是故意装傻钓布丁吧</blockquote>
 
 4集和6集都是布丁回啊，别人都是一集入社，布丁至少三集。虽然人设很典但是每次傲娇的神态和小动作真的很抓心，制作组太偏爱布女士了。傲娇还得配这种天然直球，发糖不要太甜<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  H2Ofrozen  
+##### 402#       发表于 2022-11-11 01:07
+
+不知道为什么 听着那段bgm鼻涕就从眼睛里流出来了
+
