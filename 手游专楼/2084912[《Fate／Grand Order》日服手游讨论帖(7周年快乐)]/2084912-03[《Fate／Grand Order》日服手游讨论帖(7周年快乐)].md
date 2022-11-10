@@ -5059,3 +5059,12 @@ FguGwNXVsAAhJlZ.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">5加成妖兰爽打，什么6加成雨我无瓜
 
+
+
+*****
+
+####  yangun22  
+##### 3466#       发表于 2022-11-10 09:39
+
+5宝100级妖兰双杀狐+奥的话1级活动礼装最多也就剩1，2万吧，剩8-10万是不是1技能没有开2次
+

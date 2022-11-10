@@ -2489,3 +2489,18 @@ s1没折叠有点吓人了啊<img src="https://static.saraba1st.com/image/smiley
 只能说这波音乐部门的脸皮不是很厚，建议 ...</blockquote>
 FNS发生了啥
 
+
+
+*****
+
+####  ads147147  
+##### 9195#       发表于 2022-11-10 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357453&amp;ptid=2078110" target="_blank">starring 发表于 2022-11-9 20:02</a>
+节目首位嘉宾居然是由贵，打铁这是届到了</blockquote>
+草诶，居然是蓝发女路人。
+
+由贵这两年发展好像挺好的。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
