@@ -14961,3 +14961,16 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 2929#       发表于 2022-11-10 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58373987&amp;ptid=2086637" target="_blank">holoan 发表于 2022-11-10 18:19</a>
+想办法搞也是有的</blockquote>
+这个网站好简陋都，看不到奖品预览图
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

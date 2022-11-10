@@ -4866,3 +4866,22 @@ self有了我不知道的一面…</blockquote>
 看看布丁女士和隔壁米米谁先软下来</blockquote>
 米米先给狸猫弄个辫子再说
 
+
+
+*****
+
+####  Alicest  
+##### 384#       发表于 2022-11-10 19:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374705&amp;ptid=1994951" target="_blank">zfy666 发表于 2022-11-10 18:58</a>
+看看布丁女士和隔壁米米谁先软下来</blockquote>
+布丁和self箭头一直很足，不能比的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+布丁哪天把self推了self多半也会笑着说可以哦如果是布丁的话
+
+*****
+
+####  球獭  
+##### 385#       发表于 2022-11-10 19:04
+
+好想急死你<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

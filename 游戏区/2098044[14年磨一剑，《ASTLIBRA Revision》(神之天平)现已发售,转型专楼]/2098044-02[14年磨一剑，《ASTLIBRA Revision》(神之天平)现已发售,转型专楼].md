@@ -4542,3 +4542,44 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 面包店是有啥剧情吗 我记得楼里有提，狗狗剧情也有提，但是我到盖亚门口了，还是没有相关的剧情 ...</blockquote>
 就换件衣服吧。
 
+
+
+*****
+
+####  御坂MKII  
+##### 1903#       发表于 2022-11-10 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374604&amp;ptid=2098044" target="_blank">管住键政的手 发表于 2022-11-10 18:53</a>
+
+就换件衣服吧。</blockquote>
+狗狗不是还说面包店的女儿实力很强<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 结果到盖亚门口都没看见人
+
+*****
+
+####  AeonsTorn  
+##### 1904#       发表于 2022-11-10 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58373544&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-10 17:59</a>
+有没有天平地图标点攻略&amp;#x55 ...</blockquote>
+543楼
+
+*****
+
+####  redsouris  
+##### 1905#       发表于 2022-11-10 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374587&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-10 18:52</a>
+面包店是有啥剧情吗 我记得楼里有提，狗狗剧情也有提，但是我到盖亚门口了，还是没有相关的剧情 ...</blockquote>
+下个外传，幻雾洞，主角就是面包店女儿带着狼
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  電子器官依存  
+##### 1906#       发表于 2022-11-10 19:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374257&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-11-10 18:35</a>
+在拿副武器那个地方</blockquote>
+找到了，副武器我也没捡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
