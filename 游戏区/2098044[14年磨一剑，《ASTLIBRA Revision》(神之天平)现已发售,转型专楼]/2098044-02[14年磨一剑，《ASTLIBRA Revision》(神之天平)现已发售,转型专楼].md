@@ -4301,3 +4301,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 钢剑巴鲁姆克 还有重生盾&amp;#x7 ...</blockquote>
 都是8章东京研究所
 
+
+
+*****
+
+####  llysander  
+##### 1881#       发表于 2022-11-10 15:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58365966&amp;ptid=2098044" target="_blank">kyonkoism二号机 发表于 2022-11-10 11:16</a>
+
+啊，我才打到第二章，看到楼上说到竞技场，我忽然想起来我没去竞技场就出门送货了，应该没错过啥吧 ...</blockquote>
+不会错过什么，只是带着竞技场奖励打当前章节会容易点
+
