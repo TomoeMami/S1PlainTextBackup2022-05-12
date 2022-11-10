@@ -2585,3 +2585,16 @@ FNS发生了啥
 
 动画看的不爽也不至于这么看衰星啥都要踩一脚吧，星三次元资源就没停过<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 9202#       发表于 2022-11-10 13:32
+
+ 本帖最后由 nufawneafg 于 2022-11-10 13:38 编辑 
+
+倒不是唱衰，我的意思是作为多媒体综合企划上这种年度综合向音番，总得把你的特色给大伙说出来，不能真就搞二三切割绝口不提动画。看到现在的观众知道你这里面是怎么回事，主流业界可是有个多媒体企划的标签在你身上的。
+但是我觉得到现在再在地上波提这个动画是很巨魔的行为<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+当然你要能这么巨魔我也没意见啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
