@@ -244,3 +244,13 @@ https://www.zhihu.com/people/19-32-66-94
 
 剑外忽传收蓟北<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  憧憬鲨  
+##### 95#       发表于 2022-11-10 23:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">引用诗句感觉主要还是感叹自己老大不小了混出个名堂，还很有可能是前后五十年最牛逼的名堂，不一定真想隐喻个什么东西
+他本身也不是被赶出去的，顶多口嗨了几句
+
