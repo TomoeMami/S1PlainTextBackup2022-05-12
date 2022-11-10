@@ -78,3 +78,47 @@ https://www.zhihu.com/people/19-32-66-94
 张益唐</blockquote>
 剑外忽传收蓟北？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ckming  
+##### 80#       发表于 2022-11-10 21:43
+
+张益唐如果是对的，那绝对是值得宣传的突破啊，s1是只有解决黎曼猜想才给发帖吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  我看谭有一天能手冲五次就在s1很受尊重了，为什么对数学家这么苛刻呢
+
+*****
+
+####  الطائر  
+##### 81#       发表于 2022-11-10 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377618&amp;ptid=2099955" target="_blank">好评加鹅 发表于 2022-11-10 21:38</a>
+
+剑外忽传收蓟北？</blockquote>
+支离东北风尘际，漂泊西南天地间。
+
+三峡楼台淹日月，五溪衣服共云山。
+
+羯胡事主终无赖，词客哀时且未还。
+
+庾信平生最萧瑟，暮年诗赋动江关。
+
+白话文：
+
+战乱时颠沛流离在东北方，如今我又漂泊到西南地区。
+
+滞留在三峡一带已有多年，和服饰不同的异族共生活。
+
+可恨不讲信义的胡虏之人，这混乱的年代有家不能回。
+
+庾信的一生最为坎坷悲凉，但晚年的诗赋震撼了江关。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  drodchang  
+##### 82#       发表于 2022-11-10 21:49
+
+张益唐这个证明如果被证明是真的，就是解析数论第一人了。
+

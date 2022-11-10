@@ -15089,3 +15089,17 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  tesparu  
+##### 2941#       发表于 2022-11-10 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377469&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-11-10 21:30</a>
+
+好久没见你冒泡了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+七字母连体人看到联动就活过来了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+

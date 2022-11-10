@@ -4933,3 +4933,12 @@ self有了我不知道的一面…</blockquote>
 
 这集好香<img src="https://static.saraba1st.com/image/smiley/carton2017/357.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  风吹涟漪  
+##### 391#       发表于 2022-11-10 21:45
+
+这话布丁对小予情感刻画只能说出神入化
+
