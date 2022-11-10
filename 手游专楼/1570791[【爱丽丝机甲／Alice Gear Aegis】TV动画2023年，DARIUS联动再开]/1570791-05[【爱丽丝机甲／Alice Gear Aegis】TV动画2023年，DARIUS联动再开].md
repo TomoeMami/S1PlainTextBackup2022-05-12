@@ -693,3 +693,17 @@ CS版这销量感觉就很阿金<img src="https://static.saraba1st.com/image/smi
 
 围裙好好好，怎么fag也能上桌做点心的，太怪了
 
+
+
+*****
+
+####  alialex  
+##### 7457#         楼主| 发表于 2022-11-10 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58327927&amp;ptid=1570791" target="_blank">Rincewind 发表于 2022-11-8 01:07</a>
+
+考虑开个二号楼吗
+
+反正楼主已经是立派的云玩家了，换个人开也没问题吧</blockquote>
+咋就成云玩家了？
+
