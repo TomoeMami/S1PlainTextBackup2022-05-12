@@ -5058,3 +5058,48 @@ self不会是故意装傻钓布丁吧</blockquote>
 
 不知道为什么 听着那段bgm鼻涕就从眼睛里流出来了
 
+
+
+*****
+
+####  Piano-Forest  
+##### 403#         楼主| 发表于 2022-11-11 01:28
+
+すてっぷ６より、背景美術をご紹介
+<img src="https://p.sda1.dev/8/59f0bef67d3058b6605187db13f3ee47/20221111_012732.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/06f26af3a12b35e9506d8da588eb77cb/20221111_012735.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/848fa90f25006cebfb71dfd3e6d3dbac/20221111_012736.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/6a4be2b91c62cfa597cf77b0c2e0113f/20221111_012737.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/VintageSwaro109/status/1588417604259311616](https://twitter.com/VintageSwaro109/status/1588417604259311616)
+
+パレットの解体はなかなかの重労働
+
+だけと、その廃材は味があって素敵なDIYの材料になるのです︎
+
+ウォールシェルフのイメージデザイン
+
+設計はこんな感じです
+
+今回はポケットホール治具という斜めの穴あけ道具を使ったのが最大のポイント
+
+板同士を横繋ぎにするのにとっても便利な道具です
+<img src="https://p.sda1.dev/8/303bec31d5f057ec92a91f0b1393cb79/20221111_012311.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/b556e0fec60e15acad42b2036019a038/20221111_012313.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/VintageSwaro109/status/1590479999962083329](https://twitter.com/VintageSwaro109/status/1590479999962083329)
+
+#DIYアニメ すてっぷ⑥神回でしたね
+
+私個人的にはしーの水着が好み
+
+シーグラスのブレスレットのデザイン画です。
+
+シーグラスはレジンでコーティングする事でツヤツヤになり可愛さアップ。
+
+ポイントは
+
+ロンデルと言うアクセサリー用の金属できているビーズを挟んで可愛さアップ
+<img src="https://p.sda1.dev/8/be1e601b9f382ba4267d3cb627fb99d5/20221111_012318.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/3c00d681af9f1e7c7a3a6960fec3edfb/20221111_012319.jpg" referrerpolicy="no-referrer">
+
