@@ -41,3 +41,12 @@ dlss超高性能没法用，跑分发车的前车屁股糊成一片，加一档�
 
 新增成就的触发条件是不是有问题，steam这边是对的，但是关联xbox那边是错的，做made in mexico结果解锁的几个成就都是horizon origins的
 
+
+
+*****
+
+####  cxasuka  
+##### 2497#       发表于 2022-11-10 22:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">dlss开不开好像对fps没啥影响？？笔记本3070在1440p下画质开满了，光追极致，结果感觉开不开dlss都一样？
+

@@ -122,3 +122,25 @@ https://www.zhihu.com/people/19-32-66-94
 
 张益唐这个证明如果被证明是真的，就是解析数论第一人了。
 
+
+
+*****
+
+####  明月前身  
+##### 83#       发表于 2022-11-10 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377809&amp;ptid=2099955" target="_blank">الطائر 发表于 2022-11-10 21:47</a>
+支离东北风尘际，漂泊西南天地间。
+
+三峡楼台淹日月，五溪衣服共云山。
+
+羯胡事主终无赖，词客哀时且未还。 ...</blockquote>
+其实我一直都怀疑他提这句诗有想和tg和解的意思，毕竟庾信是出了名的有家不能回<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  收缩压  
+##### 84#       发表于 2022-11-10 22:19
+
+他都去山大和北大做讲座了，能有啥问题
+
