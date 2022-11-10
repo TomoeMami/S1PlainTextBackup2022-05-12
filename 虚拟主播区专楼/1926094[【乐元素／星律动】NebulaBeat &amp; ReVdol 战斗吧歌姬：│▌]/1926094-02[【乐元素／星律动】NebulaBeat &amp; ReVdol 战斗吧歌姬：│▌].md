@@ -10067,3 +10067,15 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 鸭鸭漏勺了7个人，不知道是指现场包括厂公有7个，还是未来还有2个新人？</blockquote>
 怎么漏的，没看全程
 
+
+
+*****
+
+####  ladiesman802  
+##### 2565#       发表于 2022-11-10 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377317&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-11-10 21:22</a>
+
+怎么漏的，没看全程</blockquote>
+好像九夏说没地方住了，咩说来我家，我家双人床。鸭鸭说那我们7个人来可以吗？厂长小声说你怎么说出来了啊
+

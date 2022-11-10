@@ -5399,3 +5399,14 @@ https://www.bilibili.com/video/BV1614y1p7fW/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么不掉礼装
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3496#       发表于 2022-11-10 22:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">女神神核也太强了吧，宇宙凛身上GUARD乱冒，卡米拉都咒死了她还有一条血
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
