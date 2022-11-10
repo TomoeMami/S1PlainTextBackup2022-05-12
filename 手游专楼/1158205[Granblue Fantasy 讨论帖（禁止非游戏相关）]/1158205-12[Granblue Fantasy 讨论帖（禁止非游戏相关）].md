@@ -264,3 +264,24 @@
 打了下95，100没有弱体对策肉眼可见要完球</blockquote>
 2个C5，二选一
 
+
+
+*****
+
+####  poor  
+##### 17191#       发表于 2022-11-9 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58348908&amp;ptid=1158205" target="_blank">areklose 发表于 2022-11-9 11:14</a>
+
+2个C5，二选一</blockquote>
+只开了第一个，果然要完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+风妈估计也就聊胜于无，打慢点等转CD不知道有没有救
+
+*****
+
+####  leeskies  
+##### 17192#       发表于 2022-11-10 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">怕debuff就上c5守卫 5t弱耐
+

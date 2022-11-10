@@ -4171,3 +4171,12 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 拿到了拿到了，无限悬浮的衣服真的很好用，竞技场打树芽那关和新章开护城河的箱子都能用到，坛友们可以参 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 几个护城河宽度的大沟还是设计得太仁慈了， 跳-&gt;空dash-&gt;跳-&gt;空dash-&gt;跳-&gt;空dash-&gt;升龙-&gt;空dash-&gt;转头回避 都能轻松过去
 
+
+
+*****
+
+####  kyonkoism二号机  
+##### 1870#       发表于 2022-11-10 11:16
+
+啊，我才打到第二章，看到楼上说到竞技场，我忽然想起来我没去竞技场就出门送货了，应该没错过啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
