@@ -4835,3 +4835,15 @@ self有了我不知道的一面…</blockquote>
 <img src="https://p.sda1.dev/8/32d117c59efa566f86dc15b04a9ca2f6/110.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/15f40283dc5afc205212c6e7e3fabd89/111.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 381#       发表于 2022-11-10 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58370488&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-11-10 15:18</a>
+
+猫是佐仓，猪是和气</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">啊……
+

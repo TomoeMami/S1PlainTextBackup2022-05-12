@@ -12209,3 +12209,29 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 哦哦哦，被其他神信仰吗？</blockquote>
 被北欧九界的普通（人？）信仰啊
 
+
+
+*****
+
+####  origen  
+##### 1255#       发表于 2022-11-10 18:47
+
+不是 怎么就剧透起来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  stannislas  
+##### 1256#       发表于 2022-11-10 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374023&amp;ptid=2025548" target="_blank">夏延 发表于 2022-11-10 18:21</a>
+
+被北欧九界的普通（人？）信仰啊</blockquote>
+阿萨神族，Thrud之类的？算普通人吗？
+
+*****
+
+####  蒋公卖萌  
+##### 1257#       发表于 2022-11-10 18:47
+
+儿子跟黑妹的那段是不是这代剧情最大的败笔？<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

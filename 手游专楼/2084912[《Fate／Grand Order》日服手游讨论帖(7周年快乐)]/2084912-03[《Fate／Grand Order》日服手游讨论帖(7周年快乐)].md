@@ -5235,3 +5235,33 @@ https://www.bilibili.com/video/BV1614y1p7fW/
 我倍卡还没满破呢　等满破再打</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">满破了 最后被仇凛的强解偷BUFF搞死了 太恶心了
 
+
+
+*****
+
+####  rooarr  
+##### 3482#       发表于 2022-11-10 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58372836&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-10 17:25</a>
+ https://www.bilibili.com/video/BV1614y1p7fW/  丢个录像　我用的３ｔ６加成不重名　非常稳定　　 ...</blockquote>
+欧 羡慕 我组不出这种队伍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 3483#       发表于 2022-11-10 18:43
+
+90++妖兰单核刷的蛮爽，不过为了金蛋，还是得刷90+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+终于快把从者满破的石头拿完了，可以躺平等2.7了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3484#       发表于 2022-11-10 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374415&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-11-10 18:43</a>
+
+欧 羡慕 我组不出这种队伍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你少骗萌新了　
+

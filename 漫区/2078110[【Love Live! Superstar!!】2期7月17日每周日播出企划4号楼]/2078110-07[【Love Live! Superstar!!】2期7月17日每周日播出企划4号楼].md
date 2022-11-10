@@ -2755,3 +2755,15 @@ FNS发生了啥
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">小友会买什么呢，购买部跳绳？
 
+
+
+*****
+
+####  懂你意思  
+##### 9216#       发表于 2022-11-10 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58368674&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-11-10 13:32</a>
+
+倒不是唱衰，我的意思是作为多媒体综合企划上这种年度综合向音番，总得把你的特色给大伙说出来，不能真就搞 ...</blockquote>
+那怕不是动画结束星直接腰斩了，企划都不在乎名声作为观众的我们急啥，音番不都这样走台本尬吹几句然后表演,年底分猪肉而已。
+
