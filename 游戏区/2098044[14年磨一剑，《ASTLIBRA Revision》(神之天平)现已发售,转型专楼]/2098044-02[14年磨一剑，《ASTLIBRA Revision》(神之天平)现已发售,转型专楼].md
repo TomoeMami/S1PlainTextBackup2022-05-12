@@ -4523,3 +4523,22 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 魔王城的最后一个小徽章找不到了，跑了两遍都没看到有新箱子</blockquote>
 在拿副武器那个地方
 
+
+
+*****
+
+####  御坂MKII  
+##### 1901#       发表于 2022-11-10 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer">面包店是有啥剧情吗 我记得楼里有提，狗狗剧情也有提，但是我到盖亚门口了，还是没有相关的剧情
+
+*****
+
+####  管住键政的手  
+##### 1902#       发表于 2022-11-10 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374587&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-10 18:52</a>
+
+面包店是有啥剧情吗 我记得楼里有提，狗狗剧情也有提，但是我到盖亚门口了，还是没有相关的剧情 ...</blockquote>
+就换件衣服吧。
+

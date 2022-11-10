@@ -4847,3 +4847,22 @@ self有了我不知道的一面…</blockquote>
 猫是佐仓，猪是和气</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">啊……
 
+
+
+*****
+
+####  zfy666  
+##### 382#       发表于 2022-11-10 18:58
+
+看看布丁女士和隔壁米米谁先软下来
+
+*****
+
+####  豚厨二象性  
+##### 383#       发表于 2022-11-10 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374705&amp;ptid=1994951" target="_blank">zfy666 发表于 2022-11-10 18:58</a>
+
+看看布丁女士和隔壁米米谁先软下来</blockquote>
+米米先给狸猫弄个辫子再说
+
