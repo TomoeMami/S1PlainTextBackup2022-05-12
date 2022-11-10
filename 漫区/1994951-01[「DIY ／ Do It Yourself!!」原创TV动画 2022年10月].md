@@ -4722,3 +4722,17 @@ DIY＃６話も参加しました！！
 <img src="https://p.sda1.dev/8/5132b73e1743eed811f37175e06f87f9/123.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/000ba2863adbdcd404fd706bd77b536a/124.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 372#       发表于 2022-11-10 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58253335&amp;ptid=1994951" target="_blank">pzk 发表于 2022-11-3 11:12</a>
+
+栩栩如生不就是说是人造品的意思吗</blockquote>
+翻译准确与否是要看原文对应的，原文没啄木鸟一词，怎么就强加上去的？
+
+另外除了人名和OP歌词以外sweetsub跟阿B的翻译版本的很相近了，说明sweetsub翻得准确
+

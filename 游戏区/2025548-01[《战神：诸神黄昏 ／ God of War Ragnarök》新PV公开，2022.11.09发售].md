@@ -12019,3 +12019,12 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  肥肚肚  
+##### 1237#       发表于 2022-11-10 14:06
+
+你们都是买数字版的吗？怎么我淘宝问了一圈卖碟的都没货
+
