@@ -5434,3 +5434,12 @@ https://www.bilibili.com/video/BV1614y1p7fW/
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  khxooo  
+##### 3499#       发表于 2022-11-11 01:49
+
+29池掉了4张，就是这29池的QP全部都吃完了，根本不够用。
+
