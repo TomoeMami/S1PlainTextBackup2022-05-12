@@ -4662,3 +4662,14 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 2022-11-10 19:41 上传
 
+
+
+*****
+
+####  AeonsTorn  
+##### 1913#       发表于 2022-11-10 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58375596&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-10 19:41</a>
+这个箱子是得以后拿了什么能力才能开吗</blockquote>
+右侧的岩石有一块贴图不一样，那是拿哥布林的石板开的
+

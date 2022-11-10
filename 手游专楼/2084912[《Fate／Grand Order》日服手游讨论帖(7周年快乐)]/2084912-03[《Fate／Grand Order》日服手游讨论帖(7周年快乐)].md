@@ -5277,3 +5277,35 @@ https://www.bilibili.com/video/BV1614y1p7fW/
 满破了 最后被仇凛的强解偷BUFF搞死了 太恶心了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完了　第１个剑兰切死　　第２个太岁冲死了
 
+
+
+*****
+
+####  qixinno2  
+##### 3486#       发表于 2022-11-10 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58375570&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-10 19:39</a>
+
+打完了　第１个剑兰切死　　第２个太岁冲死了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纳尼 太岁怎么冲
+
+*****
+
+####  alucardcz  
+##### 3487#       发表于 2022-11-10 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58375688&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-10 19:46</a>
+
+纳尼 太岁怎么冲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就那样冲
+
+*****
+
+####  qixinno2  
+##### 3488#       发表于 2022-11-10 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58375708&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-10 19:47</a>
+
+就那样冲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无脑冲就完了么
+
