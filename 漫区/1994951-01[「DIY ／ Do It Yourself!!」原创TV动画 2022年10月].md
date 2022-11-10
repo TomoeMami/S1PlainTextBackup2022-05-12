@@ -4903,3 +4903,17 @@ self有了我不知道的一面…</blockquote>
 
 布丁女士，你真是个铁傲娇啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zfy666  
+##### 388#       发表于 2022-11-10 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58374772&amp;ptid=1994951" target="_blank">Alicest 发表于 2022-11-10 19:01</a>
+
+布丁和self箭头一直很足，不能比的
+
+布丁哪天把self推了self多半也会笑着说可以哦如果是布丁的话 ...</blockquote>
+这集看爽了，布丁和女主后面几乎一直在一块儿，就算是前面没一起行动的时候布丁也想着女主能不能适应diy部。这样的情谊真的听令人羡慕的
+

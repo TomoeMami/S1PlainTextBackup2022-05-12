@@ -12287,3 +12287,15 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 
 草泥马，华纳海姆那个断桥怎么过的，解密30分钟我真是要骂人了
 
+
+
+*****
+
+####  kuker53  
+##### 1263#       发表于 2022-11-10 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58375729&amp;ptid=2025548" target="_blank">猫不萌 发表于 2022-11-10 19:48</a>
+
+草泥马，华纳海姆那个断桥怎么过的，解密30分钟我真是要骂人了</blockquote>
+断桥？是有可以转的那个架子吗，转好位置后到左边台子上用双刀拉那个火桶
+
