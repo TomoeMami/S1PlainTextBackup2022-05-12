@@ -307,3 +307,22 @@
 
 哈哈哈垃圾死字母旧人不如狗lim终突bba被完全白给，开个花被boss一个特动驱散成裸体，被普池水安完爆。还有这boss一正常打对不上轴一次没某些几个卡的话就要顶着一堆buff和db打半天了，特动加buff把弱耐直接藏里面。最后还是要靠牛牛加六道枪才有点救。不过150就要上六龙武200九成九没戏了。
 
+
+
+*****
+
+####  areklose  
+##### 17195#       发表于 2022-11-10 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58367336&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2022-11-10 12:23</a>
+
+哈哈哈垃圾死字母旧人不如狗lim终突bba被完全白给，开个花被boss一个特动驱散成裸体，被普池水安完爆。还有 ...</blockquote>
+上年就已经证明BBA终突是个废物啊。讲真，对付单击怪我觉得还不如今年上修的佩特拉
+
+*****
+
+####  areklose  
+##### 17196#       发表于 2022-11-10 14:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">FA人看到驱散就掏出井了
+
