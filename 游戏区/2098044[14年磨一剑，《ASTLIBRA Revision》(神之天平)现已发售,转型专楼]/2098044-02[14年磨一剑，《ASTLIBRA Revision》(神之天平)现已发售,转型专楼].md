@@ -4080,3 +4080,57 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 水属性变招的召唤人鱼，风属性原版贝阿朵的瞬间回血，光属性阿斯特莱亚变招的陨石，暗属性龙王的黑炎和黑翼，后期我个人就这几个魔法用的最多
 
+
+
+*****
+
+####  llysander  
+##### 1862#       发表于 2022-11-10 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357274&amp;ptid=2098044" target="_blank">白軍浪 发表于 2022-11-9 19:49</a>
+
+梦神抢夺天平的动机到底是什么？他应该不知道天平计划的详细，但他应该知道戒誓，和大陆的真实情况啊吗。就 ...</blockquote>
+要说动机这些土着神唯一的合理动机只有“阿斯特雷亚说你是超级战士让我来试试，打不过我还谈拯救我”，天平说了从头到尾都是逗你玩，天平完全在女神掌控下不是随便谁上去可以凭自己意志使用的，梦神登场的意义大概90%在说明前一个好结局是梦... 至于全解决了后还要来鲨妹大概只是方丈小心眼<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llysander  
+##### 1863#       发表于 2022-11-10 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58357354&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-9 19:55</a>
+
+金宝箱银宝箱要怎么打开？出过一次银的但没有钥匙</blockquote>
+做钥匙用 金/银 粘石 + 键模 
+
+粘石挖各种矿都能出，键模开箱 ， 如果在一个大章里 已经拿全图纸则一定会出键模3个 ， 所以钥匙是确保不会缺的
+
+*****
+
+####  llysander  
+##### 1864#       发表于 2022-11-10 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58359025&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-9 21:54</a>
+
+加时杯的两个树一直吹飞掉下去摔死有什么办法</blockquote>
+装三段跳，反重力后视作站平地还能继续三段跳
+
+*****
+
+####  llysander  
+##### 1865#       发表于 2022-11-10 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360469&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-9 23:45</a>
+
+这个箱子怎么拿？</blockquote>
+中间跳上去后，掐好反重力挺在接近靶子水平位置射弩
+
+*****
+
+####  電子器官依存  
+##### 1866#       发表于 2022-11-10 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58365401&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-10 10:47</a>
+
+中间跳上去后，掐好反重力挺在接近靶子水平位置射弩</blockquote>
+拿到了拿到了，无限悬浮的衣服真的很好用，竞技场打树芽那关和新章开护城河的箱子都能用到，坛友们可以参考一下
+
