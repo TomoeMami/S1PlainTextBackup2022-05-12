@@ -659,3 +659,18 @@ AN米娅应该这次落地了吧
 
 弹出消息不小心点开就看不到了..
 
+
+
+*****
+
+####  Laie  
+##### 7454#       发表于 2022-11-10 13:07
+
+ｺﾛﾌﾟﾗｸﾞﾙｰﾌﾟ ｺﾝｼｭｰﾏｰ事业売上
+
+2022年
+
+7〜9月 879百万円 アノコ/アリスギア
+
+CS版这销量感觉就很阿金<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

@@ -11960,3 +11960,26 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 云个前几个小时就是dlc论，蠢不蠢，从可以控制儿子开始，新玩意一轮接一轮，这种人辩都懒得辩
 
+
+
+*****
+
+####  mimighost  
+##### 1231#       发表于 2022-11-10 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58367511&amp;ptid=2025548" target="_blank">clover293 发表于 2022-11-10 12:32</a>
+
+剧情明显是后期拍的板，从2018之后大家其实都觉得是三部曲
+
+现在想来这舆论又是dlc又是变化少 没新意
+
+二代完 ...</blockquote>
+导演已经承认了，就是临时改了主意
+
+*****
+
+####  mimighost  
+##### 1232#       发表于 2022-11-10 13:03
+
+这鲸鱼居然藏在支线里面牛批了
+
