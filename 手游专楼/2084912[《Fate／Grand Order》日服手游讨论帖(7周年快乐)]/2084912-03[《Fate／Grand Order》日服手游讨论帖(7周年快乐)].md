@@ -5036,3 +5036,26 @@ FguGwNXVsAAhJlZ.jpg
 
 礼装筛选是不是有问题，没有筛选活动礼装这按钮了
 
+
+
+*****
+
+####  khxooo  
+##### 3463#       发表于 2022-11-10 09:12
+
+商店除了狗粮都搬完了，转去去枪阶看看能不能多打几个毛球。
+
+*****
+
+####  xiongxingyu  
+##### 3464#       发表于 2022-11-10 09:14
+
+好气啊，5宝100级的妖兰一定会剩8-10w血，没有红卡或者2张卡打ex就收不掉，只能拉礼装等级或者喂杯子解决，这一波卡得真是死啊。目前还在拉公主，匀不出资源，伤害就差一口气换5加成又觉得好亏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  刹海之绊  
+##### 3465#       发表于 2022-11-10 09:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">5加成妖兰爽打，什么6加成雨我无瓜
+
