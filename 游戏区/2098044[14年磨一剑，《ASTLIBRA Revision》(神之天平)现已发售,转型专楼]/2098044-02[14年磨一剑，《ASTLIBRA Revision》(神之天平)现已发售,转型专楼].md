@@ -4268,3 +4268,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 加隆的被动里点上暗黑，敏捷拉高，开风精灵狂战士，把上挑的奥义书封印，就可以闭眼按上➕攻击了 ...</blockquote>
 后期武器攻击力真没什么卵用，除非刷得特别特别高，枪锤被动+魔杖的赚精力能力配合变种凭依技极其离谱
 
+
+
+*****
+
+####  電子器官依存  
+##### 1878#       发表于 2022-11-10 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58369430&amp;ptid=2098044" target="_blank">Errey 发表于 2022-11-10 14:11</a>
+
+后期武器攻击力真没什么卵用，除非刷得特别特别高，枪锤被动+魔杖的赚精力能力配合变种凭依技极其离谱 ...</blockquote>
+光研究怎么砍起来爽了，凭依技因为发动时不回条一直就用月光当作回避手段或者拍攻速和攻击力buff，爽一爽再研究精力回复吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

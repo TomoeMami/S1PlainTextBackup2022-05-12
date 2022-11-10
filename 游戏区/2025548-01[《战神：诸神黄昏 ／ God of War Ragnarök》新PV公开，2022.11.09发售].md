@@ -12046,3 +12046,15 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 儿子这套系统到完全体之后是真的爽啊
 
+
+
+*****
+
+####  JudgmentEye  
+##### 1240#       发表于 2022-11-10 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58369053&amp;ptid=2025548" target="_blank">华发夜眼[CN] 发表于 2022-11-10 13:51</a>
+
+5直接玩4的碟体验有差别吗</blockquote>
+画面差点，别的没啥区别
+

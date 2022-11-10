@@ -2666,3 +2666,39 @@ FNS发生了啥
 
 说正经的，看过一个介绍vn的视频，确实在结构上和香音有很不错的对称，属于历代一来塑造的很好的了，垮了也是因为香音自己垮了。
 
+
+
+*****
+
+####  ViyViy  
+##### 9208#       发表于 2022-11-10 14:44
+
+少出面那种必须需要介绍动画的节目就行了呗。
+
+这鸟动画小朋友真的会喜欢吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 9209#       发表于 2022-11-10 14:46
+
+ 本帖最后由 nufawneafg 于 2022-11-10 14:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58370003&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-10 14:44</a>
+少出面那种必须需要介绍动画的节目就行了呗。
+
+这鸟动画小朋友真的会喜欢吗星2是真的对大人小孩来说 ...</blockquote>
+然而上面提的伏牛山很难不提动画，昨天脑抽话说的没那么圆。
+但大意就是主流节目都需要你自报家门，怎么可能无凭无据的就上大节目，但这波搞的，属于是考验主持人圆场能力了。
+
+*****
+
+####  ads147147  
+##### 9210#       发表于 2022-11-10 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58370003&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-10 14:44</a>
+
+少出面那种必须需要介绍动画的节目就行了呗。
+
+这鸟动画小朋友真的会喜欢吗星2是真的对大人小孩来说 ...</blockquote>
+小孩子不是只要歌好听，画面漂亮就行了，我小时候追高达也不会在乎里头的人际关系，种命看的开心死了。
+
