@@ -11937,3 +11937,17 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 奎爷的性能前期就有丢手榴弹控场，和双刀双链下砸，比4代前期强太多了，就是太依赖浮空
 
+
+
+*****
+
+####  clover293  
+##### 1229#       发表于 2022-11-10 12:32
+
+剧情明显是后期拍的板，从2018之后大家其实都觉得是三部曲
+
+现在想来这舆论又是dlc又是变化少 没新意
+
+二代完结也挺好的
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">下部作品直接科幻，看变化大不大，笑死
+
