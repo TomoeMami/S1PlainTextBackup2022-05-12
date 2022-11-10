@@ -235,3 +235,12 @@ https://www.zhihu.com/people/19-32-66-94
 
 之前出去那一批，只要不在继续跳，TG都闭着眼的。
 
+
+
+*****
+
+####  情商  
+##### 94#       发表于 2022-11-10 22:59
+
+剑外忽传收蓟北<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

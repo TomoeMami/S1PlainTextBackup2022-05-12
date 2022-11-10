@@ -377,3 +377,16 @@ C组今天对面的团，看介绍应该是B团，200以上的有3个，然而�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个150感觉我估计打不过200了
 
+
+
+*****
+
+####  faxi  
+##### 17202#       发表于 2022-11-10 22:59
+
+C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死崩盘的问题，我这还没上龙武还行
+
+兔子带双杖可以利用被动提高很多稳定性，但是相对的前面50会慢不少，用机神主要少了稳定一口奶感觉不太好说
+
+坏女人这次完美适配真的爽，巫妖打一下她打一下，硬是靠巫妖蹭上去<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
