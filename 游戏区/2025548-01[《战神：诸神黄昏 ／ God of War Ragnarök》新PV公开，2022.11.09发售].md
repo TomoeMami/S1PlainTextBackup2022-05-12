@@ -11817,3 +11817,54 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 编剧是索黑吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 上作各种npc和支线就已经在黑索了，杂鱼都要骂两句
 
+
+
+*****
+
+####  Kazepollar  
+##### 1217#       发表于 2022-11-10 11:33
+
+长枪感觉刚拿到不太行，手动丢矛收益太低，目前还是配合芙蕾雅的魔爆打属性异常和元素爆炸，伤害非常可观
+
+*****
+
+####  Yason  
+##### 1218#       发表于 2022-11-10 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58363328&amp;ptid=2025548" target="_blank">烛堡巡礼者 发表于 2022-11-10 09:02</a>
+昨天刚打完肥宅索尔有几个槽点：
+
+1、雪地里腿部没互动疯狂穿模太出戏
+
+2、奎爷真脆，平衡难度和高一档难度就 ...</blockquote>
+最后跑了就是奥丁把奎秃从boy身边支开，想单独**boy
+
+*****
+
+####  Yason  
+##### 1219#       发表于 2022-11-10 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58363328&amp;ptid=2025548" target="_blank">烛堡巡礼者 发表于 2022-11-10 09:02</a>
+昨天刚打完肥宅索尔有几个槽点：
+
+1、雪地里腿部没互动疯狂穿模太出戏
+
+2、奎爷真脆，平衡难度和高一档难度就 ...</blockquote>
+洗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">nao
+
+*****
+
+####  eblis2  
+##### 1220#       发表于 2022-11-10 11:38
+
+有没有用ps4pro的老哥
+
+能跑得动吗
+
+*****
+
+####  Kazepollar  
+##### 1221#       发表于 2022-11-10 11:39
+
+这代感觉跟原似的…主打一个切武器元素爆发，我怀疑后期装备做完伤害很爆炸
+

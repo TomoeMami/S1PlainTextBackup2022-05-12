@@ -489,3 +489,12 @@ PV粉毛裸飘还挺好看...有一刚一我一直觉得动画粉毛人设意外
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">脸是真的崩
 
+
+
+*****
+
+####  jerryoq1  
+##### 1996#       发表于 2022-11-10 11:39
+
+还行 用阳だまり的变奏 满意了  也没怎么崩（上集拉低了下限）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
