@@ -5103,3 +5103,56 @@ self不会是故意装傻钓布丁吧</blockquote>
 <img src="https://p.sda1.dev/8/be1e601b9f382ba4267d3cb627fb99d5/20221111_012318.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/3c00d681af9f1e7c7a3a6960fec3edfb/20221111_012319.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  风速前进mo  
+##### 404#       发表于 2022-11-11 01:31
+
+布丁再傲娇，在女主心中的地位以及对女主内心的理解都是其他人远不可及的，这点就已经赢赢赢了
+
+*****
+
+####  Piano-Forest  
+##### 405#         楼主| 发表于 2022-11-11 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360697&amp;ptid=1994951" target="_blank">Piano-Forest 发表于 2022-11-10 00:01</a>
+
+https://twitter.com/708FNWP/status/1590366308432240641
+
+DIY6話少し原画&amp; ...</blockquote>
+[https://twitter.com/andyll25252/status/1590367168256159745](https://twitter.com/andyll25252/status/1590367168256159745)
+
+DIY6話、コンテ演出やってました。
+
+松尾さんをはじめ、
+
+各パート素晴らしいアニメーターの皆様ばかりでした！
+
+本当にありがとうございました！
+<img src="https://p.sda1.dev/8/e3896bee778787086d433f71c123215d/20221111_013256.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/plus_plus09/status/1590365449312964608](https://twitter.com/plus_plus09/status/1590365449312964608)
+
+6話動画たくさんやりました！
+
+めちゃ楽しかったカットばかりでした水着回は神回
+<img src="https://p.sda1.dev/8/16509fb00be20a02cfedc81a92da518d/20221111_013305.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 406#         楼主| 发表于 2022-11-11 01:39
+
+[https://twitter.com/M_terU116/status/1589135493978939392](https://twitter.com/M_terU116/status/1589135493978939392)
+<img src="https://p.sda1.dev/8/a6287a4b03da040ab69d633769a3d4de/20221111_013628.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/7bc9863e2a43d805d93472c2d1399c9c/20221111_013633.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/719b42174eec596e461653b989db4337/20221111_013640.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/nanashi4488/status/1590476287352897536](https://twitter.com/nanashi4488/status/1590476287352897536)
+<img src="https://p.sda1.dev/8/6b067129e99aa847c4beeca71d1a66b7/20221111_013653.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/to3tai/status/1589908576042377219](https://twitter.com/to3tai/status/1589908576042377219)
+<img src="https://p.sda1.dev/8/45b4538aaa4cc308faa42ce3485326fe/20221111_013707.jpg" referrerpolicy="no-referrer">
+
