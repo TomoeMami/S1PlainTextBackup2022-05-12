@@ -368,3 +368,12 @@ C组今天对面的团，看介绍应该是B团，200以上的有3个，然而�
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17201#       发表于 2022-11-10 20:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这个150感觉我估计打不过200了
+

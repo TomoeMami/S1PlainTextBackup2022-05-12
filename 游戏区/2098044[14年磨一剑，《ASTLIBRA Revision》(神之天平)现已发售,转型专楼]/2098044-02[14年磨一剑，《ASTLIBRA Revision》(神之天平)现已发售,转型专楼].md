@@ -4765,3 +4765,29 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 主城有个守卫守着的地方，想想怎么过去吧</blockquote>
 找到了，谢谢
 
+
+
+*****
+
+####  PNK  
+##### 1923#       发表于 2022-11-10 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58376425&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-10 20:27</a>
+
+话说打击20w次那个成就，是任何武器攻击20w次就行还是必须锤子？</blockquote>
+应该是任意
+
+我没有刻意刷，不喜欢用锤子，到第8章开头也解锁了
+
+*****
+
+####  A1LI  
+##### 1924#       发表于 2022-11-10 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58376657&amp;ptid=2098044" target="_blank">PNK 发表于 2022-11-10 20:43</a>
+
+应该是任意
+
+我没有刻意刷，不喜欢用锤子，到第8章开头也解锁了</blockquote>
+我草，我都第2个档了，第一个档普通难度通关，第二个档困难难度也打到了新章，结果这成就还是没解……
+
