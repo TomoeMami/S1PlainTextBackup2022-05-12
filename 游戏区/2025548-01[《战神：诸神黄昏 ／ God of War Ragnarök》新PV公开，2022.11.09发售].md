@@ -12412,3 +12412,15 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 
 这游戏ps4slim能玩吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuker53  
+##### 1276#       发表于 2022-11-11 07:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58381672&amp;ptid=2025548" target="_blank">大弹涂鱼潜伏 发表于 2022-11-11 06:26</a>
+
+这游戏ps4slim能玩吗</blockquote>
+能玩。1080P 30帧嘛
+
