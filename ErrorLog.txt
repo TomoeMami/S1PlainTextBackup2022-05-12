@@ -1,5 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/漫区/2042384-01[后宫之乌 TV动画化 2022年10月].md'
-!!error:id=2042384
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/游戏区/2044294-01[最终幻想16 ／ FF16 新PV10月公开，2023年夏发售].md'
-!!error:id=2044294

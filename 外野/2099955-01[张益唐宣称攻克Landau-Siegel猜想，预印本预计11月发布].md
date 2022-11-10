@@ -144,3 +144,52 @@ https://www.zhihu.com/people/19-32-66-94
 
 他都去山大和北大做讲座了，能有啥问题
 
+
+
+*****
+
+####  bapijun1  
+##### 85#       发表于 2022-11-10 22:21
+
+<blockquote>收缩压 发表于 2022-11-10 22:19
+他都去山大和北大做讲座了，能有啥问题</blockquote>
+当初菲尔兹奖第一女性，伊朗不也舔着脸上去
+
+*****
+
+####  drodchang  
+##### 86#       发表于 2022-11-10 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58378261&amp;ptid=2099955" target="_blank">明月前身 发表于 2022-11-10 22:11</a>
+
+其实我一直都怀疑他提这句诗有想和tg和解的意思，毕竟庾信是出了名的有家不能回 ...</blockquote>
+他又啥好和解的，随便回国，他以前的事有人提过吗？
+
+*****
+
+####  收缩压  
+##### 87#       发表于 2022-11-10 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58378434&amp;ptid=2099955" target="_blank">bapijun1 发表于 2022-11-10 22:21</a>
+当初菲尔兹奖第一女性，伊朗不也舔着脸上去</blockquote>
+类比有问题，现在讨论的是他还想不想跟国内发生联系，这次结果证明他还挺愿意的，毕竟连知乎都亲自答了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  收缩压  
+##### 88#       发表于 2022-11-10 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58378458&amp;ptid=2099955" target="_blank">drodchang 发表于 2022-11-10 22:22</a>
+他又啥好和解的，随便回国，他以前的事有人提过吗？</blockquote>
+没啥事啊，之前是北大的老师同学邀请他回国，他自己不愿意，闹得不愉快是和他国外的博士导师吧，和北大导师还挺好的（知乎回答里还专门cue了一段）
+
+*****
+
+####  折光  
+##### 89#       发表于 2022-11-10 22:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58378261&amp;ptid=2099955" target="_blank">明月前身 发表于 2022-11-10 22:11</a>
+
+其实我一直都怀疑他提这句诗有想和tg和解的意思，毕竟庾信是出了名的有家不能回 ...</blockquote>
+和解啥啊，他又不是因为政治原因不回国的，以前是因为在外面混的太惨了，不好意思联系家里
+

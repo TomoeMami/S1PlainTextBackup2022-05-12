@@ -872,3 +872,14 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 我倒是基本上冲着qp刷了几下柱子...
 
+
+
+*****
+
+####  Kon-El  
+##### 43721#       发表于 2022-11-10 22:31
+
+这次高难好简单，百级陈宫满破倍卡4T就过了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

@@ -4978,3 +4978,22 @@ self有了我不知道的一面…</blockquote>
 布丁女士嘴好硬啊，self这么木头不打直球怎么行</blockquote>
 好久没见这么香的傲娇了
 
+
+
+*****
+
+####  水莲寺流歌  
+##### 395#       发表于 2022-11-10 22:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">self不会是故意装傻钓布丁吧
+
+*****
+
+####  扣鸡马  
+##### 396#       发表于 2022-11-10 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58378440&amp;ptid=1994951" target="_blank">水莲寺流歌 发表于 2022-11-10 22:22</a>
+
+self不会是故意装傻钓布丁吧</blockquote>
+看傲娇被钓不是最有意思了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
