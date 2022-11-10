@@ -4042,3 +4042,32 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 是凭依技威力也影响buff幅度吗？
 
+
+
+*****
+
+####  電子器官依存  
+##### 1859#       发表于 2022-11-10 10:26
+
+ 本帖最后由 電子器官依存 于 2022-11-10 10:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58364684&amp;ptid=2098044" target="_blank">PNK 发表于 2022-11-10 10:13</a>
+
+暗黑有什么讲究？
+
+是凭依技威力也影响buff幅度吗？</blockquote>
+影响挺大，尤其是风精灵的加成特别明显，单纯提高魔力有没有效我没试过，点出暗黑给的增幅就够用了
+
+*****
+
+####  管住键政的手  
+##### 1860#       发表于 2022-11-10 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58362919&amp;ptid=2098044" target="_blank">PNK 发表于 2022-11-10 08:31</a>
+
+终于打到第8章了，开始清地图
+
+前期凭依技好用，后面感觉就不如开风精灵狂战士直接砍爆了 ...</blockquote>
+狂战士后期是真没用，我六千攻击不开800开了900，没本质区别。
+
+凭依技后期有用的就是天体草莓炸弹这样伤害高还不影响你砍人的和剑舞枪舞这样消耗低无敌时间长用来回血的。
+

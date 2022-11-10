@@ -2549,3 +2549,12 @@ FNS发生了啥
 刷番不多，但是手上有邦邦和啤酒烧烤两张长期饭票，露脸的机会也多，发展得还可以
 想起因为当年看V6她棒读的那句“わ☆た☆し~”才关注她<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9198#       发表于 2022-11-10 10:27
+
+咋聊到FNS了，我去官网看了一眼，最新的消息也是七月份的，这不还啥也没有吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
