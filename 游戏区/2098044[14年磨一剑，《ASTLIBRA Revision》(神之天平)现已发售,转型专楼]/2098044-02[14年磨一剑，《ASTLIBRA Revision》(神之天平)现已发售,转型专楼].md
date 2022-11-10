@@ -4381,3 +4381,44 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 蛋糕书是第七章竞技场奖励，第八章前建议去打掉一下，不然第八章**理做不出来。
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1888#       发表于 2022-11-10 17:43
+
+说起来我打到盖亚迷宫之前了还没下去 会长也打了 天平是9个？
+
+*****
+
+####  Sannapolis  
+##### 1889#       发表于 2022-11-10 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58373217&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-10 17:43</a>
+说起来我打到盖亚迷宫之前了还没下去 会长也打了 天平是9个？</blockquote>
+第2到8章每章地图宝箱里有一个天平皿，小徽章扭蛋有一个天平皿
+可以排查下是哪个忘拿了
+
+*****
+
+####  cym887  
+##### 1890#       发表于 2022-11-10 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58373217&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-10 17:43</a>
+
+说起来我打到盖亚迷宫之前了还没下去 会长也打了 天平是9个？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">应该10个 第十个死活找不到 少了一个铁娘子小徽章 应该是徽章抽扭蛋出来
+
+
+
+*****
+
+####  方舟失智博士  
+##### 1891#       发表于 2022-11-10 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58373316&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-10 17:48</a>
+
+应该10个 第十个死活找不到 ...</blockquote>
+我扭蛋成就跳了 全收集了 天平在宝物成就里看不到
+
