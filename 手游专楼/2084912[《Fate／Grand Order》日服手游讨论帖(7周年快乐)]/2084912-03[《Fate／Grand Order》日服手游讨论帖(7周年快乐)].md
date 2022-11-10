@@ -5090,3 +5090,12 @@ FguGwNXVsAAhJlZ.jpg
 5宝100级妖兰双杀狐+奥的话1级活动礼装最多也就剩1，2万吧，剩8-10万是不是1技能没有开2次 ...</blockquote>
 确实，是我脑抽了，应该t1开1技能的，反正np怎么都够
 
+
+
+*****
+
+####  v22325  
+##### 3469#       发表于 2022-11-10 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这角色也太像厕纸轻小说里精灵了
+

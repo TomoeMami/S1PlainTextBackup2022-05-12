@@ -4134,3 +4134,28 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 中间跳上去后，掐好反重力挺在接近靶子水平位置射弩</blockquote>
 拿到了拿到了，无限悬浮的衣服真的很好用，竞技场打树芽那关和新章开护城河的箱子都能用到，坛友们可以参考一下
 
+
+
+*****
+
+####  bigraymond  
+##### 1867#       发表于 2022-11-10 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58311992&amp;ptid=2098044" target="_blank">xifeilu 发表于 2022-11-7 02:34</a>
+这游戏真是每次都能给我整点花活儿，第二关被石头砸脸搞得寸步难行，回去翻攻略果然发现自己少拿了2段跳技 ...</blockquote>
+你没二段跳第一章怎么拿的红球
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  llysander  
+##### 1868#       发表于 2022-11-10 11:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58364684&amp;ptid=2098044" target="_blank">PNK 发表于 2022-11-10 10:13</a>
+
+暗黑有什么讲究？
+
+是凭依技威力也影响buff幅度吗？</blockquote>
+恶魔怒和全爆发也有效，但总的来说数值buff类的凭依不好用
+
