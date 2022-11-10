@@ -12392,3 +12392,14 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 
 草，不是说有几十个种类的怪吗，结果换皮怪还那么多吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  血河之舞  
+##### 1274#       发表于 2022-11-11 06:14
+
+倪哥妹根本就是凤姐脸，都要吐了，怪不得棒子给6分，我现在只想说骚尼，rnm退钱
+
+—— 来自 Lenovo TB-9707F, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

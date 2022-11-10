@@ -5023,3 +5023,14 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 异界通知下面那个技能是在哪儿拿，好像也不是装备熟练度了
 
+
+
+*****
+
+####  startea15  
+##### 1945#       发表于 2022-11-11 06:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58381467&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-10 12:07</a>
+异界通知下面那个技能是在哪儿拿，好像也不是装备熟练度了</blockquote>
+所有技能基本都是装备给的，假如你漏了技能就一定是有装备熟练度没打完
+
