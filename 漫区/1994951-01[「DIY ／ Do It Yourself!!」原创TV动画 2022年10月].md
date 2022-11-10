@@ -4822,3 +4822,16 @@ self有了我不知道的一面…</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  千恋万花  
+##### 380#       发表于 2022-11-10 18:24
+
+月刊アニメージュ 2022年12月号 Do It Yourself!! 設定資料FILE
+<img src="https://p.sda1.dev/8/9d35042a56d541fca27cdf9bd048c199/108.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/60f7700fb9bfbc430f2424cdd561ff70/109.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/32d117c59efa566f86dc15b04a9ca2f6/110.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/15f40283dc5afc205212c6e7e3fabd89/111.jpg" referrerpolicy="no-referrer">
+

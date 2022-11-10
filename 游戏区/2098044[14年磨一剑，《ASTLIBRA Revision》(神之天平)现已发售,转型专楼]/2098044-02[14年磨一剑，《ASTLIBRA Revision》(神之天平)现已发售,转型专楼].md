@@ -4479,3 +4479,29 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  電子器官依存  
+##### 1897#       发表于 2022-11-10 18:30
+
+ 本帖最后由 電子器官依存 于 2022-11-10 18:31 编辑 
+
+风怒
+
+*****
+
+####  電子器官依存  
+##### 1898#       发表于 2022-11-10 18:30
+
+魔王城的最后一个小徽章找不到了，跑了两遍都没看到有新箱子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/10/183027o9400rgww8gwnoor.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (136.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-10 18:30 上传
+

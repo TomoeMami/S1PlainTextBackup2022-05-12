@@ -12197,3 +12197,15 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 老婆给了他安排了一条成为真 ...</blockquote>
 哦哦哦，被其他神信仰吗？
 
+
+
+*****
+
+####  夏延  
+##### 1254#       发表于 2022-11-10 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58373998&amp;ptid=2025548" target="_blank">stannislas 发表于 2022-11-10 18:19</a>
+
+哦哦哦，被其他神信仰吗？</blockquote>
+被北欧九界的普通（人？）信仰啊
+
