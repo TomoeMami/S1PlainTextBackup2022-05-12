@@ -326,3 +326,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">FA人看到驱散就掏出井了
 
+
+
+*****
+
+####  poor  
+##### 17197#       发表于 2022-11-10 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58367134&amp;ptid=1158205" target="_blank">areklose 发表于 2022-11-10 12:13</a>
+风妈还不如娜美罗宾</blockquote>
+实际用起来其实还行，谢谢4字母大发慈悲没有驱散净化增伤石化套餐一起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -2702,3 +2702,17 @@ FNS发生了啥
 这鸟动画小朋友真的会喜欢吗星2是真的对大人小孩来说 ...</blockquote>
 小孩子不是只要歌好听，画面漂亮就行了，我小时候追高达也不会在乎里头的人际关系，种命看的开心死了。
 
+
+
+*****
+
+####  ruffian  
+##### 9211#       发表于 2022-11-10 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58370003&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-10 14:44:34</a>
+少出面那种必须需要介绍动画的节目就行了呗。
+
+这鸟动画小朋友真的会喜欢吗 ...</blockquote>那得看是多小的小朋友了，我小时候特别喜欢看弹珠警察，但说实话我完全看不懂，现在一点情节也回忆不起来。星团唱唱跳跳的，6岁以下可能还真看得挺开心，之前不是就有幼儿园的小朋友跳星团的舞吗？（说不定他们的家长中就有不少老拉拉人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

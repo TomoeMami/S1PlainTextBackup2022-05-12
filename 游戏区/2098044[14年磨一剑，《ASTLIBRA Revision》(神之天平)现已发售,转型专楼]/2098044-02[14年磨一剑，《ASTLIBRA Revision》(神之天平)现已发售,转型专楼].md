@@ -4289,3 +4289,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">钢剑巴鲁姆克 还有重生盾的第一个食物材料没有合成表 是第几章能拿到？
 
+
+
+*****
+
+####  tsubaki  
+##### 1880#       发表于 2022-11-10 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58370211&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-10 14:59</a>
+
+钢剑巴鲁姆克 还有重生盾&amp;#x7 ...</blockquote>
+都是8章东京研究所
+
