@@ -4348,3 +4348,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 完美通关，我的goty。无敌
 
+
+
+*****
+
+####  llysander  
+##### 1885#       发表于 2022-11-10 16:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58369305&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-10 14:05</a>
+
+神杀剑后垃圾装备就卖了么 难过我都出垃圾图纸我以为会有什么特殊装备图纸 像配装一样配出什么超级BUILD之 ...</blockquote>
+卖的原因是，掉板只会掉身上有的装备，能提升些出板效率，虽然不能卖的非制作获得装备还是有很多，刷得还是不快
+

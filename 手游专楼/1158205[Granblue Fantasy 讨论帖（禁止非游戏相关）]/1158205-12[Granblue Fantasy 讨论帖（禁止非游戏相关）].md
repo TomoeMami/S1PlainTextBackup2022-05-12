@@ -339,3 +339,12 @@
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  DDWarrior  
+##### 17198#       发表于 2022-11-10 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">150就被逼得祭出龙武了，200怎么打我不敢想
+
