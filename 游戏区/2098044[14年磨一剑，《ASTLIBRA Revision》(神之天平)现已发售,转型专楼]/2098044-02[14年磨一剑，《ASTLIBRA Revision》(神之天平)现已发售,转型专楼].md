@@ -4826,3 +4826,31 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 你要不看看里面有没有写打击数？
 
+
+
+*****
+
+####  A1LI  
+##### 1928#       发表于 2022-11-10 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58376861&amp;ptid=2098044" target="_blank">PNK 发表于 2022-11-10 20:56</a>
+
+那我不确定了
+
+我记得道具栏里有本战历之书（好像是扭蛋开出来的）可以看战斗相关记录来着
+
+你要不 ...</blockquote>
+没有，不然我也不来问了。
+
+*****
+
+####  A1LI  
+##### 1929#       发表于 2022-11-10 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58376836&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-11-10 20:54</a>
+
+应该是看物品里战历之书里的数字给成就的
+
+不同难度存档的打击数不会叠加 ...</blockquote>
+问题是书里没有攻击次数的词条啊。
+
