@@ -4978,3 +4978,39 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">明明锤子这么好用
 
+
+
+*****
+
+####  電子器官依存  
+##### 1941#       发表于 2022-11-10 23:32
+
+59小时结束了，剩下全凭依熟练和15000杀敌数的成就懒得打了
+
+<img src="https://img.saraba1st.com/forum/202211/10/233219nkrfo6im6ngzrdpm.png" referrerpolicy="no-referrer">
+
+<strong>[0~YEGDC%LSXV(0$DV3$ACB.png</strong> (77.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-10 23:32 上传
+
+想记忆删除再通一遍
+
+*****
+
+####  JoelBirch  
+##### 1942#       发表于 2022-11-10 23:36
+
+白宝石能干啥啊
+
+*****
+
+####  A1LI  
+##### 1943#       发表于 2022-11-10 23:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377927&amp;ptid=2098044" target="_blank">逃离学校 发表于 2022-11-10 21:54</a>
+
+新手村被史莱姆灭了两次，瞬间不想玩了</blockquote>
+换低难度吧，而且这游戏是越往后越强，越打越爽。
+

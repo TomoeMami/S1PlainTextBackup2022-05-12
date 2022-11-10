@@ -12333,3 +12333,14 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 
 感觉这周不赶紧打完的话，马上要厌倦了，换皮怪巨多，每个战点越打越难受，只有boss战快乐点，解密也是血压逐渐拉满
 
+
+
+*****
+
+####  すぴぱら  
+##### 1268#       发表于 2022-11-10 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58366854&amp;ptid=2025548" target="_blank">huaxianyan 发表于 2022-11-10 11:59</a>
+打了 12 个小时回来友情提示，如果觉得帧数不稳请相信自己，把设置里的「高帧率」选项关掉即刻恢复丝般润滑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不行，我关了能肉眼感受到拖影，用的电视
+
