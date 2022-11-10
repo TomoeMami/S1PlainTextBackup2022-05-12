@@ -5014,3 +5014,16 @@ FguGwNXVsAAhJlZ.jpg
 我怎么打不死，你们都是带攻击加成礼装的吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都没几个礼装当然直接黑杯啊
 
+
+
+*****
+
+####  angelooo  
+##### 3461#       发表于 2022-11-10 07:59
+
+<blockquote>黑上シグマ 发表于 2022-11-10 00:41
+你在说啥？这卡前几天名字公布的那一刻就注定了肯定脱甲变妹子，哪来什么画风突变
+
+以及不是我要说 ...</blockquote>
+就我知道要变妹子但想象的不是这个画风……是我的锅
+
