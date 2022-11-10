@@ -612,3 +612,17 @@ ns那轨屎一样的销量竟然没劝退社长，可喜可贺。真 日本战�
 
 他们高性能都只做到那样，性能低了肯定更差，这不是画面性能匹配的问题，是技术的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  卢迪克  
+##### 68#       发表于 2022-11-10 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58375466&amp;ptid=2104222" target="_blank">Kojimaru 发表于 2022-11-10 19:34</a>
+
+ns那轨屎一样的销量竟然没劝退社长，可喜可贺。真 日本战狼看不上鬼佬的钱 ...</blockquote>
+股东大会上近藤表示ps市场日见萎缩，必须要增加多平台支持，Steam版主要是海外玩家在买所以优先度也不高
+
+自己发行switch游戏是觉得自己来干收益更高些
+

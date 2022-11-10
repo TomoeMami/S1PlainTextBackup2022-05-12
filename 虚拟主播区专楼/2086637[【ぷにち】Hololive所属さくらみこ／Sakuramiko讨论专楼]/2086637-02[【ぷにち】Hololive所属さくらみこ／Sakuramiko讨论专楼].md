@@ -15024,3 +15024,14 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 2934#         楼主| 发表于 2022-11-10 20:29
+
+这怎么就强制传送了
+
+这功能还行
+
