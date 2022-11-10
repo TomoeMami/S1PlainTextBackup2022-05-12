@@ -11868,3 +11868,35 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 这代感觉跟原似的…主打一个切武器元素爆发，我怀疑后期装备做完伤害很爆炸
 
+
+
+*****
+
+####  huaxianyan  
+##### 1222#       发表于 2022-11-10 11:59
+
+打了 12 个小时回来友情提示，如果觉得帧数不稳请相信自己，把设置里的「高帧率」选项关掉即刻恢复丝般润滑
+
+我用的是采集卡，不确定别人用电视会不会有这样的问题
+
+*****
+
+####  Mikumiku831  
+##### 1223#       发表于 2022-11-10 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58366088&amp;ptid=2025548" target="_blank">wgoenitz 发表于 2022-11-10 11:21</a>
+
+确实解谜做的比4代精巧有趣得多，但真扛不住它连续持续n个……</blockquote>
+连着解密太痛苦了 还要松鼠症搜刮 打的有点累 
+
+但是又不得不赞叹机关设计的好 
+
+*****
+
+####  陈词与芍药  
+##### 1224#       发表于 2022-11-10 12:00
+
+之前我在公羽视频里说某些地方很拖沓，就是指黑妹这段hhh<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
