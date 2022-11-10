@@ -1468,3 +1468,17 @@ faze感觉是没了冲劲，安特卫普感觉是五个人都很想赢，有些�
 
 虽然我不怎么喜欢Navi和森，但里约估计还是他们的，淘汰赛不一样
 
+
+
+*****
+
+####  andychen  
+##### 2793#       发表于 2022-11-10 19:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58349357&amp;ptid=1857369" target="_blank">Robakey 发表于 2022-11-9 11:34</a>
+
+若子状态保持住 c9稳的</blockquote>
+C9上限还得看乐
+
+其他人都适应线下的比赛了，就他感觉还有点懵，不过也有可能是这几天鼠标不顺手
+

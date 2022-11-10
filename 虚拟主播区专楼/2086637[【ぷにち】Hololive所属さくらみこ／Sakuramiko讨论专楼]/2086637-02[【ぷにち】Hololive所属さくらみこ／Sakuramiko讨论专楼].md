@@ -15002,3 +15002,14 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 查看全部评分
 
+
+
+*****
+
+####  rs5621  
+##### 2932#       发表于 2022-11-10 20:02
+
+没有刹车键是吧，声控停车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
