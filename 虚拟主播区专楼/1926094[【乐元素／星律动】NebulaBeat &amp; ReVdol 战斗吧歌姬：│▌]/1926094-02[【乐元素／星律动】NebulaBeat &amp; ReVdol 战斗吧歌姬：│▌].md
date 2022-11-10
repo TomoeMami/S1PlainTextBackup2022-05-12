@@ -9946,3 +9946,14 @@ snp味…原本以为厂子不搞snp营业了…但是小叶子自己转眼就�
 
 ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和v自带的粉丝效应助攻，破圈还挺容易的，不过nb两位的投稿播放量一般般啊，看了下小柔，松松她们的都是60w以上，差的也有20w
 
+
+
+*****
+
+####  ladiesman802  
+##### 2552#       发表于 2022-11-10 12:15
+
+[https://www.bilibili.com/video/BV16e4y117zw?share_source=copy_web](https://www.bilibili.com/video/BV16e4y117zw?share_source=copy_web)
+
+出道视频
+

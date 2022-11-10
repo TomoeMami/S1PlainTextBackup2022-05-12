@@ -285,3 +285,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">怕debuff就上c5守卫 5t弱耐
 
+
+
+*****
+
+####  areklose  
+##### 17193#       发表于 2022-11-10 12:13
+
+<blockquote>poor 发表于 2022-11-9 11:22
+只开了第一个，果然要完
+
+风妈估计也就聊胜于无，打慢点等转CD不知道有没有救 ...</blockquote>
+风妈还不如娜美罗宾
+
