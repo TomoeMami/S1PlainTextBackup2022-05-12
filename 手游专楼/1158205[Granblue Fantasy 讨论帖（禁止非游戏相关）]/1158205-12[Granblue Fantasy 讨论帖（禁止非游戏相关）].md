@@ -357,3 +357,14 @@
 
 我打150是强行把输出压到第11T才打进去50里面，然后开帕拉丁的5回合的预防盾吃50到25的特动DB。我觉得我明天200的效率估计不如150了
 
+
+
+*****
+
+####  poor  
+##### 17200#       发表于 2022-11-10 20:37
+
+C组今天对面的团，看介绍应该是B团，200以上的有3个，然而到现在只打了600多W，不知道经历了什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

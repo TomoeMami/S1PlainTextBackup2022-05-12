@@ -4741,3 +4741,27 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 话说打击20w次那个成就，是任何武器攻击20w次就行还是必须锤子？
 
+
+
+*****
+
+####  magicc  
+##### 1921#       发表于 2022-11-10 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58376019&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-10 20:04</a>
+
+在主城 就是有卫兵守护的那个门 用安眠药催眠卫兵
+
+然后浮空飞过那个湖 在门口 湖掉下去会回到入口 ...</blockquote>
+找到了，谢谢解答
+
+*****
+
+####  magicc  
+##### 1922#       发表于 2022-11-10 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58376028&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-10 20:05</a>
+
+主城有个守卫守着的地方，想想怎么过去吧</blockquote>
+找到了，谢谢
+
