@@ -11900,3 +11900,31 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Mikumiku831  
+##### 1225#       发表于 2022-11-10 12:01
+
+感觉这作主打一个处决 支线送的套装有处决回血被动 全靠这个勾
+
+*****
+
+####  Avantasi  
+##### 1226#       发表于 2022-11-10 12:02
+
+海姆达尔逼格有点高啊，竟然需要专门的武器来宰，希腊雄小鬼赫耳墨斯一个投石机就搞定了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  天悬星河  
+##### 1227#       发表于 2022-11-10 12:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58366854&amp;ptid=2025548" target="_blank">huaxianyan 发表于 2022-11-10 11:59</a>
+
+打了 12 个小时回来友情提示，如果觉得帧数不稳请相信自己，把设置里的「高帧率」选项关掉即刻恢复丝般润滑 ...</blockquote>
+高帧率需要配合vrr使用
+
