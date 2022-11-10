@@ -14893,3 +14893,14 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行,比以前收敛多了
 
+
+
+*****
+
+####  holoan  
+##### 2923#         楼主| 发表于 2022-11-10 16:00
+
+[https://bpnavi.jp/s/kuji/pc/medias/show_by_key/hololive2](https://bpnavi.jp/s/kuji/pc/medias/show_by_key/hololive2)
+
+总算有点新周边了不容易
+
