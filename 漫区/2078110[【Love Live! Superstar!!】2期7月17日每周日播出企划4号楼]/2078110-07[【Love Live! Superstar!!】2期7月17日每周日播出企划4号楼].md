@@ -2642,3 +2642,27 @@ FNS发生了啥
 
 查看全部评分
 
+
+
+*****
+
+####  nufawneafg  
+##### 9206#       发表于 2022-11-10 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58369780&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-11-10 14:32</a>
+其实怎么应对我都想好了，以防剧透的名义做个简要版就行，反正大纲是好的嘛，大香老师给全世界带来笑容， ...</blockquote>
+回了回味，你这属于把人骗进来杀啊，巨魔程度依然不低<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 9207#       发表于 2022-11-10 14:40
+
+ 本帖最后由 ads147147 于 2022-11-10 14:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58369851&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-11-10 14:36</a>
+
+回了回味，你这属于把人骗进来杀啊，巨魔程度依然不低</blockquote>
+花田京极都不尴尬，为什么我们粉丝和企划要尴尬。而且小朋友喜欢啊，怎么能说骗进来杀。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说正经的，看过一个介绍vn的视频，确实在结构上和香音有很不错的对称，属于历代一来塑造的很好的了，垮了也是因为香音自己垮了。
+

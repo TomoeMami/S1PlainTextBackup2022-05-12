@@ -4750,3 +4750,15 @@ DIY＃６話も参加しました！！
 
 不过让我推荐当然不选这家（个），毕竟不是正规字幕组，干活的也不是正儿八经日语系专业出身的……
 
+
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 374#       发表于 2022-11-10 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58310646&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-11-7 00:03</a>
+
+漫画版只在 マンガUP！ APP 上连&amp;#x8 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 前几集被迫害的猪猪竟然是佐仓配的？
+
