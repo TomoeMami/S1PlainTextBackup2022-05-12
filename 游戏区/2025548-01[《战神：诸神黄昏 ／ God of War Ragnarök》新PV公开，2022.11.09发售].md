@@ -12138,3 +12138,62 @@ Quality HFR VRR: 1800/2160p 40fps framerate unlocked.
 
 这代ui真是难看的令人发指，装备界面ui比手游都难看
 
+
+
+*****
+
+####  stannislas  
+##### 1248#       发表于 2022-11-10 18:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58373718&amp;ptid=2025548" target="_blank">蛭人 发表于 2022-11-10 18:07</a>
+
+大概意思就是奎托斯成为了新北欧众父，最后章节和通关后的夫妻电灯泡组合不难看出来奎托斯那种守护神的味 ...</blockquote>
+还说第三部去埃及呢...闹了半天是赔你个儿子的节奏吗？。。。
+
+*****
+
+####  SergeGlenn  
+##### 1249#       发表于 2022-11-10 18:15
+
+UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说有多惊艳，就是时时保持设计密度，探图开各种宝箱节奏很舒服。这代地图里好多用来攻击的场景道具，经常没跑开硬刚完才发现好多东西没用
+
+*****
+
+####  夏延  
+##### 1250#       发表于 2022-11-10 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58370375&amp;ptid=2025548" target="_blank">stannislas 发表于 2022-11-10 15:11</a>
+
+所以最后结局是啥意思啊？就是翻版以后，奎托斯看到的板上画的是啥意思啊？
+
+ ...</blockquote>
+对应奥丁对奎托斯说的“你懂个屁的神，你又没有被凡人信仰&amp;索求过（大意）”
+
+老婆给了他安排了一条成为真正的神的道路
+
+*****
+
+####  白昼梦  
+##### 1251#       发表于 2022-11-10 18:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是ui确实丑啊，可能是为了无障碍游玩服务，比较追求可见性
+
+*****
+
+####  ff2077  
+##### 1252#       发表于 2022-11-10 18:19
+
+装备ui确实很屎啊，信息展示的还很乱<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  stannislas  
+##### 1253#       发表于 2022-11-10 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58373967&amp;ptid=2025548" target="_blank">夏延 发表于 2022-11-10 18:18</a>
+
+对应奥丁对奎托斯说的“你懂个屁的神，你又没有被凡人信仰&amp;索求过（大意）”
+
+老婆给了他安排了一条成为真 ...</blockquote>
+哦哦哦，被其他神信仰吗？
+

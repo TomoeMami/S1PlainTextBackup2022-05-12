@@ -4458,3 +4458,24 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 <img src="https://img.saraba1st.com/forum/202211/10/175834er6nwfh6jffrc9w6.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  電子器官依存  
+##### 1895#       发表于 2022-11-10 18:11
+
+发现一个爽刷力量晶体的位置，道具传送到存档点铁娘子，反走两张地图，一趟大概两三分钟，带上徽章，粉蓝黄晶体各四千左右（波动很大，有时六千），适合打到新章还没怎么刷过晶体的
+
+*****
+
+####  bigraymond  
+##### 1896#       发表于 2022-11-10 18:15
+
+ 本帖最后由 bigraymond 于 2022-11-10 18:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58366148&amp;ptid=2098044" target="_blank">xifeilu 发表于 2022-11-10 11:25</a>
+拿红球什么时候需要二段跳了，这位置需要？</blockquote>
+我上来就看到二段跳了，去拿红球前场景的台子以为必须二段跳上去呢
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

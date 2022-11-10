@@ -284,3 +284,14 @@ aya neo2和onexplayer mini pro大小感觉差不多
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 没关系这边也可以讨论 Deck，不过专楼的确更适合问问题。
 
+
+
+*****
+
+####  stmule  
+##### 501#       发表于 2022-11-10 18:18
+
+如果需求是打gta5，那最低多少钱买啥能解决呢？
+
+—— 来自 samsung SM-G9730, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
