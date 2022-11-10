@@ -4691,3 +4691,44 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 剧情的爱情都拿了 伙伴的羁绊给的爱情也拿了 还要刷几个</blockquote>
 改结局需要13个村正需要14个，队友给10个，流程3个，竞技场还是扭蛋我记得是有一个来着，那么你在天平素材耗了几个就要刷几个
 
+
+
+*****
+
+####  magicc  
+##### 1916#       发表于 2022-11-10 20:02
+
+请问力量晶体勋章要怎么拿？金币经验都有了，就这个没拿到了，还是说没有？
+
+*****
+
+####  方舟失智博士  
+##### 1917#       发表于 2022-11-10 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58375929&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-10 19:59</a>
+改结局需要13个村正需要14个，队友给10个，流程3个，竞技场还是扭蛋我记得是有一个来着，那么你在天平素 ...</blockquote>
+哦天平上有个情人节蛋糕 ….
+之前200T也是老忘记天平上的东西
+
+*****
+
+####  方舟失智博士  
+##### 1918#       发表于 2022-11-10 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58375980&amp;ptid=2098044" target="_blank">magicc 发表于 2022-11-10 20:02</a>
+
+请问力量晶体勋章要怎么拿？金币经验都有了，就这个没拿到了，还是说没有？ ...</blockquote>
+在主城 就是有卫兵守护的那个门 用安眠药催眠卫兵
+
+然后浮空飞过那个湖 在门口 湖掉下去会回到入口
+
+*****
+
+####  AeonsTorn  
+##### 1919#       发表于 2022-11-10 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58375980&amp;ptid=2098044" target="_blank">magicc 发表于 2022-11-10 20:02</a>
+
+请问力量晶体勋章要怎么拿？金币经验都有了，就这个没拿到了，还是说没有？ ...</blockquote>
+主城有个守卫守着的地方，想想怎么过去吧
+

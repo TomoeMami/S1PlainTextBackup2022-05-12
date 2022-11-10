@@ -590,3 +590,25 @@ ns那轨屎一样的销量竟然没劝退社长，可喜可贺。真 日本战�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  电磁炮233  
+##### 66#       发表于 2022-11-10 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58375963&amp;ptid=2104222" target="_blank">zzp05402 发表于 2022-11-10 20:01</a>
+上ns怎么不能挣鬼佬钱了
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+没英文怎么挣
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  游所不为  
+##### 67#       发表于 2022-11-10 20:10
+
+他们高性能都只做到那样，性能低了肯定更差，这不是画面性能匹配的问题，是技术的问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
