@@ -59,3 +59,15 @@
 
 这次池子的强度可以啊，感觉都是T0级别
 
+
+
+*****
+
+####  黑上シグマ  
+##### 98#       发表于 2022-11-11 16:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽说我的全部石头也就15发，还是最后一发出的
+明天这淘汰赛和普通的共用次数，别打错了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
