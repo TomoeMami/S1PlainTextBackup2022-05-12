@@ -12740,3 +12740,25 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  stannislas  
+##### 1308#       发表于 2022-11-11 16:03
+
+你们有没有刚放进去拷贝的时候光驱狂响啊
+
+我那边转的塑料味都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hippias  
+##### 1309#       发表于 2022-11-11 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58386642&amp;ptid=2025548" target="_blank">蒋公卖萌 发表于 2022-11-11 13:35</a>
+提尔刚被救的时候一副被玩坏的样子，与奎爷形成鲜明对比，后来他振作起来了吗？如果是，什么时候振作的？[/ ...</blockquote>
+仗一个没打基本上就在家里当厨子做饭收拾碗筷。
+
+— from LENOVO Lenovo YT-K606F, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.3
+

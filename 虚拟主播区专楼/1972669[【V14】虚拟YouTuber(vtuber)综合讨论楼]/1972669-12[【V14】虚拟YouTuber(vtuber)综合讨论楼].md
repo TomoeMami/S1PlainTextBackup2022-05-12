@@ -771,3 +771,23 @@ cpt真的只选择了想和谁一起玩，完全没考虑角色的构成，现�
 
 上次阿床自己的是多少人场来着？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 17704#       发表于 2022-11-11 16:08
+
+[https://twitter.com/kizunanoallele/status/1590977721219575808](https://twitter.com/kizunanoallele/status/1590977721219575808)
+[https://kizunanoallele.com/](https://kizunanoallele.com/)
+
+キズナアイアニメプロジェクト続报公开📣
+
+アニメプロジェクトが遂に本格始动します！
+
+タイトルは「绊のアリル」
+
+2023年放送开始予定です！
+
+これから沢山の情报をお伝えしていきますのでお楽しみに！
+
