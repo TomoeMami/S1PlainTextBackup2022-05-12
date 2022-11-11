@@ -12464,3 +12464,14 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 光精灵这几个新敌人打起来很爽啊，尤其那个剑士，用无畏弹反太舒服了，再配合上面的反射墙有时候一下砸两三 ...</blockquote>
 重击符文不走支线要到中期才有
 
+
+
+*****
+
+####  忘却的记忆  
+##### 1281#       发表于 2022-11-11 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58366896&amp;ptid=2025548" target="_blank">Mikumiku831 发表于 2022-11-10 12:01</a>
+感觉这作主打一个处决 支线送的套装有处决回血被动 全靠这个勾</blockquote>
+高难度除了真战神…和怪白送眩晕很难打出r3
+
