@@ -5572,3 +5572,35 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 
 翻了下攻略。喂药要用嘴，我用的臼，不想玩儿了
 
+
+
+*****
+
+####  管住键政的手  
+##### 1992#       发表于 2022-11-11 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393381&amp;ptid=2098044" target="_blank">你知道我的 发表于 2022-11-11 22:29</a>
+
+翻了下攻略。</blockquote>
+白那里选错还情有可原，怎么这里还能选错的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你知道我的  
+##### 1993#       发表于 2022-11-11 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393408&amp;ptid=2098044" target="_blank">管住键政的手 发表于 2022-11-11 22:31</a>
+
+白那里选错还情有可原，怎么这里还能选错的</blockquote>
+……我是弱智，我也不知道咋回事
+
+*****
+
+####  A1LI  
+##### 1994#       发表于 2022-11-11 22:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58390359&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-11 18:20</a>
+
+我全要素就差一个盘子 我可吐了也不想回头找了</blockquote>
+你说哪个啊，来个图，我告诉你再哪。
+
