@@ -12995,3 +12995,13 @@ a9的</blockquote>
 雷神女儿：</blockquote>
 哇，雷神女儿真人演员这么漂亮啊，游戏里跟个金毛狮王一样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kazepollar  
+##### 1329#       发表于 2022-11-11 19:03
+
+打完了这代类似前作女武神王的boss，居然初见无伤了，各种招式都挺阳间的。
+推荐去打打火焰国的终极挑战，很爽，虽然可能有点点重复吧，打完能拿到随便通关的盔甲和素材
+
