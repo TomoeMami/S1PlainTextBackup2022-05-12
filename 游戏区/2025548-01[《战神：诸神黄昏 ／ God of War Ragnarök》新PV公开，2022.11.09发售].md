@@ -12925,3 +12925,43 @@ boy可能以前除了芙蕾雅，真没见过女人。估计天天和奎爷密�
 
 导致洛基的颜值也被奇怪的表情拉下来了
 
+
+
+*****
+
+####  wgoenitz  
+##### 1324#       发表于 2022-11-11 17:41
+
+ 本帖最后由 wgoenitz 于 2022-11-11 17:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58386642&amp;ptid=2025548" target="_blank">蒋公卖萌 发表于 2022-11-11 13:35</a>
+
+提尔刚被救的时候一副被玩坏的样子，与奎爷形成鲜明对比，后来他振作起来了吗？如果是，什么时候振作的？[/ ...</blockquote>
+他也说了，他受够了暴力，战争不能解决一切矛盾，所以基本就全程和事佬状态。
+
+至于关键的剧情，这里不能说，玩到后面你自然会明白为啥他会这样做。
+
+*****
+
+####  wzh5555  
+##### 1325#       发表于 2022-11-11 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58389840&amp;ptid=2025548" target="_blank">忘却的记忆 发表于 2022-11-11 17:39</a>
+
+小人形怪不如直接拉过来无限投啊…</blockquote>
+也可以，但是晕值要涨的快还是要打背+空手+打墙，运气好3-4下就处决了，可以快速减员敌人
+
+*****
+
+####  蛭人  
+##### 1326#       发表于 2022-11-11 17:45
+
+我只想说，Boy的演员颜值已经不行了，方脸发型一整个短发，直接暴露脸型太差，但是不得不说，除了奎托斯和boy，某几个角色动画师没调好眼神和面部表情，导致像个木头人面瘫。
+
+<img src="https://img.saraba1st.com/forum/202211/11/174515s84mm3r6rqsr0srm.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-11 17:45 上传
+

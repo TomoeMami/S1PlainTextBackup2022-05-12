@@ -5391,3 +5391,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 第一次玩 目前困难难度到达第五章了，除了第三章的关底boss，目前还没咋卡过，说实话真上头，真的很 ...</blockquote>
 除了一开始给的两个，之后每一章都有一个，扭蛋给一个，总共十个
 
+
+
+*****
+
+####  jacket  
+##### 1975#       发表于 2022-11-11 17:49
+
+请选择所有女主图像
+
+[https://twitter.com/shigatake/status/1590282411455426560](https://twitter.com/shigatake/status/1590282411455426560)
+<img src="https://img.imoutomoe.net/images/2022/11/11/1590282411455426560.png" referrerpolicy="no-referrer">
+

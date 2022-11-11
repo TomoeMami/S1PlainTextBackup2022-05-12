@@ -5576,3 +5576,18 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
 不明所以的就用杨贵妃莽过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3510#       发表于 2022-11-11 17:44
+
+ 本帖最后由 不垃圾屌丝 于 2022-11-11 17:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58389607&amp;ptid=2084912" target="_blank">J-002 发表于 2022-11-11 17:21</a>
+那就是第一管血爆掉时她会秒全场的宝物，其中有耐性上升</blockquote>
+放心都是太岁收掉的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+我打的时候就是宇宙凛诅咒扣的血基本只有卡米拉一半，最后靠根性挨打攒出的最后一发太岁宝具打掉的
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -71,3 +71,14 @@
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  无念  
+##### 99#       发表于 2022-11-11 17:40
+
+我开服池子里还有100pt呢 谁知道支援卡换啥好啊，给个建议呗
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
