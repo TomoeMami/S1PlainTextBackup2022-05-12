@@ -5591,3 +5591,21 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3511#       发表于 2022-11-11 18:41
+
+莎乐美弱鸡，俄里翁无双直接打死
+
+7BDEC2B8-E695-44DE-873B-BF67151A35F4.jpeg
+(857.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-11 18:40 上传
+
+<img src="https://img.saraba1st.com/forum/202211/11/184037mhzlw6wz7wjhljhh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+

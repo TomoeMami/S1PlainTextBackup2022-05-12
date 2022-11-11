@@ -12981,3 +12981,17 @@ https://gouhuo.qq.com/u/t/26503uX
 a9的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  葵  
+##### 1328#       发表于 2022-11-11 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58387705&amp;ptid=2025548" target="_blank">蛭人 发表于 2022-11-11 15:00</a>
+
+艹，原来这尼妹，爸是黑人，妈是菲律宾人，太好了，我还是给雷神的女儿点赞吧。
+
+雷神女儿：</blockquote>
+哇，雷神女儿真人演员这么漂亮啊，游戏里跟个金毛狮王一样<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
