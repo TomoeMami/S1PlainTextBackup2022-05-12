@@ -1701,3 +1701,20 @@ navi过不过得去furia还难说。
 
 不觉得黑豹能赢navi，要输也是之后输x队。什么，绿龙会赢x队、那更不可能了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ispep  
+##### 2813#       发表于 2022-11-11 12:28
+
+先奶一口x队苦战淘汰navi与vp会师决赛<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rrtyui  
+##### 2814#       发表于 2022-11-11 12:29
+
+老鼠粉转黑现在绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+C9是真菜啊
+
