@@ -2821,3 +2821,12 @@ FNS发生了啥
 
 隔壁r3去韩国了，想到到时候星亚巡国内还是看不了的话就真的难受
 
+
+
+*****
+
+####  player3960  
+##### 9221#       发表于 2022-11-11 15:31
+
+亚巡啊，希望别去ww，去也别让鲤鱼去，多的不说了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
