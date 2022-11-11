@@ -12531,3 +12531,49 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 无情难度感觉杂兵数量和攻击欲望太恐怖了，尤其是远程怪，团战要先把远程拉出来杀了不然必被偷袭，感觉像在 ...</blockquote>
 平衡难度都很难顶那个亡灵战士，安全大打法大概是绕圈+斧子上附魔丢他。。
 
+
+
+*****
+
+####  kuker53  
+##### 1287#       发表于 2022-11-11 12:14
+
+这支线地图比主线大比主线景色好，还有主线没有的敌人种类这么分配是不是不太合理
+
+*****
+
+####  猫不萌  
+##### 1288#       发表于 2022-11-11 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58385374&amp;ptid=2025548" target="_blank">kuker53 发表于 2022-11-11 12:14</a>
+这支线地图比主线大比主线景色好，还有主线没有的敌人种类这么分配是不是不太合理 ...</blockquote>
+支线小boss战斗打起来真的爽多了，主线全是堆小怪搞镜头外偷袭的
+
+*****
+
+####  wzh5555  
+##### 1289#       发表于 2022-11-11 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58383043&amp;ptid=2025548" target="_blank">忘却的记忆 发表于 2022-11-11 09:46</a>
+
+高难度除了真战神…和怪白送眩晕很难打出r3</blockquote>
+战神难度下打转身，盾击，撞墙，儿子射箭，大部分小单位还是能几下就出R3的。不过这座小单位的闪身位移太恶心，各种绕后脱离视角夹击，很多时候能打R3也不敢打。
+
+*****
+
+####  percy1234  
+##### 1290#       发表于 2022-11-11 12:20
+
+尼妹这段要是短点就好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">骑牛起这么久什么北欧顶针
+不过儿子的塑造还挺讨喜的，最后变狼快乐奔跑还有点迷之感动。
+
+
+
+*****
+
+####  percy1234  
+##### 1291#       发表于 2022-11-11 12:20
+
+尼妹这段要是短点就好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">骑牛起这么久什么北欧顶针
+不过儿子的塑造还挺讨喜的，最后变狼快乐奔跑还有点迷之感动。
+
