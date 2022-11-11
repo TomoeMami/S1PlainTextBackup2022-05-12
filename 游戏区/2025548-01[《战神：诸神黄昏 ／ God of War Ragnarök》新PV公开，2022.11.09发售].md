@@ -12648,3 +12648,30 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 提尔刚被救的时候一副被玩坏的样子，与奎爷形成鲜明对比，后来他振作起来了吗？如果是，什么时候振作的？[/ ...</blockquote>
 这个一剧透的话，基本就是侦探剧直接报真凶那个程度了，你确定想要知道吗
 
+
+
+*****
+
+####  蛭人  
+##### 1300#       发表于 2022-11-11 15:00
+
+艹，原来这尼妹，爸是黑人，妈是菲律宾人，太好了，我还是给雷神的女儿点赞吧。
+
+<img src="https://img.saraba1st.com/forum/202211/11/145949audouuuzo2z61fx9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (150.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-11 14:59 上传
+
+雷神女儿：
+
+<img src="https://img.saraba1st.com/forum/202211/11/150033c5q090krqbqgk90c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (150 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-11 15:00 上传
+
