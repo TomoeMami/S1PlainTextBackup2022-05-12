@@ -5458,3 +5458,12 @@ https://www.bilibili.com/video/BV1614y1p7fW/
 
 现在提前把角神放在幕间物语里，不知道之后2.6回顾的时候还会不会有角神的关卡了，类似情况的宙斯机神战就没出现在2.52的回忆活动里<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 3501#       发表于 2022-11-11 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">12箱了，一个礼装都不掉。这合理吗
+
