@@ -5664,3 +5664,77 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 
 装备技能上面的护甲精通是什么意思？
 
+
+
+*****
+
+####  A1LI  
+##### 2001#       发表于 2022-11-11 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393912&amp;ptid=2098044" target="_blank">eaglu 发表于 2022-11-11 23:16</a>
+
+今天看朋友打顺便试了试，想问下第五章那个下坠很长一段距离，中间经过一段水，最后到的一个在地下但是很明 ...</blockquote>
+隐藏boss，7-8章才能打的地图，第5章时去就是找死。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| eaglu| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  cym887  
+##### 2002#       发表于 2022-11-11 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393912&amp;ptid=2098044" target="_blank">eaglu 发表于 2022-11-11 23:16</a>
+
+今天看朋友打顺便试了试，想问下第五章那个下坠很长一段距离，中间经过一段水，最后到的一个在地下但是很明 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">隐藏boss龙王 有成就还有装备
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| eaglu| + 1||
+
+查看全部评分
+
+*****
+
+####  eaglu  
+##### 2003#       发表于 2022-11-11 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393941&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-11 23:20</a>
+隐藏boss，7-8章才能打的地图，第5章时去就是找死。</blockquote>
+一开始还试了一下究竟能无伤跑多远，结果过了好几个房间才感觉不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  酒瓶止迁  
+##### 2004#       发表于 2022-11-11 23:30
+
+打完封盘有几天了，回想一下，果然还是有点遗憾，结局没得选啊，某人曾经沧海难为水，我作为玩家也有自己的选择啊<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+*****
+
+####  你知道我的  
+##### 2005#       发表于 2022-11-11 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393939&amp;ptid=2098044" target="_blank">逃离学校 发表于 2022-11-11 23:20</a>
+
+装备技能上面的护甲精通是什么意思？</blockquote>
+这个技能是装备上带的，如果你穿对应的装备可以免费带这个技能，
+

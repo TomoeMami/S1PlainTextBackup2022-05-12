@@ -4034,3 +4034,15 @@ Lilith-Raws第12話沒問題</blockquote>
 手游出现男主了。。。。。</blockquote>
 岸田梅尔<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不识百合定意.....算的我是男主角...
 
+
+
+*****
+
+####  愚人节快乐  
+##### 297#       发表于 2022-11-11 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393556&amp;ptid=1987572" target="_blank">kria 发表于 2022-11-11 22:43</a>
+
+岸田梅尔不识百合定意.....算的我是男主角...</blockquote>
+前有足立，后又岸田，今年是图豚之年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
