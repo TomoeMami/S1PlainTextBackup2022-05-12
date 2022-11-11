@@ -2923,3 +2923,12 @@ FNS发生了啥
 
 当初管人有消息就有预料了，绕不过的大山，完全不意外，不过管人还没出来就来了啊，这搞不好以后还有长期业务呢
 
+
+
+*****
+
+####  ViyViy  
+##### 9232#       发表于 2022-11-11 20:09
+
+不懂，这有什么好拜山头的，这不当个叶师傅，先开了，打服了再说其它的？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
