@@ -11,3 +11,14 @@
 
 — from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  我就是那条龙  
+##### 431#       发表于 2022-11-11 10:02
+
+这游戏怎么才能把MOD模式弄成桌面快捷方式？
+
+每次都要点Steam那个开始再选本体或者MOD挺麻烦的
+
