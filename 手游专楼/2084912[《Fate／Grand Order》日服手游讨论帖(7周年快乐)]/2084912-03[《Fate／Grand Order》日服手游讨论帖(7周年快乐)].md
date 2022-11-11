@@ -5637,3 +5637,32 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这ｔｍｄ才是真高难吧？还只能上４人　那３个超高难都不配和这个比　
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3514#       发表于 2022-11-11 21:52
+
+才刷了六十池，我是fw<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3515#       发表于 2022-11-11 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58392942&amp;ptid=2084912" target="_blank">日蚀之阳 发表于 2022-11-11 21:52</a>
+
+才刷了六十池，我是fw</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢人的　像我才６池
+
+*****
+
+####  黑上シグマ  
+##### 3516#       发表于 2022-11-11 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58392958&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-11 21:53</a>
+
+丢人的　像我才６池</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也丢人，像我才5池
+
