@@ -5202,3 +5202,19 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 火山那个初见都可以打，然后6-7章可以去打城里的画，剩下建议8章过了打，你如果再往后去打那就是纯虐菜了
 
+
+
+*****
+
+####  llysander  
+##### 1960#       发表于 2022-11-11 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377594&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-10 21:37</a>
+
+村正入手了 村正算魔法系么 没攻击了
+
+现在就差个天平了 不知道哪个章节的没拿 一脸黑
+
+80级了 感觉我才是BOS ...</blockquote>
+是 不算杖但大贤者有效 ，非常凶猛<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
