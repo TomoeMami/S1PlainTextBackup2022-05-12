@@ -9089,3 +9089,12 @@ Jia you a xiao ma
 
 播的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yywzjsw  
+##### 12862#       发表于 2022-11-11 09:59
+
+最近直播时间对社畜很不友好，昨晚联动没看，话说nb每周五最近还有节目吗？好久没关注了
+
