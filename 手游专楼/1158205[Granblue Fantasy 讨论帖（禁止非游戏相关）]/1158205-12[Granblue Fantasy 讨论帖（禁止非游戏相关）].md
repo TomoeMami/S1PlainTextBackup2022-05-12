@@ -390,3 +390,12 @@ C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死
 
 坏女人这次完美适配真的爽，巫妖打一下她打一下，硬是靠巫妖蹭上去<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  faxi  
+##### 17203#       发表于 2022-11-11 08:07
+
+直接被200撞烂了，果然每次风团BOSS都是最强滴！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+

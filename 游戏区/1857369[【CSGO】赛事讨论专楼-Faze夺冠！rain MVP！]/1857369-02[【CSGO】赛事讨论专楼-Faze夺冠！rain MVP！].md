@@ -1615,3 +1615,19 @@ Dust2.dk新闻网消息，Astralis有望招入MASONIC队员Buzz
 
 不是，说不出战也就是当天的新闻吧，这也能说？<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ispep  
+##### 2803#       发表于 2022-11-11 08:06
+
+还不如选黑豹让自己开心一点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpl123  
+##### 2804#       发表于 2022-11-11 08:12
+
+c9回家辣
+
