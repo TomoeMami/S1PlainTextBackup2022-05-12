@@ -5264,3 +5264,13 @@ Do It Your Radio也很有意思，有空可以听听<img src="https://static.sar
 Do It Yourself!! ーどぅー・いっと・ゆあせるふー OP「どきどきアイデアをよろしく!」ファミコン風 8bit
 [https://youtu.be/JeuaoRJtJ1g](https://youtu.be/JeuaoRJtJ1g)
 
+
+
+*****
+
+####  千恋万花  
+##### 418#       发表于 2022-11-11 18:00
+
+アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第6話放送後インタビュー：音響監督 郷田ほづみさん｜キャスティングはバランスが大事、そして、個性的な6人が誕生
+[https://www.animatetimes.com/news/details.php?id=1668154397](https://www.animatetimes.com/news/details.php?id=1668154397)
+
