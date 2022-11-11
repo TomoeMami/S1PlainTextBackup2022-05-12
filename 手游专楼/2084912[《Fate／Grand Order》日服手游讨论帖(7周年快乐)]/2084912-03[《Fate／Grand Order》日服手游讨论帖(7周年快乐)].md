@@ -5555,3 +5555,24 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  J-002  
+##### 3508#       发表于 2022-11-11 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58389549&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2022-11-11 17:17</a>
+
+我都说了还没到最后一条血呢
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">那就是第一管血爆掉时她会秒全场的宝物，其中有耐性上升
+
+*****
+
+####  khxooo  
+##### 3509#       发表于 2022-11-11 17:26
+
+不明所以的就用杨贵妃莽过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
