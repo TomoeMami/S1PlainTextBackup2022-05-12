@@ -5437,3 +5437,16 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 右下角，没了她主角连公交都不会坐。
 
+
+
+*****
+
+####  shimotsuki14  
+##### 1979#       发表于 2022-11-11 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58389951&amp;ptid=2098044" target="_blank">jacket 发表于 2022-11-11 17:49</a>
+请选择所有女主图像
+
+https://twitter.com/shigatake/status/1590282411455426560</blockquote>
+这不选右下？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

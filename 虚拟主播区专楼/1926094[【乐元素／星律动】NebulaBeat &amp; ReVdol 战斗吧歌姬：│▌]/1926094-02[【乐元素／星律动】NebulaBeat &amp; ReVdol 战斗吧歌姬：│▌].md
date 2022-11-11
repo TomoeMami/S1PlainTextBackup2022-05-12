@@ -10148,3 +10148,15 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 今天是不是前咩现纸出道首播？
 
+
+
+*****
+
+####  ladiesman802  
+##### 2573#       发表于 2022-11-11 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58391070&amp;ptid=1926094" target="_blank">佛皇 发表于 2022-11-11 19:15</a>
+
+今天是不是前咩现纸出道首播？</blockquote>
+是的，还有6分钟
+
