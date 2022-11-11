@@ -5542,3 +5542,16 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 —— 来自 Sony XQ-AT72,  ...</blockquote>
 凛第三管血会偷你的宝物buff，肯定是偷了异常抗性上升……
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3507#       发表于 2022-11-11 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58388741&amp;ptid=2084912" target="_blank">J-002 发表于 2022-11-11 16:12</a>
+凛第三管血会偷你的宝物buff，肯定是偷了异常抗性上升……</blockquote>
+我都说了还没到最后一条血呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
