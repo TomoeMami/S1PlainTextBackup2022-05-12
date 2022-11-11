@@ -22,3 +22,16 @@
 
 sr就靠日常周长10张歪了
 
+
+
+*****
+
+####  薛定谔的小猫  
+##### 109#       发表于 2022-11-11 15:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58386620&amp;ptid=2068560" target="_blank">minto24 发表于 2022-11-11 13:34</a>
+感觉用3000去抽10次 不如660每天3个r啊
+
+sr就靠日常周长10张歪了</blockquote>
+主要还是佛爷太猛，up池太拉跨，石头扔up池反而不如常驻赌佛爷和那几个挂件
+
