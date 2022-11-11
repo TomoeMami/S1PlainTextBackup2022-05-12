@@ -12684,3 +12684,14 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 
 这是全新剧情的？还是？来自: iPhone客户端
 
+
+
+*****
+
+####  猫不萌  
+##### 1302#       发表于 2022-11-11 15:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58386642&amp;ptid=2025548" target="_blank">蒋公卖萌 发表于 2022-11-11 13:35</a>
+提尔刚被救的时候一副被玩坏的样子，与奎爷形成鲜明对比，后来他振作起来了吗？如果是，什么时候振作的？[/ ...</blockquote>
+关键剧透哈哈哈
+

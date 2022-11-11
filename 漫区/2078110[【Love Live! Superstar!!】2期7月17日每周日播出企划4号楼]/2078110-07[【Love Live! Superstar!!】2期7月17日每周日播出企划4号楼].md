@@ -2812,3 +2812,12 @@ FNS发生了啥
 
 居家比在公司还忙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">忘记今晚有演出………………
 
+
+
+*****
+
+####  cybernetics31  
+##### 9220#       发表于 2022-11-11 15:13
+
+隔壁r3去韩国了，想到到时候星亚巡国内还是看不了的话就真的难受
+
