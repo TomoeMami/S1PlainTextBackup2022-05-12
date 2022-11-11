@@ -82,3 +82,12 @@
 
 —— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  DEMOxN  
+##### 100#       发表于 2022-11-11 21:39
+
+刚入坑不久，问下我17000战力打不过活动12000的normal难度图是啥问题，一定要属性克制才能打吗
+
