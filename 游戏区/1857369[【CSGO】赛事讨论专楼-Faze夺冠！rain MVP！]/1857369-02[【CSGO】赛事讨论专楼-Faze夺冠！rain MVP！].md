@@ -1672,3 +1672,14 @@ C9和21年一个味儿啦。  一崩就是全面崩盘
 
 那提前恭喜navi喜提major，森喜提今年top1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dev2ce  
+##### 2810#       发表于 2022-11-11 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58382790&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-11-11 09:26</a>
+那提前恭喜navi喜提major，森喜提今年top1</blockquote>
+还有ESL评的十年最佳，奥拉夫才第八，设备一年多没打，基本不会有别人了
+

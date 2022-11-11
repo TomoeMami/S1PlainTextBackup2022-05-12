@@ -5218,3 +5218,32 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 80级了 感觉我才是BOS ...</blockquote>
 是 不算杖但大贤者有效 ，非常凶猛<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adretyu67  
+##### 1961#       发表于 2022-11-11 10:56
+
+ 本帖最后由 adretyu67 于 2022-11-11 11:00 编辑 
+
+那个杖魔法速度+的效果是影响杖类武器投射的飞行速度，个人感觉应该是翻倍了。
+
+村正这种光波有射程的效果就很明显
+
+不过魔杖流还是挺尴尬的。
+
+一周目其实可以存箭架弩射，我第七章就是这么射过去的。
+
+二周目有了大贤者后伤害很高，但是有更爆炸的天体果酱和龙鳞变异。
+
+*****
+
+####  onlv星骸  
+##### 1962#       发表于 2022-11-11 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58382293&amp;ptid=2098044" target="_blank">syndrome2032 发表于 2022-11-11 08:38:33</a>
+新章刷回来打的真爽。装备板本质把面板怪变成了被动怪，所以装备最重要的价值变成了给的被动，装备板最重要 ...</blockquote>我感觉也包括饰品的，出率也很高啊
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
