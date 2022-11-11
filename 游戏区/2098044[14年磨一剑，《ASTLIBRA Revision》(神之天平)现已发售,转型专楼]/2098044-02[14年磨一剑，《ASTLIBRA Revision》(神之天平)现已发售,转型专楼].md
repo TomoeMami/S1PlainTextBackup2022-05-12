@@ -5756,3 +5756,12 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 
 后期的几首歌，太棒了！
 
+
+
+*****
+
+####  梅林的三角裤  
+##### 2008#       发表于 2022-11-12 01:33
+
+这游戏要是火了会吃很多拳法吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
