@@ -408,3 +408,12 @@ C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不说吃药才打得过。吃药打完的时间效率还不如150.150我回来了
 
+
+
+*****
+
+####  Ky·Kiske  
+##### 17205#       发表于 2022-11-11 13:13
+
+闪避永远藏最里面的闪避狗，只能祝FKHR全家断子绝孙了
+
