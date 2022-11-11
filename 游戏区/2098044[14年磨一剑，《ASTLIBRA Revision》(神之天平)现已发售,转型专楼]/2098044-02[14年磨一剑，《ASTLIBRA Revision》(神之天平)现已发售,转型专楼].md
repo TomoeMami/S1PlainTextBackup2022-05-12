@@ -5474,3 +5474,12 @@ b站有全收集视频的 找一遍很快
 https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 说一句全身功力八成在鸟哥身上不过分吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1982#       发表于 2022-11-11 20:23
+
+矿石镇那条路没鸟哥男主算个🐔
+

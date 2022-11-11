@@ -10205,3 +10205,22 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
   -- 来自 能看大图的 Stage1官方 iOS客户端</blockquote>
 是真的在嗦面，和府捞面
 
+
+
+*****
+
+####  ladiesman802  
+##### 2578#       发表于 2022-11-11 20:20
+
+笑死，开头还cue一下藻藻
+
+*****
+
+####  黄金鸡屁屁  
+##### 2579#       发表于 2022-11-11 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58391773&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-11-11 20:19:54</a>
+是真的在嗦面，和府捞面</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，我还以为有小哭包
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
