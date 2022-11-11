@@ -5254,3 +5254,13 @@ Do It Your Radio也很有意思，有空可以听听<img src="https://static.sar
 せるふ水着設定を公開&amp;#x1F459;✨
 <img src="https://p.sda1.dev/8/affe81cccfe65151aa8b9a9a31a329ff/diy_anime-1590985180428247041-img1.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 417#       发表于 2022-11-11 17:05
+
+Do It Yourself!! ーどぅー・いっと・ゆあせるふー OP「どきどきアイデアをよろしく!」ファミコン風 8bit
+[https://youtu.be/JeuaoRJtJ1g](https://youtu.be/JeuaoRJtJ1g)
+

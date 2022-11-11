@@ -12841,3 +12841,18 @@ boy可能以前除了芙蕾雅，真没见过女人。估计天天和奎爷密�
 打转身是什么技能</blockquote>
 斧子初始的轻飞斧爆头小单位人形敌人大概率会转身，后续晕数伤害增加。 类似4代的第一个符文的效果。
 
+
+
+*****
+
+####  医生狼多  
+##### 1318#       发表于 2022-11-11 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58388748&amp;ptid=2025548" target="_blank">stannislas 发表于 2022-11-11 16:13</a>
+有好点的白金攻略吗？</blockquote>
+
+篝火的
+https://gouhuo.qq.com/u/t/26503uX
+a9的
+https://bbs.a9vg.com/thread-8870038-1-1.html
+

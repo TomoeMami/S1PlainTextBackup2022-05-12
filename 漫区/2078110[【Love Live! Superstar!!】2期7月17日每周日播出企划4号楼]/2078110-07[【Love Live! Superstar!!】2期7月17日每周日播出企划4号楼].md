@@ -2860,3 +2860,14 @@ FNS发生了啥
 现在安排到国外演出算是运营放出的一个信号
 ，不过亚巡还早着。按照现在外面躺平的时势，外出一趟大概率有人感染，都不知道算好还是算坏
 
+
+
+*****
+
+####  Enakina  
+##### 9225#       发表于 2022-11-11 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58387845&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-11-11 15:13</a>
+隔壁r3去韩国了，想到到时候星亚巡国内还是看不了的话就真的难受</blockquote>
+大西，久保田，内田，不是R3啊，而且只是个漫展吧
+
