@@ -5604,3 +5604,15 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 我全要素就差一个盘子 我可吐了也不想回头找了</blockquote>
 你说哪个啊，来个图，我告诉你再哪。
 
+
+
+*****
+
+####  A1LI  
+##### 1995#       发表于 2022-11-11 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393426&amp;ptid=2098044" target="_blank">你知道我的 发表于 2022-11-11 22:32</a>
+
+……我是弱智，我也不知道咋回事</blockquote>
+不用嘴也没事，顶多后面多刷一个爱情道具。第5章可不能选错了，会直接导致少打一个boss战，成就党错过了可是要骂街的，
+

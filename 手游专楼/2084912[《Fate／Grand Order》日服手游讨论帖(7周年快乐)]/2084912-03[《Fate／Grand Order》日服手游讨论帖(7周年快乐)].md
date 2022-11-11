@@ -5675,3 +5675,12 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
 说实话不养120真心没动力刷无限池<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3518#       发表于 2022-11-11 22:49
+
+刷了10池的我竟然不是最咸的
+
