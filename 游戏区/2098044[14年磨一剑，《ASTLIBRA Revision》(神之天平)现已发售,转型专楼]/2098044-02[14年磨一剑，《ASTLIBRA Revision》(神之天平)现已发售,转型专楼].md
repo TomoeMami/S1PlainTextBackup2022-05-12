@@ -5492,3 +5492,31 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 
 我从银宝箱里开出来73块钱，意思是不是这一章的图纸我刷完了
 
+
+
+*****
+
+####  tatara  
+##### 1984#       发表于 2022-11-11 20:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58392036&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-11 20:39</a>
+
+我从银宝箱里开出来73块钱，意思是不是这一章的图纸我刷完了</blockquote>
+并不是，每章固定5个图纸，你运气差的时候图纸没齐哪怕金宝箱也一样会出钱或者钥匙模具，我第5章还差一张图纸的时候连着两个金宝箱给我爆金币，差点气到昏迷
+
+*****
+
+####  目鱼  
+##### 1985#       发表于 2022-11-11 20:47
+
+特殊原件和能力原件是什么啊
+
+*****
+
+####  Rainwedell  
+##### 1986#       发表于 2022-11-11 20:48
+
+进新章了，打加时杯那个群星进去一看一堆人等我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

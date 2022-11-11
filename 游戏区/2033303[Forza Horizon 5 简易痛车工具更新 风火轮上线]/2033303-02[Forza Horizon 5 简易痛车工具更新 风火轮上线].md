@@ -50,3 +50,20 @@ dlss超高性能没法用，跑分发车的前车屁股糊成一片，加一档�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">dlss开不开好像对fps没啥影响？？笔记本3070在1440p下画质开满了，光追极致，结果感觉开不开dlss都一样？
 
+
+
+*****
+
+####  天神十三煞  
+##### 2498#         楼主| 发表于 2022-11-11 20:49
+
+这大力水手和防晒乳更新了个寂寞
+
+不开光追限制帧数风扇都巨响，说好的消耗更低呢，
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+而且两边都是一开好多残影，
+
+尤其开劲敌的幽灵车和大逃杀，抖忽悠
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
