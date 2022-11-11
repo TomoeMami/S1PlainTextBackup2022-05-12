@@ -1606,3 +1606,12 @@ Dust2.dk新闻网消息，Astralis有望招入MASONIC队员Buzz
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">设备重回a队在完美电竞挂了3-4天你楼昨天才有人转 ，着实有点难崩
 
+
+
+*****
+
+####  ispep  
+##### 2802#       发表于 2022-11-11 08:00
+
+不是，说不出战也就是当天的新闻吧，这也能说？<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
