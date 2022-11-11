@@ -5403,3 +5403,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 [https://twitter.com/shigatake/status/1590282411455426560](https://twitter.com/shigatake/status/1590282411455426560)
 <img src="https://img.imoutomoe.net/images/2022/11/11/1590282411455426560.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sannapolis  
+##### 1976#       发表于 2022-11-11 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58389201&amp;ptid=2098044" target="_blank">刹海之绊 发表于 2022-11-11 16:50</a>
+第一次玩 目前困难难度到达第五章了，除了第三章的关底boss，目前还没咋卡过，说实话真上头，真的很 ...</blockquote>
+正常流程打完第四章可以有5个盘子
+应该是二三四章其中一章地图的盘子漏拿了
+
