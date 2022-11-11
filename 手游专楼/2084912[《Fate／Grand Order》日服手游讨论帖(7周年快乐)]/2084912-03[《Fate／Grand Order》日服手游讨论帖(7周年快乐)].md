@@ -5684,3 +5684,17 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
 刷了10池的我竟然不是最咸的
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3519#       发表于 2022-11-11 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58392837&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-11 21:46</a>
+这ｔｍｄ才是真高难吧？还只能上４人　那３个超高难都不配和这个比　</blockquote>
+血少了很多了，卑弥呼两下暴击一条血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+两个满NP伯爵扔后排等苟不住捡漏
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

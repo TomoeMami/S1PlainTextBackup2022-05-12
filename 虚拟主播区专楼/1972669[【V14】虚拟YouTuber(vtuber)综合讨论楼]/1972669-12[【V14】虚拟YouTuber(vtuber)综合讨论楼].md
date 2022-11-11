@@ -831,3 +831,22 @@ cpt真的只选择了想和谁一起玩，完全没考虑角色的构成，现�
 【文春炮】プロeスポーツ选手Fiskerさん、YouTuberと不伦しチーム解雇 ただ ...</blockquote>
 这在日本社会社死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17708#       发表于 2022-11-11 23:00
+
+我不许你骂她<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">！
+
+<img src="https://img.saraba1st.com/forum/202211/11/225852h36nj6qx6tzabrr9.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 037 - (6) 【朝】にじさんじライバーの嫌いな食べ物だけで１日過ご.png</strong> (140.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-11 22:58 上传
+
+syl，有一说一，月之的三餐视频2的噱头比这个大多了，结果观看数也涨得没这个快，流石king
+
