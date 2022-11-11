@@ -12778,3 +12778,36 @@ UI确实没前作好看，但地图和解密我其实玩的很舒服，不是说
 
 有好点的白金攻略吗？
 
+
+
+*****
+
+####  ads147147  
+##### 1312#       发表于 2022-11-11 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58388748&amp;ptid=2025548" target="_blank">stannislas 发表于 2022-11-11 16:13</a>
+
+有好点的白金攻略吗？</blockquote>
+ucg这段时间不是在卖战神攻略书么，还把老作的也合集做了一本
+
+*****
+
+####  ads147147  
+##### 1313#       发表于 2022-11-11 16:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58388219&amp;ptid=2025548" target="_blank">千千千千鸟 发表于 2022-11-11 15:40</a>
+
+尼妹比我想的要好点，最开始有点烦，但有一个镜头boy和她同时两张大脸出现在屏幕上，我才突然发现boy长得也 ...</blockquote>
+光论脸模的话其实都挺漂亮的，不知道为什么要给儿子整个莫西干发型，我估摸着纯光头都比现在的好看。
+
+*****
+
+####  WoLodEstt  
+##### 1314#       发表于 2022-11-11 16:38
+
+尼妹有些角度看着还可以，但是镜头一怼脸就很难绷<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这段流程不能说烂吧，骑水牛确实太拖沓了，而且大概因为我玩的pro版感觉风景也不是特好。
+
+还有boy一副青春期小鬼见到同龄女性的样子我都替他尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

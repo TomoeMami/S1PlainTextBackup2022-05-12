@@ -5239,3 +5239,18 @@ DIY6話、コンテ演出やってました。
 
 Do It Your Radio也很有意思，有空可以听听<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 416#       发表于 2022-11-11 16:31
+
+|||◤⚙️キャラクター設定公開⚙️|
+| 　　#せるふ (cv. #稲垣好 )　 ◢|||
+
+すてっぷ⑥の
+
+せるふ水着設定を公開&amp;#x1F459;✨
+<img src="https://p.sda1.dev/8/affe81cccfe65151aa8b9a9a31a329ff/diy_anime-1590985180428247041-img1.jpg" referrerpolicy="no-referrer">
+
