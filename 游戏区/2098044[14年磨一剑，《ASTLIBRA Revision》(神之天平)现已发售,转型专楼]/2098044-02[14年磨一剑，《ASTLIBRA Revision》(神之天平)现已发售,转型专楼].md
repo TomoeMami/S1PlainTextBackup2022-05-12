@@ -5335,3 +5335,39 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 我明明能稳定打掉三个团子，结果一直本体翻车
 
+
+
+*****
+
+####  llysander  
+##### 1971#       发表于 2022-11-11 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58387809&amp;ptid=2098044" target="_blank">你知道我的 发表于 2022-11-11 15:10</a>
+
+第四章开头的那场高难战斗打赢了有啥特别的好处么？
+
+我明明能稳定打掉三个团子，结果一直本体翻车 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">没有  连成就都没 仍是剧情败  就是给你玩 
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 你知道我的| + 2||
+
+查看全部评分
+
+*****
+
+####  你知道我的  
+##### 1972#       发表于 2022-11-11 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58388425&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-11 15:53</a>
+
+没有  连成就都没 仍是剧情败  就是给你玩</blockquote>
+那就不打了，直接死吧
+

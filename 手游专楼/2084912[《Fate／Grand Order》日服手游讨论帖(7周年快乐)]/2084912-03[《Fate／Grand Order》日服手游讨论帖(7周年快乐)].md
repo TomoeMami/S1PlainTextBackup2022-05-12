@@ -5519,3 +5519,12 @@ DA28616F-9163-4B72-BD2F-B0515372EDE1.png
 
 确实低难 李大师初见没看攻略 随便挑了个凯撒进去4t干死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猫的薛定鹅  
+##### 3505#       发表于 2022-11-11 15:51
+
+S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
+
