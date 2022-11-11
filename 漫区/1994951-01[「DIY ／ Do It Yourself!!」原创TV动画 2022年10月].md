@@ -5192,3 +5192,23 @@ DIY6話、コンテ演出やってました。
 
 塔酷明怎么那么懂，难道是胶佬？
 
+
+
+*****
+
+####  H2Ofrozen  
+##### 411#       发表于 2022-11-11 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58384734&amp;ptid=1994951" target="_blank">Артём 发表于 2022-11-11 11:35</a>
+
+太神了，手工糖精必秒工业糖精呀！</blockquote>
+说起来我一时半会还想不到有什么作品专门以工业生产为描写对象的，少革或者少歌那种也只是运用了象征性
+
+*****
+
+####  Piano-Forest  
+##### 412#         楼主| 发表于 2022-11-11 13:33
+
+[https://twitter.com/xxxsoiu1/status/1590585870893350912](https://twitter.com/xxxsoiu1/status/1590585870893350912)
+<img src="https://p.sda1.dev/8/e40d43c73d6cd1f18b5f3047efeabe5d/20221111_133228.jpg" referrerpolicy="no-referrer">
+

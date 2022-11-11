@@ -11,3 +11,14 @@
 
 —— 来自 samsung SM-F9360, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  minto24  
+##### 108#       发表于 2022-11-11 13:34
+
+感觉用3000去抽10次 不如660每天3个r啊
+
+sr就靠日常周长10张歪了
+
