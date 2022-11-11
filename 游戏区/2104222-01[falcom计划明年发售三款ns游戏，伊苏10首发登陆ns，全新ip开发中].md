@@ -676,3 +676,14 @@ falcom有那个能力让新作上ns吗？
 
 要被掏空列
 
+
+
+*****
+
+####  莉拉厨  
+##### 74#       发表于 2022-11-11 11:57
+
+别怕，四十年没亏损<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
