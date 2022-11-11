@@ -5324,3 +5324,12 @@ Do It Yourself!! ーどぅー・いっと・ゆあせるふー OP「どきどき
 
 最后布丁被晒伤可太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  reficul  
+##### 423#       发表于 2022-11-11 22:54
+
+布丁女士看过剧本了，怎么输？吃得死死的，哇哈哈
+

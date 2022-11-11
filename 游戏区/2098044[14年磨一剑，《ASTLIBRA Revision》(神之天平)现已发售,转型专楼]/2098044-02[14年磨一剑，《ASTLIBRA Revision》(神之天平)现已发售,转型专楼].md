@@ -5616,3 +5616,22 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 ……我是弱智，我也不知道咋回事</blockquote>
 不用嘴也没事，顶多后面多刷一个爱情道具。第5章可不能选错了，会直接导致少打一个boss战，成就党错过了可是要骂街的，
 
+
+
+*****
+
+####  cym887  
+##### 1996#       发表于 2022-11-11 22:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">后期习惯已飞代步 我错了
+
+*****
+
+####  你知道我的  
+##### 1997#       发表于 2022-11-11 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393655&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-11 22:50</a>
+
+不用嘴也没事，顶多后面多刷一个爱情道具。第5章可不能选错了，会直接导致少打一个boss战，成就党错过了 ...</blockquote>
+剧情道具居然还能刷的？卧槽，太方便了，我又燃起了战意！
+
