@@ -12865,3 +12865,63 @@ https://bbs.a9vg.com/thread-8870038-1-1.html
 
 实体盘还没发货，我先插个眼。战神5是我这两年最期待的游戏，玩玩再回来评价，希望大家别的帖子不要剧透
 
+
+
+*****
+
+####  蛭人  
+##### 1320#       发表于 2022-11-11 17:36
+
+居然还有人觉得尼妹的脸模挺漂亮的，boy的脸模其实也挺一般的，长成了个方脑壳，说实话，这里面雷神的老婆是真的建模美化的挺不错，心目中仅次于雷神的女儿。
+
+<img src="https://img.saraba1st.com/forum/202211/11/173535mbirorl1pzd0ipbr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-11 17:35 上传
+
+<img src="https://img.saraba1st.com/forum/202211/11/173614rf382nkzyo2litl2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (151.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-11 17:36 上传
+
+
+
+*****
+
+####  wgoenitz  
+##### 1321#       发表于 2022-11-11 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58389116&amp;ptid=2025548" target="_blank">clover293 发表于 2022-11-11 16:41</a>
+
+boy可能以前除了芙蕾雅，真没见过女人。估计天天和奎爷密米尔这俩人在一起，笑死 ...</blockquote>
+主要是他一直被奎爷压着，战战兢兢，自己有点想法就被父亲否决，所以突然遇到一个同龄人才会感到很亲切放松。
+
+*****
+
+####  忘却的记忆  
+##### 1322#       发表于 2022-11-11 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58389292&amp;ptid=2025548" target="_blank">wzh5555 发表于 2022-11-11 16:57</a>
+斧子初始的轻飞斧爆头小单位人形敌人大概率会转身，后续晕数伤害增加。 类似4代的第一个符文的效果。
+
+ ...</blockquote>
+小人形怪不如直接拉过来无限投啊…
+
+*****
+
+####  wgoenitz  
+##### 1323#       发表于 2022-11-11 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58389033&amp;ptid=2025548" target="_blank">ads147147 发表于 2022-11-11 16:32</a>
+
+光论脸模的话其实都挺漂亮的，不知道为什么要给儿子整个莫西干发型，我估摸着纯光头都比现在的好看。 ...</blockquote>
+我觉得战神的脸部表情做的还是不太好，不知道是打磨不够还是啥，经常出现表情僵硬奇怪的现象，尤其是洛基和部分情况下的芙蕾雅。
+
+导致洛基的颜值也被奇怪的表情拉下来了
+
