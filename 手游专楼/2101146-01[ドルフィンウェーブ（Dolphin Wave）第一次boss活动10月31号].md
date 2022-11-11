@@ -102,3 +102,12 @@ WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmed
 
 省一楼，被克基本可以洗洗睡了，非克属要看你的破盾和输出高不高，送的紫苑拉起来后血坚持的住就OK，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">活动还10天来得及的。
 
+
+
+*****
+
+####  startea15  
+##### 102#       发表于 2022-11-12 02:37
+
+抽了191抽，6个ur里5个ur是礼装，和歪了一个火属性由芽，两个up的角完全没见过，真的坑
+

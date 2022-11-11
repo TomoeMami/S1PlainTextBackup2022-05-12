@@ -5765,3 +5765,60 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 
 这游戏要是火了会吃很多拳法吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  装甲兔  
+##### 2009#       发表于 2022-11-12 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393912&amp;ptid=2098044" target="_blank">eaglu 发表于 2022-11-11 23:16</a>
+
+今天看朋友打顺便试了试，想问下第五章那个下坠很长一段距离，中间经过一段水，最后到的一个在地下但是很明 ...</blockquote>
+第五章这个在哪个地图啊？或者说哪个存档点？
+
+*****
+
+####  amazarashi  
+##### 2010#       发表于 2022-11-12 03:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58394994&amp;ptid=2098044" target="_blank">装甲兔 发表于 2022-11-12 02:33</a>
+
+第五章这个在哪个地图啊？或者说哪个存档点？</blockquote>
+就在帮白捡耳环的地下水道，有三个宝箱的场景，它的入口上面本身就有一个传送点，但不能用世界花直接传过去
+
+
+
+*****
+
+####  JoelBirch  
+##### 2011#       发表于 2022-11-12 03:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393190&amp;ptid=2098044" target="_blank">amazarashi 发表于 2022-11-11 22:11</a>
+狂战士这个buff技能的加成 低的可怕啊，  作者是不是少小数点后面多摁了1个0
+
+    
+
+新章打了一大半才 ...</blockquote>
+我也是这么套的，不过新章还没打，所以说强的是攻速？我一直是点爆发拉个天使然后再上这俩BUFF感觉还蛮舒服的，起码最后那个BOSS下血很快
+
+*****
+
+####  Rainwedell  
+##### 2012#       发表于 2022-11-12 03:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58395074&amp;ptid=2098044" target="_blank">JoelBirch 发表于 2022-11-12 03:40</a>
+我也是这么套的，不过新章还没打，所以说强的是攻速？我一直是点爆发拉个天使然后再上这俩BUFF感觉还蛮舒 ...</blockquote>
+攻速很强，攻击力buff试了下不如直接放伤害凭依技能打的快
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  dookiee  
+##### 2013#       发表于 2022-11-12 04:13
+
+天平中文区卖爆了没有啊？看到无数个独游区up主狂吹了，而且是视频带底下评论一起吹，和很多坛友一样已经号称今年独游最佳了，成绩应该是还可以吧
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

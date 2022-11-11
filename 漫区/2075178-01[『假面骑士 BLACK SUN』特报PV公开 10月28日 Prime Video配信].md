@@ -4148,3 +4148,35 @@ IGN7分<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" ref
 
 [论坛助手,iPad](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  江城诀丶  
+##### 373#       发表于 2022-11-12 02:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+53CD1C54-8865-4D78-908A-AC7255C96284.jpeg
+(107.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-12 02:04 上传
+
+<img src="https://img.saraba1st.com/forum/202211/12/020433hy4c8ywubc6py6p8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  king520kyo  
+##### 374#       发表于 2022-11-12 02:33
+
+吹啥历史剧的人真的那啥 这片是假面骑士 好歹假面骑士部分要拍的水平足够才有资格让别人去看你那些额外的内容吧 
+
+*****
+
+####  88ace88  
+##### 375#       发表于 2022-11-12 03:34
+
+莱达里最（影射）现实/政治/历史的，现实/政治/历史片里最莱达的，赢麻了，可惜有些人正儿八经的现实/政治/历史片不爱看，就喜欢从各种别的题材里找影射，只要有这些，作品基础的部分做的再拉也能吹爆，实在是迷惑得很。
+
