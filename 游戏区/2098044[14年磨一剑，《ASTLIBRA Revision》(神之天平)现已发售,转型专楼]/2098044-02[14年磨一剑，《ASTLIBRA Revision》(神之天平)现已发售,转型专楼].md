@@ -5552,3 +5552,23 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这游戏最强一个乌鸦哥一个外传女主的狼哥
 
+
+
+*****
+
+####  Rainwedell  
+##### 1990#       发表于 2022-11-11 22:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58392036&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-11 20:39</a>
+我从银宝箱里开出来73块钱，意思是不是这一章的图纸我刷完了</blockquote>
+有宝物图鉴（不确定是不是这名字）可以看自己刷完没的
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  你知道我的  
+##### 1991#       发表于 2022-11-11 22:29
+
+翻了下攻略。喂药要用嘴，我用的臼，不想玩儿了
+
