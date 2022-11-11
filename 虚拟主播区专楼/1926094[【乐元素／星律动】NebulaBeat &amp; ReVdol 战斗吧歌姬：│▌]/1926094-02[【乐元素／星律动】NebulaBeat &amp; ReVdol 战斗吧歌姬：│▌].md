@@ -10171,3 +10171,23 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  天青月白  
+##### 2575#       发表于 2022-11-11 19:52
+
+小纸的声音有点沙哑
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  黄金鸡屁屁  
+##### 2576#       发表于 2022-11-11 19:57
+
+咩今晚能150舰吗，双11大家都没钱了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

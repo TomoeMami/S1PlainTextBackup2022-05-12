@@ -5609,3 +5609,14 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
 <img src="https://img.saraba1st.com/forum/202211/11/184037mhzlw6wz7wjhljhh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  リッチ  
+##### 3512#       发表于 2022-11-11 19:56
+
+100箱<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+炉心49/134
+
