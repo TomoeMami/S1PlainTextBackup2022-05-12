@@ -1718,3 +1718,12 @@ navi过不过得去furia还难说。
 老鼠粉转黑现在绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 C9是真菜啊
 
+
+
+*****
+
+####  逆袭的红有三  
+##### 2815#       发表于 2022-11-11 12:36
+
+C9一共就俩U盘，之前阿乐和硬蛋用过了，现在给希罗霍比特用了。只有OP是最稳定没的用的那个
+
