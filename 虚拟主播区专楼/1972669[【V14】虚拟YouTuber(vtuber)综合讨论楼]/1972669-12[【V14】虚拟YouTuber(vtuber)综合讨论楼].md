@@ -808,3 +808,26 @@ cpt真的只选择了想和谁一起玩，完全没考虑角色的构成，现�
 
 来个图
 
+
+
+*****
+
+####  FCCHua  
+##### 17706#       发表于 2022-11-11 20:51
+
+管人微相关，图就不发了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+【文春炮】プロeスポーツ选手Fiskerさん、YouTuberと不伦しチーム解雇 ただのタトゥー入り子持ち无职に転身へ
+・Fisker(@2ert_fps)は2歳の息子＆妊娠中の妻を持つ既婚者
+・不伦相手はApex配信者みー。(@MqlRa_)
+・妊娠中の妻をよそに、食料を买い込み二人でホテルに50时间芋る
+
+*****
+
+####  渡鸦骑士  
+##### 17707#       发表于 2022-11-11 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58392174&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-11-11 20:51</a>
+管人微相关，图就不发了
+【文春炮】プロeスポーツ选手Fiskerさん、YouTuberと不伦しチーム解雇 ただ ...</blockquote>
+这在日本社会社死了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
