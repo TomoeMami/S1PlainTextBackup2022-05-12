@@ -10255,3 +10255,12 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 —— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ladiesman802  
+##### 2583#       发表于 2022-11-11 22:14
+
+永远的经典，prestar
+

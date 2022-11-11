@@ -5666,3 +5666,12 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 丢人的　像我才６池</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也丢人，像我才5池
 
+
+
+*****
+
+####  sosgame67  
+##### 3517#       发表于 2022-11-11 22:14
+
+说实话不养120真心没动力刷无限池<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

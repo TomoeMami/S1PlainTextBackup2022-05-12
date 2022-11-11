@@ -91,3 +91,14 @@
 
 刚入坑不久，问下我17000战力打不过活动12000的normal难度图是啥问题，一定要属性克制才能打吗
 
+
+
+*****
+
+####  MEKA  
+##### 101#       发表于 2022-11-11 22:20
+
+WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmedia.jp/dolphin-wave/76134956)（标准应该是生存&gt;加攻&gt;加攻防？），可以参考下。
+
+省一楼，被克基本可以洗洗睡了，非克属要看你的破盾和输出高不高，送的紫苑拉起来后血坚持的住就OK，<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">活动还10天来得及的。
+

@@ -5532,3 +5532,23 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 说一句全身功力八成在鸟哥身上不过分吧</blockquote>
 伤害明明全是鸟哥打的 结果每次打完boss还要夸夸我你好强啊 搞得我有点尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  amazarashi  
+##### 1988#       发表于 2022-11-11 22:11
+
+狂战士这个buff技能的加成 低的可怕啊，  作者是不是少小数点后面多摁了1个0<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+    
+
+新章打了一大半才发觉 这是个废技。 用屋后岩石测试，面板900魔导力、每次普通攻击、伤害增加只有100点左右，之前我还一直在带在身上、平时都要跟 风精加速一块儿套上
+
+*****
+
+####  soranoguiji  
+##### 1989#       发表于 2022-11-11 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这游戏最强一个乌鸦哥一个外传女主的狼哥
+
