@@ -5256,3 +5256,24 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 白魔女这就死了?不要啊，后面还能救吗？
 
+
+
+*****
+
+####  adw667  
+##### 1964#       发表于 2022-11-11 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58383173&amp;ptid=2098044" target="_blank">adretyu67 发表于 2022-11-11 09:56</a>
+
+箱子里还有经验素材。不需要盘子跑去++++总不能全靠挖矿吧。
+
+顺带能不能把瓶子/箭袋/冶炼工具这堆没用的东 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">冶炼工具炼矿啊，矿石炼成材料强化值差不多翻倍，我好几章攒的百来个冶炼工具一下就用完了
+
+*****
+
+####  阿库鲁艾特  
+##### 1965#       发表于 2022-11-11 11:31
+
+打到新章了 麻烦问一下宝物记录里除了新增的小徽章以外第4个宝石怎么拿到？我打怪倒是出了第五个宝石
+

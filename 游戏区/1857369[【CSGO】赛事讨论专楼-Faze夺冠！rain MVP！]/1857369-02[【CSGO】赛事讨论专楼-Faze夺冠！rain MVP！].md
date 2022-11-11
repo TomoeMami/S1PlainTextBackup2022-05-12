@@ -1692,3 +1692,12 @@ C9和21年一个味儿啦。  一崩就是全面崩盘
 
 navi过不过得去furia还难说。
 
+
+
+*****
+
+####  六道仙鱼  
+##### 2812#       发表于 2022-11-11 11:23
+
+不觉得黑豹能赢navi，要输也是之后输x队。什么，绿龙会赢x队、那更不可能了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
