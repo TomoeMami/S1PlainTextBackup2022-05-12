@@ -5054,3 +5054,15 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 魔王城城外存档拿副武器那里，新章多个小徽章，比较容易漏
 
+
+
+*****
+
+####  方舟失智博士  
+##### 1948#       发表于 2022-11-11 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58379860&amp;ptid=2098044" target="_blank">JoelBirch 发表于 2022-11-10 23:36</a>
+白宝石能干啥啊</blockquote>
+有个炼金书 里的宝石配方公式用的 
+一周目拿完扭蛋小徽章抽出来
+

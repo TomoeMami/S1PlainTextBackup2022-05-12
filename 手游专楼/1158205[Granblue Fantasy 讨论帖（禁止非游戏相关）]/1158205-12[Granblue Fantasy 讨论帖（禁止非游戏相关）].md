@@ -399,3 +399,12 @@ C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死
 
 直接被200撞烂了，果然每次风团BOSS都是最强滴！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 17204#       发表于 2022-11-11 08:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不说吃药才打得过。吃药打完的时间效率还不如150.150我回来了
+
