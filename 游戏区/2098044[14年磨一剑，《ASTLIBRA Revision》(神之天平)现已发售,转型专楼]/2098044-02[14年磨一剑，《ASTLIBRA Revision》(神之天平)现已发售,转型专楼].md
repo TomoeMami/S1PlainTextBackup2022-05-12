@@ -5380,3 +5380,14 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">顺带我打完第四章只有4个盘子正常吗
 
+
+
+*****
+
+####  AeonsTorn  
+##### 1974#       发表于 2022-11-11 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58389201&amp;ptid=2098044" target="_blank">刹海之绊 发表于 2022-11-11 16:50</a>
+第一次玩 目前困难难度到达第五章了，除了第三章的关底boss，目前还没咋卡过，说实话真上头，真的很 ...</blockquote>
+除了一开始给的两个，之后每一章都有一个，扭蛋给一个，总共十个
+
