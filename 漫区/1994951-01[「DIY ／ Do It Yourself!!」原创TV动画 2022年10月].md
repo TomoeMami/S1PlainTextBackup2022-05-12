@@ -5230,3 +5230,12 @@ DIY6話、コンテ演出やってました。
 
 感觉布丁有种妈妈的感觉，没了布丁女主自己都不扎头发，而且总是提起女主，担心女主能不能适应diy社，快进到女主“布丁是能成为我妈妈的女人”<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  k1no  
+##### 415#       发表于 2022-11-11 16:25
+
+Do It Your Radio也很有意思，有空可以听听<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
