@@ -5066,3 +5066,26 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 有个炼金书 里的宝石配方公式用的 
 一周目拿完扭蛋小徽章抽出来
 
+
+
+*****
+
+####  syndrome2032  
+##### 1949#       发表于 2022-11-11 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58377594&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-10 21:37</a>
+村正入手了 村正算魔法系么 没攻击了
+
+现在就差个天平了 不知道哪个章节的没拿 一脸黑
+
+80级了 感觉我才是BOS ...</blockquote>
+村正算剑类武器，但是满熟练后打出的光波算魔法，享受一切法杖投射物类的补正。
+
+*****
+
+####  adw667  
+##### 1950#       发表于 2022-11-11 08:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">打完了，原来改结局改的是那部分，男主炸毛的时候我也挺不爽的，都到最后的最后了还来这么一下要是爱情没喂够岂不是屎一样的体验
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">神杀剑伤害确实超模，就是涨精力有点慢，打到最后一层深渊开箱子对比装备盘的时间比打怪的时间还长，我算是知道为什么会有降低装备盘掉率的饰品了
+
