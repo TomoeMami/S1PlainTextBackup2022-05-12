@@ -5528,3 +5528,17 @@ DA28616F-9163-4B72-BD2F-B0515372EDE1.png
 
 S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
+
+
+*****
+
+####  J-002  
+##### 3506#       发表于 2022-11-11 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58378085&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2022-11-10 22:01</a>
+
+女神神核也太强了吧，宇宙凛身上GUARD乱冒，卡米拉都咒死了她还有一条血
+
+—— 来自 Sony XQ-AT72,  ...</blockquote>
+凛第三管血会偷你的宝物buff，肯定是偷了异常抗性上升……
+

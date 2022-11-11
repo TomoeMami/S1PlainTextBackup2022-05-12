@@ -32,3 +32,21 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">新卡出得真快，跟不上，摆了摆了
 
+
+
+*****
+
+####  黑上シグマ  
+##### 95#       发表于 2022-11-11 16:14
+
+抽光所有石头，出了个UR，可以开摆了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  kulanyee  
+##### 96#       发表于 2022-11-11 16:20
+
+我忍住了。等一手圣诞新年二连
+
