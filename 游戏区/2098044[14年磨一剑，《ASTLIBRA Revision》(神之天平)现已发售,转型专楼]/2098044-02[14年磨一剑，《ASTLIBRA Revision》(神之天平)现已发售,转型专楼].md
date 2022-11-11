@@ -5424,3 +5424,16 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 我全要素就差一个盘子 我可吐了也不想回头找了
 
+
+
+*****
+
+####  otakun  
+##### 1978#       发表于 2022-11-11 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58389951&amp;ptid=2098044" target="_blank">jacket 发表于 2022-11-11 17:49</a>
+请选择所有女主图像
+
+https://twitter.com/shigatake/status/1590282411455426560</blockquote>
+右下角，没了她主角连公交都不会坐。
+

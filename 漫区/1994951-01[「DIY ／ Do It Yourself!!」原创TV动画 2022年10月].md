@@ -5274,3 +5274,20 @@ Do It Yourself!! ーどぅー・いっと・ゆあせるふー OP「どきどき
 アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第6話放送後インタビュー：音響監督 郷田ほづみさん｜キャスティングはバランスが大事、そして、個性的な6人が誕生
 [https://www.animatetimes.com/news/details.php?id=1668154397](https://www.animatetimes.com/news/details.php?id=1668154397)
 
+
+
+*****
+
+####  H2Ofrozen  
+##### 419#       发表于 2022-11-11 18:45
+
+搬张弔图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/11/184517g2ccgrodxovtor53.jpg" referrerpolicy="no-referrer">
+
+<strong>1668161867657828.jpg</strong> (279.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-11 18:45 上传
+

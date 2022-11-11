@@ -2887,3 +2887,23 @@ FNS发生了啥
 
 官方这，为了推管人，让猴楼看缪动画搞了个联动。希望只是为了搞管人，别扯星下水好嘛官方？，
 
+
+
+*****
+
+####  愛さ実  
+##### 9228#       发表于 2022-11-11 18:46
+
+推管人肯定要拜山头，预料之中<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iuhehc  
+##### 9229#       发表于 2022-11-11 18:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
