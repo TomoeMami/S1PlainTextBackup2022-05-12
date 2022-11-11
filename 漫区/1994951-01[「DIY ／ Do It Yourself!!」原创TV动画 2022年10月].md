@@ -5221,3 +5221,12 @@ DIY6話、コンテ演出やってました。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">布丁的动作和表情真是抓人
 
+
+
+*****
+
+####  zfy666  
+##### 414#       发表于 2022-11-11 15:28
+
+感觉布丁有种妈妈的感觉，没了布丁女主自己都不扎头发，而且总是提起女主，担心女主能不能适应diy社，快进到女主“布丁是能成为我妈妈的女人”<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

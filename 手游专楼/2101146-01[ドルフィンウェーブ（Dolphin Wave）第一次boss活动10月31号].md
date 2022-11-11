@@ -23,3 +23,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这淘汰赛活动，不会也是一天只能打一次的那种吧
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 94#         楼主| 发表于 2022-11-11 15:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">新卡出得真快，跟不上，摆了摆了
+
