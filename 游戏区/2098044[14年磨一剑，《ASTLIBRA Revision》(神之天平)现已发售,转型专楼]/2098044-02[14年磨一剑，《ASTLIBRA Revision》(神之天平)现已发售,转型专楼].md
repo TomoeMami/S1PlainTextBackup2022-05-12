@@ -5520,3 +5520,15 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  skgaminger1988  
+##### 1987#       发表于 2022-11-11 21:41
+
+ 本帖最后由 skgaminger1988 于 2022-11-11 21:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58391476&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-11 19:55</a>
+说一句全身功力八成在鸟哥身上不过分吧</blockquote>
+伤害明明全是鸟哥打的 结果每次打完boss还要夸夸我你好强啊 搞得我有点尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

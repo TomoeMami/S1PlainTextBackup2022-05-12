@@ -5620,3 +5620,20 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
 炉心49/134
 
+
+
+*****
+
+####  alucardcz  
+##### 3513#       发表于 2022-11-11 21:46
+
+<img src="https://img.saraba1st.com/forum/202211/11/214537tj6g6bl5g35bgchj.jpg" referrerpolicy="no-referrer">
+
+<strong>8888.jpg</strong> (556.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-11 21:45 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这ｔｍｄ才是真高难吧？还只能上４人　那３个超高难都不配和这个比　
+
