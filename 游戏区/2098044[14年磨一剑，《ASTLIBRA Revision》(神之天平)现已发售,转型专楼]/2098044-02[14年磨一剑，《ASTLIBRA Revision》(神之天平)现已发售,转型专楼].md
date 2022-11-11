@@ -5635,3 +5635,32 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 不用嘴也没事，顶多后面多刷一个爱情道具。第5章可不能选错了，会直接导致少打一个boss战，成就党错过了 ...</blockquote>
 剧情道具居然还能刷的？卧槽，太方便了，我又燃起了战意！
 
+
+
+*****
+
+####  linc555  
+##### 1998#       发表于 2022-11-11 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58393704&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-11 22:53</a>
+肝了72小时通了，就差运动&amp;#x ...</blockquote>
+透明胶绑一下，找个台阶的地方卡住，很快就完成了
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  eaglu  
+##### 1999#       发表于 2022-11-11 23:16
+
+今天看朋友打顺便试了试，想问下第五章那个下坠很长一段距离，中间经过一段水，最后到的一个在地下但是很明亮的地方有什么说法吗？一开始以为是主线，得不受伤穿越那些房间<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  逃离学校  
+##### 2000#       发表于 2022-11-11 23:20
+
+装备技能上面的护甲精通是什么意思？
+
