@@ -1649,3 +1649,26 @@ c9果然寄了，这个队伍状态真的超级不稳定，习惯了都
 
 草，这下银币了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  saintsimpler  
+##### 2807#       发表于 2022-11-11 09:21
+
+笑嘻了，载若出局，今年top1又是森破了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zsu222  
+##### 2808#       发表于 2022-11-11 09:25
+
+C9和21年一个味儿啦。  一崩就是全面崩盘
+
+*****
+
+####  dev2ce  
+##### 2809#       发表于 2022-11-11 09:26
+
+那提前恭喜navi喜提major，森喜提今年top1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

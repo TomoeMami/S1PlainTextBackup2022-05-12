@@ -5113,3 +5113,18 @@ wiki上说盖亚迷宫的宝箱掉爱情，是真的吗？我本篇的爱情一�
 
 查日基说剧毒这个状态可以通过把剧毒抗性堆到94以上把初始生效时间推到200以上就永远不会被跳死?虽然实战里根本走不完200秒就是。
 
+
+
+*****
+
+####  redsouris  
+##### 1953#       发表于 2022-11-11 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58382623&amp;ptid=2098044" target="_blank">syndrome2032 发表于 2022-11-11 09:12</a>
+醉拳和神医变异的药瘾可以通过塞爱情获得的黑暗料理主动进入剧毒状态触发。
+
+查日基说剧毒这个状态可以通过 ...</blockquote>
+剧毒跳到200秒就自然消失了，抗性堆够是可以当BUFF用
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
