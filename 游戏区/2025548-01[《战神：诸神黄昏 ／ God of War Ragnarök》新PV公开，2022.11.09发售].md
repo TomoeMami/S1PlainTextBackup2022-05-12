@@ -13414,3 +13414,15 @@ boy我感觉长得像鹰眼了，要是拆开按三代做，儿子再长大一�
 
 我错了，这作内容量真够恐怖的，光之国支线内容甚至不比主线演出弱，错过可惜，一定要慢慢玩…
 
+
+
+*****
+
+####  姬茧墨  
+##### 1371#       发表于 2022-11-12 20:42
+
+<img src="https://p.sda1.dev/8/74463b76b2af4707114c1c910870fb76/CMP_20221112204157525.JPG" id="aimg_J6Ke6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+米德加尔德这个宝箱是出bug了吗，没有互动按钮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

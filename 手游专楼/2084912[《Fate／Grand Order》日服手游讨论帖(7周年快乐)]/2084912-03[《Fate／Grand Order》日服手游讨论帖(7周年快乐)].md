@@ -6076,3 +6076,22 @@ Screenshot_20221112-141849.png
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  yangun22  
+##### 3552#       发表于 2022-11-12 20:50
+
+如果能接受一面需要补刀3万多的话不顶配勉强可以6加成，月神哪怕稍微有给队友一点buff都会好弄不少<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3553#       发表于 2022-11-12 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58404246&amp;ptid=2084912" target="_blank">yangun22 发表于 2022-11-12 20:50</a>
+
+如果能接受一面需要补刀3万多的话不顶配勉强可以6加成，月神哪怕稍微有给队友一点buff都会好弄不少 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁那个公主月神的阵容吗
+
