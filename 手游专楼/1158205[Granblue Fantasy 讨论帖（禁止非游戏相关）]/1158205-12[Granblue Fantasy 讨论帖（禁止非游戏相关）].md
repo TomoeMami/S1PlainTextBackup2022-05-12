@@ -473,3 +473,14 @@ C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  poor  
+##### 17211#       发表于 2022-11-12 22:22
+
+打完了，因为100提前所以一人团也能开150打啦，于是咸鱼第一次打够5亿。然后看了下，一人团打5亿差不多正好45箱，他是不是算过的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
