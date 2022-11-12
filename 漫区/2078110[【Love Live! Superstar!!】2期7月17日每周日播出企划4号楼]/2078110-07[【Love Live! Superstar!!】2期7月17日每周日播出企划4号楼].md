@@ -2988,3 +2988,14 @@ FhRnQYoaMAAXH5e.jpg
 
 2022-11-12 08:41 上传
 
+
+
+*****
+
+####  ads147147  
+##### 9237#       发表于 2022-11-12 10:00
+
+ 本帖最后由 ads147147 于 2022-11-12 10:03 编辑 
+
+反正到时候这个系列免不了要和杏卷在一起，说到底这个企划搞事情的时候哪来在乎过粉丝啊，更何况还是中国粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

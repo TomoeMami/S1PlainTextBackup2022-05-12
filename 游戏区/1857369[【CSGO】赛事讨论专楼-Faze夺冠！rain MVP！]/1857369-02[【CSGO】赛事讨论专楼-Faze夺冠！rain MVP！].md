@@ -1942,3 +1942,19 @@ navi养猪场正常发挥了
 
 说白了，被自己ego支配的人真不配赢
 
+
+
+*****
+
+####  ispep  
+##### 2843#       发表于 2022-11-12 10:02
+
+什么情况，navi又走了？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看一下录像去
+
+*****
+
+####  zpl123  
+##### 2844#       发表于 2022-11-12 10:05
+
+听说森破竖中指了
+
