@@ -786,3 +786,12 @@ B站直播间：[https://live.bilibili.com/21462472](https://live.bilibili.com/2
 
 “CiGA x Fami通・电击游戏 - 直面会”是2021年开始由日本知名游戏媒体Fami通 &amp;#xB7; 电击游戏和CiGA中国独立游戏联盟共同举办，以分享最新日本游戏产品和业界信息，连线游戏制作人并进行相关游戏内容分享的特别活动，目的在于促进来自日本的游戏和中国用户以及行业的沟通和交流。
 
+
+
+*****
+
+####  宛若青空  
+##### 74#       发表于 2022-11-12 22:47
+
+日版的店铺特典服装中文版全部免费送了，太羡慕了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
