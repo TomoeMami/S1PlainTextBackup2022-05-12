@@ -435,3 +435,14 @@ C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死
 
 上紫苑的玩家讲讲现在什么心情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 17208#       发表于 2022-11-12 19:42
+
+虽然现在才问，150 35-20中间的立即满豆是什么条件触发？感觉有时不会出来。一般是怎么处理的？
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
