@@ -5925,3 +5925,23 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  guts  
+##### 2024#       发表于 2022-11-12 15:39
+
+demo的存档正式版能接着用吗
+
+—— 来自 OnePlus HD1900, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  黒長直姫  
+##### 2025#       发表于 2022-11-12 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58399099&amp;ptid=2098044" target="_blank">装甲兔 发表于 2022-11-12 15:04</a>
+服装店老板娘要一个什么石头？</blockquote>
+明明是面包店
+
