@@ -426,3 +426,12 @@ C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最适合打200的都是季限 情军 万圣离子 泳紫苑 后排还有万圣VN
 
+
+
+*****
+
+####  xzhlj0325  
+##### 17207#       发表于 2022-11-12 09:00
+
+上紫苑的玩家讲讲现在什么心情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

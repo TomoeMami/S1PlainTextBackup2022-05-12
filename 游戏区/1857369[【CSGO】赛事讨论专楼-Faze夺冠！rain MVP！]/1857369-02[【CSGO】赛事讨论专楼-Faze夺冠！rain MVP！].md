@@ -1875,3 +1875,61 @@ C9一共就俩U盘，之前阿乐和硬蛋用过了，现在给希罗霍比特�
 这现场比以往的major都恐怖</blockquote>
 巴西老铁太狂热了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2835#         楼主| 发表于 2022-11-12 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58395559&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-11-12 08:48</a>
+克拉科夫再现的话，还有支传统强队也要g</blockquote>
+决赛该mouz打黑豹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  灰色的狐狸  
+##### 2836#       发表于 2022-11-12 08:53
+
+有一说一小森这个bo3真的拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 2837#       发表于 2022-11-12 08:56
+
+另外想吐槽一下，我大概从去年红星拿卡托就没看比赛了，直到今年安特卫普，森怎么膨胀成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">体型方面
+
+*****
+
+####  Niyah  
+##### 2838#       发表于 2022-11-12 08:58
+
+X队冲一波吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rrtyui  
+##### 2839#       发表于 2022-11-12 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58395605&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-11-12 08:56</a>
+另外想吐槽一下，我大概从去年红星拿卡托就没看比赛了，直到今年安特卫普，森怎么膨胀成这样了体型 ...</blockquote>
+navi养猪场正常发挥了
+
+*****
+
+####  灰色的狐狸  
+##### 2840#       发表于 2022-11-12 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58395605&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-11-12 08:56</a>
+
+另外想吐槽一下，我大概从去年红星拿卡托就没看比赛了，直到今年安特卫普，森怎么膨胀成这样了体型 ...</blockquote>
+波兰伙食好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  haruhiismer  
+##### 2841#       发表于 2022-11-12 08:58
+
+大飞柱留个小中分cos兵长不如cos无垢巨
+
