@@ -2116,3 +2116,14 @@ sdy他们显然是不打算要，拖了那么久，不知道打算划拉谁过�
 比起这个我更好奇小森的软脚多久能好 ...</blockquote>
 估计把他那个cos兵长的发型改了能好点吧。。。
 
+
+
+*****
+
+####  heseran  
+##### 2859#       发表于 2022-11-12 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401231&amp;ptid=1857369" target="_blank">叶虚 发表于 2022-11-12 17:34</a>
+估计把他那个cos兵长的发型改了能好点吧。。。</blockquote>
+每把打完都得捋一下头发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

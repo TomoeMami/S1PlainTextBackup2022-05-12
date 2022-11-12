@@ -5941,3 +5941,25 @@ Screenshot_20221112-141849.png
 我咋可能有顶配奥伯龙
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 3541#       发表于 2022-11-12 18:28
+
+<blockquote>exiaexa 发表于 2022-11-12 18:14
+试了半天，还是5加成伊吹直接灌死最快艹
+
+就是这掉落跟X一样
+
+</blockquote>
+这掉落属实两眼一黑，吗的什么垃圾
+
+*****
+
+####  khxooo  
+##### 3542#       发表于 2022-11-12 18:31
+
+蹄铁，胎毛，打你马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
