@@ -3046,3 +3046,28 @@ FhRnQYoaMAAXH5e.jpg
 
 除了LGA的泥哥只能偷偷看之外，其他地方都能光明正大的看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 9243#       发表于 2022-11-12 19:02
+
+还是看看远处蓝鸟的朋友吐槽吧，这东西出的时候我也笑了一下，就可可是一期截出来的，企划经典没点X数环节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/12/190005mieywkxftt6futrs.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2472.JPG</strong> (214.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-12 19:00 上传
+
+<img src="https://img.saraba1st.com/forum/202211/12/185952xy3y0yfh1fv8pqyf.png" referrerpolicy="no-referrer">
+
+<strong>IMG_2471(20221112-183432).PNG</strong> (320.86 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-12 18:59 上传
+

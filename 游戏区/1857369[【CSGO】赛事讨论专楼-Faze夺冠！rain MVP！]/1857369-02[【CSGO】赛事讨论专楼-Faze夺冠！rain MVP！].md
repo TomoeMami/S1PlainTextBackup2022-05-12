@@ -2142,3 +2142,18 @@ vp夺冠就是被排挤的outsiders站上舞台的中央
 黑豹夺冠就是从sk手里正式把巴西CS传承下来，新时代的开启
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  白面互撸娃  
+##### 2861#       发表于 2022-11-12 18:54
+
+<blockquote>朔方原的星 发表于 2022-11-12 18:47
+现在就希望决赛是VP打黑豹
+
+最快与最慢的对决
+
+现场也热闹</blockquote>
+黑豹夺冠不应该是**vp又开始吃菠菜了吗233
+

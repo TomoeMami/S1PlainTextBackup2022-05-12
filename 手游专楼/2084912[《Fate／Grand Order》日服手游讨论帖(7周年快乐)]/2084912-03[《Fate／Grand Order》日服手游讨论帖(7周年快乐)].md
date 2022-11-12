@@ -5977,3 +5977,28 @@ Screenshot_20221112-141849.png
 我咋可能有顶配奥伯龙</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事了　试了下５宝奥师傅伤害完全不够　还得１２０＋２０００　可以说根本不存在了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3544#       发表于 2022-11-12 18:56
+
+90++水伊吹双C呆奥贝隆稳定3T
+
+7F53078B-A100-4DD3-B367-AB694ED5E9AB.jpeg
+(858.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-12 18:56 上传
+
+<img src="https://img.saraba1st.com/forum/202211/12/185639dglgbailg0wbdzao.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3545#       发表于 2022-11-12 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡游戏９０级５宝都不到６加成稳定３ｔ　　算了不试了
+
