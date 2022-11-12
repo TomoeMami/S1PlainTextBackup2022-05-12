@@ -3125,3 +3125,22 @@ FhRnQYoaMAAXH5e.jpg
 也知道二期唐可可没活整了啊……知道了三期就给补一补，哪怕就一集，哪怕跟s2e7一样无意义地耍宝一整集呢？ ...</blockquote>
 你是不是对企划有什么误解？
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9249#       发表于 2022-11-12 23:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">官方做谷的人找不到素材和写剧本的自认为写得没问题又不冲突，不会真以为这能让敲定剧本的人意识到二期剧情有问题吧
+
+*****
+
+####  ruffian  
+##### 9250#       发表于 2022-11-12 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58406531&amp;ptid=2078110" target="_blank">lj205 发表于 2022-11-12 23:05:10</a>
+你是不是对企划有什么误解？</blockquote>如果说二期开播前我确实还对这逼企划有所期待，现在我确实是乐子人的心态看待三期了。我就看看三期有没有哪怕是像二期恋回一样的可专场，继续毁人设也没关系，继续给别人当垫子也没关系，“唐可可连续两期没有个人回，这不应该”，我只想看看他们有没有意识到这个事情，至于他们在不在乎我不在乎，我只想看看他们承不承认这件事
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
