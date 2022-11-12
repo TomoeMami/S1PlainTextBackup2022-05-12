@@ -2127,3 +2127,18 @@ sdy他们显然是不打算要，拖了那么久，不知道打算划拉谁过�
 估计把他那个cos兵长的发型改了能好点吧。。。</blockquote>
 每把打完都得捋一下头发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2860#         楼主| 发表于 2022-11-12 18:47
+
+现在就希望决赛是VP打黑豹
+最快与最慢的对决
+现场也热闹
+两边谁夺冠都好
+vp夺冠就是被排挤的outsiders站上舞台的中央
+黑豹夺冠就是从sk手里正式把巴西CS传承下来，新时代的开启
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
