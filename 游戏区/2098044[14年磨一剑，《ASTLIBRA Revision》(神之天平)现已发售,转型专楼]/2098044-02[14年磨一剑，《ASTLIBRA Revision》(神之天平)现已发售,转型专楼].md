@@ -5882,3 +5882,14 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 
 开新章，话说这个强化系统有啥讲究吗？感觉无脑升弑神剑就行了啊，有上限吗？
 
+
+
+*****
+
+####  電子器官依存  
+##### 2020#       发表于 2022-11-12 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58397688&amp;ptid=2098044" target="_blank">JoelBirch 发表于 2022-11-12 13:08</a>
+开新章，话说这个强化系统有啥讲究吗？感觉无脑升弑神剑就行了啊，有上限吗？ ...</blockquote>
+无上限，有装备盘之后各武器的白值其实都拉平了，按自己的喜好用也没问题
+
