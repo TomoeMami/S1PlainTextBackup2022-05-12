@@ -5996,3 +5996,21 @@ demo的存档正式版能接着用吗
 
 看泥潭帖子逆反，买了一份，确实挺有意思的
 
+
+
+*****
+
+####  dazzle  
+##### 2031#       发表于 2022-11-12 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58392135&amp;ptid=2098044" target="_blank">Rainwedell 发表于 2022-11-11 20:48</a>
+
+进新章了，打加时杯那个群星进去一看一堆人等我
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1N ...</blockquote>
+群星基本就是这个游戏最大的难关了，建议刷到一个趁手武器的盘子，把武器和衣服盾都强化到20左右再来打
+
+不过能过夫妻双打的强度这个也是能过的，注意把男主和老婆分开，压低凭依消耗，尽量多覆盖凭依吸血就行
+
+拿到keizo徽章以后游戏就完全没有难度了，基本上boss活不过1分钟
+
