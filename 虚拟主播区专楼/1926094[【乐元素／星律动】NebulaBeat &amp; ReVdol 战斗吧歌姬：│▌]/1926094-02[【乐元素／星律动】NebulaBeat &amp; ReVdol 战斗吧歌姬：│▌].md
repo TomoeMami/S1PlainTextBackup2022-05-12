@@ -10300,3 +10300,12 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 <img src="http://tva1.sinaimg.cn/large/732205bcgy1h82kqnz21xj20my0cxwol.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 2588#       发表于 2022-11-12 19:52
+
+艾露露一直很好，如果不是那句留言，今晚的花还以为是艾露露送的
+

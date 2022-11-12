@@ -6011,3 +6011,34 @@ Screenshot_20221112-141849.png
 
 6加成伤害不够，5加成的话倒是司马懿或者孔明居然派上用场了
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3547#       发表于 2022-11-12 19:53
+
+今日低难
+
+公主直接碾压过去
+
+微信图片_20221112195216.jpg
+(793.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-12 19:53 上传
+
+<img src="https://img.saraba1st.com/forum/202211/12/195320u8z8ze8iby8myzug.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 3548#       发表于 2022-11-12 19:55
+
+ 本帖最后由 gpx234mqx 于 2022-11-12 19:58 编辑 
+
+这些高难都啥辣鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+直接碾压就行了
+
