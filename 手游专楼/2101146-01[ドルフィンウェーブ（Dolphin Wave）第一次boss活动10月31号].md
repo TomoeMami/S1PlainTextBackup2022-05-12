@@ -131,3 +131,12 @@ WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmed
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没什么意义的淘汰赛，咸鱼不打也没事
 
+
+
+*****
+
+####  MEKA  
+##### 105#       发表于 2022-11-12 11:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">活动商店怎么追加了新的东西了啊，之前全去换钱了又要刷...
+

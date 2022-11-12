@@ -5855,3 +5855,12 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 
 风精灵效果太强了以至于后期刷的动机都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙发果冻  
+##### 2017#       发表于 2022-11-12 11:45
+
+比起加魔攻的魔法扫帚，加攻击的狂战士是挺菜的，扫帚用体力加双倍就能让魔攻翻个倍。
+
