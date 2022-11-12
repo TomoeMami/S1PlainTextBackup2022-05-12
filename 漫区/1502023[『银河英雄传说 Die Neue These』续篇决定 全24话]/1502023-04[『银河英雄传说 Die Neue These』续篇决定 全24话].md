@@ -34,3 +34,15 @@
 
 杨就算真的造反结局其实也差不多吧，两国的实力已经相差太大了
 
+
+
+*****
+
+####  aptx8285144  
+##### 5537#       发表于 2022-11-12 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58398960&amp;ptid=1502023" target="_blank">meailove 发表于 2022-11-12 14:52</a>
+
+杨就算真的造反结局其实也差不多吧，两国的实力已经相差太大了</blockquote>
+只有巴米利恩一个机会，但是现在想想，之后帝国发生内战概率飙升，13舰队还要先打游击，而杨必须变成现在的世界线更加成积极有为了
+

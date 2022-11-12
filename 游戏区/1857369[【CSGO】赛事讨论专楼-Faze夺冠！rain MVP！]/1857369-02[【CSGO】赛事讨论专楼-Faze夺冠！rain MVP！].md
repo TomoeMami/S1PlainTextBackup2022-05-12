@@ -2091,3 +2091,28 @@ X 队之前传奇组被C9干穿了，我觉得他们多半打不过黑豹
 
 如果navi要变阵，过几天应该就有消息，他们年底还有两个大赛要打，sdy感觉是无了
 
+
+
+*****
+
+####  朔方原的星  
+##### 2857#         楼主| 发表于 2022-11-12 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58399819&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-11-12 15:56</a>
+
+如果navi要变阵，过几天应该就有消息，他们年底还有两个大赛要打，sdy感觉是无了 ...</blockquote>
+sdy他们显然是不打算要，拖了那么久，不知道打算划拉谁过来
+
+比起这个我更好奇小森的软脚多久能好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉从安特卫普之后一打重要比赛总拉裤里
+
+*****
+
+####  叶虚  
+##### 2858#       发表于 2022-11-12 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401206&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-11-12 17:32</a>
+sdy他们显然是不打算要，拖了那么久，不知道打算划拉谁过来
+
+比起这个我更好奇小森的软脚多久能好 ...</blockquote>
+估计把他那个cos兵长的发型改了能好点吧。。。
+

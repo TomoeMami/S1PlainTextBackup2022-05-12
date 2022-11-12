@@ -5805,3 +5805,66 @@ Screenshot_20221112-141849.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有人算算蓝字23万等于打红字多少？
 
+
+
+*****
+
+####  qixinno2  
+##### 3530#       发表于 2022-11-12 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401138&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-12 17:27</a>
+
+有没有人算算蓝字23万等于打红字多少？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简单粗暴的乘四?
+
+*****
+
+####  alucardcz  
+##### 3531#       发表于 2022-11-12 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401218&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-12 17:33</a>
+
+简单粗暴的乘四?</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那得92万  和80万差的有点多啊  对配置要求又高了一个台阶 
+
+还是继续狂娜算了
+
+*****
+
+####  qixinno2  
+##### 3532#       发表于 2022-11-12 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401232&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-12 17:34</a>
+
+那得92万  和80万差的有点多啊  对配置要求又高了一个台阶 
+
+还是继续狂娜算了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我甚至没有能打的阵容
+
+*****
+
+####  angelooo  
+##### 3533#       发表于 2022-11-12 17:37
+
+夏露露你好夏露露再见，还好初赛刷了下，正赛我躺了
+
+*****
+
+####  alucardcz  
+##### 3534#       发表于 2022-11-12 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401252&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-12 17:35</a>
+
+我甚至没有能打的阵容</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我还想每个艹本都录个稳定6加成视频做纪念呢 这就翻车了 
+
+*****
+
+####  qixinno2  
+##### 3535#       发表于 2022-11-12 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401304&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-12 17:39</a>
+
+我还想每个艹本都录个稳定6加成视频做纪念呢 这就翻车了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">复刻五宝抽起来 打什么都是琐事
+
