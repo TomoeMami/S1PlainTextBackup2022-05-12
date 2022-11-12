@@ -985,3 +985,14 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 抽了3000后……我决定躺平。
 
+
+
+*****
+
+####  khxooo  
+##### 43731#       发表于 2022-11-13 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403465&amp;ptid=1712412" target="_blank">廖化 发表于 2022-11-12 20:03</a>
+邪马台完了之后就可以抽太公望了？</blockquote>
+还早呢，年末差不多元旦才到。
+
