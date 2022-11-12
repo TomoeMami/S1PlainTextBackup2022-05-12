@@ -152,3 +152,15 @@ WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmed
 活动商店怎么追加了新的东西了啊，之前全去换钱了又要刷...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游活动一般不都要分两半开的吗，常规操作啊。不过换了也没事，反正这活动刷起来很快
 
+
+
+*****
+
+####  羽出  
+##### 107#       发表于 2022-11-12 12:42
+
+这淘汰赛良心死了好不好，给的比大师级还多，难度却还不如主力级 
+
+虽然上面写着推荐战力24000，但事实上的战力却不是全部24000，而是第一队10000，后面每队加5000
+利好新玩家，只要能打赢两队就算赚了，对比一下nikke，这什么圣女运营，哭死<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
