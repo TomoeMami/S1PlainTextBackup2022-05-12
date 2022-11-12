@@ -5868,3 +5868,76 @@ Screenshot_20221112-141849.png
 我还想每个艹本都录个稳定6加成视频做纪念呢 这就翻车了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">复刻五宝抽起来 打什么都是琐事
 
+
+
+*****
+
+####  exiaexa  
+##### 3536#       发表于 2022-11-12 18:14
+
+ 本帖最后由 exiaexa 于 2022-11-12 18:15 编辑 
+
+试了半天，还是5加成伊吹直接灌死最快艹
+
+就是这掉落跟X一样
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+90+是甲虫+种子
+
+90++是鬃毛+马蹄
+
+神经病吧
+
+还不如滚去刷90纯票本，还能玩玩绿卡
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3537#       发表于 2022-11-12 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401826&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-11-12 18:14</a>
+
+试了半天，还是5加成伊吹直接灌死最快艹
+
+就是这掉落跟X一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬你怎么能玩5加成 这钱不是白充了（
+
+*****
+
+####  exiaexa  
+##### 3538#       发表于 2022-11-12 18:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401859&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-12 18:16</a>
+
+大佬你怎么能玩5加成 这钱不是白充了（</blockquote>
+我从来都是效率优先啊
+
+尊严有什么用，装完逼还不是要去板砖
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3539#       发表于 2022-11-12 18:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401889&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-11-12 18:18</a>
+
+我从来都是效率优先啊
+
+尊严有什么用，装完逼还不是要去板砖</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬奥师傅几宝 我想试试那个传说中的6加成稳定解
+
+*****
+
+####  exiaexa  
+##### 3540#       发表于 2022-11-12 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401905&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-12 18:20</a>
+
+大佬奥师傅几宝 我想试试那个传说中的6加成稳定解</blockquote>
+我一个天天按着2.6喷的死黑子
+
+我咋可能有顶配奥伯龙
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
