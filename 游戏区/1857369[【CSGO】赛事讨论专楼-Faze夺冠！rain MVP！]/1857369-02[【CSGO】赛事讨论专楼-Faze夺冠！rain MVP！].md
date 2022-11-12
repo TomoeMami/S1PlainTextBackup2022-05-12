@@ -1770,3 +1770,108 @@ C9一共就俩U盘，之前阿乐和硬蛋用过了，现在给希罗霍比特�
 
 沃日！赛点了！
 
+
+
+*****
+
+####  浅仓透透  
+##### 2821#       发表于 2022-11-12 08:41
+
+哈哈哈哈哈哈哈哈，今年这个比赛
+
+*****
+
+####  灰色的狐狸  
+##### 2822#       发表于 2022-11-12 08:41
+
+黑豹！！！！！！！
+
+*****
+
+####  浅仓透透  
+##### 2823#       发表于 2022-11-12 08:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">经过上一轮洗礼，这轮作业反着写的全过了
+
+*****
+
+####  heseran  
+##### 2824#       发表于 2022-11-12 08:42
+
+有点意思<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 2825#       发表于 2022-11-12 08:42
+
+主场还是牛的
+
+*****
+
+####  朔方原的星  
+##### 2826#         楼主| 发表于 2022-11-12 08:42
+
+图三saffee前面拉裤里了我还以为没了呢，还是成功把Navi抬走了，拜拜了小森<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅仓透透  
+##### 2827#       发表于 2022-11-12 08:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拜拜了小森，这届真是乐子看了个够
+
+*****
+
+####  灰色的狐狸  
+##### 2828#       发表于 2022-11-12 08:44
+
+看得太燃了
+
+巴西老铁的现场氛围也太好了
+
+*****
+
+####  天妇罗  
+##### 2829#       发表于 2022-11-12 08:44
+
+审判！森破第一局就开始狂，结果马了全程
+
+*****
+
+####  rrtyui  
+##### 2830#       发表于 2022-11-12 08:46
+
+这主持人什么来头<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">采访英语完全说不清，尬疯了
+
+*****
+
+####  囧囧囧  
+##### 2831#       发表于 2022-11-12 08:48
+
+这现场比以往的major都恐怖
+
+*****
+
+####  dev2ce  
+##### 2832#       发表于 2022-11-12 08:48
+
+克拉科夫再现的话，还有支传统强队也要g<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rrtyui  
+##### 2833#       发表于 2022-11-12 08:49
+
+卡神今年感觉得有个top10以内了吧
+
+*****
+
+####  灰色的狐狸  
+##### 2834#       发表于 2022-11-12 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58395558&amp;ptid=1857369" target="_blank">囧囧囧 发表于 2022-11-12 08:48</a>
+
+这现场比以往的major都恐怖</blockquote>
+巴西老铁太狂热了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
