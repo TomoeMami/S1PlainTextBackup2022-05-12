@@ -3144,3 +3144,36 @@ FhRnQYoaMAAXH5e.jpg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ruffian  
+##### 9251#       发表于 2022-11-12 23:24
+
+写剧本的人不知道剧本有问题我是不信的。如果唐可可从一开始就是二期以来这幅样子我反而无所谓了，可惜她不是，所以我这种大傻子才会意难平到现在。当然也幸好她不是。
+顺便，我不认为鲤鱼对唐可可的珍惜会输给任何人，也不认为她对唐可可的感情会比其他中之人对自己的角色少半分，如果时间能倒流我不相信她愿意收回那句话
+我已经懒得阴谋论那些乱七八糟的事了，但错的肯定不是任何一个角色和中之人
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ddy2811  
+##### 9252#       发表于 2022-11-12 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58396916&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-11-12 11:46</a>
+
+看了下管人区发现人早都和解了，漏油别急</blockquote>
+官方做了那么好的表率，很多人应该已经跟随总路线了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 9253#       发表于 2022-11-12 23:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58406834&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-11-12 23:24</a>
+
+写剧本的人不知道剧本有问题我是不信的。如果唐可可从一开始就是二期以来这幅样子我反而无所谓了，可惜她不 ...</blockquote>
+鲤鱼对可可如果说第二就没人敢说第一了
+
