@@ -6150,3 +6150,22 @@ demo的存档正式版能接着用吗
 
 听说后面刷起来了没法调高难度会不够打，就进湿地前把困难调成了最高难度结果现在10级刮痧都刮不动，要不要降啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Raumanzug  
+##### 2045#       发表于 2022-11-13 01:13
+
+看了一眼攻略发现我第一个村子竟然还少拿两个水晶和木弓还有回避，是不是得重开了...
+
+*****
+
+####  amazarashi  
+##### 2046#       发表于 2022-11-13 01:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58408379&amp;ptid=2098044" target="_blank">Raumanzug 发表于 2022-11-13 01:13</a>
+
+看了一眼攻略发现我第一个村子竟然还少拿两个水晶和木弓还有回避，是不是得重开了... ...</blockquote>
+地图可以 回溯，这些东西还能回去拿
+
