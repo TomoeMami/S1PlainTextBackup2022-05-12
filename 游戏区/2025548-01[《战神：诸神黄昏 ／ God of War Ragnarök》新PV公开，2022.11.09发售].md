@@ -13559,3 +13559,37 @@ boy我感觉长得像鹰眼了，要是拆开按三代做，儿子再长大一�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Avaleeon3  
+##### 1384#       发表于 2022-11-13 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58407433&amp;ptid=2025548" target="_blank">hotsmile 发表于 2022-11-12 23:57</a>
+
+就是恶心你咋地？不爽啊？不爽就滚,1个KY怪在这叫叫嚷嚷比那XBZZ还恶劣几十倍 ...</blockquote>
+游综换人了？现在都是这种低幼梗小鬼了？你说什么根本看不懂啊 
+
+*****
+
+####  hotsmile  
+##### 1385#       发表于 2022-11-13 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58407521&amp;ptid=2025548" target="_blank">Avaleeon3 发表于 2022-11-13 00:03</a>
+
+游综换人了？现在都是这种低幼梗小鬼了？你说什么根本看不懂啊</blockquote>
+看不懂就滚 ，开个小号在这JJYY真以为你是奥丁啊？
+
+*****
+
+####  Avaleeon3  
+##### 1386#       发表于 2022-11-13 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58407554&amp;ptid=2025548" target="_blank">hotsmile 发表于 2022-11-13 00:06</a>
+
+看不懂就滚 ，开个小号在这JJYY真以为你是奥丁啊？</blockquote>
+我知道你很急 但是你别急 
+
+S1现在是狗叔的 未来也是狗叔的 但是归根结底不是你的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
