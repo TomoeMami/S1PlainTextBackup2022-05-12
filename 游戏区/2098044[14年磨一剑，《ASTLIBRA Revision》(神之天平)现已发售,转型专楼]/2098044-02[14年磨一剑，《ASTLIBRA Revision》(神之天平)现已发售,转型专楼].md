@@ -6044,3 +6044,19 @@ demo的存档正式版能接着用吗
 看泥潭帖子逆反，买了一份，确实挺有意思的</blockquote>
 还行，那我这俩帖子没白发，这个号还算值得。
 
+
+
+*****
+
+####  quanlix  
+##### 2035#       发表于 2022-11-12 20:01
+
+外传这地狱难度打吐了血了，后期各种被秒<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  御坂MKII  
+##### 2036#       发表于 2022-11-12 20:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer"> 外传是啥 外传不是新章吗
+

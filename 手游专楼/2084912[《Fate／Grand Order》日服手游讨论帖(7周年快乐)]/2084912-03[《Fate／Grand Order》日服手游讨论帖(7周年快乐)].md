@@ -6042,3 +6042,14 @@ Screenshot_20221112-141849.png
 
 直接碾压就行了
 
+
+
+*****
+
+####  yangun22  
+##### 3549#       发表于 2022-11-12 20:05
+
+ 本帖最后由 yangun22 于 2022-11-12 20:06 编辑 
+
+全部90级不用顶配不用倍卡，但是需要用1张这次池子抽的五星礼装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
