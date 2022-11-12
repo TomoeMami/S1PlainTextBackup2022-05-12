@@ -2031,3 +2031,32 @@ navi养猪场正常发挥了
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  andychen  
+##### 2851#       发表于 2022-11-12 14:40
+
+穿了穿了，作业彻底穿了
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  六道仙鱼  
+##### 2852#       发表于 2022-11-12 15:04
+
+vp打老鼠，看好vp，感觉没什么问题。x队打黑豹，看好x队，saffee真的不太行。
+
+*****
+
+####  andychen  
+##### 2853#       发表于 2022-11-12 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58399095&amp;ptid=1857369" target="_blank">六道仙鱼 发表于 2022-11-12 15:04</a>
+vp打老鼠，看好vp，感觉没什么问题。x队打黑豹，看好x队，saffee真的不太行。 ...</blockquote>
+X 队之前传奇组被C9干穿了，我觉得他们多半打不过黑豹
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

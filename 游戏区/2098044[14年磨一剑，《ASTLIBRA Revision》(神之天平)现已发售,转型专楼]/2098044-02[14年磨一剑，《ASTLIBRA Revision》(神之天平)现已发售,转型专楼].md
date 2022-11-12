@@ -5905,3 +5905,23 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 开新章，话说这个强化系统有啥讲究吗？感觉无脑升弑神剑就行了啊，有上限吗？ ...</blockquote>
 强化没讲究，装备盘有讲究，高级武器装了反而会降攻，你可以自由选择武器防具盾
 
+
+
+*****
+
+####  装甲兔  
+##### 2022#       发表于 2022-11-12 15:04
+
+服装店老板娘要一个什么石头？
+
+*****
+
+####  Rainwedell  
+##### 2023#       发表于 2022-11-12 15:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58399099&amp;ptid=2098044" target="_blank">装甲兔 发表于 2022-11-12 15:04</a>
+服装店老板娘要一个什么石头？</blockquote>
+变石，去把6神打了拿到的武器精通奖励石头全部合成就有了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
