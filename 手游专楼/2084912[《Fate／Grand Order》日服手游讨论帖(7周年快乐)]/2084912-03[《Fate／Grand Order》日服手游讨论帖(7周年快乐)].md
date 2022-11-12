@@ -5716,3 +5716,21 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
 决战服终于满级了
 
+
+
+*****
+
+####  wfantasia  
+##### 3522#       发表于 2022-11-12 14:20
+
+转生党能不能崛起就看这次了
+
+Screenshot_20221112-141849.png
+(224.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-12 14:20 上传
+
+<img src="https://img.saraba1st.com/forum/202211/12/142052rg7xk63g19kx9tvz.png" referrerpolicy="no-referrer">
+
