@@ -3113,3 +3113,15 @@ FhRnQYoaMAAXH5e.jpg
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 9248#       发表于 2022-11-12 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58406421&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-11-12 22:58</a>
+
+也知道二期唐可可没活整了啊……知道了三期就给补一补，哪怕就一集，哪怕跟s2e7一样无意义地耍宝一整集呢？ ...</blockquote>
+你是不是对企划有什么误解？
+
