@@ -249,3 +249,14 @@ steam dick 交友群：498166847
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  洪水熊猫大势去  
+##### 1926#       发表于 2022-11-12 09:37
+
+ 本帖最后由 洪水熊猫大势去 于 2022-11-12 09:38 编辑 
+
+问下用steamdeck的，可以用变速齿轮或者ce吗
+
