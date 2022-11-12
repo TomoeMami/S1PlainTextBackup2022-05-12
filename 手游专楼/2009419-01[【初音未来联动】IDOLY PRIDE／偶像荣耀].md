@@ -27,3 +27,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ガキ后斗表情笑死了
 
+
+
+*****
+
+####  roamer  
+##### 749#       发表于 2022-11-12 11:19
+
+这游戏XP是流汗吗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
