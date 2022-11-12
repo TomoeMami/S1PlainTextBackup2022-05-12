@@ -278,3 +278,21 @@ steam dick 交友群：498166847
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  i渐行渐远u  
+##### 1929#       发表于 2022-11-12 16:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58399865&amp;ptid=2015700" target="_blank">魔法少女大头 发表于 2022-11-12 15:59</a>
+
+所以现在最简单的购买方式是啥呢，电商平台的3500，3600直购的能买么。
+
+—— 来自 HUAWEI HMA-AL00, Andro ...</blockquote>
+国内现货的话还可以。
+
+搞个美区号冲钱+转运费+必税，3000左右，时间1个月起步。
+
+看了下淘宝现在100刀要570，这尼玛也太贵了吧。。。
+

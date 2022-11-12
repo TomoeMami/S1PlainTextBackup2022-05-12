@@ -5743,3 +5743,15 @@ Screenshot_20221112-141849.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天是不是要更新90艹了   
 
+
+
+*****
+
+####  qixinno2  
+##### 3524#       发表于 2022-11-12 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58399452&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-12 15:28</a>
+
+今天是不是要更新90艹了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的 希望是本非洲咸鱼能拿得出3T的阵容
+
