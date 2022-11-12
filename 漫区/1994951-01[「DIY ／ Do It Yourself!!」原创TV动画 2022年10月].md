@@ -5342,3 +5342,19 @@ Do It Yourself!! ーどぅー・いっと・ゆあせるふー OP「どきどき
 
 观感顶级，十月竟然能有山、摇滚和DIY三部这么好看的，升天了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 425#       发表于 2022-11-12 16:30
+
+|◤⚙️キャラクター設定公開⚙️
+
+|  #ぷりん (cv. #市ノ瀬加那 ) ◢|||
+
+すてっぷ⑥の
+
+ぷりん水着設定を公開&amp;#x1F459;✨
+<img src="https://p.sda1.dev/8/c320e493075cabd4993969e995e8c7eb/diy_anime-1591347566104510464-img1.jpg" referrerpolicy="no-referrer">
+
