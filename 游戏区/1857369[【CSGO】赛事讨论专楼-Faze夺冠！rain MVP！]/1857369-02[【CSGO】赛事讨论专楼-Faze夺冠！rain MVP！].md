@@ -2020,3 +2020,14 @@ navi养猪场正常发挥了
 
 补了一下玩机器直播录像，去年引流来很多新人吗，除了里约其他major都有隔音房都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">esl不是从来不搞吗，也就柏林伦敦克拉科夫有吧，17年再往前就不知道了
 
+
+
+*****
+
+####  Rainwedell  
+##### 2850#       发表于 2022-11-12 14:38
+
+大家都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
