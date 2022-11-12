@@ -15386,3 +15386,19 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚看小丑回魂
 
+
+
+*****
+
+####  holoan  
+##### 2973#         楼主| 发表于 2022-11-12 20:55
+
+长达两小时半
+
+*****
+
+####  holoan  
+##### 2974#         楼主| 发表于 2022-11-12 20:57
+
+今天好几个人在收录，星街，korone，不知道是什么东西
+

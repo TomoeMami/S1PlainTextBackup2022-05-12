@@ -3089,3 +3089,16 @@ FhRnQYoaMAAXH5e.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么说 声优自己选的吗
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9246#       发表于 2022-11-12 20:52
+
+ 本帖最后由 aoaoaodedede 于 2022-11-12 20:55 编辑 
+
+可可这牌子怕不是二期没活了，找不到能拿得出手的才给整上去一期动画的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+评论倒还是些老意思了，反正从动画的角度上来看，别的角色我先不说，可可和鲤鱼这里，我是不好意思说出XX是XX那种感人的话了，个人觉得动画对可可人物的塑造是个难以抹去的疤，也确实粉碎了LL企划可能存在的那种角色与声优相互对照和映射的特点（卖点）
+

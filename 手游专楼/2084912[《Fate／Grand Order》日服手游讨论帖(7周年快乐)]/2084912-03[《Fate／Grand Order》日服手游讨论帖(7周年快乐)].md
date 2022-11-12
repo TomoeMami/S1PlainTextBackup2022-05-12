@@ -6095,3 +6095,15 @@ Screenshot_20221112-141849.png
 如果能接受一面需要补刀3万多的话不顶配勉强可以6加成，月神哪怕稍微有给队友一点buff都会好弄不少 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁那个公主月神的阵容吗
 
+
+
+*****
+
+####  yangun22  
+##### 3554#       发表于 2022-11-12 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58404270&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-12 20:51</a>
+
+隔壁那个公主月神的阵容吗</blockquote>
+是的，不过如果能借到顶配公主也能这个打，奥博隆和月神90级5宝就够了
+
