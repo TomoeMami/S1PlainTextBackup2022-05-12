@@ -236,3 +236,16 @@ steam dick 交友群：498166847
 
 想拼多多买了，看他整了个百亿补贴只要3450。就是不知道是不是现货，不然不如自己折腾
 
+
+
+*****
+
+####  魔法少女大头  
+##### 1925#       发表于 2022-11-12 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57816730&amp;ptid=2015700" target="_blank">superkin185 发表于 2022-10-8 20:48</a>
+没有啊，不仅没有涨，还降了。之前泥潭群里推荐店家现在100美金508元。</blockquote>
+求私信下地址<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
