@@ -6116,3 +6116,15 @@ Screenshot_20221112-141849.png
 
 +和++什么垃圾掉落，90本刷贝壳去了
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3556#       发表于 2022-11-12 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58404362&amp;ptid=2084912" target="_blank">yangun22 发表于 2022-11-12 20:57</a>
+
+是的，不过如果能借到顶配公主也能这个打，奥博隆和月神90级5宝就够了</blockquote>
+几个5宝才能打那不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

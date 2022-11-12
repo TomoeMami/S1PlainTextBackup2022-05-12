@@ -6091,3 +6091,15 @@ demo的存档正式版能接着用吗
 
 这游戏的负重到底跟什么挂钩啊？找半天说明没找到，我看重量的显示应该是有减负重的
 
+
+
+*****
+
+####  adw667  
+##### 2040#       发表于 2022-11-12 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58404867&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-12 21:29</a>
+
+这游戏的负重到底跟什么挂钩啊？找半天说明没找到，我看重量的显示应该是有减负重的 ...</blockquote>
+基本靠加敏捷，一般加到重量不超过40即可
+

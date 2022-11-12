@@ -961,3 +961,27 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 不可描述平台10块 ...</blockquote>
 要了几个好友位？我得清清。圣杯这种紧俏货可不能少
 
+
+
+*****
+
+####  kazemitoya  
+##### 43729#       发表于 2022-11-12 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403608&amp;ptid=1712412" target="_blank">苏沃雷生 发表于 2022-11-12 20:12</a>
+
+要了几个好友位？我得清清。圣杯这种紧俏货可不能少</blockquote>
+20个。我找两个店买的，所以腾了40个，建议去找天猫店，贵一些，但很快。非天猫的我等了1天，我等不及了，去天猫买1小时就加我了。于是，刷满应该接近2亿（非天猫的据说不会给你刷那么多，但我觉得关服我都用不完）
+
+*****
+
+####  kazemitoya  
+##### 43730#       发表于 2022-11-12 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403259&amp;ptid=1712412" target="_blank">待宵 发表于 2022-11-12 19:49</a>
+
+手还好吗？屏幕还好吗？</blockquote>
+一开始信誓旦旦！——老子要抽4800个信胜硬币，明年一年的份！
+
+抽了3000后……我决定躺平。
+
