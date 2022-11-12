@@ -890,3 +890,15 @@ syl，有一说一，月之的三餐视频2的噱头比这个大多了，结果�
 为什么管人本子不能用？</blockquote>
 质量甚至不如fanbox卖差分的一根<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 17713#       发表于 2022-11-12 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58398242&amp;ptid=1972669" target="_blank">mmbk 发表于 2022-11-12 13:49</a>
+
+质量甚至不如fanbox卖差分的一根</blockquote>
+质量这个纯看画师啊 ， 管人目前有点像以前车万那种构成吧，大量纯爱好者玩票性质的确实不说质量，你扫图都没有，但是也有一些是本来就颇有经验和名气的画师画的，那还是质量很好的。只是相比于偶像大师和FGO，虽然现在总数量比他们多，但是大部分有名的同人画师还是画这些商业大IP罢了。当然说到底所谓vtuber总数量也是很水分的，毕竟本质只是一个大类也不是一个IP，就像把比如手游全部归为一个类一样那永远会是手游倍杀其他很多倍。
+

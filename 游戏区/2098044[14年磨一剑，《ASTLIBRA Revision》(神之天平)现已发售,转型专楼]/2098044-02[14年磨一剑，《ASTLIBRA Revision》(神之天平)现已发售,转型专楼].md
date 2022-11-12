@@ -5954,3 +5954,15 @@ demo的存档正式版能接着用吗
 
 第二章打出来的图纸在哪用啊，武器店怎么不能做
 
+
+
+*****
+
+####  tatara  
+##### 2027#       发表于 2022-11-12 16:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58399850&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-12 15:58</a>
+
+第二章打出来的图纸在哪用啊，武器店怎么不能做</blockquote>
+除了第一章以外，以后每一章的图纸装备和新增装备都是在地图里的气球商店里做
+
