@@ -2157,3 +2157,13 @@ vp夺冠就是被排挤的outsiders站上舞台的中央
 现场也热闹</blockquote>
 黑豹夺冠不应该是**vp又开始吃菠菜了吗233
 
+
+
+*****
+
+####  ispep  
+##### 2862#       发表于 2022-11-13 07:19
+
+x队不敢赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看得好难受啊这样子打
+vp现在不算慢吧，看了几场都是敢打敢突的，非常流畅
+
