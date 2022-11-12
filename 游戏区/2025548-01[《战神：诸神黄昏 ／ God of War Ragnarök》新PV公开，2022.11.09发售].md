@@ -13313,3 +13313,17 @@ boy我感觉长得像鹰眼了，要是拆开按三代做，儿子再长大一�
 
 这游戏结局这段像腰斩了一样，太离谱了
 
+
+
+*****
+
+####  mimighost  
+##### 1361#       发表于 2022-11-12 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58396937&amp;ptid=2025548" target="_blank">jokertx 发表于 2022-11-12 11:48</a>
+
+我也挺喜欢铁树林这段的，那种少年少女在神话命运中的感情表达很真实，而且洛基的战斗系统真的很爽很流畅， ...</blockquote>
+洛基用弓都能近战，还能秒了老父亲
+
+简直强的没道理
+
