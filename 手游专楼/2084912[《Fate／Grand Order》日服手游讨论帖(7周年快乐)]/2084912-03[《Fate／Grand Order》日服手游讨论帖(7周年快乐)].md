@@ -6139,3 +6139,33 @@ Screenshot_20221112-141849.png
 是的，不过如果能借到顶配公主也能这个打，奥博隆和月神90级5宝就够了</blockquote>
 这个我试了，5宝百级公主一面差3w多，三宝月神二面回收差一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3558#       发表于 2022-11-12 22:58
+
+你们说的哪个隔壁？我怎么没在nga看见公主月神队伍
+
+*****
+
+####  alucardcz  
+##### 3559#       发表于 2022-11-12 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58405440&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-11-12 21:59</a>
+
+这个我试了，5宝百级公主一面差3w多，三宝月神二面回收差一点</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂不懂什么叫顶配　指１２０＋２０００＋５宝
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前有个双奥的　我找了个５宝尝试后发现完全不行　　结果被喷你这不叫顶配　必须１２０＋２０００
+
+*****
+
+####  alucardcz  
+##### 3560#       发表于 2022-11-12 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58406434&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-11-12 22:58</a>
+
+你们说的哪个隔壁？我怎么没在nga看见公主月神队伍</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能标题没写　所以你没点进去吧　　他标题没写什么阵容
+
