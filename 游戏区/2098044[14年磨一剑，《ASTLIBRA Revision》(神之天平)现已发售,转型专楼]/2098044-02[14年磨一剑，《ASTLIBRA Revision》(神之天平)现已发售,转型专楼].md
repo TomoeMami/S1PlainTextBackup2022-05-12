@@ -6169,3 +6169,16 @@ demo的存档正式版能接着用吗
 看了一眼攻略发现我第一个村子竟然还少拿两个水晶和木弓还有回避，是不是得重开了... ...</blockquote>
 地图可以 回溯，这些东西还能回去拿
 
+
+
+*****
+
+####  Rainwedell  
+##### 2047#       发表于 2022-11-13 01:31
+
+ 本帖最后由 Rainwedell 于 2022-11-13 01:34 编辑 
+
+63h全成就了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
