@@ -1979,3 +1979,22 @@ navi养猪场正常发挥了
 
 好像是这张
 
+
+
+*****
+
+####  liva  
+##### 2846#       发表于 2022-11-12 10:44
+
+肥猪滚蛋了，活该<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，瞧瞧自己那破数据
+
+*****
+
+####  帽子戏法马夏尔  
+##### 2847#       发表于 2022-11-12 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58395541&amp;ptid=1857369" target="_blank">rrtyui 发表于 2022-11-12 08:46:26</a>
+这主持人什么来头采访英语完全说不清，尬疯了</blockquote>但是西装配泳衣实在太色了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
