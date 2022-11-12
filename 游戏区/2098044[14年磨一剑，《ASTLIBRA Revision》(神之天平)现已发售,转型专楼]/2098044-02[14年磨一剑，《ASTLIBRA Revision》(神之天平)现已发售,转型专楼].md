@@ -6182,3 +6182,75 @@ demo的存档正式版能接着用吗
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  amazarashi  
+##### 2048#       发表于 2022-11-13 02:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58407644&amp;ptid=2098044" target="_blank">Raumanzug 发表于 2022-11-13 00:14</a>
+
+听说后面刷起来了没法调高难度会不够打，就进湿地前把困难调成了最高难度结果现在10级刮痧都刮不动，要不要 ...</blockquote>
+够不够打，取决于你刷得程度
+
+   
+
+   困难难度， 最终boss79w血，激光剑+70，装备盘凑满
+
+   打开狂暴以外的倍率技能。60秒内就能打死最终boss
+
+   打开狂暴更快。先毒面包醉拳再狂暴、丢凭依技时关狂暴[暗黑扣血]，30秒内切死最终boss，boss战如同割草。而小怪都是2刀切碎。
+
+强化刷的太高、困难确实不够打。
+
+*****
+
+####  Raumanzug  
+##### 2049#       发表于 2022-11-13 02:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58408816&amp;ptid=2098044" target="_blank">amazarashi 发表于 2022-11-13 02:03</a>
+
+够不够打，取决于你刷得程度
+
+   
+
+   困难难度， 最终boss79w血，激光剑+70，装备盘凑满</blockquote>
+又搜了下发现修改器能调高难度，先次高打着了。主要是现在我什么都没有就纯刮痧，刮半天三只虫子一起冲我就直接破我盾把我冲死了，想刷都刷不起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 2050#       发表于 2022-11-13 03:01
+
+ 本帖最后由 Rainwedell 于 2022-11-13 03:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58409022&amp;ptid=2098044" target="_blank">Raumanzug 发表于 2022-11-13 02:56</a>
+又搜了下发现修改器能调高难度，先次高打着了。主要是现在我什么都没有就纯刮痧，刮半天三只虫子一起冲我 ...</blockquote>
+刷的话其实新章或者后面新章前的故乡方便一些，前面高难还是比较折磨的，章章都要刷，不然刮砂
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  AeonsTorn  
+##### 2051#       发表于 2022-11-13 03:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58408816&amp;ptid=2098044" target="_blank">amazarashi 发表于 2022-11-13 02:03</a>
+
+够不够打，取决于你刷得程度
+
+   
+
+   困难难度， 最终boss79w血，激光剑+70，装备盘凑满</blockquote>
+暗黑扣血是不算伤害的，倒没有必要关狂暴
+
+*****
+
+####  amazarashi  
+##### 2052#       发表于 2022-11-13 03:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58409095&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-13 03:25</a>
+
+暗黑扣血是不算伤害的，倒没有必要关狂暴</blockquote>
+吃面包被杀过，我没试了、是我想当然了
+
