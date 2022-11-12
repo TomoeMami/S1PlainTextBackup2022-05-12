@@ -5775,3 +5775,24 @@ Screenshot_20221112-141849.png
 
 狂娜不换人5加成依然稳定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3527#       发表于 2022-11-12 17:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 这什么低难 公主直接炸过去了
+
+*****
+
+####  qixinno2  
+##### 3528#       发表于 2022-11-12 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58400821&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-12 17:06</a>
+
+新90++  213 剑本  但是第3面给你赛了个20万的枪
+
+狂娜不换人5加成依然稳定 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕有芭娜娜的人
+
