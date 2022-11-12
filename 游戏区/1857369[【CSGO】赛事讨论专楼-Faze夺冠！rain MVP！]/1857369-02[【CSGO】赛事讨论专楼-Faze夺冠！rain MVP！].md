@@ -2060,3 +2060,25 @@ X 队之前传奇组被C9干穿了，我觉得他们多半打不过黑豹
 
 —— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  fayespike  
+##### 2854#       发表于 2022-11-12 15:25
+
+抗住巴西主场的也只有点子哥了
+
+黑豹进决赛肯定夺冠啊
+
+*****
+
+####  六道仙鱼  
+##### 2855#       发表于 2022-11-12 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58399145&amp;ptid=1857369" target="_blank">andychen 发表于 2022-11-12 15:07</a>
+X 队之前传奇组被C9干穿了，我觉得他们多半打不过黑豹
+
+—— 来自 Sony XQ-AS72, Android 12上的 S1Next- ...</blockquote>
+传奇组的时候，乐状态还行，后面拉了。这两个队也都是进攻强，但我感觉x队更稳点。
+
