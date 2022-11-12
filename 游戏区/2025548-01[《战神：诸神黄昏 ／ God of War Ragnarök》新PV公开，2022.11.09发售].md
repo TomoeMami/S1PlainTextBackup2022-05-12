@@ -13226,3 +13226,16 @@ boy我感觉长得像鹰眼了，要是拆开按三代做，儿子再长大一�
 
 双刀三角怎么做的这么拉，前作攻击后停顿那下做的特别好这一代就剩个斧子
 
+
+
+*****
+
+####  Avantasi  
+##### 1354#       发表于 2022-11-12 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58392020&amp;ptid=2025548" target="_blank">chrisluvdjmax 发表于 2022-11-11 20:38</a>
+为什么我觉得铁森林这段还行啊。昨天看quin直播回放下面的评论，一边倒的恶心这段剧情还有说排雷了可以不玩 ...</blockquote>
+所有有名有姓的主播的主力观众都是云玩家，一般主播三言两语就跟着叫了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
