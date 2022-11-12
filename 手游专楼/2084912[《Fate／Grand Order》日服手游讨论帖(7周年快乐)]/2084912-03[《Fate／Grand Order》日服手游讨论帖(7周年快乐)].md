@@ -5707,3 +5707,12 @@ S1的FGO新群号是啥？求，之前的群炸了，找不到组织了
 
 我才2池半，比咸鱼你们还是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  quanlix  
+##### 3521#       发表于 2022-11-12 13:01
+
+决战服终于满级了
+
