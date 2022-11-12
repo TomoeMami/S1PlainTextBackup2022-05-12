@@ -903,3 +903,13 @@ C闪打90的杀阶本还是可以的吧</blockquote>
 
 三令咒复活，打bgo我就是芥雏子呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Blackson  
+##### 43724#       发表于 2022-11-12 11:11
+
+总算是靠这次减半把开强化&amp;幕间的英灵喂起来了，还剩三四百个五星狗粮，点得我都快受不了（太闷）
+  接下来就剩出云阿国和通古斯的太公望比较正中我心
+
