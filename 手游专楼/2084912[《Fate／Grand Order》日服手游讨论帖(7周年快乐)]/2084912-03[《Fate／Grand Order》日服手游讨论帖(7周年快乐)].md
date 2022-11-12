@@ -6002,3 +6002,12 @@ Screenshot_20221112-141849.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡游戏９０级５宝都不到６加成稳定３ｔ　　算了不试了
 
+
+
+*****
+
+####  yangun22  
+##### 3546#       发表于 2022-11-12 19:06
+
+6加成伤害不够，5加成的话倒是司马懿或者孔明居然派上用场了
+
