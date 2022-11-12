@@ -5796,3 +5796,12 @@ Screenshot_20221112-141849.png
 狂娜不换人5加成依然稳定 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕有芭娜娜的人
 
+
+
+*****
+
+####  alucardcz  
+##### 3529#       发表于 2022-11-12 17:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有人算算蓝字23万等于打红字多少？
+

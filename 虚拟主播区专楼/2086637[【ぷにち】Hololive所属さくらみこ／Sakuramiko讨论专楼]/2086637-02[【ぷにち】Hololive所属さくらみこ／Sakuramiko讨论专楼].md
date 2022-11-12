@@ -15368,3 +15368,12 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 宣传VARK27号的live而已
 
+
+
+*****
+
+####  rs5621  
+##### 2971#       发表于 2022-11-12 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都快忘了同步试听的事了，今晚不知道有没有
+
