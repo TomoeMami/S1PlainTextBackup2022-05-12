@@ -5764,3 +5764,14 @@ Screenshot_20221112-141849.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要5加成随便换。懒得追求五加成了
 
+
+
+*****
+
+####  alucardcz  
+##### 3526#       发表于 2022-11-12 17:06
+
+新90++  213 剑本  但是第3面给你赛了个20万的枪
+
+狂娜不换人5加成依然稳定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
