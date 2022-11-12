@@ -140,3 +140,15 @@ WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmed
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">活动商店怎么追加了新的东西了啊，之前全去换钱了又要刷...
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 106#         楼主| 发表于 2022-11-12 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58396943&amp;ptid=2101146" target="_blank">MEKA 发表于 2022-11-12 11:48</a>
+
+活动商店怎么追加了新的东西了啊，之前全去换钱了又要刷...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手游活动一般不都要分两半开的吗，常规操作啊。不过换了也没事，反正这活动刷起来很快
+
