@@ -9149,3 +9149,18 @@ Jia you a xiao ma
 
  狛犬うめ =  勇者ゆい(BitaSui)
 
+
+
+*****
+
+####  往世雷书  
+##### 12868#       发表于 2022-11-13 07:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58406014&amp;ptid=2018830" target="_blank">TiHaru 发表于 2022-11-12 22:31</a>
+ルイズ・プリエール = しゅに(BitaSui)
+
+ 狛犬うめ =  勇者ゆい(BitaSui)</blockquote>
+这什么，在哪出道了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
