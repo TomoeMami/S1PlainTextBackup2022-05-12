@@ -6053,3 +6053,15 @@ Screenshot_20221112-141849.png
 
 全部90级不用顶配不用倍卡，但是需要用1张这次池子抽的五星礼装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3550#       发表于 2022-11-12 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403503&amp;ptid=2084912" target="_blank">yangun22 发表于 2022-11-12 20:05</a>
+
+全部90级不用顶配不用倍卡，但是需要用1张这次池子抽的五星礼装</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可这本质也是５加成啊
+

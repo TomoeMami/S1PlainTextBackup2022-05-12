@@ -446,3 +446,17 @@ C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  风鸣弦十郎  
+##### 17209#       发表于 2022-11-12 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403154&amp;ptid=1158205" target="_blank">poor 发表于 2022-11-12 19:42</a>
+
+虽然现在才问，150 35-20中间的立即满豆是什么条件触发？感觉有时不会出来。一般是怎么处理的？
+
+—— 来自 ...</blockquote>
+看起来像进OD触发
+

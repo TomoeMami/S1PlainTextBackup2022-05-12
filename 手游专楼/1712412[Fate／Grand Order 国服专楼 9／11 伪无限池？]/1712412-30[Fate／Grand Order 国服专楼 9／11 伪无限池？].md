@@ -947,3 +947,17 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 邪马台完了之后就可以抽太公望了？ 
 
+
+
+*****
+
+####  苏沃雷生  
+##### 43728#       发表于 2022-11-12 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401627&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-12 17:59</a>
+
+fgo让我领悟了一个人生真理——友情可以换到很多东西，但同时友情也是最不值钱的东西。
+
+不可描述平台10块 ...</blockquote>
+要了几个好友位？我得清清。圣杯这种紧俏货可不能少
+
