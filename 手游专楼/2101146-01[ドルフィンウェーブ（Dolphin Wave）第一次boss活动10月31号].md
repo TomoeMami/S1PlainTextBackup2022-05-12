@@ -122,3 +122,12 @@ WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmed
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 104#         楼主| 发表于 2022-11-12 11:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没什么意义的淘汰赛，咸鱼不打也没事
+

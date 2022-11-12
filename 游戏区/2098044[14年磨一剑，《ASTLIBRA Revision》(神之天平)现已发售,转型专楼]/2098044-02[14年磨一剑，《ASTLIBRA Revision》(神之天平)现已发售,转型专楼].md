@@ -5846,3 +5846,12 @@ https://twitter.com/shigatake/status/1590282411455426560</blockquote>
 新章打了一大半才 ...</blockquote>
 这个是加100+魔攻/5的攻击，而大概5攻加一伤。不过这个要配爆发使用的，一管1200体力叠召唤秘密及双倍能有+个2～3k攻（不猛刷也就5k攻，能加一半dps呢），虽然跟风精灵没法比但也不算很少了。
 
+
+
+*****
+
+####  電子器官依存  
+##### 2016#       发表于 2022-11-12 11:36
+
+风精灵效果太强了以至于后期刷的动机都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
