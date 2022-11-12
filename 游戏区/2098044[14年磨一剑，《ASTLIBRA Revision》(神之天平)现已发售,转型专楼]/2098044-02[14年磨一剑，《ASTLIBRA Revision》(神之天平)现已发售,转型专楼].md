@@ -6082,3 +6082,12 @@ demo的存档正式版能接着用吗
 面包妹和伯灵的故事，可以去作者官网免费下</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 原来是这样 我还去看眼 steam 发现并没有
 
+
+
+*****
+
+####  Quelaan  
+##### 2039#       发表于 2022-11-12 21:29
+
+这游戏的负重到底跟什么挂钩啊？找半天说明没找到，我看重量的显示应该是有减负重的
+
