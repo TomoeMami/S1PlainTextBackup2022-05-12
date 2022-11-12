@@ -10318,3 +10318,22 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 忘了投稿截止时间，只好sc问了  原来最喜欢的是泳装这套XD
 
+
+
+*****
+
+####  ladiesman802  
+##### 2590#       发表于 2022-11-12 21:33
+
+画画环节让我犯困，算是脱敏成功了，黑听音响厂公的选曲，不得不说bgm选得真好
+
+*****
+
+####  喜闻乐见  
+##### 2591#         楼主| 发表于 2022-11-12 21:36
+
+ 本帖最后由 喜闻乐见 于 2022-11-12 21:38 编辑 
+
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h82o7q841yj20y40kl7r5.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h82o9eq6crj20p50dzqdu.jpg" referrerpolicy="no-referrer">
+

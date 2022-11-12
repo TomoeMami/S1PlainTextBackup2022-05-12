@@ -460,3 +460,16 @@ C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死
 —— 来自 ...</blockquote>
 看起来像进OD触发
 
+
+
+*****
+
+####  poor  
+##### 17210#       发表于 2022-11-12 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403613&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2022-11-12 20:12</a>
+看起来像进OD触发</blockquote>
+算了，还是摆烂喂药吧<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
