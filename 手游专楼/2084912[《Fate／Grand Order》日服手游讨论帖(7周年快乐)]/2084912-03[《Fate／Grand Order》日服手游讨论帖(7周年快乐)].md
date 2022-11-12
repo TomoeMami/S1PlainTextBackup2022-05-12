@@ -5963,3 +5963,17 @@ Screenshot_20221112-141849.png
 
 蹄铁，胎毛，打你马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3543#       发表于 2022-11-12 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58401947&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-11-12 18:23</a>
+
+我一个天天按着2.6喷的死黑子
+
+我咋可能有顶配奥伯龙</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事了　试了下５宝奥师傅伤害完全不够　还得１２０＋２０００　可以说根本不存在了
+
