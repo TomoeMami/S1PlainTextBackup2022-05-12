@@ -13527,3 +13527,35 @@ boy我感觉长得像鹰眼了，要是拆开按三代做，儿子再长大一�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ff2077  
+##### 1381#       发表于 2022-11-12 23:56
+
+ 本帖最后由 ff2077 于 2022-11-12 23:57 编辑 
+
+铁森林过了，感觉没那么拉跨啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">前面无聊的摘果子什么的确实拖了点，结尾的赛跑不就是想安抚尼妹吗，这有啥不能理解的。这边想讲的东西也挺明确的
+
+*****
+
+####  hotsmile  
+##### 1382#       发表于 2022-11-12 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58407200&amp;ptid=2025548" target="_blank">Avaleeon3 发表于 2022-11-12 23:41</a>
+
+这尼玛S1吹的恶心心 你们只管打打打不管剧情的是吧？就这瞎比剧情都有人感动的屎尿齐流是让人没想到的 当初 ...</blockquote>
+就是恶心你咋地？不爽啊？不爽就滚,1个KY怪在这叫叫嚷嚷比那XBZZ还恶劣几十倍
+
+*****
+
+####  415452356  
+##### 1383#       发表于 2022-11-12 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58407406&amp;ptid=2025548" target="_blank">ff2077 发表于 2022-11-12 23:56</a>
+铁森林过了，感觉没那么拉跨啊前面无聊的摘果子什么的确实拖了点，结尾的赛跑不就是想安抚尼妹吗， ...</blockquote>
+  这个尼妹除了太丑其实人物性格还挺符合她的设定，但我还是觉得她很烦<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
