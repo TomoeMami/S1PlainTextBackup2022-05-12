@@ -6060,3 +6060,25 @@ demo的存档正式版能接着用吗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/239.png" referrerpolicy="no-referrer"> 外传是啥 外传不是新章吗
 
+
+
+*****
+
+####  quanlix  
+##### 2037#       发表于 2022-11-12 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403548&amp;ptid=2098044" target="_blank">御坂MKII 发表于 2022-11-12 20:09</a>
+
+外传是啥 外传不是新章吗</blockquote>
+面包妹和伯灵的故事，可以去作者官网免费下
+
+*****
+
+####  御坂MKII  
+##### 2038#       发表于 2022-11-12 20:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58403801&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-11-12 20:23</a>
+
+面包妹和伯灵的故事，可以去作者官网免费下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 原来是这样 我还去看眼 steam 发现并没有
+

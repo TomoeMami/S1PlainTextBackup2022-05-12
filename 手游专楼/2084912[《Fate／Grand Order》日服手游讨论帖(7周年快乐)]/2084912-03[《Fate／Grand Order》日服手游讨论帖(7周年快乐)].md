@@ -6065,3 +6065,14 @@ Screenshot_20221112-141849.png
 全部90级不用顶配不用倍卡，但是需要用1张这次池子抽的五星礼装</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可这本质也是５加成啊
 
+
+
+*****
+
+####  風卷豹  
+##### 3551#       发表于 2022-11-12 20:24
+
+90艹本都膨胀成这样了，该改改无限池内容了吧，不然效率比极本还低好多
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
