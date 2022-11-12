@@ -6116,3 +6116,28 @@ demo的存档正式版能接着用吗
 后面装备还可以盾牌重量变0的嘉荣天赋
 敏捷点高 不过后面基础敏捷高了就不用点那么多了 
 
+
+
+*****
+
+####  adretyu67  
+##### 2042#       发表于 2022-11-12 22:03
+
+ 本帖最后由 adretyu67 于 2022-11-12 22:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58404867&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-12 21:29</a>
+
+这游戏的负重到底跟什么挂钩啊？找半天说明没找到，我看重量的显示应该是有减负重的 ...</blockquote>
+负重=武器重量+盾牌重量再扣敏捷的一个值。
+
+新章里老版本后面几章的传奇武器如果插了板子很容易超重导致拿不动。
+
+*****
+
+####  quanlix  
+##### 2043#       发表于 2022-11-12 22:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58404867&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-12 21:29</a>
+
+这游戏的负重到底跟什么挂钩啊？找半天说明没找到，我看重量的显示应该是有减负重的 ...</blockquote>
+（武器重量+盾重量-敏捷）x天平的重量减轻修正，减重的三挡效果分别是0.9，0.85，0.8，同时发动乘算
+
