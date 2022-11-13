@@ -6274,3 +6274,20 @@ demo的存档正式版能接着用吗
 
 另外有没有全成就保姆攻略和中文wiki什么的？
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2055#       发表于 2022-11-13 17:37
+
+<img src="https://img.saraba1st.com/forum/202211/13/173703azrdgvcc0vxvxz7v.png" referrerpolicy="no-referrer">
+
+<strong>屏幕截图(1795).png</strong> (206.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-13 17:37 上传
+
+这第二章沼泽洞窟这个宝箱怎么拿
+

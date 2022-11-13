@@ -13909,3 +13909,32 @@ S1现在是狗叔的 未来也是狗叔的 但是归根结底不是你的 ...</b
 
 —— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  415452356  
+##### 1418#       发表于 2022-11-13 17:36
+
+  这次基本用不上锁定，要是主线多一点华纳海姆和火山挑战那些高低差明显当半个doom玩的地形会更爽
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Mikumiku831  
+##### 1419#       发表于 2022-11-13 17:39
+
+华纳海姆后期还直接开一个支线大地图也太哈人了 想冲主线又舍不得这个支线 一小时了感觉一半都没做完
+
+*****
+
+####  415452356  
+##### 1420#       发表于 2022-11-13 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58416103&amp;ptid=2025548" target="_blank">Mikumiku831 发表于 2022-11-13 17:39</a>
+华纳海姆后期还直接开一个支线大地图也太哈人了 想冲主线又舍不得这个支线 一小时了感觉一半都没做完 ...</blockquote>
+  这一个地区比主线完成度还高
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
