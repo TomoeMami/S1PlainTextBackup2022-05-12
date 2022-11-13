@@ -1386,3 +1386,12 @@ CB和皇帝的粉丝水火不容，从当年斗到现在。cy选了皇帝，那C
 
 只要我把脸涂黑，我就可以不画细节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  klzxs  
+##### 126#       发表于 2022-11-14 00:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">漫画的三强，三人有三种不同的魔王风格，挺有趣的
+
