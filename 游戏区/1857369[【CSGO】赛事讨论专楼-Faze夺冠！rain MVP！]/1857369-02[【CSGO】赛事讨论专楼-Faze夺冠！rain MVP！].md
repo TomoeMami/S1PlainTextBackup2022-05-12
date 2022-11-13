@@ -2226,3 +2226,30 @@ nice！加油加油，还有一把
 
 黑豹一步之遥，遗迹最后两分没打好太可惜了，这nuke没法打了
 
+
+
+*****
+
+####  反方向的波  
+##### 2870#       发表于 2022-11-13 09:22
+
+黑豹好像打不来nuke啊
+
+*****
+
+####  六道仙鱼  
+##### 2871#       发表于 2022-11-13 09:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58409829&amp;ptid=1857369" target="_blank">我爱撩菜 发表于 2022-11-13 08:59</a>
+哇，第一次看CSGO比赛直播。现场这么high的吗，完全不隔音，还这么近。</blockquote>
+隔音房，我记忆里确实是没有的次数多一点，不过这次观众确实离选手有点近了。
+
+*****
+
+####  dev2ce  
+##### 2872#       发表于 2022-11-13 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58409829&amp;ptid=1857369" target="_blank">我爱撩菜 发表于 2022-11-13 08:59</a>
+哇，第一次看CSGO比赛直播。现场这么high的吗，完全不隔音，还这么近。</blockquote>
+实际上大部分都是没有隔音房的，18届major只有五届有好像
+
