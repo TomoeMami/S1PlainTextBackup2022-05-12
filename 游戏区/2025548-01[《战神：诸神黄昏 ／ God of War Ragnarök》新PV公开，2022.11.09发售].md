@@ -14157,3 +14157,15 @@ S1现在是狗叔的 未来也是狗叔的 但是归根结底不是你的 ...</b
 
 编剧连蓝精灵这种搞笑系角色都要发便当，有点不讲武德
 
+
+
+*****
+
+####  赤井稻妻  
+##### 1443#       发表于 2022-11-14 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58422737&amp;ptid=2025548" target="_blank">Mikumiku831 发表于 2022-11-14 01:21</a>
+
+用长枪经常把别人打低一等级 不知道是啥效果</blockquote>
+r2长按把对方身上的毒属性吸了，然后长枪攻击上属性非常快，毒的效果就是降级
+
