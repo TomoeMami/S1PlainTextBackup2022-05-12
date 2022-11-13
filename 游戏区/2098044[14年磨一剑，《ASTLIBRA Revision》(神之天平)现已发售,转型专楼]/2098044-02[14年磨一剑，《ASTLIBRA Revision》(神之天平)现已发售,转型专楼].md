@@ -6504,3 +6504,35 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 我打到第四章，目前遇到过两次那个魔法师小鬼，第一次被秒，第四章白花前他又来了，这次和他缠 ...</blockquote>
 没好处。不影响剧情。
 
+
+
+*****
+
+####  cc-2  
+##### 2076#       发表于 2022-11-13 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58421666&amp;ptid=2098044" target="_blank">5353 发表于 2022-11-13 23:40</a>
+
+没好处。不影响剧情。</blockquote>
+好的，那我就不折腾了
+
+*****
+
+####  電子器官依存  
+##### 2077#       发表于 2022-11-13 23:55
+
+ 本帖最后由 電子器官依存 于 2022-11-13 23:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58421253&amp;ptid=2098044" target="_blank">北欧王座 发表于 2022-11-13 23:10</a>
+
+他这幸运跟素材爆率是挂钩的吧，还有没写明的东西，我加点都乱加的，这幸运有用么 ...</blockquote>
+没必要专门去点幸运，幸运影响一切掉落（素材，金币，经验值），不过基本只在素材上有稍显着的效果。前期没什么点数去给分给他，中期以后就有增加素材掉率的嘉隆可以点了。
+
+推荐先点够敏捷让重量到0，再加血量到自己觉得合适的容错度，再根据玩法点攻击或魔导力
+
+*****
+
+####  電子器官依存  
+##### 2078#       发表于 2022-11-13 23:55
+
+<blockquote>风怒</blockquote>
+
