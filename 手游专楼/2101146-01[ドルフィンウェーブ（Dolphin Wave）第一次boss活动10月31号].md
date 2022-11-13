@@ -178,3 +178,14 @@ WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmed
 
 —— 来自 OnePlus ONEPLUS A6010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  孫光龍  
+##### 109#       发表于 2022-11-13 20:53
+
+养成资源虽然多，但是感觉只要每属性拉出一两个差不多的战力以后基本就能通吃了
+
+不知道后面会不会出新的机制啥的
+
