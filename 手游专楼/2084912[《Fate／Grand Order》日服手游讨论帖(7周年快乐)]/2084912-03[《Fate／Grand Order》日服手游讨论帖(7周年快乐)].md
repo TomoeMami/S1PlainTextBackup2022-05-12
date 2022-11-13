@@ -6219,3 +6219,15 @@ Screenshot_20221112-141849.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天依然是超低难
 
+
+
+*****
+
+####  qixinno2  
+##### 3566#       发表于 2022-11-13 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58416570&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-13 18:02</a>
+
+今天依然是超低难 甚至都不知道有什么特殊机制</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无敌 这就是大佬么 我翻车了两次用了两发令咒才过
+
