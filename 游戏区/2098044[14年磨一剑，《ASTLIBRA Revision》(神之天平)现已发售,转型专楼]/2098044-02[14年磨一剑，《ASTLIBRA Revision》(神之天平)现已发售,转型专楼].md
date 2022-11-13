@@ -6583,3 +6583,24 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 
 全成就了，其实剧情放到今天就还行的程度，没法细究，但好就好在节奏推进恰到好处，牛批
 
+
+
+*****
+
+####  ぽんぽこ仮面  
+##### 2084#       发表于 2022-11-14 01:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58422663&amp;ptid=2098044" target="_blank">liyropen 发表于 2022-11-14 01:10</a>
+
+提示：用投掷物
+
+— from Xiaomi Redmi K20 Pro, Android 12 of S1 Next Goose v2.5.4</blockquote>
+草，太感谢了！坛友拯救了一个人的晚上<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">从来没用过这玩意所以完全没想到是它
+
+*****
+
+####  哈之分舍瓦  
+##### 2085#       发表于 2022-11-14 01:19
+
+嘉农除了抹除还有啥好用的消弹幕技能嘛？地狱开荒刚过四勇者，被法爷弓兵压的满头包，不知道后面还有没有这么恶心的boss战，终章机器人杂兵弹幕也恶心但可以跑酷，boss战就打得头皮发麻
+
