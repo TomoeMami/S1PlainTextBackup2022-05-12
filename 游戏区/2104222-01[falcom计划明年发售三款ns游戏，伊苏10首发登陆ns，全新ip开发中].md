@@ -814,3 +814,12 @@ https://www.bilibili.com/video/BV1mW4y1s7Zy/ 52分39秒开始，但&amp;# ...</b
 [https://www.bilibili.com/video/BV1JA411h7Lq/](https://www.bilibili.com/video/BV1JA411h7Lq/)
 [https://www.bilibili.com/video/BV1AV4y1s7tJ/](https://www.bilibili.com/video/BV1AV4y1s7tJ/)
 
+
+
+*****
+
+####  liwangli1983  
+##### 84#       发表于 2022-11-13 14:40
+
+黎轨在ps4/ps5上差距明显，不敢想放到ns是啥效果
+
