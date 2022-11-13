@@ -13789,3 +13789,14 @@ S1现在是狗叔的 未来也是狗叔的 但是归根结底不是你的 ...</b
 
 解谜没什么难度啊 转一圈都能看到咋弄了
 
+
+
+*****
+
+####  ——啧  
+##### 1406#       发表于 2022-11-13 12:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58411450&amp;ptid=2025548" target="_blank">rainsheep 发表于 2022-11-13 11:41</a>
+有，很稳，不过有时候贴图加载赶不上</blockquote>
+感谢，那可以等咸鱼盘了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
