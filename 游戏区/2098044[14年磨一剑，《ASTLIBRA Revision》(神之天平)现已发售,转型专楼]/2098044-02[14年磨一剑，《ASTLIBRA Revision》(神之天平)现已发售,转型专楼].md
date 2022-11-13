@@ -6604,3 +6604,15 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 
 嘉农除了抹除还有啥好用的消弹幕技能嘛？地狱开荒刚过四勇者，被法爷弓兵压的满头包，不知道后面还有没有这么恶心的boss战，终章机器人杂兵弹幕也恶心但可以跑酷，boss战就打得头皮发麻
 
+
+
+*****
+
+####  電子器官依存  
+##### 2086#       发表于 2022-11-14 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58422722&amp;ptid=2098044" target="_blank">哈之分舍瓦 发表于 2022-11-14 01:19</a>
+
+嘉农除了抹除还有啥好用的消弹幕技能嘛？地狱开荒刚过四勇者，被法爷弓兵压的满头包，不知道后面还有没有这 ...</blockquote>
+直接用能量吸收，应该算是抹除全面的上位替代
+
