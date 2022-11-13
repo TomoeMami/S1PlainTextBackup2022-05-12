@@ -715,3 +715,34 @@ falcom有那个能力让新作上ns吗？
 伊苏10的主美是刚入社4个月的新人：</blockquote>
 求问这个出处是哪里
 
+
+
+*****
+
+####  rbf1993  
+##### 77#       发表于 2022-11-13 13:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58381787&amp;ptid=2104222" target="_blank">ky怪 发表于 2022-11-11 07:26</a>
+稳中向好</blockquote>
+法老控怎么还有授权部门啊<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">是指授权给其他厂做氪金手游的收入？
+
+*****
+
+####  ppa11  
+##### 78#       发表于 2022-11-13 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58376466&amp;ptid=2104222" target="_blank">卢迪克 发表于 2022-11-10 20:30</a>
+
+股东大会上近藤表示ps市场日见萎缩还有纸媒衰退，必须要增加多平台支持，Steam版主要是海外玩家在买所以优 ...</blockquote>
+虽然但是，电击PS不是20年初就停了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ppa11  
+##### 79#       发表于 2022-11-13 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58412983&amp;ptid=2104222" target="_blank">rbf1993 发表于 2022-11-13 13:53</a>
+
+法老控怎么还有授权部门啊是指授权给其他厂做氪金手游的收入？</blockquote>
+我印象中把游戏拿给日本一等其他公司移植到NS的收入，也算授权
+
