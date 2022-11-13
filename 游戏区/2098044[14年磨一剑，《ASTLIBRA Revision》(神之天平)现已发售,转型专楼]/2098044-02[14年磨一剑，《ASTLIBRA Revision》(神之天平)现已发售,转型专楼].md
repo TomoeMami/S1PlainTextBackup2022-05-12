@@ -6305,3 +6305,38 @@ demo的存档正式版能接着用吗
 
 第4章桥的宝箱，城镇魔女小屋里的门也需要这个石板，你到时候就知道了。
 
+
+
+*****
+
+####  Rainwedell  
+##### 2057#       发表于 2022-11-13 18:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58415757&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-11-13 17:22</a>
+刚开坑，我看全成就要困难难度起？一周目初见选困难游玩会有障碍吗？
+
+另外有没有全成就保姆攻略和中文wiki ...</blockquote>
+个人体感要每章武器的精通还是要刷一下的，不过也没有多坐牢，游戏中段刷了也挺刮的，后面就完全无双了。攻略的话b站直接搜神之天平，有个up做了专栏，不够保姆，但够用了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  kikka  
+##### 2058#       发表于 2022-11-13 18:48
+
+合成睡眠药的药草哪里刷？回故乡平原怎么刷都没出<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  電子器官依存  
+##### 2059#       发表于 2022-11-13 18:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58415757&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-11-13 17:22</a>
+刚开坑，我看全成就要困难难度起？一周目初见选困难游玩会有障碍吗？
+
+另外有没有全成就保姆攻略和中文wiki ...</blockquote>
+体感上要体验全部内容（指每章前全通竞技场，每章boss前装备熟练度全刷）的话困难难度刚刚好，当然是进新章有了新机制装备强化和装备盘之前
+
