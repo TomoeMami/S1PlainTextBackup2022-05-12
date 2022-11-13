@@ -5472,3 +5472,12 @@ self：什么？在想我的事？<img src="https://static.saraba1st.com/image/s
 https://mobile.twitter.com/maro_muchi/status/1591420222522941441</blockquote>
 “眼睛都快瞪出来了”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CharlieZ-  
+##### 433#       发表于 2022-11-13 15:40
+
+才发现这番第一话评分才67，不至于啊，不和n站观众口味？后续评分变好了吗
+
