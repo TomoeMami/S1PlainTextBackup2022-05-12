@@ -777,3 +777,15 @@ falcom有那个能力让新作上ns吗？
 
 2022-11-13 14:04 上传
 
+
+
+*****
+
+####  酷乐  
+##### 82#       发表于 2022-11-13 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58413061&amp;ptid=2104222" target="_blank">haze.l 发表于 2022-11-13 14:02</a>
+
+https://www.bilibili.com/video/BV1mW4y1s7Zy/ 52分39秒开始，但&amp;# ...</blockquote>
+谢谢，我只在twitter上看的一张图，没有上下文理解错了
+
