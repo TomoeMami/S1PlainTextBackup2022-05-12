@@ -106,3 +106,14 @@ library genesis有多个镜像，不会像zlib这种商业网站一样成为单�
 https://z-lib.is/</blockquote>
 一眼钓鱼网站。
 
+
+
+*****
+
+####  koemi  
+##### 266#       发表于 2022-11-13 23:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">那个钓鱼网站我下午还点了他们那个桌面程序的下载链接 不过没有下载到任何文件
+
+应该不会有问题吧
+
