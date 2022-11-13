@@ -5461,3 +5461,14 @@ self：什么？在想我的事？<img src="https://static.saraba1st.com/image/s
 
 好硬的嘴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过傲娇还是可以
 
+
+
+*****
+
+####  隼雷  
+##### 432#       发表于 2022-11-13 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58412498&amp;ptid=1994951" target="_blank">MONSTERS 发表于 2022-11-13 13:12</a>
+https://mobile.twitter.com/maro_muchi/status/1591420222522941441</blockquote>
+“眼睛都快瞪出来了”<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
