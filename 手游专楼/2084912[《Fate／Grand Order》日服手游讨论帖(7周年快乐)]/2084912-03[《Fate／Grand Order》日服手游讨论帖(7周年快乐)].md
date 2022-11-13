@@ -6274,3 +6274,15 @@ Screenshot_20221112-141849.png
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3571#       发表于 2022-11-13 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58417664&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-11-13 19:08</a>
+
+我就遇到过了，无敌本身就&amp;# ...</blockquote>
+那按理说是不是该找个对策<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
