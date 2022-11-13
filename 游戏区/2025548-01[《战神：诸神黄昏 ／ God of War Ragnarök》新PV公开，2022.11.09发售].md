@@ -13718,3 +13718,25 @@ S1现在是狗叔的 未来也是狗叔的 但是归根结底不是你的 ...</b
 
 五哥给了战斗两分评价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，前作做的好的地方在这一作居然还倒退了，结合前阵子制作组每周放出的采访没有一个前作的主创人员，我猜可能都是整新IP去了
 
+
+
+*****
+
+####  415452356  
+##### 1399#       发表于 2022-11-13 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58409858&amp;ptid=2025548" target="_blank">性兽阿怪 发表于 2022-11-13 09:02</a>
+五哥给了战斗两分评价，前作做的好的地方在这一作居然还倒退了，结合前阵子制作组每周放出的采访没 ...</blockquote>
+  前作最大的问题类似贝姐3，没有合适的敌人和他整个战斗系统配套，而且他自身把过多的东西做成符文技能也限制了很多战斗时候的发挥，所以实际上玩的时候巴不得都在打亡灵战士，这次把很多本来就应该做成招式的技能给塞到了武器招式里面肯定是正确的方向，加上这次敌人硬直花样意外的还挺多，打的就是进攻压制和适当的控场，把敌人全部打成乒乓球。
+  这作最大的问题还是精英怪和小兵之间混在一起会让场面略显混乱，像火山挑战就很明显，但是杂兵战是真的够爽
+  
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ——啧  
+##### 1400#       发表于 2022-11-13 11:05
+
+借楼问下SLIM玩5能有30帧吗，实在不想为了5买个PS65<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
