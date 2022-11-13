@@ -5493,3 +5493,27 @@ https://mobile.twitter.com/maro_muchi/status/1591420222522941441</blockquote>
 才发现这番第一话评分才67，不至于啊，不和n站观众口味？后续评分变好了吗 ...</blockquote>
 <img src="https://p.sda1.dev/8/d3d42a8baf5e5ea2f4390b55bad49cec/2022-11-13-1551_51.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 435#       发表于 2022-11-13 16:06
+
+<blockquote>「Do It Your Radio!!」
+
+~ダイエットなんて 一生 やらない!!!!!~
+
+第3回配信開始&amp;#x1F527;
+
+ゲストにたくみ役の
+
+#和氣あず未 さんをお迎えしてします‼
+
+今回はOPとEDのRemix版をお届け&amp;#x1F3B5;
+
+パーソナリティの #稲垣好 さんと二人で
+
+トンカチ&amp;#x1F528;に挑戦✨</blockquote>
+这周的「Do It Your Radio!!」第 3 回可以听到 OP 和 ED 的 Remix 版，第 4 回的嘉宾是给小己妈妈献声的井上喜久子
+

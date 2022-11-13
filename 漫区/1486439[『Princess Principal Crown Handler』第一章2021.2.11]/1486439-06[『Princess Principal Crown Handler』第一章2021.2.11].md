@@ -5769,3 +5769,19 @@ sp1的熟肉，这是收买底层人民的民心吗<img src="https://static.sara
 
 <img src="https://p.sda1.dev/8/196294b080252c82834a840a7b8b2ec4/20221111_182646.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 7998#       发表于 2022-11-13 16:10
+
+「プリンセス・プリンシパル Crown Handler」第3章2023年4月7日(金）にて 公開決定！
+
+王位継承の行方、暗躍する者たち、チーム白鳩に迫る最大の危機。葛藤の第 3 章！！
+
+少女たちは世界に翻弄される――。
+
+◆本予告はこちらから！
+[https://youtu.be/Ryvkmlf3Bno](https://youtu.be/Ryvkmlf3Bno)
+
