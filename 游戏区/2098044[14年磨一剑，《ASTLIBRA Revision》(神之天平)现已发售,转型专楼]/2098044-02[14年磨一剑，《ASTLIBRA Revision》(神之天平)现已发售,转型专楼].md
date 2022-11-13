@@ -6340,3 +6340,28 @@ demo的存档正式版能接着用吗
 另外有没有全成就保姆攻略和中文wiki ...</blockquote>
 体感上要体验全部内容（指每章前全通竞技场，每章boss前装备熟练度全刷）的话困难难度刚刚好，当然是进新章有了新机制装备强化和装备盘之前
 
+
+
+*****
+
+####  syndrome2032  
+##### 2060#       发表于 2022-11-13 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58417340&amp;ptid=2098044" target="_blank">kikka 发表于 2022-11-13 18:48</a>
+合成睡眠药的药草哪里刷？回故乡平原怎么刷都没出
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1 ...</blockquote>
+到剧情后去来的路上会强制boss战，打死了给。
+
+*****
+
+####  5353  
+##### 2061#       发表于 2022-11-13 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58417340&amp;ptid=2098044" target="_blank">kikka 发表于 2022-11-13 18:48</a>
+
+合成睡眠药的药草哪里刷？回故乡平原怎么刷都没出
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 S1 ...</blockquote>
+一直往右走,触发剧情boss,打过就会掉.
+

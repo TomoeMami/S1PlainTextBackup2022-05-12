@@ -6231,3 +6231,22 @@ Screenshot_20221112-141849.png
 今天依然是超低难 甚至都不知道有什么特殊机制</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无敌 这就是大佬么 我翻车了两次用了两发令咒才过
 
+
+
+*****
+
+####  khxooo  
+##### 3567#       发表于 2022-11-13 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58416570&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-13 18:02</a>
+
+今天依然是超低难 甚至都不知道有什么特殊机制</blockquote>
+特殊的也就是马斯根据我方的灼烧给战续。
+
+*****
+
+####  DARKGRAY  
+##### 3568#       发表于 2022-11-13 18:58
+
+对面真有个无敌技能，但好像没看见有人中过招<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
