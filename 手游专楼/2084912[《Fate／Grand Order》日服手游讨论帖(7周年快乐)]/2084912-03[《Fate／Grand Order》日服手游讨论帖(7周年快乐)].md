@@ -6348,3 +6348,17 @@ Screenshot_20221112-141849.png
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alucardcz  
+##### 3578#       发表于 2022-11-13 22:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58420085&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2022-11-13 21:50</a>
+
+能解自己的解不了马嘶身上的啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次我甚至都没点开看过对面的技能 
+

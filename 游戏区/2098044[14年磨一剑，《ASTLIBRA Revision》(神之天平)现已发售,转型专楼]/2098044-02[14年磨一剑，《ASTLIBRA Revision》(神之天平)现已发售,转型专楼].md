@@ -6419,3 +6419,36 @@ demo的存档正式版能接着用吗
 凭依技能精通有什么用呀</blockquote>
 降低mp消耗
 
+
+
+*****
+
+####  tsubaki  
+##### 2068#       发表于 2022-11-13 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58419651&amp;ptid=2098044" target="_blank">北欧王座 发表于 2022-11-13 21:19</a>
+
+重量是到达固定值才有负面效果还是每增加一点重量就会有一点影响</blockquote>
+超出就有影响。数量超过40后减速很明显，前期敏捷稍微加点 ，到可以打隐藏拿神武后敏捷建议先点到80以上，否则你神武都拿不动（那票就没低于500重量的）
+
+*****
+
+####  萨文科夫  
+##### 2069#       发表于 2022-11-13 21:54
+
+普通难度打第三章boss打了一下午，最后切到轻松模式过的，是不是可以告别这游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tsubaki  
+##### 2070#       发表于 2022-11-13 21:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58415757&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-11-13 17:22</a>
+
+刚开坑，我看全成就要困难难度起？一周目初见选困难游玩会有障碍吗？
+
+另外有没有全成就保姆攻略和中文wiki ...</blockquote>
+困难部分混合双打会比较累（主要在8章），顺便流血免疫尽快靠天平弄出来，否则中后期很累（没免疫弄出来多备血清）
+
+WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/list)
+
