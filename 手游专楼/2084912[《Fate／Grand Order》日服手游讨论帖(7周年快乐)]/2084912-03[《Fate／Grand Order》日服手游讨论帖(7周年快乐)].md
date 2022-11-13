@@ -6250,3 +6250,15 @@ Screenshot_20221112-141849.png
 
 对面真有个无敌技能，但好像没看见有人中过招<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 3569#       发表于 2022-11-13 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58417537&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2022-11-13 18:58</a>
+
+对面真有个无敌技能，但好像没看见有人中过招</blockquote>
+我就遇到过了，无敌本身就是马斯自带的技能。
+

@@ -6365,3 +6365,21 @@ demo的存档正式版能接着用吗
 —— 来自 Xiaomi M2007J3SC, Android 12上的 S1 ...</blockquote>
 一直往右走,触发剧情boss,打过就会掉.
 
+
+
+*****
+
+####  kikka  
+##### 2062#       发表于 2022-11-13 19:02
+
+是我眼瞎了，我以为这个安眠药用了就没了，要再合成，原来还在包里<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wolfwood  
+##### 2063#       发表于 2022-11-13 19:07
+
+妈的，读档去拯救世界了，流程好长<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
