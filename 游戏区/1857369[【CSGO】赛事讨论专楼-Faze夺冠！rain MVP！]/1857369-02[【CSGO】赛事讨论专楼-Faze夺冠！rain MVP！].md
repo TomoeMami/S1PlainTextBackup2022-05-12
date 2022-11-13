@@ -2364,3 +2364,12 @@ vp夺冠也挺有梗
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一天看到vp被打成那样，实在没想到会是vp打x队
 
+
+
+*****
+
+####  haruhiismer  
+##### 2886#       发表于 2022-11-13 13:21
+
+黑豹也算完成任务了，干死navi x队上决赛最喜欢的一集
+

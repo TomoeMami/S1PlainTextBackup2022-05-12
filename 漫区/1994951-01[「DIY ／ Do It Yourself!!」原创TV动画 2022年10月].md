@@ -5435,3 +5435,20 @@ self：什么？在想我的事？<img src="https://static.saraba1st.com/image/s
 
 话说，为啥捡海参是非法捕捞呀？
 
+
+
+*****
+
+####  MONSTERS  
+##### 430#       发表于 2022-11-13 13:12
+
+<img src="https://img.saraba1st.com/forum/202211/13/131227njfua0qahikj0abi.jpg" referrerpolicy="no-referrer">
+
+<strong>FhXcLxHUcAAyzQ3.jpg</strong> (204.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-13 13:12 上传
+
+[https://mobile.twitter.com/maro_muchi/status/1591420222522941441](https://mobile.twitter.com/maro_muchi/status/1591420222522941441)
+
