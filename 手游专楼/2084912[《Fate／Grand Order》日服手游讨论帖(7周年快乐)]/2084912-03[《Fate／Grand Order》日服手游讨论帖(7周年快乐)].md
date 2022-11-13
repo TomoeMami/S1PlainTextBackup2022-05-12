@@ -6335,3 +6335,16 @@ Screenshot_20221112-141849.png
 
 这次活动无限池子就刷了一回怠惰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，争取结束前多刷几次
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3577#       发表于 2022-11-13 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58418793&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-13 20:19</a>
+不是c呆宝具能解吗</blockquote>
+能解自己的解不了马嘶身上的啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
