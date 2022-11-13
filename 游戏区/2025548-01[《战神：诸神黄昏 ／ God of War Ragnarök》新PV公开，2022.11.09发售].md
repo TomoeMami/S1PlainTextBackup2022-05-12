@@ -13749,3 +13749,34 @@ S1现在是狗叔的 未来也是狗叔的 但是归根结底不是你的 ...</b
 
 解谜真是畜生，过场还不能跳过，解谜解一天有意思吗？
 
+
+
+*****
+
+####  一个过路的  
+##### 1402#       发表于 2022-11-13 11:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58411289&amp;ptid=2025548" target="_blank">刘震云 发表于 2022-11-13 11:28</a>
+
+解谜真是畜生，过场还不能跳过，解谜解一天有意思吗？</blockquote>
+辅助选项里不是有很多帮助吗，渐冻症患者都能爽玩的。
+
+*****
+
+####  jokertx  
+##### 1403#       发表于 2022-11-13 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58411289&amp;ptid=2025548" target="_blank">刘震云 发表于 2022-11-13 11:28</a>
+
+解谜真是畜生，过场还不能跳过，解谜解一天有意思吗？</blockquote>
+战神这系列从1代开始一直都是解谜占游戏时间大头的，不喜欢可以玩隔壁贝姐3
+
+*****
+
+####  rainsheep  
+##### 1404#       发表于 2022-11-13 11:41
+
+<blockquote>——啧 发表于 2022-11-13 11:05
+借楼问下SLIM玩5能有30帧吗，实在不想为了5买个PS65</blockquote>
+有，很稳，不过有时候贴图加载赶不上
+
