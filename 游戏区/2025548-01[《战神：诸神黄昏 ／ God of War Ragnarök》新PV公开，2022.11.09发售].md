@@ -14024,3 +14024,15 @@ S1现在是狗叔的 未来也是狗叔的 但是归根结底不是你的 ...</b
 
 符文攻击没无敌太傻逼了 以前锄大地爽的一笔
 
+
+
+*****
+
+####  一个过路的  
+##### 1430#       发表于 2022-11-13 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58420640&amp;ptid=2025548" target="_blank">Mikumiku831 发表于 2022-11-13 22:29</a>
+
+符文攻击没无敌太傻逼了 以前锄大地爽的一笔</blockquote>
+前作大部分符文也没无敌啊。
+
