@@ -6291,3 +6291,17 @@ demo的存档正式版能接着用吗
 
 这第二章沼泽洞窟这个宝箱怎么拿
 
+
+
+*****
+
+####  A1LI  
+##### 2056#       发表于 2022-11-13 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58416051&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-13 17:37</a>
+
+这第二章沼泽洞窟这个宝箱怎么拿</blockquote>
+宝箱右面有个门，之后你拿到哥布林石板之后可以开。
+
+第4章桥的宝箱，城镇魔女小屋里的门也需要这个石板，你到时候就知道了。
+
