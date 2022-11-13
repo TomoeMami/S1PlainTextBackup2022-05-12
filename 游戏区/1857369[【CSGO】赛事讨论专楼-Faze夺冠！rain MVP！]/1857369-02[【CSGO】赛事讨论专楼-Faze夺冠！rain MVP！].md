@@ -2337,3 +2337,12 @@ nuke最后这几局黑豹枪都完全变形了，居然被打了这么多1v多<i
 决赛x队和vp不好说谁赢，希望地图打满就完事了。</blockquote>
 既然这届是克拉科夫重现，那么我大胆预测vp夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fkf90  
+##### 2883#       发表于 2022-11-13 10:31
+
+CADIAN生涯励志，充满激情，会打残局，双商又高，好吸粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
