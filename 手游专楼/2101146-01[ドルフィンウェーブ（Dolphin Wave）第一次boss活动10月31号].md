@@ -164,3 +164,17 @@ WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmed
 虽然上面写着推荐战力24000，但事实上的战力却不是全部24000，而是第一队10000，后面每队加5000
 利好新玩家，只要能打赢两队就算赚了，对比一下nikke，这什么圣女运营，哭死<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dudideng  
+##### 108#       发表于 2022-11-13 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这游戏运营感觉好佛啊。
+这才没多久每天上线就收个菜。
+以后活动不知道能整出点别的什么东西，就目前的游戏内容感觉有点太单调了。
+还有就是拉满一只要的资源太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

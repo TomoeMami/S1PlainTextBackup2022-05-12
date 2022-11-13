@@ -6263,3 +6263,14 @@ demo的存档正式版能接着用吗
 
 20小时通关了，最后救出了老婆过上了幸福生活，世界和工会同伴？WHO CARES<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bixinhaner  
+##### 2054#       发表于 2022-11-13 17:22
+
+刚开坑，我看全成就要困难难度起？一周目初见选困难游玩会有障碍吗？
+
+另外有没有全成就保姆攻略和中文wiki什么的？
+

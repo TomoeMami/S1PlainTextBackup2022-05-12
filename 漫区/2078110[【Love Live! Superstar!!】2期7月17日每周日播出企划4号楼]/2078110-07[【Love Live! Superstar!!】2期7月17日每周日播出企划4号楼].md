@@ -3272,3 +3272,22 @@ FhRnQYoaMAAXH5e.jpg
 还是看看远处蓝鸟的朋友吐槽吧，这东西出的时候我也笑了一下，就可可是一期截出来的，企划经典没点X数环节[ ...</blockquote>
 问题来了，这玩意在哪买<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 9262#       发表于 2022-11-13 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58415495&amp;ptid=2078110" target="_blank">adw667 发表于 2022-11-13 17:11</a>
+
+问题来了，这玩意在哪买</blockquote>
+上个月生放说的GiGO咖啡联动的周边，这个挂件是12号开始卖的第四弹，盲盒制，而且好像无网贩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能海鲜和煤炉雅虎这种二把手市场蹲了
+
+*****
+
+####  大哀之君  
+##### 9263#       发表于 2022-11-13 17:26
+
+pay那么好看为什么不多发点自拍？愤怒了
+
