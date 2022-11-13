@@ -13938,3 +13938,19 @@ S1现在是狗叔的 未来也是狗叔的 但是归根结底不是你的 ...</b
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  猫将军  
+##### 1421#       发表于 2022-11-13 17:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">铁森剧情以及boss战我都玩出王国之心味和dq5剧情即视感了
+
+*****
+
+####  rainsheep  
+##### 1422#       发表于 2022-11-13 17:46
+
+问下多久能有重符文攻击，打了10来个小时，重攻击符文还空着
+
