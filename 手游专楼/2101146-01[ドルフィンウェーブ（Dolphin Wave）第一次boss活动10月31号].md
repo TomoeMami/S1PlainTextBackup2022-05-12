@@ -189,3 +189,14 @@ WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmed
 
 不知道后面会不会出新的机制啥的
 
+
+
+*****
+
+####  无念  
+##### 110#       发表于 2022-11-14 06:59
+
+参考闪乱的话，那就是技能可以升级，人物还可以再觉醒一次顺便拿新立绘和新衣服，开放LR，差不多这三板斧吧
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
