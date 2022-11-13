@@ -9164,3 +9164,16 @@ Jia you a xiao ma
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  TiHaru  
+##### 12869#       发表于 2022-11-13 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58409448&amp;ptid=2018830" target="_blank">往世雷书 发表于 2022-11-13 07:44</a>
+这什么，在哪出道了？
+
+—— 来自 S1Fun</blockquote>
+varium，一个小箱，画师全是杏的
+
