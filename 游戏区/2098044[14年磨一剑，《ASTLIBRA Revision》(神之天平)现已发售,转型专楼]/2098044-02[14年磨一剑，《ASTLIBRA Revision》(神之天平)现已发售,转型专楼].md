@@ -6479,3 +6479,28 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 
 他这幸运跟素材爆率是挂钩的吧
 
+
+
+*****
+
+####  cc-2  
+##### 2074#       发表于 2022-11-13 23:37
+
+请教个问题
+
+我打到第四章，目前遇到过两次那个魔法师小鬼，第一次被秒，第四章白花前他又来了，这次和他缠斗了一会才输，感觉还是有的打的
+
+打败他也能继续剧情的样子，那么打赢有什么好处么？经验值？道具？还是剧情影响？
+
+*****
+
+####  5353  
+##### 2075#       发表于 2022-11-13 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58421629&amp;ptid=2098044" target="_blank">cc-2 发表于 2022-11-13 23:37</a>
+
+请教个问题
+
+我打到第四章，目前遇到过两次那个魔法师小鬼，第一次被秒，第四章白花前他又来了，这次和他缠 ...</blockquote>
+没好处。不影响剧情。
+
