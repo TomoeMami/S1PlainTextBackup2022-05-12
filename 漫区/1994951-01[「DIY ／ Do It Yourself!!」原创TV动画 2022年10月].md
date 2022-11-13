@@ -5481,3 +5481,15 @@ https://mobile.twitter.com/maro_muchi/status/1591420222522941441</blockquote>
 
 才发现这番第一话评分才67，不至于啊，不和n站观众口味？后续评分变好了吗
 
+
+
+*****
+
+####  千恋万花  
+##### 434#       发表于 2022-11-13 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58414019&amp;ptid=1994951" target="_blank">CharlieZ- 发表于 2022-11-13 15:40</a>
+
+才发现这番第一话评分才67，不至于啊，不和n站观众口味？后续评分变好了吗 ...</blockquote>
+<img src="https://p.sda1.dev/8/d3d42a8baf5e5ea2f4390b55bad49cec/2022-11-13-1551_51.png" referrerpolicy="no-referrer">
+
