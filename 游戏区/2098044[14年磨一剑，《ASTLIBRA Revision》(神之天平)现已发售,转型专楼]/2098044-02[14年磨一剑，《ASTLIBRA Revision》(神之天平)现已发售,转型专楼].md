@@ -6536,3 +6536,23 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 
 <blockquote>风怒</blockquote>
 
+
+
+*****
+
+####  manyin1  
+##### 2079#       发表于 2022-11-14 00:47
+
+火山隐藏boss的斩铁闪怎么过？
+
+*****
+
+####  Rainwedell  
+##### 2080#       发表于 2022-11-14 00:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58422512&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-11-14 00:47</a>
+火山隐藏boss的斩铁闪怎么过？</blockquote>
+放出这招之前直接伤害堆死，堆不死嘉农技能点上狂暴，还不死放金刚
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
