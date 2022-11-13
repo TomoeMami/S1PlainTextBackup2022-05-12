@@ -1005,3 +1005,12 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">抽了一千个硬币抽不下去了，感觉需要连点器
 
+
+
+*****
+
+####  johnkamsar  
+##### 43733#       发表于 2022-11-13 17:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">高难差点3t，可惜最后一下输出力度不够结果血丝……只能后排的bb上来补刀了….
+

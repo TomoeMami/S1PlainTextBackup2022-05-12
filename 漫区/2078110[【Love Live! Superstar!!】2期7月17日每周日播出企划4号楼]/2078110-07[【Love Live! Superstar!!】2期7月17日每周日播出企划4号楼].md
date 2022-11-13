@@ -3261,3 +3261,14 @@ FhRnQYoaMAAXH5e.jpg
 
 。。。也对哦，coser加歌手
 
+
+
+*****
+
+####  adw667  
+##### 9261#       发表于 2022-11-13 17:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58402568&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-12 19:02</a>
+还是看看远处蓝鸟的朋友吐槽吧，这东西出的时候我也笑了一下，就可可是一期截出来的，企划经典没点X数环节[ ...</blockquote>
+问题来了，这玩意在哪买<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
