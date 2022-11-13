@@ -3307,3 +3307,15 @@ pay自拍不少其实，就是合照少点。
 
 中文月历的图出了，节日也是中国的
 
+
+
+*****
+
+####  靡宜  
+##### 9266#       发表于 2022-11-13 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58416108&amp;ptid=2078110" target="_blank">lj205 发表于 2022-11-13 17:39</a>
+
+中文月历的图出了，节日也是中国的</blockquote>
+哇，可以。等国内发售<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

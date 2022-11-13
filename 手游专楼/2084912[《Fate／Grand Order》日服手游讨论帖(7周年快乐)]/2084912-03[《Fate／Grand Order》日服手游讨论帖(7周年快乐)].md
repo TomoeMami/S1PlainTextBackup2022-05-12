@@ -6296,3 +6296,24 @@ Screenshot_20221112-141849.png
 夏露露池沉了……千石一宝
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">攒石day0
 
+
+
+*****
+
+####  alucardcz  
+##### 3573#       发表于 2022-11-13 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58417879&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2022-11-13 19:22</a>
+
+最后一条血的根性好像是根据场上灼烧总数给的
+
+要说难点就是怎么三回合了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是c呆宝具能解吗
+
+*****
+
+####  qixinno2  
+##### 3574#       发表于 2022-11-13 20:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是这就是有钱人么
+
