@@ -6362,3 +6362,12 @@ Screenshot_20221112-141849.png
 —— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次我甚至都没点开看过对面的技能 
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3579#       发表于 2022-11-14 00:17
+
+原来双道满这么爽，抽来挂了个六绊还没用过，今天用来打了下90+还挺解压的
+
