@@ -10375,3 +10375,14 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2596#       发表于 2022-11-13 20:00
+
+厂号关注了奶绿和克✔️不会要让他们来梦之声吧，<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">对这两有点梁木
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
