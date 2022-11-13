@@ -2318,3 +2318,22 @@ nuke最后这几局黑豹枪都完全变形了，居然被打了这么多1v多<i
 
 黑豹ban了mirage放了nuke实在迷惑
 
+
+
+*****
+
+####  三千珈蓝  
+##### 2881#       发表于 2022-11-13 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58410313&amp;ptid=1857369" target="_blank"> dev2ce 发表于 2022-11-13 09:55</a> 主场是动力也是压力，强如当年的a队，blast哥本哈根站三年都没拿过冠军 </blockquote>
+有次epl也输给老鼠了，诸葛还留下个经典三连锤桌gif来自: iPhone客户端
+
+*****
+
+####  朔方原的星  
+##### 2882#         楼主| 发表于 2022-11-13 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58410348&amp;ptid=1857369" target="_blank">六道仙鱼 发表于 2022-11-13 09:59</a>
+决赛x队和vp不好说谁赢，希望地图打满就完事了。</blockquote>
+既然这届是克拉科夫重现，那么我大胆预测vp夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
