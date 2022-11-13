@@ -36,3 +36,15 @@
 
 这游戏XP是流汗吗<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  krowbullet  
+##### 750#       发表于 2022-11-13 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58396658&amp;ptid=2009419" target="_blank">roamer 发表于 2022-11-12 11:19</a>
+
+这游戏XP是流汗吗</blockquote>
+是的，动画也是
+
