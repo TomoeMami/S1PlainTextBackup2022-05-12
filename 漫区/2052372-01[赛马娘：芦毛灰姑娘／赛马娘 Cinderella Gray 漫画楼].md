@@ -1352,3 +1352,28 @@ CB和皇帝的粉丝水火不容，从当年斗到现在。cy选了皇帝，那C
 
 まだ「奴」を描いていない
 
+
+
+*****
+
+####  isummon  
+##### 124#         楼主| 发表于 2022-11-14 00:04
+
+<img src="https://img.saraba1st.com/forum/202211/14/000421rsa62ln096egzzg3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (260.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-14 00:04 上传
+
+<img src="https://img.saraba1st.com/forum/202211/14/000428d14uu93cu3cq9c43.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (532.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-14 00:04 上传
+
+这漫画越来越恐怖了（
+
