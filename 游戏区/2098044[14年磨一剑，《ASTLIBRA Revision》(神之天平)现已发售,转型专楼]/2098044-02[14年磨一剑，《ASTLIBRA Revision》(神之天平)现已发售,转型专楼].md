@@ -6383,3 +6383,39 @@ demo的存档正式版能接着用吗
 
 妈的，读档去拯救世界了，流程好长<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  逃离学校  
+##### 2064#       发表于 2022-11-13 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58394021&amp;ptid=2098044" target="_blank">你知道我的 发表于 2022-11-11 23:31</a>
+
+这个技能是装备上带的，如果你穿对应的装备可以免费带这个技能，</blockquote>
+谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  逃离学校  
+##### 2065#       发表于 2022-11-13 21:16
+
+凭依技能精通有什么用呀
+
+*****
+
+####  北欧王座  
+##### 2066#       发表于 2022-11-13 21:19
+
+重量是到达固定值才有负面效果还是每增加一点重量就会有一点影响
+
+*****
+
+####  BQlin  
+##### 2067#       发表于 2022-11-13 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58419615&amp;ptid=2098044" target="_blank">逃离学校 发表于 2022-11-13 21:16</a>
+
+凭依技能精通有什么用呀</blockquote>
+降低mp消耗
+
