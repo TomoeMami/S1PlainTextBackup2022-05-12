@@ -3342,3 +3342,17 @@ pay自拍不少其实，就是合照少点。
 哇，可以。等国内发售</blockquote>
 今晚截止预订吧
 
+
+
+*****
+
+####  yicihanshu  
+##### 9269#       发表于 2022-11-13 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58400082&amp;ptid=2078110" target="_blank">空集 发表于 2022-11-12 16:15</a>
+贴吧也行 阿B也行啊 QQ频道还上了几次首页推荐呢 或者说除了倪哥坛还有哪里不行呢 是不是早该更新一 ...</blockquote>
+这事武士道又不是没干过，结果呢，日服邦多利联动杏以后，B站邦多利运营当晚直接发公告道歉加神圣分离国日两服加保证本联动不会出现在国服。
+现在武士道重返拉拉，找v这种事说不定还就是木谷高明指的路呢。事肯定没多大，但真觉得这不是个事多少有点自己骗自己。
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
