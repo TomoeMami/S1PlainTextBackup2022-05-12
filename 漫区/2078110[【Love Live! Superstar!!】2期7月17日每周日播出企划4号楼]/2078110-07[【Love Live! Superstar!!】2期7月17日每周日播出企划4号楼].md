@@ -3319,3 +3319,15 @@ pay自拍不少其实，就是合照少点。
 中文月历的图出了，节日也是中国的</blockquote>
 哇，可以。等国内发售<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 9267#       发表于 2022-11-13 20:31
+
+【MV】【メイキング】妄想感伤代偿连盟【ペイトン尚未】
+[https://www.bilibili.com/video/B ... 57abfcd502f2db10b76](https://www.bilibili.com/video/BV1tt4y1M7X9?p=2&amp;vd_source=3e77e8355e8d757abfcd502f2db10b76)
+
+有up上传了歌曲录制的making
+
