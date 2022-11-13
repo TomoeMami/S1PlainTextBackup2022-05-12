@@ -6452,3 +6452,30 @@ demo的存档正式版能接着用吗
 
 WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/list)
 
+
+
+*****
+
+####  mlfans  
+##### 2071#       发表于 2022-11-13 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58420144&amp;ptid=2098044" target="_blank">萨文科夫 发表于 2022-11-13 21:54</a>
+普通难度打第三章boss打了一下午，最后切到轻松模式过的，是不是可以告别这游戏了 ...</blockquote>
+其实全看你自己，不喜欢看剧情也不喜欢无双的话确实没啥必要玩下去。
+
+否则哪怕是轻松模式看看剧情刷刷装备我觉得也不错。
+
+*****
+
+####  北欧王座  
+##### 2072#       发表于 2022-11-13 23:10
+
+我就困难开局，感觉需要给自己上点强度
+
+*****
+
+####  北欧王座  
+##### 2073#       发表于 2022-11-13 23:10
+
+他这幸运跟素材爆率是挂钩的吧
+
