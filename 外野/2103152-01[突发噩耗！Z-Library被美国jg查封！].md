@@ -146,3 +146,16 @@ https://z-lib.is/</blockquote>
 
 只能绑定telegram机器人来获取下载链接，没有直接下载的方法吗？
 
+
+
+*****
+
+####  黑爪爪  
+##### 270#       发表于 2022-11-14 07:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58423498&amp;ptid=2103152" target="_blank">超纯锑 发表于 2022-11-14 06:09</a>
+请问下，现在用tor浏览器访问的站，应该怎么下载？
+
+只能绑定telegram机器人来获取下载链接，没有直接下载的 ...</blockquote>
+我昨天刚用的tor浏览器，就正常下载了没碰到问题呀？
+
