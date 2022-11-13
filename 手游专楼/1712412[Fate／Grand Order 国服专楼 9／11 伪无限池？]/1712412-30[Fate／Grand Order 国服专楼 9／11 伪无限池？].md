@@ -1023,3 +1023,14 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星尘的记忆  
+##### 43735#       发表于 2022-11-14 00:29
+
+870石头 2宝金时
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

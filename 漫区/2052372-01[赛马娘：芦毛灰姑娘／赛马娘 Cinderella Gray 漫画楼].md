@@ -1377,3 +1377,12 @@ CB和皇帝的粉丝水火不容，从当年斗到现在。cy选了皇帝，那C
 
 这漫画越来越恐怖了（
 
+
+
+*****
+
+####  zhujinghang1994  
+##### 125#       发表于 2022-11-14 00:28
+
+只要我把脸涂黑，我就可以不画细节<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
