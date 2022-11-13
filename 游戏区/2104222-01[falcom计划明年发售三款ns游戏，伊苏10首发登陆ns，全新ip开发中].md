@@ -746,3 +746,34 @@ falcom有那个能力让新作上ns吗？
 法老控怎么还有授权部门啊是指授权给其他厂做氪金手游的收入？</blockquote>
 我印象中把游戏拿给日本一等其他公司移植到NS的收入，也算授权
 
+
+
+*****
+
+####  haze.l  
+##### 80#       发表于 2022-11-13 14:02
+
+ 本帖最后由 haze.l 于 2022-11-13 14:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58412896&amp;ptid=2104222" target="_blank">Squall25 发表于 2022-11-13 13:44</a>
+
+求问这个出处是哪里</blockquote>
+[https://www.bilibili.com/video/BV1mW4y1s7Zy/](https://www.bilibili.com/video/BV1mW4y1s7Zy/) 52分39秒开始，但不是"伊苏10的主美是刚入社4个月的新人"，而是有位今年4月入职的新人参与了伊苏10的UI、升级系统之类的game design
+
+*****
+
+####  leina0602  
+##### 81#       发表于 2022-11-13 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58412983&amp;ptid=2104222" target="_blank">rbf1993 发表于 2022-11-13 13:53</a>
+
+法老控怎么还有授权部门啊是指授权给其他厂做氪金手游的收入？</blockquote>
+上礼拜又出了一个空轨手游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，轨迹授权手游跟联动不少的，只是都是小厂跟不怎么出名的游戏
+
+<img src="https://img.saraba1st.com/forum/202211/13/140416td1xov1tvnt77nzm.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221113140357.jpg</strong> (50.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-13 14:04 上传
+
