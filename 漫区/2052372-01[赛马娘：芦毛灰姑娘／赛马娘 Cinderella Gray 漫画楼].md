@@ -1395,3 +1395,12 @@ CB和皇帝的粉丝水火不容，从当年斗到现在。cy选了皇帝，那C
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">漫画的三强，三人有三种不同的魔王风格，挺有趣的
 
+
+
+*****
+
+####  ardito  
+##### 127#       发表于 2022-11-14 03:06
+
+养了大半年了，再放一阵子算了，上次好像看到小玉藻退役<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

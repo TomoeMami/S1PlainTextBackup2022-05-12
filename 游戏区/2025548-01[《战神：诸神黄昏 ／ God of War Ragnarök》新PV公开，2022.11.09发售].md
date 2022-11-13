@@ -14169,3 +14169,53 @@ S1现在是狗叔的 未来也是狗叔的 但是归根结底不是你的 ...</b
 用长枪经常把别人打低一等级 不知道是啥效果</blockquote>
 r2长按把对方身上的毒属性吸了，然后长枪攻击上属性非常快，毒的效果就是降级
 
+
+
+*****
+
+####  Yason  
+##### 1444#       发表于 2022-11-14 01:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58422800&amp;ptid=2025548" target="_blank">tchhol 发表于 2022-11-14 01:27</a>
+这个吹了几个小时的玄而又玄的假面直接掰了，有点离谱了。就这？？
+
+要么让大boss最后阶段戴上假面打，要么 ...</blockquote>
+除了矮人兄弟从头到尾是正常逻辑，其他剧情和人物突出一个撕裂
+
+*****
+
+####  性兽阿怪  
+##### 1445#       发表于 2022-11-14 02:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58422612&amp;ptid=2025548" target="_blank">Onelooker 发表于 2022-11-14 01:01</a>
+
+这作是不是多了许多延时刀，弹蜥蜴人被暴打</blockquote>
+对，大锤哥也是，说好的不学魂呢
+
+*****
+
+####  性兽阿怪  
+##### 1446#       发表于 2022-11-14 02:10
+
+刚打完女武神王，感觉三连踩没有前作这么难躲了，无脑滚地就能过
+
+*****
+
+####  mimighost  
+##### 1447#       发表于 2022-11-14 02:54
+
+对居然杀了搞笑役，不明所以
+
+我强烈觉得前作策划的时候蓝铁匠就是蓝色的皮肤而已，这作添油加醋给改成目前这个剧情的
+
+*****
+
+####  Yason  
+##### 1448#       发表于 2022-11-14 03:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58423222&amp;ptid=2025548" target="_blank">mimighost 发表于 2022-11-14 02:54</a>
+对居然杀了搞笑役，不明所以
+
+我强烈觉得前作策划的时候蓝铁匠就是蓝色的皮肤而已，这作添油加醋给改成目前 ...</blockquote>
+前作游戏里说过是长期接触银还是什么金属肤色变了，编剧一换就改了
+

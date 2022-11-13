@@ -6616,3 +6616,26 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 嘉农除了抹除还有啥好用的消弹幕技能嘛？地狱开荒刚过四勇者，被法爷弓兵压的满头包，不知道后面还有没有这 ...</blockquote>
 直接用能量吸收，应该算是抹除全面的上位替代
 
+
+
+*****
+
+####  xiaosayang  
+##### 2087#       发表于 2022-11-14 03:00
+
+困难第六章boss战初见遗迹兵群 边骂粪怪边刷了2小时属性技能终于过了 结果发现是要跑路的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+仿佛体会到了魂一断剑搓死了大屁股然后看见旁边有扇门的感觉
+
+*****
+
+####  tmmd  
+##### 2088#       发表于 2022-11-14 04:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58423233&amp;ptid=2098044" target="_blank">xiaosayang 发表于 2022-11-14 03:00</a>
+
+困难第六章boss战初见遗迹兵群 边骂粪怪边刷了2小时属性技能终于过了 结果发现是要跑路的
+
+仿佛体会 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我跑路了还担心会不会漏了一个boss成就
+
