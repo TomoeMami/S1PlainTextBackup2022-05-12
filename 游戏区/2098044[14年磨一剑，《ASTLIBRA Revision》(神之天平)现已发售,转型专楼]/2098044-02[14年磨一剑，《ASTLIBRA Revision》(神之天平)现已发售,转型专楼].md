@@ -6254,3 +6254,12 @@ demo的存档正式版能接着用吗
 暗黑扣血是不算伤害的，倒没有必要关狂暴</blockquote>
 吃面包被杀过，我没试了、是我想当然了
 
+
+
+*****
+
+####  wolfwood  
+##### 2053#       发表于 2022-11-13 14:25
+
+20小时通关了，最后救出了老婆过上了幸福生活，世界和工会同伴？WHO CARES<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

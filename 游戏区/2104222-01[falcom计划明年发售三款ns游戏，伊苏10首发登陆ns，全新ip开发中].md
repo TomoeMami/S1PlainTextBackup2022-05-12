@@ -789,3 +789,28 @@ falcom有那个能力让新作上ns吗？
 https://www.bilibili.com/video/BV1mW4y1s7Zy/ 52分39秒开始，但&amp;# ...</blockquote>
 谢谢，我只在twitter上看的一张图，没有上下文理解错了
 
+
+
+*****
+
+####  酷乐  
+##### 83#       发表于 2022-11-13 14:27
+
+ 本帖最后由 酷乐 于 2022-11-13 14:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58413098&amp;ptid=2104222" target="_blank">leina0602 发表于 2022-11-13 14:05</a>
+
+上礼拜又出了一个空轨手游，轨迹授权手游跟联动不少的，只是都是小厂跟不怎么出名的游戏
+
+ ...</blockquote>
+轨迹的授权手游都是小厂，做得也挺垃圾，湾湾的晓轨已经还是矮子里拔高个了——但这个月官推宣布主线剧情完结时我都找不到后面的剧情录像，实在是太冷了……
+
+但是联动不同，和知名游戏联动就有MHFO、PSO2、VAO和LM等，前2者是输入轨迹外形、后2者是输入轨迹人物，而且最后一个12月又要联动黎轨，是唯一一个联动了轨迹30作的游戏。
+
+轨迹联动视频：
+[https://www.bilibili.com/video/BV1fK4y1K7SD/](https://www.bilibili.com/video/BV1fK4y1K7SD/)
+[https://www.bilibili.com/video/BV13Z4y1A7QQ/](https://www.bilibili.com/video/BV13Z4y1A7QQ/)
+[https://www.bilibili.com/video/BV1s54y1e7Lo/](https://www.bilibili.com/video/BV1s54y1e7Lo/)
+[https://www.bilibili.com/video/BV1Ct411B7zC/](https://www.bilibili.com/video/BV1Ct411B7zC/)
+[https://www.bilibili.com/video/BV1JA411h7Lq/](https://www.bilibili.com/video/BV1JA411h7Lq/)
+[https://www.bilibili.com/video/BV1AV4y1s7tJ/](https://www.bilibili.com/video/BV1AV4y1s7tJ/)
+
