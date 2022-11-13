@@ -996,3 +996,12 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 邪马台完了之后就可以抽太公望了？</blockquote>
 还早呢，年末差不多元旦才到。
 
+
+
+*****
+
+####  DET  
+##### 43732#       发表于 2022-11-13 08:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">抽了一千个硬币抽不下去了，感觉需要连点器
+

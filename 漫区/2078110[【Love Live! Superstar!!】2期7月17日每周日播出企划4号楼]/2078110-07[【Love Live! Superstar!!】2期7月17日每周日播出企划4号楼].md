@@ -3190,3 +3190,16 @@ FhRnQYoaMAAXH5e.jpg
 
 除非问题是真的很直，没法规避，不然就别提或者划过去。有些事就算是“事实”，不帮说话不承认永远就是烂账，像一期那烂账认真算至少是不会亏的，但说了就不一样了。<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9255#       发表于 2022-11-13 08:45
+
+花田大老师有胆子露面怎么做动画的采访，没胆子给星1官方book出访谈就很说明问题了。如果鲤鱼还有二期采访估计也只有星2的officialbook了，也别想着什么说气话，大概率还是hhh，这里挺好的，然后“展 望 三 期！”
+
+楼友又不是没被一期采访那个展望二期骗过，就别再骗自己了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
