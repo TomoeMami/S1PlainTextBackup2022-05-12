@@ -51,3 +51,12 @@
 
 主要是万代这都让SMA坑一回了，感觉不会二次跳坑了，找个自己控制力强的更符合，粉丝满不满意倒是不在考虑范围
 
+
+
+*****
+
+####  梶原ひかり  
+##### 6723#       发表于 2022-11-13 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">最大可能性还是裂啦三期挑剩下 或者Apollo Bay的谁吧 
+

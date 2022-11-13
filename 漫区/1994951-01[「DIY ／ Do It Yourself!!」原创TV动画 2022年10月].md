@@ -5517,3 +5517,13 @@ https://mobile.twitter.com/maro_muchi/status/1591420222522941441</blockquote>
 トンカチ&amp;#x1F528;に挑戦✨</blockquote>
 这周的「Do It Your Radio!!」第 3 回可以听到 OP 和 ED 的 Remix 版，第 4 回的嘉宾是给小己妈妈献声的井上喜久子
 
+
+
+*****
+
+####  CharlieZ-  
+##### 436#       发表于 2022-11-13 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58414132&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-11-13 15:52</a></blockquote>
+后面这评分才对嘛，看来第一集是提纯啊
+
