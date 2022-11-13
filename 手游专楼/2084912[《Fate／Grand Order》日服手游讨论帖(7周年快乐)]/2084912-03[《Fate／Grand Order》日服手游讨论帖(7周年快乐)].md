@@ -6262,3 +6262,15 @@ Screenshot_20221112-141849.png
 对面真有个无敌技能，但好像没看见有人中过招</blockquote>
 我就遇到过了，无敌本身就是马斯自带的技能。
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3570#       发表于 2022-11-13 19:22
+
+最后一条血的根性好像是根据场上灼烧总数给的
+要说难点就是怎么三回合了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
