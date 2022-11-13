@@ -2269,3 +2269,29 @@ nice！加油加油，还有一把
 
 黑豹可惜了，一步之遥，接下来无论是上帝还是点子夺冠都是佳话，点子也不容易，之前丹麦队那么多都要去北美组队打
 
+
+
+*****
+
+####  rrtyui  
+##### 2875#       发表于 2022-11-13 09:43
+
+Drop真是昨天打navi提前透支天赋了属于是
+黑豹图二没拿下那就恭喜x队了
+
+决赛一边是连名字都没法有的俄罗斯队，一边是全球客场被骂线上队的bug队，令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpl123  
+##### 2876#       发表于 2022-11-13 09:44
+
+点子哥卧槽
+
+*****
+
+####  rrtyui  
+##### 2877#       发表于 2022-11-13 09:46
+
+nuke最后这几局黑豹枪都完全变形了，居然被打了这么多1v多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
