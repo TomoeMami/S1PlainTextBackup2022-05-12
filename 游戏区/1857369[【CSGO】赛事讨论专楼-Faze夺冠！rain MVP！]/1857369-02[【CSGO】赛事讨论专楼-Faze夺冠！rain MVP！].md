@@ -2346,3 +2346,21 @@ nuke最后这几局黑豹枪都完全变形了，居然被打了这么多1v多<i
 
 CADIAN生涯励志，充满激情，会打残局，双商又高，好吸粉啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六道仙鱼  
+##### 2884#       发表于 2022-11-13 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58410481&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-11-13 10:13</a>
+既然这届是克拉科夫重现，那么我大胆预测vp夺冠</blockquote>
+vp夺冠也挺有梗
+
+*****
+
+####  情商  
+##### 2885#       发表于 2022-11-13 11:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">第一天看到vp被打成那样，实在没想到会是vp打x队
+

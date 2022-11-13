@@ -13740,3 +13740,12 @@ S1现在是狗叔的 未来也是狗叔的 但是归根结底不是你的 ...</b
 
 借楼问下SLIM玩5能有30帧吗，实在不想为了5买个PS65<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  刘震云  
+##### 1401#       发表于 2022-11-13 11:28
+
+解谜真是畜生，过场还不能跳过，解谜解一天有意思吗？
+
