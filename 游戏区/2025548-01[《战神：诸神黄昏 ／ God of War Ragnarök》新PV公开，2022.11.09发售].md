@@ -14310,3 +14310,19 @@ r2长按把对方身上的毒属性吸了，然后长枪攻击上属性非常快
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  focus  
+##### 1456#       发表于 2022-11-14 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58424833&amp;ptid=2025548" target="_blank">Znesmoc 发表于 2022-11-14 09:31</a>
+
+9小时，刚到老年组准备出发那段
+
+1奎爷好脆，打封印地底士兵那个任务的时候四五下就挂了，明明是平衡难度
+
+2 ...</blockquote>
+所有连招都是花里胡哨刮痧。唯一不刮的只有双刀R1长按那一套，一定要把对应技能全部点完。而且伤害高的只有最后那几刀，一般没有多少机会打出来，要配合精准闪避时间减速才好用。
+

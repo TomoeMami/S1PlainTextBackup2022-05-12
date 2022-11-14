@@ -6705,3 +6705,17 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 还有其他的么，我现在打人全靠狂暴才能不刮痧，能量吸收回血用不上，何况不开狂暴也是挨一两下就死，遇到 ...</blockquote>
 那就只能举盾和弹反了，举盾我没研究过，等一个坛友
 
+
+
+*****
+
+####  llysander  
+##### 2095#       发表于 2022-11-14 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58425001&amp;ptid=2098044" target="_blank">哈之分舍瓦 发表于 2022-11-14 09:43</a>
+
+还有其他的么，我现在打人全靠狂暴才能不刮痧，能量吸收回血用不上，何况不开狂暴也是挨一两下就死，遇到 ...</blockquote>
+最简单的是空中撞车撞出大量st后凭依技人鱼阵地 ， 这个似乎设计就是让所有人都能无痛过弹幕机制
+
+投射类一般破盾值都不高（有专门坑举盾的例外），人鱼+后退回避+举盾并用就行，狂暴还是慎用，**降低容错不值，刮是刮的不过习惯后每个boss也没太多动作一直重复
+
