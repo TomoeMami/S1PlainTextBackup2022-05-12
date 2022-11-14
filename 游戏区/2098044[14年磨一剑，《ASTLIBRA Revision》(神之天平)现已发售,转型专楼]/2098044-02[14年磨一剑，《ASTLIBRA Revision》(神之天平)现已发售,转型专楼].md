@@ -7032,3 +7032,38 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 全刷完才有终极武器不过这个过程远比你想象的简单，剧情推就行了，最后有个气球小屋专门卖配方武 ...</blockquote>
 我的意思是，我需要读之前的存档回去刷，还是就接着新章玩就行？
 
+
+
+*****
+
+####  Rainwedell  
+##### 2120#       发表于 2022-11-14 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58433268&amp;ptid=2098044" target="_blank">lilod 发表于 2022-11-14 17:09</a>
+我的意思是，我需要读之前的存档回去刷，还是就接着新章玩就行？</blockquote>
+接着打就可以了，图会再过一遍，通关了再刷都行
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  AeonsTorn  
+##### 2121#       发表于 2022-11-14 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58433268&amp;ptid=2098044" target="_blank">lilod 发表于 2022-11-14 17:09</a>
+
+我的意思是，我需要读之前的存档回去刷，还是就接着新章玩就行？</blockquote>
+从第四章开始就可以随时回以前的地图继续刷了
+
+*****
+
+####  5353  
+##### 2122#       发表于 2022-11-14 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58433161&amp;ptid=2098044" target="_blank">lilod 发表于 2022-11-14 17:03</a>
+
+嗯嗯，肯定会玩（我昨天才通了本篇，先休息一下，话说我有必要把本篇里那些武器都刷完么。。。。 ...</blockquote>
+新章还会解锁新的可以刷系统.
+
+同时,剧情之前的疑点也是在新章解释的.剧情也会继续推进.
+
