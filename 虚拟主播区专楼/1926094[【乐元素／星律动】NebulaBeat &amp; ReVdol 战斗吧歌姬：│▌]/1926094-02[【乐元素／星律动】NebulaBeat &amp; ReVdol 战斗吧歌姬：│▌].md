@@ -10483,3 +10483,12 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 这九夏今天怎么还投了个稿 你们nb的都是第二天复活么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2607#         楼主| 发表于 2022-11-14 14:46
+
+坐下  常规操作 不止一稿  联动的翻唱投完了还有一首原创呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

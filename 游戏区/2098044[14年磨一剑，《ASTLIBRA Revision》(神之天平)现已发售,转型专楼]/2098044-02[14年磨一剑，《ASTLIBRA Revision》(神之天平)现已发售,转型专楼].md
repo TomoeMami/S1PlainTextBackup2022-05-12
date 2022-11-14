@@ -6918,3 +6918,30 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 第五章那个召唤boss召唤的怪是随机的吗，招了一堆精英怪出来扛不住啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer"> 是，可以全给你召boss
 
+
+
+*****
+
+####  管住键政的手  
+##### 2111#       发表于 2022-11-14 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58427119&amp;ptid=2098044" target="_blank">哈之分舍瓦 发表于 2022-11-14 11:37</a>
+
+没四勇这么恶心的就还行，练级有什么高效法子么，还是就找个存档点来回刷? ...</blockquote>
+竞技场有个勇者队加狗男女加大贤者的，不过打到这已经可以挨五六下了，拉开打反而好打很多。
+
+练级就找个存档点刷，我地狱难度都不至于只有开狂暴才打得动，那也太刮了。
+
+*****
+
+####  redsouris  
+##### 2112#       发表于 2022-11-14 14:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58427797&amp;ptid=2098044" target="_blank">超纯锑 发表于 2022-11-14 12:21</a>
+第三章有个宝箱在门口附近的隐藏图到底该怎么打？
+
+我第五章时带着白魔女一起去，一个怪一个怪地推进，也太 ...</blockquote>
+这个EX地图BOSS是有时间限制，本身不会移动，时间到了没打死就全屏斩铁秒杀了。以后回来打简单，如果刚到就想杀基本要用这章掉的三倍攻狂暴来抢时间
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
