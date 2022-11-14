@@ -3439,3 +3439,16 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 今晚截止预订吧</blockquote>
 感觉国内a店应该会出售
 
+
+
+*****
+
+####  空集  
+##### 9277#       发表于 2022-11-14 14:05
+
+ 本帖最后由 空集 于 2022-11-14 14:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58420889&amp;ptid=2078110" target="_blank">yicihanshu 发表于 2022-11-13 22:47</a>
+
+这事武士道又不是没干过，结果呢，日服邦多利联动杏以后，B站邦多利运营当晚直接发公告道歉加神圣分离国 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -14609,3 +14609,33 @@ emmm，我没想到战神3评价还这么好的。先不说剧情也是砍一大
 
 斧头和链刃最终技能 轻击后按三角瞬间附魔怎么老是按不出来
 
+
+
+*****
+
+####  415452356  
+##### 1483#       发表于 2022-11-14 14:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58429490&amp;ptid=2025548" target="_blank">qappip 发表于 2022-11-14 14:01</a>
+斧头和链刃最终技能 轻击后按三角瞬间附魔怎么老是按不出来</blockquote>
+  瞬间注能的发动时机是和斧头停顿后切换架势的时机一样，这次斧头还保留停顿后特殊架势所以瞬间注能可以靠切换架势的时候手柄那一下震动来按三角，双刀这次没有了得自己掌握，我R1前三下接瞬间注能现在可以稳定按出来
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  性兽阿怪  
+##### 1484#       发表于 2022-11-14 14:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">续作砍主角性能的我看还有谁，而且这主角还是个战神，放在其他IP都不敢想好伐
+
+*****
+
+####  qappip  
+##### 1485#       发表于 2022-11-14 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58429518&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-14 14:03</a>
+
+瞬间注能的发动时机是和斧头停顿后切换架势的时机一样，这次斧头还保留停顿后特殊架势所以瞬间注能可以 ...</blockquote>
+居然还有窗口时机失望，还是斧头好用，附魔手段多，仍斧头和跑步附魔真好用。
+
