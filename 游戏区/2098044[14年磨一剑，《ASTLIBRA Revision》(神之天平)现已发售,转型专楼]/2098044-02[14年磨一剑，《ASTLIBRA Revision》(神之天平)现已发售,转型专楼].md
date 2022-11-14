@@ -7129,3 +7129,16 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 2022-11-14 21:51 上传
 
+
+
+*****
+
+####  linc555  
+##### 2128#       发表于 2022-11-14 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58437467&amp;ptid=2098044" target="_blank">wolfwood 发表于 2022-11-14 21:51</a>
+火山这个靶子宝箱怎么拿</blockquote>
+无重力
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
