@@ -3370,3 +3370,13 @@ pay自拍不少其实，就是合照少点。
 
 不过还是先求一个搜索关键词，没准之后用得上呢
 
+
+
+*****
+
+####  saya1892  
+##### 9271#       发表于 2022-11-14 10:18
+
+<blockquote>絵柄も日本版と全ページ異なります</blockquote>
+日本鲤友也要买完全看不懂又用不上的东西供着了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
