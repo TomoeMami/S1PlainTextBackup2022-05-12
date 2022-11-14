@@ -684,3 +684,23 @@ xb3这玩意居然还能提名，tga在我心里又野鸡了一大步<img src="h
 
 rpg里面ns游戏比例过高了吧
 
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 79#       发表于 2022-11-15 06:55
+
+结果XB3作为一个播片拉满的JRPG，既没被提名最佳叙事，也没被提名最佳演出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lazycat233  
+##### 80#       发表于 2022-11-15 07:01
+
+集美们，倪哥真的有用
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
