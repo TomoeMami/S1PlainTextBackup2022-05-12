@@ -6830,3 +6830,20 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  電子器官依存  
+##### 2105#       发表于 2022-11-14 12:57
+
+ 本帖最后由 電子器官依存 于 2022-11-14 13:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58427045&amp;ptid=2098044" target="_blank">哈之分舍瓦 发表于 2022-11-14 11:33</a>
+
+空中撞车是给空步+伤害那个?回头试试，空步之前和我操作习惯冲突没用时候就封了´_&gt;`狂暴下过，但真太刮 ...</blockquote>
+上狂暴的无伤打法和利用凭依时间吃药+能量回收回血续航容错完全是两个思路。利用低消耗的脱手凭依（月光冷弹）之类见切高伤害的攻击动作后，基本是站桩输出。不过竞技场的群星基本就是这个游戏最难的boss了。
+
+空中擒抱加st效果非常强，算是逃课方式之一
+
+顺便血量的一击线判断可以依靠当前气球商店回复最高的果子，回复量大概就是当前章节最高难度的一击线。
+
