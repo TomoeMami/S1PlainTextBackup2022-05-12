@@ -200,3 +200,12 @@ WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmed
 
 —— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  DEMOxN  
+##### 111#       发表于 2022-11-14 09:44
+
+这游戏sr和r卡的升级材料要都换了吗，还有就是高难的掉血debuff是不是只能硬吃
+
