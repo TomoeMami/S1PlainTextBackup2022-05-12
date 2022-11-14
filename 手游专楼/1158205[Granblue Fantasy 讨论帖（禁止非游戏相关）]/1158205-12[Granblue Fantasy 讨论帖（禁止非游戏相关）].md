@@ -484,3 +484,14 @@ C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  fange  
+##### 17212#       发表于 2022-11-15 00:30
+
+看完新剧情小福真就要搞复联么<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
