@@ -5624,3 +5624,12 @@ Do It Yourself!! 6話
 
 这片的人设真是有瑟又萌
 
+
+
+*****
+
+####  empereur  
+##### 444#       发表于 2022-11-14 19:39
+
+还没入部，布丁嘴可真硬<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
