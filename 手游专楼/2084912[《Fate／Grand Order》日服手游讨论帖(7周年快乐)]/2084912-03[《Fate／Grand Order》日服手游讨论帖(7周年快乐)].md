@@ -6581,3 +6581,15 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 <img src="https://img.saraba1st.com/forum/202211/14/215443g3wdmdya2d23x3xz.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 3598#       发表于 2022-11-14 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58437525&amp;ptid=2084912" target="_blank">yangun22 发表于 2022-11-14 21:55</a>
+
+还真可以用大公，终于有不用顶配的6加成打法了</blockquote>
+你这个不叫顶配吗
+

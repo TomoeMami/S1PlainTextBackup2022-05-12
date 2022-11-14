@@ -1,1 +1,3 @@
 
+[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/漫区/1987572-01[BLUE REFLECTION RAY／澪 4月放送].md'
+!!error:id=1987572
