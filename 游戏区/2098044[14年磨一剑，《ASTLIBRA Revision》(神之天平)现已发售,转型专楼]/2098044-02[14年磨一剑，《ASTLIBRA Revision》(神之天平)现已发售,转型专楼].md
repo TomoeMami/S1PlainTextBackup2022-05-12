@@ -7087,3 +7087,28 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  白軍浪  
+##### 2125#       发表于 2022-11-14 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58425001&amp;ptid=2098044" target="_blank">哈之分舍瓦 发表于 2022-11-14 09:43</a>
+
+还有其他的么，我现在打人全靠狂暴才能不刮痧，能量吸收回血用不上，何况不开狂暴也是挨一两下就死，遇到 ...</blockquote>
+叠返呀，盾防弹幕打上去听见叮就下a，就可以把一堆弹幕反弹回去，反弹时候是不减盾槽的
+
+*****
+
+####  5353  
+##### 2126#       发表于 2022-11-14 21:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58436660&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-14 20:48</a>
+
+火山遇见黑巫女后卡关了，说有个地方易于破环，但是我完全不知道是哪
+
+—— 来自 S1Fun ...</blockquote>
+你可以参照这个.
+[https://www.bilibili.com/read/cv ... .card_article.click](https://www.bilibili.com/read/cv19243862?spm_id_from=333.999.list.card_article.click)
+
