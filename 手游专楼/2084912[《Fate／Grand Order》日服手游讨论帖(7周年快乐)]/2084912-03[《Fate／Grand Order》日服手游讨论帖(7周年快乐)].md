@@ -6521,3 +6521,15 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 —— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 不用在意buff，直接打，不就是最多复活八次
 
+
+
+*****
+
+####  alucardcz  
+##### 3593#       发表于 2022-11-14 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58435233&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-11-14 19:10</a>
+
+用卑弥呼的表示感觉应该用摩根 没有AOE刮血好墨迹啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 居然还有卑弥呼
+
