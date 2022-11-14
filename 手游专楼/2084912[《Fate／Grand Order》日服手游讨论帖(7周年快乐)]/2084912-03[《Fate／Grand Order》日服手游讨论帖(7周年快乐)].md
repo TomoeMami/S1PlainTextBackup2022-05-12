@@ -6416,3 +6416,12 @@ Screenshot_20221112-141849.png
 
 有石头就抽，这机甲骑士终于出了，不过这终破卡面也太大了吧，松龙是这画风的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3584#       发表于 2022-11-14 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天超低难也打完了。 打法：冲浪
+
