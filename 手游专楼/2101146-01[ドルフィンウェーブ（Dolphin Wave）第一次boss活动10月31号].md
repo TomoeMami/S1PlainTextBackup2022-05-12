@@ -242,3 +242,12 @@ SSR相马飒和SSR山叶由芽有解DEBUFF的技能，SR没看过不知道有没
 
 这抽卡概率太黑了，看了下开服抽卡13次十连，第一次活动的6次10连，最新活动3次十连，累计就获得了一个UR角色<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  羽出  
+##### 114#       发表于 2022-11-14 22:38
+
+刚看到公告，养成关卡的体力减半延长至12月12日，索性常驻得了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
