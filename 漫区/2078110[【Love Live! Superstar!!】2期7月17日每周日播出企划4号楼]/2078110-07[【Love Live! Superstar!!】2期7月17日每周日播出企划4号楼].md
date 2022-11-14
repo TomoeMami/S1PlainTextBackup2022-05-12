@@ -3488,3 +3488,17 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 星这段时间要冷却到3rd之前么，感觉最近除了鱼都见不到什么动态。
 
+
+
+*****
+
+####  adw667  
+##### 9280#       发表于 2022-11-14 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58431336&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-11-14 15:39</a>
+
+说多了就黑泥了，都是屁大点圈子，离开楼没人认识。突然想想拉拉确实还不如现在水星的魔女，颇为感慨一个ip ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">“你天天直播，到时候比赛怎么办”
+
+所以说训练视频来俩就完事了
+
