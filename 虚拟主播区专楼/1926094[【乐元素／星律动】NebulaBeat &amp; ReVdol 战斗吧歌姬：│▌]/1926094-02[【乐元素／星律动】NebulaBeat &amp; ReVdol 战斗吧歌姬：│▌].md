@@ -10550,3 +10550,39 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  ladiesman802  
+##### 2613#       发表于 2022-11-14 20:45
+
+果然是被当作声优骗进来的
+
+小叶子看到的小纸：猫眼三姐妹
+
+小纸看到的小叶子：快跑，别来
+
+*****
+
+####  kuriboh  
+##### 2614#       发表于 2022-11-14 20:47
+
+这下战姬众老害团建了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kuriboh  
+##### 2615#       发表于 2022-11-14 20:47
+
+这下战姬众老害团建了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黄金鸡屁屁  
+##### 2616#       发表于 2022-11-14 20:47
+
+草，招人口号好尬
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
