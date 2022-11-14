@@ -6533,3 +6533,15 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 用卑弥呼的表示感觉应该用摩根 没有AOE刮血好墨迹啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕 居然还有卑弥呼
 
+
+
+*****
+
+####  qixinno2  
+##### 3594#       发表于 2022-11-14 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58435454&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-14 19:24</a>
+
+欧 羡慕 居然还有卑弥呼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你都羡慕多少次了 狗萌新
+
