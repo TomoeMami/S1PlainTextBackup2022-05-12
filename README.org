@@ -10,6 +10,7 @@
 
 2022至今历史存档 https://github.com/TomoeMami/S1PlainTextArchive2022
 
+S1 各板块回帖折线图 https://tomoemami.github.io/
 ** 全文搜索方式：
 
 限制频率为20次每分钟的简易网页搜索：http://175.27.249.201:8000/
