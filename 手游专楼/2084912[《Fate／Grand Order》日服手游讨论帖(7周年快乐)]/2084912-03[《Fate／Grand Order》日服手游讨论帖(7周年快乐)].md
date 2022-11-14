@@ -6398,3 +6398,12 @@ Screenshot_20221112-141849.png
 
 <img src="https://img.saraba1st.com/forum/202211/14/090054qkkq3hkjzorxmhrz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangun22  
+##### 3582#       发表于 2022-11-14 15:27
+
+隔壁那套蓝单加大英雄炸好像可以，高宝大公奥C呆借个奥，1面大英雄炸，2面大公，3面大公加自己的高宝奥，算下来不用给杯子宝具5的话3面也不需要补刀，就大英雄第一面可能会漏个几千
+
