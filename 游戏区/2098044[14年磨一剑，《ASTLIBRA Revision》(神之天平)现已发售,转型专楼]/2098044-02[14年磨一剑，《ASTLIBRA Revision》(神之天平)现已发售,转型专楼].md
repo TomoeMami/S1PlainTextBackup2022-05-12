@@ -7205,3 +7205,23 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 最后都会转换成战力。
 
+
+
+*****
+
+####  manyin1  
+##### 2133#       发表于 2022-11-15 01:59
+
+奇怪，堆了70的幸运加上一堆加幸运的饰品，打东京研究所就没调过几个蓝宝箱，明明其他图随便打打蓝宝箱就能开满图纸，唯有这个图打了好久也只开出一个传奇武器图纸
+
+*****
+
+####  Rainwedell  
+##### 2134#       发表于 2022-11-15 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58440407&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-11-15 01:59</a>
+奇怪，堆了70的幸运加上一堆加幸运的饰品，打东京研究所就没调过几个蓝宝箱，明明其他图随便打打蓝宝箱就能 ...</blockquote>
+这图我打的时候爆率也低，正常的。。可能单独设置过
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
