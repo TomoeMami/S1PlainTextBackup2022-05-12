@@ -1490,3 +1490,43 @@ Taiji（9.10）：[https://store.steampowered.com/app/1141580/Taiji/](https://st
 
 是一个大学生一个人做的，昨天拿了indiePlay中国独立游戏大赛的最佳创新提名。我昨天在展会上跟作者聊了挺久，他想法挺有意思，这游戏的机制也非常有趣。然后他给我几个key让我帮忙推广一下，有谭友感兴趣想玩的话私信我我给你key，感觉有意思的话帮忙宣传一下就行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  weiyun  
+##### 103#         楼主| 发表于 2022-11-15 00:53
+
+Artless和Alith新作，14种扫雷变体
+
+这个我参与了测试，这14种新规则和组合起来都很有意思，生成算法保证不需要猜测，还有扫雷游戏里首次实现的分步提示系统
+
+还有专家模式，在玩家信息不足时猜测自动判错
+
+支持画图功能，还有好多其他的辅助功能，对逻辑要求比较高，很推荐
+[https://store.steampowered.com/a ... nesweeper_Variants/](https://store.steampowered.com/app/1865060/14_Minesweeper_Variants/)
+
+Magnet Block
+
+今天新出的磁力推箱子
+[https://store.steampowered.com/app/2092660/Magnet_Block/](https://store.steampowered.com/app/2092660/Magnet_Block/)
+
+*****
+
+####  weiyun  
+##### 104#         楼主| 发表于 2022-11-15 00:53
+
+Artless和Alith新作，14种扫雷变体
+
+这个我参与了测试，这14种新规则和组合起来都很有意思，生成算法保证不需要猜测，还有扫雷游戏里首次实现的分步提示系统
+
+还有专家模式，在玩家信息不足时猜测自动判错
+
+支持画图功能，还有好多其他的辅助功能，对逻辑要求比较高，很推荐
+[https://store.steampowered.com/a ... nesweeper_Variants/](https://store.steampowered.com/app/1865060/14_Minesweeper_Variants/)
+
+Magnet Block
+
+今天新出的磁力推箱子
+[https://store.steampowered.com/app/2092660/Magnet_Block/](https://store.steampowered.com/app/2092660/Magnet_Block/)
+
