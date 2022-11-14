@@ -6906,3 +6906,15 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 这主角有点像张教主啊（笑），他有义父（乌鸦），有病娇青梅竹马，有好几个暧昧的女性对象。此外主角还是个孤儿，是烂好人，很能打。大贤者甚至还可以顶下张三丰的位置，乐。
 
+
+
+*****
+
+####  llysander  
+##### 2110#       发表于 2022-11-14 14:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58428927&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-14 13:33</a>
+
+第五章那个召唤boss召唤的怪是随机的吗，招了一堆精英怪出来扛不住啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer"> 是，可以全给你召boss
+
