@@ -209,3 +209,27 @@ WIKI的支援卡排行[https://appmedia.jp/dolphin-wave/76134956](https://appmed
 
 这游戏sr和r卡的升级材料要都换了吗，还有就是高难的掉血debuff是不是只能硬吃
 
+
+
+*****
+
+####  MEKA  
+##### 112#       发表于 2022-11-14 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58425030&amp;ptid=2101146" target="_blank">DEMOxN 发表于 2022-11-14 09:44</a>
+
+这游戏sr和r卡的升级材料要都换了吗，还有就是高难的掉血debuff是不是只能硬吃 ...</blockquote>
+SSR相马飒和SSR山叶由芽有解DEBUFF的技能，SR没看过不知道有没有。材料的话个人是换了SSR和UR升级的材料，拉人物成本太高了感觉拉个能站住的克属SR就行...顺便问问玩过闪乱的大佬们LR是要抽吗，大概多久会开放呢<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DEMOxN| + 2||
+
+查看全部评分
+
