@@ -7179,3 +7179,29 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 这游戏掉落图纸我心如止水，因为多半素材不够还得去刷，然后下一话变成废品<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  5353  
+##### 2132#       发表于 2022-11-15 01:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58440300&amp;ptid=2098044" target="_blank">无攻不受鹿 发表于 2022-11-15 01:41</a>
+
+我是觉得这个刷素材的设计真的挺烂，毫无技术含量的延长游戏时间的方式
+
+哪怕暗黑2这种正经的刷子游 ...</blockquote>
+其实还好吧。
+
+造装备所需的材料实际很少，拉高幸运很快就OK。
+
+而装备主要是升满拿奖励和被动。
+
+杂物本身也可以扔天平上试试。
+
+实际到了新章，这些多的材料又会有新用途。
+
+反正刷的东西是不愁没地方用的。
+
+最后都会转换成战力。
+
