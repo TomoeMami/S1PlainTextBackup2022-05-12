@@ -6764,3 +6764,37 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 没有，四勇者就是最后的难关，如果你只能靠狂暴打人还是建议多练练级，一般三下死是比较合理的容错。 ...</blockquote>
 没四勇这么恶心的就还行，练级有什么高效法子么，还是就找个存档点来回刷?
 
+
+
+*****
+
+####  syndrome2032  
+##### 2100#       发表于 2022-11-14 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58427119&amp;ptid=2098044" target="_blank">哈之分舍瓦 发表于 2022-11-14 11:37</a>
+没四勇这么恶心的就还行，练级有什么高效法子么，还是就找个存档点来回刷? ...</blockquote>
+就找个存档点来回刷。晶体和素材比exp难刷多了。
+
+新章刷到最后很容易99的。
+
+
+
+*****
+
+####  Sannapolis  
+##### 2101#       发表于 2022-11-14 11:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58427119&amp;ptid=2098044" target="_blank">哈之分舍瓦 发表于 2022-11-14 11:37</a>
+
+没四勇这么恶心的就还行，练级有什么高效法子么，还是就找个存档点来回刷? ...</blockquote>
+没必要专门练级，跟着剧情走后面在盖亚迷宫刷队友好感的时候可以轻松练到满级。
+
+另外嘉隆技能点出“召唤的秘诀+爆发+恶魔狂热”，满精力用凭依技风精灵可以将主角攻速buff到鬼畜的地步。这套组合技用完应该就不会觉得刮了
+
+*****
+
+####  Sannapolis  
+##### 2102#       发表于 2022-11-14 11:58
+
+<blockquote>风怒，编辑了</blockquote>
+

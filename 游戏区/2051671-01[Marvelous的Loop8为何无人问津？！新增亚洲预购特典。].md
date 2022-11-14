@@ -795,3 +795,14 @@ B站直播间：[https://live.bilibili.com/21462472](https://live.bilibili.com/2
 
 日版的店铺特典服装中文版全部免费送了，太羡慕了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stoiorz  
+##### 75#         楼主| 发表于 2022-11-14 11:59
+
+[https://loop8.marv.jp/#news](https://loop8.marv.jp/#news)
+
+主角映像公开。预定抽送卡纸。
+
