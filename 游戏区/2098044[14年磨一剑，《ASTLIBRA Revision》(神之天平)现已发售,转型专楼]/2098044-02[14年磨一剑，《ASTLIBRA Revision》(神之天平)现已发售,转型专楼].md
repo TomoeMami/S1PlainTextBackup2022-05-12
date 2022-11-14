@@ -6719,3 +6719,14 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 
 投射类一般破盾值都不高（有专门坑举盾的例外），人鱼+后退回避+举盾并用就行，狂暴还是慎用，**降低容错不值，刮是刮的不过习惯后每个boss也没太多动作一直重复
 
+
+
+*****
+
+####  otakun  
+##### 2096#       发表于 2022-11-14 10:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58425001&amp;ptid=2098044" target="_blank">哈之分舍瓦 发表于 2022-11-14 09:43</a>
+还有其他的么，我现在打人全靠狂暴才能不刮痧，能量吸收回血用不上，何况不开狂暴也是挨一两下就死，遇到 ...</blockquote>
+两下死和一下死差远了，只要食物够多，靠凭依的无敌时间够吃个水果回血了。弹幕还帮人回血。
+
