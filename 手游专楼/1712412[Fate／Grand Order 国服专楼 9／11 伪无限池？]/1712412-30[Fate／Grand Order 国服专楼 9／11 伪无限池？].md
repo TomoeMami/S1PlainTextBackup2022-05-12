@@ -1047,3 +1047,17 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 茨木！
 
+
+
+*****
+
+####  UNISONIA  
+##### 43737#       发表于 2022-11-14 09:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58405205&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-12 21:48</a>
+
+一开始信誓旦旦！——老子要抽4800个信胜硬币，明年一年的份！
+
+抽了3000后……我决定躺平。 ...</blockquote>
+一年的份不是48000个？
+

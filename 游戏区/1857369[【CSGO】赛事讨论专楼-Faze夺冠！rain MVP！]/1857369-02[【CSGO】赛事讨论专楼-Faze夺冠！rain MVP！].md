@@ -2506,3 +2506,12 @@ ame：你来之前我们是亚军，你走之后我们是冠军，无耻的队�
 看这数据是被吊起来打啊
 这也太惨了
 
+
+
+*****
+
+####  宝儿  
+##### 2903#       发表于 2022-11-14 09:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer"> 上帝捧走了属于他的奖杯
+
