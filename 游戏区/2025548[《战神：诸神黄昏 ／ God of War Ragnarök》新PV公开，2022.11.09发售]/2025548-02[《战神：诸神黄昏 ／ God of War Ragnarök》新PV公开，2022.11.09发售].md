@@ -153,3 +153,14 @@ ng+会有的，我记得sony第一方基本都是在几个月后有次大更新�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  percy1234  
+##### 1515#       发表于 2022-11-14 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58435062&amp;ptid=2025548" target="_blank">白昼梦 发表于 2022-11-14 19:00</a>
+平衡难度奎爷是脆，感觉&amp;#x8F ...</blockquote>
+容错低归低，这代加了机制以后跨级打怪比上代舒服多了，战神难度不清楚但无情难度跨两级真的没问题，上代等级压得太死了
+
