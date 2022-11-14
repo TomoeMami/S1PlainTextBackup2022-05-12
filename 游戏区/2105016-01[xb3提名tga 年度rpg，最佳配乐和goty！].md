@@ -729,3 +729,15 @@ rpg里面ns游戏比例过高了吧
 
 <img src="https://p.sda1.dev/8/c4ef137a7bcad2b5b8af637699df1dbd/CMP_20221115072735381.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宝香  
+##### 84#       发表于 2022-11-15 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58440714&amp;ptid=2105016" target="_blank">king520kyo 发表于 2022-11-15 04:22</a>
+
+野鸡奖 得了又怎么样呢换了个皮相就有提名了 不得不说充满了白皮的傲慢味 ...</blockquote>
+请问XB2在17年打得过谁？
+
