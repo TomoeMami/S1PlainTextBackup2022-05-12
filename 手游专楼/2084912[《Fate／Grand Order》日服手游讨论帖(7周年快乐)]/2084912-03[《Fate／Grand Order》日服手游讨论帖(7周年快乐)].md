@@ -6425,3 +6425,12 @@ Screenshot_20221112-141849.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天超低难也打完了。 打法：冲浪
 
+
+
+*****
+
+####  khxooo  
+##### 3585#       发表于 2022-11-14 18:04
+
+摩呆梅过的，如果有卑呆梅集中火力塔罗斯应该会更快。可惜找不到挂卑弥呼的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
