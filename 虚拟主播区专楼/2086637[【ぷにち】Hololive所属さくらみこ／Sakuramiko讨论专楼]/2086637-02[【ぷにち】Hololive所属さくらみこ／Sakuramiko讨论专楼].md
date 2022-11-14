@@ -15622,3 +15622,34 @@ fate没看过了
 
 我是看懂了,大家都想看她胜利的结算动作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 2998#         楼主| 发表于 2022-11-14 21:54
+
+比起holo角色来还是其他作品的角色来比较有意思
+
+*****
+
+####  rs5621  
+##### 2999#       发表于 2022-11-14 21:56
+
+<img src="https://img.saraba1st.com/forum/202211/14/215607kttp64dis44a4tud.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (88.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-14 21:56 上传
+
+那个男人来了hh
+
+*****
+
+####  rs5621  
+##### 3000#       发表于 2022-11-14 22:00
+
+还被暴揍了,这下双重暴击.
+

@@ -6563,3 +6563,21 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 两个十连入手查理曼，这货的最终再临真难看，什么审美<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yangun22  
+##### 3597#       发表于 2022-11-14 21:55
+
+还真可以用大公，终于有不用顶配的6加成打法了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+593.jpg
+(433.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-14 21:54 上传
+
+<img src="https://img.saraba1st.com/forum/202211/14/215443g3wdmdya2d23x3xz.jpg" referrerpolicy="no-referrer">
+
