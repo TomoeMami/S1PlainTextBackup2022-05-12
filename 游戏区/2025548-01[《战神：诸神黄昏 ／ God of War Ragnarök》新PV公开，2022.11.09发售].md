@@ -14760,3 +14760,15 @@ emmm，我没想到战神3评价还这么好的。先不说剧情也是砍一大
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  wgoenitz  
+##### 1497#       发表于 2022-11-14 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58427009&amp;ptid=2025548" target="_blank">wthall 发表于 2022-11-14 11:31</a>
+
+之前再剧透贴感叹没热度，今天早上论坛看了看才反应过来已经发售了，真的一点热度都没有啊，全在专 ...</blockquote>
+毕竟独占游戏，尤其是体验好还得ps5
+
