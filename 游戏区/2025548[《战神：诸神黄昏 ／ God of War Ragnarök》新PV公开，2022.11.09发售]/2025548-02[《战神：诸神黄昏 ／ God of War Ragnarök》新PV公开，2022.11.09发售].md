@@ -77,3 +77,12 @@ ng+会有的，我记得sony第一方基本都是在几个月后有次大更新�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  白昼梦  
+##### 1509#       发表于 2022-11-14 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平衡难度奎爷是脆，感觉这代数值也有问题，探索奖励拿满也抗不住探索区域精英怪三下
+
