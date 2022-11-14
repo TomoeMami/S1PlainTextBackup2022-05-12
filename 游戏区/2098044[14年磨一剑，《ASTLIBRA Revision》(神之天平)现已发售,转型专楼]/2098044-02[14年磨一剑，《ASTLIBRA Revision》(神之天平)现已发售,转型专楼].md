@@ -7112,3 +7112,20 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 你可以参照这个.
 [https://www.bilibili.com/read/cv ... .card_article.click](https://www.bilibili.com/read/cv19243862?spm_id_from=333.999.list.card_article.click)
 
+
+
+*****
+
+####  wolfwood  
+##### 2127#       发表于 2022-11-14 21:51
+
+火山这个靶子宝箱怎么拿
+
+<img src="https://img.saraba1st.com/forum/202211/14/215103zfurwrzu0avw8yu7.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (236.98 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-14 21:51 上传
+
