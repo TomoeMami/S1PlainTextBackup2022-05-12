@@ -321,3 +321,19 @@ Ultraman MoeP
 好好陪伴快六年的角色 说没就没了
 之后还会被遗忘
 
+
+
+*****
+
+####  dozen  
+##### 6737#       发表于 2022-11-14 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58436102&amp;ptid=1959558" target="_blank">梶原ひかり 发表于 2022-11-14 20:04</a>
+每次想到有人要替代灯露 就感觉心疼
+好好陪伴快六年的角色 说没就没了
+之后还会被遗忘 ...</blockquote>
+“说没就没了”
+可现在普遍都觉得不是灯露被夺走了雪菜、而是她自己放弃的
+
+“说放弃就放弃了”才是很多人现在的意难平
+
