@@ -310,3 +310,14 @@ Ultraman MoeP
 见到巴珠绪像亲人一样是吧</blockquote>
 巴珠绪上不了4thLIVE还是挺可惜的
 
+
+
+*****
+
+####  梶原ひかり  
+##### 6736#       发表于 2022-11-14 20:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">每次想到有人要替代灯露 就感觉心疼
+好好陪伴快六年的角色 说没就没了
+之后还会被遗忘
+

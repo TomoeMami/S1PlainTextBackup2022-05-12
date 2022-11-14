@@ -10512,3 +10512,17 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  ladiesman802  
+##### 2610#       发表于 2022-11-14 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58435835&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-11-14 19:46</a>
+
+哥们碳典随口就来，怀疑高强度贴吧冲浪
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+小叶子：只有小学生才上贴吧
+
