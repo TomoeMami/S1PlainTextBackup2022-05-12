@@ -14737,3 +14737,15 @@ emmm，我没想到战神3评价还这么好的。先不说剧情也是砍一大
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  mousy55555  
+##### 1495#       发表于 2022-11-14 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58430643&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-14 15:03</a>
+
+这代长枪可以吸属性算是点睛之笔，尤其是他有个典型的套环设计，拿到长枪之后马上就可以解锁火山挑战， ...</blockquote>
+爆裂螺旋钉简直是清小怪神器，远程能力拉满了直接就是各种钉子爆炸打到飞起来后一套连死
+
