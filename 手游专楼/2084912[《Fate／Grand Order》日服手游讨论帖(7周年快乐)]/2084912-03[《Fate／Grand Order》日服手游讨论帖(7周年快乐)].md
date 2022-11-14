@@ -6434,3 +6434,15 @@ Screenshot_20221112-141849.png
 
 摩呆梅过的，如果有卑呆梅集中火力塔罗斯应该会更快。可惜找不到挂卑弥呼的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3586#       发表于 2022-11-14 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58434208&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-11-14 18:04</a>
+
+摩呆梅过的，如果有卑呆梅&amp;#x9 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完后看了看隔壁 原来难度在随机的魅惑 我好像没中过
+
