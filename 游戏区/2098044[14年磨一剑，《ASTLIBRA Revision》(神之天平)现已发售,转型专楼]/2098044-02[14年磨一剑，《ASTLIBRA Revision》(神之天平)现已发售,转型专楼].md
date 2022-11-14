@@ -7166,3 +7166,16 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 火山这个靶子宝箱怎么拿</blockquote>
 十字弩可以向下瞄准的，你在左边掏弩然后按下试试看。然后法杖的投射物也是可以打靶子的，有一个法杖可以一直掉下去的
 
+
+
+*****
+
+####  无攻不受鹿  
+##### 2131#       发表于 2022-11-15 01:41
+
+我是觉得这个刷素材的设计真的挺烂，毫无技术含量的延长游戏时间的方式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哪怕暗黑2这种正经的刷子游戏，掉了好装备我直接就换上了，爽的一批
+
+这游戏掉落图纸我心如止水，因为多半素材不够还得去刷，然后下一话变成废品<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
