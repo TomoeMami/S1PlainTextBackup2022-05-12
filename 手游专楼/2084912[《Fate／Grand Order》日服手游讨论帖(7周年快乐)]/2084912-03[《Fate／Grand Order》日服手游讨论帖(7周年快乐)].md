@@ -6446,3 +6446,24 @@ Screenshot_20221112-141849.png
 摩呆梅过的，如果有卑呆梅&amp;#x9 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完后看了看隔壁 原来难度在随机的魅惑 我好像没中过
 
+
+
+*****
+
+####  khxooo  
+##### 3587#       发表于 2022-11-14 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58434397&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-14 18:17</a>
+打完后看了看隔壁 原来难度在随机的魅惑 我好像没中过</blockquote>
+那是你幸运，我嫖你的摩根经常被魅惑<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3588#       发表于 2022-11-14 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58434498&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-11-14 18:24</a>
+
+那是你幸运，我嫖你的摩根经常被魅惑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种随机难度该喷
+

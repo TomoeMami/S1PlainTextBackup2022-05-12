@@ -284,3 +284,29 @@ Ultraman MoeP
 
 能唱能跳年龄小还没有一大堆企划在身<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ardito  
+##### 6734#       发表于 2022-11-14 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58434183&amp;ptid=1959558" target="_blank">makece 发表于 2022-11-14 18:02</a>
+
+从隔壁少歌中等部里薅一个来做雪菜算了
+
+能唱能跳年龄小还没有一大堆企划在身
+
+ ...</blockquote>
+见到巴珠绪像亲人一样是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  makece  
+##### 6735#       发表于 2022-11-14 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58434453&amp;ptid=1959558" target="_blank">ardito 发表于 2022-11-14 18:21</a>
+
+见到巴珠绪像亲人一样是吧</blockquote>
+巴珠绪上不了4thLIVE还是挺可惜的
+
