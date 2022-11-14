@@ -6861,3 +6861,12 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 我第五章时带着白魔女一起去，一个怪一个怪地推进，也太 ...</blockquote>
 ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
+
+
+*****
+
+####  nogi  
+##### 2107#       发表于 2022-11-14 13:33
+
+第五章那个召唤boss召唤的怪是随机的吗，招了一堆精英怪出来扛不住啊
+
