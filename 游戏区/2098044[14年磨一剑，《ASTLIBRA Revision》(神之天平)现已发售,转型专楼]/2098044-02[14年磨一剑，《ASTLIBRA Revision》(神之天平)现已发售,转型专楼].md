@@ -6652,3 +6652,35 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  llysander  
+##### 2090#       发表于 2022-11-14 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58395409&amp;ptid=2098044" target="_blank">土狼菌 发表于 2022-11-12 08:18</a>
+
+卖相感觉还是太差了，估计应该不多</blockquote>
+免费游戏爱发电转正的有卖的好的嘛， 接下来可以看看废都
+
+*****
+
+####  llysander  
+##### 2091#       发表于 2022-11-14 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58404867&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-12 21:29</a>
+
+这游戏的负重到底跟什么挂钩啊？找半天说明没找到，我看重量的显示应该是有减负重的 ...</blockquote>
+一个是天平，一个是板子上 减负重， 接下来就要靠各种途径加敏捷
+
+*****
+
+####  llysander  
+##### 2092#       发表于 2022-11-14 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58422512&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-11-14 00:47</a>
+
+火山隐藏boss的斩铁闪怎么过？</blockquote>
+三次拔刀后狂暴的dps check
+
