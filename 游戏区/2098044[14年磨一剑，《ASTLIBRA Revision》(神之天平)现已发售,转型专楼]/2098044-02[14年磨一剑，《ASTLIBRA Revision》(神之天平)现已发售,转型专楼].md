@@ -6987,3 +6987,48 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 类似三角之力也是按章节发售（同样剧情很精彩），不过因为神之天平没有传统意义上的支线，所以在开始刷的时候，真的就是开刷了（类似暗黑那种），我都是音乐，SE啥的调到最低，然后开一个直播边看别刷，这样还导致我对游戏音乐的评价也不高
 
+
+
+*****
+
+####  绕指流光  
+##### 2116#       发表于 2022-11-14 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58433065&amp;ptid=2098044" target="_blank">lilod 发表于 2022-11-14 16:57</a>
+其实我的点是，第一遍可以做的相对简单一些（后续重复玩逼刷是没有问题的），我只是觉得章节走一遍，武器 ...</blockquote>
+新章基本上上解决了刷材料这个问题，有装饰品和技能加掉率，盖亚迷宫更是设计给你补课的，一切解决方案都有
+话说本篇玩完了更应该玩一下新章，剧情和刷都有新玩法，不然真的亏，没有revison的意义了
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  lilod  
+##### 2117#       发表于 2022-11-14 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58433141&amp;ptid=2098044" target="_blank">绕指流光 发表于 2022-11-14 17:02</a>
+
+新章基本上上解决了刷材料这个问题，有装饰品和技能加掉率，盖亚迷宫更是设计给你补课的，一切解决方案都 ...</blockquote>
+嗯嗯，肯定会玩（我昨天才通了本篇，先休息一下，话说我有必要把本篇里那些武器都刷完么。。。。
+
+*****
+
+####  绕指流光  
+##### 2118#       发表于 2022-11-14 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58433161&amp;ptid=2098044" target="_blank">lilod 发表于 2022-11-14 17:03</a>
+嗯嗯，肯定会玩（我昨天才通了本篇，先休息一下，话说我有必要把本篇里那些武器都刷完么。。。。 ...</blockquote>
+全刷完才有终极武器<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">不过这个过程远比你想象的简单，剧情推就行了，最后有个气球小屋专门卖配方武器查漏补缺。实在刮可以直接CE改石头，加满能力后也不会强太多，刷起来轻松享受
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  lilod  
+##### 2119#       发表于 2022-11-14 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58433230&amp;ptid=2098044" target="_blank">绕指流光 发表于 2022-11-14 17:07</a>
+
+全刷完才有终极武器不过这个过程远比你想象的简单，剧情推就行了，最后有个气球小屋专门卖配方武 ...</blockquote>
+我的意思是，我需要读之前的存档回去刷，还是就接着新章玩就行？
+
