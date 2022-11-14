@@ -6945,3 +6945,14 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  弯弓射山猪  
+##### 2113#       发表于 2022-11-14 14:56
+
+第六章图纸也太难爆了，幸运拉满 啥都刷好了
+
+还差2图纸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
