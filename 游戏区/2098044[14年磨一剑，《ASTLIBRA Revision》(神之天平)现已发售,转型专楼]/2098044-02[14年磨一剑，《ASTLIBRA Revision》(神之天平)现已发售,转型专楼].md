@@ -6730,3 +6730,15 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 还有其他的么，我现在打人全靠狂暴才能不刮痧，能量吸收回血用不上，何况不开狂暴也是挨一两下就死，遇到 ...</blockquote>
 两下死和一下死差远了，只要食物够多，靠凭依的无敌时间够吃个水果回血了。弹幕还帮人回血。
 
+
+
+*****
+
+####  管住键政的手  
+##### 2097#       发表于 2022-11-14 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58422722&amp;ptid=2098044" target="_blank">哈之分舍瓦 发表于 2022-11-14 01:19</a>
+
+嘉农除了抹除还有啥好用的消弹幕技能嘛？地狱开荒刚过四勇者，被法爷弓兵压的满头包，不知道后面还有没有这 ...</blockquote>
+没有，四勇者就是最后的难关，如果你只能靠狂暴打人还是建议多练练级，一般三下死是比较合理的容错。
+
