@@ -6639,3 +6639,16 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 仿佛体会 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我跑路了还担心会不会漏了一个boss成就
 
+
+
+*****
+
+####  藤井紫  
+##### 2089#       发表于 2022-11-14 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58422630&amp;ptid=2098044" target="_blank">ぽんぽこ仮面 发表于 2022-11-14 01:03</a>
+第四章洞窟四个扑克花色球机关打开之后也没有桥，跳又跳不过去，请问坛友是bug了吗心态崩了 ...</blockquote>
+在那个机关旁边用升龙接二段跳就能上去
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
