@@ -2453,3 +2453,56 @@ vp牛的
 
 ame：你来之前我们是亚军，你走之后我们是冠军，无耻的队友狂润美
 
+
+
+*****
+
+####  haruhiismer  
+##### 2897#       发表于 2022-11-14 08:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58424057&amp;ptid=1857369" target="_blank">ml1642879 发表于 2022-11-14 08:33</a>
+ame：你来之前我们是亚军，你走之后我们是冠军，无耻的队友狂润美</blockquote>
+他老是白给影响队伍阵型，vp每个回合都有狙的队伍首杀让jame去不就行了
+
+*****
+
+####  那由  
+##### 2898#       发表于 2022-11-14 08:42
+
+2 ame can win
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  朔方原的星  
+##### 2899#         楼主| 发表于 2022-11-14 08:42
+
+好！喜欢这个结局<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+打个游戏搞那么多乱七八糟的动作排挤人家，有用吗
+
+*****
+
+####  白面互撸娃  
+##### 2900#       发表于 2022-11-14 08:47
+
+毛子csgo best csgo，隔壁大毛二毛打的这么恼火，天禄能不能捡漏组个毛子队算了
+
+*****
+
+####  那由  
+##### 2901#       发表于 2022-11-14 08:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">vp官推下面好看了，一堆司马玩意在嘴硬和你没关系，疑似有点急了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rrtyui  
+##### 2902#       发表于 2022-11-14 08:51
+
+恭喜vp！
+看这数据是被吊起来打啊
+这也太惨了
+

@@ -3356,3 +3356,17 @@ pay自拍不少其实，就是合照少点。
 
 —— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 9270#       发表于 2022-11-14 08:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58415820&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-13 17:25</a>
+
+上个月生放说的GiGO咖啡联动的周边，这个挂件是12号开始卖的第四弹，盲盒制，而且好像无网贩只能 ...</blockquote>
+寄<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过还是先求一个搜索关键词，没准之后用得上呢
+
