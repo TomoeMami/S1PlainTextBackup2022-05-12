@@ -6847,3 +6847,17 @@ WIKI：[https://w.atwiki.jp/astlibra/sp/list](https://w.atwiki.jp/astlibra/sp/li
 
 顺便血量的一击线判断可以依靠当前气球商店回复最高的果子，回复量大概就是当前章节最高难度的一击线。
 
+
+
+*****
+
+####  llysander  
+##### 2106#       发表于 2022-11-14 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58427797&amp;ptid=2098044" target="_blank">超纯锑 发表于 2022-11-14 12:21</a>
+
+第三章有个宝箱在门口附近的隐藏图到底该怎么打？
+
+我第五章时带着白魔女一起去，一个怪一个怪地推进，也太 ...</blockquote>
+ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
+
