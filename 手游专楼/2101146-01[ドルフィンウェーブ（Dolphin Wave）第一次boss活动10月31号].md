@@ -251,3 +251,12 @@ SSR相马飒和SSR山叶由芽有解DEBUFF的技能，SR没看过不知道有没
 
 刚看到公告，养成关卡的体力减半延长至12月12日，索性常驻得了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exalbion01  
+##### 115#       发表于 2022-11-14 23:50
+
+说起来我闪乱也就蝗了个开头就没玩了。。。想问下按照闪乱的经验的话这作氪度和肝度高么？
+

@@ -6593,3 +6593,15 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 还真可以用大公，终于有不用顶配的6加成打法了</blockquote>
 你这个不叫顶配吗
 
+
+
+*****
+
+####  alucardcz  
+##### 3599#       发表于 2022-11-14 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58439217&amp;ptid=2084912" target="_blank">areklose 发表于 2022-11-14 23:43</a>
+
+你这个不叫顶配吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时代变了 新时代顶配是120+2000+5宝
+

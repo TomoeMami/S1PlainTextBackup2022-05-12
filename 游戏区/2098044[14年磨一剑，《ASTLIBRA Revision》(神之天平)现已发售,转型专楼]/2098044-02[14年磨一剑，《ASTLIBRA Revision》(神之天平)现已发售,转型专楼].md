@@ -7154,3 +7154,15 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 火山这个靶子宝箱怎么拿</blockquote>
 有个加隆技能是空中按住下可以悬在空中数秒,你掉到差不多了就悬停,然后拿出十字弩
 
+
+
+*****
+
+####  白軍浪  
+##### 2130#       发表于 2022-11-14 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58437467&amp;ptid=2098044" target="_blank">wolfwood 发表于 2022-11-14 21:51</a>
+
+火山这个靶子宝箱怎么拿</blockquote>
+十字弩可以向下瞄准的，你在左边掏弩然后按下试试看。然后法杖的投射物也是可以打靶子的，有一个法杖可以一直掉下去的
+
