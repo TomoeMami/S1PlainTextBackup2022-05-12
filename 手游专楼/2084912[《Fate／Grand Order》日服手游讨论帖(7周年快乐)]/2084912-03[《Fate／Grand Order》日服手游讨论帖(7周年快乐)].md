@@ -6467,3 +6467,14 @@ Screenshot_20221112-141849.png
 那是你幸运，我嫖你的摩根经常被魅惑</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种随机难度该喷
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3589#       发表于 2022-11-14 18:45
+
+打手没有无敌贯通就每回合放无敌，换了杀生院就魅惑连着发，打得好烦<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
