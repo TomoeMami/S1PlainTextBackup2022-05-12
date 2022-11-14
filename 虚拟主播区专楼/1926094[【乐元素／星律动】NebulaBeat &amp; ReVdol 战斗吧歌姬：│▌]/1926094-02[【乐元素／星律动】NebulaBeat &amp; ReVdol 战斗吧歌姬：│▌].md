@@ -10466,3 +10466,20 @@ ts映画这个策划挺牛的，有种传统MAD的感觉，加上重新改词和
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  天青月白  
+##### 2605#       发表于 2022-11-14 14:14
+
+喷了，有个人在b站把日乐跟nb面试细节全爆了个遍
+【我应募了国V圈烧钱先行者星律动脉冲星企划，而且……-哔哩哔哩】 https://b23.tv/cyCnhub
+
+*****
+
+####  竜騎士07  
+##### 2606#       发表于 2022-11-14 14:20
+
+这九夏今天怎么还投了个稿 你们nb的都是第二天复活么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

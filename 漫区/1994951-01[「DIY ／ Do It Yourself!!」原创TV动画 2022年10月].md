@@ -5594,3 +5594,15 @@ Do It Yourself!! 6話
 [https://twitter.com/M_hisashi/status/1591851367374938112](https://twitter.com/M_hisashi/status/1591851367374938112)
 <img src="https://p.sda1.dev/8/703702b7b378d8c00fe2844d1c8ba808/20221114_134154.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 441#       发表于 2022-11-14 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58414841&amp;ptid=1994951" target="_blank">CharlieZ- 发表于 2022-11-13 16:36</a>
+
+后面这评分才对嘛，看来第一集是提纯啊</blockquote>
+这题材和风格挺筛观众的 不喜欢的肯定觉得无聊看不下去
+
