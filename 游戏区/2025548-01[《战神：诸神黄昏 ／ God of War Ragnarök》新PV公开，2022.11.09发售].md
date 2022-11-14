@@ -14294,3 +14294,19 @@ r2长按把对方身上的毒属性吸了，然后长枪攻击上属性非常快
 2 ...</blockquote>
 不更新装备很容易被暴打
 
+
+
+*****
+
+####  lazycat233  
+##### 1455#       发表于 2022-11-14 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58424833&amp;ptid=2025548" target="_blank">Znesmoc 发表于 2022-11-14 09:31:19</a>
+9小时，刚到老年组准备出发那段
+
+1奎爷好脆，打封印地底士兵那个任务的时候四五下就挂了，明明是平衡难度
+
+2 ...</blockquote>这游戏容错率就是很低，普通难度把所有资源拉满装备打一个同等级的怪也吃不了几招
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -2515,3 +2515,21 @@ ame：你来之前我们是亚军，你走之后我们是冠军，无耻的队�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer"> 上帝捧走了属于他的奖杯
 
+
+
+*****
+
+####  Cushaw  
+##### 2904#       发表于 2022-11-14 09:59
+
+上帝之城，很合理<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  rrtyui  
+##### 2905#       发表于 2022-11-14 10:02
+
+本届四强全都突破了他们的历史最好成绩，真是梦幻...
+
