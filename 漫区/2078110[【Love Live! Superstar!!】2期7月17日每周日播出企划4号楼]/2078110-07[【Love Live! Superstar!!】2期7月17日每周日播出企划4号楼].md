@@ -3532,3 +3532,16 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">可趴和肥可都到了好耶
 
+
+
+*****
+
+####  nufawneafg  
+##### 9283#       发表于 2022-11-14 18:37
+
+ 本帖最后由 nufawneafg 于 2022-11-14 18:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也别海的这边海的那边了
+起码星我是真没见几个日本人为这种mindfxxking的动画叫好的，我现在挺希望三期原班人马继续做，自作自受咯。
+日本人不是最喜欢讲魄力，到展现魄力的时候了，加油啊**作kuso动画的大哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
