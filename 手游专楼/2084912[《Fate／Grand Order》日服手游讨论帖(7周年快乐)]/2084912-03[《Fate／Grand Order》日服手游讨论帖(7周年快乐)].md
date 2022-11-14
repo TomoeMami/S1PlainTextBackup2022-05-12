@@ -6487,3 +6487,37 @@ Screenshot_20221112-141849.png
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用卑弥呼的表示感觉应该用摩根 没有AOE刮血好墨迹啊
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3591#       发表于 2022-11-14 19:16
+
+ 本帖最后由 gpx234mqx 于 2022-11-14 19:19 编辑 
+
+低难我觉得是看不起人，才2排血
+
+强打过了，不用在乎buff，无敌和魅惑无视之
+
+FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
+(811.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-14 19:15 上传
+
+<img src="https://img.saraba1st.com/forum/202211/14/191551b754ylfm55zwah53.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 3592#       发表于 2022-11-14 19:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58420085&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2022-11-13 21:50</a>
+
+能解自己的解不了马嘶身上的啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+不用在意buff，直接打，不就是最多复活八次
+

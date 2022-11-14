@@ -15576,3 +15576,15 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 
 服了，大清早又在发恩济推
 
+
+
+*****
+
+####  rs5621  
+##### 2993#       发表于 2022-11-14 19:11
+
+<blockquote>こんやは２２じ！
+
+ソウルキャリバーやりたいにぇ！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好好好
+
