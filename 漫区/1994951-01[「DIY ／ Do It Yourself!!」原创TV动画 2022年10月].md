@@ -5553,3 +5553,44 @@ https://mobile.twitter.com/maro_muchi/status/1591420222522941441</blockquote>
 
 2022-11-13 21:03 上传
 
+
+
+*****
+
+####  Piano-Forest  
+##### 439#         楼主| 发表于 2022-11-14 13:41
+
+[https://twitter.com/koga355/status/1590744685844516866](https://twitter.com/koga355/status/1590744685844516866)
+
+Do It Yourself!! 6話
+
+原画で参加してました！
+<img src="https://p.sda1.dev/8/00d49c2aade40742c9e1d6f10060ee1b/20221114_133946.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/key_kun_anime/status/1591786110606536704](https://twitter.com/key_kun_anime/status/1591786110606536704)
+
+おねげしまス！を摂取しに6話2原してました…何卒…
+<img src="https://p.sda1.dev/8/5300958c34b800cc124b26222287fbe9/20221114_133858.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 440#         楼主| 发表于 2022-11-14 13:46
+
+[https://twitter.com/cottoneeeee/status/1591469977072455680](https://twitter.com/cottoneeeee/status/1591469977072455680)
+<img src="https://p.sda1.dev/8/1eb397f9ca95a762d53d66f7333c8d63/20221114_134146.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/ri_6n/status/1591670451453202432](https://twitter.com/ri_6n/status/1591670451453202432)
+
+結んでもらう前のせるふちゃん
+<img src="https://p.sda1.dev/8/884412af0bebc37a5bbef72a3b7d94e8/20221114_134150.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/nanashi4488/status/1591203047229001737](https://twitter.com/nanashi4488/status/1591203047229001737)
+<img src="https://p.sda1.dev/8/1ee936ef07ee8b30f62a9eefd42948aa/20221114_134239.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/kurishinBH/status/1590892396996620290](https://twitter.com/kurishinBH/status/1590892396996620290)
+<img src="https://p.sda1.dev/8/307f9bd1dc41431ac63ad1276198c101/20221114_134236.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/M_hisashi/status/1591851367374938112](https://twitter.com/M_hisashi/status/1591851367374938112)
+<img src="https://p.sda1.dev/8/703702b7b378d8c00fe2844d1c8ba808/20221114_134154.jpg" referrerpolicy="no-referrer">
+

@@ -14579,3 +14579,14 @@ emmm，我没想到战神3评价还这么好的。先不说剧情也是砍一大
 
   试了下最高难度，敌人很难被R1R2打出硬直了，得靠其他招式起手，前作双刀的R1hold可以选个地方引爆aoe控怪这次改成L2+R2之后定位更像单体控制了，打人形杂兵稳定炸出后背还是挺爽的
 
+
+
+*****
+
+####  司马千晶  
+##### 1480#       发表于 2022-11-14 13:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58426586&amp;ptid=2025548" target="_blank">ff2077 发表于 2022-11-14 11:08</a>
+贴吧那不是起手就是“老子以前好用的xxx被删了，垃圾”  就没几个正儿八经讨论战斗的 ...</blockquote>
+毕竟这代把高难度最好用的几招都删改了，实用主义的研磨风暴，猴戏玩家的冲拳；过几天等老外开发差不多也就有人讨论（复读<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）了。 新加的东西很多都能套在前代系统，比如侧闪快速蓄斧子△，回避直接出疾跑中派生什么的。 
+
