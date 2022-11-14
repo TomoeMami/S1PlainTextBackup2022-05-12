@@ -6956,3 +6956,34 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 还差2图纸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  绕指流光  
+##### 2114#       发表于 2022-11-14 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58429227&amp;ptid=2098044" target="_blank">lilod 发表于 2022-11-14 13:47</a>
+打完了本篇，算是一个阶段了，简单总结一下：
+
+好的地方：
+
+1. 剧情：相信也是这里大家都吹的地方，不拖泥带 ...</blockquote>
+看到很多人都提到缺点是逼刷，章节之间装备数值差距过大，这个其实是因为原作是按章节发布的，间隔时间以年计算<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">所以每次更新要给玩家足够的挑战新鲜感
+包括能力盘的锁和钥匙也是因为这个才设计出来的<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">充满了旧时代的设定
+不得不说打磨才是名作诞生的必要条件啊，现在的流水线工程绝对生产不了这种作品
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  lilod  
+##### 2115#       发表于 2022-11-14 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58432964&amp;ptid=2098044" target="_blank">绕指流光 发表于 2022-11-14 16:52</a>
+
+看到很多人都提到缺点是逼刷，章节之间装备数值差距过大，这个其实是因为原作是按章节发布的，间隔时间以 ...</blockquote>
+其实我的点是，第一遍可以做的相对简单一些（后续重复玩逼刷是没有问题的），我只是觉得章节走一遍，武器店里好多武器都买不了有点蛋疼，也很缺钱
+
+类似三角之力也是按章节发售（同样剧情很精彩），不过因为神之天平没有传统意义上的支线，所以在开始刷的时候，真的就是开刷了（类似暗黑那种），我都是音乐，SE啥的调到最低，然后开一个直播边看别刷，这样还导致我对游戏音乐的评价也不高
+
