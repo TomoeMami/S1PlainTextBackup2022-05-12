@@ -15588,3 +15588,21 @@ expo上的裁判视频是七字母相关的到时候要公开大概是联动直�
 ソウルキャリバーやりたいにぇ！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好好好
 
+
+
+*****
+
+####  holoan  
+##### 2994#         楼主| 发表于 2022-11-14 21:32
+
+今天胜率这么高是观众放水还是变强了
+
+结果赢不了35P
+
+*****
+
+####  holoan  
+##### 2995#         楼主| 发表于 2022-11-14 21:34
+
+fate没看过了
+
