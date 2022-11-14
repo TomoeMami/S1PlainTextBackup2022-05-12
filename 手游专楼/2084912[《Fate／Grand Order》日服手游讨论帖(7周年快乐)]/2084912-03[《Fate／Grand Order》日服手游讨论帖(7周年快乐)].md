@@ -6478,3 +6478,12 @@ Screenshot_20221112-141849.png
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  qixinno2  
+##### 3590#       发表于 2022-11-14 19:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">用卑弥呼的表示感觉应该用摩根 没有AOE刮血好墨迹啊
+

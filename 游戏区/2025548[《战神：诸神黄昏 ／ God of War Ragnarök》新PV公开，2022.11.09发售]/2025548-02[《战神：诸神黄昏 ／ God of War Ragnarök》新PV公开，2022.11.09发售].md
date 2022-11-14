@@ -86,3 +86,18 @@ ng+会有的，我记得sony第一方基本都是在几个月后有次大更新�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">平衡难度奎爷是脆，感觉这代数值也有问题，探索奖励拿满也抗不住探索区域精英怪三下
 
+
+
+*****
+
+####  415452356  
+##### 1510#       发表于 2022-11-14 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58435062&amp;ptid=2025548" target="_blank">白昼梦 发表于 2022-11-14 19:00</a>
+平衡难度奎爷是脆，感觉&amp;#x8F ...</blockquote>
+  至少打得动，前作为了保证整个米德加区域的一体感搞的去到哪都感觉是自己打不过的怪，这次最高难度为了加快节奏在同等级或者高1级的情况下斧子爆头也能让处决条暴涨，这点至少比前作明白一点。
+  不过前作NG+模式下不再吃他那个崩坏的rpg问题的shi之后研究怎么打立回确实对这整个游戏改观了不少，但是前作精英怪各种吸附真的有点恶心，这次倒是闪避的无敌时间明显变长更合理了，很多红圈攻击来不及打断都可以直接闪掉。
+  这代把我最喜欢的冰刃长河给删了用另外一个符文技能代替是我对斧头唯一不满的地方。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
