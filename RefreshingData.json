@@ -60,7 +60,7 @@
     "title": "[【M14】神楽Mea(KaguraMea)讨论楼]",
     "lastedit": 1668335220,
     "category": "虚拟主播区专楼",
-    "active": false,
+    "active": true,
     "newtitle": "[]"
   },
   "2021563": {
@@ -373,7 +373,7 @@
     "newtitle": "[]",
     "lastedit": 1668350160,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "2086469": {
     "totalreply": 501,
@@ -693,7 +693,7 @@
     "newtitle": "[]",
     "lastedit": 1668175740,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "2032154": {
     "totalreply": 491,
@@ -797,7 +797,7 @@
     "newtitle": "[]",
     "lastedit": 1668217800,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "2096842": {
     "totalreply": 542,
@@ -853,7 +853,7 @@
     "newtitle": "[]",
     "lastedit": 1668398400,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2007064": {
     "totalreply": 10417,
@@ -1445,7 +1445,7 @@
     "newtitle": "[]",
     "lastedit": 1668273300,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "1727410": {
     "totalreply": 7478,
@@ -1461,7 +1461,7 @@
     "newtitle": "[]",
     "lastedit": 1668267720,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "2047025": {
     "totalreply": 470,
@@ -1517,7 +1517,7 @@
     "newtitle": "[]",
     "lastedit": 1668222960,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   "2035265": {
     "totalreply": 629,
@@ -1733,7 +1733,7 @@
     "newtitle": "[]",
     "lastedit": 1668168600,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "1991522": {
     "totalreply": 180,
@@ -1749,7 +1749,7 @@
     "newtitle": "[]",
     "lastedit": 1668268080,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "2021226": {
     "totalreply": 1881,
@@ -1813,7 +1813,7 @@
     "newtitle": "[]",
     "lastedit": 1668391980,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   "2050172": {
     "totalreply": 1208,
@@ -1965,7 +1965,7 @@
     "newtitle": "[]",
     "lastedit": 1668306360,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "1858008": {
     "totalreply": 1997,
@@ -1997,7 +1997,7 @@
     "newtitle": "[]",
     "lastedit": 1668391020,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "1911963": {
     "totalreply": 940,
@@ -2029,7 +2029,7 @@
     "newtitle": "[]",
     "lastedit": 1668374820,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "1102389": {
     "totalreply": 22350,
@@ -2053,7 +2053,7 @@
     "newtitle": "[]",
     "lastedit": 1668312240,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "1336553": {
     "totalreply": 25844,
@@ -2069,7 +2069,7 @@
     "newtitle": "[]",
     "lastedit": 1668356100,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "2034544": {
     "totalreply": 190,
@@ -2165,7 +2165,7 @@
     "newtitle": "[]",
     "lastedit": 1668389220,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "1843655": {
     "totalreply": 726,
@@ -2197,7 +2197,7 @@
     "newtitle": "[]",
     "lastedit": 1668181560,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "1993868": {
     "totalreply": 216,
@@ -2397,7 +2397,7 @@
     "newtitle": "[]",
     "lastedit": 1668355020,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "1336706": {
     "totalreply": 3277,
@@ -2781,7 +2781,7 @@
     "newtitle": "[]",
     "lastedit": 1668253740,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "1910828": {
     "totalreply": 286,
@@ -9197,7 +9197,7 @@
     "newtitle": "[]",
     "lastedit": 1668413514,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2104895": {
     "totalreply": 197,
@@ -9205,7 +9205,7 @@
     "newtitle": "[]",
     "lastedit": 1668413820,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2104816": {
     "totalreply": 65,
@@ -9245,7 +9245,7 @@
     "newtitle": "[]",
     "lastedit": 1668413760,
     "category": "外野",
-    "active": false
+    "active": true
   },
   "2104910": {
     "totalreply": 118,
@@ -9253,6 +9253,6 @@
     "newtitle": "[]",
     "lastedit": 1668413564,
     "category": "外野",
-    "active": false
+    "active": true
   }
 }
