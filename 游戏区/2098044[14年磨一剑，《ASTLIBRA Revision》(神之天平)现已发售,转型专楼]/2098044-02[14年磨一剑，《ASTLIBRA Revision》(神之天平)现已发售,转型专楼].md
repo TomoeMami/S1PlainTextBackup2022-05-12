@@ -7502,3 +7502,38 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 有人说感觉像主角，特征娘娘腔，孤儿没爹妈</blockquote>
 提一句，主角金发
 
+
+
+*****
+
+####  永远的访客  
+##### 2157#       发表于 2022-11-15 13:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58440300&amp;ptid=2098044" target="_blank">无攻不受鹿 发表于 2022-11-15 01:41</a>
+
+我是觉得这个刷素材的设计真的挺烂，毫无技术含量的延长游戏时间的方式
+
+哪怕暗黑2这种正经的刷子游 ...</blockquote>
+刷素材可以增加后期的技能组合，本身是个好设计，但是搭配低动作设计逼刷练级就是烦躁感了。
+
+现在进新章商店一看清单就头皮发麻，然后出门开始刷刷刷，存盘记录40个小时还在雪山<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  syndrome2032  
+##### 2158#       发表于 2022-11-15 13:08
+
+大贤者有打不过遗迹兵这个剧情设定比较坑。
+
+*****
+
+####  Ravio  
+##### 2159#       发表于 2022-11-15 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58440300&amp;ptid=2098044" target="_blank">无攻不受鹿 发表于 2022-11-15 01:41</a>
+
+我是觉得这个刷素材的设计真的挺烂，毫无技术含量的延长游戏时间的方式
+
+哪怕暗黑2这种正经的刷子游 ...</blockquote>
+本质上刷图纸刷的是新技能和魔力水晶，到下一章废的是武器不是技能
+
