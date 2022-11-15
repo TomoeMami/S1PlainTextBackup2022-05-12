@@ -3624,3 +3624,15 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 2022-11-15 21:27 上传
 
+
+
+*****
+
+####  ddy2811  
+##### 9291#       发表于 2022-11-15 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452223&amp;ptid=2078110" target="_blank">星踪幻影 发表于 2022-11-15 20:12</a>
+
+在这里吐槽下，怎么虹一&amp;#x4E ...</blockquote>
+现在是“只要能保住太原，要多少我给多少”的情况啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
