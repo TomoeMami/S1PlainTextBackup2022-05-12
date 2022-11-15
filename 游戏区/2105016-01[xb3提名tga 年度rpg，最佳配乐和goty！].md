@@ -1686,3 +1686,39 @@ tga真能带货吗，破晓十月份就卖了150万份，两百万都是半年�
 
 看了破晓的销量图，tga的带货能力真的不咋地。xb粉就别期待奖能带飞了
 
+
+
+*****
+
+####  狸狸狐  
+##### 182#       发表于 2022-11-15 21:40
+
+欧美XB粉丝团体是真的很不容易
+
+Screenshot_20221115_213544_com.UCMobile.jpg
+(230.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-15 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202211/15/213959zig7vsqhw1hwqzel.jpg" referrerpolicy="no-referrer">
+
+Fhmk8glX0AAs82J_format=jpg&amp;amp;name=small.jpg
+(55.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-15 21:40 上传
+
+<img src="https://img.saraba1st.com/forum/202211/15/214005g3auem3afkf3ymk6.jpg" referrerpolicy="no-referrer">
+
+Fhmk8gkWQAAW9so_format=jpg&amp;amp;name=small.jpg
+(24.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-15 21:40 上传
+
+<img src="https://img.saraba1st.com/forum/202211/15/214009lxti13awgf1lltlt.jpg" referrerpolicy="no-referrer">
+
