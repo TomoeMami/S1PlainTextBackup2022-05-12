@@ -7666,3 +7666,14 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 这个15000的成就 打到迷宫是11000杀敌 下一次迷宫大概杀90个 刷44次才能刷完 有点折磨 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">CE改
 
+
+
+*****
+
+####  Ivent  
+##### 2173#       发表于 2022-11-15 19:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58449335&amp;ptid=2098044" target="_blank">skgaminger1988 发表于 2022-11-15 17:08</a>
+这个15000的成就 打到迷宫是11000杀敌 下一次迷宫大概杀90个 刷44次才能刷完 有点折磨 ...</blockquote>
+可以去打故乡那条路，地形不复杂可以一路a过去，怪比较多且夹杂着没有被誓戒侵蚀的怪，血也少，而且打碎石头还算杀敌数，一趟应该是一百多只。
+
