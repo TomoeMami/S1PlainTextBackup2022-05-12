@@ -971,3 +971,14 @@ D组梦女子贴贴捏<img src="https://static.saraba1st.com/image/smiley/face20
 
 装了小半年yhm终于承认自己是棒妹了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17721#       发表于 2022-11-15 22:51
+
+部分崩坏3玩家搞了近半个月的言论审查签名协力给米桑压力让降板，结果是，郡道拿到原神工商了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+也没有说很想看郡道工商尬夸但总觉得很乐<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+

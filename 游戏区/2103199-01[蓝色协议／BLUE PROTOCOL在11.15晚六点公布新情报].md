@@ -716,3 +716,17 @@ ps端港服开了，现在应该不锁了
 大家主要是调侃报道强调自己是纯正国产游戏这点，FF14和梦幻之星不都是国产，那这个强调是代表啥意 ...</blockquote>
 主要这游戏除了二刺猿和O真不一个赛道的，没必要提它
 
+
+
+*****
+
+####  andychen  
+##### 82#       发表于 2022-11-15 22:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58454182&amp;ptid=2103199" target="_blank">Chia 发表于 2022-11-15 22:45</a>
+
+这游戏立项时对应1060其实保守了，现在画面不够亮眼。
+
+1060对当时太君主流是个考验。没想到才几年，他们都 ...</blockquote>
+今天公开的1080P最高画质需要2070super+11700k，配置要求可不低
+
