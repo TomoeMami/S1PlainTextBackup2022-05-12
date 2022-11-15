@@ -1621,3 +1621,14 @@ tga需要流量罢了
 xb3粉也就只能拿这个野鸡奖当慰藉了，和op有啥区别。能卖到三百万再说吧</blockquote>
 op跟咱们3p不一样的，op有流水（
 
+
+
+*****
+
+####  Antidote丶  
+##### 175#       发表于 2022-11-15 18:20
+
+要不串烧用Drifting Soul吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
