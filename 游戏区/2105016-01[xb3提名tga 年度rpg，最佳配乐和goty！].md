@@ -818,3 +818,55 @@ xb2按发售日算是要和2018年的游戏比的，而那年最佳配乐《漫�
 
 XB3必须五提五拿 才能证明TGA不是野鸡
 
+
+
+*****
+
+####  电磁炮233  
+##### 93#       发表于 2022-11-15 08:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441219&amp;ptid=2105016" target="_blank">饼脸遥 发表于 2022-11-15 08:10</a>
+最终播片感动无数人 这不给个最佳叙事吗？
+
+战斗演出和铁窗泪站在整个JRPG甚至RPG顶端 这不给个最佳演出吗？ ...</blockquote>
+那个最佳演出其实是最佳扮演，颁给声优和演员的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  xbhuang  
+##### 94#       发表于 2022-11-15 08:15
+
+不说别的，这最佳角色扮演游戏提名里一个能打的都没
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Cortana  
+##### 95#       发表于 2022-11-15 08:15
+
+我卡比呢？
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Senni  
+##### 96#       发表于 2022-11-15 08:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58440652&amp;ptid=2105016" target="_blank">dbyboy 发表于 2022-11-15 03:27</a>
+
+哦不对18年是战神截胡了大镖客
+
+—— 来自 S1Fun</blockquote>
+只狼截胡送快递游戏
+
+*****
+
+####  离魂仙  
+##### 97#       发表于 2022-11-15 08:19
+
+这下野鸡变金鸡了
+
