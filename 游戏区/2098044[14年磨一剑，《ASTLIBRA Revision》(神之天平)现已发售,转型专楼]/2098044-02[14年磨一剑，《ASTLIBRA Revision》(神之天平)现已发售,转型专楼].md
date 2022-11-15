@@ -7270,3 +7270,31 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 之后再见面就是被主角救，最后化敌为友了。
 
+
+
+*****
+
+####  PNK  
+##### 2138#       发表于 2022-11-15 09:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442415&amp;ptid=2098044" target="_blank">宝香 发表于 2022-11-15 09:41</a>
+
+凯只送了一次，就是把主角踢到2000年后的未来。
+
+之后再见面就是被主角救，最后化敌为友了。 ...</blockquote>
+第一次见面的时候就送了。。
+
+不过确实次数不多
+
+*****
+
+####  lazycat233  
+##### 2139#       发表于 2022-11-15 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442505&amp;ptid=2098044" target="_blank">PNK 发表于 2022-11-15 09:47:43</a>
+第一次见面的时候就送了。。
+
+不过确实次数不多</blockquote>反对的是改变过去导致更坏的未来，本质还是要保护人类。第一次是送他去未来让他别再回来改变历史，第二次是因为世界毁了才帮主角。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
