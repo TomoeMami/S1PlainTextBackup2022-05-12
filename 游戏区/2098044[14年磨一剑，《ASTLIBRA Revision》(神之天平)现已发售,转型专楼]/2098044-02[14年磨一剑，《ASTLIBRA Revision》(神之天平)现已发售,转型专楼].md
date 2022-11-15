@@ -7414,3 +7414,31 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 你想想游戏里还有谁交代了没有父母，也经常被认为是女的</blockquote>
 还真是，主要是那一段场景切得给我这个暗示了，这样子的话我就觉得泽雷这个角色设计得太简单了些
 
+
+
+*****
+
+####  syndrome2032  
+##### 2149#       发表于 2022-11-15 11:18
+
+酒馆咖啡客是未来人啊。
+
+*****
+
+####  otakun  
+##### 2150#       发表于 2022-11-15 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58443883&amp;ptid=2098044" target="_blank">JoelBirch 发表于 2022-11-15 11:13</a>
+还真是，主要是那一段场景切得给我这个暗示了，这样子的话我就觉得泽雷这个角色设计得太简单了些 ...</blockquote>
+宰相的回忆里他妈上一辈子最后的交代里有一句“你要找到你弟弟，一起拯救世界。”也算都实现了
+
+*****
+
+####  JoelBirch  
+##### 2151#       发表于 2022-11-15 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58443981&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-15 11:19</a>
+
+宰相的回忆里他妈上一辈子最后的交代里有一句“你要找到你弟弟，一起拯救世界。”也算都实现了 ...</blockquote>
+草那这样的话，泽雷又明确提了是末裔，然后又要穿越回去待在酒馆，是想顺便拜拜祖宗吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

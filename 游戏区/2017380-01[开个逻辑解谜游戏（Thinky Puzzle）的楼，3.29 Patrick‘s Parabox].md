@@ -1544,3 +1544,19 @@ Artless和Alith新作，14种扫雷变体
 玩了，真好玩，赞
 话说artless组是国人么？
 
+
+
+*****
+
+####  weiyun  
+##### 106#         楼主| 发表于 2022-11-15 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58439536&amp;ptid=2017380" target="_blank">Quelaan 发表于 2022-11-15 00:08</a>
+
+楼主有关注这个国产解谜游戏吗？叫 颜色方块
+
+https://store.steampowered.com/app/2066920/_/
+
+是一个大学生 ...</blockquote>
+我才知道今年Weplay有线下，还以为取消了。这个看起来还可以，买个试试看，不过第一人称解谜有不少坑，目前做的好的很少
+
