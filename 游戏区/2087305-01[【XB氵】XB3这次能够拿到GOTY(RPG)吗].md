@@ -1462,3 +1462,12 @@ p5都能拿的野鸡奖，xb3拿一拿又有什么所谓，插 逼2系列最佳�
 
 赛博精神病帖？泥潭法环被xb3爆杀确实挺典的
 
+
+
+*****
+
+####  无攻不受鹿  
+##### 169#       发表于 2022-11-16 00:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">XB3的室内结构？都市里确实有几个地方要爬梯子没错啦……
+
