@@ -531,3 +531,21 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这双子冥魂大帝直接骷髅等级也太离谱了，压根没法打
 
+
+
+*****
+
+####  白昼梦  
+##### 1549#       发表于 2022-11-15 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">又跑去打骷髅王加两个法师的，这视野太恶心了
+
+*****
+
+####  蛭人  
+##### 1550#       发表于 2022-11-15 22:08
+
+两个法师加骷髅王，对这代机制熟悉程度要求不要太高，叠Buff秒法师是重点。
+
+不过，机核又开始指导业内一线工作室做游戏是真的好笑。
+
