@@ -523,3 +523,22 @@ Ultraman MoeP
 
 退一步说，能比降板恶心到的人少就是胜利啊
 
+
+
+*****
+
+####  星踪幻影  
+##### 6752#       发表于 2022-11-15 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451382&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 19:17</a>
+
+代打的人和其他人签的又不是同一份合同，干多少活儿领多少工资，一个合格打工人有什么好感到恶心的[f:009 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们认真吗……
+
+*****
+
+####  cybernetics31  
+##### 6753#       发表于 2022-11-15 19:58
+
+然而运营和上头的大人根本不会这么想，接受现实吧
+
