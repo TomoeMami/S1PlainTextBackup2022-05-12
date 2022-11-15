@@ -982,3 +982,13 @@ D组梦女子贴贴捏<img src="https://static.saraba1st.com/image/smiley/face20
 
 也没有说很想看郡道工商尬夸但总觉得很乐<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 17722#       发表于 2022-11-16 00:57
+
+ow cr杯4个队长，就nrk一个不是前职业，加上本来还指望能打打的mondo一点ow基础都没，只能指望队里唯一前职业stylishnoob了
+队伍实力垫得彻底，今天被jasper队使劲摩擦，nrk这边估计要跨项目cr杯二连垫底了
+
