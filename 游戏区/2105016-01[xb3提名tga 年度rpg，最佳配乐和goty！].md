@@ -904,3 +904,57 @@ family game，family game<img src="https://static.saraba1st.com/image/smiley/fac
 还以为**3已经是goty了，问一下，还是野鸡奖了吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我承认今年的TGA不野鸡，毕竟最佳ACT只有一个突突突
 
+
+
+*****
+
+####  来看你  
+##### 101#       发表于 2022-11-15 08:33
+
+一个傻叉连TGA最佳演出是什么意思都不懂就来阴阳了，丢脸
+
+*****
+
+####  vmon  
+##### 102#       发表于 2022-11-15 08:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">谢谢你，泰恩。
+
+不过怎么看都是陪跑。
+
+*****
+
+####  LamdaHT  
+##### 103#       发表于 2022-11-15 08:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58440955&amp;ptid=2105016" target="_blank">Tackstone 发表于 2022-11-15 07:27</a></blockquote>
+这下全世界都是泥潭的敌人了
+
+*****
+
+####  killbillwillil  
+##### 104#       发表于 2022-11-15 08:39
+
+<blockquote>[NS] 【XB氵】XB3这次能够拿到GOTY(RPG)吗
+
+ 发表于 2022-8-17 15:54 | 只看该作者
+
+等一个德不配位</blockquote>
+
+继续等
+
+*****
+
+####  wildarm  
+##### 105#       发表于 2022-11-15 08:42
+
+xb3第五章，配乐存在感真是够弱
+
+*****
+
+####  sanxgh571  
+##### 106#       发表于 2022-11-15 08:42
+
+对s1输入 tga
+输出 2017年最佳配乐没有提名xb2！！！
+
