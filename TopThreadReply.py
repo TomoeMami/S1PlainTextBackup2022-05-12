@@ -90,7 +90,7 @@ if __name__ == '__main__':
 
 
     rstr = '[b]统计日期：[/b]'
-    rstr = rstr + (datetime.datetime.today()+datetime.timedelta(days=-1)).strftime('%Y年%-m月%-d日')+'\n\n'
+    rstr = rstr + (datetime.datetime.today()+datetime.timedelta(days=-1)).strftime('%Y年%-m月%-d日')+'\n[url=https://github.com/TomoeMami/S1PlainTextBackup/]数据来源[/url]\n\n'
     for k in replydict.keys():
         rstr = rstr + '[b]' + k + '（+'+str(replydict[k][today]['num']['num'])+'）[/b]\n'
         thdict = replydict[k][today]['num']
