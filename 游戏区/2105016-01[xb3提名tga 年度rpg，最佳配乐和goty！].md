@@ -1456,3 +1456,26 @@ XB3混个串烧 , 增加点曝光度就行了 ,  得奖就算了, 就个音乐
 
 这不就为了吸引任粉弄的个安慰性提名吗，还真给你们开心麻了，到时候颗粒无收的时候又要闹成野鸡奖了
 
+
+
+*****
+
+####  lubo  
+##### 158#       发表于 2022-11-15 12:56
+
+吸引任粉那不应该给卡比吗？xb3能上提名多半还是媒体评分
+
+*****
+
+####  lost_恩恩  
+##### 159#       发表于 2022-11-15 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442013&amp;ptid=2105016" target="_blank">栗悟饭177 发表于 2022-11-15 09:14</a>
+
+这次如果不拿，下次就加大力度黑皮大妈女主。再不行就再加大力度，化身罗哥
+
+  -- 来自 能搜索的 Stage1官 ...</blockquote>
+<img src="https://img.nga.178.com/attachments/mon_202211/15/biQ8qb5-chyzZbT3cSo7-sg.jpg" referrerpolicy="no-referrer">
+
+其实是更多的猫猫！
+
