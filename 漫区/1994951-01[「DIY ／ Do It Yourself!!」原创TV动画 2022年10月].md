@@ -5642,3 +5642,54 @@ Do It Yourself!! 6話
 
 靠我感觉眼镜娘才是最色的，闷骚啊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 446#         楼主| 发表于 2022-11-15 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58360679&amp;ptid=1994951" target="_blank">Piano-Forest 发表于 2022-11-10 00:00</a>
+
+すてっぷ６より、作監修正&amp;#x3 ...</blockquote>
+すてっぷ６より、作監修正をご紹介
+<img src="https://p.sda1.dev/8/d8da8950335ee71671f502b406378ad5/20221115_212333.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/4b78737a9342d661b45abe9615243fc6/20221115_212335.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/966908f5e8081e054fe7bac54ba78f9d/20221115_212336.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2233142be59153f41fbb0ac30925365b/20221115_212337.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 447#         楼主| 发表于 2022-11-15 21:28
+
+【すてっぷ⑦】ＤＩＹって、ぢめぢめしてたら・いえで・やればいいね
+
+梅雨の時期。湿度は高く、すっきりとしない雨の日が続く。
+
+せるふたちのＤＩＹ部の部室にはエアコンが無い。
+
+そのため、非常に蒸し暑く、不快で、なかなか作業がはかどらない。
+
+アメリカから来たジョブ子は初めての梅雨に、人一倍不機嫌になっている。
+
+そこで、エアコンと作業スペースのある自分の家で作業することを提案するくれい。
+
+くれいの両親はホームセンター「ＷＡＫＵＷＡＫＵＷＡＮＷＡＮ」、通称ワークワンを営んでいる。
+
+提案に乗りくれいの家を訪れるせるふたち。
+
+興味津々でくれいの部屋にあがりこみ、くれいの意外な一面を知る……。
+
+脚本：筆安一幸 
+
+絵コンテ：岩瀧智
+
+演出：安藤貴史 
+
+作画監督：Maring son 片出健太 福永智子
+<img src="https://p.sda1.dev/8/6b72494129ec4e9806623f706a9da84f/20221115_212754.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/b08d3fe96e5c8b1b855d6d2181755408/20221115_212756.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/69781bc403876320ba7ce694a15ae9b5/20221115_212757.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/95e4e031ff6ae55eef1fd140fbf09f38/20221115_212758.jpg" referrerpolicy="no-referrer">
+
