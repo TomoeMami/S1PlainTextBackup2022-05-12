@@ -7647,3 +7647,22 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 我还没新章就已经15000杀成就了，鬼知道我刷了多久元素和图纸<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  妄想中毒  
+##### 2171#       发表于 2022-11-15 17:56
+
+第七章怪物伤害明显高了一大截，我每章装备熟练度都刷完刚进第七章怪打我一下掉三分之一血，刷都没法愉快刷了
+
+*****
+
+####  cym887  
+##### 2172#       发表于 2022-11-15 18:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58449335&amp;ptid=2098044" target="_blank">skgaminger1988 发表于 2022-11-15 17:08</a>
+
+这个15000的成就 打到迷宫是11000杀敌 下一次迷宫大概杀90个 刷44次才能刷完 有点折磨 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">CE改
+
