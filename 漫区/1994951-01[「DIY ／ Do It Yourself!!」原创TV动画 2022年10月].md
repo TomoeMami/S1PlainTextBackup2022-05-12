@@ -5693,3 +5693,15 @@ Do It Yourself!! 6話
 <img src="https://p.sda1.dev/8/69781bc403876320ba7ce694a15ae9b5/20221115_212757.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/95e4e031ff6ae55eef1fd140fbf09f38/20221115_212758.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 448#       发表于 2022-11-15 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58207822&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-10-31 16:23</a>
+
+Do It Your Radio!! 第 2 回里有提到 11 月 16 日Խ ...</blockquote>
+结果是 (全曲 + instrumental + Café Mix + Funk Mix) × 2 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
