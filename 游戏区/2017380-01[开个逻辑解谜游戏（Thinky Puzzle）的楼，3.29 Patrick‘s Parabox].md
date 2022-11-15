@@ -1560,3 +1560,17 @@ https://store.steampowered.com/app/2066920/_/
 是一个大学生 ...</blockquote>
 我才知道今年Weplay有线下，还以为取消了。这个看起来还可以，买个试试看，不过第一人称解谜有不少坑，目前做的好的很少
 
+
+
+*****
+
+####  weiyun  
+##### 107#         楼主| 发表于 2022-11-15 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442876&amp;ptid=2017380" target="_blank">Thio 发表于 2022-11-15 10:14</a>
+
+玩了，真好玩，赞
+
+话说artless组是国人么？</blockquote>
+是国人
+
