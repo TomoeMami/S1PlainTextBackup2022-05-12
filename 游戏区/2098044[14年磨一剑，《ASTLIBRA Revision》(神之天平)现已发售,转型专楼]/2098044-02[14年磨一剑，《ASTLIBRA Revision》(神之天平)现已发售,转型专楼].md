@@ -7317,3 +7317,69 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 盖乌这点也是我疑惑的,特别是新章的魔王篇,因为天平用的太多了,那里也把我搞糊涂了.
 
+
+
+*****
+
+####  PNK  
+##### 2141#       发表于 2022-11-15 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442576&amp;ptid=2098044" target="_blank">5353 发表于 2022-11-15 09:53</a>
+
+说说我的理解.
+
+凯厌恶改变过去,是因为虽然他既定的未来不会改变,但不断的平行世界出现会使未来逐渐靠拢改 ...</blockquote>
+
+啊，想明白了
+
+凯把主角送到过去的火山，原本世界线的主角被送走了，按计划这次传送新开的世界线主角也会死
+
+送到未来也是一样的，主角没有天平回不来，只能跟着世界一起大重启
+
+虽然本身是在改动时间线，但顺利的话都不会新开更多的世界线
+
+那这样的话，算是合理的
+
+*****
+
+####  llysander  
+##### 2142#       发表于 2022-11-15 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441868&amp;ptid=2098044" target="_blank">PNK 发表于 2022-11-15 09:07</a>
+
+快全收集通关了
+
+刷刷刷感觉也还好，轻度刷一下就刷齐了，不需要花太多时间
+
+剧情优点不说了，感觉有的地方还 ...</blockquote>
+银发萝卜仔前期后期定位不太一样，应该属于写着写着设定变了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，最明显是前期表现像不知道大周目重启，后期又能从天外观测理应是知道的，如果知道大周目就不会在乎前期的回溯。
+
+帮作者修bug的话，可以这么讲，萝卜仔前一周潜入，同行眼镜由于是润宇宙人跟人类同款构造被女神捕捉进轮回，萝卜仔混到轮回末期看到重启发现天平计划和得到部分定点送的技术，于是每次见到超级战士就先塞去末世定位点方便更好理解回溯性能更快展开特训，超级战士成功了他才能脱离，另外反正女神是真有神能虽然比较限定领域，不止“我的造物”萝卜仔这种“我的造物的造物”都能控制抓进重启，自爆过新轮回又修好了，萝卜仔只是自以为能脱离时间上帝视角<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+*****
+
+####  llysander  
+##### 2143#       发表于 2022-11-15 10:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441863&amp;ptid=2098044" target="_blank">绕指流光 发表于 2022-11-15 09:07</a>
+
+楼上说的都是常规的，我这&amp;# ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 这是高端的飞刀技巧...  很多需要弩的都可以这么甩刀
+
+*****
+
+####  PNK  
+##### 2144#       发表于 2022-11-15 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58443026&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-15 10:23</a>
+
+银发萝卜仔前期后期定位不太一样，应该属于写着写着设定变了，最明显是前期表现像不知道大周目重 ...</blockquote>
+确实按理说大重启和阿努比斯才是频繁改变时间线的主因，但这个我觉得能接受了，毕竟无论是众神还是阿努比斯，他都打不过<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">只能欺负初出茅庐小年轻这样子
+
+*****
+
+####  JoelBirch  
+##### 2145#       发表于 2022-11-15 10:31
+
+说起来，有个困惑的地方，就……宰相的弟弟有交代吗？看上去就是泽雷？小鬼的文本里说了泽雷也是末裔，而且最后消失了，难道也是一位天平使用者？
+
