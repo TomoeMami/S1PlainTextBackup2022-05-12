@@ -7383,3 +7383,34 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 说起来，有个困惑的地方，就……宰相的弟弟有交代吗？看上去就是泽雷？小鬼的文本里说了泽雷也是末裔，而且最后消失了，难道也是一位天平使用者？
 
+
+
+*****
+
+####  otakun  
+##### 2146#       发表于 2022-11-15 11:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58443196&amp;ptid=2098044" target="_blank">JoelBirch 发表于 2022-11-15 10:31</a>
+说起来，有个困惑的地方，就……宰相的弟弟有交代吗？看上去就是泽雷？小鬼的文本里说了泽雷也是末裔，而且 ...</blockquote>
+你想想游戏里还有谁交代了没有父母，也经常被认为是女的
+
+*****
+
+####  llysander  
+##### 2147#       发表于 2022-11-15 11:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58443196&amp;ptid=2098044" target="_blank">JoelBirch 发表于 2022-11-15 10:31</a>
+
+说起来，有个困惑的地方，就……宰相的弟弟有交代吗？看上去就是泽雷？小鬼的文本里说了泽雷也是末裔，而且 ...</blockquote>
+有人说感觉像主角，特征娘娘腔，孤儿没爹妈
+
+*****
+
+####  JoelBirch  
+##### 2148#       发表于 2022-11-15 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58443794&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-15 11:08</a>
+
+你想想游戏里还有谁交代了没有父母，也经常被认为是女的</blockquote>
+还真是，主要是那一段场景切得给我这个暗示了，这样子的话我就觉得泽雷这个角色设计得太简单了些
+
