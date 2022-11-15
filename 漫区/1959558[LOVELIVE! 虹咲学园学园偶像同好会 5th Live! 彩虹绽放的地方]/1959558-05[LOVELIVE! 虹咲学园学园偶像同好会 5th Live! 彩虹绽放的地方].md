@@ -346,3 +346,31 @@ Ultraman MoeP
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">然后我这边想出阿灯圣诞SOLO的票没人要
 
+
+
+*****
+
+####  Piano-Forest  
+##### 6739#       发表于 2022-11-15 11:35
+
+『ラブライブ！虹ヶ咲学園スクールアイドル同好会』TVアニメ2期Blu-ray第7巻のジャケットイラストを初公開
+
+第7巻にはユニットライブQU4RTZ公演DAY.2のチケット最速先行抽選申込券など豪華特典満載
+
+詳細はこちら：
+[https://lovelive-anime.jp/nijigasaki/bd2.php#bd07](https://lovelive-anime.jp/nijigasaki/bd2.php#bd07)
+<img src="https://p.sda1.dev/8/88cb0f313dd82369fe2d7d9916031234/20221115_113214.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/babb8144934498b143e78ee2cc991862/20221115_113217.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  梶原ひかり  
+##### 6740#       发表于 2022-11-15 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58438704&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-14 23:06</a>
+“说没就没了”
+可现在普遍都觉得不是灯露被夺走了雪菜、而是她自己放弃的</blockquote>
+如果非外部环境 也不会有人放弃吧..
+只是外部不给这个条件..压力过大 迫不得已放弃的
+真正结束也是刚刚好3.31
+

@@ -1574,3 +1574,19 @@ https://store.steampowered.com/app/2066920/_/
 话说artless组是国人么？</blockquote>
 是国人
 
+
+
+*****
+
+####  infinitesimal7  
+##### 108#       发表于 2022-11-15 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442876&amp;ptid=2017380" target="_blank">Thio 发表于 2022-11-15 10:14</a>
+
+玩了，真好玩，赞
+
+话说artless组是国人么？</blockquote>
+另外Artless是单人开发
+
+扫雷这个游戏是和Alith合作，Alith也是国人
+
