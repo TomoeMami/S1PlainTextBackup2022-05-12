@@ -669,3 +669,12 @@ ps端港服开了，现在应该不锁了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能不能国际服打台服翻译补丁玩
 
+
+
+*****
+
+####  kuglv  
+##### 77#       发表于 2022-11-15 21:19
+
+台服代理好像是黑心辣椒，有兴趣的坛友可以去搜搜他们的光荣事迹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">...
+
