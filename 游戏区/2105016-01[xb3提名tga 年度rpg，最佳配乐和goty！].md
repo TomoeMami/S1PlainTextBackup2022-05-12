@@ -1571,3 +1571,23 @@ XB3混个串烧 , 增加点曝光度就行了 ,  得奖就算了, 就个音乐
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还真是，难怪破晓的时候感觉就没多大问题
 
+
+
+*****
+
+####  風卷豹  
+##### 170#       发表于 2022-11-15 17:36
+
+串烧当然是别的曲子放到一半插chain attack啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  風卷豹  
+##### 171#       发表于 2022-11-15 17:37
+
+风怒
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
