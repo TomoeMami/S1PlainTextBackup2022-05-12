@@ -5705,3 +5705,14 @@ Do It Yourself!! 6話
 Do It Your Radio!! 第 2 回里有提到 11 月 16 日Խ ...</blockquote>
 结果是 (全曲 + instrumental + Café Mix + Funk Mix) × 2 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  堆雪若叶  
+##### 449#       发表于 2022-11-16 07:45
+
+怎么突然差点直通结局了，半场告白果然还是经典打断<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">实在过于稳了，这什么时候完结完全看布丁女士心情。
+
+己脸上不带创可贴头发一扎颜值一下就上去了，平常还是太吊儿郎当了。
+
