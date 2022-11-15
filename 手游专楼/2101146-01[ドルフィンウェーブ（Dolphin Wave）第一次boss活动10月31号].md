@@ -281,3 +281,14 @@ SSR相马飒和SSR山叶由芽有解DEBUFF的技能，SR没看过不知道有没
 这游戏常驻的那几个高难是不是只能用克制属性打，感觉非克制拉满了一个还是在刮痧一样 ...</blockquote>
 全克属1.6倍伤害，加上高难对面有奇奇怪怪的BUFF...能的话还是尽量拉克制吧（也可以像我一样摆烂刷减半<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无念  
+##### 118#       发表于 2022-11-15 23:49
+
+理论上来说，再开三次活动就可以让大部分玩家4属性队全养好了，到时候你们肯定觉得VH塔什么垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

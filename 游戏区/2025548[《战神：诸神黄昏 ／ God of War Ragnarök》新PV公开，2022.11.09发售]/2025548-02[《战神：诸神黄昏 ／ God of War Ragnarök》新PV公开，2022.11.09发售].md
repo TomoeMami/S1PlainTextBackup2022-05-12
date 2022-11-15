@@ -576,3 +576,14 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 取长枪这段向布洛克要祝福处理的挺好<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  霸王向小受  
+##### 1554#       发表于 2022-11-15 23:49
+
+感觉奥丁暴露身份捅死蓝矮人这里直接结束最好，留足悬念和讨论度，后面的决战单独出一作，解锁儿子的青年形态和副武器，再把大场面和BOSS演出给足。
+
+可惜改不得<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
