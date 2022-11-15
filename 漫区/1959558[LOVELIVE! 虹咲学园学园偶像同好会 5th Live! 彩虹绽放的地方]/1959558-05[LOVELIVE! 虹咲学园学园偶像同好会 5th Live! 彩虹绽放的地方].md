@@ -391,3 +391,19 @@ Ultraman MoeP
 
 但坚决不续签就什么转机都不会有了
 
+
+
+*****
+
+####  梶原ひかり  
+##### 6742#       发表于 2022-11-15 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58444811&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 12:17</a>
+这件事情全取决于灯露和sma的态度，
+运营这边肯定不是主动想破戒换人的，
+粉丝这边要是早知道这关乎降板 ...</blockquote>
+是否接着这个取决于运营给什么方案..
+如果还像原来一样 给人压力太大了..
+你如果真能做到爱马仕一样 缺席与否不是那么多议论未必会这样..或者干脆live代役 
+就一个坐在台上 论谁都不好受...
+
