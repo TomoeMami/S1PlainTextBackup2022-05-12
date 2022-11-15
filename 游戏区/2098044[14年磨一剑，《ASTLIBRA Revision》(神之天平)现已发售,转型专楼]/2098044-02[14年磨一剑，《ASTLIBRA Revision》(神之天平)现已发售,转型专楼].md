@@ -7620,3 +7620,12 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 不过指令拳是固定暗属性。
 
+
+
+*****
+
+####  PigMourne  
+##### 2168#       发表于 2022-11-15 13:43
+
+破案了，其实是没打井下面的隐藏boss，抄的视频作业少了一个<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

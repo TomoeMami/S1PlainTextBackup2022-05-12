@@ -589,3 +589,35 @@ le ...</blockquote>
 你这情况不单是电子阳痿了，而是玩游戏带有潜在内疚感，导致试图用一些与现实实际生产活动有关联的游戏方式 ...</blockquote>
 我工作是银行理财经理，学习对这个工作没什么用，我也很讨厌这个工作。
 
+
+
+*****
+
+####  fr0m  
+##### 63#       发表于 2022-11-15 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58437630&amp;ptid=2104984" target="_blank">asergh0630rx 发表于 2022-11-14 22:02</a>
+
+程序员是每天都在算题目吗？</blockquote>
+不是，大部分程序员每天都在玩新手教程
+
+*****
+
+####  fr0m  
+##### 64#       发表于 2022-11-15 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58437495&amp;ptid=2104984" target="_blank">Chia 发表于 2022-11-14 21:53</a>
+
+这正是我长大后变得不喜欢纯粹做题游戏了的原因。</blockquote>
++1，有这时间还不如去leetcode刷题……
+
+*****
+
+####  fr0m  
+##### 65#       发表于 2022-11-15 13:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58439416&amp;ptid=2104984" target="_blank">afer 发表于 2022-11-14 23:56</a>
+
+爷缩进就给3空格</blockquote>
+拔剑吧，异教徒
+
