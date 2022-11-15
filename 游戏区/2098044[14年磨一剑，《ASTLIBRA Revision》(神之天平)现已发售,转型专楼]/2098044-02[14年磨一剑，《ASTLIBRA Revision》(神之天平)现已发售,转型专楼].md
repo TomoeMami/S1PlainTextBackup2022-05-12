@@ -7570,3 +7570,28 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 大贤者有打不过遗迹兵这个剧情设定比较坑。</blockquote>
 这也好圆，演戏逼你回去用天平的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  PigMourne  
+##### 2162#       发表于 2022-11-15 13:25
+
+对着图鉴比了一下，就差练金石头出的护甲和吞噬星球者的的武器和盾没拿到了，神杀剑会算上这是三个东西吗？
+
+*****
+
+####  helix  
+##### 2163#       发表于 2022-11-15 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58445823&amp;ptid=2098044" target="_blank">PigMourne 发表于 2022-11-15 13:25</a>
+对着图鉴比了一下，就差练金石头出的护甲和吞噬星球者的的武器和盾没拿到了，神杀剑会算上这是三个东西吗？ ...</blockquote>
+后面两者不算，心天平应该算的，毕竟本来就是本篇有的东西
+
+*****
+
+####  syndrome2032  
+##### 2164#       发表于 2022-11-15 13:30
+
+追章不就多了一把新武器，其他都是本篇就能入手的。
+
