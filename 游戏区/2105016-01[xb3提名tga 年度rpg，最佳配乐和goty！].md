@@ -1085,3 +1085,98 @@ xb3 猫 瘟疫传说放在这不是搞笑吗....
 功夫热终究是过了，sifu拼宣发和猫比真的是输麻了。再次说明了游戏皮相好是真的有用。 ...</blockquote>
 我觉得功夫的皮比猫好看多啊。
 
+
+
+*****
+
+####  shiko  
+##### 119#       发表于 2022-11-15 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441820&amp;ptid=2105016" target="_blank">5353 发表于 2022-11-15 09:03</a>
+xb3是因为得给任天堂面子.第一方必须挑一个.
+
+然后看mc的评分.
+
+xb3 89</blockquote>
+不算独游和老游戏移植的话，今年第三吧，mc仅次于战环
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  栗悟饭177  
+##### 120#       发表于 2022-11-15 09:14
+
+这次如果不拿，下次就加大力度黑皮大妈女主。再不行就再加大力度，化身罗哥
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+*****
+
+####  destroyworlder  
+##### 121#       发表于 2022-11-15 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441177&amp;ptid=2105016" target="_blank">shiko 发表于 2022-11-15 08:06</a>
+
+赢麻了，我要听送行曲上tga串烧吔！
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 S1Next-鹅版 v2.5 ...</blockquote>
+去送送她.jpg
+
+*****
+
+####  windtrack_qh  
+##### 122#       发表于 2022-11-15 09:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441682&amp;ptid=2105016" target="_blank">reficul 发表于 2022-11-15 08:54</a>
+
+stray和xb3还真没实力跟环、战神同台竞技吧，怎么混到提名的</blockquote>
+从游戏体量来说XB3并不输战神，除了猫和瘟疫传说之外，地平线才是真正该滚蛋的那个
+
+*****
+
+####  电磁炮233  
+##### 123#       发表于 2022-11-15 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442066&amp;ptid=2105016" target="_blank">windtrack_qh 发表于 2022-11-15 09:18</a>
+从游戏体量来说XB3并不输战神，除了猫和瘟疫传说之外，地平线才是真正该滚蛋的那个 ...</blockquote>
+100%陪跑给个罐头安慰奖啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  十字骷髅高达  
+##### 124#       发表于 2022-11-15 09:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉要颗粒无收，但是提名对销量还是有微小的帮助吧
+
+*****
+
+####  滝本日富美  
+##### 125#       发表于 2022-11-15 09:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">好像看xb3拿年度游戏，然后上去吹笛子，宫崎英高秒变n
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  framita  
+##### 126#       发表于 2022-11-15 09:21
+
+我想看得奖播片播的是N破防<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要被全世界看光光啦
+
+*****
+
+####  leo204672099  
+##### 127#       发表于 2022-11-15 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442101&amp;ptid=2105016" target="_blank">十字骷髅高达 发表于 2022-11-15 09:19</a>
+
+感觉要颗粒无收，但是提名对销量还是有微小的帮助吧</blockquote>
+得看任天堂的宣发看不看重吧
+
