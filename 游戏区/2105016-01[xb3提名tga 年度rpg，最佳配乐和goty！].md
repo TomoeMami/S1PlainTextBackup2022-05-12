@@ -1326,3 +1326,35 @@ XB3混个串烧 , 增加点曝光度就行了 ,  得奖就算了, 就个音乐
 
 不管最终能不能得奖   贯穿S1全年的主旋律 都是XB3  <img src="https://static.saraba1st.com/image/smiley/carton2017/385.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  陛下欲反邪  
+##### 144#       发表于 2022-11-15 09:54
+
+应该说今年年初塞尔达和塞尔达杀手相继跳票时就很明显了:想凑齐六个候选名额其实有点难<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  燃烬之眼  
+##### 145#       发表于 2022-11-15 09:55
+
+我还是很喜欢xb3 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kojimaru  
+##### 146#       发表于 2022-11-15 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442361&amp;ptid=2105016" target="_blank">5353 发表于 2022-11-15 09:37</a>
+
+泥潭这些人嘴硬最有一手,就像我前面说的.
+
+把那张照片放在结尾谁都能看到的地方是不妥协zzzq。
+
+但现在又开 ...</blockquote>
+说明高桥深谙中国哲学的“既要也要”
+
