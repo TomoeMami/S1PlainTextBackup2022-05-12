@@ -1441,3 +1441,15 @@ TGA快到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png
 
 乐，对泥潭高桥毒唯来说，xb3拿年度rpg是不是比破晓拿更破防<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jxzeroga0  
+##### 167#       发表于 2022-11-16 00:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58455078&amp;ptid=2087305" target="_blank">PigMourne 发表于 2022-11-16 00:02</a>
+
+乐，对泥潭高桥毒唯来说，xb3拿年度rpg是不是比破晓拿更破防</blockquote>
+p5都能拿的野鸡奖，xb3拿一拿又有什么所谓，插 逼2系列最佳的质量才不在意这种东西<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
