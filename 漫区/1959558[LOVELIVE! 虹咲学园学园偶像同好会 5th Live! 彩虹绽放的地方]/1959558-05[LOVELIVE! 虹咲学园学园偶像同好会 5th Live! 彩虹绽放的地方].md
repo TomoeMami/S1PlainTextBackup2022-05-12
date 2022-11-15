@@ -474,3 +474,20 @@ Ultraman MoeP
 
 运营的方案，已知在九月就定了明年三月分手的前提下，虹4格放一月，azn插队到三月……正常处理不应该是4格和azn都放四月给新人刷存在，然后3月底放个5th加场毕业/新人上台……现在这样新人上来干啥？
 
+
+
+*****
+
+####  crocccc  
+##### 6748#       发表于 2022-11-15 17:51
+
+<img src="https://img.saraba1st.com/forum/202211/15/175123brxux1g7x1gab42x.jpg" referrerpolicy="no-referrer">
+
+<strong>05TCQ(KR2BC@2}GNLY99L0A.jpg</strong> (507.1 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-15 17:51 上传
+
+兔的目标清除计划
+
