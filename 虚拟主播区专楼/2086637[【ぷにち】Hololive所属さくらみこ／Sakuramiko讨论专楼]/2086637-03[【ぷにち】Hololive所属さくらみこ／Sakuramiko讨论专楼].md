@@ -334,3 +334,12 @@ tskk都来了，这游戏有点隐患啊
 
 昨晚确实有说今天想播没想到是唱歌，还以为这个人除了GTA之外就不想唱了
 
+
+
+*****
+
+####  rs5621  
+##### 3036#       发表于 2022-11-15 17:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么多大活动，今晚也太激烈了吧
+

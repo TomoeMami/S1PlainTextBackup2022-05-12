@@ -428,3 +428,40 @@ Ultraman MoeP
 
 别忘了虹已经是动画后的三次元live时期
 
+
+
+*****
+
+####  dozen  
+##### 6744#       发表于 2022-11-15 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58449075&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 16:53</a>
+所谓折中办法是“雪菜改人&amp;#x ...</blockquote>
+关于运营方的解决方案，我和楼上都倾向于live找个代役
+
+我说的“调和折中”是指，之前那些逼逼雪菜live缺席的，如果真让他们在降板和维持现状中做选择，那么其中不少人就会转而选择折中方案甚至接受维持现状了
+而且你看之前那些逼逼现在敢吱声么，如果灯露能留下，那些逼逼以后再出现也只会被按下去
+
+可惜的是粉丝向来没得选择
+
+*****
+
+####  星踪幻影  
+##### 6745#       发表于 2022-11-15 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58449287&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 17:06</a>
+
+关于运营方的解决方案，我和楼上都倾向于live找个代役
+
+我说的“调和折中”是指，之前那些逼逼雪菜live缺 ...</blockquote>
+老实说代役也是微妙不讨好<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dozen  
+##### 6746#       发表于 2022-11-15 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58449330&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 17:08</a>
+老实说代役也是微妙不讨好[f ...</blockquote>
+比降板直接搞分流提纯温和多了，对虹和对灯都是
+

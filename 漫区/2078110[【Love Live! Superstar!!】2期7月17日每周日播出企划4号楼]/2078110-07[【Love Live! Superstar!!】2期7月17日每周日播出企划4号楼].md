@@ -3578,3 +3578,12 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 鲤鱼不是167.8么，对不上吧
 
+
+
+*****
+
+####  绯想alter2nd  
+##### 9287#       发表于 2022-11-15 17:07
+
+抹一个小数点不就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

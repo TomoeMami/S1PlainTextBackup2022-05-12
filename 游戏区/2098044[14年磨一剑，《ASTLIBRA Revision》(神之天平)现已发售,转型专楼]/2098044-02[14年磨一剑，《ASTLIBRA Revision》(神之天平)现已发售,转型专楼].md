@@ -7629,3 +7629,12 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 破案了，其实是没打井下面的隐藏boss，抄的视频作业少了一个<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  skgaminger1988  
+##### 2169#       发表于 2022-11-15 17:08
+
+这个15000的成就 打到迷宫是11000杀敌 下一次迷宫大概杀90个 刷44次才能刷完 有点折磨
+
