@@ -1,0 +1,592 @@
+
+
+*****
+
+####  医生狼多  
+##### 1#       楼主       发表于 2022-11-4 15:19
+
+ 本帖最后由 医生狼多 于 2022-11-9 15:12 编辑 
+
+万代南梦宫推出的PC平台二次元网游新作《蓝色协议》（BLUE PROTOCOL）官方今日宣布，将于近日实施网络测试活动以准备正式上线，并预定在11月15日北京时间18点举办直播节目中公开更多详细情报，游戏最新视觉宣传图一并公开。 ​​​
+<img src="https://p.sda1.dev/8/0f9c1da5e994941887c51c528dd0382a/CMP_20221109151218354.jpg" referrerpolicy="no-referrer">
+万代南梦宫推出的PC平台二次元网游新作《蓝色协议》（BLUE PROTOCOL）经过漫长的沉寂后终于有了新动态，官推今日发布消息，称游戏仍在继续开发，并准备在下周公布下一步展开，敬请期待续报。 ​​​
+<img src="https://p.sda1.dev/8/ae61202c6c9e2e00c91898778ea9dd19/IMG_20221104_151419_228.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 2#       发表于 2022-11-4 15:42
+
+这游戏距离第一次公开好像过去四年还是五年了……
+
+*****
+
+####  kuglv  
+##### 3#       发表于 2022-11-4 15:43
+
+这玩意一年多没新消息了，我还以为回炉了
+
+*****
+
+####  920619lqy  
+##### 4#       发表于 2022-11-4 15:50
+
+赶不上热乎的是吧
+
+*****
+
+####  法拉  
+##### 5#       发表于 2022-11-4 15:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">ngs受死吧，我去玩蓝色协议了！
+
+*****
+
+####  yth329  
+##### 6#       发表于 2022-11-4 15:53
+
+最近怎么感觉MMO又开始多起来了
+
+*****
+
+####  最强惠酱  
+##### 7#       发表于 2022-11-4 15:57
+
+比疫情还要长的开发周期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hotsmile  
+##### 8#       发表于 2022-11-4 15:58
+
+卡婊那个LOLI的游戏多久没消息了？不是说2023发售吗？
+
+*****
+
+####  断恶之剑  
+##### 9#       发表于 2022-11-4 16:00
+
+南梦宫 的网游。。。总觉得有点不靠谱。。。氪金神作吗。。。<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sandbagimon  
+##### 10#       发表于 2022-11-4 16:23
+
+当时和NGS差不多同期，结果现在ngs都快两年了蓝色协议连个影子都没有
+
+*****
+
+####  2014720  
+##### 11#       发表于 2022-11-4 16:32
+
+太慢了
+
+*****
+
+####  白左  
+##### 12#       发表于 2022-11-4 16:59
+
+不如叫碧蓝徽协, 这样blhx家族又能再添一员了
+
+*****
+
+####  pf67  
+##### 13#       发表于 2022-11-4 17:03
+
+我记得这个当时和O神同期公开的吧，结果现在还在摸？
+
+*****
+
+####  saki07  
+##### 14#       发表于 2022-11-4 17:03
+
+游戏圈太多blue了 看标题一时间反应不出来是哪个..
+
+*****
+
+####  shinoverse  
+##### 15#       发表于 2022-11-4 17:07
+
+能不能选个别的颜色啊
+
+*****
+
+####  七千星  
+##### 16#       发表于 2022-11-4 17:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">已经过去这么久了吗,还想说终于又有一个动漫风格的游戏,行不行啊
+
+*****
+
+####  kerock  
+##### 17#       发表于 2022-11-4 17:31
+
+参加上次beta,感觉不太行 希望是真的回炉了吧
+
+*****
+
+####  飞升之后  
+##### 18#       发表于 2022-11-4 17:33
+
+推出手游
+
+*****
+
+####  战术核辣条  
+##### 19#       发表于 2022-11-4 18:31
+
+原来还活着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，上次cbt都什么时候了
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Ketestrait  
+##### 20#       发表于 2022-11-4 19:34
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1h7tbowc8xsj20f70lp0xg.jpg" referrerpolicy="no-referrer">
+
+4gamer这个报道，“纯国产新IP”标红看笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 21#       发表于 2022-11-9 14:54
+
+11月15日下午6点开始：[https://youtu.be/iwdTAxpLWbU](https://youtu.be/iwdTAxpLWbU)
+
+<img src="https://p.sda1.dev/8/5e91016db75e24cb43ba2fbcc6aad9b6/20221109_145315.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  千川ちひろ  
+##### 22#       发表于 2022-11-9 15:04
+
+草，我还以为凉了
+
+*****
+
+####  whzfjd  
+##### 23#       发表于 2022-11-9 15:07
+
+ 本帖最后由 whzfjd 于 2022-11-9 15:10 编辑 
+
+莫名地有日本运营死无葬身之地的刻板影响，但ff14和各种偶像似乎都还行
+
+不过这游戏 60 系起步，下沉平台手机 ns 一个不沾，，简直是 49 年入国军
+
+*****
+
+####  h1r0  
+##### 24#       发表于 2022-11-9 16:46
+
+别吧，19年上线还行，现在拿出来真没人玩了都，中国韩国的类似游戏你打得过谁啊
+
+*****
+
+####  yth329  
+##### 25#       发表于 2022-11-9 17:56
+
+<img src="https://img.saraba1st.com/forum/202211/09/175624hzkl1z78vv4w3w1r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-9 17:56 上传
+
+恩？
+
+*****
+
+####  kyonkoism二号机  
+##### 26#       发表于 2022-11-9 18:08
+
+这玩意还是mmorpg，可O的最大卖点之一就是纯单机体验游戏全部内容啊，错离赛道了属于是，而且还是纯pc端，那和他同台竞技的对手不该是梦幻之星FF14以及已经凉了的幻塔么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Realme RMX1901, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  孫光龍  
+##### 27#       发表于 2022-11-9 18:19
+
+感觉不如原神......人设色
+
+*****
+
+####  weifire  
+##### 28#       发表于 2022-11-15 18:10
+
+ 本帖最后由 weifire 于 2022-11-15 18:16 编辑 
+
+<img src="https://p.sda1.dev/8/3b46a8d59d96d2558a0ed033d89786de/Snipaste_2022-11-15_19-07-44.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/8/16565dd94a48dd1598ca2e121e7781a2/Snipaste_2022-11-15_19-10-43.png" referrerpolicy="no-referrer">
+
+开发基本完成，还剩平衡调整和DEBUG
+
+*****
+
+####  zzp05402  
+##### 29#       发表于 2022-11-15 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">跟原有什么关系，就不能开发网游是吧
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 30#       发表于 2022-11-15 18:27
+
+ff14玩家安利时还要提一嘴能自闭玩呢，但实际上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  katern  
+##### 31#       发表于 2022-11-15 18:30
+
+好起来了，我还以为和cy一样鸽了呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  windtrack_qh  
+##### 32#       发表于 2022-11-15 18:34
+
+刚公布的时候以为是对标FF14，现在一看似乎是对标O？
+
+*****
+
+####  kyonkoism二号机  
+##### 33#       发表于 2022-11-15 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">既是主机PC端mmo，又强调自己是国产，一想O日本人基本都是当主机游戏玩的，应该是把O当成假想敌实质对标FF14贴切点
+
+*****
+
+####  diectt  
+##### 34#       发表于 2022-11-15 18:39
+
+这玩意对标的应该是梦幻之星
+
+*****
+
+####  Piano-Forest  
+##### 35#       发表于 2022-11-15 18:40
+
+2023年早春正式上线，网络测试2023年1月14日~16日
+
+ネットワークテスト詳細
+
+実施期間：2023年1月14日～1月16日
+
+募集人数：5万人（応募者多数の場合は抽選）
+
+募集期間：“ブルプロ通信#5”第1部終了時～2022年12月13日
+
+コンテンツ：シナリオやレベル等に制限あり
+<img src="https://p.sda1.dev/8/1636c17466ac97f6692d167678444f5a/003 _4_.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/8/5b33377371a74a90f65ca55b137f34e7/002 _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/7d9caf0eee13147131135ba8924d5afd/20221115_182950.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  孫光龍  
+##### 36#       发表于 2022-11-15 18:42
+
+mmo怎么会对标o
+不是wow么
+
+*****
+
+####  ammk  
+##### 37#       发表于 2022-11-15 18:48
+
+mmo好啊，现在世面上的mmo还是太老了
+
+*****
+
+####  ammk  
+##### 38#       发表于 2022-11-15 18:48
+
+mmo好啊，现在世面上的mmo还是太老了
+
+*****
+
+####  andychen  
+##### 39#       发表于 2022-11-15 18:56
+
+12月9号TGA上还有新消息公开，应该是全球发行相关的信息
+
+最好能全球同步
+
+*****
+
+####  最强惠酱  
+##### 40#       发表于 2022-11-15 18:57
+
+评论区太混沌了，3年前还没o，真是好时代<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Rainwedell  
+##### 41#       发表于 2022-11-15 18:59
+
+倒是想问问有没有主机端，不太想pc上打<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  zzp05402  
+##### 42#       发表于 2022-11-15 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">楼里的能不能不要原批入脑，做个二次元mmo也要批判，FF14,梦幻之星也是对标原是吧
+
+*****
+
+####  快乐好难123  
+##### 43#       发表于 2022-11-15 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58355688&amp;ptid=2103199" target="_blank">yth329 发表于 2022-11-9 17:56</a>
+
+恩？</blockquote>
+这域名跟官方没关系吧,一般都是com跟/zh这种的
+
+*****
+
+####  tsubaki  
+##### 44#       发表于 2022-11-15 19:02
+
+就当时内测德行是对标PSO2
+
+现在不知道是对标NGS还是（
+
+*****
+
+####  战狼PTSD  
+##### 45#       发表于 2022-11-15 19:06
+
+当年内测去玩的时候还没疫情
+
+*****
+
+####  andychen  
+##### 46#       发表于 2022-11-15 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451078&amp;ptid=2103199" target="_blank">Rainwedell 发表于 2022-11-15 18:59</a>
+
+倒是想问问有没有主机端，不太想pc上打
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 ...</blockquote>
+1年前说的是不考虑主机，手柄支持都没做
+
+现在不知道，毕竟过这么久了。不过看那个配置要求，就算上主机也是本世代独占作品了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Rainwedell| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  heseran  
+##### 47#       发表于 2022-11-15 19:18
+
+Mmo好啊
+
+*****
+
+####  andychen  
+##### 48#       发表于 2022-11-15 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451324&amp;ptid=2103199" target="_blank">andychen 发表于 2022-11-15 19:14</a>
+
+1年前说的是不考虑主机，手柄支持都没做
+
+现在不知道，毕竟过这么久了。不过看那个配置要求，就算上主机也 ...</blockquote>
+手柄支持现在有了，刚演示<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 49#         楼主| 发表于 2022-11-15 19:20
+
+万代南梦宫推出的PC平台二次元网游新作《蓝色协议》（BLUE PROTOCOL）在今晚的直播中公开最新宣传影片，游戏确认将于2023年早春正式开服，网络测试预定于2023年1月14日~16日实施，直播结束后即开启测试参与者招募活动。#游戏情报站# http://t.cn/A6oFUk9H ​​​
+
+*****
+
+####  Rainwedell  
+##### 50#       发表于 2022-11-15 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451411&amp;ptid=2103199" target="_blank">andychen 发表于 2022-11-15 19:19</a>
+手柄支持现在有了，刚演示</blockquote>
+那挺好的，到时候试试<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  名守居  
+##### 51#       发表于 2022-11-15 19:22
+
+别搁那对标ngs了，你蓝协能够瑟吗，能捏到让其他玩家见拔吗，内衣敢整O贴C字吗，敢让玩家用饰品捏小猫吗，能满足玩家各种稀奇古怪的xp吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzy516232108  
+##### 52#       发表于 2022-11-15 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来想玩ngs的，但是被锁区劝退了
+
+看看这个锁不锁
+
+*****
+
+####  weifire  
+##### 53#       发表于 2022-11-15 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451078&amp;ptid=2103199" target="_blank">Rainwedell 发表于 2022-11-15 18:59</a>
+
+倒是想问问有没有主机端，不太想pc上打
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Next-鹅版 ...</blockquote>
+宣传仍然是PC向网游，半个字没提主机
+
+*****
+
+####  Rainwedell  
+##### 54#       发表于 2022-11-15 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451549&amp;ptid=2103199" target="_blank">weifire 发表于 2022-11-15 19:25</a>
+宣传仍然是PC向网游，半个字 ...</blockquote>
+主要是不太想键盘打fps以外的游戏了，给了手柄支持对我来讲就够了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  蓝雉  
+##### 55#       发表于 2022-11-15 19:31
+
+终于啊,这游戏的剧情演出我觉得在mmo里也算是顶尖的了.这游戏可惜今年没赶上,不然还能蹭个"sao真的开测了"的热度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诚司  
+##### 56#       发表于 2022-11-15 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451528&amp;ptid=2103199" target="_blank">zzy516232108 发表于 2022-11-15 19:24</a>
+
+本来想玩ngs的，但是被锁区劝退了
+
+看看这个锁不锁</blockquote>
+ps端港服开了，现在应该不锁了
+
+*****
+
+####  光与暗的转生  
+##### 57#       发表于 2022-11-15 20:04
+
+国服是不可能的 有个有中文的国际服就好
+
+*****
+
+####  医生狼多  
+##### 58#         楼主| 发表于 2022-11-15 20:05
+
+希望能有中文，我还挺感兴趣的
+
+*****
+
+####  zzp05402  
+##### 59#       发表于 2022-11-15 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">只是想要个新的mmo，最好能用手柄
+
+*****
+
+####  kyonkoism二号机  
+##### 60#       发表于 2022-11-15 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451080&amp;ptid=2103199" target="_blank">zzp05402 发表于 2022-11-15 18:59</a>
+
+楼里的能不能不要原批入脑，做个二次元mmo也要批判，FF14,梦幻之星也是对标原是吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家主要是调侃报道强调自己是纯正国产游戏这点，FF14和梦幻之星不都是国产，那这个强调是代表啥意思呢？
+
+大家都在乐，只有你在骂原批，那到底是谁当真了我不好说
+
+
+
+*****
+
+####  smdzh2  
+##### 61#       发表于 2022-11-15 20:11
+
+就看锁不锁区了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism二号机  
+##### 62#       发表于 2022-11-15 20:14
+
+是万南出的，看万南最近努力和国际接轨的样子大概率不会锁区，甚至有可能有繁中
+
+只不过多语言啥的，在内测的时候应该就能体验到了吧？那内测说没有应该也就没有了
+
+*****
+
+####  名守居  
+##### 63#       发表于 2022-11-15 20:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万代还是可以期待下有中文的，隔壁segay才是脑抽
+
+*****
+
+####  tsubaki  
+##### 64#       发表于 2022-11-15 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">色色当然没指望超过LSP之星了，反正看演示UI有点夺命凶弹（还能捏桶子的，先看系统改咋样了
+
+*****
+
+####  kyonkoism二号机  
+##### 65#       发表于 2022-11-15 20:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">之前看演示的原野，巨物场景加超大高低差加奇观，就非常的XB，说不定会是不少坛友的第一款mmorpg也说不定
+
+*****
+
+####  laputah  
+##### 66#       发表于 2022-11-15 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451668&amp;ptid=2103199" target="_blank">蓝雉 发表于 2022-11-15 19:31</a>
+
+终于啊,这游戏的剧情演出我觉得在mmo里也算是顶尖的了.这游戏可惜今年没赶上,不然还能蹭个"sao真的开测了" ...</blockquote>
+对这游戏的印象就是主城不错 副本什么的可以当休闲动作网游放松随便玩玩 竟然还有这些优势的么 
+
+*****
+
+####  weifire  
+##### 67#       发表于 2022-11-15 20:21
+
+<img src="https://p.sda1.dev/8/3b5f47c2ff6efc8547ba45e3d252c29d/Snipaste_2022-11-15_21-17-14.png" referrerpolicy="no-referrer">
+
+手柄设置
+<img src="https://p.sda1.dev/8/eafd9bb315c4a9661290d5e28dd1d7a0/Snipaste_2022-11-15_21-20-01.png" referrerpolicy="no-referrer">
+
+下月生放
+

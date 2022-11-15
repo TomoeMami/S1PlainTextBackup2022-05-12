@@ -3587,3 +3587,12 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 抹一个小数点不就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星踪幻影  
+##### 9288#       发表于 2022-11-15 20:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">在这里吐槽下，怎么虹一些粉丝在某事上提出方案比星现在一些破事还要那啥啊
+
