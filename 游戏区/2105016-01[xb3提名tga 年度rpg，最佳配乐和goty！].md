@@ -762,3 +762,59 @@ xb2按发售日算是要和2018年的游戏比的，而那年最佳配乐《漫�
 
 我看推特评论xb3上tga的话题挺多的
 
+
+
+*****
+
+####  reimei  
+##### 87#       发表于 2022-11-15 08:03
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/210.png" referrerpolicy="no-referrer">要来了是第三喜欢的塔塔开
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  宝香  
+##### 88#       发表于 2022-11-15 08:04
+
+<blockquote>Gniyehz 发表于 2022-11-15 07:54
+xb2按发售日算是要和2018年的游戏比的，而那年最佳配乐《漫威蜘蛛侠》《二之国2》都能入选，xb2没有最佳 ...</blockquote>
+配乐这个确实
+
+*****
+
+####  hotsmile  
+##### 89#       发表于 2022-11-15 08:06
+
+别看不起猫，猫steam 8W个评价97%的好评率，谁都不虚
+
+*****
+
+####  shiko  
+##### 90#       发表于 2022-11-15 08:06
+
+赢麻了，我要听送行曲上tga串烧吔！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  lost-star  
+##### 91#       发表于 2022-11-15 08:09
+
+这是啥意思？还给年度提名？帮老任卖货？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  饼脸遥  
+##### 92#       发表于 2022-11-15 08:10
+
+最终播片感动无数人 这不给个最佳叙事吗？
+
+战斗演出和铁窗泪站在整个JRPG甚至RPG顶端 这不给个最佳演出吗？
+
+XB3必须五提五拿 才能证明TGA不是野鸡
+
