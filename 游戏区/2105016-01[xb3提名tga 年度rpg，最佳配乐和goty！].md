@@ -1502,3 +1502,28 @@ XB3混个串烧 , 增加点曝光度就行了 ,  得奖就算了, 就个音乐
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">串烧的时候是吹笛子还是那个只用了2次的3代反击神曲啊
 
+
+
+*****
+
+####  Kuebiko  
+##### 162#       发表于 2022-11-15 16:03
+
+能露个脸 宣传一下 挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  awy47  
+##### 163#       发表于 2022-11-15 16:04
+
+黑子粗来！给你麦！说话<img src="https://static.saraba1st.com/image/smiley/face2017/268.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  suttv  
+##### 164#       发表于 2022-11-15 16:05
+
+<blockquote>宅音 发表于 2022-11-15 09:27
+怎么成泰恩的功劳了，破晓不也有黑皮领主入队？也没提名goty啊</blockquote>
+破晓我第一时间把他换成白皮金毛了，不说我还不记得也有黑皮了（）
+
