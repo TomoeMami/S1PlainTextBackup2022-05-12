@@ -590,3 +590,33 @@ ps端港服开了，现在应该不锁了
 
 下月生放
 
+
+
+*****
+
+####  elven119  
+##### 68#       发表于 2022-11-15 20:24
+
+看来是真的做完了，连续放情报了
+
+*****
+
+####  名守居  
+##### 69#       发表于 2022-11-15 20:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有钓鱼，暴打ngs
+
+*****
+
+####  zzp05402  
+##### 70#       发表于 2022-11-15 20:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">还以为要介绍钓鱼系统了
+
+*****
+
+####  糸色望lsama  
+##### 71#       发表于 2022-11-15 20:27
+
+话说有台服代理的情况，日服还有可能出繁中吗？没可能吧
+

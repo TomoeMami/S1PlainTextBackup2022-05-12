@@ -581,3 +581,37 @@ Ultraman MoeP
 你知道你说的事意义代表什&amp;# ...</blockquote>
 你不妨讲得明白点，何必去隔壁楼倒垃圾呢
 
+
+
+*****
+
+####  星踪幻影  
+##### 6757#       发表于 2022-11-15 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452268&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 20:15</a>
+
+你不妨讲得明白点，何必去隔壁楼倒垃圾呢</blockquote>
+你只单推LL虹？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+灯还有不少企划呢，是雪菜的舞役还是灯的舞替？这要搞清楚
+
+之所以到隔壁吐槽下，你们说的方案比星的操作目测严重多了
+
+*****
+
+####  dozen  
+##### 6758#       发表于 2022-11-15 20:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452386&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 20:24</a>
+你只单推LL虹？
+
+灯还有不少 ...</blockquote>
+且不说我是单推又如何，严重在哪儿倒是说出个所以然啊<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DarthAka  
+##### 6759#       发表于 2022-11-15 20:30
+
+他们不就说找个歌替，楼上想哪去了，远有马库罗斯，近的红烧天堂里灯那个角色不就是歌手替唱
+
