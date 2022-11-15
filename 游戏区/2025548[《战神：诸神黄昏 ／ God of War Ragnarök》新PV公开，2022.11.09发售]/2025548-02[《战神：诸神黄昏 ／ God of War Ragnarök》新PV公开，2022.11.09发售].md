@@ -567,3 +567,12 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 无情难度通关了，好婆妈的战神公婆，整个最终战别说爽点，连个帅气的大场面演出都无啊
 
+
+
+*****
+
+####  ff2077  
+##### 1553#       发表于 2022-11-15 23:38
+
+取长枪这段向布洛克要祝福处理的挺好<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
