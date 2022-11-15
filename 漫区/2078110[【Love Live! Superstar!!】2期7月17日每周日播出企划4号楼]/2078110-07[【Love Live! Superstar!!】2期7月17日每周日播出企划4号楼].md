@@ -3658,3 +3658,12 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚逛五厕才知道之前铃原个活居然搞起了抽卡...550円一发，一等奖0.1%
 
+
+
+*****
+
+####  lj205  
+##### 9294#       发表于 2022-11-16 07:05
+
+草，前偶像那个10000套餐直接写布施计划
+
