@@ -660,3 +660,12 @@ ps端港服开了，现在应该不锁了
 
 在意巨龙时代，担心蓝色协议
 
+
+
+*****
+
+####  zzp05402  
+##### 76#       发表于 2022-11-15 20:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">能不能国际服打台服翻译补丁玩
+

@@ -3596,3 +3596,14 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">在这里吐槽下，怎么虹一些粉丝在某事上提出方案比星现在一些破事还要那啥啊
 
+
+
+*****
+
+####  优妮可  
+##### 9289#       发表于 2022-11-15 20:52
+
+<blockquote>星踪幻影 发表于 2022-11-15 20:12
+在这里吐槽下，怎么虹一&amp;#x4E ...</blockquote>
+。。。因为那件事太大了，无论什么方案都是不妥的
+

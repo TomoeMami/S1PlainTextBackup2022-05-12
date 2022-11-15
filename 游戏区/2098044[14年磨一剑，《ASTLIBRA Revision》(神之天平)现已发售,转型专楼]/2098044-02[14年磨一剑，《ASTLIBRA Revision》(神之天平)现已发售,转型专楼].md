@@ -7677,3 +7677,16 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 这个15000的成就 打到迷宫是11000杀敌 下一次迷宫大概杀90个 刷44次才能刷完 有点折磨 ...</blockquote>
 可以去打故乡那条路，地形不复杂可以一路a过去，怪比较多且夹杂着没有被誓戒侵蚀的怪，血也少，而且打碎石头还算杀敌数，一趟应该是一百多只。
 
+
+
+*****
+
+####  redsouris  
+##### 2174#       发表于 2022-11-15 20:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58450151&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-15 17:56</a>
+第七章怪物伤害明显高了一大截，我每章装备熟练度都刷完刚进第七章怪打我一下掉三分之一血，刷都没法愉快刷 ...</blockquote>
+找个存档水晶龟着，先刷到几张图纸换上就行，七章最难的是没鸟的时候<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
