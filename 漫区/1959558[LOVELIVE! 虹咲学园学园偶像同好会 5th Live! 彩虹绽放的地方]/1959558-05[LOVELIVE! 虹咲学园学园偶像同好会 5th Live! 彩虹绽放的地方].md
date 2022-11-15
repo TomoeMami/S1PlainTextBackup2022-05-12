@@ -654,3 +654,49 @@ Ultraman MoeP
 
 至于你全舞替live的发想也是搞笑，把特殊情况扩大化有什么意思，按你这想法以后live跳不动了是不是都该降板换人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DarthAka  
+##### 6763#       发表于 2022-11-15 20:40
+
+<blockquote>星踪幻影 发表于 2022-11-15 20:33
+是灯变成“歌替”了而且&amp;#x5 ...</blockquote>
+当然歌得重录，舞是舞台的舞，人家在意的不是楠木蹬，在意的是虹团的人际关系，说难听叫营业，说好听叫团魂不能崩了
+
+*****
+
+####  星踪幻影  
+##### 6764#       发表于 2022-11-15 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452628&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 20:37</a>
+
+灯是坐不了后台唱歌了吗？看她的live安排并不像呢
+
+舞替当然可以露脸，有什么避讳的？当然运营要求面具的 ...</blockquote>
+当然运营要求面具的话也ok啊
+
+还真轻描淡写啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  星踪幻影  
+##### 6765#       发表于 2022-11-15 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452672&amp;ptid=1959558" target="_blank">DarthAka 发表于 2022-11-15 20:40</a>
+
+当然歌得重录，舞是舞台的舞，人家在意的不是楠木蹬，在意的是虹团的人际关系，说难听叫营业，说好听叫团 ...</blockquote>
+老实说那样现地会非常生草的场面吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dozen  
+##### 6766#       发表于 2022-11-15 20:48
+
+ 本帖最后由 dozen 于 2022-11-15 20:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452714&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 20:43</a>
+
+当然运营要求面具的话也ok啊 ...</blockquote>
+业界有claris、ado等例子在，有什么好心理负担的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

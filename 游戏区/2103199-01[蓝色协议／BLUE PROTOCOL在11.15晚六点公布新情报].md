@@ -634,3 +634,29 @@ ps端港服开了，现在应该不锁了
 只不过多语言啥的，在内测 ...</blockquote>
 台服代理之前签出去了，希望到时候中文不要是台服独占
 
+
+
+*****
+
+####  kyonkoism二号机  
+##### 73#       发表于 2022-11-15 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452597&amp;ptid=2103199" target="_blank">andychen 发表于 2022-11-15 20:36</a>
+
+台服代理之前签出去了，希望到时候中文不要是台服独占</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">千万别是独占啊，和台巴子一起玩mmorpg的灾难体验我在艾尔之光体验一次就够了
+
+*****
+
+####  weifire  
+##### 74#       发表于 2022-11-15 20:47
+
+台服代理好像挺烂的
+
+*****
+
+####  螺旋的小夜曲  
+##### 75#       发表于 2022-11-15 20:52
+
+在意巨龙时代，担心蓝色协议
+
