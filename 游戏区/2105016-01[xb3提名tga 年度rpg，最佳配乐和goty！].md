@@ -741,3 +741,24 @@ rpg里面ns游戏比例过高了吧
 野鸡奖 得了又怎么样呢换了个皮相就有提名了 不得不说充满了白皮的傲慢味 ...</blockquote>
 请问XB2在17年打得过谁？
 
+
+
+*****
+
+####  Gniyehz  
+##### 85#       发表于 2022-11-15 07:54
+
+ 本帖最后由 Gniyehz 于 2022-11-15 07:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441036&amp;ptid=2105016" target="_blank">宝香 发表于 2022-11-15 07:47</a>
+请问XB2在17年打得过谁？</blockquote>
+xb2按发售日算是要和2018年的游戏比的，而那年最佳配乐《漫威蜘蛛侠》《二之国2》都能入选，xb2没有最佳配乐提名，属实不应该
+
+—— 来自 Xiaomi M2102J2SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  clover293  
+##### 86#       发表于 2022-11-15 07:57
+
+我看推特评论xb3上tga的话题挺多的
+
