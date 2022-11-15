@@ -3647,3 +3647,14 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9293#       发表于 2022-11-16 02:00
+
+ 本帖最后由 稀勢のささ 于 2022-11-16 02:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚逛五厕才知道之前铃原个活居然搞起了抽卡...550円一发，一等奖0.1%
+

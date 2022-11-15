@@ -759,3 +759,45 @@ ps端港服开了，现在应该不锁了
 
 这么久没出还以为搞成手游了。
 
+
+
+*****
+
+####  zpbzpb123123  
+##### 86#       发表于 2022-11-16 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58454199&amp;ptid=2103199" target="_blank">布里兰特 发表于 2022-11-15 22:46</a>
+
+主要这游戏除了二刺猿和O真不一个赛道的，没必要提它</blockquote>
+我看过的油管上日本那些介绍游戏的频道，最近一两年的视频在介绍蓝色协议或者更新近况的时候十有八九都要提一嘴O，个人观察供参考
+
+*****
+
+####  moonblackwh  
+##### 87#       发表于 2022-11-16 02:08
+
+人设有点土，和绯红结系一脉相承的那种“毫无设计感毫无特点的二次元”的土。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  andychen  
+##### 88#       发表于 2022-11-16 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58455927&amp;ptid=2103199" target="_blank">moonblackwh 发表于 2022-11-16 02:08</a>
+
+人设有点土，和绯红结系一脉相承的那种“毫无设计感毫无特点的二次元”的土。
+
+  -- 来自 有消息提醒的 Sta ...</blockquote>
+我挺喜欢这人设的
+
+如果能少搞甚至不搞软色情就完美了
+
+*****
+
+####  布拉德莱恩  
+##### 89#       发表于 2022-11-16 03:19
+
+职业还是少了点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
