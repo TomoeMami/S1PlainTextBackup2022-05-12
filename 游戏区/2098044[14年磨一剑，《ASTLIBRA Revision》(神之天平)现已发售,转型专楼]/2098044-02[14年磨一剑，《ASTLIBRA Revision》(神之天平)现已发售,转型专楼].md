@@ -7537,3 +7537,36 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 哪怕暗黑2这种正经的刷子游 ...</blockquote>
 本质上刷图纸刷的是新技能和魔力水晶，到下一章废的是武器不是技能
 
+
+
+*****
+
+####  5353  
+##### 2160#       发表于 2022-11-15 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58443972&amp;ptid=2098044" target="_blank">syndrome2032 发表于 2022-11-15 11:18</a>
+
+酒馆咖啡客是未来人啊。</blockquote>
+这点其实还挺有意思的.
+
+最开始几章每次进酒馆都能看到他在喝咖啡.
+
+然后某个结点开始,他人就不见了.
+
+如果这个时候你跟镇上对话,他们会说关于酒馆有个传说,坐在靠门口位置的人会消失.
+
+在之后,到了凯的剧情,揭晓了原来这个人是凯的同伴,是未来人.
+
+而后知道他是在一个酒馆喝咖啡的途中消失的.当时他和凯在通话.
+
+
+
+*****
+
+####  helix  
+##### 2161#       发表于 2022-11-15 13:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58445545&amp;ptid=2098044" target="_blank">syndrome2032 发表于 2022-11-15 13:08</a>
+大贤者有打不过遗迹兵这个剧情设定比较坑。</blockquote>
+这也好圆，演戏逼你回去用天平的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
