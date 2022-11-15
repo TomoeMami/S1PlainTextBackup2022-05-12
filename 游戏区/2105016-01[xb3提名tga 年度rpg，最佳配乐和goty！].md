@@ -983,3 +983,44 @@ xb3第五章，配乐存在感真是够弱
 
 反正又拿不到，提名有啥不可以的，重在参与嘛。
 
+
+
+*****
+
+####  reficul  
+##### 110#       发表于 2022-11-15 08:54
+
+stray和xb3还真没实力跟环、战神同台竞技吧，怎么混到提名的
+
+*****
+
+####  布里兰特  
+##### 111#       发表于 2022-11-15 08:57
+
+<blockquote>reficul 发表于 2022-11-15 08:54
+stray和xb3还真没实力跟环、战神同台竞技吧，怎么混到提名的</blockquote>
+谁都知道陪跑，不说破而已
+
+*****
+
+####  Dashuaibi  
+##### 112#       发表于 2022-11-15 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441236&amp;ptid=2105016" target="_blank">电磁炮233 发表于 2022-11-15 08:12</a>
+
+那个最佳演出其实是最佳扮演，颁给声优和演员的
+
+—— 来自 S1Fun</blockquote>
+国外还真在刷应该给Noah的英配演员一个提名，听说男主的日配英配质量没啥大差别，提名的含金量就很显而易见了
+
+*****
+
+####  shiko  
+##### 113#       发表于 2022-11-15 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441682&amp;ptid=2105016" target="_blank">reficul 发表于 2022-11-15 08:54</a>
+stray和xb3还真没实力跟环、战神同台竞技吧，怎么混到提名的</blockquote>
+那你今年再找个比xb3更配的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">地平线2瘟疫传说2的mc媒体和玩家评分还不如xb3呢
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
