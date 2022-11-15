@@ -870,3 +870,37 @@ XB3必须五提五拿 才能证明TGA不是野鸡
 
 这下野鸡变金鸡了
 
+
+
+*****
+
+####  穿着熊  
+##### 98#       发表于 2022-11-15 08:25
+
+哈哈哈，乐子来了。
+说明媒体就吃这一套，希望多拿几个奖，把这一作风格延续下去
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  GuardHei  
+##### 99#       发表于 2022-11-15 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441264&amp;ptid=2105016" target="_blank">Cortana 发表于 2022-11-15 08:15</a>
+我卡比呢？
+
+—— 来自 Xiaomi MIX 2, Android 9上的 S1Next-鹅版 v2.5.4</blockquote>
+family game，family game<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  adw667  
+##### 100#       发表于 2022-11-15 08:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58440135&amp;ptid=2105016" target="_blank">Ayre不发糖哟 发表于 2022-11-15 01:18</a>
+
+还以为**3已经是goty了，问一下，还是野鸡奖了吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我承认今年的TGA不野鸡，毕竟最佳ACT只有一个突突突
+
