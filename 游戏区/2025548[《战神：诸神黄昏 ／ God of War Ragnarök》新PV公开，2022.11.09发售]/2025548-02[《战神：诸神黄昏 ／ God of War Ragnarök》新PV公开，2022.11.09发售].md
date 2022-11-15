@@ -227,3 +227,15 @@ https://youtu.be/0W15vEsuOk4
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  碎镜子  
+##### 1522#       发表于 2022-11-15 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58440599&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-15 02:54</a>
+ https://youtu.be/0W15vEsuOk4   链刃注能R1可以插招大部分连招里面这个我一早就发现了，只是没想到把后撤 ...</blockquote>
+后撤刀代替冲拳是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+刚通完感觉这招是有什么格挡判定嘛，感觉有时候像是有无敌有时候没有。
+

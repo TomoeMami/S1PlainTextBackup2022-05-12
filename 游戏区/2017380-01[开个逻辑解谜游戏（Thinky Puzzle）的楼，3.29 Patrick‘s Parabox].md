@@ -1530,3 +1530,17 @@ Magnet Block
 今天新出的磁力推箱子
 [https://store.steampowered.com/app/2092660/Magnet_Block/](https://store.steampowered.com/app/2092660/Magnet_Block/)
 
+
+
+*****
+
+####  Thio  
+##### 105#       发表于 2022-11-15 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58439937&amp;ptid=2017380" target="_blank">weiyun 发表于 2022-11-15 00:53</a>
+Artless和Alith新作，14种扫雷变体
+
+这个我参与了测试，这14种新规则和组合起来都很有意思，生成算法保证不 ...</blockquote>
+玩了，真好玩，赞
+话说artless组是国人么？
+

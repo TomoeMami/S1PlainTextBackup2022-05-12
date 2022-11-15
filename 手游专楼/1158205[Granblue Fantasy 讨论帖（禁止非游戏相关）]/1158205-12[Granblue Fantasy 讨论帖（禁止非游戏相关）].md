@@ -495,3 +495,12 @@ C5兔子带老头女人巫妖的组合挺稳定的，不怎么会出现被打死
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  暮星弥空  
+##### 17213#       发表于 2022-11-15 10:14
+
+希望来个拉卡姆style切换<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">救救拉卡姆，救救火团
+
