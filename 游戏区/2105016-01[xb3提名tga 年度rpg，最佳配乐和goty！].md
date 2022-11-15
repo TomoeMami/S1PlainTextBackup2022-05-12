@@ -1180,3 +1180,58 @@ stray和xb3还真没实力跟环、战神同台竞技吧，怎么混到提名的
 感觉要颗粒无收，但是提名对销量还是有微小的帮助吧</blockquote>
 得看任天堂的宣发看不看重吧
 
+
+
+*****
+
+####  yt5wt2c  
+##### 128#       发表于 2022-11-15 09:24
+
+虽然大概率是陪跑，但是看阵容算下来今年又是一个小年
+
+*****
+
+####  宅音  
+##### 129#       发表于 2022-11-15 09:27
+
+怎么成泰恩的功劳了，破晓不也有黑皮领主入队？也没提名goty啊
+
+*****
+
+####  唯美924  
+##### 130#       发表于 2022-11-15 09:28
+
+ 本帖最后由 唯美924 于 2022-11-15 09:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442066&amp;ptid=2105016" target="_blank">windtrack_qh 发表于 2022-11-15 09:18</a>
+
+从游戏体量来说XB3并不输战神，除了猫和瘟疫传说之外，地平线才是真正该滚蛋的那个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">地平线作为开放世界体量并不比XB3差，而且剧情甚至比XB3强。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我倒是觉得XB3是战神的下位版，因为这一代大量加入播片但是质量非常参差不齐、无聊的站桩对话也不比欧美游戏少、加上演出还是不如别人所谓电影化播片垃圾，玩法本身也没什么大进步，反派逼格更是low到爆炸还不如别人，连播片都打不过别人，你要说二次元萌豚、日式游戏滤镜加分那某种意义上也是一种zzzq，或许XB3才是更应该滚蛋的那个吧。
+
+*****
+
+####  shiko  
+##### 131#       发表于 2022-11-15 09:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442225&amp;ptid=2105016" target="_blank">宅音 发表于 2022-11-15 09:27</a>
+怎么成泰恩的功劳了，破晓不也有黑皮领主入队？也没提名goty啊</blockquote>
+看破不说破<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不给留个嘴硬的余地，有些人就只能无能狂怒了
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  hhgjf  
+##### 132#       发表于 2022-11-15 09:29
+
+串烧音乐肯定是送行啦，什么moebius之类的真是想太多。串烧需要识别度高，没玩过的人也大概知道的。最满足这个条件的只能是ND，trailer里放过的送行了。而且这个才具备title theme的职能。
+
+至于评奖，那肯定是陪跑了。或许音乐稍微有一丢丢希望吧，毕竟这种主观奖重名气多于重实质，XB系列音乐在玩家、网络群体里面还是有点热度的。但单是GOTY提名就已经远超期望了，Mono已经算是捡到漏。泥潭就甭得了便宜还卖乖了。
+
+*****
+
+####  ZyLintheMax  
+##### 133#       发表于 2022-11-15 09:31
+
+以为销量公布后能稍停会了，没想到能拿到野鸡奖提名还能继续吵，XB3就是艾欧尼翁的化身<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
