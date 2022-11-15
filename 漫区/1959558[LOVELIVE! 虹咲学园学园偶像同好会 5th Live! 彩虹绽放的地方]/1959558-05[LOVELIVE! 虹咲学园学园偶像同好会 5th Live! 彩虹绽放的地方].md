@@ -542,3 +542,19 @@ Ultraman MoeP
 
 然而运营和上头的大人根本不会这么想，接受现实吧
 
+
+
+*****
+
+####  dozen  
+##### 6754#       发表于 2022-11-15 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451974&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 19:54</a>
+你们认真吗……</blockquote>
+武打替身、特技替身这种性命攸关的活儿都客观存在，找个舞替是什么伤天害理的事情吗<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+想了下你可能是觉得找一个偶像声优来做这种活儿是耽误人家前程受委屈，
+可这活儿给伴舞、舞台剧演员这样的舞台经验者可不是什么坏差事，相比平时工作难度不陡增的同时曝光度还能明显提高
+
+另外这话题再聊下去也只是白日做梦罢了，就此打住吧
+
