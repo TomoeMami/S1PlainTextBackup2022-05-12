@@ -1651,3 +1651,29 @@ tga真能带货吗，破晓十月份就卖了150万份，两百万都是半年�
 tga真能带货吗，破晓十月份就卖了150万份，两百万都是半年以后了。</blockquote>
 除非整个究极大乐子年度游戏xb3，其他带货能力就那样吧，像之前天天有人吹大乱斗带xb2销量，结果对比增长曲线最多也就5-10万的增幅
 
+
+
+*****
+
+####  rr1984  
+##### 178#       发表于 2022-11-15 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58450678&amp;ptid=2105016" target="_blank">Dashuaibi 发表于 2022-11-15 18:31</a>
+
+除非整个究极大乐子年度游戏xb3，其他带货能力就那样吧，像之前天天有人吹大乱斗带xb2销量，结果对比增长 ...</blockquote>
+是这样的，看了tga给游戏的带货能力后，我就不期待这个奖了。游戏在我这里本质还是商品，奖项不能促进销量就是没用。
+
+*****
+
+####  phaie  
+##### 179#       发表于 2022-11-15 18:40
+
+希望到时候下个财报销量出来后别说有tga带货后劲才这么点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism二号机  
+##### 180#       发表于 2022-11-15 18:42
+
+给的是瘟疫传说安魂曲才是大乐子吧，我真的怀疑泥潭是不是太瞧不起TGA的大粪和草台程度了，是有多讨厌XB3才希望这游戏被TGA认可<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
