@@ -375,3 +375,16 @@ PS官方宣布，将于北京时间11月18日早上8:00举行《战神：诸神�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  泥潭办证先锋  
+##### 1534#       发表于 2022-11-15 14:54
+
+ 本帖最后由 泥潭办证先锋 于 2022-11-15 14:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58446994&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-15 14:45</a>
+
+这个组合可以说是整个游戏最垃圾的一场战斗了，我的打法是能不用aoe就尽量不用，他们的ai设置就是法师 ...</blockquote>
+我也发现了法师会盯着boy，但是先处理战士的话，有时也架不住被背刺吃法师招，如果我控制视角把敌人都放在面前，体型占据很大屏幕的战士直接都把法师的招数全挡了，我都来不及反应就全吃了……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">虽然最后是先处理法师后战士打过了，但是我感觉无论先处理谁都是很头痛的体验就是了……
+
