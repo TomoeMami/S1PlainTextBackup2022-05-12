@@ -1024,3 +1024,64 @@ stray和xb3还真没实力跟环、战神同台竞技吧，怎么混到提名的
 
 —— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  langleizhi  
+##### 114#       发表于 2022-11-15 09:03
+
+加了一个泰恩真的有用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哦好吧可能还有人设比较淡的功劳
+
+*****
+
+####  5353  
+##### 115#       发表于 2022-11-15 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58441682&amp;ptid=2105016" target="_blank">reficul 发表于 2022-11-15 08:54</a>
+
+stray和xb3还真没实力跟环、战神同台竞技吧，怎么混到提名的</blockquote>
+xb3是因为得给任天堂面子.第一方必须挑一个.
+
+然后看mc的评分.
+
+xb3 89
+
+贝姐3  87
+
+疯兔2  86
+
+卡比  85
+
+喷3   83
+
+阿尔宙斯 83
+
+你觉得评委挑哪个.
+
+还有一点,xb3的这个89在今年新游戏里不算低.甚至是前几.
+
+*****
+
+####  lelouchwang  
+##### 116#       发表于 2022-11-15 09:06
+
+虽然是陪跑 但真的太有乐子了<img src="https://static.saraba1st.com/image/smiley/carton2017/385.png" referrerpolicy="no-referrer">
+
+*****
+
+####  はちたや  
+##### 117#       发表于 2022-11-15 09:07
+
+xb3 猫 瘟疫传说放在这不是搞笑吗....
+
+*****
+
+####  destroyworlder  
+##### 118#       发表于 2022-11-15 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58440570&amp;ptid=2105016" target="_blank">umbasa 发表于 2022-11-15 02:46</a>
+
+功夫热终究是过了，sifu拼宣发和猫比真的是输麻了。再次说明了游戏皮相好是真的有用。 ...</blockquote>
+我觉得功夫的皮比猫好看多啊。
+
