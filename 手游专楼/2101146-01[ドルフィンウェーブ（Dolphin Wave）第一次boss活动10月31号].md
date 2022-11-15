@@ -269,3 +269,15 @@ SSR相马飒和SSR山叶由芽有解DEBUFF的技能，SR没看过不知道有没
 
 这游戏常驻的那几个高难是不是只能用克制属性打，感觉非克制拉满了一个还是在刮痧一样
 
+
+
+*****
+
+####  MEKA  
+##### 117#       发表于 2022-11-15 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58446695&amp;ptid=2101146" target="_blank">DEMOxN 发表于 2022-11-15 14:22</a>
+
+这游戏常驻的那几个高难是不是只能用克制属性打，感觉非克制拉满了一个还是在刮痧一样 ...</blockquote>
+全克属1.6倍伤害，加上高难对面有奇奇怪怪的BUFF...能的话还是尽量拉克制吧（也可以像我一样摆烂刷减半<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
