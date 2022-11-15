@@ -1369,3 +1369,12 @@ XB3室内比老头环的室内更复杂？这是眼瞎还是眼里只有XB3？XB
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  langleizhi  
+##### 159#       发表于 2022-11-15 09:39
+
+我也看到了当时自己还没被XB3伤到的帖子了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

@@ -1235,3 +1235,51 @@ stray和xb3还真没实力跟环、战神同台竞技吧，怎么混到提名的
 
 以为销量公布后能稍停会了，没想到能拿到野鸡奖提名还能继续吵，XB3就是艾欧尼翁的化身<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nerugigannte  
+##### 134#       发表于 2022-11-15 09:31
+
+白皮是（懂/不懂）jrpg的
+
+*****
+
+####  onezer0618  
+##### 135#       发表于 2022-11-15 09:32
+
+战神也不行，环也不行
+
+那O神可以吗<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
+
+*****
+
+####  findpkq  
+##### 136#       发表于 2022-11-15 09:35
+
+能混个串烧多好啊，正好稍微弥补这几年都没官方音乐会的遗憾<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+那么什么时候更新梅比乌斯鼓掌的麻将脸呀（
+
+*****
+
+####  5353  
+##### 137#       发表于 2022-11-15 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58442225&amp;ptid=2105016" target="_blank">宅音 发表于 2022-11-15 09:27</a>
+
+怎么成泰恩的功劳了，破晓不也有黑皮领主入队？也没提名goty啊</blockquote>
+泥潭这些人嘴硬最有一手,就像我前面说的.
+
+把那张照片放在结尾谁都能看到的地方是不妥协zzzq。
+
+但现在又开始说泰恩跪舔zzzq了.
+
+*****
+
+####  绯红残叶  
+##### 138#       发表于 2022-11-15 09:38
+
+地平线猫什么cylx，不如师傅
+
