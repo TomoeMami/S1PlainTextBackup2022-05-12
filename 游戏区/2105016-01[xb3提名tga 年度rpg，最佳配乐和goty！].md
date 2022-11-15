@@ -1632,3 +1632,22 @@ op跟咱们3p不一样的，op有流水（
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  rr1984  
+##### 176#       发表于 2022-11-15 18:24
+
+tga真能带货吗，破晓十月份就卖了150万份，两百万都是半年以后了。
+
+*****
+
+####  Dashuaibi  
+##### 177#       发表于 2022-11-15 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58450558&amp;ptid=2105016" target="_blank">rr1984 发表于 2022-11-15 18:24</a>
+
+tga真能带货吗，破晓十月份就卖了150万份，两百万都是半年以后了。</blockquote>
+除非整个究极大乐子年度游戏xb3，其他带货能力就那样吧，像之前天天有人吹大乱斗带xb2销量，结果对比增长曲线最多也就5-10万的增幅
+
