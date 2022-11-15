@@ -3636,3 +3636,14 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 在这里吐槽下，怎么虹一&amp;#x4E ...</blockquote>
 现在是“只要能保住太原，要多少我给多少”的情况啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 9292#       发表于 2022-11-15 23:15
+
+粉丝还有提出方案的资格吗，不是不管企划塞什么只有接受和退坑两个选择吗<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
