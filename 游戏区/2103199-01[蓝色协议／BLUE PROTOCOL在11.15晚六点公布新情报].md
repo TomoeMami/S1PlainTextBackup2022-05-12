@@ -620,3 +620,17 @@ ps端港服开了，现在应该不锁了
 
 话说有台服代理的情况，日服还有可能出繁中吗？没可能吧
 
+
+
+*****
+
+####  andychen  
+##### 72#       发表于 2022-11-15 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452244&amp;ptid=2103199" target="_blank">kyonkoism二号机 发表于 2022-11-15 20:14</a>
+
+是万南出的，看万南最近努力和国际接轨的样子大概率不会锁区，甚至有可能有繁中
+
+只不过多语言啥的，在内测 ...</blockquote>
+台服代理之前签出去了，希望到时候中文不要是台服独占
+

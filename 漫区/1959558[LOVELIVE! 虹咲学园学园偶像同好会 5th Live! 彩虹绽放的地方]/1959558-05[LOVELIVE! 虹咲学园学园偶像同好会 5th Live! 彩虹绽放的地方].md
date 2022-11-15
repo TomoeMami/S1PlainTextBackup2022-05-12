@@ -615,3 +615,42 @@ Ultraman MoeP
 
 他们不就说找个歌替，楼上想哪去了，远有马库罗斯，近的红烧天堂里灯那个角色不就是歌手替唱
 
+
+
+*****
+
+####  星踪幻影  
+##### 6760#       发表于 2022-11-15 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452456&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 20:28</a>
+
+且不说我是单推又如何，严重在哪儿倒是说出个所以然啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">且不说以后灯要不要上场？，舞替有没有“脸？”
+
+要不要全舞替live啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  星踪幻影  
+##### 6761#       发表于 2022-11-15 20:33
+
+ 本帖最后由 星踪幻影 于 2022-11-15 20:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452490&amp;ptid=1959558" target="_blank">DarthAka 发表于 2022-11-15 20:30</a>
+
+他们不就说找个歌替，楼上想哪去了，远有马库罗斯，近的红烧天堂里灯那个角色不就是歌手替唱 ...</blockquote>
+是灯变成“歌替”了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">而且其实也不会再看到楠木蹬啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dozen  
+##### 6762#       发表于 2022-11-15 20:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452535&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 20:32</a>
+
+且不说以后灯要不要上场&amp;#x ...</blockquote>
+灯是坐不了后台唱歌了吗？看她的live安排并不像呢
+
+舞替当然可以露脸，有什么避讳的？当然运营要求面具的话也ok啊
+
+至于你全舞替live的发想也是搞笑，把特殊情况扩大化有什么意思，按你这想法以后live跳不动了是不是都该降板换人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
