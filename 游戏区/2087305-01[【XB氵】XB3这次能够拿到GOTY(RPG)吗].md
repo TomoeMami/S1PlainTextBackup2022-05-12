@@ -1378,3 +1378,12 @@ XB3室内比老头环的室内更复杂？这是眼瞎还是眼里只有XB3？XB
 
 我也看到了当时自己还没被XB3伤到的帖子了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Weiz97  
+##### 160#         楼主| 发表于 2022-11-15 19:05
+
+真给高桥骗到了 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

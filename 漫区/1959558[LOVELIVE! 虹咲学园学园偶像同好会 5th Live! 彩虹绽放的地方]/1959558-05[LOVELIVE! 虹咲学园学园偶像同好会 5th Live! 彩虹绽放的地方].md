@@ -491,3 +491,35 @@ Ultraman MoeP
 
 兔的目标清除计划
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6749#       发表于 2022-11-15 19:04
+
+粉丝不一定买账新人，不如赶紧榨干剩余价值包赚不赔（
+
+*****
+
+####  星踪幻影  
+##### 6750#       发表于 2022-11-15 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58449438&amp;ptid=1959558" target="_blank">dozen 发表于 2022-11-15 17:13</a>
+
+比降板直接搞分流提纯温和多了，对虹和对灯都是</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">对代打的人来说很恶心的
+
+
+
+*****
+
+####  dozen  
+##### 6751#       发表于 2022-11-15 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58451221&amp;ptid=1959558" target="_blank">星踪幻影 发表于 2022-11-15 19:08</a>
+对代打的人来说很恶心的</blockquote>
+代打的人和其他人签的又不是同一份合同，干多少活儿领多少工资，一个合格打工人有什么好感到恶心的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+退一步说，能比降板恶心到的人少就是胜利啊
+
