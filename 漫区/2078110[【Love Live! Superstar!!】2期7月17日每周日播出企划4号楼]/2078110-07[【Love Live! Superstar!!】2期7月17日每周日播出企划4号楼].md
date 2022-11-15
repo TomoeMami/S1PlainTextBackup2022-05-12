@@ -3545,3 +3545,12 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 起码星我是真没见几个日本人为这种mindfxxking的动画叫好的，我现在挺希望三期原班人马继续做，自作自受咯。
 日本人不是最喜欢讲魄力，到展现魄力的时候了，加油啊**作kuso动画的大哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 9284#       发表于 2022-11-15 16:20
+
+某个新连载的少女漫画，女主身高167cm，还有左斜刘海披肩的长发，很难不去联想鲤鱼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
