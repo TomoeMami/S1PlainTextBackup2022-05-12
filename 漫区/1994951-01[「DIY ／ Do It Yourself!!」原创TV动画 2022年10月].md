@@ -5736,3 +5736,20 @@ Do It Your Radio!! 第 2 回里有提到 11 月 16 日Խ ...</blockquote>
 
 希明明是猴系少女，口癖却是“喵”，不过可能也像好奇心和精力都旺盛的幼猫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 452#       发表于 2022-11-16 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer"> 我真是服了
+
+艾回的音乐发行还是真的不能期待太多
+
+OP完整版最后那段咋回事？人（声）还没唱完就来整个渐进消声？
+
+然后还整了首跟正片对不上的Cafe Mix……不对，那不就是硬改爵士风么？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+也就ED还不错了，不过胜在完整版第二段更好听<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
