@@ -3667,3 +3667,16 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 草，前偶像那个10000套餐直接写布施计划
 
+
+
+*****
+
+####  ads147147  
+##### 9295#       发表于 2022-11-16 08:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58452223&amp;ptid=2078110" target="_blank">星踪幻影 发表于 2022-11-15 20:12</a>
+在这里吐槽下，怎么虹一&amp;#x4E ...</blockquote>
+怎么说呢，这些事把脑子搞的都是一团浆糊，说出不理智的话我也能理解。反正都是走一步看一步，影响不到企划决策，放低预期或许还是好事。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
