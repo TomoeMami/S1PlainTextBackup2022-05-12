@@ -982,3 +982,20 @@ Screenshot_20221115-174250.png
 
 中高效把阴影光照啥的调一调，10702K应该也能爽玩，其实也就是一般优化不好的日式游戏的水平
 
+
+
+*****
+
+####  Kojimaru  
+##### 106#       发表于 2022-11-16 14:07
+
+<img src="https://img.saraba1st.com/forum/202211/16/140553d692kekclkpee9vt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (123 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-16 14:05 上传
+
+搜了一下，果然是辣鸡代理
+

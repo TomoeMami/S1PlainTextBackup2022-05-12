@@ -47,3 +47,17 @@ At this point the essential correctness of the manuscript is unconfirmed. There 
 一点来自陶哲轩的反馈。谨慎的说，目 ...</blockquote>
 张益唐是个很细心的人，这些错误不应该呀
 
+
+
+*****
+
+####  大哼哼  
+##### 104#       发表于 2022-11-16 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58459347&amp;ptid=2099955" target="_blank">烤烤鱼σ 发表于 2022-11-16 11:37</a>
+
+链接：https://www.zhihu.com/question/564799818/answer/2758888159
+
+一点来自陶哲轩的反馈。谨慎的说，目 ...</blockquote>
+为啥can not 是错的？
+

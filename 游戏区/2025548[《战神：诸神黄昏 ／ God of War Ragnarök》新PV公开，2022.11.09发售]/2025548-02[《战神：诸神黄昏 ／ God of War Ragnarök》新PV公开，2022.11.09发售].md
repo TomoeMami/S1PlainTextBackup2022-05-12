@@ -826,3 +826,48 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  忘却的记忆  
+##### 1576#       发表于 2022-11-16 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58461052&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-16 14:00</a>
+从落水洞那边过去找水门
+
+—— 来自 S1Fun</blockquote>
+落水洞是哪？
+
+*****
+
+####  windtrack_qh  
+##### 1577#       发表于 2022-11-16 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58460992&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-16 13:54</a>
+
+这个视角就是copy自己的执念和这样就可以以tps的逻辑构造整个移动和游戏设计，最典型的就是斧头的操作可 ...</blockquote>
+开放视角之后斧头其实也好处理，L2之后直接回到跃肩瞄准视角就行了
+
+*****
+
+####  415452356  
+##### 1578#       发表于 2022-11-16 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58461125&amp;ptid=2025548" target="_blank">windtrack_qh 发表于 2022-11-16 14:06</a>
+开放视角之后斧头其实也好处理，L2之后直接回到跃肩瞄准视角就行了</blockquote>
+  这个早在14年前的忍龙2硫酸就尝试过了，只能说效果真的不行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  415452356  
+##### 1579#       发表于 2022-11-16 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58461102&amp;ptid=2025548" target="_blank">忘却的记忆 发表于 2022-11-16 14:04</a>
+落水洞是哪？</blockquote>
+  大坑右边，整个地图设计就是让你顺时针兜一圈
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
