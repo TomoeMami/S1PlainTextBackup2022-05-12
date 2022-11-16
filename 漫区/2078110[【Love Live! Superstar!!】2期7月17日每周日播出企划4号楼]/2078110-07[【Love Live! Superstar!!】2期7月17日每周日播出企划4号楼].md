@@ -3720,3 +3720,14 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  cat1230  
+##### 9300#       发表于 2022-11-16 12:14
+
+咧啦属于那种成员私底下玩就玩了，不会跟粉丝公告那种。这样比较正常，朋友出去玩为啥要搞营业 多累。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
