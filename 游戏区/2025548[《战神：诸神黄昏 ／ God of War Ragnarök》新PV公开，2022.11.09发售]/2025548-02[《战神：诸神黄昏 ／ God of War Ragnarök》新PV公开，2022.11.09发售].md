@@ -948,3 +948,12 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">作为队友是不是芙蕾雅比boy强啊，感觉boy技能树好菜
 
+
+
+*****
+
+####  ff2077  
+##### 1587#       发表于 2022-11-16 23:24
+
+雷电法王好粪，打两下就瞬移<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
