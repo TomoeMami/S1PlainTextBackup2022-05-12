@@ -838,3 +838,21 @@ ps端港服开了，现在应该不锁了
 
 最重要的是拖了那么多年到现在越拖越显得过时了。。。
 
+
+
+*****
+
+####  诚司  
+##### 93#       发表于 2022-11-16 09:43
+
+之前测试的评测都不太好，游戏性很差的那种，希望这回改好了……
+
+*****
+
+####  silverfoxz  
+##### 94#       发表于 2022-11-16 09:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58456512&amp;ptid=2103199" target="_blank">布里兰特 发表于 2022-11-16 07:54</a>
+用得着参考日本人吗，本帖或者去b站评论区都这样啊</blockquote>
+那说明啥？普世认同的观点，就泥潭一小撮会纠结啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
