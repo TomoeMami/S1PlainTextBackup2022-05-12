@@ -7854,3 +7854,37 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 —— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  藤井紫  
+##### 2190#       发表于 2022-11-16 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58460566&amp;ptid=2098044" target="_blank">伊迪潘宫森 发表于 2022-11-16 13:16</a>
+
+准备开玩了，老哥们有没有什么tips
+
+—— 来自 S1Fun</blockquote>
+盾防比后撤步效果强
+
+多用凭依
+
+打小怪不要莽
+
+第五章魔王城，成年红毛入队后回头找人
+
+每一章有1个天平、5张图纸
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 伊迪潘宫森| + 1|多泄|
+
+查看全部评分
+
