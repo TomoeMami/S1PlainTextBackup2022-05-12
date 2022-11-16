@@ -762,3 +762,27 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 —— 来自 S1Fun</blockquote>
 第一次可以，出场后跳必招一波，可以预判。后面再招就来不及打断了。简单处理方法就是招出来后用斯巴达之怒秒掉两个亡灵，用锁链L2+R1秒掉噩梦，基本上过程中是无敌的
 
+
+
+*****
+
+####  origen  
+##### 1570#       发表于 2022-11-16 12:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58459451&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-16 11:43</a>
+战神难度敌人硬直抗性需要习惯下，打到华纳海姆有魔符箭了就舒服了
+
+—— 来自 S1Fun ...</blockquote>
+魔符箭目前我还没整明白，战斗中怎么用比较好？
+
+*****
+
+####  415452356  
+##### 1571#       发表于 2022-11-16 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58460321&amp;ptid=2025548" target="_blank">origen 发表于 2022-11-16 12:55</a>
+魔符箭目前我还没整明白，战斗中怎么用比较好？</blockquote>
+  就是堆满一圈之后敌人对每种属性的抗性都会降低，更容易被上属性，例如我后期没拿到主动魔男时间神器的时候我就是带华纳海姆支线给的毒神器打狂战士，堆满魔符之后直接往boss脸上开，刚好可以给他上到毒，配合芙蕾雅自己的毒一场战斗可以上两次
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
