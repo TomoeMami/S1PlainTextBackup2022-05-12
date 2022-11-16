@@ -7923,3 +7923,24 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 <img src="https://img.saraba1st.com/forum/202211/16/164149y2rhn3s2za2yy9wg.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  farAway  
+##### 2193#       发表于 2022-11-16 17:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58421866&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-13 23:55</a>
+
+没必要专门去点幸运，幸运影响一切掉落（素材，金币，经验值），不过基本只在素材上有稍显着的效果。前期 ...</blockquote>
+防御为啥不用点啊
+
+*****
+
+####  skgaminger1988  
+##### 2194#       发表于 2022-11-16 17:10
+
+<img src="https://p.sda1.dev/8/eeb1aae0c176e0d23cce52c933a5f001/CMP_20221116170920709.jpg" referrerpolicy="no-referrer">
+
+这个异常状态瘾是不是有bug 怎么带了剧毒魔导力没变化的
+

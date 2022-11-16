@@ -1091,3 +1091,14 @@ Screenshot_20221115-174250.png
 想起了玩落英时大家都倒了 ...</blockquote>
 我当年玩洛英时也遇到过这种情况，开boss前有个大佬说自己能solo这boss，结果途中队伍全灭就剩他一个，还真就靠他solo过了，我们躺地上的人全程给大佬打call<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cvql  
+##### 116#       发表于 2022-11-16 17:11
+
+落英和剑灵的坦克都是这个定位。。。为什么有人觉得奇怪。
+
+—— 来自 samsung SM-N9760, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
