@@ -705,3 +705,35 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 现在没有二周目嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 早知道选战神难度开荒了，现在又得从白板开始打了。
 
+
+
+*****
+
+####  快递抢不到  
+##### 1565#       发表于 2022-11-16 11:41
+
+ 本帖最后由 快递抢不到 于 2022-11-16 11:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58455688&amp;ptid=2025548" target="_blank">CharlieZ- 发表于 2022-11-16 01:13</a>
+
+为啥要从三部曲压缩成两部完结啊，后面剧情真的感觉有点赶，索尔奥丁两场最后的boss战做的也很一般，最惨的 ...</blockquote>
+制作时间太长，不想做了。 4的制作人做新IP去了。
+
+*****
+
+####  415452356  
+##### 1566#       发表于 2022-11-16 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58459206&amp;ptid=2025548" target="_blank">碎镜子 发表于 2022-11-16 11:26</a>
+现在没有二周目嘛
+早知道选战神难度开荒了，现在又得从白板开始打了。 ...</blockquote>
+  战神难度敌人硬直抗性需要习惯下，打到华纳海姆有魔符箭了就舒服了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  SergeGlenn  
+##### 1567#       发表于 2022-11-16 11:45
+
+天啊招兵这个狂战我打的都很吃力，这三人组不更头大
+
