@@ -871,3 +871,27 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  忘却的记忆  
+##### 1580#       发表于 2022-11-16 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58461182&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-16 14:10</a>
+大坑右边，整个地图设计就是让你顺时针兜一圈
+
+—— 来自 S1Fun</blockquote>
+杀地龙那边？杀了一个地龙，给湖中精灵石头后又绕回来了…
+
+*****
+
+####  415452356  
+##### 1581#       发表于 2022-11-16 14:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58461315&amp;ptid=2025548" target="_blank">忘却的记忆 发表于 2022-11-16 14:21</a>
+杀地龙那边？杀了一个地龙，给湖中精灵石头后又绕回来了…</blockquote>
+  人不在家不能开存档帮你看，爱莫能助了，建议干脆查攻略视频
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
