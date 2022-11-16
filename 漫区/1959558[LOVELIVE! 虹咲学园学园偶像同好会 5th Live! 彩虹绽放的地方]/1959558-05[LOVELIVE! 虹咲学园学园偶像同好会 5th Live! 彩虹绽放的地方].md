@@ -700,3 +700,18 @@ Ultraman MoeP
 当然运营要求面具的话也ok啊 ...</blockquote>
 业界有claris、ado等例子在，有什么好心理负担的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  li463900160  
+##### 6767#       发表于 2022-11-16 13:34
+
+楠木灯自己本人肯定是不想退的，无论从这么多年感情还是挣钱角度来说拉拉都是铁饭碗
+
+虹运营本身来说自从20年报道后到今年也开了不少live活动了，凑合凑合都能过。
+
+最后毕业时间是3.31，是日本常规合同到期时间
+
+谁想让灯退大家心知肚明
+
