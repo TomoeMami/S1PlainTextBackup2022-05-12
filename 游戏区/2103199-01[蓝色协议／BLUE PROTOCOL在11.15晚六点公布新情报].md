@@ -1078,3 +1078,16 @@ Screenshot_20221115-174250.png
 
 职业介绍没有奶妈，是有转职系统吗
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 115#       发表于 2022-11-16 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58463393&amp;ptid=2103199" target="_blank">Dai-Dai-Dai-Dai 发表于 2022-11-16 16:42</a>
+演示看着挺ACT的，还加仇恨系统不会对T压力很大吗？仇恨都在T身上相当于solo了。
+
+想起了玩落英时大家都倒了 ...</blockquote>
+我当年玩洛英时也遇到过这种情况，开boss前有个大佬说自己能solo这boss，结果途中队伍全灭就剩他一个，还真就靠他solo过了，我们躺地上的人全程给大佬打call<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
