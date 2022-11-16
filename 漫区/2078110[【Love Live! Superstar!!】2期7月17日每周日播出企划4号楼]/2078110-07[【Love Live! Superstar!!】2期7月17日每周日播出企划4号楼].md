@@ -3742,3 +3742,16 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 隔壁虹有游戏群开黑，也有不少摄影可以一起去玩。这边感觉出去怕是真的只有逛街了 ...</blockquote>
 还有吃美食<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 9302#       发表于 2022-11-16 17:43
+
+ 本帖最后由 lj205 于 2022-11-16 17:50 编辑 
+
+唠嗑居然中了！！！本来这次感觉没啥希望！今年的唠嗑抽选居然全通！
+
+草，才发现时间居然是工作日中午，我上哪找安静地方<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+

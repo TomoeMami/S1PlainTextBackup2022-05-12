@@ -666,3 +666,23 @@ fs社的问题我感觉是只有一个明星制作人，而且的的确确是在
 
 但我总觉得宫崎英高累了，一副做完环就想退休的样子，这次实在是销量太好了被角川和万代拿枪顶着头在做dlc呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布里兰特  
+##### 72#       发表于 2022-11-16 17:44
+
+做游戏自成一脉的公司，很厉害，但是怕走不远
+
+*****
+
+####  nightmare902015  
+##### 73#       发表于 2022-11-16 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58464335&amp;ptid=2105240" target="_blank">woshenc 发表于 2022-11-16 17:41</a>
+fs社的问题我感觉是只有一个明星制作人，而且的的确确是在依靠这个明星制作人
+
+但我总觉得宫崎英高累了，一 ...</blockquote>
+他采访也明确说了自己马上就要退二线了。好像他说最后一个自己全程亲历亲为的游戏是那个剧情全程讲人话，被称为“宫崎英高的温柔”的vr游戏。
+

@@ -7986,3 +7986,14 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 日文wiki还是很好用的，有剧透的地方也折叠了
 
+
+
+*****
+
+####  電子器官依存  
+##### 2198#       发表于 2022-11-16 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58463793&amp;ptid=2098044" target="_blank">farAway 发表于 2022-11-16 17:04</a>
+防御为啥不用点啊</blockquote>
+没啥用，基本上保证自己的血量到一击线以上或者更高，用凭依的无敌时间卡吃果子就足够容错了，以防万一可以备几瓶药
+
