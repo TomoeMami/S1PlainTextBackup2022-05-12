@@ -7757,3 +7757,14 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 不过出图就清0等级，流程很短，作者自己主页上有下载
 
+
+
+*****
+
+####  kikka  
+##### 2182#       发表于 2022-11-16 09:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么装备盘还加重量的，我说怎么攻速突然慢了一大截
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
