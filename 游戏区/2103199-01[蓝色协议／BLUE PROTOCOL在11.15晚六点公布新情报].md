@@ -865,3 +865,12 @@ ps端港服开了，现在应该不锁了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大家都在乐，只有一个看到op俩字就急了
 
+
+
+*****
+
+####  lin2004  
+##### 96#       发表于 2022-11-16 11:01
+
+游戏性差不差没关系，能让我等Eco难民能成佛（胖次图鉴意义上）就行了，新国那破图形引擎是在撸不起来，虽然更重要的是segay开发的没品位和建模贴图无能
+
