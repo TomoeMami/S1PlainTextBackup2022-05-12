@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/漫区/2073604-01[赤坂アカ×横槍メンゴ【我推的孩子／推しの子】2号楼].md'
-!!error:id=2073604
