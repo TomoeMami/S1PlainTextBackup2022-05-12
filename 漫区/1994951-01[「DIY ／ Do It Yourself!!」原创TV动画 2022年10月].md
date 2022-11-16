@@ -5716,3 +5716,14 @@ Do It Your Radio!! 第 2 回里有提到 11 月 16 日Խ ...</blockquote>
 
 己脸上不带创可贴头发一扎颜值一下就上去了，平常还是太吊儿郎当了。
 
+
+
+*****
+
+####  冰冻火柴  
+##### 450#       发表于 2022-11-16 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58434390&amp;ptid=1994951" target="_blank">arrru 发表于 2022-11-14 18:17</a>
+这集的布丁真的让我幻视015，啊啊啊啊啊啊啊啊啊</blockquote>
+确实像，声优、发型发色、甚至这股败犬劲，不过布丁太稳了，比莓良心强太多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
