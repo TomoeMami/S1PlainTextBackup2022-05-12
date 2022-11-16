@@ -3731,3 +3731,14 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  仟音一心  
+##### 9301#       发表于 2022-11-16 13:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58458486&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-16 10:39</a>
+隔壁虹有游戏群开黑，也有不少摄影可以一起去玩。这边感觉出去怕是真的只有逛街了 ...</blockquote>
+还有吃美食<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
