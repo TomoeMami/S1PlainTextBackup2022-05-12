@@ -957,3 +957,18 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 雷电法王好粪，打两下就瞬移<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wzh5555  
+##### 1588#       发表于 2022-11-17 04:49
+
+ 本帖最后由 wzh5555 于 2022-11-17 04:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58460321&amp;ptid=2025548" target="_blank">origen 发表于 2022-11-16 12:55</a>
+
+魔符箭目前我还没整明白，战斗中怎么用比较好？</blockquote>
+普通用法就是给小怪叠上，然后冰/火抗性下降，同时对于小怪异常成功会元素爆炸一下传递周围一圈包括精英和boss。然后配合增伤的护符加快奎爷输出。
+
+高阶一些的用法就是对场景墙壁地面用，然后接合冰冻或者点燃来制造大元素爆炸，和解密规则一样，叠三箭出大圈就是爆炸范围。不过这个操作属实有点吃操作。 不过对于某些杂兵战可以预先埋地雷
+
