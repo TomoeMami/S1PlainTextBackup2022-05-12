@@ -625,3 +625,16 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 编辑：搞定了，去ps5系统设置里关掉120fps输出支持
 
+
+
+*****
+
+####  ads147147  
+##### 1558#       发表于 2022-11-16 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58455688&amp;ptid=2025548" target="_blank">CharlieZ- 发表于 2022-11-16 01:13</a>
+为啥要从三部曲压缩成两部完结啊，后面剧情真的感觉有点赶，索尔奥丁两场最后的boss战做的也很一般，最惨的 ...</blockquote>
+大概面临和当年战神2的处境一样，战神2战神3就属于故事早在战神2就说完了，战神3很干瘪，角色脸谱化也很明显，说是boss战爽其实也不是特别多，不过恢宏感还是做出来了。然后诸神黄昏就是缩了，结果忒多小家子气的东西。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
