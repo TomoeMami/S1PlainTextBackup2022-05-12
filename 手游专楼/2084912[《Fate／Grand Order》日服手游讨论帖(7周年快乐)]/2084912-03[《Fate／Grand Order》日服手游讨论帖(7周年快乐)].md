@@ -6758,3 +6758,12 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看我像是有妖兰的人吗  梅芙1宝伤害不够
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了算了 我反正也不刷无限池 直接借个妖兰5加成也随便冲
 
+
+
+*****
+
+####  里村紅葉  
+##### 3616#       发表于 2022-11-16 19:23
+
+这金材料的本背景是什么东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怎么看到两个锯子在转？
+
