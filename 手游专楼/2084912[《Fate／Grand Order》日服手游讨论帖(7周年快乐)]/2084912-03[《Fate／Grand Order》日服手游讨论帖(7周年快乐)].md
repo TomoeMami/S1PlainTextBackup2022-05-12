@@ -6683,3 +6683,20 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新没妖兰 5加成虽然脚打 但是不知道怎么6 （虽然我也不刷
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3609#       发表于 2022-11-16 17:55
+
+问：90++本有七个人，请问该怎样安排？<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+阴凉树：223<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+叶良神：331<img src="https://static.saraba1st.com/image/smiley/face2017/251.png" referrerpolicy="no-referrer">
+
+搭配上剧情里的奶枪CG给人一种强推PU五星的感觉...
+
+不知道查理曼十二勇士卡池是因为妖布跟布妹有亲戚关系开的，还是蹭90++本热度...如果是后者希望up一下金时<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
