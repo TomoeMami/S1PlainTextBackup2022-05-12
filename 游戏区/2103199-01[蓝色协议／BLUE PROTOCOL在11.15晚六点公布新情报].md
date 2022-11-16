@@ -969,3 +969,16 @@ Screenshot_20221115-174250.png
 
 泥潭是有护城河+断头台双保险，但别忘了真的有人在负重前行啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kyonkoism二号机  
+##### 105#       发表于 2022-11-16 13:46
+
+2070S指的是1080全特效吧
+
+那其实还。。。说得过去？
+
+中高效把阴影光照啥的调一调，10702K应该也能爽玩，其实也就是一般优化不好的日式游戏的水平
+

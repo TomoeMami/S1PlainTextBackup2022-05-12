@@ -786,3 +786,14 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  windtrack_qh  
+##### 1572#       发表于 2022-11-16 13:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我感觉制作组在跃肩视角战斗上有点魔怔了，很多1对多的战斗跃肩视角打起来很难受，全程都是谁在打我，敌人在哪。
+
+感觉应该考虑一下特定的BOSS战为了视觉效果锁视角，大部分遭遇战放开视角算了，至少和老滚一样就算一直用跃肩视角也能有个缩放或者一定角度环绕。
+
