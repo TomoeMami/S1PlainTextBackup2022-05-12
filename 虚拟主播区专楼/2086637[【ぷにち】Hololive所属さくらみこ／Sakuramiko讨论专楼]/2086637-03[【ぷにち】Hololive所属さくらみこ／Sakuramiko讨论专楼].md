@@ -440,3 +440,16 @@ tskk都来了，这游戏有点隐患啊
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩点游戏吧，别是杂谈就行
 
+
+
+*****
+
+####  holoan  
+##### 3046#         楼主| 发表于 2022-11-16 16:32
+
+呃……
+
+不如solo直播了
+
+搞不懂这些人就那么喜欢这些什么玩意企划
+

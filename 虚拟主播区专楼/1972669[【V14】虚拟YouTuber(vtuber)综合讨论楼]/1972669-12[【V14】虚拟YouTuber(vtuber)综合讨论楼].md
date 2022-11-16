@@ -1039,3 +1039,29 @@ solo是在1200人的kt zepp yokohama，没那么火的少一点，×2.5也差不
 
 至少不是80多岁老太太<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 17727#       发表于 2022-11-16 16:35
+
+右边这位你谁？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/kizunanoallele/status/1592789819641692161](https://twitter.com/kizunanoallele/status/1592789819641692161)
+
+TVアニメ「绊のアリル」アニメビジュアル公开しました！更にあらすじも公式サイトにて公开中！
+
+公式サイトはコチラ👇
+[http://kizunanoallele.com](http://kizunanoallele.com)
+
+彼女の物语にどうぞご期待下さい！
+
+<img src="https://img.saraba1st.com/forum/202211/16/163519owzo3n5elh7zlsfe.jpg" referrerpolicy="no-referrer">
+
+<strong>1.jpg</strong> (174.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-16 16:35 上传
+
