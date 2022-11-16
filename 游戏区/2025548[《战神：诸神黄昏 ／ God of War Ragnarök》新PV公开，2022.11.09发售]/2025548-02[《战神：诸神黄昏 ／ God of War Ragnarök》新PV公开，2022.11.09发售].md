@@ -895,3 +895,22 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  碎镜子  
+##### 1582#       发表于 2022-11-16 14:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58460992&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-16 13:54</a>
+ 这个视角就是copy自己的执念和这样就可以以tps的逻辑构造整个移动和游戏设计，最典型的就是斧头的操作可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">建议削一下小怪的韧性或者强化一下后闪R1。
+这代随便小怪都能顶着攻击上来砍你太离谱了。
+
+*****
+
+####  碎镜子  
+##### 1583#       发表于 2022-11-16 14:47
+
+昨天试了一下，英勇盾的冲拳还是挺牛逼的，算上闪和前作冲拳距离应该还差不多，而且还是接红刀最快的招式之一了。
+
