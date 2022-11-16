@@ -679,3 +679,19 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  huaxianyan  
+##### 1563#       发表于 2022-11-16 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58455878&amp;ptid=2025548" target="_blank">Booorunestud 发表于 2022-11-16 01:54</a>
+
+请问个问题，用采集卡玩战神就提示无信号，需要怎样设置下画面吗
+
+采集卡型号是gc551，之前类似的情况在仁王 ...</blockquote>
+本作也支持高帧数，关掉就可以了
+
+我用的 GC553，虽然支持 1080@120，但是高帧数模式掉帧严重，效果远不如不开高帧数的 1080@60 效果好
+
