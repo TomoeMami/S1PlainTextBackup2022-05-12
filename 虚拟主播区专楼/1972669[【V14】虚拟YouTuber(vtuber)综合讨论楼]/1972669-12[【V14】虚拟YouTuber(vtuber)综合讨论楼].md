@@ -1080,3 +1080,12 @@ riotmusic怎么有种不妙的味道……
 
 省一楼，看了楼上的官网……这是往老爱的棺材板上钉钉子，还想正式立个皇储造宣称啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 17729#       发表于 2022-11-17 00:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在工商直播前一天贬低角色而不是工商直播贬低角色就算造谣，好大的官威啊
+
