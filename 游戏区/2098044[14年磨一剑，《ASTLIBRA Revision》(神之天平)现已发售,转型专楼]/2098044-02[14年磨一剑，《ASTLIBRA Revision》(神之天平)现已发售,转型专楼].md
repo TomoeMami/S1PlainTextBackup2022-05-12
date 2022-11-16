@@ -7944,3 +7944,34 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 这个异常状态瘾是不是有bug 怎么带了剧毒魔导力没变化的
 
+
+
+*****
+
+####  skgaminger1988  
+##### 2195#       发表于 2022-11-16 17:16
+
+<img src="https://p.sda1.dev/8/cc242281a58b85081ca8d1dbdbd91c67/CMP_20221116171614652.jpg" referrerpolicy="no-referrer">
+
+感觉确实有bug啊 伤害都不变的
+
+*****
+
+####  永远的访客  
+##### 2196#       发表于 2022-11-16 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58460566&amp;ptid=2098044" target="_blank">伊迪潘宫森 发表于 2022-11-16 13:16</a>
+
+准备开玩了，老哥们有没有什么tips
+
+—— 来自 S1Fun</blockquote>
+经验升级只是很小一部分，主要提高战力来源是星盘元素自己点
+
+每个区域能获得的元素种类都不平均，升星盘时用非对应的元素需要3倍成本，但反正每章只开一块区域的星盘让你点，不用纠结，早换早享受
+
+居家旅行杀人越货4件套：挖矿镐，铜钥匙，火把，药
+
+把所有能捡/能买的装备都练到顶级不会错
+
+不用怕去过的区域不能再去，遇到隐藏分支区域乌鸦请你往回就老老实实往回<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

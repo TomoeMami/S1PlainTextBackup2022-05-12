@@ -1102,3 +1102,33 @@ Screenshot_20221115-174250.png
 
 —— 来自 samsung SM-N9760, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  朝倉純一  
+##### 117#       发表于 2022-11-16 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58463551&amp;ptid=2103199" target="_blank">鸭面包 发表于 2022-11-16 16:50</a>
+职业介绍没有奶妈，是有转职系统吗</blockquote>
+弓手有回复技能，还有聚怪技能睡眠箭什么的，感觉偏辅助一些
+回城换武器就能随便换职业，职业等级是要分开练的
+
+—— 来自 HUAWEI HLK-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  放大镜  
+##### 118#       发表于 2022-11-16 17:13
+
+ 本帖最后由 放大镜 于 2022-11-16 17:16 编辑 
+
+落英是每个职业都给了保命技能，所以T的意义不大；有专职T那肯定会搭配海量防御技能，不可能全看个人技术的，否则队伍拉不起来。
+
+*****
+
+####  Ky·Kiske  
+##### 119#       发表于 2022-11-16 17:18
+
+T这个盾常态血量扛不住boss几巴掌吧
+
