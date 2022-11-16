@@ -6700,3 +6700,14 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 不知道查理曼十二勇士卡池是因为妖布跟布妹有亲戚关系开的，还是蹭90++本热度...如果是后者希望up一下金时<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zore  
+##### 3610#       发表于 2022-11-16 18:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">妖兰超人
+
+但是还是没有动力刷<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
