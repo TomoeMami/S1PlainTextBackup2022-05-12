@@ -856,3 +856,12 @@ ps端港服开了，现在应该不锁了
 用得着参考日本人吗，本帖或者去b站评论区都这样啊</blockquote>
 那说明啥？普世认同的观点，就泥潭一小撮会纠结啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  角龙大剑  
+##### 95#       发表于 2022-11-16 10:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">大家都在乐，只有一个看到op俩字就急了
+

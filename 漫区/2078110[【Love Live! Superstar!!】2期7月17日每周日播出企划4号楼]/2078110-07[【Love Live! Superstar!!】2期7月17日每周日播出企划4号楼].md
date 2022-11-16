@@ -3680,3 +3680,12 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 9296#       发表于 2022-11-16 10:22
+
+这期裂垃圾提到emo也是喜欢一个人去玩的独狼，团里的独狼有点多
+
