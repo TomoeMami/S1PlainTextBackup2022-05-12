@@ -5727,3 +5727,12 @@ Do It Your Radio!! 第 2 回里有提到 11 月 16 日Խ ...</blockquote>
 这集的布丁真的让我幻视015，啊啊啊啊啊啊啊啊啊</blockquote>
 确实像，声优、发型发色、甚至这股败犬劲，不过布丁太稳了，比莓良心强太多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  冰冻火柴  
+##### 451#       发表于 2022-11-16 11:15
+
+希明明是猴系少女，口癖却是“喵”，不过可能也像好奇心和精力都旺盛的幼猫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
