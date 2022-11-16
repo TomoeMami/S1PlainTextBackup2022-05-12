@@ -8056,3 +8056,30 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 所以村正和电池有什么用……就只是单纯收集品？我还以为是最好的剑</blockquote>
 村正练出电池之后的光波是魔法伤害 这游戏魔导力倍率好像比攻击力高得多 所以搭配魔法扫帚之后光波输出非常恐怖 两个空剑能打几十万伤害<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  京小咏  
+##### 2205#       发表于 2022-11-17 01:35
+
+问一下面包房那个爱情没拿到影响最后结局吗？
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  5353  
+##### 2206#       发表于 2022-11-17 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58469770&amp;ptid=2098044" target="_blank">京小咏 发表于 2022-11-17 01:35</a>
+
+问一下面包房那个爱情没拿到影响最后结局吗？
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅版 v2. ...</blockquote>
+影响结局的只有爱情的数量。
+
+这个东西后期的副本可以刷。
+
+你前面的都没拿到也不影响。
+
