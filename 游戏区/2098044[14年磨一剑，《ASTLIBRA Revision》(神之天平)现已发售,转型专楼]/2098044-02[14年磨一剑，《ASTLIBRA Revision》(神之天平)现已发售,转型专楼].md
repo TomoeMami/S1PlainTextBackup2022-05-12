@@ -7902,3 +7902,24 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 竞技场艾里泽斯杯的第4个挑战完成</blockquote>
 我有高级配方 但是里面没有巧克力蛋糕的配方？
 
+
+
+*****
+
+####  5353  
+##### 2192#       发表于 2022-11-16 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58463042&amp;ptid=2098044" target="_blank">弯弓射山猪 发表于 2022-11-16 16:21</a>
+
+我有高级配方 但是里面没有巧克力蛋糕的配方？</blockquote>
+我确认了下,是面包房那本.
+
+32.JPG
+(23.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-16 16:41 上传
+
+<img src="https://img.saraba1st.com/forum/202211/16/164149y2rhn3s2za2yy9wg.jpg" referrerpolicy="no-referrer">
+
