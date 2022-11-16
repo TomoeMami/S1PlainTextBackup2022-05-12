@@ -1044,3 +1044,17 @@ Screenshot_20221115-174250.png
 
 能把NGS干挺就行了，segay不做人，都开服这么久了感觉也没比开服多多少东西，氪金衣服啥的到时一大堆
 
+
+
+*****
+
+####  jxzeroga0  
+##### 112#       发表于 2022-11-16 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58461139&amp;ptid=2103199" target="_blank">Kojimaru 发表于 2022-11-16 14:07</a>
+
+搜了一下，果然是辣鸡代理</blockquote>
+不如说还有什么台服代理不垃圾的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+当年台服龙之谷几家换来换去，有的给继承数据有的不给的骚操作笑死
+

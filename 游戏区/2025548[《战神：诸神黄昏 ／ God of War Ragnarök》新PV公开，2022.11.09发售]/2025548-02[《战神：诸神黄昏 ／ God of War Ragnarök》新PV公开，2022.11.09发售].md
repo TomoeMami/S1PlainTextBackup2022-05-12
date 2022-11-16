@@ -928,3 +928,14 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  IlldianX  
+##### 1585#       发表于 2022-11-16 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58461036&amp;ptid=2025548" target="_blank">忘却的记忆 发表于 2022-11-16 13:58</a>
+华纳那边那个大平原的水什么时候放的？我这边怎么是旱的</blockquote>
+时间调到晚上，平原左下有个栅栏会消失，从那可以进丛林，里面最深处就是水坝。和落水洞无关。
+
