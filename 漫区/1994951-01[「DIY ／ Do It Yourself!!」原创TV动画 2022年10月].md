@@ -5798,3 +5798,12 @@ OP完整版最后那段咋回事？人（声）还没唱完就来整个渐进消
 OP･EDテーマも手がける #佐高陵平 さん作曲サウンドトラックと､シリーズ構成･脚本 #筆安一幸 さん書き下ろしのメインキャスト総出演オリジナルドラマ収録✨
  <blockquote><blockquote>Do It Yourself!!　‐どぅー・いっと・ゆあせるふ‐　Music Collection</blockquote><blockquote>発売日：2023-02-15</blockquote><blockquote>品番：EYCA-13996～7</blockquote><blockquote>価格：3,500円（税抜）/ 3,850円（税込）</blockquote><blockquote>＜ポイント＞</blockquote><blockquote>①佐高陵平（Hifumi,inc.）の手がけるオリジナルTVアニメ「Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐」の物語を彩るオリジナルサウンドトラックを余すところなく収録!!</blockquote><blockquote>②シリーズ構成・脚本 筆安一幸の書き下ろしストーリーによる、メインキャスト総出演のオリジナルサウンドドラマを収録!!</blockquote><blockquote>収録内容</blockquote><blockquote>オリジナルサウンドトラック 全43曲</blockquote><blockquote>オープニングテーマ「どきどきアイデアをよろしく!」TV SIZE</blockquote><blockquote>エンディングテーマ「続く話」TV SIZE</blockquote><blockquote>オリジナルサウンドドラマ</blockquote></blockquote>
 
+
+
+*****
+
+####  毛皮玛丽  
+##### 456#       发表于 2022-11-17 00:27
+
+终于看到最新一集了，布丁上分就没停过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
