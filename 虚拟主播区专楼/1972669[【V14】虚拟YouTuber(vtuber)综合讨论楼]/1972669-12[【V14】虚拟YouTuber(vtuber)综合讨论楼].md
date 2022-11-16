@@ -1003,3 +1003,20 @@ ow cr杯4个队长，就nrk一个不是前职业，加上本来还指望能打�
 
 看来apex的时代确实过去了
 
+
+
+*****
+
+####  吃咸菜的  
+##### 17724#       发表于 2022-11-16 13:02
+
+ 本帖最后由 吃咸菜的 于 2022-11-16 13:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58370304&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-11-10 15:06</a>
+
+阿床这组合，选的是个2000人场啊
+
+上次阿床自己的是多少人场来着？
+
+现场票9900草，怎么不去抢 ...</blockquote>
+solo是在1200人的kt zepp yokohama，没那么火的少一点，×2.5也差不多
+
