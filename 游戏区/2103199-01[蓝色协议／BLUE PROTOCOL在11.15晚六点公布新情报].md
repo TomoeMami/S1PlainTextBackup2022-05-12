@@ -801,3 +801,14 @@ ps端港服开了，现在应该不锁了
 
 职业还是少了点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布里兰特  
+##### 90#       发表于 2022-11-16 07:54
+
+<blockquote>zpbzpb123123 发表于 2022-11-16 02:05
+我看过的油管上日本那些介绍游戏的频道，最近一两年的视频在介绍蓝色协议或者更新近况的时候十有八九都要 ...</blockquote>
+用得着参考日本人吗，本帖或者去b站评论区都这样啊
+
