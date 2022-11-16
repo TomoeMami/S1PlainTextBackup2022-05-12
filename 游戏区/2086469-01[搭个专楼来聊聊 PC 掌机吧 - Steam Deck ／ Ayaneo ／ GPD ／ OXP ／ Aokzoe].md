@@ -63,3 +63,12 @@ aya又延期了<img src="https://static.saraba1st.com/image/smiley/face2017/049.
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57848745&amp;ptid=2086469" target="_blank"> cqc1021 发表于 2022-10-10 19:05</a> 把楼爬完，怎么感觉虽然国产PC掌机个个性能吊打steam deck，但是想图个安心还是得买steam deck </blockquote>
 哎 deck刚刚到 也别想着不折腾要学linux来自: iPhone客户端
 
+
+
+*****
+
+####  Fuero  
+##### 506#       发表于 2022-11-16 09:53
+
+最近在用steam deck打风暴之城和文明6，感慨左右两边的触控板配合SteamOS真是天才一般的设计
+
