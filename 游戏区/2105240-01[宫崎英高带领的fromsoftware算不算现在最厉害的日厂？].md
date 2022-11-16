@@ -655,3 +655,14 @@ Fs和别的日厂有什么本质区别吗</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  woshenc  
+##### 71#       发表于 2022-11-16 17:41
+
+fs社的问题我感觉是只有一个明星制作人，而且的的确确是在依靠这个明星制作人
+
+但我总觉得宫崎英高累了，一副做完环就想退休的样子，这次实在是销量太好了被角川和万代拿枪顶着头在做dlc呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
