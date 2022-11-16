@@ -7786,3 +7786,32 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 外传流程短我也干进去快30小时了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  弯弓射山猪  
+##### 2185#       发表于 2022-11-16 12:33
+
+请问面包房那些配方怎么获得
+
+做武器要巧克力蛋糕 但是找不到哪里有卖
+
+谢谢
+
+*****
+
+####  5353  
+##### 2186#       发表于 2022-11-16 12:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58460078&amp;ptid=2098044" target="_blank">弯弓射山猪 发表于 2022-11-16 12:33</a>
+
+请问面包房那些配方怎么获得
+
+做武器要巧克力蛋糕 但是找不到哪里有卖
+
+谢谢 ...</blockquote>
+这些是高级配方里的东西.
+
+竞技场艾里泽斯杯的第4个挑战完成
+

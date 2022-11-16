@@ -748,3 +748,17 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  focus  
+##### 1569#       发表于 2022-11-16 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58459759&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-16 12:07</a>
+
+招兵狂战士我记得斧头蓄力L2+R2可以打断
+
+—— 来自 S1Fun</blockquote>
+第一次可以，出场后跳必招一波，可以预判。后面再招就来不及打断了。简单处理方法就是招出来后用斯巴达之怒秒掉两个亡灵，用锁链L2+R1秒掉噩梦，基本上过程中是无敌的
+
