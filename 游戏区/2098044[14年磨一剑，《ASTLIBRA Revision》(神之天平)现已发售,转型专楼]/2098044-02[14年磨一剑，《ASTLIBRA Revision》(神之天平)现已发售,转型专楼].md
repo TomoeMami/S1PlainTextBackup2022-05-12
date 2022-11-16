@@ -8006,3 +8006,12 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 第七章被我一路用弩射过去了，后面那个在天上飞的BOSS躲在边上射BOSS就是木桩动都不会动一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  julia黑  
+##### 2200#       发表于 2022-11-16 21:24
+
+文盲的魔王好可爱啊……
+
