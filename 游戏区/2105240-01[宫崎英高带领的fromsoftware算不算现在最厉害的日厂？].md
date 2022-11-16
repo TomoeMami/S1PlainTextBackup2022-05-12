@@ -615,3 +615,43 @@ Fs和别的日厂有什么本质区别吗</blockquote>
 马上就十年没新作了。</blockquote>
 憋说了 都是泪
 
+
+
+*****
+
+####  Greyish_Wolf  
+##### 68#       发表于 2022-11-16 17:29
+
+一群人能不能统一下标准再打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+1.3a是不是罐头欧美厂为了打压一切体量更小的厂商发明的辣鸡概念
+
+2.TGA到底是不是野鸡奖,goty到底有无含金量
+3.巨魔和互联网抽象人是否合法
+
+张口tga野鸡奖，闭口唯goty论，问就是够不上3a标准，再问就是3a是什么勾8
+
+建议按标准分个几组开贴再战，把标准当公理，把分组当体系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  88ace88  
+##### 69#       发表于 2022-11-16 17:31
+
+<blockquote>Greyish_Wolf 发表于 2022-11-16 17:29
+一群人能不能统一下标准再打
+
+1.3a是不是罐头欧美厂为了打压一切体量更小的厂商发明的辣鸡概念
+
+2.TGA ...</blockquote>
+连这些都能统一了，那世界和平也早就实现了。
+
+*****
+
+####  max3226  
+##### 70#       发表于 2022-11-16 17:32
+
+老任已经是外星公司了吧
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -6655,3 +6655,15 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妖兰竟然能爽两次
 
+
+
+*****
+
+####  exiaexa  
+##### 3606#       发表于 2022-11-16 17:31
+
+草，这剧情，唐突塞了张带球冲锋CG
+
+果然这角色卖点就是球吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

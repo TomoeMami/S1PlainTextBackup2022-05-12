@@ -7975,3 +7975,14 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 不用怕去过的区域不能再去，遇到隐藏分支区域乌鸦请你往回就老老实实往回<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  stygian  
+##### 2197#       发表于 2022-11-16 17:25
+
+[https://w.atwiki.jp/astlibra/](https://w.atwiki.jp/astlibra/)
+
+日文wiki还是很好用的，有剧透的地方也折叠了
+
