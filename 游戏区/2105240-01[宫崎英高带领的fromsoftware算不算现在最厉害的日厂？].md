@@ -750,3 +750,12 @@ tga是野鸡奖，但观众体量大，我喜欢的游戏如果得奖了能够�
 
 别的不说，想成为一线厂商首先得有在全球自行发行的能力吧
 
+
+
+*****
+
+####  ssd  
+##### 79#       发表于 2022-11-16 21:16
+
+装甲核心新作出了再说 ps3那几作就三线野鸡水准<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
