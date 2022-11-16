@@ -7839,3 +7839,18 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 —— 来自 S1Fun</blockquote>
 别选太高或者太低的难度，这游戏因为独立制作的原因，数值曲线还是有一点问题的。
 
+
+
+*****
+
+####  linc555  
+##### 2189#       发表于 2022-11-16 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58460566&amp;ptid=2098044" target="_blank">伊迪潘宫森 发表于 2022-11-16 13:16</a>
+准备开玩了，老哥们有没有什么tips
+
+—— 来自 S1Fun</blockquote>
+第一章是这个游戏最大的卡点
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
