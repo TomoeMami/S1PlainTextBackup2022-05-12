@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/漫区/2028626-01[同人音声交流楼（禁止发送资源，为了本楼安全）].md'
-!!error:id=2028626
