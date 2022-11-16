@@ -8024,3 +8024,14 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 所以村正和电池有什么用……就只是单纯收集品？我还以为是最好的剑
 
+
+
+*****
+
+####  syndrome2032  
+##### 2202#       发表于 2022-11-17 00:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58468446&amp;ptid=2098044" target="_blank">Farlight 发表于 2022-11-16 23:05</a>
+所以村正和电池有什么用……就只是单纯收集品？我还以为是最好的剑</blockquote>
+村正练出电池才有波啊
+

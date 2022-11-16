@@ -5753,3 +5753,23 @@ OP完整版最后那段咋回事？人（声）还没唱完就来整个渐进消
 
 也就ED还不错了，不过胜在完整版第二段更好听<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 453#       发表于 2022-11-17 00:04
+
+<blockquote>わぁ　この板すべすべ～　気持ちいい</blockquote><blockquote>つまらなくないけど　つまらないものって言うんだよね～</blockquote><blockquote>180℃ のオーブンであと 5 分焼いたら　もっとおいしくなるんじゃないでしょうか…</blockquote>
+这集继续迫害小猪
+
+终于出现不是一闪而过的路人的男性了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这集大量 DIY 画面和解说
+<img src="https://p.sda1.dev/8/c382ffd5e6ee34ad3945a3b51982fc05/YukuBuraaaaaaaa-1592908923941490688-img1.jpg" referrerpolicy="no-referrer">
+
+ゆりえ口かわいい
+<img src="https://p.sda1.dev/8/0986a2cf59c26553d0d07fee1757bc24/sumisu_jima-1592909986094800896-img2.jpg" referrerpolicy="no-referrer">
+
+你们怎么天天上英语课<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
