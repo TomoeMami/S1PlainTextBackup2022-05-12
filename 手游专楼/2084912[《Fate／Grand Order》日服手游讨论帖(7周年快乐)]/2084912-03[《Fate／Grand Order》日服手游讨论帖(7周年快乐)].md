@@ -6739,3 +6739,12 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新试不出6加成 难受中
 
+
+
+*****
+
+####  yangun22  
+##### 3614#       发表于 2022-11-16 19:02
+
+妖兰+双奥+任一单体就行，梅芙暗狐妖兰再借给奥博隆也行
+

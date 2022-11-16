@@ -3755,3 +3755,17 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 草，才发现时间居然是工作日中午，我上哪找安静地方<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 9303#       发表于 2022-11-16 19:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58464365&amp;ptid=2078110" target="_blank">lj205 发表于 2022-11-16 17:43</a>
+
+唠嗑居然中了！！！本来这次感觉没啥希望！今年的唠嗑抽选居然全通！
+
+草，才发现时间居然是工作日中午，我 ...</blockquote>
+强啊，这次倍率貌似没那么高
+
