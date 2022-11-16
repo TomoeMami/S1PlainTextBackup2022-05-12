@@ -462,3 +462,12 @@ tskk都来了，这游戏有点隐患啊
 
 就很尬，neta江户川柯南的侦探设定，和miko平时的人设有关系吗。
 
+
+
+*****
+
+####  rs5621  
+##### 3048#       发表于 2022-11-16 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">敢出这种企划，那我可得去提问了
+
