@@ -1098,3 +1098,68 @@ riotmusic怎么有种不妙的味道……
 
 是本作女主，不是阿望（
 
+
+
+*****
+
+####  sgssk  
+##### 17731#       发表于 2022-11-17 13:15
+
+RIOT MUSIC
+
+芦泽サキ 契约解除のお知らせ
+
+午后1:01 · 2022年11月17日
+
+·Twitter Web App
+
+我，我人傻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sgssk  
+##### 17732#       发表于 2022-11-17 13:19
+
+RIOT MUSIC
+
+@RIOTMUSIC_info
+
+芦泽サキ 契约解除のお知らせ
+
+[午后1:01 · 2022年11月17日](https://twitter.com/RIOTMUSIC_info/status/1593107085260361729)
+
+<img src="https://img.saraba1st.com/forum/202211/17/131818y97iitzd93vb82y0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>01.jpeg</strong> (466.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-17 13:18 上传
+
+<img src="https://img.saraba1st.com/forum/202211/17/131821we0srjgooogr5r22.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>02.jpeg</strong> (510.74 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-17 13:18 上传
+
+<img src="https://img.saraba1st.com/forum/202211/17/131823w8t6cn4a4ctj674n.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>03.jpeg</strong> (336.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-17 13:18 上传
+
+我，我人傻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+QQ图片20221117131028.jpg
+(60.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-17 13:18 上传
+
+<img src="https://img.saraba1st.com/forum/202211/17/131825ea9v7491pzplv009.jpg" referrerpolicy="no-referrer">
+
