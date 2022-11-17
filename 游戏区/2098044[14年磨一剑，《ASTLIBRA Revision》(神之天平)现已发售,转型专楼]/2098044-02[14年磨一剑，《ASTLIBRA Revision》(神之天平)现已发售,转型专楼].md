@@ -8151,3 +8151,15 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 看作者样子应该只会弄手游了，荒谬通关有心情再说了
 
+
+
+*****
+
+####  onlv星骸  
+##### 2213#       发表于 2022-11-17 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58469128&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-17 00:13:15</a>
+这游戏居然有硬闯必死地区的文本，我靠复活币闯到了魔王大陆地底的关底。龙说着一堆神叨叨的话，然后乌鸦吐 ...</blockquote>带着白打死一些隐藏boss也会有文本
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
