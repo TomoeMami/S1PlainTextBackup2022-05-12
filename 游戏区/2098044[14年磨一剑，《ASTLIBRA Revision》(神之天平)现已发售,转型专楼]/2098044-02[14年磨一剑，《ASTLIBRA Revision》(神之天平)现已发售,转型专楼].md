@@ -8175,3 +8175,23 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 这游戏居然有硬闯必死地区的文本，我靠复活币闯到了魔王大陆地底的关底。龙说着一堆神叨叨的话，然后乌鸦吐 ...</blockquote>
 这几个ex map，带的队友不同 对话有一点点小小区别<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Farlight  
+##### 2215#       发表于 2022-11-17 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58469172&amp;ptid=2098044" target="_blank">skgaminger1988 发表于 2022-11-17 00:18</a>
+村正练出电池之后的光波是魔法伤害 这游戏魔导力倍率好像比攻击力高得多 所以搭配魔法扫帚之后光波输出非 ...</blockquote>
+卧槽，原来是超级魔法剑
+
+*****
+
+####  Farlight  
+##### 2216#       发表于 2022-11-17 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58469172&amp;ptid=2098044" target="_blank">skgaminger1988 发表于 2022-11-17 00:18</a>
+村正练出电池之后的光波是魔法伤害 这游戏魔导力倍率好像比攻击力高得多 所以搭配魔法扫帚之后光波输出非 ...</blockquote>
+卧槽，原来是超级魔法剑
+
