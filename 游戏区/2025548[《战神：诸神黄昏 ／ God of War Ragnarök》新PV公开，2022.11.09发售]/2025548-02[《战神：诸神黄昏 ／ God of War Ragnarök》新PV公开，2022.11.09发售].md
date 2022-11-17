@@ -1023,3 +1023,22 @@ boss战能留下深刻印象的很少，最终战索尔和奥丁有点拉跨，�
 https:/ ...</blockquote>
 闪避出国度移动也是胸甲特效吧，你怎么搞出两个胸甲特效的
 
+
+
+*****
+
+####  Booorunestud  
+##### 1594#       发表于 2022-11-17 10:17
+
+刚开始玩，地图上东西太多有种清问号的感觉，有必要开个攻略帖顺着摸宝箱吗<img src="https://static.saraba1st.com/image/smiley/face2017/158.png" referrerpolicy="no-referrer">
+
+*****
+
+####  focus  
+##### 1595#       发表于 2022-11-17 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58471579&amp;ptid=2025548" target="_blank">系色可符香 发表于 2022-11-17 10:08</a>
+
+闪避出国度移动也是胸甲特效吧，你怎么搞出两个胸甲特效的</blockquote>
+国度移动是腕甲和腰甲的，光辉套两件
+
