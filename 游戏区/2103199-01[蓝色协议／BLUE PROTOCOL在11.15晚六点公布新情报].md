@@ -1141,3 +1141,15 @@ T这个盾常态血量扛不住boss几巴掌吧
 
 感觉和前次测试没啥区别。爆死相
 
+
+
+*****
+
+####  qwewdfff  
+##### 121#       发表于 2022-11-17 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58459097&amp;ptid=2103199" target="_blank">黄字 发表于 2022-11-16 11:18</a>
+
+这游戏当年看下来以我的观点除了二次元一根毛都不如棒子mmo。</blockquote>
+这游戏目前为止连内测都没开，您看出了个啥呢？
+
