@@ -8140,3 +8140,14 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 麻了，打到第四章结尾boss档坏了，有老哥有附近进度的存档吗</blockquote>
 私信发了
 
+
+
+*****
+
+####  tsubaki  
+##### 2212#       发表于 2022-11-17 08:22
+
+成就刷完了，结果最麻烦的还是3000次凭依<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+看作者样子应该只会弄手游了，荒谬通关有心情再说了
+
