@@ -1042,3 +1042,15 @@ https:/ ...</blockquote>
 闪避出国度移动也是胸甲特效吧，你怎么搞出两个胸甲特效的</blockquote>
 国度移动是腕甲和腰甲的，光辉套两件
 
+
+
+*****
+
+####  IlldianX  
+##### 1596#       发表于 2022-11-17 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58471237&amp;ptid=2025548" target="_blank">系色可符香 发表于 2022-11-17 09:29</a>
+
+瓦哈拉被削弱以后的女武神王不难打啊，飞天和地面的蓄力魔法可以被声波箭和符文箭引爆，送大硬直加负面状态 ...</blockquote>
+她的四连飞弹还有一些招对我来说速度有点太快了常常反应不过来，男武神各种招前摇长很多我就打的很轻松。数值也高了点，降了个难度就随便一把过了。
+
