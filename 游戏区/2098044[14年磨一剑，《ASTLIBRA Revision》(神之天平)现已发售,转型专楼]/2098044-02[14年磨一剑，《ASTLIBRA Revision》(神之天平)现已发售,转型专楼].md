@@ -9153,3 +9153,17 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 小徽章扭蛋出来的那个100个魔导水晶，怎么不能用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2301#       发表于 2022-11-19 07:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58498828&amp;ptid=2098044" target="_blank">战术核辣条 发表于 2022-11-19 02:37</a>
+完全能玩啊
+只要不是推的太快难度又调的太高，最后会感觉越来越不够打，每章至少把装备技能刷齐然后 ...</blockquote>
+中等难度啊啊啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
