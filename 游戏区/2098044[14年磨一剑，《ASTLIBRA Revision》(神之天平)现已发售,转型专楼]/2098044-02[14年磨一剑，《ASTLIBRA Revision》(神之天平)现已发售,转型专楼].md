@@ -8724,3 +8724,17 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 卡女神几个小时，受不了CE了，以为通了没想到还有新章，流程也太长了，想问后面还有多长的流程。 ...</blockquote>
 但是后面关卡都是重复，但是不需要解密。部分杂鱼和boss不一样了，新加了武器系统准备系统。剧情彻底展开。
 
+
+
+*****
+
+####  绕指流光  
+##### 2264#       发表于 2022-11-18 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58487493&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-18 13:25</a>
+
+我到第八章了漏了个天平，还有可能捡吗
+
+—— 来自 S1Fun</blockquote>
+就算是新章通关了都能捡，不用怕
+
