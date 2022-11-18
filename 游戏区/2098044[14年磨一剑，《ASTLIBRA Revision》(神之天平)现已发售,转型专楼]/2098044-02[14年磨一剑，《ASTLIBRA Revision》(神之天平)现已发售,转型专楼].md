@@ -8615,3 +8615,35 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  farAway  
+##### 2254#       发表于 2022-11-18 10:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58484070&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-11-18 09:55</a>
+
+是不是这个？至于是箭头触发还是清场触发就不记得了</blockquote>
+对对，就是这个地方，找了半天。这个清场是肯定没有的，我来来回回清场好多次了
+
+*****
+
+####  jy000129  
+##### 2255#       发表于 2022-11-18 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58484296&amp;ptid=2098044" target="_blank">farAway 发表于 2022-11-18 10:14</a>
+
+对对，就是这个地方，找了半天。这个清场是肯定没有的，我来来回回清场好多次了 ...</blockquote>
+找绿箭头吧，很隐蔽
+
+*****
+
+####  farAway  
+##### 2256#       发表于 2022-11-18 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58484327&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-11-18 10:16</a>
+
+找绿箭头吧，很隐蔽</blockquote>
+好，回去再看看
+

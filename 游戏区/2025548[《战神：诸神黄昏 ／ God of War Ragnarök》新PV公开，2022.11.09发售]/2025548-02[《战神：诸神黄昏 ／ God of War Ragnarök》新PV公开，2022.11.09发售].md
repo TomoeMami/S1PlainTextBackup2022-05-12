@@ -1160,3 +1160,17 @@ https:/ ...</blockquote>
 华纳海姆结束以后主线有过1/4吗</blockquote>
 打完尼德霍格的话有了
 
+
+
+*****
+
+####  chrisluvdjmax  
+##### 1610#       发表于 2022-11-18 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58476001&amp;ptid=2025548" target="_blank">忘却的记忆 发表于 2022-11-17 17:17</a>
+
+神经病出了一个bug，巨坑那边救那个流浪战士那边条龙不下来…直接死档打不了我x ...</blockquote>
+[https://www.bilibili.com/video/B ... 9#reply137980705808](https://www.bilibili.com/video/BV1Cv4y1m7PG/?vd_source=cf66266b4d8bd654745cb81d65a8e1c9#reply137980705808)
+
+有人研究出办法了 用枪攻击龙产生的位移把龙卡到地图外摔死
+
