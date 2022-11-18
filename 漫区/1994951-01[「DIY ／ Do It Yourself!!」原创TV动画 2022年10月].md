@@ -5837,3 +5837,12 @@ DIY 社的『秘密基地』建造计划在稳步进行中。
 
 这集的DIY教学成分很多了，或者之前对于主题来说DIY成分确实太少了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吃货红毛  
+##### 459#       发表于 2022-11-18 19:20
+
+这集真不错 job子这角色也真不错 虽然是常见的天才小鬼性格打底，但因为本人其实相当务实又懂事显得很不错啊
+
