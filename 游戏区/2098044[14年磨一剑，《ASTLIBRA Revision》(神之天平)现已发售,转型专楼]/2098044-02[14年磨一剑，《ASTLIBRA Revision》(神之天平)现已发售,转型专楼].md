@@ -8695,3 +8695,12 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tpsg  
+##### 2261#       发表于 2022-11-18 15:17
+
+卡女神几个小时<img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">，受不了CE了，以为通了没想到还有新章，流程也太长了，想问后面还有多长的流程。
+
