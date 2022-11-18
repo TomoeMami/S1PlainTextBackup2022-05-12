@@ -8921,3 +8921,34 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 追章其实也就第一章陡然数值提升了有点费劲，打出几个装备盘之后就很轻松了，星盘再一点出来继续愉快割草
 
+
+
+*****
+
+####  wolfwood  
+##### 2278#       发表于 2022-11-18 23:43
+
+通关了真结局，剧本真是牛逼的起飞，21世纪最佳J-RPG了。想起那个桑拿房纹身男的梗图，前面几个进场的大概是DQ13 FF7RE XB2，神之天平最后一个进场的真大佬。
+
+回想了一下还有3个不明白的地方，面包店的妹子是谁？城里被入侵的时候是谁在战斗？法师塔门口的奇装异服男女是谁？
+
+*****
+
+####  AeonsTorn  
+##### 2279#       发表于 2022-11-18 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58496956&amp;ptid=2098044" target="_blank">wolfwood 发表于 2022-11-18 23:43</a>
+
+通关了真结局，剧本真是牛逼的起飞，21世纪最佳J-RPG了。想起那个桑拿房纹身男的梗图，前面几个进场的大概 ...</blockquote>
+外传主角，面包妹，手游主角
+
+*****
+
+####  wolfwood  
+##### 2280#       发表于 2022-11-18 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58496986&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-18 23:44</a>
+
+外传主角，面包妹，手游主角</blockquote>
+居然还有手游？这哪里可以玩到呢
+
