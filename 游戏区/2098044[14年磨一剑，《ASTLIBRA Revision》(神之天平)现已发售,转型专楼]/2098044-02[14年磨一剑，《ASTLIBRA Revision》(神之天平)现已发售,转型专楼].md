@@ -8684,3 +8684,14 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 木桶那里我第一次进去就看到左面有个怪在飞了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">，知道加血也没理，开狂暴砍
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2260#       发表于 2022-11-18 13:25
+
+我到第八章了漏了个天平，还有可能捡吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
