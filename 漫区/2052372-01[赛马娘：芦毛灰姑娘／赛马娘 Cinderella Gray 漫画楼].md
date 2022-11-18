@@ -36,3 +36,12 @@
 
 小栗感觉走ova长期连载更适合，动画应该还是先把已经出了的角色的补全罢
 
+
+
+*****
+
+####  xvi黑翼公  
+##### 132#       发表于 2022-11-17 21:32
+
+md看到鸡腿就想到圣夜，想起圣夜就是帽门ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

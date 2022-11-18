@@ -2404,3 +2404,59 @@ FFO的监督就是无双组的隈部宣道
 
 EA 与 光荣特库摩 合作的狩猎游戏《WILD HEARTS》将于 11月17日23点 公开新情报，届时将深入介绍玩家在游戏中所能用到的各种精妙古代科技，游戏将于 2023年2月17日 正式推出。 ​​​
 
+
+
+*****
+
+####  医生狼多  
+##### 280#       发表于 2022-11-17 22:59
+
+灵活变幻，勇敢无畏！活用各种机巧，设下陷阱狩猎强大的野兽吧 🏹
+《WILD HEARTS》将于2023年2月17日发售， 登陆PC、PlayStation 与 Xbox 平台。 #WildHearts#
+官方网站http://t.cn/A6ovqVWN http://t.cn/A6KPfRFV ​​​
+
+*****
+
+####  Piano-Forest  
+##### 281#         楼主| 发表于 2022-11-17 23:01
+
+【《Wild Hearts》全新预告片 狩猎之术“机巧”】 
+[https://m.bilibili.com/video/BV1We4y1s7kQ](https://m.bilibili.com/video/BV1We4y1s7kQ)
+
+远古流传至今的狩猎之术“机巧”，不仅可运用在战斗中，也可以帮助玩家快速移动，收集资源，磨炼技能。
+
+寻找盟友，活用狩猎之术“机巧”吧！
+
+*****
+
+####  Piano-Forest  
+##### 282#         楼主| 发表于 2022-11-17 23:46
+
+<img src="https://p.sda1.dev/8/54f489daf98ea42b29e4849f91ca9115/WILD-HEARTS_2022_11-17-22_001.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/26dfc5b5c76ee01d592b1b39cd6bbf60/WILD-HEARTS_2022_11-17-22_002.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/98b457014c6cb9556f5ea958dff6c412/WILD-HEARTS_2022_11-17-22_003.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/b6d282623015cf078d8038e630ff441d/WILD-HEARTS_2022_11-17-22_004 _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/152416d011eca338ae9b2491736c2a69/WILD-HEARTS_2022_11-17-22_005 _1_.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/7412aeb2b5a94cd630c9c3071573c265/WILD-HEARTS_2022_11-17-22_006 _1_.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  v13  
+##### 283#       发表于 2022-11-18 02:24
+
+人土怪也土 
+
+*****
+
+####  苏西踩到我了  
+##### 284#       发表于 2022-11-18 02:44
+
+我愿称之为木工朋克，要是国内能搞个这种风格的墨家题材的游戏就好了，墨家机关大战山海经怪兽
+
+*****
+
+####  Senbascira  
+##### 285#       发表于 2022-11-18 05:35
+
+这个木工活好土
+

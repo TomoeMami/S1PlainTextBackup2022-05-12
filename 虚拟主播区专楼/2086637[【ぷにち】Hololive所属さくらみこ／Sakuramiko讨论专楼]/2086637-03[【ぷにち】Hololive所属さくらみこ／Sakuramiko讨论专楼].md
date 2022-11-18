@@ -595,3 +595,238 @@ tskk都来了，这游戏有点隐患啊
 这就是之前说的，好多大人物围观的收录么，难怪慌成这样</blockquote>
 你窜台了，说大人物围观的是隔壁peko，miko这几个月的收录从来没这么形容过
 
+
+
+*****
+
+####  holoan  
+##### 3062#         楼主| 发表于 2022-11-17 20:21
+
+啊……
+
+*****
+
+####  rs5621  
+##### 3063#       发表于 2022-11-17 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58477281&amp;ptid=2086637" target="_blank">holoan 发表于 2022-11-17 19:19</a>
+
+你窜台了，说大人物围观的是隔壁peko，miko这几个月的收录从来没这么形容过 ...</blockquote>
+草，记忆出现偏差了
+
+*****
+
+####  holoan  
+##### 3064#         楼主| 发表于 2022-11-17 21:24
+
+完了东京都错了
+
+*****
+
+####  qesto  
+##### 3065#       发表于 2022-11-17 21:32
+
+这下非国民了
+
+*****
+
+####  rs5621  
+##### 3066#       发表于 2022-11-17 21:33
+
+音乐节的日期都能搞错，26还是27来个定数吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3067#         楼主| 发表于 2022-11-17 21:34
+
+海报不是她做的，这个锅是举办方的
+
+*****
+
+####  holoan  
+##### 3068#         楼主| 发表于 2022-11-17 21:34
+
+这还上电视呢，回老家重上小学先吧，太丢人了
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rs5621| + 1|欢乐多|
+| 超紳士| + 1|草|
+
+查看全部评分
+
+*****
+
+####  ZQXY2002  
+##### 3069#       发表于 2022-11-17 21:41
+
+地图都认不出来，47个县名也背不出来吧。<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rs5621  
+##### 3070#       发表于 2022-11-17 21:43
+
+离大谱
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3071#         楼主| 发表于 2022-11-17 21:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难怪之前一直不想做这个企划
+
+看来还是别做的好，要被人骂死
+
+*****
+
+####  神澈  
+##### 3072#       发表于 2022-11-17 21:46
+
+每次都佩服她什么都不准备就敢开台的勇气。
+
+*****
+
+####  rs5621  
+##### 3073#       发表于 2022-11-17 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欢乐，可以当fa素材了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3074#         楼主| 发表于 2022-11-17 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58479457&amp;ptid=2086637" target="_blank">神澈 发表于 2022-11-17 21:46</a>
+
+每次都佩服她什么都不准备就敢开台的勇气。</blockquote>
+你这么一说我倒觉得是故意的……
+
+*****
+
+####  ZQXY2002  
+##### 3075#       发表于 2022-11-17 21:49
+
+可不吗，就是做初见效果，用排除法拖时间呢
+
+*****
+
+####  神澈  
+##### 3076#       发表于 2022-11-17 21:52
+
+才30分钟就卡死了，哪来的效果。
+
+*****
+
+####  qesto  
+##### 3077#       发表于 2022-11-17 21:54
+
+东京都能错，八成是演技了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 3078#         楼主| 发表于 2022-11-17 21:54
+
+天天自称东北出身，仙台被你吃了吗
+
+*****
+
+####  神澈  
+##### 3079#       发表于 2022-11-17 21:56
+
+卡死在那蹦不出，来来回回那几句话，稍微准备下也不至于这样。
+
+*****
+
+####  ZQXY2002  
+##### 3080#       发表于 2022-11-17 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">剩下纯蒙，反正都是不及格，早点交卷别折磨了。
+
+*****
+
+####  rs5621  
+##### 3081#       发表于 2022-11-17 22:06
+
+<img src="https://p.sda1.dev/8/3eef17bc5494ac9abbba92acab9b9a58/CMP_20221117220524199.png" referrerpolicy="no-referrer">这个问号就很应景了。
+
+怎么还哼起歌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 3082#       发表于 2022-11-17 22:17
+
+发现东京有问题了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 3083#       发表于 2022-11-17 22:21
+
+<img src="https://p.sda1.dev/8/df09da9b05cc47f63a0fbddeb9bc8c98/CMP_20221117222124065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3084#         楼主| 发表于 2022-11-17 22:25
+
+DMM的广告好注目
+
+*****
+
+####  ZQXY2002  
+##### 3085#       发表于 2022-11-17 22:31
+
+哈哈哈，县名都背不全，被各地县民围攻了。
+
+*****
+
+####  rs5621  
+##### 3086#       发表于 2022-11-17 22:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很有节目效果
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3087#         楼主| 发表于 2022-11-17 22:41
+
+明天4人马趴联动
+
+*****
+
+####  神澈  
+##### 3088#       发表于 2022-11-17 22:43
+
+又联动，有毒吧？
+
+*****
+
+####  holoan  
+##### 3089#         楼主| 发表于 2022-11-17 22:48
+
+但是在koyo的频道，为什么唐突联动是不是又有什么企划
+

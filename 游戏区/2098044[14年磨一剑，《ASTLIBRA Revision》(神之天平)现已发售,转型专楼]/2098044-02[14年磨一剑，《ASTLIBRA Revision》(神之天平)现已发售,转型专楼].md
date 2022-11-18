@@ -8569,3 +8569,17 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 我照了提示自己继续摸索，那个找火柴的区域又被游戏气炸了，最后才发现一个怪在那WIFI加血，干掉后就不卡了
 
+
+
+*****
+
+####  farAway  
+##### 2251#       发表于 2022-11-18 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58478009&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-11-17 20:14</a>
+
+一个地方有个很隐蔽的箭头，另一个是凸起的地方有隐藏通道，地图有大块黑的无法进去的地方注意下
+
+——  ...</blockquote>
+隐藏通道没找到，是炸药开的那个小水沟么？进了洞窟我就没看到有什么箭头，显示有宝箱的那个图很长，来来回回走了好多遍了，水上水下都找了，强迫症急死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
