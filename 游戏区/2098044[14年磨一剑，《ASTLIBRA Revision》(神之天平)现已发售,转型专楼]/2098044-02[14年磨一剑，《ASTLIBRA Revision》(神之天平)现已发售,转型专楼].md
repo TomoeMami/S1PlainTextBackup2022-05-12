@@ -8750,3 +8750,23 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 找到了，天空上有个很隐蔽的小靶子。。。拿弩射了就好了</blockquote>
 好吧，记错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  PNK  
+##### 2266#       发表于 2022-11-18 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58484126&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-18 09:58</a>
+
+是的，我是看老板娘说话才整完的，关键是木桶这个太变态了完全没必要整个加血怪
+
+—— 来 ...</blockquote>
+那个房间我进去加血怪就在屏幕左边外面飘
+
+砍了老久的木桶才飘回屏幕里面
+
+我以为墙上那个缺口和飞刀的提示就是说可以用飞刀打那个飞在外面的怪
+
+然后紫球又卡了好久<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
