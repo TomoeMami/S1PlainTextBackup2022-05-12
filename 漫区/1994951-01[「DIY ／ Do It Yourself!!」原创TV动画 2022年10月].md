@@ -5828,3 +5828,12 @@ DIY 社的『秘密基地』建造计划在稳步进行中。
 
 天才少女 Job 子接下了画设计图的任务，却遇到困难……
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 458#       发表于 2022-11-18 18:26
+
+这集的DIY教学成分很多了，或者之前对于主题来说DIY成分确实太少了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
