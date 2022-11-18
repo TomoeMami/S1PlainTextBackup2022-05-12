@@ -8659,3 +8659,19 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 找绿箭头吧，很隐蔽</blockquote>
 找到了，天空上有个很隐蔽的小靶子。。。拿弩射了就好了
 
+
+
+*****
+
+####  永远的访客  
+##### 2258#       发表于 2022-11-18 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58484126&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-18 09:58</a>
+
+是的，我是看老板娘说话才整完的，关键是木桶这个太变态了完全没必要整个加血怪
+
+—— 来 ...</blockquote>
+那个加血怪出来就飞到屏幕外，在画面外加血别说打不到，连看出来在加血，弄得我还以为这桶是啥剧情限制不让砸，找了各种东西实验，是实验到一半他飞回来了才恍然大悟
+
+砸完桶回去路上还死了2次，这桶我一共砸了3次，什么阴间谜题<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
