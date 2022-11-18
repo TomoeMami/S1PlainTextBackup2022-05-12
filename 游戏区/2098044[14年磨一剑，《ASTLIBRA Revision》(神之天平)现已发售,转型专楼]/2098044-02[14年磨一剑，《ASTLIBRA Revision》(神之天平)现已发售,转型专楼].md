@@ -9070,3 +9070,12 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 — from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  vidomina  
+##### 2292#       发表于 2022-11-19 01:34
+
+突然发现，这游戏算挺火的了吧，但是steam社区没有一张艺术创作？<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
