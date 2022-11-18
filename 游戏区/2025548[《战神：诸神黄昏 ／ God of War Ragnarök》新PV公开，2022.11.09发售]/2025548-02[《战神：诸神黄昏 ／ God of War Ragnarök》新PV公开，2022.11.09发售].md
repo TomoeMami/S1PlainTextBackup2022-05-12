@@ -1271,3 +1271,15 @@ https:/ ...</blockquote>
 难受，上代不是首发，不知道二周目后续更的，现在还得重新开荒一遍<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 改成能切到战神难度但切不回来就好了。
 
+
+
+*****
+
+####  Onelooker  
+##### 1619#       发表于 2022-11-18 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58482441&amp;ptid=2025548" target="_blank">Booorunestud 发表于 2022-11-18 02:48</a>
+
+跟这尼妹要呆多久 好烦啊</blockquote>
+差不多是尼妹第三次跟你说“快结束了”
+
