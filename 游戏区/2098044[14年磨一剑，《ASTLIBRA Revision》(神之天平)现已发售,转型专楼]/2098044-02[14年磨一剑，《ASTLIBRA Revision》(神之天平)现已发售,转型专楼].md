@@ -8996,3 +8996,25 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ce锁精力玩了个爽，这游戏的厉害之处就是开CE还能爽通关而没有立刻索然无味
 
+
+
+*****
+
+####  tsubaki  
+##### 2285#       发表于 2022-11-19 01:03
+
+ 本帖最后由 tsubaki 于 2022-11-19 01:04 编辑 
+
+能量吸收+剑舞是个好东西，建议自己看看
+
+我都嫌这玩意太IMBA三天两头换狂暴的（）
+
+*****
+
+####  罪人金  
+##### 2286#       发表于 2022-11-19 01:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58497787&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 00:34</a>
+不是，这游戏后期数值是不是有问题boss两下带走我。还动不动地图炮。好不容易解放了女神结果告诉我 ...</blockquote>
+开ce的人不好意思说罢了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
