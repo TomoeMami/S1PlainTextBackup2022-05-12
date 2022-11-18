@@ -1153,3 +1153,46 @@ T这个盾常态血量扛不住boss几巴掌吧
 这游戏当年看下来以我的观点除了二次元一根毛都不如棒子mmo。</blockquote>
 这游戏目前为止连内测都没开，您看出了个啥呢？
 
+
+
+*****
+
+####  阿璐珐鲁多  
+##### 122#       发表于 2022-11-17 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58463551&amp;ptid=2103199" target="_blank">鸭面包 发表于 2022-11-16 16:50</a>
+职业介绍没有奶妈，是有转职系统吗</blockquote>
+弓箭手是奶
+
+—— 来自 Xiaomi Mi MIX 2, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  阿璐珐鲁多  
+##### 123#       发表于 2022-11-17 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58463551&amp;ptid=2103199" target="_blank">鸭面包 发表于 2022-11-16 16:50</a>
+职业介绍没有奶妈，是有转职系统吗</blockquote>
+弓箭手是奶
+
+—— 来自 Xiaomi Mi MIX 2, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  机动小蜜蜂  
+##### 124#       发表于 2022-11-17 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58474471&amp;ptid=2103199" target="_blank">qwewdfff 发表于 2022-11-17 14:19</a>
+
+这游戏目前为止连内测都没开，您看出了个啥呢？</blockquote>
+测了两次还是三次了，1月就终测，5万名额，时间两天，测完再过两月就公测上线了。
+
+*****
+
+####  MuramasaSP  
+##### 125#       发表于 2022-11-17 18:01
+
+看起来挺好的。
+
+现在的3D网游应该没有比这个画风更像日本动画的吧，感觉这是一个吸引人的点。
+

@@ -10748,3 +10748,28 @@ saku配音18x作品会不会有一种宋丹丹老师下海的感觉？
 
 脉冲星虽然广撒网但也不像有的箱那样招进来就不管了，从小火驴的例子来看联动是少不了的，区别就是资源少一些，但不需要人到上海。
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2632#       发表于 2022-11-17 20:33
+
+外日，小纸直播直接爆歌姬台词<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩这么大的吗
+
+*****
+
+####  黄金鸡屁屁  
+##### 2633#       发表于 2022-11-17 21:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">量子猫是还在等厂子的消息啊，不是没谈妥
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  MaxFOrder  
+##### 2634#       发表于 2022-11-17 23:03
+
+量子猫唱nb的歌好卖力啊……有点心疼，为什么厂长还在卡人
+

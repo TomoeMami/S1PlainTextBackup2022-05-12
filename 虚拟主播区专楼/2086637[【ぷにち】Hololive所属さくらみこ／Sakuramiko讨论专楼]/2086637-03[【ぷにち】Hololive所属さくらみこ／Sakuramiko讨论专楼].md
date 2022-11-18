@@ -517,3 +517,81 @@ tskk都来了，这游戏有点隐患啊
 ####  rs5621  
 ##### 3052#       发表于 2022-11-17 15:20
 
+
+
+*****
+
+####  holoan  
+##### 3053#         楼主| 发表于 2022-11-17 16:19
+
+[https://www.tv-tokyo.co.jp/ongakusai_2022winter/](https://www.tv-tokyo.co.jp/ongakusai_2022winter/)
+
+テレ东有点东西
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3054#       发表于 2022-11-17 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这是什么鬼，唱歌为什么会请她
+
+*****
+
+####  rs5621  
+##### 3055#       发表于 2022-11-17 17:46
+
+这是上音乐节了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 3056#         楼主| 发表于 2022-11-17 17:56
+
+因为27号VARK的live主办也是テレ东，就直接把她拉过去电视节目了
+
+吗？
+
+*****
+
+####  mqnwbeebwnqm  
+##### 3057#       发表于 2022-11-17 18:21
+
+ 本帖最后由 mqnwbeebwnqm 于 2022-11-17 18:24 编辑 
+
+自己也慌得一逼打给经纪人草
+
+*****
+
+####  holoan  
+##### 3058#         楼主| 发表于 2022-11-17 18:27
+
+按道理这个时间点应该已经收录结束了，也就是说之前收录的时候不知道是上电视
+
+*****
+
+####  rs5621  
+##### 3059#       发表于 2022-11-17 18:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是之前说的，好多大人物围观的收录么，难怪慌成这样
+
+*****
+
+####  a2276382  
+##### 3060#       发表于 2022-11-17 18:52
+
+艹 这么多大物中 突然出现miko 太生草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX3310, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+
+
+*****
+
+####  holoan  
+##### 3061#         楼主| 发表于 2022-11-17 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58476876&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-11-17 18:39</a>
+
+这就是之前说的，好多大人物围观的收录么，难怪慌成这样</blockquote>
+你窜台了，说大人物围观的是隔壁peko，miko这几个月的收录从来没这么形容过
+

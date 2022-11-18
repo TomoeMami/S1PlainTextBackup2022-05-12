@@ -8195,3 +8195,377 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 村正练出电池之后的光波是魔法伤害 这游戏魔导力倍率好像比攻击力高得多 所以搭配魔法扫帚之后光波输出非 ...</blockquote>
 卧槽，原来是超级魔法剑
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2217#       发表于 2022-11-17 17:02
+
+做龙皮靴需要一个食物素材，但是我没有配方做食物怎么回事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ParadiseMartyr  
+##### 2218#       发表于 2022-11-17 17:12
+
+做龙皮靴需要一个食物素材，但是我没有配方做食物怎么回事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ParadiseMartyr  
+##### 2219#       发表于 2022-11-17 17:13
+
+做龙皮靴需要一个食物素材，但是我没有配方做食物怎么回事
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  llysander  
+##### 2220#       发表于 2022-11-17 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58475856&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-17 17:02</a>
+
+做龙皮靴需要一个食物素材，但是我没有配方做食物怎么回事
+
+—— 来自 S1Fun ...</blockquote>
+巧克力派， 巧克力+派的底饼 ， 初级里那个派底饼没做过不会显示
+
+配方是 上级 ，在斗技场4章
+
+
+
+*****
+
+####  突发性哮喘病患  
+##### 2221#       发表于 2022-11-17 17:46
+
+这个女神数值怎么那么爆炸，我吐了，两下必死还破盾，二阶段还没法重来
+
+*****
+
+####  突发性哮喘病患  
+##### 2222#       发表于 2022-11-17 17:50
+
+这个女神数值怎么那么爆炸，我吐了，两下必死还破盾，二阶段还没法重来
+
+*****
+
+####  黒濑黒江  
+##### 2223#       发表于 2022-11-17 17:57
+
+原来传奇道具设计图并不是只有金银宝箱才出吗，铜宝箱出了个传奇设计图惊呆我了，之前刷的时候一直懒得开铜宝箱<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+*****
+
+####  京小咏  
+##### 2224#       发表于 2022-11-17 19:00
+
+999运气盖亚迷宫完全不出爱情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是不是哪里不对
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  京小咏  
+##### 2225#       发表于 2022-11-17 19:00
+
+ 本帖最后由 京小咏 于 2022-11-17 19:10 编辑 
+
+风怒编辑
+
+*****
+
+####  skgaminger1988  
+##### 2226#       发表于 2022-11-17 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58477087&amp;ptid=2098044" target="_blank">京小咏 发表于 2022-11-17 19:00</a>
+999运气盖亚迷宫完全不出爱情是不是哪里不对
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅 ...</blockquote>
+700运气打完全成就掉落了13个爱情 所以多半是哪里有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  京小咏  
+##### 2227#       发表于 2022-11-17 19:08
+
+风怒编辑
+
+*****
+
+####  CswStar  
+##### 2228#       发表于 2022-11-17 19:20
+
+刚入坑，这游戏有什么需要特别注意的地方吗？不会整什么不看攻略瞎玩就be之类的活吧？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  farAway  
+##### 2229#       发表于 2022-11-17 19:28
+
+第四关海蛇洞刚进洞很多水的地方显示有一个宝箱，死活找不着在哪...
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  Rainwedell  
+##### 2230#       发表于 2022-11-17 19:39
+
+ 本帖最后由 Rainwedell 于 2022-11-17 19:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58477287&amp;ptid=2098044" target="_blank">CswStar 发表于 2022-11-17 19:20</a>
+刚入坑，这游戏有什么需要特别注意的地方吗？不会整什么不看攻略瞎玩就be之类的活吧？
+
+  -- 来自  ...</blockquote>
+往前两页有谭友总结了，其实除了解谜确实得看看攻略我觉得其他都还好，不会漏啥东西，直接打就成，本体剧情每章流程基本都是过斗技场然后刷装备图纸，新装备基本能应付当前强度。还有就是记得存档。对话有几个选项选错了会推不了剧情，或者提前分支结局了，重新读档选就成了（第5章有个妹子想救的话记得选否，然后打boss前去找她，整体不影响剧情）。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  5353  
+##### 2231#       发表于 2022-11-17 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58477287&amp;ptid=2098044" target="_blank">CswStar 发表于 2022-11-17 19:20</a>
+
+刚入坑，这游戏有什么需要特别注意的地方吗？不会整什么不看攻略瞎玩就be之类的活吧？
+
+  -- 来自  ...</blockquote>
+没什么要注意的.
+
+如果选项会进be,会很快结束,回去重选即可.
+
+最终影响的结局的只有一个要素.
+
+取决于某特定物品的数量,而这个东西后期迷宫可以刷,不需要担心.
+
+你随缘玩即可.
+
+流程攻略可以参考.
+[https://www.bilibili.com/read/cv19243862?spm_id_from=333.1007.0.0](https://www.bilibili.com/read/cv19243862?spm_id_from=333.1007.0.0)
+
+*****
+
+####  电磁炮233  
+##### 2232#       发表于 2022-11-17 19:47
+
+这游戏升级是真挺慢的，虽然提升不怎么靠等级。。。
+
+*****
+
+####  farAway  
+##### 2233#       发表于 2022-11-17 19:55
+
+第四关海蛇洞刚进洞很多水的地方显示有一个宝箱，死活找不着在哪...
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+
+*****
+
+####  jy000129  
+##### 2234#       发表于 2022-11-17 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58477728&amp;ptid=2098044" target="_blank">farAway 发表于 2022-11-17 19:55</a>
+第四关海蛇洞刚进洞很多水的地方显示有一个宝箱，死活找不着在哪...
+
+  -- 来自 能看大图的 Stage1官方 iOS ...</blockquote>
+一个地方有个很隐蔽的箭头，另一个是凸起的地方有隐藏通道，地图有大块黑的无法进去的地方注意下
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ぽんぽこ仮面  
+##### 2235#       发表于 2022-11-17 20:48
+
+ 本帖最后由 ぽんぽこ仮面 于 2022-11-17 20:55 编辑 
+
+刚进东京，发现被怪碰一下就死。
+
+硬跟那三个机甲死磕了一个多小时，玩得心态大崩，大骂这什么粪图容错率这么低，
+
+最后才发现身上不知道什么时候带了狂暴<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太弱智了
+
+*****
+
+####  ぽんぽこ仮面  
+##### 2236#       发表于 2022-11-17 20:48
+
+ 本帖最后由 ぽんぽこ仮面 于 2022-11-17 20:52 编辑 
+
+风怒
+
+*****
+
+####  cym887  
+##### 2237#       发表于 2022-11-17 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">带狂暴，血量数字会变成一个圆球 很好认的啊
+
+*****
+
+####  Farlight  
+##### 2238#       发表于 2022-11-17 21:27
+
+情人节礼物除了放天平上还有别的用处吗？
+
+*****
+
+####  ParadiseMartyr  
+##### 2239#       发表于 2022-11-17 21:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58476070&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-17 17:24</a>
+巧克力派， 巧克力+派的底饼 ， 初级里那个派底饼没做过不会显示
+
+配方是 上级 ，在斗技场4章 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  sliver1997  
+##### 2240#       发表于 2022-11-17 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58479152&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-17 21:32</a>
+
+这伊利西昂四个珠子在哪儿，我只能找到一个
+
+—— 来自 S1Fun</blockquote>
+这个 wiki 有攻略，不过是日文的：[https://w.atwiki.jp/astlibra/pages/61.html](https://w.atwiki.jp/astlibra/pages/61.html)
+
+机翻改了下：
+
+红球：
+
+往大门右边的楼梯走，爬上柱子，进入墙壁上有缝的房间，把房间里的木桶打爆，得到“木棒束”。
+
+(房里有个回血怪，先把他打死)
+
+返回有篝火的那张图，在没有柴火的篝火台前使用木棒束放入木材。
+
+对篝火台使用松脂让它们易燃，最后用火弓点燃篝火，就会出现红球。
+
+蓝球：
+
+往大门左边的楼梯走，有张图中间有水池，用空瓶子(大中小都行)装水；然后回到大门，往右边的楼梯走到最里面的图，有个壶，把水倒满。大概要 5-6 个小瓶子的量
+
+紫球
+
+大门右边拿到木棒的那个有缝的房间。在缝对面的房间的墙外面挂着紫色的球。可以从缝里扔小刀出去打在对面房间的墙上。
+
+用小刀标记好位置，然后从大门左边的楼梯走到最里面，有个操作杆可以调整紫球的位置，调到对准刚才扔的小刀的高度，然后回到有缝的房间，再扔一次小刀，就能把紫球打下来。
+
+绿球
+
+从和遗迹兵战斗的房间往左走两个房间，中间有个缺口，可以下去，有空气地板，左边是宝箱，右边可以进一个小房间。用炸弹把小房间地板炸开，往里走，有个房间。这个房间最里面有绿球，但是看不清路，需要自己探一下。
+
+*****
+
+####  ぽんぽこ仮面  
+##### 2241#       发表于 2022-11-18 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58478747&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-17 21:09</a>
+
+带狂暴，血量数字会变成&amp;#x4E ...</blockquote>
+我没带过，以为是中了什么debuff或者剧情限制……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 2242#       发表于 2022-11-18 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58480015&amp;ptid=2098044" target="_blank">sliver1997 发表于 2022-11-17 22:16</a>
+这个 wiki 有攻略，不过是日文的：https://w.atwiki.jp/astlibra/pages/61.html
+
+机翻改了下：</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  魔法少女大头  
+##### 2243#       发表于 2022-11-18 01:31
+
+刚被老婆把天平砸了去完东京，回头开始清宝箱了。
+王宫迷完守卫后面的箱子，在后面封住的门是啥，隐藏boss没有了吧？
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  julia黑  
+##### 2244#       发表于 2022-11-18 02:13
+
+玩到最终章了，太喜欢乌鸦哥了，机智幽默又贴心的好大哥，联想到他的本体就更喜欢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  umbasa  
+##### 2245#       发表于 2022-11-18 02:17
+
+那不是大哥，那是义父啊。原话也说的是把主角教育成了一个优秀的人，因主角感到自豪和骄傲
+
+*****
+
+####  WDDzzZ  
+##### 2246#       发表于 2022-11-18 04:19
+
+困难模式最终章好鸡儿难啊，九点到家40级进去，打到凌晨四点，明天上班要G了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  redsouris  
+##### 2247#       发表于 2022-11-18 07:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58482154&amp;ptid=2098044" target="_blank">魔法少女大头 发表于 2022-11-18 01:31</a>
+刚被老婆把天平砸了去完东京，回头开始清宝箱了。
+王宫迷完守卫后面的箱子，在后面封住的门是啥，隐藏boss ...</blockquote>
+王宫地下是从那口井回去，大门封印打不开的
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adw667  
+##### 2248#       发表于 2022-11-18 08:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58481522&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-18 00:09</a>
+
+草，我硬顶着回血干爆桶了，还想说怎么这么变态活生生刮了十分钟，技能用错了还被反而回上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我打的时候回血怪飞到地图外边去了而且当时还不知道是那玩意在回血只能嗯打
+
+*****
+
+####  adw667  
+##### 2249#       发表于 2022-11-18 08:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">困难第一章刷得把月光都点出来了
+
+等我到第二章拿到大剑你们都得死.jpg
+
+*****
+
+####  永远的访客  
+##### 2250#       发表于 2022-11-18 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58479152&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-17 21:32</a>
+
+这伊利西昂四个珠子在哪儿，我只能找到一个
+
+—— 来自 S1Fun</blockquote>
+这个我也卡过，怪太强来回跑风险很大没心思反复试，后来愤查攻略，发现国内一堆抄来抄去都是漏掉疑点的渣，其实最需要知道的，是出门找老板娘谈话她会给提示<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我照了提示自己继续摸索，那个找火柴的区域又被游戏气炸了，最后才发现一个怪在那WIFI加血，干掉后就不卡了
+

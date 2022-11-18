@@ -6812,3 +6812,23 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 草，水BB这次能5加成，可以让她上场了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3622#       发表于 2022-11-17 18:56
+
+金时果然PU啊，虽然得等前面的屠龙夫妻组PU完，而且同期还有个守门员B叔，不过总算了却了一桩心事，抽抽抽<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+...其实有点怀疑和之前的摩根一样同属骗氪，下次90++就可能安排一堆百万血外星人出来。而且2.7估计也会有很多降临者...但总归是万金油，为了情怀和苦劳也得搏一搏<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+（就怕冠位狂一出来是完全上位，那就贻笑大方了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3623#       发表于 2022-11-17 19:30
+
+克姐这什么铜素材杀手，能不能吃点好的
+
