@@ -8952,3 +8952,15 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 外传主角，面包妹，手游主角</blockquote>
 居然还有手游？这哪里可以玩到呢
 
+
+
+*****
+
+####  AeonsTorn  
+##### 2281#       发表于 2022-11-18 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58497075&amp;ptid=2098044" target="_blank">wolfwood 发表于 2022-11-18 23:48</a>
+
+居然还有手游？这哪里可以玩到呢</blockquote>
+[www.keizo.games](http://www.keizo.games) 可以去作者主页上看看
+
