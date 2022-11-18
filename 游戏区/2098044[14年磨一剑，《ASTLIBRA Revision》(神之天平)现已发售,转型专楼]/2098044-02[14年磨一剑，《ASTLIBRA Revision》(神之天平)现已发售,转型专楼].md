@@ -8647,3 +8647,15 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 找绿箭头吧，很隐蔽</blockquote>
 好，回去再看看
 
+
+
+*****
+
+####  farAway  
+##### 2257#       发表于 2022-11-18 11:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58484327&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-11-18 10:16</a>
+
+找绿箭头吧，很隐蔽</blockquote>
+找到了，天空上有个很隐蔽的小靶子。。。拿弩射了就好了
+
