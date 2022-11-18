@@ -5873,3 +5873,54 @@ DIY 社的『秘密基地』建造计划在稳步进行中。
 
 这集的diy环节感觉难度有点太高了，看动画想跟着一起diy的观众估计人傻了
 
+
+
+*****
+
+####  Piano-Forest  
+##### 463#         楼主| 发表于 2022-11-18 22:01
+
+『Do It Yourself!! -どぅー・いっと・ゆあせるふ-』
+
+本日はすてっぷ７でせるふ達が作った品々をご紹介&amp;#x1F528;
+
+#スワロ 先生と一緒に作成させていただきました！
+<img src="https://p.sda1.dev/8/e7bce0cafb26e0f1511b7c173f439566/20221118_215656.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/42d20eb8d3e58c19f9a6839c723d2ef2/20221118_215658.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/85f508862af0d27c848fef434c543713/20221118_215700.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d6cd70568032c4506627e1fbcc1f4e56/20221118_215701.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/VintageSwaro109/status/1593066951391477760](https://twitter.com/VintageSwaro109/status/1593066951391477760)
+
+Do It Yourself!! -どぅー・いっと・ゆあせるふ-⑦話で登場したタブレットスタンドのデザインと設計図、組み立て説明書を公開
+
+ポイントはぺったんこに畳めるので、
+
+使わない時は隙間などにも収納出来る事
+
+構造がやや複雑になってきてDIY中級程度
+<img src="https://p.sda1.dev/8/23f619620741eda1ea9830fd0fc605cc/20221118_215913.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/8ae59bebf331b9345c445b033629ffdf/20221118_215914.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/278b0d2516144f04fff7dfb5b40ba05c/20221118_215915.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/a28c8c6d6e70f9f6372d94c1d6e19d81/20221118_215917.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/VintageSwaro109/status/1593543180221583360](https://twitter.com/VintageSwaro109/status/1593543180221583360)
+
+すてっぷ⑦の貝殻のネックレス。
+
+海をそのまますくい上げた様なデザインです。
+
+この波模様はレジンアートの醍醐味なので挑戦してみてほしい。 
+
+ポイント 
+
+白レジンは濃すぎない事
+
+白レジンの前にクリアを薄く敷くと良い
+
+レジンはUVライトに長く入れ過ぎると、黄ばむので、時間は守って
+<img src="https://p.sda1.dev/8/04afc23315290adbf12be971655b853d/20221118_215924.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0668d8a485c11dde8f880a17045218c8/20221118_215929.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/9a69f1088f1501e4e74d45c4e5b52ae7/20221118_215926.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/a6d6bedd28ed05d2689a31218b0ca099/20221118_215927.jpg" referrerpolicy="no-referrer">
+

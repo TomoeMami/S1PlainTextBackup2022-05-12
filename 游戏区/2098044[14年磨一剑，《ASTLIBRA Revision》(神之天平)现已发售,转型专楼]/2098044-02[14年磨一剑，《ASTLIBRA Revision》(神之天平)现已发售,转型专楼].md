@@ -8899,3 +8899,14 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2276#       发表于 2022-11-18 21:56
+
+又缺个配方，第八章了棒棒糖一样的东西做不了，该去哪儿找配方书？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
