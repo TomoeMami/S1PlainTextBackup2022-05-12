@@ -5924,3 +5924,48 @@ Do It Yourself!! -どぅー・いっと・ゆあせるふ-⑦話で登場した�
 <img src="https://p.sda1.dev/8/9a69f1088f1501e4e74d45c4e5b52ae7/20221118_215926.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/a6d6bedd28ed05d2689a31218b0ca099/20221118_215927.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 464#         楼主| 发表于 2022-11-18 22:07
+
+[https://twitter.com/youjohan_me/status/1592911875196747777](https://twitter.com/youjohan_me/status/1592911875196747777)
+
+Do It Yourself!!
+
+7話のBパート作監やっています！
+
+何卒、よろしくお願いします！
+<img src="https://p.sda1.dev/8/3e0143b85517985f9e7c9e110085d325/20221118_220202.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/koga355/status/1592996337125298178](https://twitter.com/koga355/status/1592996337125298178)
+
+Do It Yourself!! 7話
+
+原画で参加してました
+<img src="https://p.sda1.dev/8/82d0324ef56f7969f70019b1ba4449ac/20221118_215726.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/komet_915/status/1592915384528928769](https://twitter.com/komet_915/status/1592915384528928769)
+
+Do It Yourself!! 
+
+第7話 Bパートの工作シーン原画描きました！
+
+よろしくお願いします！！
+<img src="https://p.sda1.dev/8/2a680f75095f22014891c6f1c3ec1cc8/20221118_215733.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/plus_plus09/status/1592912216176889857](https://twitter.com/plus_plus09/status/1592912216176889857)
+
+7話もたくさん動画描きました！
+
+DIYたくさんでした
+<img src="https://p.sda1.dev/8/81d2a7a989cc71d7fb83a77901e54b0f/20221118_215737.jpg" referrerpolicy="no-referrer">
+
+すてっぷ７より、作監修正をご紹介
+<img src="https://p.sda1.dev/8/114a3cc9de73669b03c139b379ef621f/20221118_220408.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/15c2700ec124361ca894f0fe5e225e13/20221118_220409.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/6356cd734dfc96f6873ff5dcfa1cf1e4/20221118_220411.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/a47e5cdc16701a5d46cd1129eed22725/20221118_220413.jpg" referrerpolicy="no-referrer">
+
