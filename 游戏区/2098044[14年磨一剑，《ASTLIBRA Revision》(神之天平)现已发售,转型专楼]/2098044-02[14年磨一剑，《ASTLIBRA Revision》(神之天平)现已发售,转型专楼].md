@@ -9167,3 +9167,28 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2302#       发表于 2022-11-19 07:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58498304&amp;ptid=2098044" target="_blank">北欧王座 发表于 2022-11-19 01:21</a>
+有个技能叫能量吸收。。基本约等于金手指了。熟悉一下boss技能后，大部分对你都很难造成伤害了。容错率啥 ...</blockquote>
+关键能量吸收你也得有精力放凭依才行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你正常损血后肯定得嗑药挑战时间长了它那药又不自动回复你得回去买药就很离谱啊，关键是一旦你的循环断了这后很有可能就被秒杀了，我好几次打boss都是因为boss三下秒我，然后一些持续伤害型的攻击就直接给我干死了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  5353  
+##### 2303#       发表于 2022-11-19 07:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58498856&amp;ptid=2098044" target="_blank">wolfwood 发表于 2022-11-19 02:46</a>
+
+小徽章扭蛋出来的那个100个魔导水晶，怎么不能用</blockquote>
+扭蛋只有一个一个的水晶.
+
+主要魔导水晶总共就104个.
+
