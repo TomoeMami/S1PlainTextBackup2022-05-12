@@ -9050,3 +9050,23 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 — from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  A1LI  
+##### 2290#       发表于 2022-11-19 01:22
+
+这游戏确实就是前期难，后期简单。成长盘其实本篇不特意去刷的话，大概能解锁所有4级技能，5级可以去新章再刷。
+
+*****
+
+####  liyropen  
+##### 2291#       发表于 2022-11-19 01:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58497787&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 00:34</a>
+不是，这游戏后期数值是不是有问题boss两下带走我。还动不动地图炮。好不容易解放了女神结果告诉我 ...</blockquote>
+女神二阶段其实比一阶段白给，必须要马上跑路的只有把头举起来之后的大圣光，全屏蓝波提前留住st可以直接无敌抗过大部分时间，剩下的直接格挡足够
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
