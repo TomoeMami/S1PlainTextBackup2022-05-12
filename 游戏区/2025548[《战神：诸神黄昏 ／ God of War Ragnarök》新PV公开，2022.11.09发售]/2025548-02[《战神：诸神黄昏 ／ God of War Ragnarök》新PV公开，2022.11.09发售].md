@@ -1323,3 +1323,43 @@ https:/ ...</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cat1220  
+##### 1623#       发表于 2022-11-18 12:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58484395&amp;ptid=2025548" target="_blank">chrisluvdjmax 发表于 2022-11-18 10:20:26</a>
+有人研究出办法了 用枪攻击龙产生的位移把龙卡到地图外摔死</blockquote>害，我也碰到这个了，晚上回家试试
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  白昼梦  
+##### 1624#       发表于 2022-11-18 12:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终段这看着感觉就是死老头偷你家东西，然后就被你带着老婆孩子追到他家里把他宰了
+
+*****
+
+####  白昼梦  
+##### 1625#       发表于 2022-11-18 12:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终段这看着感觉就是死老头偷你家东西，然后就被你带着老婆孩子追到他家里把他宰了
+
+*****
+
+####  woshenc  
+##### 1626#       发表于 2022-11-18 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58486678&amp;ptid=2025548" target="_blank">focus 发表于 2022-11-18 12:32</a>
+
+装备各有所长，看你战斗习惯
+
+喜欢莽经常受伤可以用岩熊，防御很高，处决回血
+
+跟我一样喜欢极限闪避就用光 ...</blockquote>
+这些套装，感觉我都没有<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
