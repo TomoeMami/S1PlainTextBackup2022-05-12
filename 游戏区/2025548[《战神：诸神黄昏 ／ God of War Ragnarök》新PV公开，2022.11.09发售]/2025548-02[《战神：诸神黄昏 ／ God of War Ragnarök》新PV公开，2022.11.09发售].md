@@ -1245,3 +1245,19 @@ https:/ ...</blockquote>
 左右为男的情况下 ...</blockquote>
 这作不要用锁定，屌用没有，据说触摸板设定快速转身比较有用
 
+
+
+*****
+
+####  woshenc  
+##### 1617#       发表于 2022-11-18 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58485316&amp;ptid=2025548" target="_blank">哈罗 发表于 2022-11-18 11:11</a>
+
+希芙，实战利器</blockquote>
+长得漂亮不？
+
+我现在从战神3部曲过渡到新战神，颇有种打完刺客信条奥德赛后打英灵殿的感觉
+
+到处都是歪瓜裂枣...<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
