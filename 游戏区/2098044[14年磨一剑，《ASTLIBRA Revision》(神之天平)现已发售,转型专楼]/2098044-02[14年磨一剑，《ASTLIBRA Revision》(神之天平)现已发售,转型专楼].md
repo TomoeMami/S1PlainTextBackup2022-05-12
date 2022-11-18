@@ -8964,3 +8964,24 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 居然还有手游？这哪里可以玩到呢</blockquote>
 [www.keizo.games](http://www.keizo.games) 可以去作者主页上看看
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2282#       发表于 2022-11-19 00:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是，这游戏后期数值是不是有问题boss两下带走我。还动不动地图炮。好不容易解放了女神结果告诉我是boss连战。点点点了而且选择重新挑战boss物品数量还不回复，你们真的不ce能玩？
+不是这他妈其实我觉得从蛇神洞那一章开始就有点离谱了，存档点离得远还一堆怪伤害还不低<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那个技能树需要刷的东西太多了，你们不ce真的能玩？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ParadiseMartyr  
+##### 2283#       发表于 2022-11-19 00:40
+
+这游戏如果真的要上主机，这技能树的消耗一定要改低，不然这主机上刷到猴年马月去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
