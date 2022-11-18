@@ -907,3 +907,14 @@ DMM的广告好注目
 
 猴急，今晚就要看奥特曼
 
+
+
+*****
+
+####  rs5621  
+##### 3097#       发表于 2022-11-18 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">回家晚了，延期
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
