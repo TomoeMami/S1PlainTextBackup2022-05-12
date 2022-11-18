@@ -68,3 +68,15 @@ image.png
 
 <img src="https://img.saraba1st.com/forum/202211/19/012106qctpcdu8bjtl0dpi.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hacisiki  
+##### 2009#       发表于 2022-11-19 03:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58481029&amp;ptid=1860817" target="_blank">yone0000 发表于 2022-11-17 23:31</a>
+
+管人扭扭捏捏的也不知道要搞个啥，难道要在甲21作战里原创出一集让她发挥吗 ...</blockquote>
+根据我对OP的理解，应该会送吧。毕竟甲21损失的其他2台女武神不知火都是驾驶舱全毁。
+

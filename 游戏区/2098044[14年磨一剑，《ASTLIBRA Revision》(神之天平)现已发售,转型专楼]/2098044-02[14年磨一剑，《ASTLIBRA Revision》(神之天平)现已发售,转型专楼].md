@@ -9079,3 +9079,77 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 突然发现，这游戏算挺火的了吧，但是steam社区没有一张艺术创作？<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  M1NG  
+##### 2293#       发表于 2022-11-19 01:58
+
+今天刚买完了六七个小时，发现这游戏很费大拇指，x键要被我按烂了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  佛狗  
+##### 2294#       发表于 2022-11-19 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58497787&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 00:34</a>
+
+不是，这游戏后期数值是不是有问题boss两下带走我。还动不动地图炮。好不容易解放了女神结果告诉我 ...</blockquote>
+装能量吸收，和开ce感觉大差不差
+
+*****
+
+####  突发性哮喘病患  
+##### 2295#       发表于 2022-11-19 02:16
+
+我靠，一开始以为四勇者是菜鸡，后来发现强的要死，如果正常来打估计早扫荡魔王了
+
+*****
+
+####  超纯锑  
+##### 2296#       发表于 2022-11-19 02:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58430294&amp;ptid=2098044" target="_blank">redsouris 发表于 2022-11-14 14:46</a>
+
+这个EX地图BOSS是有时间限制，本身不会移动，时间到了没打死就全屏斩铁秒杀了。以后回来打简单，如果刚到 ...</blockquote>
+谢谢，当时试过狂暴三倍攻击了，哪怕成长里面我把未锁定的全加了，还是打不动被秒了，看来不多刷几张攻击卡是打不动了
+
+*****
+
+####  liyropen  
+##### 2297#       发表于 2022-11-19 02:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58498615&amp;ptid=2098044" target="_blank">M1NG 发表于 2022-11-19 01:58</a>
+今天刚买完了六七个小时，发现这游戏很费大拇指，x键要被我按烂了</blockquote>
+把铜剑的经验练满可以解锁平a连发的技能
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
+*****
+
+####  战术核辣条  
+##### 2298#       发表于 2022-11-19 02:37
+
+完全能玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+只要不是推的太快难度又调的太高，最后会感觉越来越不够打，每章至少把装备技能刷齐然后见boss，数值上就比较合适
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  超纯锑  
+##### 2299#       发表于 2022-11-19 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58428683&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-14 13:21</a>
+
+ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</blockquote>
+谢谢，我从第三章开始每章都试一试打这图，刮痧效果太挫败了，本来以为升级出雷阵姬和乱射以后可以远程一点点磨死所有的怪，遇到限时机制直接吃瘪了
+
+*****
+
+####  wolfwood  
+##### 2300#       发表于 2022-11-19 02:46
+
+小徽章扭蛋出来的那个100个魔导水晶，怎么不能用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
