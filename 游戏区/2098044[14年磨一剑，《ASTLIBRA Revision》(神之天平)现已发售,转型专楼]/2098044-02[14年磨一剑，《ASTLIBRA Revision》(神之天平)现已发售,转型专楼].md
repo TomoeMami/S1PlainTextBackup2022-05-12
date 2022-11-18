@@ -8834,3 +8834,27 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 困难有个成就啊，我ce了困难，不知道还能不能拿成就<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  永远的访客  
+##### 2271#       发表于 2022-11-18 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58490084&amp;ptid=2098044" target="_blank">leonyang19 发表于 2022-11-18 16:21</a>
+
+个人觉得伊利西昂的四个符文是整部作品里最恶心的解谜了，没有之一
+
+1、红符文
+
+木桶那里那只会回血的怪一开 ...</blockquote>
+绿符文没卡到我，老板娘说的大门就是指她站的这门，所以我往回找第一个能跳的坑就找到了，不过那个黑房间各种高度层错位，纯粹在里面乱跳乱走才到终点，又是个粪设计
+
+缸里加水捞石头这种设计也只有这游戏会想到了，我想的是司马光砸缸，但是练了半天锤子也没找到个靠谱的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+扔飞刀打球是我最顺利的一个
+
+木材那个已经喷够了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+毕竟小品游戏，原本这种谜题完全可以分散在不同关/分支任务，因为总长度不够就打包塞在一个区域里，配合硬得要死，或者几招砍死人的各路野怪，简直烦躁得劝退（我承认是剧情和音乐吸引我坚持了比较久）
+
