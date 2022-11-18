@@ -8985,3 +8985,14 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  cym887  
+##### 2284#       发表于 2022-11-19 00:58
+
+ 本帖最后由 cym887 于 2022-11-19 00:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ce锁精力玩了个爽，这游戏的厉害之处就是开CE还能爽通关而没有立刻索然无味
+
