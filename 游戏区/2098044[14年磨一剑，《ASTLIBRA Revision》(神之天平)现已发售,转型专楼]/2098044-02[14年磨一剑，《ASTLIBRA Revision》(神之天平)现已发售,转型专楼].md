@@ -8858,3 +8858,44 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 毕竟小品游戏，原本这种谜题完全可以分散在不同关/分支任务，因为总长度不够就打包塞在一个区域里，配合硬得要死，或者几招砍死人的各路野怪，简直烦躁得劝退（我承认是剧情和音乐吸引我坚持了比较久）
 
+
+
+*****
+
+####  julia黑  
+##### 2272#       发表于 2022-11-18 17:16
+
+求问矿石镇那个隐藏boss怎么触发，我进去了只有一个黄色的传送阵无法触发
+
+*****
+
+####  Rainwedell  
+##### 2273#       发表于 2022-11-18 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58489955&amp;ptid=2098044" target="_blank">lilod 发表于 2022-11-18 16:11</a>
+开始打新章了，剧情感觉推进很快呀？ 顺带一提，我不会要把每个武器/防具的装备盘刷出来吧？ ...</blockquote>
+选套趁手的装备就行了，后面会有饰品加成当前装备的装备盘掉落
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  leonyang19  
+##### 2274#       发表于 2022-11-18 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58491010&amp;ptid=2098044" target="_blank">julia黑 发表于 2022-11-18 17:16</a>
+
+求问矿石镇那个隐藏boss怎么触发，我进去了只有一个黄色的传送阵无法触发</blockquote>
+打掉烛台
+
+*****
+
+####  Rainwedell  
+##### 2275#       发表于 2022-11-18 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58491010&amp;ptid=2098044" target="_blank">julia黑 发表于 2022-11-18 17:16</a>
+求问矿石镇那个隐藏boss怎么触发，我进去了只有一个黄色的传送阵无法触发</blockquote>
+提示：去看神话之书邪神那篇章
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
