@@ -8738,3 +8738,15 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 —— 来自 S1Fun</blockquote>
 就算是新章通关了都能捡，不用怕
 
+
+
+*****
+
+####  jy000129  
+##### 2265#       发表于 2022-11-18 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58485323&amp;ptid=2098044" target="_blank">farAway 发表于 2022-11-18 11:11</a>
+
+找到了，天空上有个很隐蔽的小靶子。。。拿弩射了就好了</blockquote>
+好吧，记错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

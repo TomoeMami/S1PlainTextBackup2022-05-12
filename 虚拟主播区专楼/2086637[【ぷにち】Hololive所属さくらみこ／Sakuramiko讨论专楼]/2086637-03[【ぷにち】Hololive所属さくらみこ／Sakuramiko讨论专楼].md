@@ -839,3 +839,14 @@ DMM的广告好注目
 
 还没玩就想着要呆火鳄闪光啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 3091#         楼主| 发表于 2022-11-18 15:57
+
+唐突发病
+
+想到去年阿火也是要抽初始真就反复load嗯播，那叫一个虚无，
+
