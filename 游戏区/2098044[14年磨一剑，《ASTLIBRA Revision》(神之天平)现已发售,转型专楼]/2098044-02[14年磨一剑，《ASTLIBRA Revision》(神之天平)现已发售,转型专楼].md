@@ -8583,3 +8583,35 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 ——  ...</blockquote>
 隐藏通道没找到，是炸药开的那个小水沟么？进了洞窟我就没看到有什么箭头，显示有宝箱的那个图很长，来来回回走了好多遍了，水上水下都找了，强迫症急死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jy000129  
+##### 2252#       发表于 2022-11-18 09:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58483771&amp;ptid=2098044" target="_blank">farAway 发表于 2022-11-18 09:27</a>
+
+隐藏通道没找到，是炸药开的那个小水沟么？进了洞窟我就没看到有什么箭头，显示有宝箱的那个图很长，来来 ...</blockquote>
+是不是这个？至于是箭头触发还是清场触发就不记得了
+
+20221118095307_1.jpg
+(335.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-18 09:53 上传
+
+<img src="https://img.saraba1st.com/forum/202211/18/095356tos88zlsc7gg5m44.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ParadiseMartyr  
+##### 2253#       发表于 2022-11-18 09:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58483651&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-18 09:12</a>
+这个我也卡过，怪太强来回跑风险很大没心思反复试，后来愤查攻略，发现国内一堆抄来抄去都是漏掉疑点的渣 ...</blockquote>
+是的，我是看老板娘说话才整完的，<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">关键是木桶这个太变态了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完全没必要整个加血怪
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
