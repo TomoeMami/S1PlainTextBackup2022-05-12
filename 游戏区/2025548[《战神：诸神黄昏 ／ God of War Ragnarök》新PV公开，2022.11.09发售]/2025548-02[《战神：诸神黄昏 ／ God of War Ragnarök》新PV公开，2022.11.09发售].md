@@ -1474,3 +1474,14 @@ https:/ ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。我要是没见过女孩的十几岁小孩直接被拿下了。
 
+
+
+*****
+
+####  lazycat233  
+##### 1638#       发表于 2022-11-18 20:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就是尼妹那段就是节奏特别差，换成小可爱只能会说养眼一点。你要放松还放那么多战点打干嘛，放松一段又打一个战点，放完牛还要进坑里清三个巢穴。要是后面跟雷神女儿那段找面具也是这么又臭又长，那这段也是个垃圾。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
