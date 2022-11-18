@@ -8825,3 +8825,12 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 然后把游戏扔掉了一周后来查攻略过的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clago  
+##### 2270#       发表于 2022-11-18 16:22
+
+困难有个成就啊，我ce了困难，不知道还能不能拿成就<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

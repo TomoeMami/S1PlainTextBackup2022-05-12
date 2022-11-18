@@ -1427,3 +1427,14 @@ https:/ ...</blockquote>
 
 儿子可以用L2取消普攻硬直，反复出第一刀，攻速观感上像传奇类游戏<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  415452356  
+##### 1633#       发表于 2022-11-18 16:22
+
+  你妹这段表演最大的问题还是角色不讨喜，摆烂认命的一般巨人族，你换个美女估计也只是看着没那么膈应而已
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
