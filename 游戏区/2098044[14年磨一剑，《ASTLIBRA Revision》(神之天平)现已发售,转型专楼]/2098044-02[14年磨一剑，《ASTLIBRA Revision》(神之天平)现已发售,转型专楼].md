@@ -9018,3 +9018,35 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 不是，这游戏后期数值是不是有问题boss两下带走我。还动不动地图炮。好不容易解放了女神结果告诉我 ...</blockquote>
 开ce的人不好意思说罢了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rainwedell  
+##### 2287#       发表于 2022-11-19 01:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58497787&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 00:34</a>
+不是，这游戏后期数值是不是有问题boss两下带走我。还动不动地图炮。好不容易解放了女神结果告诉我 ...</blockquote>
+至少我觉得还成，可能我比较能刷吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  北欧王座  
+##### 2288#       发表于 2022-11-19 01:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58497787&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 00:34</a>
+
+不是，这游戏后期数值是不是有问题boss两下带走我。还动不动地图炮。好不容易解放了女神结果告诉我 ...</blockquote>
+有个技能叫能量吸收。。基本约等于金手指了。熟悉一下boss技能后，大部分对你都很难造成伤害了。
+
+*****
+
+####  liyropen  
+##### 2289#       发表于 2022-11-19 01:22
+
+不要在打boss战的时候暂停给武器盘上宝石，如果挂了选重来会把宝石给吞了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
