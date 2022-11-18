@@ -8675,3 +8675,12 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战
 
 砸完桶回去路上还死了2次，这桶我一共砸了3次，什么阴间谜题<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  otakun  
+##### 2259#       发表于 2022-11-18 12:33
+
+木桶那里我第一次进去就看到左面有个怪在飞了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">，知道加血也没理，开狂暴砍
+
