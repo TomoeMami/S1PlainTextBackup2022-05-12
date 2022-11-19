@@ -18,3 +18,12 @@
 
 久弥没犯病，中规中矩的一集。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  游蜓  
+##### 749#       发表于 2022-11-19 12:32
+
+下集如果也有这集水平说明久弥病情稳定可以出院了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
