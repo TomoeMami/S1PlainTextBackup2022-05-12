@@ -10200,3 +10200,14 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 —— 来自 HUAW ...</blockquote>
 不能按下键
 
+
+
+*****
+
+####  liyropen  
+##### 2388#       发表于 2022-11-20 00:50
+
+带狗子同行带食物嗅探技能，狗子感叹号时附近找找可以找到食物<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
