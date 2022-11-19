@@ -9822,3 +9822,15 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  janet_ddr  
+##### 2357#       发表于 2022-11-19 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58506604&amp;ptid=2098044" target="_blank">umbasa 发表于 2022-11-19 18:22</a>
+
+成长系统的郎枪和风斧拿到了没有</blockquote>
+喷了，去wiki看了一下，成长里面还不止这两把武器，我先对对吧。
+
