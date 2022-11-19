@@ -1302,3 +1302,13 @@ syl，看到an们前脚说要联合cn玩家/**enkr后脚就有b工商/enkr公告
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">a队比赛刚打完就给你出ow联动t，这不就是天选么
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17748#       发表于 2022-11-19 19:06
+
+现在是不是vtuber漫画战国时代<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+彩虹有漫画了，holo有漫画了，现在神椿的瓦里斯也要出漫画
+
