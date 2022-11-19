@@ -101,3 +101,14 @@ jmzs这集脚本还行，当然，大概率是系构写好了大框架，只是�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我寻思艾斯打这超兽也没那么吃力吧？为啥打萝卜用奇迹，打超兽反而用强劲啊？
 
+
+
+*****
+
+####  赤道氮  
+##### 758#       发表于 2022-11-19 19:50
+
+知道要致敬戴拿，也犯不着对波右边输啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
