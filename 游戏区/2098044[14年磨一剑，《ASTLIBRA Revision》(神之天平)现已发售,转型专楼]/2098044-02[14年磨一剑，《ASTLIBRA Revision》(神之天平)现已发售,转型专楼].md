@@ -9418,3 +9418,28 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  北欧王座  
+##### 2322#       发表于 2022-11-19 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58500383&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 10:01</a>
+
+我只有三个饰品
+
+—— 来自 S1Fun</blockquote>
+那你这成长没做好竞技场也没打。不知道你格子点的怎么样但是2100估计没点多少。我都不咋点血的也有差不多四千。可能也意味着攻防属性也不高。那容错就太低了
+
+*****
+
+####  ParadiseMartyr  
+##### 2323#       发表于 2022-11-19 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58500571&amp;ptid=2098044" target="_blank">北欧王座 发表于 2022-11-19 10:18</a>
+那你这成长没做好竞技场也没打。不知道你格子点的怎么样但是2100估计没点多少。我都不咋点血的也有差不多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">竞技场这种东西难道不应该是收集要素可打可不打吗…而且也没给啥好东西，要不是卡素材书我都不想打
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
