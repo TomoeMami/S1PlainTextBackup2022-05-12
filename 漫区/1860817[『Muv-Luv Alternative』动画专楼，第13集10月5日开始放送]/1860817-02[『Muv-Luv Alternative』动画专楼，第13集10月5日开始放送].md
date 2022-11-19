@@ -97,3 +97,14 @@ image.png
 
 Staff里面有二姐厨罢，怎么在这种奇怪的地方这么注重细节。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  圣天辉  
+##### 2011#       发表于 2022-11-20 00:31
+
+刚刚补完原作，EX和UL都推了全结局，现在实在是意犹未尽。也实在是没想到自己人生中第一部完全通关的GAL是MUV（<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+现在正处于很想找找衍生作和二创来看的中毒期。想问问谭友动画现在有什么还面前能看得过去的单回/战斗部分吗，想稍微看看（虽然从自己之前零星看到的片段来看估计是应该不太有<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
