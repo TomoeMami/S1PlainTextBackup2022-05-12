@@ -9336,3 +9336,46 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 我也是打女神时才2100血，46级，为什么坛友的等级数值都这么高<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  vaststars  
+##### 2316#       发表于 2022-11-19 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58477083&amp;ptid=2098044" target="_blank">京小咏 发表于 2022-11-17 19:00</a>
+999运气盖亚迷宫完全不出爱情是不是哪里不对
+
+—— 来自 OnePlus GM1910, Android 12上的 S1Next-鹅 ...</blockquote>
+运气那玩意好像不影响出爱情
+
+爱情不够也个是确保自己是最新版本，因为有个补丁调高了掉率。另一个就是ce改吧，护肝。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  vaststars  
+##### 2317#       发表于 2022-11-19 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58489148&amp;ptid=2098044" target="_blank">tpsg 发表于 2022-11-18 15:17</a>
+卡女神几个小时，受不了CE了，以为通了没想到还有新章，流程也太长了，想问后面还有多长的流程。 ...</blockquote>
+新章大约等于2.5个旧章
+
+不算最后迷宫刷爱情。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dazzle  
+##### 2318#       发表于 2022-11-19 09:26
+
+等级并不是主要的，你有把体力点到衰减吗？差16级最多也就差出1000血吧
+
+还有天平有没有调配一个起码带最大体力，最大精力，精力上升值，极+强的配置？
+
+防具可以加很多血，心天平+神盾拿了练满了吗，饰品到这应该有5个了吧，配置合理吗
+
+我也没刷多少，就把全武器防具练满为止，这游戏因为原本是按章节发布，平衡基本就是按当前章节全要素收集做的，全收完了就会觉得难度不高甚至无双
+
