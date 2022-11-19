@@ -9904,3 +9904,22 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 影响凭依技伤害的都有啥？
 
+
+
+*****
+
+####  skgaminger1988  
+##### 2364#       发表于 2022-11-19 21:32
+
+ 本帖最后由 skgaminger1988 于 2022-11-19 21:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58497787&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 00:34</a>
+不是，这游戏后期数值是不是有问题boss两下带走我。还动不动地图炮。好不容易解放了女神结果告诉我 ...</blockquote>
+能量吸收加冷弹可以顶着弹幕乱打 那么多弹幕不是让你擦弹的 你没搞懂打法
+
+*****
+
+####  nogi  
+##### 2365#       发表于 2022-11-19 21:34
+
+打到第八章太缺金币了，去哪里刷金币好啊
+

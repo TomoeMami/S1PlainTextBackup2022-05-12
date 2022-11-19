@@ -3842,3 +3842,14 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">早就开摆了
 
+
+
+*****
+
+####  ruffian  
+##### 9309#       发表于 2022-11-19 21:35
+
+它摆任它摆，工资照发就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
