@@ -9934,3 +9934,16 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Tissuesea  
+##### 2367#       发表于 2022-11-19 22:07
+
+ 本帖最后由 Tissuesea 于 2022-11-19 22:08 编辑 
+
+第一章那个6500多血的龙怎么打<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">，第一次打没开看血量的技能，用树枝刮他的头，吃了28个松子都没打过，第二次打才发现这么多血，坛友怎么打过去的
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
