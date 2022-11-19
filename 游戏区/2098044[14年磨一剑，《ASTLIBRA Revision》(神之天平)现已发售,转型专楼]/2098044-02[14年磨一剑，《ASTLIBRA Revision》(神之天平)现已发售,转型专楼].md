@@ -9977,3 +9977,42 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 哥布林石板可以开大部份的隐藏门
 
+
+
+*****
+
+####  電子器官依存  
+##### 2370#       发表于 2022-11-19 22:31
+
+ 本帖最后由 電子器官依存 于 2022-11-19 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58509126&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-19 21:34</a>
+
+打到第八章太缺金币了，去哪里刷金币好啊</blockquote>
+
+日文wiki有个刷钱的里技，我用进新章的号试了不成功，要求就是到第八章之后，坛友可以尝试一下
+用加2000血的果子和大空瓶合成药水，药水卖给商店的价格比成本高，但是我试了商店直接不能卖大药水，有可能是修了
+
+不邪道的办法就是常驻掠夺，加幸运也对掉落的钱有影响，我没点过幸运，确实有一点缺钱……
+
+
+
+*****
+
+####  電子器官依存  
+##### 2371#       发表于 2022-11-19 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58509882&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-19 22:23</a>
+渔村教堂底下的这个地板怎么开啊，我用炸弹炸不开，就打完蛇神孩子后面那地方
+
+ ...</blockquote>
+这张图有箱子吗？印象不深了，建议常驻嘉隆的鼻子
+
+*****
+
+####  電子器官依存  
+##### 2372#       发表于 2022-11-19 22:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58509601&amp;ptid=2098044" target="_blank">Tissuesea 发表于 2022-11-19 22:07</a>
+第一章那个6500多血的龙怎么打，第一次打没开看血量的技能，用树枝刮他的头，吃了28个松子都没打过 ...</blockquote>
+树枝换了吧，商店有更好的武器
+
