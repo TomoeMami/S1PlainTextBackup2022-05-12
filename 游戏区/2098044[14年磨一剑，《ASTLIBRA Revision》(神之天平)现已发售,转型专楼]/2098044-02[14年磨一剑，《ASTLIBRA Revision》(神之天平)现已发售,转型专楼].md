@@ -9238,3 +9238,19 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  dazzle  
+##### 2308#       发表于 2022-11-19 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58499426&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 08:15</a>
+
+那确实是无敌了
+
+—— 来自 S1Fun</blockquote>
+凭依技两个玩法，一个是尽量堆高消耗堆伤害，终章这阶段剑舞一刀可以好几万，女神这种大体型boss根本不够打的，不到一分钟就没了。另一个是降低消耗，用月光冷弹这种低消耗长时间的技能覆盖无敌时间，适合对付场面乱伤害极高的敌人，也就是新章竞技场的混合双打和1v7
+
+成长在终章点不满是非常正常的，因为后两章非常缺白和绿，能点出剑舞就够用了。到新章终盘都不用特意刷就很容易全满了
+
