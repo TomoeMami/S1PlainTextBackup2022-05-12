@@ -9865,3 +9865,17 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 —— 来自 OPPO PEEM00, Android 12上的 S1Next-鹅版 v2 ...</blockquote>
 看你玩什么流派，玩法师天平上可以任何攻击力词条都不放
 
+
+
+*****
+
+####  慕容断月  
+##### 2361#       发表于 2022-11-19 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58505383&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 17:00</a>
+
+我被火山地下隐藏boss的不过如此这个技能秒了，是什么机制？死了好几次没懂，dps不够？
+
+—— 来自 S1Fun ...</blockquote>
+拔刀五次直接全屏大范围无差别必死攻击，没有解法，只能五次拔刀内打死
+

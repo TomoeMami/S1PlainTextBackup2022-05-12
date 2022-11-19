@@ -1696,3 +1696,17 @@ https:/ ...</blockquote>
 
 寅子给三姐妹卡了八个多小时，无情难度这仨有那么难打吗，应该没女武神国王难吧<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个过路的  
+##### 1659#       发表于 2022-11-19 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58507782&amp;ptid=2025548" target="_blank">CharlieZ- 发表于 2022-11-19 20:07</a>
+
+寅子给三姐妹卡了八个多小时，无情难度这仨有那么难打吗，应该没女武神国王难吧 ...</blockquote>
+我点开看了三次，每次都是死在同一招上，还是理解不对。
+
+而且他之前杀近战boss的时候水平不错，反应速度够，打法也谨慎。打死一个之后莫名其面连续被一招近身小范围黄圈打死，要么是招架大失水准，要么是该滚不滚。
+
