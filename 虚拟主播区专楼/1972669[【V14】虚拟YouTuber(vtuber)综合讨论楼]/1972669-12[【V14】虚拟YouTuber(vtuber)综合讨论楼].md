@@ -1252,3 +1252,12 @@ syl，看到an们前脚说要联合cn玩家/**enkr后脚就有b工商/enkr公告
 
 看到葛跟兔的企划最后一期更新了 一口气看完了……各种意义上都比预期中还要有趣
 
+
+
+*****
+
+####  FCCHua  
+##### 17743#       发表于 2022-11-19 14:43
+
+原来ojj你也知道ow cr杯的平衡有问题啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
