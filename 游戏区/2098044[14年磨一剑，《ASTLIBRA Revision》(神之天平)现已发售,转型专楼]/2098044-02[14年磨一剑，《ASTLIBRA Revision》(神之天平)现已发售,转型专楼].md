@@ -10047,3 +10047,63 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 新章是不是要开始加幸运来刷武器盘了
 
+
+
+*****
+
+####  電子器官依存  
+##### 2376#       发表于 2022-11-19 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58510345&amp;ptid=2098044" target="_blank">Tissuesea 发表于 2022-11-19 22:59</a>
+没啥，看过几篇轻小说之后，树枝和木棒一直是我的RP武器（也许是世界树的树枝什么的～），而且不是说练满 ...</blockquote>
+树枝熟练度很难升，升满之后的技能是加快武器熟练度上涨，锦上添花但是不改变游戏体验。
+
+这个游戏的设计就是本章可以买到的最好武器基本就是本章关底boss的对策，而且前期的装备数值很影响游戏体验。
+树枝只有之后多了饰品和成长点高之后属性堆起来才能用一用，或者等到新章。
+
+*****
+
+####  Rainwedell  
+##### 2377#       发表于 2022-11-19 23:13
+
+ 本帖最后由 Rainwedell 于 2022-11-19 23:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58510470&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-19 23:08</a>
+新章是不是要开始加幸运来刷武器盘了</blockquote>
+其实没有那么大必要，新章那个武器盘爆率处理是有问题的。我专门刷了几次实验，先是不爆，刷够一定数量后爆普通的，又过了一定数量后只要掉盘一定是紫色<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，两次刷我虽然都点了80左右的幸运，但是一次没带装备盘掉落提升饰品，一次带了，最后还是这么个掉法。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  電子器官依存  
+##### 2378#       发表于 2022-11-19 23:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58510470&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-19 23:08</a>
+新章是不是要开始加幸运来刷武器盘了</blockquote>
+没必要，优先推斗技场，推完就什么都有了
+
+*****
+
+####  maojiashu  
+##### 2379#       发表于 2022-11-19 23:15
+
+<blockquote>julia黑 发表于 2022-11-19 22:50
+真结局通关了，别的都好，就是不喜欢强塞的老婆</blockquote>
+？
+
+这游戏别的地方再垃，男女主互相爱到魔怔可是主题。
+
+怎么就强塞了
+
+*****
+
+####  janet_ddr  
+##### 2380#       发表于 2022-11-19 23:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58509126&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-19 21:34</a>
+
+打到第八章太缺金币了，去哪里刷金币好啊</blockquote>
+带挖掘技能和发现隐藏矿脉的技能，然后专门挖最后一两章，出来的红宝石和钻石卖给商店。随便一个都一两千呢。
+
+不过我没有专门刷过钱，都是在刷素材做武器时就搞定金钱了
+
