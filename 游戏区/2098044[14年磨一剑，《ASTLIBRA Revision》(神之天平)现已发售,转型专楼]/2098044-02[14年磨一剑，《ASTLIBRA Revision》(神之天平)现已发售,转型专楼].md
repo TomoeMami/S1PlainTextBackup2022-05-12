@@ -9455,3 +9455,16 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 竞技场这种东西难道不应该是收集要素可打可不打吗…而且也没给啥好东西，要不是卡素材书我都不想 ...</blockquote>
 是可以不打，但是不打会很难呀。
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2325#       发表于 2022-11-19 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58500596&amp;ptid=2098044" target="_blank">北欧王座 发表于 2022-11-19 10:20</a>
+是可以不打，但是不打会很难呀。</blockquote>
+行行行，我现在新章开始了，打吧，打吧…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
