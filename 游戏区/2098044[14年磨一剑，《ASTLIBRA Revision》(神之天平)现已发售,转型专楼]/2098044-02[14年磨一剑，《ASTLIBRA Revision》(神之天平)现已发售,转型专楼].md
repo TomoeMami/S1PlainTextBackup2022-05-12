@@ -9572,3 +9572,31 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  black1991518  
+##### 2335#       发表于 2022-11-19 11:43
+
+都可以打，进了新章打基本信手拈来
+
+*****
+
+####  otakun  
+##### 2336#       发表于 2022-11-19 11:45
+
+我第七章尾就去打了隐藏boss ，刺激得很<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tatara  
+##### 2337#       发表于 2022-11-19 11:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58501512&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 11:39</a>
+
+新章还能打他们吗？而且我有印象的隐藏只有四个，一个在封印城我还不知道怎么进去
+
+—— 来自 S1Fun ...</blockquote>
+能，6个boss分别是火山战神，魔王大陆地下龙王，主城画中魔女，主城井底封印生物，乐园女神，贤者塔邪神
+

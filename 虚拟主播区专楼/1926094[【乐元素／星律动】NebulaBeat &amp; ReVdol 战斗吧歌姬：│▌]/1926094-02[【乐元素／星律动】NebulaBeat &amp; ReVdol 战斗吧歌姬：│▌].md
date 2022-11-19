@@ -10809,3 +10809,12 @@ saku配音18x作品会不会有一种宋丹丹老师下海的感觉？
 
 感觉厂长的动态营业强度已经高过直播员了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 2639#       发表于 2022-11-19 11:49
+
+“出来营业就是为了让厂子好起来，有人觉得我画面太多就太多吧，赚钱不磕碜！”
+
