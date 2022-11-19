@@ -6886,3 +6886,12 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 快把2.7端上来罢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 3629#       发表于 2022-11-20 00:12
+
+先出2.7还是圣诞復刻再新圣诞吗?
+

@@ -10187,3 +10187,16 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
  ...</blockquote>
 进游戏看了一下，这里后期没法再去了，应该就是什么都没有。
 
+
+
+*****
+
+####  電子器官依存  
+##### 2387#       发表于 2022-11-20 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58510826&amp;ptid=2098044" target="_blank">魔法少女大头 发表于 2022-11-19 23:34</a>
+二周目火山这边的箭靶是不是有bug，用浮空飘下去到那边，一举弩就自动取消浮空了。
+
+—— 来自 HUAW ...</blockquote>
+不能按下键
+
