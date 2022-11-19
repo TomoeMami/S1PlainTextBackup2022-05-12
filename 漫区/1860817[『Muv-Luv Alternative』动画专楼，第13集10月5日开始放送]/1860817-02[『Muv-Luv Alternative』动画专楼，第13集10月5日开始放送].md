@@ -108,3 +108,15 @@ Staff里面有二姐厨罢，怎么在这种奇怪的地方这么注重细节。
 
 现在正处于很想找找衍生作和二创来看的中毒期。想问问谭友动画现在有什么还面前能看得过去的单回/战斗部分吗，想稍微看看（虽然从自己之前零星看到的片段来看估计是应该不太有<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hacisiki  
+##### 2012#       发表于 2022-11-20 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58511762&amp;ptid=1860817" target="_blank">圣天辉 发表于 2022-11-20 00:31</a>
+
+刚刚补完原作，EX和UL都推了全结局，现在实在是意犹未尽。也实在是没想到自己人生中第一部完全通关的GAL是M ...</blockquote>
+nico上有不少10年前制作的不错的MAD。另外有日文阅读能力的话[www.mai-net.net](http://www.mai-net.net)这边有不少日本那边的同人文，很多都是老文了。需要梯子。
+

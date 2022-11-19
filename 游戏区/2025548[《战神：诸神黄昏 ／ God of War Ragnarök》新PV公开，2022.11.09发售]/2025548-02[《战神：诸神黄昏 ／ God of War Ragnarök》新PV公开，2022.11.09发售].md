@@ -1740,3 +1740,13 @@ https:/ ...</blockquote>
 
 这代外面墓碑里拉出来的精英怪是对位上一代的女武神吗，容错好低啊
 
+
+
+*****
+
+####  Schwarzess  
+##### 1663#       发表于 2022-11-20 02:35
+
+笑死，赫罗夫王初见过，花样都见过了，还是三人打群架难。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+话说斯考夫农握柄效果是啥啊，说明看不懂。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

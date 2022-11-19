@@ -121,3 +121,31 @@ jmzs这集脚本还行，当然，大概率是系构写好了大框架，只是�
 
 奏大的奇迹型是不是到现在还没吃过瘪来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  上坂莲华  
+##### 760#       发表于 2022-11-20 01:53
+
+ 本帖最后由 上坂莲华 于 2022-11-20 02:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58506333&amp;ptid=2040765" target="_blank">无敌のpeach 发表于 2022-11-19 18:06</a>
+
+我寻思艾斯打这超兽也没那么吃力吧？为啥打萝卜用奇迹，打超兽反而用强劲啊？ ...</blockquote>
+现在的盒子是常态ACE大于德尔塔天爪，德凯不掏强劲说不定打不过
+
+阿里蓬塔好歹脸接过梅塔利姆光线，德凯掏强劲表示尊重不是很正常
+看了眼超兽吧已经开始斗泽塔巴拉巴能不能打双持强劲了，笑死
+
+*****
+
+####  Case  
+##### 761#       发表于 2022-11-20 02:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58506333&amp;ptid=2040765" target="_blank">无敌のpeach 发表于 2022-11-19 18:06</a>
+
+我寻思艾斯打这超兽也没那么吃力吧？为啥打萝卜用奇迹，打超兽反而用强劲啊？ ...</blockquote>
+直接上强劲容易一不小心把博士也搞死吧。
+
+奇迹型的精密度应该还是有个A的。
+

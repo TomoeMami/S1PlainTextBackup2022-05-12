@@ -10252,3 +10252,17 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  dazzle  
+##### 2393#       发表于 2022-11-20 04:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58509980&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-19 22:31</a>
+日文wiki有个刷钱的里技，我用进新章的号试了不成功，要求就是到第八章之后，坛友可以尝试一下
+
+用加2000 ...</blockquote>
+这个里技免费版才有，revision修正了
+一周目缺钱建议带掠夺去第七章山谷刷苍蝇，经验也很多，还能顺便刷绿水晶
+
