@@ -1312,3 +1312,14 @@ syl，看到an们前脚说要联合cn玩家/**enkr后脚就有b工商/enkr公告
 现在是不是vtuber漫画战国时代<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 彩虹有漫画了，holo有漫画了，现在神椿的瓦里斯也要出漫画
 
+
+
+*****
+
+####  梦魇Tsuki  
+##### 17749#       发表于 2022-11-19 20:07
+
+【【绘画过程】要和爱丽丝一起开茶会吗【物述有栖】-哔哩哔哩】 https://b23.tv/xvncB7U
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">可以点进来看看或者给个三连吗，谢谢漏油
+
