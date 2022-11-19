@@ -9279,3 +9279,17 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2311#       发表于 2022-11-19 08:41
+
+ 本帖最后由 ParadiseMartyr 于 2022-11-19 08:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58499407&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-19 08:13</a>
+强的不是伤害，是精力回复速度，新章前没有什么是擒抱加剑舞加能量吸收不能解决的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">多了900血容错一下多了很多。之前精力上限只有300一个技能就不行了，加满之后无论是精力回复速度还是上限都多了很多，一下就割草了，所以我说这水晶消耗还是得改，刷刷刷太痛苦了。
+让玩家过一遍图就能有相对正常的难度这是很合理的要求吧？
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
