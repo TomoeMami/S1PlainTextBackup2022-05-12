@@ -6069,3 +6069,27 @@ DIYたくさんでした
 
 这歌词浓度这么高的吗
 
+
+
+*****
+
+####  嘴上名作粉碎锤  
+##### 472#       发表于 2022-11-19 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58505711&amp;ptid=1994951" target="_blank">RainbowSealife 发表于 2022-11-19 17:24</a>
+
+是帝皇的复仇工具啦！
+
+因为不带某人玩，不高兴又双叒叕不高兴啦 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+也可以是这个啊……
+
+<img src="https://img.saraba1st.com/forum/202211/19/195223fhdf75dta99ox5h9.jpg" referrerpolicy="no-referrer">
+
+<strong>勇士王沙雕图.jpg</strong> (87.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-19 19:52 上传
+
