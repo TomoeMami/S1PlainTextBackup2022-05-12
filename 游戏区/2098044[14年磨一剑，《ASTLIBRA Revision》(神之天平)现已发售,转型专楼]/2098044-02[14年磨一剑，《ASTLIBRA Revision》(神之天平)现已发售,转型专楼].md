@@ -9314,3 +9314,25 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打女武神时候血至少3K到4K了吧，你是全点幸运的那种？
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2314#       发表于 2022-11-19 09:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58499826&amp;ptid=2098044" target="_blank">dazzle 发表于 2022-11-19 09:06</a>
+你是不是体力也不点天平也不弄啊，看了看我在终章女神前面的存档，59级，5200血，487精力，差得也太多了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我43级
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  tpsg  
+##### 2315#       发表于 2022-11-19 09:17
+
+我也是打女神时才2100血，46级，为什么坛友的等级数值都这么高<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
