@@ -10239,3 +10239,16 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来就没法开 这不是机关就是个装饰
 
+
+
+*****
+
+####  Rainwedell  
+##### 2392#       发表于 2022-11-20 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58512305&amp;ptid=2098044" target="_blank">tpsg 发表于 2022-11-20 00:57</a>
+新章第三章，还是只能用木棍，打小怪都有点刮痧，武器的装备盘掉率是不是有问题，盾，饰品，甲倒出了好几个 ...</blockquote>
+是的，体感甲会特别多，可以用最顺手武器的直接强化先打着
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
