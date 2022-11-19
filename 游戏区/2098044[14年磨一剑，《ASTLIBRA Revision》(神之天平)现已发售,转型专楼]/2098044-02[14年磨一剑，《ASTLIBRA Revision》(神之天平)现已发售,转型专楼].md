@@ -9633,3 +9633,15 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 请教一下，这游戏法师是不是比较废，感觉无论怎么加点都没能达到我想要的攻击
 
+
+
+*****
+
+####  tsubaki  
+##### 2341#       发表于 2022-11-19 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58503278&amp;ptid=2098044" target="_blank">ChengChung 发表于 2022-11-19 14:09</a>
+
+请教一下，这游戏法师是不是比较废，感觉无论怎么加点都没能达到我想要的攻击 ...</blockquote>
+法师完全成型得二周拿到法杖加速的徽章，一周随便玩玩就行，魔力影响凭依输出，点了没事
+
