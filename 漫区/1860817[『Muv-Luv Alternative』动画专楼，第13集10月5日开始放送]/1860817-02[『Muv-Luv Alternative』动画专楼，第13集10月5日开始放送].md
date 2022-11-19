@@ -80,3 +80,20 @@ image.png
 管人扭扭捏捏的也不知道要搞个啥，难道要在甲21作战里原创出一集让她发挥吗 ...</blockquote>
 根据我对OP的理解，应该会送吧。毕竟甲21损失的其他2台女武神不知火都是驾驶舱全毁。
 
+
+
+*****
+
+####  灰谷真实  
+##### 2010#       发表于 2022-11-19 20:20
+
+<img src="https://img.saraba1st.com/forum/202211/19/202024zn7xmlnk7io32nz3.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (71.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-19 20:20 上传
+
+Staff里面有二姐厨罢，怎么在这种奇怪的地方这么注重细节。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
