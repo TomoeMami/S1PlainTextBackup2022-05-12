@@ -9379,3 +9379,42 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 我也没刷多少，就把全武器防具练满为止，这游戏因为原本是按章节发布，平衡基本就是按当前章节全要素收集做的，全收完了就会觉得难度不高甚至无双
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2319#       发表于 2022-11-19 10:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58500003&amp;ptid=2098044" target="_blank">dazzle 发表于 2022-11-19 09:26</a>
+等级并不是主要的，你有把体力点到衰减吗？差16级最多也就差出1000血吧
+
+还有天平有没有调配一个起码带最大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我只有三个饰品
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ParadiseMartyr  
+##### 2320#       发表于 2022-11-19 10:06
+
+ 本帖最后由 ParadiseMartyr 于 2022-11-19 10:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58500003&amp;ptid=2098044" target="_blank">dazzle 发表于 2022-11-19 09:26</a>
+等级并不是主要的，你有把体力点到衰减吗？差16级最多也就差出1000血吧
+
+还有天平有没有调配一个起码带最大 ...</blockquote>
+我天平整了最大体力极也就2100
+心天平又是什么东西
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ParadiseMartyr  
+##### 2321#       发表于 2022-11-19 10:06
+
+卡了俩小时我实在受不了了99999攻击给干了，有点烦了说实话
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
