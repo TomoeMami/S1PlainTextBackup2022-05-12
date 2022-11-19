@@ -3785,3 +3785,60 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 中了ag各一<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 9306#       发表于 2022-11-19 21:03
+
+摆得彻底，3rd还有两周开始运营完全不宣传，连练习视频都不放一个<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/19/210217m1yrxrmmz9yybkm1.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221119204812.png</strong> (93.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-19 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202211/19/210226qf79t5fih75t9zez.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221119205856.png</strong> (89.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-19 21:02 上传
+
+<img src="https://img.saraba1st.com/forum/202211/19/210231uwk0epemw8or3ish.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221119204624.png</strong> (82.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-19 21:02 上传
+
+うにゃ@unyanai
+
+<img src="https://img.saraba1st.com/forum/202211/19/210246x252xk6z3uu5jxnp.jpg" referrerpolicy="no-referrer">
+
+<strong>Fh6_PMNaYAA_E_l.jpg</strong> (97.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-19 21:02 上传
+
+*****
+
+####  lj205  
+##### 9307#       发表于 2022-11-19 21:09
+
+自从二期加进来貌似一次练习都没放过，当年一期生靠练习视频都吸引了一波人的眼光
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9308#       发表于 2022-11-19 21:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">早就开摆了
+
