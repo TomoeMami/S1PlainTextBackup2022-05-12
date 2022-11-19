@@ -6866,3 +6866,14 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 你在说啥怪话，对面那些buf ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不大 我以为白字能回避
 
+
+
+*****
+
+####  千叶铁矢  
+##### 3627#       发表于 2022-11-19 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58504683&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-11-19 16:05</a>
+你在说啥怪话，对面那些buf ...</blockquote>
+刚才也一口气打了好几个高难，不想动脑子全是摩呆梅打的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

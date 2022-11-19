@@ -1281,3 +1281,15 @@ syl，看到an们前脚说要联合cn玩家/**enkr后脚就有b工商/enkr公告
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看分组平衡还不如hinano自定义就去宝了，怎么炎的五花八门的。
 真是黑暗游戏。
 
+
+
+*****
+
+####  FCCHua  
+##### 17746#       发表于 2022-11-19 17:21
+
+ 本帖最后由 FCCHua 于 2022-11-19 17:26 编辑 
+
+确实有评论在说这次cr杯平衡做的还不如hnn的自定义娱乐赛，D组肉眼可见的弱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+“天选之子”A队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
