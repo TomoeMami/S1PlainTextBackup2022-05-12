@@ -713,3 +713,22 @@ dirty pair，我还找来看过两集，起因是看过本子...
 本月电子月刊外传主角居然真赢了，活了那么久只斩了 ...</blockquote>
 最终回该会作为SIN成员被夜露露一刀劈了吧？
 
+
+
+*****
+
+####  Rincewind  
+##### 67#       发表于 2022-11-19 11:28
+
+看到新联动消息的模特三人组.jpg
+
+[https://twitter.com/nattou808/status/1593617387064266753](https://twitter.com/nattou808/status/1593617387064266753)
+
+<img src="https://img.saraba1st.com/forum/202211/19/112839w331ijkboiu83tuu.jpg" referrerpolicy="no-referrer">
+
+<strong>Fh2qZRRacAATP8q.jpg</strong> (86.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-19 11:28 上传
+

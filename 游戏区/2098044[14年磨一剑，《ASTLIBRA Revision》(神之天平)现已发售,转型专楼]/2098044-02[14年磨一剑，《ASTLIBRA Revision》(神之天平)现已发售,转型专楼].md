@@ -9506,3 +9506,37 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  helix  
+##### 2329#       发表于 2022-11-19 11:21
+
+斗技场光是饰品槽位就值得打了，何况做高级装备还必须要合成书，基本属于不打不行
+
+*****
+
+####  dazzle  
+##### 2330#       发表于 2022-11-19 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58501273&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 11:18</a>
+
+隐藏boss数值正常流程根本没法打啊，我到乐园那儿的隐藏boss打不过就滚了，以为是之后再来的地方 ...</blockquote>
+好像第8章开头吧，鸟哥会提示你现在是时候去把以前遇到的那些神干掉了，那时候去打就没什么太大难度了
+
+你可以先继续推新章，记得是到了东京就能随意传送了，然后就可以想打啥就打啥，任何武器装了装备盘都会变成差不多的强度，可以一直用到最后换老婆的光剑
+
+*****
+
+####  ParadiseMartyr  
+##### 2331#       发表于 2022-11-19 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58501369&amp;ptid=2098044" target="_blank">dazzle 发表于 2022-11-19 11:26</a>
+好像第8章开头吧，鸟哥会提示你现在是时候去把以前遇到的那些神干掉了，那时候去打就没什么太大难度了
+
+你 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">装备盘是新章新系统吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
