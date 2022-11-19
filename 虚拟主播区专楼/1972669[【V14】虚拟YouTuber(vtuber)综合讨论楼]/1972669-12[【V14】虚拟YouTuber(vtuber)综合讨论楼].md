@@ -1323,3 +1323,12 @@ syl，看到an们前脚说要联合cn玩家/**enkr后脚就有b工商/enkr公告
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">可以点进来看看或者给个三连吗，谢谢漏油
 
+
+
+*****
+
+####  CielChloe  
+##### 17750#       发表于 2022-11-19 23:43
+
+爬完楼标记个，多的不说了，就说下我现在真的期待镝木ろこ出道，之前没关注感觉错过一个亿好吧
+
