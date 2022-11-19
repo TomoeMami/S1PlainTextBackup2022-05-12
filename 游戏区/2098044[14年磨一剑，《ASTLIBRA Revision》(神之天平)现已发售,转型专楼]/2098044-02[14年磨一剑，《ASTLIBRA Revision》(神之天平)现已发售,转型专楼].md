@@ -9540,3 +9540,35 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tsubaki  
+##### 2332#       发表于 2022-11-19 11:32
+
+梦神打完才是新章，他不是说打不过女武神么
+
+你先把斗技场包括铁娘子的全打完再说吧，拿完一周最强武器弑神剑女武神基本随便打
+
+*****
+
+####  tatara  
+##### 2333#       发表于 2022-11-19 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58501273&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 11:18</a>
+
+隐藏boss数值正常流程根本没法打啊，我到乐园那儿的隐藏boss打不过就滚了，以为是之后再来的地方 ...</blockquote>
+实际上打女神之前就是游戏默认安排要你去把那6个boss干掉的时间点了，不说义父剧情会提示你，你暂停游戏打开菜单时下面的目标也是在说要你去挑战众神做好准备
+
+*****
+
+####  ParadiseMartyr  
+##### 2334#       发表于 2022-11-19 11:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58501432&amp;ptid=2098044" target="_blank">tatara 发表于 2022-11-19 11:32</a>
+实际上打女神之前就是游戏默认安排要你去把那6个boss干掉的时间点了，不说义父剧情会提示你，你暂停游戏 ...</blockquote>
+新章还能打他们吗？而且我有印象的隐藏只有四个，一个在封印城我还不知道怎么进去
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
