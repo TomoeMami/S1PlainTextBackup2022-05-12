@@ -1657,3 +1657,33 @@ https:/ ...</blockquote>
 
 换成其他游戏两小时肯定要歇逼一会 
 
+
+
+*****
+
+####  NegativeRamos  
+##### 1655#       发表于 2022-11-19 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58506365&amp;ptid=2025548" target="_blank">percy1234 发表于 2022-11-19 18:08</a>
+是不是落水洞那条路的，别跳下去，在上面能找到另一条路去昼夜切换的水池 ...</blockquote>
+不是，大概在平原那里，旁边是矮人铁匠铺，和一个大坑打龙的。
+
+*****
+
+####  NegativeRamos  
+##### 1656#       发表于 2022-11-19 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58506315&amp;ptid=2025548" target="_blank">Mikumiku831 发表于 2022-11-19 18:05</a>
+调到黑夜 然后划船到后面就行</blockquote>
+在左边平原部分，旁边是矮人铁匠。
+黑夜划船是要去打龙的坑地，打完以后开门联通大地图，但是那个平台还是上不去，一靠近就能听见上面有敌人在念咒
+
+*****
+
+####  NegativeRamos  
+##### 1657#       发表于 2022-11-19 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58506315&amp;ptid=2025548" target="_blank">Mikumiku831 发表于 2022-11-19 18:05</a>
+调到黑夜 然后划船到后面就行</blockquote>
+擦，明白了，原来有个滑索
+
