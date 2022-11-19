@@ -1271,3 +1271,13 @@ syl，看到an们前脚说要联合cn玩家/**enkr后脚就有b工商/enkr公告
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nrk这自爆ow2队伍人选是出场者定的还行，被炎上了吧
 考虑到mondo是替原来的500强代打的，a队还同步出了ow的联动t恤，关桑也说过他想进评议会，队伍人选主导就在a队里吧
 
+
+
+*****
+
+####  Kokichi  
+##### 17745#       发表于 2022-11-19 17:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看分组平衡还不如hinano自定义就去宝了，怎么炎的五花八门的。
+真是黑暗游戏。
+
