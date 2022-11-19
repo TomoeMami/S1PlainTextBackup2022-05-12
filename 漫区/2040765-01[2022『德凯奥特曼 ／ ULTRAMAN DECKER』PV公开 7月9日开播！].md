@@ -112,3 +112,12 @@ jmzs这集脚本还行，当然，大概率是系构写好了大框架，只是�
 
 —— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  scorbian  
+##### 759#       发表于 2022-11-20 01:30
+
+奏大的奇迹型是不是到现在还没吃过瘪来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
