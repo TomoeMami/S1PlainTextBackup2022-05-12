@@ -687,3 +687,29 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 —— 来自 Xiaomi Redmi K30i 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  LEOKO~  
+##### 65#       发表于 2022-11-19 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58493431&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2022-11-18 20:04</a>
+
+剧场版机设好像还是明贵美加，不过gear可能还是海老川
+
+本月电子月刊外传主角居然真赢了，活了那么久只斩了 ...</blockquote>
+最终回该会作为SIN成员被夜露露一刀劈了吧？
+
+*****
+
+####  LEOKO~  
+##### 66#       发表于 2022-11-19 10:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58493431&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2022-11-18 20:04</a>
+
+剧场版机设好像还是明贵美加，不过gear可能还是海老川
+
+本月电子月刊外传主角居然真赢了，活了那么久只斩了 ...</blockquote>
+最终回该会作为SIN成员被夜露露一刀劈了吧？
+
