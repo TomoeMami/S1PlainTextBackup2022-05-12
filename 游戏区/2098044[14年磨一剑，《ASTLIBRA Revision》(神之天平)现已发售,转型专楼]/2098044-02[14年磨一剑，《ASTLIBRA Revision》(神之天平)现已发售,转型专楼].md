@@ -10025,3 +10025,16 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 真结局通关了，别的都好，就是不喜欢强塞的老婆
 
+
+
+*****
+
+####  Tissuesea  
+##### 2374#       发表于 2022-11-19 22:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58510011&amp;ptid=2098044" target="_blank">電子器官依存 发表于 2022-11-19 22:33</a>
+树枝换了吧，商店有更好的武器</blockquote>
+没啥，看过几篇轻小说之后，树枝和木棒一直是我的RP武器（也许是世界树的树枝什么的～），而且不是说练满送的技能还好吗
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
