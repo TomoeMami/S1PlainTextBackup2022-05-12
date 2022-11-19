@@ -1622,3 +1622,21 @@ https:/ ...</blockquote>
 
 求教，华纳海姆支线大地图有个高台找不到地方上去，上面有赛德战士在念咒
 
+
+
+*****
+
+####  Mikumiku831  
+##### 1652#       发表于 2022-11-19 18:05
+
+调到黑夜 然后划船到后面就行
+
+*****
+
+####  percy1234  
+##### 1653#       发表于 2022-11-19 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58506236&amp;ptid=2025548" target="_blank">NegativeRamos 发表于 2022-11-19 18:01</a>
+求教，华纳海姆支线大地图有个高台找不到地方上去，上面有赛德战士在念咒 ...</blockquote>
+是不是落水洞那条路的，别跳下去，在上面能找到另一条路去昼夜切换的水池
+
