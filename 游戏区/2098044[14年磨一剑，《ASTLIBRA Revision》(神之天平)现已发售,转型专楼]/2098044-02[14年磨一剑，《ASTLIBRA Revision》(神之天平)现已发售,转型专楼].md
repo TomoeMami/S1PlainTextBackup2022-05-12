@@ -9747,3 +9747,23 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tsubaki  
+##### 2350#       发表于 2022-11-19 17:02
+
+狂暴带着莽，开技就剑舞后撤，然后继续莽，三波还没死你可以重开了
+
+*****
+
+####  ParadiseMartyr  
+##### 2351#       发表于 2022-11-19 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58505396&amp;ptid=2098044" target="_blank">tsubaki 发表于 2022-11-19 17:02</a>
+狂暴带着莽，开技就剑舞后撤，然后继续莽，三波还没死你可以重开了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有个啥装备把我狂暴效果改了，我找不到是哪个装备
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
