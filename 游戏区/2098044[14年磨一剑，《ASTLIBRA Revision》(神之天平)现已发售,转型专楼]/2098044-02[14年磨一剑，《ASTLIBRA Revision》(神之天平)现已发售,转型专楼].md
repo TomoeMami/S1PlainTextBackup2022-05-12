@@ -9479,3 +9479,30 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  dazzle  
+##### 2327#       发表于 2022-11-19 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58500585&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 10:19</a>
+
+竞技场这种东西难道不应该是收集要素可打可不打吗…而且也没给啥好东西，要不是卡素材书我都不想 ...</blockquote>
+竞技场是必打的。这是这个游戏做得不好的地方之一，把很多非常重要的道具技能放在看似可选的地方，实际上你不去弄就会难很多
+
+心天平是全隐藏boss打完用竞技场得到的合成书合成变石，去面包店交换的。全收集你参考这个看看吧，[https://www.bilibili.com/read/cv19614905?spm_id_from=333.999.0.0](https://www.bilibili.com/read/cv19614905?spm_id_from=333.999.0.0)
+
+你进了新章了，可以先随缘用刷到的装备盘，弄出来一套带装备盘的顺手武器防具，强化到+20左右，基本就能打通竞技场了，拿到keizo徽章再去推完剧情就没什么难度了
+
+*****
+
+####  ParadiseMartyr  
+##### 2328#       发表于 2022-11-19 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58501227&amp;ptid=2098044" target="_blank">dazzle 发表于 2022-11-19 11:14</a>
+竞技场是必打的。这是这个游戏做得不好的地方之一，把很多非常重要的道具技能放在看似可选的地方，实际上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">隐藏boss数值正常流程根本没法打啊，我到乐园那儿的隐藏boss打不过就滚了，以为是之后再来的地方，谁知道这以后再来就到了新章
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
