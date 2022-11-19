@@ -6841,3 +6841,16 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 94池满破4张，不过都是缺骨头，大概刷到150池就自回体了。
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3625#       发表于 2022-11-19 16:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58466552&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-16 20:42</a>
+
+我打的时候把那个取消克制给了王姐 全程打的白字 还行吧  就是打了2x回合 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你在说啥怪话，对面那些buff都是登场就赋予的啊，必白字啊……
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚刚一口气打完7个超高难，今年这难度不怎么行啊……
+

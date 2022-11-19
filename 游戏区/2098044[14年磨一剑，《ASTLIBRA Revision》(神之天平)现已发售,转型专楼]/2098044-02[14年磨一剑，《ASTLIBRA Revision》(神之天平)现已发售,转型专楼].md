@@ -9699,3 +9699,12 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  tsubaki  
+##### 2345#       发表于 2022-11-19 16:10
+
+魔神稿带满去盖亚挖矿，就刷前两层，34效率有点低
+
