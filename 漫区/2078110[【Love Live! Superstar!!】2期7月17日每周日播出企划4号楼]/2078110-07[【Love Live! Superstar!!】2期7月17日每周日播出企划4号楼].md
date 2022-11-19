@@ -3862,3 +3862,14 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 鱼和她们发推都少了，在排练就行了。之前二期动画前也没啥宣传，马后炮来说那动画质量还是别宣传好了。3rd这个，有个倒计时就算胜利
 
+
+
+*****
+
+####  愛さ実  
+##### 9311#       发表于 2022-11-20 00:37
+
+突击外景有没有<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
