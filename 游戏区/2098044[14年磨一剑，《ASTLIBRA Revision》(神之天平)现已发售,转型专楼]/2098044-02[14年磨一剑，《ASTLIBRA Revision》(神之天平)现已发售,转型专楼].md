@@ -9254,3 +9254,28 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 成长在终章点不满是非常正常的，因为后两章非常缺白和绿，能点出剑舞就够用了。到新章终盘都不用特意刷就很容易全满了
 
+
+
+*****
+
+####  gogoex  
+##### 2309#       发表于 2022-11-19 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58490084&amp;ptid=2098044" target="_blank">leonyang19 发表于 2022-11-18 16:21:46</a></blockquote>😂挺简单的啊
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  redsouris  
+##### 2310#       发表于 2022-11-19 08:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58499209&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 07:21</a>
+中等难度啊啊啊
+
+—— 来自 S1Fun</blockquote>
+中等难度把凭依技相关的几个被动装了，什么消耗翻倍伤害翻倍、全ST消耗提升伤害，女神二阶段这样的大体型怪根本吃不了几下。
+回精靠擒抱…
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
