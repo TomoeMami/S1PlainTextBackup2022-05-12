@@ -9726,3 +9726,24 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  h33  
+##### 2348#       发表于 2022-11-19 16:51
+
+这游戏只有两个难度，就是凭依能时停和不能。
+荒谬难度下还挺难的。
+
+*****
+
+####  ParadiseMartyr  
+##### 2349#       发表于 2022-11-19 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58503358&amp;ptid=2098044" target="_blank">tsubaki 发表于 2022-11-19 14:17</a>
+法师完全成型得二周拿到法杖加速的徽章，一周随便玩玩就行，魔力影响凭依输出，点了没事 ...</blockquote>
+我被火山地下隐藏boss的不过如此这个技能秒了，是什么机制？死了好几次没懂，dps不够？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
