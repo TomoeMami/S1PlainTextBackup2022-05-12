@@ -9293,3 +9293,24 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 让玩家过一遍图就能有相对正常的难度这是很合理的要求吧？
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  dazzle  
+##### 2312#       发表于 2022-11-19 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58499627&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 08:41</a>
+
+还是打不过。然后ce了水晶把四级技能之前所有点都点上了，终于没那么变态了。我之前只有2100的血[ ...</blockquote>
+你是不是体力也不点天平也不弄啊，看了看我在终章女神前面的存档，59级，5200血，487精力，差得也太多了
+
+成长我到这的时候右上也是只开了两三排的
+
+*****
+
+####  tsubaki  
+##### 2313#       发表于 2022-11-19 09:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打女武神时候血至少3K到4K了吧，你是全点幸运的那种？
+
