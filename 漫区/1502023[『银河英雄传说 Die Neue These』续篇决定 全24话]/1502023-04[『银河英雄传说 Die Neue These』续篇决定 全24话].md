@@ -32,3 +32,15 @@
 我看着觉得好有姜维的既视感</blockquote>
 姜维在政治上还是比不过尤里安的吧
 
+
+
+*****
+
+####  liu461  
+##### 5541#       发表于 2022-11-19 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58498634&amp;ptid=1502023" target="_blank">roxas.sora 发表于 2022-11-19 02:02</a>
+
+我看着觉得好有姜维的既视感</blockquote>
+姜维搞团结能力不行，北伐到后来连廖化这种基本盘都绷不住了，而且用兵要么大胜王经要么大败段谷，这用兵作风也很不尤利安
+

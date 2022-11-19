@@ -9645,3 +9645,28 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 请教一下，这游戏法师是不是比较废，感觉无论怎么加点都没能达到我想要的攻击 ...</blockquote>
 法师完全成型得二周拿到法杖加速的徽章，一周随便玩玩就行，魔力影响凭依输出，点了没事
 
+
+
+*****
+
+####  wolfwood  
+##### 2342#       发表于 2022-11-19 14:39
+
+还差2个技能不知道在哪学，神医下面那个和最后一个。另外大贤者说收集完之后要给我礼物，但我现在图纸上能买的都买了，竞技场也清完了，实在不知道还差什么武器装备没弄到，大概升级星盘里面还藏着装备？
+
+<img src="https://img.saraba1st.com/forum/202211/19/143745wjffj6nf68tftf3n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (48.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-19 14:37 上传
+
+<img src="https://img.saraba1st.com/forum/202211/19/143810ui0d9dbjdezzdizg.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-19 14:38 上传
+
