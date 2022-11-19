@@ -36,3 +36,19 @@
 
 下集再不暴露身份就说不过去了
 
+
+
+*****
+
+####  roxas.sora  
+##### 751#       发表于 2022-11-19 13:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这集是把某人绑起来写剧本还是给他灌了很多药，为什么看着我觉得挺正常的
+
+*****
+
+####  KOPKOM  
+##### 752#       发表于 2022-11-19 13:28
+
+现在一听到王大伯之歌就会想起山中队员的未婚妻们<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
