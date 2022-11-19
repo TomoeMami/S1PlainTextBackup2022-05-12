@@ -9947,3 +9947,33 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Quelaan  
+##### 2368#       发表于 2022-11-19 22:23
+
+渔村教堂底下的这个地板怎么开啊，我用炸弹炸不开，就打完蛇神孩子后面那地方
+
+<img src="https://img.saraba1st.com/forum/202211/19/222347n36fim2ee1s0wil1.png" referrerpolicy="no-referrer">
+
+<strong>MXF0GE7COUC1TY00I`[YH`K.png</strong> (322.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-19 22:23 上传
+
+*****
+
+####  電子器官依存  
+##### 2369#       发表于 2022-11-19 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58509289&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 21:45</a>
+镇子里那个需要钥匙开门的地方怎么开啊，都到新章了…
+
+—— 来自 S1Fun</blockquote>
+哥布林石板，后面还有一扇是地牢钥匙
+
+哥布林石板可以开大部份的隐藏门
+
