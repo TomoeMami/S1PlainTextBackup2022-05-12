@@ -10211,3 +10211,31 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 — from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  adw667  
+##### 2389#       发表于 2022-11-20 00:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">困难打完第三章体会到什么叫刮之天平了，成长树点完了照样刮
+
+*****
+
+####  tpsg  
+##### 2390#       发表于 2022-11-20 00:57
+
+新章第三章，还是只能用木棍，打小怪都有点刮痧，武器的装备盘掉率是不是有问题，盾，饰品，甲倒出了好几个。幸运70，也戴了加爆率的饰品
+
+*****
+
+####  cym887  
+##### 2391#       发表于 2022-11-20 00:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58509882&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-19 22:23</a>
+
+渔村教堂底下的这个地板怎么开啊，我用炸弹炸不开，就打完蛇神孩子后面那地方
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">本来就没法开 这不是机关就是个装饰
+
