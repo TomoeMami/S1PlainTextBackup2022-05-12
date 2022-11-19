@@ -52,3 +52,12 @@
 
 现在一听到王大伯之歌就会想起山中队员的未婚妻们<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  memo2  
+##### 753#       发表于 2022-11-19 13:57
+
+唯千夏巴掌和停车场对话我觉得还是很久弥直树的……感谢坂本打戏拉满压缩了文戏部分<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
