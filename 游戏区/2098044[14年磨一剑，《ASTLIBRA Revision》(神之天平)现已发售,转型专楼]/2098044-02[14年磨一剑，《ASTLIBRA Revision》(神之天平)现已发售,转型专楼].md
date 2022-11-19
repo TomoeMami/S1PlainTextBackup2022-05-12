@@ -9192,3 +9192,25 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 主要魔导水晶总共就104个.
 
+
+
+*****
+
+####  otakun  
+##### 2304#       发表于 2022-11-19 08:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58499221&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 07:26</a>
+关键能量吸收你也得有精力放凭依才行你正常损血后肯定得嗑药挑战时间长了它那药又不自动回 ...</blockquote>
+装个增加受伤后无敌时间的被动。后期不是有擒抱吗，就是空中冲刺附带伤害的那个，拿了之后整个游戏的性质都变了，神也是虐杀，药都不用吃了。
+
+*****
+
+####  ParadiseMartyr  
+##### 2305#       发表于 2022-11-19 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58499374&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-19 08:07</a>
+装个增加受伤后无敌时间的被动。后期不是有擒抱吗，就是空中冲刺附带伤害的那个，拿了之后整个游戏的性质 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">空中擒抱那么变态？试试
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
