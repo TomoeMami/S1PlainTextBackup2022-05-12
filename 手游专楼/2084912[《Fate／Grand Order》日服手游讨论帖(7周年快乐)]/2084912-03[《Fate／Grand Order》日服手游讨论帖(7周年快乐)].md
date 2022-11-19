@@ -6877,3 +6877,12 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 你在说啥怪话，对面那些buf ...</blockquote>
 刚才也一口气打了好几个高难，不想动脑子全是摩呆梅打的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 3628#       发表于 2022-11-19 20:33
+
+快把2.7端上来罢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
