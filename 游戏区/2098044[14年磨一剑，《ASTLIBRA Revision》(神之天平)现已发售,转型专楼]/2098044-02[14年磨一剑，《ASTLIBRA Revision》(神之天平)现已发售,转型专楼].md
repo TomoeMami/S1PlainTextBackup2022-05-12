@@ -9214,3 +9214,27 @@ ex map 。 剧情是8章时来打的强度 ，提前打算是额外挑战</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  otakun  
+##### 2306#       发表于 2022-11-19 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58499380&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 08:08</a>
+空中擒抱那么变态？试试
+
+—— 来自 S1Fun</blockquote>
+强的不是伤害，是精力回复速度，新章前没有什么是擒抱加剑舞加能量吸收不能解决的
+
+*****
+
+####  ParadiseMartyr  
+##### 2307#       发表于 2022-11-19 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58499407&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-19 08:13</a>
+强的不是伤害，是精力回复速度，新章前没有什么是擒抱加剑舞加能量吸收不能解决的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那确实是无敌了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
