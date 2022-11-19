@@ -10107,3 +10107,18 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 不过我没有专门刷过钱，都是在刷素材做武器时就搞定金钱了
 
+
+
+*****
+
+####  julia黑  
+##### 2381#       发表于 2022-11-19 23:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58510554&amp;ptid=2098044" target="_blank">maojiashu 发表于 2022-11-19 23:15</a>
+？
+
+这游戏别的地方再垃，男女主互相爱到魔怔可是主题。
+
+怎么就强塞了</blockquote>
+就是这个魔怔劲，难以理解，更难代入，女主刻画太少了，相比一路伴随的黑白我对她一点好感都没有
+
