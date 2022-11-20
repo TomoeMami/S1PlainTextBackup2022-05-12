@@ -3994,3 +3994,19 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  cybernetics31  
+##### 9320#       发表于 2022-11-20 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 9321#       发表于 2022-11-20 17:28
+
+这大腿有点还原<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

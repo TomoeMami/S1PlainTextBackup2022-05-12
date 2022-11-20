@@ -1152,3 +1152,12 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 未来的2000硬币一个圣杯，直接当不存在了，<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，
 
+
+
+*****
+
+####  DET  
+##### 43747#       发表于 2022-11-20 17:22
+
+高杉明年日服唠唠叨叨会落地吗，这么帅的立绘不实装可惜了
+

@@ -10459,3 +10459,14 @@ free版宝箱是直接给装备的，刷砂糖做啥
 —— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 ...</blockquote>
 开合成列表
 
+
+
+*****
+
+####  jellyhero  
+##### 2409#       发表于 2022-11-20 17:31
+
+刚刚从steam安装了游戏，有人能告诉我进去就全屏只显示1/4屏的内容，然后试着运行几下就花屏退了是什么情况吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN50, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
