@@ -1185,3 +1185,17 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 —— 来自 HUAWEI JAD-AL50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  J-002  
+##### 43750#       发表于 2022-11-20 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58524804&amp;ptid=1712412" target="_blank">Tequila_R 发表于 2022-11-20 19:05</a>
+
+真心觉得不如落地高杉好友里肯定会有妹子抽爆的。出云阿国连男玩家都没几个人抽啊
+
+—— 来自 HUA ...</blockquote>
+咕达咕哒出新卫星死活不落地也是传统了
+

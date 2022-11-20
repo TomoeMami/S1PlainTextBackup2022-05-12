@@ -10581,3 +10581,17 @@ free版砂糖很容易出，打垃圾桶都有<img src="https://static.saraba1st
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  魔法少女大头  
+##### 2418#       发表于 2022-11-20 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58519517&amp;ptid=2098044" target="_blank">希望之异热同心 发表于 2022-11-20 14:54</a>
+男女主真是魔怔纯爱党，女主因为男主去找义父了魔怔把世界灭了，男主死了老婆第一次发怒把神灭了，真正的纯 ...</blockquote>
+女主的魔怔还是能够理解的，本来就不是个正常人，然后大着肚子男人跑了，不疯才不正常。
+倒是男主的执着显得有点魔怔 。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
