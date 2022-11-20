@@ -4078,3 +4078,15 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ruffian  
+##### 9328#       发表于 2022-11-20 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58524839&amp;ptid=2078110" target="_blank">starring 发表于 2022-11-20 19:08:35</a>
+10万播放量达成</blockquote>v家是这样算的，10w殿堂，100w传说，1000w神话
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
