@@ -10899,3 +10899,15 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 风怒
 
+
+
+*****
+
+####  希望之异热同心  
+##### 2444#       发表于 2022-11-21 01:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58528674&amp;ptid=2098044" target="_blank">bayes 发表于 2022-11-20 23:00</a>
+
+卡在了第三章boss火神这里，这游戏boss血真是厚啊，尽管只是普通难度，但我这伤害也太刮痧了吧，我 ...</blockquote>
+火山的BOSS我都是拿雷杖远程霹雷霹死的。。。
+

@@ -1344,3 +1344,22 @@ max小只了(
 —— 来自 Xiaomi 2112123AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 话说宫本侑芽客串拍摄Sabera&amp;Durandal外传的时期是几月份？
 
+
+
+*****
+
+####  lucasxp  
+##### 110#       发表于 2022-11-21 02:38
+
+六花这腿还有救吗，一去不复返了
+
+*****
+
+####  左凉川  
+##### 111#       发表于 2022-11-21 02:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58523967&amp;ptid=2032441" target="_blank">CALPISSODA 发表于 2022-11-20 18:16</a>
+
+好奇剧场版六花和内海还能有啥作用，Dynazenon组全员都要再上机的吧，剩下这两又在电脑前做啦啦队兼解说么 ...</blockquote>
+古利特作为特摄ip，有那么一两个致敬奥特曼的基地指挥防卫队员角色无可厚非<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

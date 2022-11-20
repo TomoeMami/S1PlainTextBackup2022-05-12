@@ -1330,3 +1330,14 @@ tx代理，当然有中文</blockquote>
 </blockquote>
 看这个up的视频就知道什么的聚集地，不就专搬爱看的嘛。
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 138#       发表于 2022-11-21 03:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58524178&amp;ptid=2103199" target="_blank">双刀少女 发表于 2022-11-20 18:27</a>
+申版号前就和bn签了代理合同，甚至有一部分（国服）开发内容都是tx负责的，况且也不是今年的事情了[f:261 ...</blockquote>
+有消息源么？
+
