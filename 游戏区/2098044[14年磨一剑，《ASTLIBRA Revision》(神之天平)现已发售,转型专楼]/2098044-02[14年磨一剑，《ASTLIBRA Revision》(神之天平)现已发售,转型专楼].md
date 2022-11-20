@@ -10723,3 +10723,12 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 —— 来自 HUAWEI WLZ-AL10, Andr ...</blockquote>
 还自带长大能力吗
 
+
+
+*****
+
+####  adw667  
+##### 2430#       发表于 2022-11-20 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">困难开完第四章的成长树感觉数值开始赶上来了，打蛇神基本就是互相刮痧
+
