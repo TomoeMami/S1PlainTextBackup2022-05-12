@@ -10427,3 +10427,21 @@ free版宝箱是直接给装备的，刷砂糖做啥<img src="https://static.sar
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  慕容断月  
+##### 2407#       发表于 2022-11-20 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58517740&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-11-20 12:55</a>
+
+全程就通关。年度独立游戏首席。
+
+缺点:后期数值膨胀，导致新章五连战还不如终章三连有成就感。
+
+美术的瑕疵 ...</blockquote>
+音乐都是站在巨人的肩膀上的，选的曲子都是有名作曲家现成的曲子（直接拿授权）
+
+所以音乐的加分其实很微妙，但是选曲选的真的好，每个点都很合适
+
