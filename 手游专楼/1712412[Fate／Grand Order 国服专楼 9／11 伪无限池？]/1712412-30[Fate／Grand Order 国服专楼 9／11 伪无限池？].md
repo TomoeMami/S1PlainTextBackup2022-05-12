@@ -1161,3 +1161,14 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 高杉明年日服唠唠叨叨会落地吗，这么帅的立绘不实装可惜了
 
+
+
+*****
+
+####  khxooo  
+##### 43748#       发表于 2022-11-20 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58522847&amp;ptid=1712412" target="_blank">DET 发表于 2022-11-20 17:22</a>
+高杉明年日服唠唠叨叨会落地吗，这么帅的立绘不实装可惜了</blockquote>
+不会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

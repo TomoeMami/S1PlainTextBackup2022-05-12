@@ -10516,3 +10516,34 @@ free版宝箱是直接给装备的，刷砂糖做啥
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  codecloud  
+##### 2414#       发表于 2022-11-20 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58521102&amp;ptid=2098044" target="_blank">慕容断月 发表于 2022-11-20 16:22</a>
+
+音乐都是站在巨人的肩膀上的，选的曲子都是有名作曲家现成的曲子（直接拿授权）
+
+所以音乐的加分其实很微 ...</blockquote>
+直接作者拿授权?
+
+我还以为这个游戏的音乐是作者从各种共享资源站拿的共享授权资源.
+
+原来是买的音乐作者的授权?
+
+*****
+
+####  syndrome2032  
+##### 2415#       发表于 2022-11-20 18:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58523573&amp;ptid=2098044" target="_blank">codecloud 发表于 2022-11-20 17:57</a>
+直接作者拿授权?
+
+我还以为这个游戏的音乐是作者从各种共享资源站拿的共享授权资源.
+
+原来是买的音乐作者的 ...</blockquote>
+free版应该是免费素材，可以非盈利使用。但是revision版是商业游戏不得和音乐up主讨论买授权的事。
+
