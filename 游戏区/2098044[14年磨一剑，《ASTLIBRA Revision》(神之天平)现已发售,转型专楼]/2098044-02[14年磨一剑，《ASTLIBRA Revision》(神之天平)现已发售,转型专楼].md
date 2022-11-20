@@ -10445,3 +10445,17 @@ free版宝箱是直接给装备的，刷砂糖做啥<img src="https://static.sar
 
 所以音乐的加分其实很微妙，但是选曲选的真的好，每个点都很合适
 
+
+
+*****
+
+####  quanlix  
+##### 2408#       发表于 2022-11-20 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58519875&amp;ptid=2098044" target="_blank">redsouris 发表于 2022-11-20 15:21</a>
+
+free版宝箱是直接给装备的，刷砂糖做啥
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 S1Next-鹅版 ...</blockquote>
+开合成列表
+
