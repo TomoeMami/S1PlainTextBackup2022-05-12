@@ -10568,3 +10568,16 @@ free版应该是免费素材，可以非盈利使用。但是revision版是商�
 
 2022-11-20 18:29 上传
 
+
+
+*****
+
+####  redsouris  
+##### 2417#       发表于 2022-11-20 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58521593&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-11-20 16:35</a>
+开合成列表</blockquote>
+free版砂糖很容易出，打垃圾桶都有<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，没有必要刷的
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

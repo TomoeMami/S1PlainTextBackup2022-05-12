@@ -770,3 +770,24 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 不过按我对你游的理解联动过后就没了后续什么都不会发生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 70#         楼主| 发表于 2022-11-20 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58518628&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2022-11-20 13:47</a>
+
+联动还有十天金字塔不复刻个活动吗？两个活动相隔20天太长草了
+
+推上DP的原作者说联动是ぬえスタジオ负责的 ...</blockquote>
+前天晚上扫关键字的时候推特有人挖了几个情报：
+
+1，21年某次访谈里岛田提过DIRTY PAIR，好像是拿来举例子；（推特没留标记没再搜到）
+
+2，原作者在今年7月份提到曾经希望拍续篇，但没通过，那么拍真人版会如何呢？（于是变成联动了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+[https://twitter.com/YasuYasukawa ... 48735289344/photo/1](https://twitter.com/YasuYasukawa/status/1593550248735289344/photo/1)
+
+感觉这次真的是不是大的，还是要看到时机设或者设定有没那些巨佬参与<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
