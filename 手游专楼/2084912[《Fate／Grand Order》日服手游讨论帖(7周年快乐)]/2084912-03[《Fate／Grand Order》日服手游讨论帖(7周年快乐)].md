@@ -6928,3 +6928,19 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 来个无限池连发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 3633#       发表于 2022-11-20 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58513695&amp;ptid=2084912" target="_blank">DARKGRAY 发表于 2022-11-20 03:11</a>
+
+没新卡搞什么新圣诞，最多弄个回顾</blockquote>
+这已经不错了，看万圣都在上年一口气补回全部活动角色及专用币
+
+在专用币新系统出来后，圣诞角也应该要补回
+
+信长荼荼他们活动送的都要找时间补回吧?
+
