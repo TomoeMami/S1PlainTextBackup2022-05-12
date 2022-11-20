@@ -137,3 +137,25 @@ nico上有不少10年前制作的不错的MAD。另外有日文阅读能力的�
 
 2022-11-20 11:52 上传
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 2014#       发表于 2022-11-20 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58516828&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-11-20 11:55</a>
+
+上尉的房间有小麻有高原有筑地 有那两个捕捉BETA阵亡 没名字的A01成员 甚至管人都有照片  怎么就没有训练兵 ...</blockquote>
+如果没有拍呢）
+
+*****
+
+####  吕玲绮的十字戟  
+##### 2015#       发表于 2022-11-20 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58498958&amp;ptid=1860817" target="_blank">hacisiki 发表于 2022-11-19 03:49</a>
+
+根据我对OP的理解，应该会送吧。毕竟甲21损失的其他2台女武神不知火一台没人一台驾驶舱被捅穿。 ...</blockquote>
+大概率是大尉遗言交代那里多给点镜头吧）
+
