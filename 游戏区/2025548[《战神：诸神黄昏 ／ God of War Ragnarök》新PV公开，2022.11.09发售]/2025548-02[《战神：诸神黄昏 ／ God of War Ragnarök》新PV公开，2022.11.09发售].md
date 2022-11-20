@@ -1859,3 +1859,19 @@ https:/ ...</blockquote>
 现在女武神打完了四五次，都是捡了任务品之后，不跳杯，地图也还是未发现状态。<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 太搞人心态了。<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  泉美  
+##### 1675#       发表于 2022-11-20 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58520726&amp;ptid=2025548" target="_blank">Onelooker 发表于 2022-11-20 16:10</a>
+
+后面剧情属实有点抽象
+
+希芙为什么突然跳反了</blockquote>
+因为知道奥丁是要牺牲他们保全自己吧。之前挑拨索尔和洛基矛盾的时候也说过奥丁已经不再保护他们了。
+
+希芙的表现一直都是以家庭为重，所以到这地步果断挑明跳反了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
