@@ -10389,3 +10389,17 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 free版打到研究所，又要刷砂糖了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  希望之异热同心  
+##### 2404#       发表于 2022-11-20 14:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58518855&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-20 14:02</a>
+打通了
+这游戏还是得全收集，没全收集没关键build你就是个废物。还是得刷刷刷，没点出足够属性来(主 ...</blockquote>
+女武神有个技能盘，技能变成砸陨石，那个还不错
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
