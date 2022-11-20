@@ -732,3 +732,28 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 2022-11-19 11:28 上传
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 68#         楼主| 发表于 2022-11-20 12:34
+
+<img src="https://img.saraba1st.com/forum/202211/20/123338z98fuffx8bf0au6o.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221120123329.png</strong> (287.79 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-20 12:33 上传
+
+<img src="https://img.saraba1st.com/forum/202211/20/123342o7rxbz8eebc87xqr.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221120123333.png</strong> (263.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-20 12:33 上传
+
+[https://twitter.com/kumaki_20190619/status/1593651645577330688](https://twitter.com/kumaki_20190619/status/1593651645577330688)
+
