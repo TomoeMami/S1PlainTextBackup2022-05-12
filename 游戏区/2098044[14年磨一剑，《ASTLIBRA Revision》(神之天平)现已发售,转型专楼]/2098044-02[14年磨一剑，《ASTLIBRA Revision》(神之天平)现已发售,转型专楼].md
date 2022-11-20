@@ -10414,3 +10414,16 @@ free版打到研究所，又要刷砂糖了<img src="https://static.saraba1st.co
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  redsouris  
+##### 2406#       发表于 2022-11-20 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58518867&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-11-20 14:03</a>
+free版打到研究所，又要刷砂糖了</blockquote>
+free版宝箱是直接给装备的，刷砂糖做啥<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
