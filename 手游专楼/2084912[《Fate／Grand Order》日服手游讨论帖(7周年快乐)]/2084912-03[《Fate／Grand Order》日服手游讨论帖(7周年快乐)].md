@@ -6963,3 +6963,15 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 十多抽出了两个金石，我都惊了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 
+
+
+*****
+
+####  exiaexa  
+##### 3636#       发表于 2022-11-20 18:40
+
+三单俩金石1太公望，摩根礼装也满破了
+
+这下福袋赌狂出啥都不亏了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
