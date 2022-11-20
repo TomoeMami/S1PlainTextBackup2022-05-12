@@ -10380,3 +10380,12 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  quanlix  
+##### 2403#       发表于 2022-11-20 14:03
+
+free版打到研究所，又要刷砂糖了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
