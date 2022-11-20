@@ -27,3 +27,37 @@
 下周的暗BOSS活动，光属性不抽卡没人可用了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爆率太低抽不起，就等活动卡救济了
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 121#         楼主| 发表于 2022-11-20 22:23
+
+<img src="https://img.saraba1st.com/forum/202211/20/222226p8wjvlvzzcggtavr.png" referrerpolicy="no-referrer">
+
+<strong>Fh1KRpOUAAA8_ZH.png</strong> (249.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-20 22:22 上传
+
+补个图，死宅组合，炎上子还是挺可爱的（反正抽不到
+
+*****
+
+####  羽出  
+##### 122#       发表于 2022-11-20 22:25
+
+更想知道免费送的是谁，看来不打算公布，不到明天开服是不知道了
+
+*****
+
+####  小五的拖鞋  
+##### 123#         楼主| 发表于 2022-11-20 22:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58528042&amp;ptid=2101146" target="_blank">羽出 发表于 2022-11-20 22:25</a>
+
+更想知道免费送的是谁，看来不打算公布，不到明天开服是不知道了</blockquote>
+应该就是剪影图的加奈了，二人组的小黑皮
+
