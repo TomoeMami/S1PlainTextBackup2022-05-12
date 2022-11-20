@@ -1875,3 +1875,12 @@ https:/ ...</blockquote>
 
 希芙的表现一直都是以家庭为重，所以到这地步果断挑明跳反了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  415452356  
+##### 1676#       发表于 2022-11-20 21:50
+
+  奥丁的形象就是个心眼坏的老头，故意制造信息差拖延时间让boy帮他凑齐面具碎片，然后boy回去了反手就传送到储物间去假扮提尔最后暴露
+
