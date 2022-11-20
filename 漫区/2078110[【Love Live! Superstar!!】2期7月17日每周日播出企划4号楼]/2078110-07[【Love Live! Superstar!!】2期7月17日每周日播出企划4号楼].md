@@ -4134,3 +4134,24 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 
 2022-11-21 00:27 上传
 
+
+
+*****
+
+####  starring  
+##### 9332#       发表于 2022-11-21 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58529408&amp;ptid=2078110" target="_blank">adw667 发表于 2022-11-20 23:50</a>
+
+说起来这首是有官方中文版的，火锅B站官号传的MIKU唱中文，真想让鱼也唱一下啊 ...</blockquote>
+找来听了一下，“さあ 爱や厌”填词成“啥？哎呀呀”一下子绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  emmer  
+##### 9333#       发表于 2022-11-21 00:41
+
+167画的跟197一样<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
