@@ -4047,3 +4047,14 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  player3960  
+##### 9325#       发表于 2022-11-20 19:45
+
+虽然没有看蒜，不过这头发确实还原的不错。cos总算是兑现了一次，本来以为快三巡了，估计要鸽到明年去的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
