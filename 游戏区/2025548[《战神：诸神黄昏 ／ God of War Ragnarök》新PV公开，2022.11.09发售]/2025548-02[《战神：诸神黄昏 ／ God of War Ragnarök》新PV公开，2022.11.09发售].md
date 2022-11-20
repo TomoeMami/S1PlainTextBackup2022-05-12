@@ -1770,3 +1770,15 @@ https:/ ...</blockquote>
 
 [https://b23.tv/Kj0oxwf](https://b23.tv/Kj0oxwf) 录了几个充能相关的取消<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">符文的取消也不错
 
+
+
+*****
+
+####  wzh5555  
+##### 1666#       发表于 2022-11-20 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58508933&amp;ptid=2025548" target="_blank">CharlieZ- 发表于 2022-11-19 21:21</a>
+
+我看好几次两姐妹残血的时候洛基突然解除仇恨，变成二打一，太坑人了，换芙蕾雅会好点吗 ...</blockquote>
+只剩下姐妹到残血的时候是这样的，会突然进入真2打1，糊脸拳，下砸红手同时出。我好几次都被这个坑了，最后发现只要残血前一直把一个人的攻击每次都打入硬直（能弹、能闪反的都抓住），她大概率不会进入双人联手AI，如果求保险，可以在丝血前开大直接糊脸覆盖最后阶段，她被大招震到之后短时间内也不会进入双人AI
+
