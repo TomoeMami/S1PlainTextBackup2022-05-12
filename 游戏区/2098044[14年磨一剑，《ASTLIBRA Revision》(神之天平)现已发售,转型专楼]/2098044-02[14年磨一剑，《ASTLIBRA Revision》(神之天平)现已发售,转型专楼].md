@@ -10609,3 +10609,17 @@ free版砂糖很容易出，打垃圾桶都有<img src="https://static.saraba1st
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Rainwedell  
+##### 2420#       发表于 2022-11-20 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58525008&amp;ptid=2098044" target="_blank">魔法少女大头 发表于 2022-11-20 19:18</a>
+女主的魔怔还是能够理解的，本来就不是个正常人，然后大着肚子男人跑了，不疯才不正常。
+倒是男主的执着 ...</blockquote>
+没大肚子啊，后面说了是准备骗男主自己有了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">。要说魔怔确实男主魔怔一点，我最不满的就是真结局就是逼着选女主，两魔女我都觉得更香，后面一想男主不魔怔甚至进不了新章，选青梅反而是更符合剧情走向的，只是代入感突然就没了。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
