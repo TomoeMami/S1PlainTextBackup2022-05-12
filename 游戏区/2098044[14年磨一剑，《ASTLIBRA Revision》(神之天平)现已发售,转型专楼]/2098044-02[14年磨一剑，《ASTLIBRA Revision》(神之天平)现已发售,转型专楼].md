@@ -10911,3 +10911,20 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 卡在了第三章boss火神这里，这游戏boss血真是厚啊，尽管只是普通难度，但我这伤害也太刮痧了吧，我 ...</blockquote>
 火山的BOSS我都是拿雷杖远程霹雷霹死的。。。
 
+
+
+*****
+
+####  redsouris  
+##### 2445#       发表于 2022-11-21 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58530166&amp;ptid=2098044" target="_blank">cc-2 发表于 2022-11-21 00:45</a>
+请教个问题
+
+刚把终章的女神（含变龙的那个真身）打过，新章是不是就是二周目了？？</blockquote>
+面包店的心天平，成长盘点出来的两把武器，海潮洞和魔王城隐藏宝箱里的甲，雪山的石像盾
+斗技场奖励品装备
+容易漏的就这些。
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
