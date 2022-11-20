@@ -10829,3 +10829,14 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  方舟失智博士  
+##### 2438#       发表于 2022-11-21 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58528641&amp;ptid=2098044" target="_blank">tpsg 发表于 2022-11-20 22:58</a>
+鸟哥缺一个强健，看攻略说是要精通蝎子旃那，这又是在哪获得，看的装备攻略里也没有这个 ...</blockquote>
+第四章打蛇神的地图里 坐船过去的 有个地方有箭头 你带着嘉荣鼻子去找没拿宝箱的地图然后仔细一点看地面
+
