@@ -1190,3 +1190,23 @@ ssss真主角不是那个附身裕太的古力特人么，裕太不是只是一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">裕太你啥时候舔到六花啊
 
+
+
+*****
+
+####  CALPISSODA  
+##### 95#       发表于 2022-11-20 18:16
+
+好奇剧场版六花和内海还能有啥作用，Dynazenon组全员都要再上机的吧，剩下这两又在电脑前做啦啦队兼解说么
+
+*****
+
+####  Freakyyu  
+##### 96#       发表于 2022-11-20 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58523967&amp;ptid=2032441" target="_blank">CALPISSODA 发表于 2022-11-20 18:16</a>
+好奇剧场版六花和内海还能有啥作用，Dynazenon组全员都要再上机的吧，剩下这两又在电脑前做啦啦队兼解说么 ...</blockquote>
+可以当人质嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
