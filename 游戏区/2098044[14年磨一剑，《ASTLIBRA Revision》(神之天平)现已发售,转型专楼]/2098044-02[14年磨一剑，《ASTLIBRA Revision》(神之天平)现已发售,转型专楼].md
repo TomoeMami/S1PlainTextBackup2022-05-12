@@ -10623,3 +10623,29 @@ free版砂糖很容易出，打垃圾桶都有<img src="https://static.saraba1st
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  龙骑士尹志平  
+##### 2421#       发表于 2022-11-20 19:53
+
+也不算选女主吧，为了鸟哥，女主都不要了，还被AI吐槽老娘还比不过一只鸟
+
+*****
+
+####  君子殉凶  
+##### 2422#       发表于 2022-11-20 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58509601&amp;ptid=2098044" target="_blank">Tissuesea 发表于 2022-11-19 22:07</a>
+
+第一章那个6500多血的龙怎么打，第一次打没开看血量的技能，用树枝刮他的头，吃了28个松子都没打过 ...</blockquote>
+你要牢记 这个游戏 你只是个帮爹打精力的工具人
+
+*****
+
+####  酒瓶止迁  
+##### 2423#       发表于 2022-11-20 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸟哥&gt;=青梅&gt;&gt;&gt;&gt;&gt;&gt;&gt;队里其他成员。这男主属于出了学校和人不交心的那种，玩家普遍对黑白感情深，其实在他看来其实和虚拟情敌白毛的分量差不多……
+

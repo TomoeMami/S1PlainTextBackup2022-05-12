@@ -1847,3 +1847,15 @@ https:/ ...</blockquote>
 
 长枪的近战扎矛方式要是再多点就好了，手感挺爽的，就是只有长按R1一种方式不太行
 
+
+
+*****
+
+####  Schwarzess  
+##### 1674#       发表于 2022-11-20 19:51
+
+急急急！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+有人碰到过通关之后女武神王的支线（查了下叫保卫你的勇气啥的）没接到的情况么。
+现在女武神打完了四五次，都是捡了任务品之后，不跳杯，地图也还是未发现状态。<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+太搞人心态了。<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
