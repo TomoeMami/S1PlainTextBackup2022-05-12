@@ -10367,3 +10367,16 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 冲开个档打困难，第一次凭依技的时候放的是火龙，大概也算是个暗示吧，打完第一个守护兽鸟哥说它的功劳有三分之二，回头看完全不是玩笑话啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2402#       发表于 2022-11-20 14:02
+
+打通了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+这游戏还是得全收集，没全收集没关键build你就是个废物。还是得刷刷刷，没点出足够属性来(主要是血)就是坐牢。md终章女武神给我打的心态崩溃，新章刷出来个拳刃武器盘，配上完全成型的build，化身绞肉机。
+还有，女武神真垃圾经常锁不到敌人，不如我龙王一口波下去，直接大道都磨灭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
