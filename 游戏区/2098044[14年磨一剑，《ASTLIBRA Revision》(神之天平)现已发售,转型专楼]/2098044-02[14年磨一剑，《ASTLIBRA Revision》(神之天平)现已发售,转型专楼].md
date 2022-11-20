@@ -10864,3 +10864,29 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 还有所谓刷爱情，应该是二周目以后的事情吧？我打到新章就是三个，然后看着新章开始出现装备盘的东西了，就很搞不懂要不要读档回去
 
+
+
+*****
+
+####  cym887  
+##### 2441#       发表于 2022-11-21 01:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58530166&amp;ptid=2098044" target="_blank">cc-2 发表于 2022-11-21 00:45</a>
+
+请教个问题
+
+刚把终章的女神（含变龙的那个真身）打过，新章是不是就是二周目了？？</blockquote>
+面包店换了心天平没 用六神精通宝石合成后才能换 合成书要打竞技场
+
+*****
+
+####  cc-2  
+##### 2442#       发表于 2022-11-21 01:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58530388&amp;ptid=2098044" target="_blank">cym887 发表于 2022-11-21 01:09</a>
+
+面包店换了心天平没 用六神&amp; ...</blockquote>
+刚到贴吧找了个帖子看了下，估计是差这件盔甲了
+
+斗技场9个全打了，合成书是炼金那本吧，已经有了，明天试试
+
