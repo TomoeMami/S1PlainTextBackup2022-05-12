@@ -10470,3 +10470,31 @@ free版宝箱是直接给装备的，刷砂糖做啥
 
 —— 来自 HUAWEI TET-AN50, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  慕容断月  
+##### 2410#       发表于 2022-11-20 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58523043&amp;ptid=2098044" target="_blank">jellyhero 发表于 2022-11-20 17:31</a>
+
+刚刚从steam安装了游戏，有人能告诉我进去就全屏只显示1/4屏的内容，然后试着运行几下就花屏退了是什么情况 ...</blockquote>
+要不加官方群问问？
+
+*****
+
+####  gwchobit  
+##### 2411#       发表于 2022-11-20 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58518855&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-20 14:02</a>
+
+打通了
+
+这游戏还是得全收集，没全收集没关键build你就是个废物。还是得刷刷刷，没点出足够属性来(主 ...</blockquote>
+功能都玩过的话，不全收集也行。除了刷爱情，当前地图也就刷半个小时不到，作者在素材制作上门槛不高。
+
+女神三连比新章五连刺激，设计的挺好。100多个水晶能点的也就那些，新章强化镶嵌随便构筑，数值溢出。
+
+女武神进化更好用，新章基本是靠武神全屏还浮空吸血
+

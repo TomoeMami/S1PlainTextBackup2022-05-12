@@ -1252,3 +1252,15 @@ T这个盾常态血量扛不住boss几巴掌吧
 
 是因为线条太细了吗……
 
+
+
+*****
+
+####  双刀少女  
+##### 131#       发表于 2022-11-20 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58521385&amp;ptid=2103199" target="_blank">布拉德莱恩 发表于 2022-11-20 16:29</a>
+
+【【熟肉】蓝色协议终于要来了？日本油管主介绍蓝色协议最新直播内容以及日本网友评论-哔哩哔哩】 https:// ...</blockquote>
+tx代理，当然有中文
+

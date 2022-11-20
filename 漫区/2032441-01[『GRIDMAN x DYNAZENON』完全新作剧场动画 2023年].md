@@ -1084,3 +1084,24 @@ ssss真主角不是那个附身裕太的古力特人么，裕太不是只是一�
 
 你们男的怎么比女的腿细这么多，给点面子好吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 85#       发表于 2022-11-20 17:34
+
+『グリッドマン ユニバース』
+
+ティザービジュアル2を公開いたしました。
+<img src="https://p.sda1.dev/8/407eaf95ac9fc5d9b8ee6cbe047a4358/visual_03.webp" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/45958691ce2bb18035762b1c877c358a/SSSS_PROJECT-1594262020320366592-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/b972252c6ace9f4e9b3b7d22a9c0b480/SSSS_PROJECT-1594262020320366592-img2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  ardito  
+##### 86#       发表于 2022-11-20 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这不是少了2个人？男人没人权是吧
+
