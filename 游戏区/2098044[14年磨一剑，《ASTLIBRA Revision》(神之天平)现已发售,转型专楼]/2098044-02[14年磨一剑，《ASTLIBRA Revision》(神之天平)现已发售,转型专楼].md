@@ -10403,3 +10403,14 @@ free版打到研究所，又要刷砂糖了<img src="https://static.saraba1st.co
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  希望之异热同心  
+##### 2405#       发表于 2022-11-20 14:54
+
+男女主真是魔怔纯爱党，女主因为男主去找义父了魔怔把世界灭了，男主死了老婆第一次发怒把神灭了，真正的纯爱战神啊
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

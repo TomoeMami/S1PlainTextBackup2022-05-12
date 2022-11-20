@@ -6113,3 +6113,33 @@ DIYたくさんでした
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  千恋万花  
+##### 475#       发表于 2022-11-20 15:00
+
+／
+
+&amp;#x1F4E2;12/23発売 BD1巻
+
+キャラクターデザイン #松尾祐輔 
+
+描き下ろしジャケットイラスト公開&amp;#x1F4BF;
+
+＼
+
+数量限定特装版には､
+
+&amp;#x1F528;キバコヤ特製ハンドメイド木BOX
+
+&amp;#x1F528;スペシャルカラー軍手
+
+&amp;#x1F528;高儀コラボ貫通ドライバー(＋/－)
+
+が封入!!
+
+Blu－rayは予約受付中です✨
+<img src="https://p.sda1.dev/8/96cddfbf78ffd2457e0d85e53732ed94/diy_anime-1594224023965208576-img1.jpg" referrerpolicy="no-referrer">
+
