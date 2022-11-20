@@ -4114,3 +4114,23 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 10万播放量达成（才10万就能进殿堂，要求好低</blockquote>
 说起来这首是有官方中文版的，火锅B站官号传的MIKU唱中文，真想让鱼也唱一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 9331#       发表于 2022-11-21 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58528977&amp;ptid=2078110" target="_blank">名津流 发表于 2022-11-20 23:19</a>
+
+哪个漫画？</blockquote>
+[[#离境新坑#]#比太阳更耀眼的星星#Ch.0... 来自离境论坛 - 微博 (weibo.com)](https://weibo.com/2119909345/KmpqKFNJ5?type=comment#_rnd1668961604420)
+
+<img src="https://img.saraba1st.com/forum/202211/21/002757qhrci69csubdiu08.jpg" referrerpolicy="no-referrer">
+
+<strong>002jsVgdgy1grxal4i1ubj60n80xcgvq02.jpg</strong> (141.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-21 00:27 上传
+
