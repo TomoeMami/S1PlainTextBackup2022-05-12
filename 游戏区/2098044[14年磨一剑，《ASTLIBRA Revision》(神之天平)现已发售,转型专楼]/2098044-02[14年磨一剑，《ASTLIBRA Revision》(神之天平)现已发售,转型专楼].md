@@ -10732,3 +10732,19 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">困难开完第四章的成长树感觉数值开始赶上来了，打蛇神基本就是互相刮痧
 
+
+
+*****
+
+####  tpsg  
+##### 2431#       发表于 2022-11-20 22:58
+
+鸟哥缺一个强健，看攻略说是要精通蝎子旃那，这又是在哪获得，看的装备攻略里也没有这个<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bayes  
+##### 2432#       发表于 2022-11-20 23:00
+
+卡在了第三章boss火神这里，这游戏boss血真是厚啊，尽管只是普通难度，但我这伤害也太刮痧了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，我还以为我手持圣乔治身穿武士甲进去砍瓜切菜呢，结果被虐得不行，21级了，难道还要再刷刷？
+
