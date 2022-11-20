@@ -1332,3 +1332,14 @@ syl，看到an们前脚说要联合cn玩家/**enkr后脚就有b工商/enkr公告
 
 爬完楼标记个，多的不说了，就说下我现在真的期待镝木ろこ出道，之前没关注感觉错过一个亿好吧
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17751#       发表于 2022-11-20 22:01
+
+虹游戏王看完了，推荐マオ对葛叶的两场和夜见对星川这几场，聊天流太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">猪脑过载误操作更是搞笑
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
