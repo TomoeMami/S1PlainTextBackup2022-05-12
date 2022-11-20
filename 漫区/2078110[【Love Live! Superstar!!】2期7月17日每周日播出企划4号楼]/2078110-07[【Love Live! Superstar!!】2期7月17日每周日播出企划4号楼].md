@@ -4102,3 +4102,15 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 某个新连载的少女漫画，女主身高167cm，还有左斜刘海披肩的长发，很难不去联想鲤鱼 ...</blockquote>
 哪个漫画？
 
+
+
+*****
+
+####  adw667  
+##### 9330#       发表于 2022-11-20 23:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58524839&amp;ptid=2078110" target="_blank">starring 发表于 2022-11-20 19:08</a>
+
+10万播放量达成（才10万就能进殿堂，要求好低</blockquote>
+说起来这首是有官方中文版的，火锅B站官号传的MIKU唱中文，真想让鱼也唱一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

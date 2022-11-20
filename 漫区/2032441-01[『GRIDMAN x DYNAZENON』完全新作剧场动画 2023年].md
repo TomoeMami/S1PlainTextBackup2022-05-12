@@ -1287,3 +1287,15 @@ max小只了(
 
 —— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  千千千千鸟  
+##### 105#       发表于 2022-11-20 23:50
+
+肥猪腿六花<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+有没搞错啊越来越夸张了喂
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
