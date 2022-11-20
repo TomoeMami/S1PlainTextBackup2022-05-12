@@ -10901,3 +10901,22 @@ saku配音18x作品会不会有一种宋丹丹老师下海的感觉？
 
 —— 来自 OPPO PDEM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Micron  
+##### 2649#       发表于 2022-11-20 23:54
+
+修白勾改名真是为了要进NB？名字风格确实很像。九夏毕业的时候我就想说不如招她，又当过社畜，还对3D没那么急迫。这不会真要进来吧，太姛了
+
+*****
+
+####  ladiesman802  
+##### 2650#       发表于 2022-11-21 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58529447&amp;ptid=1926094" target="_blank">Micron 发表于 2022-11-20 23:54</a>
+
+修白勾改名真是为了要进NB？名字风格确实很像。九夏毕业的时候我就想说不如招她，又当过社畜，还对3D没那么 ...</blockquote>
+应该不可能吧，九夏都不在nb了，其他几位又不熟，除了联合投稿一次外，都没什么交集。贴吧还打算把她ban了
+
