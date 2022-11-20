@@ -6166,3 +6166,16 @@ Blu－rayは予約受付中です✨
 キャラクター ...</blockquote>
 说来这个封面比较好玩的一点是，可以叫「小己跟她的 3 只宠物」（狗、猫、猪分别是市ノ瀬、佐倉、和氣配的）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最强惠酱  
+##### 478#       发表于 2022-11-20 21:30
+
+木工部这个需要专业工具太多了不太适合新手，木板那可是太难切了，job子手画弧线好牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+话说看板写的学生们做的工具应该改成jk可能会更容易卖
+
+什么时候能在正片看到工装服布丁啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
