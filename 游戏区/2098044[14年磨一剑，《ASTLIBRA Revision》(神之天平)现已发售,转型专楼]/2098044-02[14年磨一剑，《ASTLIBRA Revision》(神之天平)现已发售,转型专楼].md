@@ -10649,3 +10649,26 @@ free版砂糖很容易出，打垃圾桶都有<img src="https://static.saraba1st
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鸟哥&gt;=青梅&gt;&gt;&gt;&gt;&gt;&gt;&gt;队里其他成员。这男主属于出了学校和人不交心的那种，玩家普遍对黑白感情深，其实在他看来其实和虚拟情敌白毛的分量差不多……
 
+
+
+*****
+
+####  Hirosue  
+##### 2424#       发表于 2022-11-20 20:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚玩，打到了火山的第一个boss，磨了有15分钟，给了一个岩浆靴
+
+想问天平托盘怎么装备上啊？我包里有两个盘子但是没法装到天平上去...
+
+*****
+
+####  酒瓶止迁  
+##### 2425#       发表于 2022-11-20 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58525788&amp;ptid=2098044" target="_blank">Hirosue 发表于 2022-11-20 20:05</a>
+
+刚玩，打到了火山的第一个boss，磨了有15分钟，给了一个岩浆靴
+
+想问天平托盘怎么装备上啊？我包里 ...</blockquote>
+自动装的啊，你有几个盘子天平上就有几个
+

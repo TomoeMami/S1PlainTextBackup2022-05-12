@@ -4058,3 +4058,23 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 9326#       发表于 2022-11-20 20:03
+
+生日活动场地居然不到一千人的场，总之先抽再说<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 9327#       发表于 2022-11-20 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58524839&amp;ptid=2078110" target="_blank">starring 发表于 2022-11-20 19:08</a>
+10万播放量达成（才10万就能进殿堂，要求好低</blockquote>
+v家就是nico10万入殿堂的，虽然这年头不兴这说法了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
