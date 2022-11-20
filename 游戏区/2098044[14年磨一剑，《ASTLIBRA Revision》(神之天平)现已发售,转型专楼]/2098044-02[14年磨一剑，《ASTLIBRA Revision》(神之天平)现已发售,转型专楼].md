@@ -10693,3 +10693,33 @@ free版砂糖很容易出，打垃圾桶都有<img src="https://static.saraba1st
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  慕容断月  
+##### 2428#       发表于 2022-11-20 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58523573&amp;ptid=2098044" target="_blank">codecloud 发表于 2022-11-20 17:57</a>
+
+直接作者拿授权?
+
+我还以为这个游戏的音乐是作者从各种共享资源站拿的共享授权资源.
+
+原来是买的音乐作者的 ...</blockquote>
+free版应该是问了使用许可的，就算是免费资源站里也需要看看许可证明，更何况免费版就已经有削除这种级别的大佬，那肯定是原版就已经去拿了使用许可的
+
+不过商业版肯定还是要再拿一遍的，所以大部分曲目都还是原样，title曲改了，而且原版title曲好像商业版里也没有
+
+*****
+
+####  adretyu67  
+##### 2429#       发表于 2022-11-20 21:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58525072&amp;ptid=2098044" target="_blank">jy000129 发表于 2022-11-20 19:22</a>
+
+女主当时的肉体除了外形是人类外就是个超级魔兽，有生殖隔离的
+
+—— 来自 HUAWEI WLZ-AL10, Andr ...</blockquote>
+还自带长大能力吗
+
