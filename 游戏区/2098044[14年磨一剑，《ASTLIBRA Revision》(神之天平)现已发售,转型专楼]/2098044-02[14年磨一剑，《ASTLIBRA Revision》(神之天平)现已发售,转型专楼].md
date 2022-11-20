@@ -10288,3 +10288,46 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  bayes  
+##### 2396#       发表于 2022-11-20 12:00
+
+请问一个问题，我目前九级，斗技场第一个比赛最后一关 悬崖峭壁 有一个台子我死活跳不上去，我不知道是不是我手残，我是死活跳不上去，我是不是落了二段跳还是什么？还是晚点再来？我才刚刚加入酒馆公会。。
+
+*****
+
+####  otakun  
+##### 2397#       发表于 2022-11-20 12:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58516896&amp;ptid=2098044" target="_blank">bayes 发表于 2022-11-20 12:00</a>
+请问一个问题，我目前九级，斗技场第一个比赛最后一关 悬崖峭壁 有一个台子我死活跳不上去，我不知道是不是 ...</blockquote>
+首先二段跳是默认就有的，自己去嘉隆里点出来，需要四格水晶。
+还有加速跑之后可以跳得稍微高一点。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| bayes| + 1|好评加鹅|
+
+查看全部评分
+
+*****
+
+####  bayes  
+##### 2398#       发表于 2022-11-20 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58516996&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-20 12:06</a>
+
+首先二段跳是默认就有的，自己去嘉隆里点出来，需要四格水晶。
+
+还有加速跑之后可以跳得稍微高一点。 ...</blockquote>
+我去，竟然还真有，我之前还特意翻了翻嘉隆都没找到<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 可以二段跳那这关就简单太多了。。多谢
+
