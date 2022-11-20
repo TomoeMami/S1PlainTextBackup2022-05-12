@@ -3983,3 +3983,14 @@ GIGO+角色名吧，刚刚逛了一下，名场面+角色名也行。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真会拍啊 第一张就显得很小只
 
+
+
+*****
+
+####  ads147147  
+##### 9319#       发表于 2022-11-20 17:20
+
+你是chisato，我也是chisato，都一样啊jpg
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
