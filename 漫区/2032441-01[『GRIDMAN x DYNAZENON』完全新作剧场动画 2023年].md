@@ -1210,3 +1210,35 @@ ssss真主角不是那个附身裕太的古力特人么，裕太不是只是一�
 
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  findpkq  
+##### 97#       发表于 2022-11-20 18:25
+
+社会人怎么头发留回来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+max小只了(
+
+虽然一再被雨宫gg伤害但是想看4s的心就是停不下来<img src="https://static.saraba1st.com/image/smiley/carton2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J17C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  shiko  
+##### 98#       发表于 2022-11-20 18:26
+
+裕太跟蓬一起变身古力特吧，毕竟好歹两个都是主角，然后六女士去小龙人里占个座<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+内海。。。内海寄吧谁啊是（
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ylssb10438  
+##### 99#       发表于 2022-11-20 18:32
+
+南梦芽都能上机，能不能让六花也上上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

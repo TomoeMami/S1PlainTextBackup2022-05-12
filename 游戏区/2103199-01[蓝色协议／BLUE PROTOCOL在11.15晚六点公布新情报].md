@@ -1264,3 +1264,34 @@ T这个盾常态血量扛不住boss几巴掌吧
 【【熟肉】蓝色协议终于要来了？日本油管主介绍蓝色协议最新直播内容以及日本网友评论-哔哩哔哩】 https:// ...</blockquote>
 tx代理，当然有中文
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 132#       发表于 2022-11-20 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58523227&amp;ptid=2103199" target="_blank">双刀少女 发表于 2022-11-20 17:40</a>
+tx代理，当然有中文</blockquote>
+哪来的消息腾讯代理？腾讯连自己的版号都搞不定还代理外国游戏？外国游戏的版号500多天没发过了你确定？
+
+*****
+
+####  双刀少女  
+##### 133#       发表于 2022-11-20 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58524071&amp;ptid=2103199" target="_blank">布拉德莱恩 发表于 2022-11-20 18:21</a>
+
+哪来的消息腾讯代理？腾讯连自己的版号都搞不定还代理外国游戏？外国游戏的版号500多天没发过了你确定？ ...</blockquote>
+申版号前就和bn签了代理合同，甚至有一部分（国服）开发内容都是tx负责的，况且也不是今年的事情了<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rick343  
+##### 134#       发表于 2022-11-20 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58524178&amp;ptid=2103199" target="_blank">双刀少女 发表于 2022-11-20 18:27</a>
+
+申版号前就和bn签了代理合同，甚至有一部分（国服）开发内容都是tx负责的，况且也不是今年的事情了[f:261 ...</blockquote>
+消息来源可靠吗
+
