@@ -10331,3 +10331,15 @@ exboss里最难打的就是邪神吧，输出机会太少了根本没法近身�
 还有加速跑之后可以跳得稍微高一点。 ...</blockquote>
 我去，竟然还真有，我之前还特意翻了翻嘉隆都没找到<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 可以二段跳那这关就简单太多了。。多谢
 
+
+
+*****
+
+####  gwchobit  
+##### 2399#       发表于 2022-11-20 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58509601&amp;ptid=2098044" target="_blank">Tissuesea 发表于 2022-11-19 22:07</a>
+
+第一章那个6500多血的龙怎么打，第一次打没开看血量的技能，用树枝刮他的头，吃了28个松子都没打过 ...</blockquote>
+没了加隆主角就是个弟弟<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
