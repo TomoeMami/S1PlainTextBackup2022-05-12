@@ -1299,3 +1299,17 @@ max小只了(
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yzhiyu_123  
+##### 106#       发表于 2022-11-21 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58526975&amp;ptid=2032441" target="_blank">亚瑟邓特 发表于 2022-11-20 21:22</a>
+
+宫本侑芽怎么了？冠？
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+事务所说“体调不良”，养病优先了，不知道具体什么毛病，不过目前水魔片场这边还在
+
