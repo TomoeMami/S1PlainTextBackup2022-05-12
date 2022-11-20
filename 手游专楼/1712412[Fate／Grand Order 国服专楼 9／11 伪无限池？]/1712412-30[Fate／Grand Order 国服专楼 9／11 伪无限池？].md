@@ -1172,3 +1172,16 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 高杉明年日服唠唠叨叨会落地吗，这么帅的立绘不实装可惜了</blockquote>
 不会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Tequila_R  
+##### 43749#       发表于 2022-11-20 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58481134&amp;ptid=1712412" target="_blank">aiqopsha 发表于 2022-11-17 23:39</a>
+笑死，好友没有一个抽这个池子的</blockquote>
+真心觉得不如落地高杉<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">好友里肯定会有妹子抽爆的。出云阿国连男玩家都没几个人抽啊
+
+—— 来自 HUAWEI JAD-AL50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
