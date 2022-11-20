@@ -120,3 +120,20 @@ Staff里面有二姐厨罢，怎么在这种奇怪的地方这么注重细节。
 刚刚补完原作，EX和UL都推了全结局，现在实在是意犹未尽。也实在是没想到自己人生中第一部完全通关的GAL是M ...</blockquote>
 nico上有不少10年前制作的不错的MAD。另外有日文阅读能力的话[www.mai-net.net](http://www.mai-net.net)这边有不少日本那边的同人文，很多都是老文了。需要梯子。
 
+
+
+*****
+
+####  jerryoq1  
+##### 2013#       发表于 2022-11-20 11:55
+
+上尉的房间有小麻有高原有筑地 有那两个捕捉BETA阵亡 没名字的A01成员 甚至管人都有照片  怎么就没有训练兵时的那三个队友<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">    
+
+<img src="https://img.saraba1st.com/forum/202211/20/115219ghm5rbl5hqnbqbml.jpg" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-11-17_15-42-43.jpg</strong> (39.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-20 11:52 上传
+
