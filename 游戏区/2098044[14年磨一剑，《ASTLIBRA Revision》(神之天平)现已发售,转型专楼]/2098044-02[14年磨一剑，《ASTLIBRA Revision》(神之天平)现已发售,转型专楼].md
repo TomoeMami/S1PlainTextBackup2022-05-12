@@ -10748,3 +10748,15 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 卡在了第三章boss火神这里，这游戏boss血真是厚啊，尽管只是普通难度，但我这伤害也太刮痧了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，我还以为我手持圣乔治身穿武士甲进去砍瓜切菜呢，结果被虐得不行，21级了，难道还要再刷刷？
 
+
+
+*****
+
+####  突发性哮喘病患  
+##### 2433#       发表于 2022-11-20 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58528674&amp;ptid=2098044" target="_blank">bayes 发表于 2022-11-20 23:00</a>
+
+卡在了第三章boss火神这里，这游戏boss血真是厚啊，尽管只是普通难度，但我这伤害也太刮痧了吧，我 ...</blockquote>
+只有打中间的才有伤害，带满药然后开技能冲进去砍，要么是长武器
+
