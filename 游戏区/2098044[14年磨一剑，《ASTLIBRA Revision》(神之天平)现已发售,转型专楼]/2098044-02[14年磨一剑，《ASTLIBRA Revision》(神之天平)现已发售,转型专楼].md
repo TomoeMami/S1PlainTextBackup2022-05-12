@@ -10760,3 +10760,59 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 卡在了第三章boss火神这里，这游戏boss血真是厚啊，尽管只是普通难度，但我这伤害也太刮痧了吧，我 ...</blockquote>
 只有打中间的才有伤害，带满药然后开技能冲进去砍，要么是长武器
 
+
+
+*****
+
+####  A1LI  
+##### 2434#       发表于 2022-11-20 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58528641&amp;ptid=2098044" target="_blank">tpsg 发表于 2022-11-20 22:58</a>
+
+鸟哥缺一个强健，看攻略说是要精通蝎子旃那，这又是在哪获得，看的装备攻略里也没有这个 ...</blockquote>
+第4章水里，有个特别隐藏的绿箭头。
+
+在几乎满屏都是水的那个图里。
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tpsg| + 1|感谢|
+
+查看全部评分
+
+*****
+
+####  Rainwedell  
+##### 2435#       发表于 2022-11-20 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58528641&amp;ptid=2098044" target="_blank">tpsg 发表于 2022-11-20 22:58</a>
+鸟哥缺一个强健，看攻略说是要精通蝎子旃那，这又是在哪获得，看的装备攻略里也没有这个 ...</blockquote>
+海蛇洞窟宝箱，这是个甲
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| tpsg| + 1|感谢|
+
+查看全部评分
+
+*****
+
+####  李喜睡  
+##### 2436#       发表于 2022-11-20 23:21
+
+打到新章要刷刷刷的地方了，玩到现在感觉这游戏确实可以
+
