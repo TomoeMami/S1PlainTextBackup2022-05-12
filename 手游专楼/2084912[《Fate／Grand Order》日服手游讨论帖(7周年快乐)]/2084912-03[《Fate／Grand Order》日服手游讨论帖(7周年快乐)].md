@@ -6944,3 +6944,22 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 信长荼荼他们活动送的都要找时间补回吧?
 
+
+
+*****
+
+####  千叶铁矢  
+##### 3634#       发表于 2022-11-20 18:07
+
+十多抽出了两个金石，我都惊了<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3635#       发表于 2022-11-20 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58523779&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-11-20 18:07</a>
+
+十多抽出了两个金石，我都惊了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
+
