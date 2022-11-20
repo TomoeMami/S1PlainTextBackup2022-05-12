@@ -10595,3 +10595,17 @@ free版砂糖很容易出，打垃圾桶都有<img src="https://static.saraba1st
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  jy000129  
+##### 2419#       发表于 2022-11-20 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58525008&amp;ptid=2098044" target="_blank">魔法少女大头 发表于 2022-11-20 19:18</a>
+女主的魔怔还是能够理解的，本来就不是个正常人，然后大着肚子男人跑了，不疯才不正常。
+倒是男主的执着 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">女主当时的肉体除了外形是人类外就是个超级魔兽，有生殖隔离的
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
