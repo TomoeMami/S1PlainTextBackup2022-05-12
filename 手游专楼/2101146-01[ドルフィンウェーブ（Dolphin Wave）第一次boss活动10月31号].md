@@ -61,3 +61,19 @@
 更想知道免费送的是谁，看来不打算公布，不到明天开服是不知道了</blockquote>
 应该就是剪影图的加奈了，二人组的小黑皮
 
+
+
+*****
+
+####  MEKA  
+##### 124#       发表于 2022-11-20 22:31
+
+炎上子可爱，赌一把了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，看剪影活动角应该是製铁所的小鬼头的样子...？
+
+*****
+
+####  羽出  
+##### 125#       发表于 2022-11-20 22:36
+
+我现在有一个主力就是加奈，如果真是她就只能上一个了<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
