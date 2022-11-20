@@ -757,3 +757,16 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 [https://twitter.com/kumaki_20190619/status/1593651645577330688](https://twitter.com/kumaki_20190619/status/1593651645577330688)
 
+
+
+*****
+
+####  不灭的旋律  
+##### 69#       发表于 2022-11-20 13:47
+
+联动还有十天金字塔不复刻个活动吗？两个活动相隔20天太长草了
+
+推上DP的原作者说联动是ぬえスタジオ负责的他都不太清楚，如果和ぬえスタジオ有人脉就牛逼大了，可以和河森等一票SF巨佬攀上关系，能玩多大我都不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+不过按我对你游的理解联动过后就没了后续什么都不会发生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
