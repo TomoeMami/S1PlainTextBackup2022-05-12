@@ -1105,3 +1105,23 @@ ssss真主角不是那个附身裕太的古力特人么，裕太不是只是一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这不是少了2个人？男人没人权是吧
 
+
+
+*****
+
+####  Kedger  
+##### 87#       发表于 2022-11-20 17:45
+
+完了，我的第一反应也是新条小姐呢，我对不起你啊矢马哥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shiko  
+##### 88#       发表于 2022-11-20 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58523338&amp;ptid=2032441" target="_blank">Kedger 发表于 2022-11-20 17:45</a>
+完了，我的第一反应也是新条小姐呢，我对不起你啊矢马哥</blockquote>
+直播里失马作为戴拿泽昂的cv出场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

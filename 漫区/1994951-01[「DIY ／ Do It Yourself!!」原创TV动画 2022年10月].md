@@ -6143,3 +6143,26 @@ DIYたくさんでした
 Blu－rayは予約受付中です✨
 <img src="https://p.sda1.dev/8/96cddfbf78ffd2457e0d85e53732ed94/diy_anime-1594224023965208576-img1.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mr1z  
+##### 476#       发表于 2022-11-20 17:47
+
+布丁女士，你在干什么啊，布丁女士
+
+*****
+
+####  千恋万花  
+##### 477#       发表于 2022-11-20 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58519594&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-11-20 15:00</a>
+
+／
+
+&amp;#x1F4E2;12/23発売 BD1巻
+
+キャラクター ...</blockquote>
+说来这个封面比较好玩的一点是，可以叫「小己跟她的 3 只宠物」（狗、猫、猪分别是市ノ瀬、佐倉、和氣配的）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
