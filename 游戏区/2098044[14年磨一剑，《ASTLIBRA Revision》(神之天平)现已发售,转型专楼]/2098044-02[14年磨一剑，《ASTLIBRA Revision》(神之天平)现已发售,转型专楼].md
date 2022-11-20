@@ -10816,3 +10816,16 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 打到新章要刷刷刷的地方了，玩到现在感觉这游戏确实可以
 
+
+
+*****
+
+####  Tissuesea  
+##### 2437#       发表于 2022-11-21 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58528674&amp;ptid=2098044" target="_blank">bayes 发表于 2022-11-20 23:00</a>
+卡在了第三章boss火神这里，这游戏boss血真是厚啊，尽管只是普通难度，但我这伤害也太刮痧了吧，我 ...</blockquote>
+和你差不多等级打的，我是敏智血加高的，还没用乔治打的还是个普通大剑打的，不过我在成长里点出来紫雷姬，感觉我在乱跑去吃药时她还有点输出，我觉得你可以点开试试
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
