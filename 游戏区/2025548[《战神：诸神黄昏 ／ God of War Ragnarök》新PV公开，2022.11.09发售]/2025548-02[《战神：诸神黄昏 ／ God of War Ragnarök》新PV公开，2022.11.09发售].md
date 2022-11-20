@@ -1761,3 +1761,12 @@ https:/ ...</blockquote>
  笑死，赫罗夫王初见过，花样都见过了，还是三人打群架难。 话说斯考夫农握柄效果是啥啊，说明看不懂 ...</blockquote>
 幻影剑，升满了召唤12把剑出来自动攻击敌人
 
+
+
+*****
+
+####  司马千晶  
+##### 1665#       发表于 2022-11-20 11:20
+
+[https://b23.tv/Kj0oxwf](https://b23.tv/Kj0oxwf) 录了几个充能相关的取消<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">符文的取消也不错
+
