@@ -10672,3 +10672,24 @@ free版砂糖很容易出，打垃圾桶都有<img src="https://static.saraba1st
 想问天平托盘怎么装备上啊？我包里 ...</blockquote>
 自动装的啊，你有几个盘子天平上就有几个
 
+
+
+*****
+
+####  Hirosue  
+##### 2426#       发表于 2022-11-20 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58525814&amp;ptid=2098044" target="_blank">酒瓶止迁 发表于 2022-11-20 20:06</a>
+
+自动装的啊，你有几个盘子天平上就有几个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">原来是这样明白了...
+
+*****
+
+####  Rainwedell  
+##### 2427#       发表于 2022-11-20 20:14
+
+倒也不算是不要女主吧，走到最后的男主不就典型的全都要救，当时选鸟哥估计是想着再来一次。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
