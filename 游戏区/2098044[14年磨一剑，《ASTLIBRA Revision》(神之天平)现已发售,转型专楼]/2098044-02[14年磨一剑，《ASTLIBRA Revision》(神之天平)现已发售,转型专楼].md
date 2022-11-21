@@ -10954,3 +10954,15 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 前提别头一热用三倍去点，每关给的属性有倾向，要头铁的话尽量只点取关键凭依路上的...
 
+
+
+*****
+
+####  llysander  
+##### 2448#       发表于 2022-11-21 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58498743&amp;ptid=2098044" target="_blank">突发性哮喘病患 发表于 2022-11-19 02:16</a>
+
+我靠，一开始以为四勇者是菜鸡，后来发现强的要死，如果正常来打估计早扫荡魔王了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">一个一个拉来打确实很菜就是了，难怪修女姐姐打不过被做成人棍生不如死插在石头里展示恶趣味
+
