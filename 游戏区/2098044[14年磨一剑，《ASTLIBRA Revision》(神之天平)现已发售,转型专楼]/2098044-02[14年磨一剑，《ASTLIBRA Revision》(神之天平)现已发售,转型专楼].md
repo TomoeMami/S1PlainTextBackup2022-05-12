@@ -10966,3 +10966,38 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 我靠，一开始以为四勇者是菜鸡，后来发现强的要死，如果正常来打估计早扫荡魔王了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">一个一个拉来打确实很菜就是了，难怪修女姐姐打不过被做成人棍生不如死插在石头里展示恶趣味
 
+
+
+*****
+
+####  llysander  
+##### 2449#       发表于 2022-11-21 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58499925&amp;ptid=2098044" target="_blank">tpsg 发表于 2022-11-19 09:17</a>
+
+我也是打女神时才2100血，46级，为什么坛友的等级数值都这么高</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">可能运气太差了被动十里坡了，终章60级不到，追章结束前80多级
+
+40多级你们也突得太快了...
+
+*****
+
+####  llysander  
+##### 2450#       发表于 2022-11-21 09:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58501512&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 11:39</a>
+
+新章还能打他们吗？而且我有印象的隐藏只有四个，一个在封印城我还不知道怎么进去
+
+—— 来自 S1Fun ...</blockquote>
+都可以，设计是没东西能错过，城里服装店左边的井下面通地下封印城，大概六七章就解锁了但最好八章最终收集的时候再打，道中都够头皮麻的
+
+*****
+
+####  CswStar  
+##### 2451#       发表于 2022-11-21 10:02
+
+这游戏的法杖是不是可以从头用到尾？近战武器基本上到下一章就废了，法杖倒是还行
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
