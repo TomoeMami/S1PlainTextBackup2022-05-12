@@ -11155,3 +11155,14 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 玩了新章才开始点运气，之后升级快多了。后面才意识到加血才是正道，加的那点防御攻击，新章里一点都不够看<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  電子器官依存  
+##### 2463#       发表于 2022-11-21 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58533078&amp;ptid=2098044" target="_blank">advane 发表于 2022-11-21 10:48</a>
+困难难度差不多50个小时打完了，剧情真好，刷起来真上头。不过这个梦神有点突兀，好像游戏里没他的伏笔吧， ...</blockquote>
+steam版的demo有两个模式，体验第一章剧情或者快速体验战斗，后者的背景就是梦神让主角入梦了
+
