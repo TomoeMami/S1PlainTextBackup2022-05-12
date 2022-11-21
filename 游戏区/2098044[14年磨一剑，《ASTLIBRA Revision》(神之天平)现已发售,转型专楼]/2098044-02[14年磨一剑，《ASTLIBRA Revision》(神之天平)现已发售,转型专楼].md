@@ -11013,3 +11013,61 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 请教一下，这游戏法师是不是比较废，感觉无论怎么加点都没能达到我想要的攻击 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">凭依应该都是看mag属性的 也是法师， 那撞人凭依法师可是厉害极了
 
+
+
+*****
+
+####  llysander  
+##### 2453#       发表于 2022-11-21 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58506849&amp;ptid=2098044" target="_blank">unclea 发表于 2022-11-19 18:43</a>
+
+有没有什么最优天平配重之类的攻略。懒得自己试了
+
+—— 来自 OPPO PEEM00, Android 12上的 S1Next-鹅版 v2 ...</blockquote>
+两个曾经抄过的作业
+
+8章 高状态耐性适合被石化猛毒烦死的
+
+装饰蛋糕                 草莓果酱
+
+豆沙                       白内衣
+
+巧克力派                装了水的大瓶
+
+苹果派                   王城苹果
+
+草莓可丽饼             巧克力冰淇淋
+
+追章 均衡型除了耐性什么都有点
+
+蓝珠子（皿强化）            派底饼（皿强化）
+
+鸡蛋三明治（皿强化）     茶叶（皿强化）
+
+砂糖                               原处碎片
+
+白内衣                            豆沙饼
+
+果酱面包                         泡芙
+
+*****
+
+####  fjfyla  
+##### 2454#       发表于 2022-11-21 10:22
+
+马上打完新章才发现一直带的是减装备盘掉落的饰品<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">旁边还有个加的 前面一直用的白板+20武器（连带盘的木棍都没有）想吐槽为什么金箱子都开不出装备盘 楼上有些刚进新章的不知道有没有带错的 
+好在后面换了加掉落和会长饰品 20分钟就把身上的装备盘全刷完了
+
+*****
+
+####  llysander  
+##### 2455#       发表于 2022-11-21 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58510232&amp;ptid=2098044" target="_blank">julia黑 发表于 2022-11-19 22:50</a>
+
+真结局通关了，别的都好，就是不喜欢强塞的老婆</blockquote>
+能选的话选小黑是多数吧，懂事，闷骚，战斗好用<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+不过楞也是jrpg男主角的味道之一
+

@@ -791,3 +791,12 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 感觉这次真的是不是大的，还是要看到时机设或者设定有没那些巨佬参与<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zhwpjy  
+##### 71#       发表于 2022-11-21 10:25
+
+这个新的天赋树是点了就能用还是要自己搭配的
+
