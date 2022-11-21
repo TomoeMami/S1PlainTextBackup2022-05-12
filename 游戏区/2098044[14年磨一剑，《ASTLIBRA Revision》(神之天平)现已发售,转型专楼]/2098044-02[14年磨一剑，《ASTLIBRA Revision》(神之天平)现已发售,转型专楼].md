@@ -11352,3 +11352,16 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 还有人能忍住不用嘴喂吗！
 
+
+
+*****
+
+####  yueyut  
+##### 2482#       发表于 2022-11-21 16:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58537861&amp;ptid=2098044" target="_blank">布里兰特 发表于 2022-11-21 16:49</a>
+还有人能忍住不用嘴喂吗！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这要是个小黄油我就用嘴喂了。我之前有存档，心想如果去买药臼耽搁了治疗的话就读档，结果小黑也没啥事儿，病好了，所以我也就顺其自然没读档。。。谁想到还有爱情这么个玩意儿。。。
+
+—— 来自 samsung SM-G986W, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
