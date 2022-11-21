@@ -649,3 +649,12 @@ xgp好像不能和steam的朋友联机啊？
 
   这个从杀地板2搬过来的BOSS护盾真的无语，杀地板2玩家的输出能力是这游戏的10倍还有上升空间，这游戏搞个护盾就是纯恶心玩家了
 
+
+
+*****
+
+####  dfbbymice  
+##### 66#       发表于 2022-11-21 20:12
+
+boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直接重启护盾，我特别喜欢这个时候上去抢伤害<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+

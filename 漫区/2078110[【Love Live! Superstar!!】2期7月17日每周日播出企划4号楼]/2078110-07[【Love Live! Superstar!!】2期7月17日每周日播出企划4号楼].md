@@ -4300,3 +4300,20 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 9346#       发表于 2022-11-21 20:03
+
+<img src="https://img.saraba1st.com/forum/202211/21/200330w1n2f6yyx71hc0k0.png" referrerpolicy="no-referrer">
+
+<strong>E703FCC7-0050-44CA-B268-5B032F2B0984.png</strong> (267.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-21 20:03 上传
+
+感觉更像是打薄了
+
