@@ -10940,3 +10940,17 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 卡女神几个小时，受不了CE了，以为通了没想到还有新章，流程也太长了，想问后面还有多长的流程。 ...</blockquote>
 路线略有不同比较短得重走一遍，前期大量一刀秒的小怪+少量强化版推进会比之前快很多
 
+
+
+*****
+
+####  llysander  
+##### 2447#       发表于 2022-11-21 09:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58497787&amp;ptid=2098044" target="_blank">ParadiseMartyr 发表于 2022-11-19 00:34</a>
+
+不是，这游戏后期数值是不是有问题boss两下带走我。还动不动地图炮。好不容易解放了女神结果告诉我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">拿到force勋章时候起一直戴着，每关刷满图纸再走，到追章前grow树是点满溢出的（最后有一排无限点，消耗成倍增加的实际就是满了）
+
+前提别头一热用三倍去点，每关给的属性有倾向，要头铁的话尽量只点取关键凭依路上的...
+
