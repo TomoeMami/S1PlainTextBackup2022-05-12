@@ -1363,3 +1363,12 @@ max小只了(
 好奇剧场版六花和内海还能有啥作用，Dynazenon组全员都要再上机的吧，剩下这两又在电脑前做啦啦队兼解说么 ...</blockquote>
 古利特作为特摄ip，有那么一两个致敬奥特曼的基地指挥防卫队员角色无可厚非<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  老黑305  
+##### 112#       发表于 2022-11-21 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会是古利特爱情故事吗，tv百合，剧场版就bg了
+
