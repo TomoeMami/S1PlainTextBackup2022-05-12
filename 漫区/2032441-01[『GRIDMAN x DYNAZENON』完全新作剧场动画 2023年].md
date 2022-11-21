@@ -1393,3 +1393,24 @@ max小只了(
 
 好好好，又有jk看了
 
+
+
+*****
+
+####  碳酸锂缓释片  
+##### 115#       发表于 2022-11-21 18:50
+
+＼　#メカスマ 速报！　／
+
+23年3月24公开
+
+映画「グリッドマン ユニバース」に登场する
+
+「#グリッドマン」の新たな姿を
+
+ソフビフィギュアで最速立体化！
+
+近日ご案内予定です✨
+<img src="http://tvax4.sinaimg.cn/large/006ajUXPly1h8cxywp0p1j30go0m8wg0.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/gsc_mechasmile/status/1594638206888464384](https://twitter.com/gsc_mechasmile/status/1594638206888464384)
+
