@@ -2186,3 +2186,18 @@ https:/ ...</blockquote>
 肯定是砍东西，两部变一部，怕不是cory要跑路的原因，反正cory大纲已经写好了，索尼司马要求改成一部那还能 ...</blockquote>
 确实，而且3部还可以顺理成章抛弃PS4版，实在是被钻狗洞爬爬爬传送世界树整吐了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还可以减少机能掣肘，搞点大场面。
 
+
+
+*****
+
+####  ads147147  
+##### 1705#       发表于 2022-11-21 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58538608&amp;ptid=2025548" target="_blank">泥潭办证先锋 发表于 2022-11-21 17:38</a>
+确实，而且3部还可以顺理成章抛弃PS4版，实在是被钻狗洞爬爬爬传送世界树整吐了。还可以减少机能 ...</blockquote>
+估摸着ps5这个世代不会再有战神了，ps5的周期也过了大半，大概率圣莫尼卡要用新ip来证明自己才是当家的大儿子，希望新ip对得起ps5。
+
+或许可以出个儿子外传卖卖，但是意义也不大来，奎爷的角色转变真的很完整了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
