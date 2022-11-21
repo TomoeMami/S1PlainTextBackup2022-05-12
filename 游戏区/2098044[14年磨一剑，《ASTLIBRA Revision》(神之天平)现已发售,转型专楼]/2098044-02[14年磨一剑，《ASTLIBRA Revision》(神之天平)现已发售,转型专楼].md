@@ -11001,3 +11001,15 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  llysander  
+##### 2452#       发表于 2022-11-21 10:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58503278&amp;ptid=2098044" target="_blank">ChengChung 发表于 2022-11-19 14:09</a>
+
+请教一下，这游戏法师是不是比较废，感觉无论怎么加点都没能达到我想要的攻击 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">凭依应该都是看mag属性的 也是法师， 那撞人凭依法师可是厉害极了
+
