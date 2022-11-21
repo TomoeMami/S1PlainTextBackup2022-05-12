@@ -11071,3 +11071,15 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 不过楞也是jrpg男主角的味道之一
 
+
+
+*****
+
+####  llysander  
+##### 2456#       发表于 2022-11-21 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58518579&amp;ptid=2098044" target="_blank">wolfwood 发表于 2022-11-20 13:44</a>
+
+冲开个档打困难，第一次凭依技的时候放的是火龙，大概也算是个暗示吧，打完第一个守护兽鸟哥说它的功劳有三 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">天平村第一个boss 要是不用土系凭依不知道要砍几年的...
+
