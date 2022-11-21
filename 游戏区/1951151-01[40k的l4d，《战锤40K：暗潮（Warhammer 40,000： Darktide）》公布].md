@@ -667,3 +667,15 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 鉴于鼠疫有豆芽，是不是暗潮也该来个豆芽什么的？
 
+
+
+*****
+
+####  古代人皮克  
+##### 68#       发表于 2022-11-22 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58540259&amp;ptid=1951151" target="_blank">415452356 发表于 2022-11-21 19:44</a>
+
+这个从杀地板2搬过来的BOSS护盾真的无语，杀地板2玩家的输出能力是这游戏的10倍还有上升空间，这游戏搞个 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你打单人是这样的，四个人一起那就是乱刀劈死
+

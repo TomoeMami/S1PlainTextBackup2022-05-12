@@ -11613,3 +11613,12 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 第七章鸟哥没了以后突出一个残疾，上级恶魔梦回第一章全程举盾砍一下观察一下，关底小妹妹怂在角落一箭一箭 ...</blockquote>
 这下你知道谁是爹了吧，没鸟主角就是个废物
 
+
+
+*****
+
+####  quanlix  
+##### 2504#       发表于 2022-11-22 00:20
+
+外传，free版都打完了，又空虚了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
