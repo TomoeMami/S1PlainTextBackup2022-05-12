@@ -11601,3 +11601,15 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 红毛妹妹后面还有没有更多细分，到底是不是还那个死兄控。</blockquote>
 不算兄控，亲口说想吊金龟婿（宰相）
 
+
+
+*****
+
+####  gwchobit  
+##### 2503#       发表于 2022-11-21 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58542592&amp;ptid=2098044" target="_blank">防撞桶好 发表于 2022-11-21 22:16</a>
+
+第七章鸟哥没了以后突出一个残疾，上级恶魔梦回第一章全程举盾砍一下观察一下，关底小妹妹怂在角落一箭一箭 ...</blockquote>
+这下你知道谁是爹了吧，没鸟主角就是个废物
+
