@@ -11083,3 +11083,41 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 冲开个档打困难，第一次凭依技的时候放的是火龙，大概也算是个暗示吧，打完第一个守护兽鸟哥说它的功劳有三 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">天平村第一个boss 要是不用土系凭依不知道要砍几年的...
 
+
+
+*****
+
+####  llysander  
+##### 2457#       发表于 2022-11-21 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58519517&amp;ptid=2098044" target="_blank">希望之异热同心 发表于 2022-11-20 14:54</a>
+
+男女主真是魔怔纯爱党，女主因为男主去找义父了魔怔把世界灭了，男主死了老婆第一次发怒把神灭了，真正的纯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 讲道理我看到这里点过两次算是和阿奴里斯good end也对男主非常不满，毕竟整个游戏前半都在告诉你改过去就像天平有得有失，是你不惜代价去捞青梅，又突出一个我全要不想承受代价又去捞鸦兄。我觉得丫就欠制裁一片鸡毛里痛苦后悔的剧情应该再多点。
+
+当然最后都合展开莽赢了，再之后阿斯特天平计划都是算计当时选什么都无能为力，这些是后话那个时点没法知道...
+
+*****
+
+####  llysander  
+##### 2458#       发表于 2022-11-21 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58532493&amp;ptid=2098044" target="_blank">CswStar 发表于 2022-11-21 10:02</a>
+
+这游戏的法杖是不是可以从头用到尾？近战武器基本上到下一章就废了，法杖倒是还行
+
+  -- 来自 能看大图的 S ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大概没人这么干，憋屈弹道非常不利于刷，近战是扎进堆里一起劈的
+
+武器就一直做一直换呗，上面带技能带绿点练了不亏
+
+*****
+
+####  希望之异热同心  
+##### 2459#       发表于 2022-11-21 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58532912&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-21 10:35</a>
+
+讲道理我看到这里点过两次算是和阿奴里斯good end也对男主非常不满，毕竟整个游戏前半都在告诉你 ...</blockquote>
+如果只看本篇确实挺怪的，但新章剧情补完了不少本篇的设定也给2人感情加了点戏份，但看起来还是纯爱的魔怔233
+
