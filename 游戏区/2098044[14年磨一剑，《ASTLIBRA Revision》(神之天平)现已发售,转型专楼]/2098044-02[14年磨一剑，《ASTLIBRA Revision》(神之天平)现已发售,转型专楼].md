@@ -10928,3 +10928,15 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  llysander  
+##### 2446#       发表于 2022-11-21 09:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58489148&amp;ptid=2098044" target="_blank">tpsg 发表于 2022-11-18 15:17</a>
+
+卡女神几个小时，受不了CE了，以为通了没想到还有新章，流程也太长了，想问后面还有多长的流程。 ...</blockquote>
+路线略有不同比较短得重走一遍，前期大量一刀秒的小怪+少量强化版推进会比之前快很多
+

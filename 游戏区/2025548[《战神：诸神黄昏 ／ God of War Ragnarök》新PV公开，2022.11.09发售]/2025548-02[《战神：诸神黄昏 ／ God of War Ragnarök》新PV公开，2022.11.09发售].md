@@ -1942,3 +1942,16 @@ https:/ ...</blockquote>
 
 ----发送自 [OnePlus HD1900,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  windtrack_qh  
+##### 1683#       发表于 2022-11-21 09:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">被精灵国图书馆那个BOSS憋了2个小时果断切故事难度切菜了，我菜我认了
+
+麻痹敌人各种霸体，老子各种被硬直三连，到底谁是战神？
+
+还有设计符文箭连锁解秘的人是不是得了新冠脑子里全是脑雾才能设计出这么智障的玩意？
+
