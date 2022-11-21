@@ -154,3 +154,12 @@ boss战hard我都打不过，那毒太猛了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后和我在用着的SSR齿轮卡位置一样，战力没怎么增强
 
+
+
+*****
+
+####  黑上シグマ  
+##### 134#       发表于 2022-11-21 21:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后发现中二的解异常才是boss战最需要的……
+
