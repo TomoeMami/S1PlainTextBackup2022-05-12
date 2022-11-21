@@ -1414,3 +1414,12 @@ max小只了(
 <img src="http://tvax4.sinaimg.cn/large/006ajUXPly1h8cxywp0p1j30go0m8wg0.jpg" referrerpolicy="no-referrer">
 [https://twitter.com/gsc_mechasmile/status/1594638206888464384](https://twitter.com/gsc_mechasmile/status/1594638206888464384)
 
+
+
+*****
+
+####  tonberry  
+##### 116#       发表于 2022-11-21 20:27
+
+这脑袋怎么变成西格玛了
+

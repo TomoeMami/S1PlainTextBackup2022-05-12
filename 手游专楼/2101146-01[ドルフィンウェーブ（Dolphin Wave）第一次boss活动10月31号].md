@@ -143,3 +143,14 @@
 
 boss战hard我都打不过，那毒太猛了
 
+
+
+*****
+
+####  黑上シグマ  
+##### 133#       发表于 2022-11-21 20:23
+
+ 本帖最后由 黑上シグマ 于 2022-11-21 20:25 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后和我在用着的SSR齿轮卡位置一样，战力没怎么增强
+
