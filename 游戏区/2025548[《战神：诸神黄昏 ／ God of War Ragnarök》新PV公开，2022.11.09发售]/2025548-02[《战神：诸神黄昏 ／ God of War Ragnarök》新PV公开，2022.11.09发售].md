@@ -1922,3 +1922,23 @@ https:/ ...</blockquote>
 这个别狂战士的后跳全图蓝圈怎么办啊，倒不是打不过但是偶尔出现的后跳几百米然后蓄蓝圈根本打断不了啊 ...</blockquote>
 一直贴着打就够时间盾掉，离太远就符文攻击打断或者爆气躲
 
+
+
+*****
+
+####  Schwarzess  
+##### 1681#       发表于 2022-11-21 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58529866&amp;ptid=2025548" target="_blank">kangkangsama 发表于 2022-11-21 00:22</a>
+这个别狂战士的后跳全图蓝圈怎么办啊，倒不是打不过但是偶尔出现的后跳几百米然后蓄蓝圈根本打断不了啊 ...</blockquote>
+突袭盾盾击，带冲锋，只要不是太远或者太慢都能无脑解。
+
+*****
+
+####  jokertx  
+##### 1682#       发表于 2022-11-21 08:09
+
+昨晚花了一个半小时才过了无情的单打招兵狂战士，这后面双打不敢想啊
+
+----发送自 [OnePlus HD1900,Android 11](http://stage1.5j4m.com/?1.37)
+
