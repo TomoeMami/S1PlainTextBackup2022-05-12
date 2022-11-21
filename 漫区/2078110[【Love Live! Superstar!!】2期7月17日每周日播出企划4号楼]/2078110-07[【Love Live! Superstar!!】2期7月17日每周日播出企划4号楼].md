@@ -4317,3 +4317,20 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 
 感觉更像是打薄了
 
+
+
+*****
+
+####  adw667  
+##### 9347#       发表于 2022-11-21 20:34
+
+为什么一年多了还能在A店买到初回生产的批次啊，A店你私藏了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/21/203259vthaotawkwkiagei.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221121202936.png</strong> (103.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-21 20:32 上传
+
