@@ -2006,3 +2006,21 @@ https:/ ...</blockquote>
 毕竟前面给的铺垫太少了
 正好来这么一出提尔的剧情也不用写了
 
+
+
+*****
+
+####  Onelooker  
+##### 1689#       发表于 2022-11-21 12:50
+
+风怒
+
+*****
+
+####  Kazepollar  
+##### 1690#       发表于 2022-11-21 12:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58531985&amp;ptid=2025548" target="_blank">windtrack_qh 发表于 2022-11-21 09:10</a>
+ 被精灵国图书馆那个BOSS憋了2个小时果断切故事难度切菜了，我菜我认了  麻痹敌人各种霸体，老子各种 ...</blockquote>
+草，你好菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
