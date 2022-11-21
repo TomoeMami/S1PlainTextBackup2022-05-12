@@ -679,3 +679,30 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 这个从杀地板2搬过来的BOSS护盾真的无语，杀地板2玩家的输出能力是这游戏的10倍还有上升空间，这游戏搞个 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你打单人是这样的，四个人一起那就是乱刀劈死
 
+
+
+*****
+
+####  夜莺0093  
+##### 69#       发表于 2022-11-22 01:42
+
+现在刺杀任务不都是一个医疗包往地上一摆然后E头四上去对Boss进行终极侮辱么，只看生存能力都不好说哪边是纳垢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 70#       发表于 2022-11-22 01:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58544791&amp;ptid=1951151" target="_blank">古代人皮克 发表于 2022-11-22 00:21</a>
+你打单人是这样的，四个人一起那就是乱刀劈死</blockquote>
+  认识的人除了我没人当预购冤大头，只能和野人配合
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  CharlieZ-  
+##### 71#       发表于 2022-11-22 01:45
+
+目前品质和喋血复仇比怎么样，是高配还是低配
+
