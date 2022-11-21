@@ -11139,3 +11139,19 @@ free版应该是问了使用许可的，就算是免费资源站里也需要看�
 
 都打到第五章了才发现自动连击这个嘉隆魔法是神技啊，再也不用费力搓招了
 
+
+
+*****
+
+####  tpsg  
+##### 2462#       发表于 2022-11-21 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58532383&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-21 09:53</a>
+
+可能运气太差了被动十里坡了，终章60级不到，追章结束前80多级
+
+40多级你们也突得太快了... ...</blockquote>
+前期为了保命和输出，只点了防御，攻击，敏捷，没点运气<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+玩了新章才开始点运气，之后升级快多了。后面才意识到加血才是正道，加的那点防御攻击，新章里一点都不够看<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+

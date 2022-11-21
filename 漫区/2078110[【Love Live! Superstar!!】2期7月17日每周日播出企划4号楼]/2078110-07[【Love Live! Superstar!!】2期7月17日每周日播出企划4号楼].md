@@ -4178,3 +4178,14 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 
 千束目前转发点赞数（9492/4.8万）都已经仅次于三玖（1.1万/5.4万），历史第二了
 
+
+
+*****
+
+####  ruffian  
+##### 9336#       发表于 2022-11-21 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58529949&amp;ptid=2078110" target="_blank">starring 发表于 2022-11-21 00:28:35</a></blockquote>草，这是167还是197啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
