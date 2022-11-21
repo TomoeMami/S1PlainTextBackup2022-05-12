@@ -11537,3 +11537,25 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 有技能盘，光剑需要练满得到电池后吃魔法加成伤害爆炸</blockquote>
 电池拿到了。具体是哪个嘉隆技能呢？
 
+
+
+*****
+
+####  防撞桶好  
+##### 2497#       发表于 2022-11-21 22:16
+
+第七章鸟哥没了以后突出一个残疾，上级恶魔梦回第一章全程举盾砍一下观察一下，关底小妹妹怂在角落一箭一箭射死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+*****
+
+####  umbasa  
+##### 2498#       发表于 2022-11-21 22:21
+
+<blockquote>永远的访客 发表于 2022-11-21 19:46
+我也是上来就困难难度，现在大约存盘时间50小时没结束第8章 供参考：
+
+1 每进个区域先反复出最近 ...</blockquote>
+就靠技能给的无敌时间嗑药了，很真实
+
