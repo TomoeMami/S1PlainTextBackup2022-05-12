@@ -1440,3 +1440,19 @@ miko：最开始杂谈10分钟
 
 真可怜
 
+
+
+*****
+
+####  rs5621  
+##### 3144#       发表于 2022-11-22 00:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不错,今晚下得早啊
+
+*****
+
+####  holoan  
+##### 3145#         楼主| 发表于 2022-11-22 00:30
+
+明天不播，周三应该会等电视节目结束
+

@@ -11046,3 +11046,15 @@ K实质上最后一次正常直播（不算毕业回），最后唱的下雨天�
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2663#         楼主| 发表于 2022-11-22 00:21
+
+ 本帖最后由 喜闻乐见 于 2022-11-22 00:25 编辑 
+
+还有489舰 3d区no.1
+<img src="https://s1.ax1x.com/2022/11/22/zlfW9K.jpg" referrerpolicy="no-referrer">
+
