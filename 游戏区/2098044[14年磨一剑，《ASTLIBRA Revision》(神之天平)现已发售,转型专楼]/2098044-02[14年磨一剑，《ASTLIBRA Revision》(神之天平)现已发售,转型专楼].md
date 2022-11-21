@@ -11514,3 +11514,26 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 老婆给的光剑是不是没有对应的装备盘啊？一直打不出来
 
+
+
+*****
+
+####  六至九  
+##### 2495#       发表于 2022-11-21 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58542353&amp;ptid=2098044" target="_blank">Rufus.X 发表于 2022-11-21 22:00</a>
+老婆给的光剑是不是没有对应的装备盘啊？一直打不出来。而且光剑伤害好低，是需要先强化吗？
+
+ ...</blockquote>
+有技能盘，光剑需要练满得到电池后吃魔法加成伤害爆炸
+
+*****
+
+####  Rufus.X  
+##### 2496#       发表于 2022-11-21 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58542483&amp;ptid=2098044" target="_blank">六至九 发表于 2022-11-21 22:08</a>
+
+有技能盘，光剑需要练满得到电池后吃魔法加成伤害爆炸</blockquote>
+电池拿到了。具体是哪个嘉隆技能呢？
+

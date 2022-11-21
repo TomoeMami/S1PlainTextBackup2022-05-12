@@ -202,3 +202,17 @@ hard一次通过太难，要把整个队伍都换掉，看来这次活动只能�
 这游戏不太行，抽了100抽只出了一个ur记忆卡.....润了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">啊这，日游的抽卡是真的只能随缘啦，然后等超得
 
+
+
+*****
+
+####  孫光龍  
+##### 139#       发表于 2022-11-21 22:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58542268&amp;ptid=2101146" target="_blank">小五的拖鞋 发表于 2022-11-21 21:56</a>
+啊这，日游的抽卡是真的只能随缘啦，然后等超得</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实我玩手游都是囤石攒井的套路
+这游戏已经囤了3万多石头了
+今天想着试试手，结果没刹住车，抽了100连
+但是他只给我一个UR礼装我也是服了
+
