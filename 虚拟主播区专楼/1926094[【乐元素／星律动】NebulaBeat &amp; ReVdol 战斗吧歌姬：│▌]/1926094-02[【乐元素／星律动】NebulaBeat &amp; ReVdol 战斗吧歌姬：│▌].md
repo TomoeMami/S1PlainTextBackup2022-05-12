@@ -10953,3 +10953,14 @@ saku配音18x作品会不会有一种宋丹丹老师下海的感觉？
 
 而且二者粉丝成分差别较大，虽然都说烂炒，一个是小学男生式，一个跟踪狂式。
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2654#       发表于 2022-11-21 12:16
+
+小火炉换号进NB<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
