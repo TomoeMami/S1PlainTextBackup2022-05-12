@@ -190,3 +190,15 @@ boss战hard我都打不过，那毒太猛了
 
 hard一次通过太难，要把整个队伍都换掉，看来这次活动只能吃低保了
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 138#         楼主| 发表于 2022-11-21 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58541853&amp;ptid=2101146" target="_blank">孫光龍 发表于 2022-11-21 21:33</a>
+
+这游戏不太行，抽了100抽只出了一个ur记忆卡.....润了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">啊这，日游的抽卡是真的只能随缘啦，然后等超得
+
