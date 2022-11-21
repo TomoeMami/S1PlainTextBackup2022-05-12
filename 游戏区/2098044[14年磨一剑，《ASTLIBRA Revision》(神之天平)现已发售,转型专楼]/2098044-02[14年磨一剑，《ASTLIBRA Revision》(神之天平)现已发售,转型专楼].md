@@ -11590,3 +11590,14 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红毛妹妹后面还有没有更多细分，到底是不是还那个死兄控。
 
+
+
+*****
+
+####  拱猪  
+##### 2502#       发表于 2022-11-21 23:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58543365&amp;ptid=2098044" target="_blank">横寺阳人 发表于 2022-11-21 22:57</a>
+红毛妹妹后面还有没有更多细分，到底是不是还那个死兄控。</blockquote>
+不算兄控，亲口说想吊金龟婿（宰相）
+
