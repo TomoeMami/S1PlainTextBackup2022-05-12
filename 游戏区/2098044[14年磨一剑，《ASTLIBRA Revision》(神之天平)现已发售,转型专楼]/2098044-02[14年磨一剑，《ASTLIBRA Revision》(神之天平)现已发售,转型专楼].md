@@ -11559,3 +11559,16 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 1 每进个区域先反复出最近 ...</blockquote>
 就靠技能给的无敌时间嗑药了，很真实
 
+
+
+*****
+
+####  Rainwedell  
+##### 2499#       发表于 2022-11-21 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58542542&amp;ptid=2098044" target="_blank">Rufus.X 发表于 2022-11-21 22:12</a>
+电池拿到了。具体是哪个嘉隆技能呢？</blockquote>
+不在嘉隆里面，就是类似普通装备技能一样在装备栏按一下就开了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

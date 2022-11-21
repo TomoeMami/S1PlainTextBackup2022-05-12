@@ -11023,3 +11023,15 @@ saku配音18x作品会不会有一种宋丹丹老师下海的感觉？
 
 下雨天有什么梗吗？
 
+
+
+*****
+
+####  一闪一闪肋间肌  
+##### 2661#       发表于 2022-11-21 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58542490&amp;ptid=1926094" target="_blank">佛皇 发表于 2022-11-21 22:09</a>
+
+下雨天有什么梗吗？</blockquote>
+K实质上最后一次正常直播（不算毕业回），最后唱的下雨天（“这句留给你们唱”）
+
