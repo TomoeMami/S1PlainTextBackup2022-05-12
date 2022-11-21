@@ -2335,3 +2335,26 @@ ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  火华火华火  
+##### 1718#       发表于 2022-11-22 02:40
+
+这结局气得我半夜睡不着觉，艹
+制作组这么糟蹋自己做出来的游戏不难受吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Znesmoc  
+##### 1719#       发表于 2022-11-22 03:17
+
+25小时一周目，打了点支线
+
+感觉便当发的有些草率，后期剧情突然开始暴走……游戏还行吧，就是一些伏笔都没收，有些难受
+
+一些举动属于是完全理解不了了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

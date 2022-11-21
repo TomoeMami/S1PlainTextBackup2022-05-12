@@ -11058,3 +11058,19 @@ K实质上最后一次正常直播（不算毕业回），最后唱的下雨天�
 还有489舰 3d区no.1
 <img src="https://s1.ax1x.com/2022/11/22/zlfW9K.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 2664#       发表于 2022-11-22 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58542490&amp;ptid=1926094" target="_blank">佛皇 发表于 2022-11-21 22:09</a>
+
+下雨天有什么梗吗？</blockquote>
+kino早期直播就一首下雨天唱得好，九夏和kino换皮也唱了下雨天，久而久之每次点歌都有人点下雨天
+
+小纸歌会还特意学了下雨天
+
+反正下雨天在nb人dna中已经等于“痛，太痛了，刀我是吧”
+

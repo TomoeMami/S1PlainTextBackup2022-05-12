@@ -706,3 +706,29 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 目前品质和喋血复仇比怎么样，是高配还是低配
 
+
+
+*****
+
+####  FLZB  
+##### 72#       发表于 2022-11-22 01:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58540259&amp;ptid=1951151" target="_blank">415452356 发表于 2022-11-21 19:44</a>
+
+这个从杀地板2搬过来的BOSS护盾真的无语，杀地板2玩家的输出能力是这游戏的10倍还有上升空间，这游戏搞个 ...</blockquote>
+这一链锯下去看我把不把你的护盾劈烂就完事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+今天四个狂信徒砍王爆殴连长，最后一个盾刚启动瞬间带着残血直接蒸发了，尸体都被打到飞起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半分宅  
+##### 73#       发表于 2022-11-22 03:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58545983&amp;ptid=1951151" target="_blank">FLZB 发表于 2022-11-21 13:55</a>
+
+这一链锯下去看我把不把你的护盾劈烂就完事
+
+今天四个狂信徒砍王爆殴连长，最后一个盾刚启动瞬间 ...</blockquote>
+的确感觉近战上去全力输出比较安定，连长的近战也比较好坦。有些连长是拿霰弹枪的，一掏出大宝贝就开始倒队友，如果此时正在刷敌潮就很容易灭队。
+

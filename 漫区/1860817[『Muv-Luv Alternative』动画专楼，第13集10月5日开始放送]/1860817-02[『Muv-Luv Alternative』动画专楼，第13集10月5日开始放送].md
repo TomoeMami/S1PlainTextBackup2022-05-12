@@ -159,3 +159,15 @@ nico上有不少10年前制作的不错的MAD。另外有日文阅读能力的�
 根据我对OP的理解，应该会送吧。毕竟甲21损失的其他2台女武神不知火一台没人一台驾驶舱被捅穿。 ...</blockquote>
 大概率是大尉遗言交代那里多给点镜头吧）
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2016#       发表于 2022-11-22 04:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58511762&amp;ptid=1860817" target="_blank">圣天辉 发表于 2022-11-20 00:31</a>
+
+刚刚补完原作，EX和UL都推了全结局，现在实在是意犹未尽。也实在是没想到自己人生中第一部完全通关的GAL是M ...</blockquote>
+[英语吃屎环节](https://www.bilibili.com/video/BV1pQ4y1i7yV/?share_source=copy_web&amp;vd_source=c09d6439304e8675a122e305bc40d774)就挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
