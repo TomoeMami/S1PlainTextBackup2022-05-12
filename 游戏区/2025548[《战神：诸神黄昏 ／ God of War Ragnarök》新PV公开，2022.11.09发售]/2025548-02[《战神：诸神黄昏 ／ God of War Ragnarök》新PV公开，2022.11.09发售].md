@@ -2226,3 +2226,22 @@ https:/ ...</blockquote>
 
 结果到最后剧情一坨，演出拉稀也挺荒诞的
 
+
+
+*****
+
+####  查马丁魔术师  
+##### 1707#       发表于 2022-11-21 19:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58537727&amp;ptid=2025548" target="_blank">ads147147 发表于 2022-11-21 16:41</a>
+
+肯定是砍东西，两部变一部，怕不是cory要跑路的原因，反正cory大纲已经写好了，索尼司马要求改成一部那还能 ...</blockquote>
+北欧两部，CORY说了好几次是自己拍板的，不想一直做三部曲，制作时间太长了，而且他说了自己的新项目已经做了两三年了
+
+*****
+
+####  kilkilo  
+##### 1708#       发表于 2022-11-21 19:27
+
+ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，也就才2年，甚至真正意义上的独占一只手数的过来，看好还有下一作
+
