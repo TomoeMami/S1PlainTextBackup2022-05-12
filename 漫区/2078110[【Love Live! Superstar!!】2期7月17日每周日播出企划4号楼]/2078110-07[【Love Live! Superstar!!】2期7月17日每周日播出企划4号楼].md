@@ -4210,3 +4210,44 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 
 就是最新一集(第七集)
 
+
+
+*****
+
+####  Kfly  
+##### 9338#       发表于 2022-11-21 17:14
+
+ 本帖最后由 Kfly 于 2022-11-21 17:17 编辑 
+
+<img src="https://img.saraba1st.com/forum/202211/21/171436f36lmt1pyo1my6oz.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ187-38ovZrT3cSlc-sg.jpg</strong> (161.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-21 17:14 上传
+
+<img src="https://img.saraba1st.com/forum/202211/21/171719gk0kz11pp56g96k3.jpg" referrerpolicy="no-referrer">
+
+<strong>-9lddQ187-bw8yZoT3cSlc-sg.jpg</strong> (142.7 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-21 17:17 上传
+
+*****
+
+####  player3960  
+##### 9339#       发表于 2022-11-21 17:19
+
+还是剪短了（悲），不过直播时就觉得她肯定要剪了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 9340#       发表于 2022-11-21 17:21
+
+要开启可可模式了
+
