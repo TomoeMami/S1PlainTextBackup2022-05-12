@@ -1224,3 +1224,17 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 难的是后面一章的角神…………
 
+
+
+*****
+
+####  marxel  
+##### 43753#       发表于 2022-11-21 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58533969&amp;ptid=1712412" target="_blank">廖化 发表于 2022-11-21 12:12</a>
+
+平安京其实还好，除了铃鹿御前+表滕太有点麻烦之外都还好，道满就是送。
+
+难的是后面一章的角神………… ...</blockquote>
+没事，商店里蓝方块补货了，砸它<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
