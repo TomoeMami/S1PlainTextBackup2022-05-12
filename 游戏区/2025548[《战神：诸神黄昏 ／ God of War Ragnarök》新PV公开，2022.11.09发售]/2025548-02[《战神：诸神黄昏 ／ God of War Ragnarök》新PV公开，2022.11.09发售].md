@@ -2024,3 +2024,17 @@ https:/ ...</blockquote>
  被精灵国图书馆那个BOSS憋了2个小时果断切故事难度切菜了，我菜我认了  麻痹敌人各种霸体，老子各种 ...</blockquote>
 草，你好菜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wzh5555  
+##### 1691#       发表于 2022-11-21 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58531538&amp;ptid=2025548" target="_blank">jokertx 发表于 2022-11-21 08:09</a>
+
+昨晚花了一个半小时才过了无情的单打招兵狂战士，这后面双打不敢想啊
+
+----发送自 OnePlus HD1900,Android  ...</blockquote>
+双打的等级高一些，不过机制反而简单点。包括三打的其实机制也没群杂兵复杂。这游戏其实本质上是乒乓球双打规则为主，boss真双打群殴只有很偶尔的时刻会有。
+
