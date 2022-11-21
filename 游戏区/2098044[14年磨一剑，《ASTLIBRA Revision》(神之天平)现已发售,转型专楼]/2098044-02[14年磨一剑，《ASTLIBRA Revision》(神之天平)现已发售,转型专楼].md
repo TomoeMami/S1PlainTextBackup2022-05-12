@@ -11241,3 +11241,42 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  gh1023  
+##### 2471#       发表于 2022-11-21 14:01
+
+打到新章魔王城，感觉装备盘这玩意儿感觉就是无底洞啊？这么多把武器每个都有三个盘，盘还有三个稀有度，我要把神剑/神枪这种性能比较好的武器的装备盘刷满意怕不是猴年马月了，所以除了石板强行加盘子掉落以外，还有啥好的刷盘方法？
+
+*****
+
+####  tpsg  
+##### 2472#       发表于 2022-11-21 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58535243&amp;ptid=2098044" target="_blank">gh1023 发表于 2022-11-21 14:01</a>
+
+打到新章魔王城，感觉装备盘这玩意儿感觉就是无底洞啊？这么多把武器每个都有三个盘，盘还有三个稀有度，我 ...</blockquote>
+打完最后的挑战，会长给一个加当前穿戴装备的装备盘暴率的饰品
+
+*****
+
+####  Rainwedell  
+##### 2473#       发表于 2022-11-21 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58535243&amp;ptid=2098044" target="_blank">gh1023 发表于 2022-11-21 14:01</a>
+打到新章魔王城，感觉装备盘这玩意儿感觉就是无底洞啊？这么多把武器每个都有三个盘，盘还有三个稀有度，我 ...</blockquote>
+紫盘刷够一定数量下限会集中爆，配合会长徽章就好了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  vance521  
+##### 2474#       发表于 2022-11-21 14:12
+
+80多小时终于通了困难，妈耶太上头！！
+
+后半部分基本全程法杖，攻击一点不加，主堆魔力和敏捷再来点血和防御，太上头！
+
