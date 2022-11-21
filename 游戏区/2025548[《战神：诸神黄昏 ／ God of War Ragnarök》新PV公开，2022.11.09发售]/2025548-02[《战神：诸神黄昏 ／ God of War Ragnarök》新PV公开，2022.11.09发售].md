@@ -2038,3 +2038,24 @@ https:/ ...</blockquote>
 ----发送自 OnePlus HD1900,Android  ...</blockquote>
 双打的等级高一些，不过机制反而简单点。包括三打的其实机制也没群杂兵复杂。这游戏其实本质上是乒乓球双打规则为主，boss真双打群殴只有很偶尔的时刻会有。
 
+
+
+*****
+
+####  哈罗  
+##### 1692#       发表于 2022-11-21 13:51
+
+艹，通关才知道符文箭迷题可以多射几次把泡泡变大，玩的时候经常射得变大，但以为会消耗总次数
+
+*****
+
+####  你号又双叒没了  
+##### 1693#       发表于 2022-11-21 13:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58531538&amp;ptid=2025548" target="_blank">jokertx 发表于 2022-11-21 08:09</a>
+
+昨晚花了一个半小时才过了无情的单打招兵狂战士，这后面双打不敢想啊
+
+----发送自 OnePlus HD1900,Android  ...</blockquote>
+先给你透露一下，后面一次要打3个狂战士<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
