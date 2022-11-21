@@ -4260,3 +4260,12 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">额………………还是长发好啊岂可修
 
+
+
+*****
+
+####  starring  
+##### 9342#       发表于 2022-11-21 17:32
+
+这个发型把刘海理一下就可以出露琪亚的cos，不趁千年血战的热度再出个cos吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

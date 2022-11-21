@@ -2174,3 +2174,15 @@ https:/ ...</blockquote>
 
 按过去，至少一部是芬布尔之冬的复仇者集结，然后一部诸神黄昏打大场面。
 
+
+
+*****
+
+####  泥潭办证先锋  
+##### 1704#       发表于 2022-11-21 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58537727&amp;ptid=2025548" target="_blank">ads147147 发表于 2022-11-21 16:41</a>
+
+肯定是砍东西，两部变一部，怕不是cory要跑路的原因，反正cory大纲已经写好了，索尼司马要求改成一部那还能 ...</blockquote>
+确实，而且3部还可以顺理成章抛弃PS4版，实在是被钻狗洞爬爬爬传送世界树整吐了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还可以减少机能掣肘，搞点大场面。
+
