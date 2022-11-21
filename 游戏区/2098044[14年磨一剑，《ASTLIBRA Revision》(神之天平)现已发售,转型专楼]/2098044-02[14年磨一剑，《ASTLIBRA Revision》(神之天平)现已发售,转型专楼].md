@@ -11404,3 +11404,22 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 — ...</blockquote>
 等等，第4章不是最服务宅男的一章吗？而且剧情既有超展开又承上启下和前后章节都联系非常紧，外加章节内剧情既悬念又合理，还不缺燃爆，除了扑克谜题吃屎外简直在我心目中1-8中起码前3<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gwchobit  
+##### 2487#       发表于 2022-11-21 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58538952&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-21 18:02</a>
+
+法杖的攻击力到底有没有用啊，攻击全是1但是不用发射出来的魔法直接去敲怪也有不低的伤害，强化也是加攻击 ...</blockquote>
+主要和魔力挂钩，加攻击人让贴脸攻击高点也加更多精力。
+
+*****
+
+####  紫枫客  
+##### 2488#       发表于 2022-11-21 19:19
+
+有没有加点攻略啥的 mmd 本来说挑战一下的  选了个困难 人麻了
+
