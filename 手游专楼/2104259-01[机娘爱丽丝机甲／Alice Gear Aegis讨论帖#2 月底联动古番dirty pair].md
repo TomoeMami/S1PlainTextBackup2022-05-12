@@ -800,3 +800,15 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 这个新的天赋树是点了就能用还是要自己搭配的
 
+
+
+*****
+
+####  Cyau  
+##### 72#       发表于 2022-11-21 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58532777&amp;ptid=2104259" target="_blank">zhwpjy 发表于 2022-11-21 10:25</a>
+
+这个新的天赋树是点了就能用还是要自己搭配的</blockquote>
+自己配，在个人技能页面有槽位，本体ANFA的槽位限制都不一样
+
