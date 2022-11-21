@@ -658,3 +658,12 @@ xgp好像不能和steam的朋友联机啊？
 
 boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直接重启护盾，我特别喜欢这个时候上去抢伤害<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Duc_d'_Muka  
+##### 67#       发表于 2022-11-21 23:10
+
+鉴于鼠疫有豆芽，是不是暗潮也该来个豆芽什么的？
+

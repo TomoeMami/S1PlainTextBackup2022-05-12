@@ -11035,3 +11035,14 @@ saku配音18x作品会不会有一种宋丹丹老师下海的感觉？
 下雨天有什么梗吗？</blockquote>
 K实质上最后一次正常直播（不算毕业回），最后唱的下雨天（“这句留给你们唱”）
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2662#       发表于 2022-11-21 23:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐观点，卷卷唱下雨天暗示要去NB了
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
