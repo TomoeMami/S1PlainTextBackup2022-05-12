@@ -11230,3 +11230,14 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 我记得湿地进图后切一个场景就能遇到带气球的商店啊</blockquote>
 看到了，有个装备选项
 
+
+
+*****
+
+####  Tissuesea  
+##### 2470#       发表于 2022-11-21 13:41
+
+第四章有点想吐，老滚四遇到这种情节先直接提刀砍爆那个垃圾公会，这他妈不打不能推剧情就感觉<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
