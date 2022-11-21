@@ -181,3 +181,12 @@ boss战hard我都打不过，那毒太猛了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这游戏不太行，抽了100抽只出了一个ur记忆卡.....润了
 
+
+
+*****
+
+####  羽出  
+##### 137#       发表于 2022-11-21 21:51
+
+hard一次通过太难，要把整个队伍都换掉，看来这次活动只能吃低保了
+

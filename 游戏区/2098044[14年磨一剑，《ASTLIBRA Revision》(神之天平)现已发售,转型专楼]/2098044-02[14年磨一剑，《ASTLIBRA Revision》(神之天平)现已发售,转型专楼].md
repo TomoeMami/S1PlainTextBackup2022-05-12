@@ -11489,3 +11489,19 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 血和防其实还挺重要的，在前期不能靠凭依硬顶的时候给很多容错率
 
+
+
+*****
+
+####  unclea  
+##### 2493#       发表于 2022-11-21 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58532730&amp;ptid=2098044" target="_blank">llysander 发表于 2022-11-21 10:21</a>
+
+两个曾经抄过的作业
+
+8章 高状态耐性适合被石化猛毒烦死的
+
+装饰蛋糕                 草莓果酱</blockquote>
+鸡蛋三明治是个啥？翻遍了菜谱都没找着
+
