@@ -812,3 +812,14 @@ dirty pair，我还找来看过两集，起因是看过本子...
 这个新的天赋树是点了就能用还是要自己搭配的</blockquote>
 自己配，在个人技能页面有槽位，本体ANFA的槽位限制都不一样
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 73#         楼主| 发表于 2022-11-21 12:40
+
+这新PV，90%的画面在前5集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有很多看过下的表示东京船团快逃，社保行星各种强拆生活聚居区的大灾星要来了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
