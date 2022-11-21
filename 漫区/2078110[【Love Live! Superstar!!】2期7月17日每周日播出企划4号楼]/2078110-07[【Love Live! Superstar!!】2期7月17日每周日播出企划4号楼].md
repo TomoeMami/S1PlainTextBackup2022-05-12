@@ -4155,3 +4155,15 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  adw667  
+##### 9334#       发表于 2022-11-21 08:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58530104&amp;ptid=2078110" target="_blank">starring 发表于 2022-11-21 00:40</a>
+
+找来听了一下，“さあ 爱や厌”填词成“啥？哎呀呀”一下子绷不住</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不仅如此，整个歌词都挺绕的，但是架不住火锅调得好啊
+
