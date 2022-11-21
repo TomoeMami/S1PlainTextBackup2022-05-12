@@ -11442,3 +11442,23 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 敏加幸运。可以在boss之前洗点成正常攻击加魔法
 
+
+
+*****
+
+####  永远的访客  
+##### 2490#       发表于 2022-11-21 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58539943&amp;ptid=2098044" target="_blank">紫枫客 发表于 2022-11-21 19:19</a>
+
+有没有加点攻略啥的 mmd 本来说挑战一下的  选了个困难 人麻了</blockquote>
+我也是上来就困难难度，现在大约存盘时间50小时没结束第8章 供参考<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">：
+
+1 每进个区域先反复出最近存盘点刷把章节最基本的装备做出来（old school味）
+
+2 没把章节星盘点满，装备熟练不满别去刮boss痧找不自在
+
+3 人物属性点反正可以洗，随缘就行
+
+4 反正主要靠主动技能+叠被动，打野一套，进BOSS一套，技能确实有打不同怪好用不好用的区别，但是最重要是利用好无敌帧续命，打架不能行，吃药第一名<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

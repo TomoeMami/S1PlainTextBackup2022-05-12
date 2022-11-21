@@ -2245,3 +2245,12 @@ https:/ ...</blockquote>
 
 ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，也就才2年，甚至真正意义上的独占一只手数的过来，看好还有下一作
 
+
+
+*****
+
+####  415452356  
+##### 1709#       发表于 2022-11-21 19:43
+
+  肯定要有一个原生PS5游戏给玩家和股东交代的，地平线2和诸神黄昏明显都为了兼容上世代平台牺牲了不少东西
+
