@@ -11280,3 +11280,24 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 后半部分基本全程法杖，攻击一点不加，主堆魔力和敏捷再来点血和防御，太上头！
 
+
+
+*****
+
+####  gh1023  
+##### 2475#       发表于 2022-11-21 14:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58535320&amp;ptid=2098044" target="_blank">Rainwedell 发表于 2022-11-21 14:07</a>
+
+紫盘刷够一定数量下限会集中爆，配合会长徽章就好了
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 S1Ne ...</blockquote>
+下限指的是？
+
+*****
+
+####  iluso  
+##### 2476#       发表于 2022-11-21 14:22
+
+5章以后不刷刷刷很难打下去，这几十年很少玩纯刷刷刷的游戏了，一般跟着流程走至少能打过BOSS
+
