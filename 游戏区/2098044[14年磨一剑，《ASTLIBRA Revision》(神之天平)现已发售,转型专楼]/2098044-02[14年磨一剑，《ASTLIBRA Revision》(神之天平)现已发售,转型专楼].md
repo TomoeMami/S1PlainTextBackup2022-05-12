@@ -11581,3 +11581,12 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 新章普通难度确实不够看了，随便刷了刷武器盘现在BOSS全都是站桩输出连药都不用嗑
 
+
+
+*****
+
+####  横寺阳人  
+##### 2501#       发表于 2022-11-21 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红毛妹妹后面还有没有更多细分，到底是不是还那个死兄控。
+
