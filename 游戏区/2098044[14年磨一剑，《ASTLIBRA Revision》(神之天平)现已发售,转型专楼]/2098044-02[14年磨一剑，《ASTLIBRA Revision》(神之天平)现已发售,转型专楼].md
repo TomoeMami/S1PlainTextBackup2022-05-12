@@ -11179,3 +11179,22 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 新章把整个故事讲开了，挺好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wellerman  
+##### 2465#       发表于 2022-11-21 13:25
+
+刚开始打，马上去第三章，第二章刷的图纸在城镇都不能合成，湿地也没找到能合成的商店啊。有人知道湿地商店在哪吗
+
+*****
+
+####  jimmy_zjmer  
+##### 2466#       发表于 2022-11-21 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58534730&amp;ptid=2098044" target="_blank">wellerman 发表于 2022-11-21 13:25</a>
+
+刚开始打，马上去第三章，第二章刷的图纸在城镇都不能合成，湿地也没找到能合成的商店啊。有人知道湿地商店 ...</blockquote>
+我记得湿地进图后切一个场景就能遇到带气球的商店啊
+
