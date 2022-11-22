@@ -606,3 +606,15 @@ jaxa解释的原因是探测器分离后太阳能电池板方向不对，无法�
 
 看得我好爽<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yanhan0410  
+##### 66#       发表于 2022-11-22 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58530462&amp;ptid=2106063" target="_blank">无攻不受鹿 发表于 2022-11-21 02:18</a>
+
+我不太懂，不能充满电上去吗，为什么非要上去了再充电</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">总得找个借口不是
+

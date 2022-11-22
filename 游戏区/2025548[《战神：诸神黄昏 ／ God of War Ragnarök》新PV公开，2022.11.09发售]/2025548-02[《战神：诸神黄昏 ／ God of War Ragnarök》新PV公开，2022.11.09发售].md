@@ -2395,3 +2395,17 @@ ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smile
 奎爷啥时候和芙蕾雅复婚，老年夫妻带电灯泡不也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 希芙也挺好看的，就是怀疑沟是不是因为大人的原因给填平了一点
 
+
+
+*****
+
+####  wzh5555  
+##### 1724#       发表于 2022-11-22 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58546675&amp;ptid=2025548" target="_blank">squeezer 发表于 2022-11-22 07:32</a>
+
+我觉得这么多人问为什么长枪能克已经说明问题了，确实故事也解释本质就是长矛多了大脑算不过来。但是这就显 ...</blockquote>
+解法的关键其实还是有伏笔的，辛德里和布罗克比划了关键的破防方式（扔、意外炸）。
+
+原话说的是“感官超负荷”，其实还附带了一层意料之外。实战中真正打破海姆达尔无伤心态的就是第一炸。
+
