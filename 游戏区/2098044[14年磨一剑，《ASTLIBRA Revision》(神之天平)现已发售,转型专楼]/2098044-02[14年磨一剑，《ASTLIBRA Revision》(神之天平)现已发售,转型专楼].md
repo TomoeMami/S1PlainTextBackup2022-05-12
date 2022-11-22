@@ -11622,3 +11622,24 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 外传，free版都打完了，又空虚了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 2505#       发表于 2022-11-22 08:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58539943&amp;ptid=2098044" target="_blank">紫枫客 发表于 2022-11-21 19:19</a>
+
+有没有加点攻略啥的 mmd 本来说挑战一下的  选了个困难 人麻了</blockquote>
+攻防属性大概到第四章还是第五章才会平衡一点，之前就要小心一点，多用防御，最好把神盾这个被动点上。
+
+到了第四章尽早把无限方阵这件衣服做出来把能量吸收这个神被动点上，接下来就是要多注意怪物的起手和留精力放魔法了（能量吸收甚至可以让你拿地形伤害回血）
+
+*****
+
+####  adw667  
+##### 2506#       发表于 2022-11-22 08:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">憋不住了，开个CE改晶体
+
