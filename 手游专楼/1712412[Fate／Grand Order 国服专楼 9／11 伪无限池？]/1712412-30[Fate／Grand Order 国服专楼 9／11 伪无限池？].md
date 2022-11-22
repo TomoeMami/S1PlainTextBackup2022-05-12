@@ -1256,3 +1256,14 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 11月22日是夫妇之日<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  廖化  
+##### 43756#       发表于 2022-11-22 20:33
+
+抽枪龙马沉到底了……连张活动李庄都没有……
+
+再尼玛的见<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

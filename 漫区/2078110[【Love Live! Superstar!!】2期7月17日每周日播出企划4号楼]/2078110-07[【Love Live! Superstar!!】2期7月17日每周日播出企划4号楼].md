@@ -4724,3 +4724,42 @@ https://kdq.jp/llspcovergirl?q
 
 阿波罗真是好事务所..跟amuse一脉相承会玩
 
+
+
+*****
+
+####  player3960  
+##### 9372#       发表于 2022-11-22 20:38
+
+这修图还得是鲤鱼自己上，爆杀官方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kfly  
+##### 9373#       发表于 2022-11-22 20:39
+
+<img src="https://img.saraba1st.com/forum/202211/22/203920ghllyljdk44yw144.jpg" referrerpolicy="no-referrer">
+
+<strong>f76f93aeb3b80414cee0c1bc5e3c0abe4549624.jpg</strong> (914.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-22 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202211/22/203923vf8zbopplqtlo8k7.jpg" referrerpolicy="no-referrer">
+
+<strong>4d21708352c83004e260f84229f252124549624.jpg</strong> (821.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-22 20:39 上传
+
+*****
+
+####  lj205  
+##### 9374#       发表于 2022-11-22 20:41
+
+经纪人直男拍照
+
