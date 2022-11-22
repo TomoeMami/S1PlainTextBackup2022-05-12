@@ -746,3 +746,14 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 昨晚上甚至打了一把医疗箱都没放的3级boss，两个狂信徒加一个欧格林疯狂乱砍，两把链锯轮流伺候，三下五除二就斩杀了。全程唯一倒地的是拿着医疗箱不放的老兵，躲在后排打枪被几个烂僵尸干碎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古代人皮克  
+##### 75#       发表于 2022-11-22 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58546357&amp;ptid=1951151" target="_blank">半分宅 发表于 2022-11-22 03:22</a>
+的确感觉近战上去全力输出比较安定，连长的近战也比较好坦。有些连长是拿霰弹枪的，一掏出大宝贝就开始倒 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刺杀最怕的是潮里面混两个喷火或者网子怪之类的东西，来了就灭，连长本人没啥威胁
+

@@ -2385,3 +2385,13 @@ ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smile
 
 78小时无情难度白金，当然我是悠着打的，经常在地图里乱逛浪费时间，卡最久的还是三人组和女武神，国王倒挺顺利的
 
+
+
+*****
+
+####  Znesmoc  
+##### 1723#       发表于 2022-11-22 10:34
+
+奎爷啥时候和芙蕾雅复婚，老年夫妻带电灯泡不也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+希芙也挺好看的，就是怀疑沟是不是因为大人的原因给填平了一点
+
