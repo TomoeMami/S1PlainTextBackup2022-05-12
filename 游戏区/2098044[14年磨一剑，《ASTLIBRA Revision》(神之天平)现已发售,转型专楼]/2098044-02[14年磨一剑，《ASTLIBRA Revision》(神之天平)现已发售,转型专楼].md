@@ -11781,3 +11781,31 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 ——————————————————防止引用剧透线——————————————————————————————————————防止引用剧透线————————————————————
 没有然后，背景里的战舰还是会一直发动激光武器直到你主动上船为止
 
+
+
+*****
+
+####  llysander  
+##### 2519#       发表于 2022-11-22 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58542078&amp;ptid=2098044" target="_blank">unclea 发表于 2022-11-21 21:46</a>
+
+鸡蛋三明治，派底饼，豆沙包是个啥？翻遍了菜谱都没找着。只有看着名字像的，但配不平。。 ...</blockquote>
+我没看过中文版，文字直译是，这三个合成材料是
+
+鸡蛋+面包 = 鸡蛋面包（图是一盘三明治）
+
+小麦粉+黄油 = パイ生地（这个是所有派类的材料）
+
+团子+豆沙 
+
+*****
+
+####  llysander  
+##### 2520#       发表于 2022-11-22 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58541271&amp;ptid=2098044" target="_blank">reekin 发表于 2022-11-21 20:54</a>
+
+宰相在温泉说的那句慰劳，还有随后断档的两个月，这是明示了本子剧情吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 真该本子应该是小黑魔觉得自己命不久了体验一把那里... 
+
