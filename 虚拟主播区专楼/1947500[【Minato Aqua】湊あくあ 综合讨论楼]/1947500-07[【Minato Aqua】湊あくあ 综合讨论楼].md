@@ -64,3 +64,19 @@
 等到宝可梦播完肯定会回到几周一动的日常吧</blockquote>
 大胆点  几个月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andeloz  
+##### 9276#       发表于 2022-11-22 18:58
+
+几个月到不至于 下周生日总该会播吧
+
+*****
+
+####  旧时代的扎比  
+##### 9277#       发表于 2022-11-22 18:59
+
+惊了，戏画倒了，记得母公司不是Entergram么
+
