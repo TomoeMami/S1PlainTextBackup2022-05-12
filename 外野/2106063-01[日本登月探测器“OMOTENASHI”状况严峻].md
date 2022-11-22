@@ -627,3 +627,23 @@ jaxa解释的原因是探测器分离后太阳能电池板方向不对，无法�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">突然回过味儿来了，这名字的意思不就是给月球送菜吗……
 
+
+
+*****
+
+####  烦不烦  
+##### 68#       发表于 2022-11-22 13:16
+
+日本人需要读懂空气，而太空没有空气，所以注定失败
+
+微博上看到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  tau_cross  
+##### 69#       发表于 2022-11-22 13:19
+
+太阳能电池不起作用 是不是忘了拜天照大神了
+
+—— 来自 HUAWEI NOH-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
