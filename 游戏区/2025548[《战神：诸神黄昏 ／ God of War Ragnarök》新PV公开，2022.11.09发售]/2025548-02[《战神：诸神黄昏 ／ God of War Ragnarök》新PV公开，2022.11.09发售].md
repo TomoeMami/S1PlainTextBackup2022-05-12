@@ -2422,3 +2422,26 @@ ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smile
 原话说的是“感官超负荷” ...</blockquote>
 我理解也接受游戏里的解释，我只是觉得还不够妙，还不够体现出长枪的必须性，那个关键点破局点的感觉，而且我一直觉得长枪炸那一下太像小时候过年玩的擦炮了，感觉就没啥气势了，当然我理解可能特效做复杂了可能反而不好，整体感觉前面确实铺垫了很久但是实际却是不痛不痒的
 
+
+
+*****
+
+####  oldttt  
+##### 1726#       发表于 2022-11-22 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58489983&amp;ptid=2025548" target="_blank">司马千晶 发表于 2022-11-18 16:13</a>
+儿子可以用L2取消普攻硬直，反复出第一刀，攻速观感上像传奇类游戏</blockquote>
+实战不好使 空挥效果挺好
+
+*****
+
+####  wzh5555  
+##### 1727#       发表于 2022-11-22 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58553373&amp;ptid=2025548" target="_blank">squeezer 发表于 2022-11-22 14:36</a>
+
+我理解也接受游戏里的解释，我只是觉得还不够妙，还不够体现出长枪的必须性，那个关键点破局点的感觉，而 ...</blockquote>
+演出里对于神的伤害确实很小，差不多就是擦炮哈哈，近距离炸了几次都破不了海姆达尔的初始甲，他只是是被吓出硬直之后被奎爷拳头打出的一血。
+
+长枪的意义也就是两个矮人搞个发明，专门搞乱他心态，让奎爷更容易发挥优势，真要说必要性也确实不是那么大
+

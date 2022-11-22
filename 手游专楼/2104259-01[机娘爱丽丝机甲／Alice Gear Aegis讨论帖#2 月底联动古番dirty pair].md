@@ -832,3 +832,12 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 才发现师姐这次算是全员盘子实装了吧，还挺快，就是FA停摆了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alialex  
+##### 75#       发表于 2022-11-22 14:51
+
+这次的联动人设也太复古了能不能让岛田来画啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
