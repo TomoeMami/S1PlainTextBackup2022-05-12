@@ -4382,3 +4382,54 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 【【声优都是外国人】Jenya二十年追梦终于对决炮姐 | 鲤鱼妹cos呆唯直到遇见本尊【不只是聊动漫No.159】-哔哩哔哩】 https://b23.tv/ludAoqg
 之前也看过，这个视频的评论也提了，对于外国人想在日本做声优，偶像，最大的问题果然是签证啊，很难办下来的
 
+
+
+*****
+
+####  Piano-Forest  
+##### 9351#       发表于 2022-11-22 11:02
+
+【表紙初公開】
+
+11月30日（水）発売・LoveLive!Days 2023年1月号は『ラブライブ！スーパースター!!』最新表紙シリーズを展開中です
+
+第５弾となる１月号では、澁谷かのんが表紙に登場します、お楽しみに
+<img src="https://p.sda1.dev/8/49434ea26c7ed63928d06501a28cc358/20221122_110121.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 9352#       发表于 2022-11-22 11:09
+
+<img src="https://img.saraba1st.com/forum/202211/22/110858c7mxqzlvdm57d6qd.jpg" referrerpolicy="no-referrer">
+
+<strong>20221122_110657.jpg</strong> (61.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-22 11:08 上传
+
+<img src="https://img.saraba1st.com/forum/202211/22/110859rjrvg23vu5vjsh03.jpg" referrerpolicy="no-referrer">
+
+<strong>20221122_110655.jpg</strong> (50.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-22 11:08 上传
+
+<img src="https://img.saraba1st.com/forum/202211/22/110859whhvhurb8xzhhru9.jpg" referrerpolicy="no-referrer">
+
+<strong>20221122_110653.jpg</strong> (53.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-22 11:08 上传
+
+<img src="https://img.saraba1st.com/forum/202211/22/110859j6sfmw32bwml7bf6.jpg" referrerpolicy="no-referrer">
+
+<strong>20221122_110232.jpg</strong> (122.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-22 11:08 上传
+
