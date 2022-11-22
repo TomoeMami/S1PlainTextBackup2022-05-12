@@ -263,3 +263,12 @@ SP5的活动SSR一炮能打掉11W血
 
 两个池子合计220多抽只有一个ur人物，看着那个百二的概率我是真的无语了。
 
+
+
+*****
+
+####  心之光  
+##### 145#       发表于 2022-11-22 10:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这游戏的池子可太毒了，10个十连就NEW了两张礼装，开服没多久没必要池子那么深吧
+
