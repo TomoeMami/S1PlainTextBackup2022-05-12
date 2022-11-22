@@ -7029,3 +7029,14 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 浅刷100池。现在玩这游戏就像交公粮一样了
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3643#       发表于 2022-11-23 00:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">12池，就掉了1张礼装，垃圾老素材没一个缺的，刷来作甚
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
