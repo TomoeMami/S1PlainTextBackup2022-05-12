@@ -778,3 +778,25 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 刺杀最怕的是潮里面混两个喷火或者网子怪之类的东西，来了就灭，连长本人没啥威胁 ...</blockquote>
 是的，队里有个眼神好的老兵或者灵能者专门盯着这类玩意很重要。
 
+
+
+*****
+
+####  古代人皮克  
+##### 78#       发表于 2022-11-22 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58551973&amp;ptid=1951151" target="_blank">高龙 发表于 2022-11-22 13:22</a>
+
+是的，队里有个眼神好的老兵或者灵能者专门盯着这类玩意很重要。</blockquote>
+强度提上去之后还是得分工，老兵要能秒高风险特感就得有人帮着清潮才行
+
+*****
+
+####  高龙  
+##### 79#       发表于 2022-11-22 14:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58552952&amp;ptid=1951151" target="_blank">古代人皮克 发表于 2022-11-22 14:13</a>
+
+强度提上去之后还是得分工，老兵要能秒高风险特感就得有人帮着清潮才行 ...</blockquote>
+是的。我得肥仔就是按照近战清潮配置的。但是其实缺乏太好的反特感手段，仍手雷箱子砸姑且算一个。
+
