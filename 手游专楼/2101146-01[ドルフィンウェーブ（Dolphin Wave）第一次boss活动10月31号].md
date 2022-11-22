@@ -281,3 +281,12 @@ SP5的活动SSR一炮能打掉11W血
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这游戏的编队系统真是无语了，日常、淘汰赛、boss没法通用，活动boss又强制只能用日常队，找了找甚至没有复制编队的功能，还得从头编
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 147#         楼主| 发表于 2022-11-22 11:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还歪到隔壁池子的蓝毛去了，所以说这些都不是限定没必要上头
+
