@@ -1247,3 +1247,12 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 吃了一嘴狗粮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET  
+##### 43755#       发表于 2022-11-22 19:14
+
+11月22日是夫妇之日<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

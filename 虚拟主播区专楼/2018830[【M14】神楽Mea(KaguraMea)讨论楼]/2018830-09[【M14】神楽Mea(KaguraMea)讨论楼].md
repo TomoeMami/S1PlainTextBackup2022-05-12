@@ -9278,3 +9278,12 @@ varium，一个小箱，画师全是杏的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古战场亡魂  
+##### 12879#       发表于 2022-11-22 19:18
+
+这游戏看不懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
