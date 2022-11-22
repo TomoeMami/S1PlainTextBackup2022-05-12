@@ -4533,3 +4533,34 @@ https://kdq.jp/llspcovergirl?q
 
 现在lovelive里就是角色=本人，特地再去cos+唱跳就有些过头了，大概（以及cos也是一笔开销）
 
+
+
+*****
+
+####  优妮可  
+##### 9361#       发表于 2022-11-22 16:54
+
+<img src="https://img.saraba1st.com/forum/202211/22/165452ez0gmvd7ry03c370.jpg" referrerpolicy="no-referrer">
+
+<strong>20221122_165045.jpg</strong> (249.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-22 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202211/22/165453g7q3eob303ke077b.jpg" referrerpolicy="no-referrer">
+
+<strong>20221122_165048.jpg</strong> (162.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-22 16:54 上传
+
+<img src="https://img.saraba1st.com/forum/202211/22/165454hhulghqt22q79g9f.jpg" referrerpolicy="no-referrer">
+
+<strong>20221122_165051.jpg</strong> (552.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-22 16:54 上传
+
