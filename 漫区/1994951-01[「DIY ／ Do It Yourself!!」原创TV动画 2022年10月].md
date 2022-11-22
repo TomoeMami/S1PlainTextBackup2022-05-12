@@ -6260,3 +6260,17 @@ Blu－rayは予約受付中です✨
 <img src="https://p.sda1.dev/8/32fbbfaf4c7c0082dee86c99f2ce9f84/20221122_233223.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/0a274db8a84f6924030c9227fa0f4947/20221122_233225.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 483#         楼主| 发表于 2022-11-22 23:34
+
+[https://twitter.com/M_terU116/status/1594231971659796480](https://twitter.com/M_terU116/status/1594231971659796480)
+<img src="https://p.sda1.dev/8/3ba487bca82dd08b1eaf632d810432f7/illust_102950570_20221122_232123.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/tac__n/status/1592893140578742276](https://twitter.com/tac__n/status/1592893140578742276)
+<img src="https://p.sda1.dev/8/696f19842f3696cfd3a17b10eda61dfc/illust_100096095_20221122_232211.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/1de3e0a0428c3d28accaefcc8ec74854/illust_102865224_20221122_232226.jpg" referrerpolicy="no-referrer">
+
