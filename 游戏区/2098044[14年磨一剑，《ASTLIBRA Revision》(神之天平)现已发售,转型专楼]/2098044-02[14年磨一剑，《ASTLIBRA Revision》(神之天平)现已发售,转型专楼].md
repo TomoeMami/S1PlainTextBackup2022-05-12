@@ -11939,3 +11939,41 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 都打到第五章了才发现自动连击这个嘉隆魔法是神技啊，再也不用费力搓招了 ...</blockquote>
 我觉得第七章乌鸦不在了最痛苦的就是得自己一下一下按攻击了
 
+
+
+*****
+
+####  Tissuesea  
+##### 2532#       发表于 2022-11-23 02:32
+
+第六章了，在boss房前了，感觉自己穷得发指<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  方舟失智博士  
+##### 2533#       发表于 2022-11-23 03:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58564757&amp;ptid=2098044" target="_blank">Tissuesea 发表于 2022-11-23 02:32</a>
+第六章了，在boss房前了，感觉自己穷得发指。原因是火山关之后都不敢近身打小怪，第四章的水胆会流 ...</blockquote>
+挖矿的石头里卖钱的宝石是不是从来没卖过
+
+*****
+
+####  verniy  
+##### 2534#       发表于 2022-11-23 03:38
+
+终章这个多形态血牛boss也太难受了，死了从第二形态重来，用的道具还全吞掉<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  yueyut  
+##### 2535#       发表于 2022-11-23 04:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58564757&amp;ptid=2098044" target="_blank">Tissuesea 发表于 2022-11-23 02:32</a>
+第六章了，在boss房前了，感觉自己穷得发指。原因是火山关之后都不敢近身打小怪，第四章的水胆会流 ...</blockquote>
+可以理解，从第六章开始小怪难度就开始直线上涨了。我困难难度到第八章，剑盾装备+30点防御升级，小怪摸一下掉1/3以上，真不知道荒谬怎么玩。不过要打还是可以打的，雪球之类的地面技能用盾挡一下，剧毒有倒计时，一般要2分钟才会死，在此之前吃个解毒药就完事儿了。
+
+—— 来自 samsung SM-G986W, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
