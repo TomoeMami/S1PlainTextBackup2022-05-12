@@ -6239,3 +6239,24 @@ Blu－rayは予約受付中です✨
 <img src="https://p.sda1.dev/8/31a446f1c5d2a4b8916ea57c02cd149a/diy_anime-1594963902537736193-img4.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/0e1e3bba173b4cef0deca1b2a4f57921/d2070e46e9392b141d2d8beeac11dd4bfe7bf62e_636ab80d2722f.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 482#         楼主| 发表于 2022-11-22 23:32
+
+[https://twitter.com/VintageSwaro109/status/1594611718067736576](https://twitter.com/VintageSwaro109/status/1594611718067736576)
+
+ネックレスは、
+
+レインボーになるようレジンを塗り硬化して、クリアを全面に薄く敷く。
+
+ホワイトレジンをクリアレジンで薄めた物を、全面に塗布。
+
+クリアをちょんちょんと垂らすと、薄めた白レンジが広がり柄になります。
+
+ネイルアートにある技法を用いてみました。
+<img src="https://p.sda1.dev/8/32fbbfaf4c7c0082dee86c99f2ce9f84/20221122_233223.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0a274db8a84f6924030c9227fa0f4947/20221122_233225.jpg" referrerpolicy="no-referrer">
+
