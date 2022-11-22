@@ -11671,3 +11671,32 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 有没有那种 在第几章用啥装备比较舒适的攻略</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">很显然，当前章节小猪商店卖的就是最适合的，无论是属性还是技能，新装备都是可以秒老装备的。然后是异常状态，比如石化/流血之类的，凑到100抗性可以免疫。如果当前章节某个异常状态很多很烦，可以通过饰品凑100抗性。
 
+
+
+*****
+
+####  绕指流光  
+##### 2510#       发表于 2022-11-22 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58547010&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-22 08:21</a>
+
+憋不住了，开个CE改晶体</blockquote>
+改就是了，晶体盘是锁章节的，不用怕加点太多影响体验
+
+*****
+
+####  PNK  
+##### 2511#       发表于 2022-11-22 08:56
+
+喷了
+
+阻碍我全成就的竟是走路步数
+
+拿到空步之后基本上就没好好走过路
+
+刷到99级全通才走了40000步，离成就还差了五分之一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+算了下要刷出来得对着墙傻走好久，太傻逼了干脆放弃了
+
+希望各位还没通关的引以为戒，多多走路好好锻炼身体<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
