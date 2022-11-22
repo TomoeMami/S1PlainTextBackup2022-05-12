@@ -1471,3 +1471,16 @@ tx代理，当然有中文</blockquote>
 
 环塔一眼就感觉国产网游
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 151#       发表于 2022-11-22 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58551334&amp;ptid=2103199" target="_blank">Thalassa 发表于 2022-11-22 12:42</a>
+今天想起来去翻了下官方的ytb账号，对比下3年前/2年前的pv，这次的也没多大变化啊
+
+这个5w人的网络测 ...</blockquote>
+BNE第一次做MMO，体谅一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
