@@ -7001,3 +7001,22 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 等一个冠狂背刺狗蛋
 
+
+
+*****
+
+####  ——啧  
+##### 3640#       发表于 2022-11-22 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58556757&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-11-22 17:51</a>
+
+等一个冠狂背刺狗蛋</blockquote>
+不如等一个回归性原理：狗蛋就是冠位狂<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  xiongxingyu  
+##### 3641#       发表于 2022-11-23 00:01
+
+奶一口圣诞回顾，圣诞黑呆作为第二个白送的活动从者也差不多该加入常驻了，毕竟没有的人还真不少，人家大王都弯道超车了。弓信长倒是不抱多大希望了，基本上已经是查无此人的状态，信长现在只要出场基本就是仇信，4星白送已经变成黑历史了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
