@@ -680,3 +680,12 @@ https://news.yahoo.co.jp/articles/4431ee6951eb5cb6afe0f1b3786830762afdc553/comme
 
 米露中の月着陆探査机の技术(2年前中国は一回で软着陆⁻探査车月走行⁻月サンプル持ち帰りを全て成し遂げた)に比べると玩具にも満たないレベルのものでも予定通りにやれないのは耻ずかしい。
 
+
+
+*****
+
+####  yoki42  
+##### 72#       发表于 2022-11-22 15:16
+
+刚看到消息，放弃任务了。另外这探测器新华社定的译名叫“好客”<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

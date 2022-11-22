@@ -299,3 +299,12 @@ SP5的活动SSR一炮能打掉11W血
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kulanyee  
+##### 149#       发表于 2022-11-22 15:22
+
+这游戏确实得存井，我试过前三个UR全歪，没井谁受得了
+
