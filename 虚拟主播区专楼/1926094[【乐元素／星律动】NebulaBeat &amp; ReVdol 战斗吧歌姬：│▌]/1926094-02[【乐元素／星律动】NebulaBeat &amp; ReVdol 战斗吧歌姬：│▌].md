@@ -11105,3 +11105,17 @@ kino早期直播就一首下雨天唱得好，九夏和kino换皮也唱了下雨
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ladiesman802  
+##### 2668#       发表于 2022-11-22 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58558175&amp;ptid=1926094" target="_blank">一叶丈育 发表于 2022-11-22 19:14</a>
+
+这个小火驴是转生号吗？怎么感觉粉丝量不是很理想
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 S1Next- ...</blockquote>
+原来的号也就5,6k而已，底边v
+
