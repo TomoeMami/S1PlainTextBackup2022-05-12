@@ -1238,3 +1238,12 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 难的是后面一章的角神………… ...</blockquote>
 没事，商店里蓝方块补货了，砸它<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dawning  
+##### 43754#       发表于 2022-11-22 17:36
+
+吃了一嘴狗粮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

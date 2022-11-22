@@ -841,3 +841,12 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 这次的联动人设也太复古了能不能让岛田来画啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 76#         楼主| 发表于 2022-11-22 17:42
+
+虽然是原动画人设，但这新画的真的不行……原作的那种赛璐璐味道真的就那么难复现吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">第一次如此期待岛田监修整容<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

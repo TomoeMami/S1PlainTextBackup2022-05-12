@@ -52,3 +52,15 @@
 
 等到宝可梦播完肯定会回到几周一动的日常吧
 
+
+
+*****
+
+####  psnsic8nag  
+##### 9275#       发表于 2022-11-22 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58535442&amp;ptid=1947500" target="_blank">andeloz 发表于 2022-11-21 14:18</a>
+
+等到宝可梦播完肯定会回到几周一动的日常吧</blockquote>
+大胆点  几个月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
