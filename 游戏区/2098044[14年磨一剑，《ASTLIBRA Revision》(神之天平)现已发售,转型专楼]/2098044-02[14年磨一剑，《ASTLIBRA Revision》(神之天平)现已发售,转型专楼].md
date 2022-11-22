@@ -11643,3 +11643,31 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">憋不住了，开个CE改晶体
 
+
+
+*****
+
+####  紫枫客  
+##### 2507#       发表于 2022-11-22 08:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有没有那种 在第几章用啥装备比较舒适的攻略
+
+*****
+
+####  otakun  
+##### 2508#       发表于 2022-11-22 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58547152&amp;ptid=2098044" target="_blank">紫枫客 发表于 2022-11-22 08:35</a>
+有没有那种 在第几章用啥装备比较舒适的攻略</blockquote>
+一般来说章节开始前去打掉竞技场，里面给的装备是最优解。实际情况是，每章都打满五个图纸，把所有武器防具做出来并练满熟练度，之后就不存在什么问题了，随便打。
+
+*****
+
+####  yueyut  
+##### 2509#       发表于 2022-11-22 08:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58547152&amp;ptid=2098044" target="_blank">紫枫客 发表于 2022-11-22 08:35</a>
+
+有没有那种 在第几章用啥装备比较舒适的攻略</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">很显然，当前章节小猪商店卖的就是最适合的，无论是属性还是技能，新装备都是可以秒老装备的。然后是异常状态，比如石化/流血之类的，凑到100抗性可以免疫。如果当前章节某个异常状态很多很烦，可以通过饰品凑100抗性。
+
