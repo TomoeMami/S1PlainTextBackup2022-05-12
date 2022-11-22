@@ -11809,3 +11809,15 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 宰相在温泉说的那句慰劳，还有随后断档的两个月，这是明示了本子剧情吗？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 真该本子应该是小黑魔觉得自己命不久了体验一把那里... 
 
+
+
+*****
+
+####  rainwang  
+##### 2521#       发表于 2022-11-22 10:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58512220&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-20 00:52</a>
+
+困难打完第三章体会到什么叫刮之天平了，成长树点完了照样刮</blockquote>
+第三章你能把树点完？我不信
+
