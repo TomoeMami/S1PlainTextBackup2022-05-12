@@ -857,3 +857,17 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 4星估计还能用一用，因为昨晚9级的时候开了一局能玩但是俩队友直接半场被送走了，然后我砍盾欧格林的时候滑步到挂边，最后一个狂信队友砍不动盾只能看着我摔死....5星估计只能拿盾了。
 
+
+
+*****
+
+####  古代人皮克  
+##### 84#       发表于 2022-11-22 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58554510&amp;ptid=1951151" target="_blank">dfbbymice 发表于 2022-11-22 15:40</a>
+
+欧格林我都是榴弹打硬直然后近战，距离远的直接开大拉近距离拖到近战。暗潮的小怪应该是有个小队机制，只 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏平衡性就在于，专精化配装不吃配合，大家各司其职，但是只要哪一环本职工作没做好就容易翻车
+
+泛用配装啥都能打，但是要求队友配合度高共同进退，突进聪明头就属于这种，四星开始哪个远程特感都能让你一头包
+
