@@ -618,3 +618,12 @@ jaxa解释的原因是探测器分离后太阳能电池板方向不对，无法�
 我不太懂，不能充满电上去吗，为什么非要上去了再充电</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">总得找个借口不是
 
+
+
+*****
+
+####  幽远ghofar  
+##### 67#       发表于 2022-11-22 13:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">突然回过味儿来了，这名字的意思不就是给月球送菜吗……
+

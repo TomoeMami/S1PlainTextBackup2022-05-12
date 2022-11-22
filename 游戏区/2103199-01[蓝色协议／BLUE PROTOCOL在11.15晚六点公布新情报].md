@@ -1433,3 +1433,15 @@ tx代理，当然有中文</blockquote>
 这个5w人的网络测 ...</blockquote>
 这不是世界上所有mmo的通行做法么 
 
+
+
+*****
+
+####  储安平  
+##### 148#       发表于 2022-11-22 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58539705&amp;ptid=2103199" target="_blank">Ketestrait 发表于 2022-11-21 19:01</a>
+
+幻塔是真MMO, 11区MMO用户群在主流只有老游戏ff14和内容偏少的半个老游戏NGS可玩的情况下，对新的二次元M ...</blockquote>
+因为幻塔不是真MMO啊
+
