@@ -4519,3 +4519,17 @@ https://kdq.jp/llspcovergirl?q
 
 嗨呀，不知道企划猪脑子是怎么想的，好想看一次鱼认真出灰毛挑染蓝瞳的可可cos唱跳几首，效果绝对是1000%。<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 9360#       发表于 2022-11-22 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58554440&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-22 15:35</a>
+
+嗨呀，不知道企划猪脑子是怎么想的，好想看一次鱼认真出灰毛挑染蓝瞳的可可cos唱跳几首，效果绝对是1000%。 ...</blockquote>
+不好开先河吧，鱼cos了自然会被说其他人为什么不也来试着cos一下什么的（live的时候只有一个人cos也有些违和不是？）
+
+现在lovelive里就是角色=本人，特地再去cos+唱跳就有些过头了，大概（以及cos也是一笔开销）
+

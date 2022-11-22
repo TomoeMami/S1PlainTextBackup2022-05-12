@@ -6203,3 +6203,39 @@ Blu－rayは予約受付中です✨
 [https://twitter.com/ri_6n/status/1594337945716068352](https://twitter.com/ri_6n/status/1594337945716068352)
 <img src="https://p.sda1.dev/8/9ecc856e92525dd49117ce3cbbc3b9cb/ri_6n-1594337945716068352-img1.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 481#       发表于 2022-11-22 16:02
+
+【すてっぷ⑧】ＤＩＹって、できない？・いいえ！・やれますとも！
+
+ＤＩＹ部の『秘密基地』計画は順調に進んでいる。
+
+素材、材料を集めて、小物を作って、売って、必要なパーツを買うための資金を得る。
+
+まだ、パーツを買うには資金は足りないが、この調子でいけば目標額に到達する日も遠くはなさそうで、せるふたちはますますやる気を出す。
+
+せるふは、秘密基地のイラストを描き、イメージをまとめあげる。
+
+しかし、そこで問題が発生する。誰も本格的な設計図をひいたことがなかった。
+
+さすがに秘密基地ほどの大物を作るとなると、設計図は必要である。
+
+天才少女ジョブ子は設計図作りを引き受けるが、難航し……。
+
+脚本：筆安一幸 
+
+絵コンテ：木村佳嗣 
+
+演出：かたくり 徳本善信
+
+作画監督：みやち 上原史之 福永智子 住本悦子 佐々木貴宏
+<img src="https://p.sda1.dev/8/30fa66b5d3da461abafc632443836a9f/diy_anime-1594963902537736193-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0108adfad205ee9d53022e2fe9b3a877/diy_anime-1594963902537736193-img2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/9d35f00e5cc4754194a616f5e90bb9f5/diy_anime-1594963902537736193-img3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/31a446f1c5d2a4b8916ea57c02cd149a/diy_anime-1594963902537736193-img4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0e1e3bba173b4cef0deca1b2a4f57921/d2070e46e9392b141d2d8beeac11dd4bfe7bf62e_636ab80d2722f.jpg" referrerpolicy="no-referrer">
+
