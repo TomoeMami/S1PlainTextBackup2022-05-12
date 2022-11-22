@@ -11700,3 +11700,24 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 希望各位还没通关的引以为戒，多多走路好好锻炼身体<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 2512#       发表于 2022-11-22 09:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58547152&amp;ptid=2098044" target="_blank">紫枫客 发表于 2022-11-22 08:35</a>
+
+有没有那种 在第几章用啥装备比较舒适的攻略</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">我的经验是一寸长一寸强，从第二章拿到石制大剑点出力拔千钧开始特别是第四章点出能量吸收之后我更不想用盾牌了，没试过双手武器的格挡能不能享受神盾和治疗格挡的被动，如果主要用盾牌的话这两个被动特别是神盾一定要点上
+
+顺便说一个拿到空剑之前的个人连招：地面平A同时起跳然后用下劈取消平A后摇再用平A取消下劈后摇同时跳起循环
+
+*****
+
+####  慕容断月  
+##### 2513#       发表于 2022-11-22 09:16
+
+80小时全成就，太爽了，我的年度最佳RPG候选，个人的年度最佳独立游戏，和师父一比这TM才叫独立游戏嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
