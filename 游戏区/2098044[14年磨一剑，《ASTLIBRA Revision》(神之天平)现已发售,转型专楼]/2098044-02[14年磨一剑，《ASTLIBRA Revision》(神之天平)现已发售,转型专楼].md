@@ -11721,3 +11721,63 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 80小时全成就，太爽了，我的年度最佳RPG候选，个人的年度最佳独立游戏，和师父一比这TM才叫独立游戏嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yueyut  
+##### 2514#       发表于 2022-11-22 09:45
+
+第六章boss战相关提问：
+
+请问第六章boss战时，如果不通过魔法阵直接传送，而是打败6个古代兵的话，剧情会有什么不同
+
+*****
+
+####  llysander  
+##### 2515#       发表于 2022-11-22 09:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58541271&amp;ptid=2098044" target="_blank">reekin 发表于 2022-11-21 20:54</a>
+
+宰相在温泉说的那句慰劳，还有随后断档的两个月，这是明示了本子剧情吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer"> 回溯来看宰相对女色不怎么感冒而且一心开战舰，手下的兵估计也没福享受一波死完了，
+
+所以直接管不了把酒吧看板娘扔那里了，狠心点应该鲨了再扔，让她少给点线索多少能拖点时间，他不他还是有点执着的。
+
+所以 没救的循环里估计是丢牢房直接烂在牢里了 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  redsouris  
+##### 2516#       发表于 2022-11-22 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58547648&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-22 09:12</a>
+我的经验是一寸长一寸强，从第二章拿到石制大剑点出力拔千钧开始特别是第四章点出能量吸收之后我 ...</blockquote>
+双手不吃盾牌格挡的相关被动
+双手↓动作全程都是带硬减伤的，只会受到1/3伤害<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+有一种打法是增重让↓动作比本身CD还慢，就可以全程减伤抡起来
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  redsouris  
+##### 2517#       发表于 2022-11-22 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58548126&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-22 09:45</a>
+第六章boss战相关提问：</blockquote>
+没有不同，打白毛、打佣兵赢了也没奖励
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  adw667  
+##### 2518#       发表于 2022-11-22 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58548126&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-22 09:45</a>
+
+第六章boss战相关提问：</blockquote>
+——————————————————防止引用剧透线——————————————————————————————————————防止引用剧透线————————————————————
+没有然后，背景里的战舰还是会一直发动激光武器直到你主动上船为止
+
