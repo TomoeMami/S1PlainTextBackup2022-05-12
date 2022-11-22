@@ -11871,3 +11871,19 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 另外新章前面不用特意刷，最后到盖亚迷宫再开刷
 
+
+
+*****
+
+####  gwchobit  
+##### 2526#       发表于 2022-11-22 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58551904&amp;ptid=2098044" target="_blank">cc-2 发表于 2022-11-22 13:17</a>
+
+请教下，到了新章，是不是差的武器和盾牌防具饰品都可以卖掉了？有保留的价值么
+
+感觉留着一堆东西就是降低 ...</blockquote>
+可以留自己喜好的。其他一律卖出，有些装备无法卖出。
+
+新章的确偏刷一些
+
