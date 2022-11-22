@@ -4453,3 +4453,25 @@ v家就是nico10万入殿堂的，虽然这年头不兴这说法了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  愛さ実  
+##### 9355#       发表于 2022-11-22 12:48
+
+<img src="https://img.saraba1st.com/forum/202211/22/124629egor250fz4ffiax4.jpg" referrerpolicy="no-referrer">
+
+<strong>AD77917C-2A51-4E70-9052-0BE1739C9EE4.jpg</strong> (735.87 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-22 12:46 上传
+
+吓了一下，还以为上次投票结果出来了。
+结果想起投票是泳衣主题的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+现在还可以投，截止日期至30号4点，大家冲一下<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+https://kdq.jp/llspcovergirl?q
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
