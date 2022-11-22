@@ -766,3 +766,15 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 请问这个只有PC版本吗？
 
+
+
+*****
+
+####  高龙  
+##### 77#       发表于 2022-11-22 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58549018&amp;ptid=1951151" target="_blank">古代人皮克 发表于 2022-11-22 10:41</a>
+
+刺杀最怕的是潮里面混两个喷火或者网子怪之类的东西，来了就灭，连长本人没啥威胁 ...</blockquote>
+是的，队里有个眼神好的老兵或者灵能者专门盯着这类玩意很重要。
+
