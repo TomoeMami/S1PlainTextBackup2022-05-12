@@ -188,3 +188,14 @@ nico上有不少10年前制作的不错的MAD。另外有日文阅读能力的�
 
 2022-11-22 11:39 上传
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2018#       发表于 2022-11-23 01:00
+
+戏画没了，age还算有口气儿吊着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
