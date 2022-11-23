@@ -308,3 +308,32 @@ SP5的活动SSR一炮能打掉11W血
 
 这游戏确实得存井，我试过前三个UR全歪，没井谁受得了
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 150#         楼主| 发表于 2022-11-23 20:14
+
+<img src="https://img.saraba1st.com/forum/202211/23/201333hg3k5jjcynjqy9qw.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221123201320.png</strong> (231.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-23 20:13 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">VH打完了，活动卡拉起来之后还是比较轻松的
+
+
+
+*****
+
+####  黑上シグマ  
+##### 151#       发表于 2022-11-23 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58576849&amp;ptid=2101146" target="_blank">小五的拖鞋 发表于 2022-11-23 20:14</a>
+
+VH打完了，活动卡拉起来之后还是比较轻松的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那是因为你有解异常的中二，这次的boss就是没解异常打毛线系列……
+
