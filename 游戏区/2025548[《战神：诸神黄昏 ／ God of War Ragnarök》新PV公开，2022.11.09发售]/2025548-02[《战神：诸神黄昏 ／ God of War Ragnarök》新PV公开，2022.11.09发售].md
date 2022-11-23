@@ -2606,3 +2606,12 @@ Congratulations to @SonySantaMonica for making God of War Ragnar&amp;#xF6;k the 
 
 兽骨是不是限量的，通完关满世界找野兽都找不到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  clover293  
+##### 1743#       发表于 2022-11-23 23:21
+
+510万确实可以了，我当时觉得400来万撑死了，结果估计是周三发售的优势<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
