@@ -12251,3 +12251,24 @@ steam商店页面的介绍里
 新章这最后的boss死麻了 满屏幕花花绿绿的背景和弹幕 碰到几个就暴毙</blockquote>
 有个被动是放凭依的时候消弹，能有效降低后期boss战难度
 
+
+
+*****
+
+####  ky怪  
+##### 2558#       发表于 2022-11-23 22:58
+
+问下， 可以用格斗摇杆玩吗
+
+*****
+
+####  gwchobit  
+##### 2559#       发表于 2022-11-23 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58578357&amp;ptid=2098044" target="_blank">xiaosayang 发表于 2022-11-23 21:45</a>
+
+新章这最后的boss死麻了 满屏幕花花绿绿的背景和弹幕 碰到几个就暴毙
+
+本来打到队友出来助攻都泪目了 然后啪 ...</blockquote>
+最后五连太简单了，伤害都溢出了。攻速加起来，能量吸收加终极技能，按着摩擦。
+

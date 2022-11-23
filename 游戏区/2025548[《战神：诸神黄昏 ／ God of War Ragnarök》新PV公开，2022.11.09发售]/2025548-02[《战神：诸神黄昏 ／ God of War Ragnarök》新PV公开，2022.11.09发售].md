@@ -2563,3 +2563,23 @@ ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smile
 
 真提尔的剧情……就只有监狱里那么一点了吗，我还以为回辛德里小屋能再唠嗑一点
 
+
+
+*****
+
+####  霸王向小受  
+##### 1739#       发表于 2022-11-23 22:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58579591&amp;ptid=2025548" target="_blank">Znesmoc 发表于 2022-11-23 22:45</a>
+真提尔的剧情……就只有监狱里那么一点了吗，我还以为回辛德里小屋能再唠嗑一点 ...</blockquote>
+他还会在各种地方瞎转悠，不过也没啥意思就是了
+
+*****
+
+####  415452356  
+##### 1740#       发表于 2022-11-23 22:59
+
+  真提尔就是本作最轻松的角色，奎爷家两条狼还要拉雪橇他就真的啥都没干躺赢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

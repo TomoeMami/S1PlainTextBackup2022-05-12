@@ -945,3 +945,12 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 优化太差了，不然就无脑入了
 
+
+
+*****
+
+####  squallx  
+##### 92#       发表于 2022-11-23 22:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 什么鬼 今天更新之后疯狂闪退
+
