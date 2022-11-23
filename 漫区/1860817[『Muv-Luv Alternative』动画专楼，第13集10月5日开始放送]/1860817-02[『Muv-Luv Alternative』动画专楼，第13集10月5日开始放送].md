@@ -199,3 +199,15 @@ nico上有不少10年前制作的不错的MAD。另外有日文阅读能力的�
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 2019#       发表于 2022-11-23 14:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58513163&amp;ptid=1860817" target="_blank">hacisiki 发表于 2022-11-20 01:56</a>
+
+nico上有不少10年前制作的不错的MAD。另外有日文阅读能力的话www.mai-net.net这边有不少日本那边的同人文 ...</blockquote>
+最有名的同人文大概是终焉的银河吧）
+
