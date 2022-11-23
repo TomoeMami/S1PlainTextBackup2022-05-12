@@ -4829,3 +4829,16 @@ Q：老婆无限增加该怎么办
 
 鱼：只有恋爱喜剧的主角才允许有后宫，估计你也当不上主角还是只锁定一个吧。只选一个当然是我对吧
 
+
+
+*****
+
+####  Enakina  
+##### 9379#       发表于 2022-11-23 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58568415&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-11-23 11:21</a>
+昨晚的
+
+Q：老婆无限增加该怎 ...</blockquote>
+大西强啊，话说原来7000初动已经是top了吗，看来现在声优歌手比我想的还要拉
+
