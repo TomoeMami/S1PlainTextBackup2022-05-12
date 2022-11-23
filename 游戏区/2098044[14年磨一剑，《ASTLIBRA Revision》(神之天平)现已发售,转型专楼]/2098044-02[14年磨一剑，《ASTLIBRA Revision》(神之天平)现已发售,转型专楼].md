@@ -12239,3 +12239,15 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 —— 来自 HUAWEI TET-AN50, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 steam商店页面的介绍里
 
+
+
+*****
+
+####  yla  
+##### 2557#       发表于 2022-11-23 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58578357&amp;ptid=2098044" target="_blank">xiaosayang 发表于 2022-11-23 21:45</a>
+
+新章这最后的boss死麻了 满屏幕花花绿绿的背景和弹幕 碰到几个就暴毙</blockquote>
+有个被动是放凭依的时候消弹，能有效降低后期boss战难度
+
