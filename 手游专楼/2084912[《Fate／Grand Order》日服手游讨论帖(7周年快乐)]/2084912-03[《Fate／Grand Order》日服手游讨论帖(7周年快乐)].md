@@ -7162,3 +7162,14 @@ qp和礼盒都塞满了...圣诞可以摸了...
 
 你们好肝，我就刷了50多池，饼干缺口还有二十来个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 3657#       发表于 2022-11-23 16:38
+
+话说，有谁这次更新后经常卡死要重开的吗？用gamestoday更的，不会分包版本没给我更对吧？
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
