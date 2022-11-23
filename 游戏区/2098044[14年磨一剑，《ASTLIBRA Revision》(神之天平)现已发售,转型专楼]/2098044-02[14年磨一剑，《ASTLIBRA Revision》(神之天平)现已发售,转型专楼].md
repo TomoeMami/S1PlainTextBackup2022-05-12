@@ -11986,3 +11986,27 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 困难第8章，昨晚又是进度忽略不计，打5章的隐藏龙王连着失败药都吃光只能读盘，打王城的水井连第一个道中怪都没打赢，就这战力都不想再去找8章boss刮痧了，但也已经60级，章节全星盘，商店武器全熟练，竞技场基本全过，技能全精通，除了死练级想不出啥办法提高容错了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 2537#       发表于 2022-11-23 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58549093&amp;ptid=2098044" target="_blank">rainwang 发表于 2022-11-22 10:44</a>
+
+第三章你能把树点完？我不信</blockquote>
+当然是点完当前章节解锁的部分
+
+有一说一我把当前章节的武器都刷满也差不多能把成长盘点完了，不掉素材挺痛苦的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 2538#       发表于 2022-11-23 08:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58564757&amp;ptid=2098044" target="_blank">Tissuesea 发表于 2022-11-23 02:32</a>
+
+第六章了，在boss房前了，感觉自己穷得发指。原因是火山关之后都不敢近身打小怪，第四章的水胆会流 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">长柄武器能有效降低与怪物接触的频率，再加上那个增加击退距离的被动就舒服很多。五章剧毒怪有超长起手+明显叫声+只丢两坨毒，多盯着点提前后跳躲一下就行
+
