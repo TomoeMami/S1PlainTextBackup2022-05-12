@@ -12352,3 +12352,16 @@ steam商店页面的介绍里
 
 成就少一个 白在多一个boss形态
 
+
+
+*****
+
+####  otakun  
+##### 2566#       发表于 2022-11-24 07:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58583238&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-24 07:40</a>
+少点对话 少爱情道具 不过道具最终迷宫箱子里可以刷
+
+成就少一个 白在多一个boss形态 ...</blockquote>
+不少成就，新章打的那个也算
+

@@ -5022,3 +5022,14 @@ Yura 有戏了吗
 
 FNS定了
 
+
+
+*****
+
+####  ads147147  
+##### 9395#       发表于 2022-11-24 07:49
+
+今年再去青山家过年吧jpg
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
