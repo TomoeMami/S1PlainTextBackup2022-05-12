@@ -7221,3 +7221,17 @@ Q•E•D
 
 （千万别XJB整活了，要不我都该怀疑蘑菇选址在亚马逊森林不是因为南美大蜘蛛，而是疯牛次男道了...）
 
+
+
+*****
+
+####  alucardcz  
+##### 3661#       发表于 2022-11-23 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58575244&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-11-23 18:17</a>
+
+今天的更新是异闻带7开幕前应援活动第一弹，开了C呆和小番茄的UP池，到12.5结束，之后大概会接第二弹。
+
+第 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不奶一口2。7分几部吗 上中下 还是上中下终上终中终下 完结篇啊
+
