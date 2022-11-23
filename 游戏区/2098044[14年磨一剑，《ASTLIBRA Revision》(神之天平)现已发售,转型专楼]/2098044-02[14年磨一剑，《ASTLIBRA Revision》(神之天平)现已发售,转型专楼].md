@@ -12328,3 +12328,14 @@ steam商店页面的介绍里
 
 查看全部评分
 
+
+
+*****
+
+####  慕容断月  
+##### 2564#       发表于 2022-11-24 07:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58579926&amp;ptid=2098044" target="_blank">ky怪 发表于 2022-11-23 22:58</a>
+问下， 可以用格斗摇杆玩吗</blockquote>
+凑合，战斗没问题，其他麻烦点
+
