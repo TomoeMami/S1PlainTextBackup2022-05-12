@@ -273,3 +273,23 @@ BETAとの全面対決を描いた新ビジュアルを解禁！
 最有名的同人文大概是终焉的银河吧）</blockquote>
 另外作为设定顾问还是要推一下舒克上的一本 红龙  。虽然涉政停更了不过勉强算是把东德篇搞完了。
 
+
+
+*****
+
+####  菱0零  
+##### 2024#       发表于 2022-11-24 02:01
+
+依旧是令人安心的机战质量，轨道空降真的炫酷啊
+不过进度有点快，这么看甲21大概只有三集？那不给管人加戏的话要做到哪，做到纯夏名场面吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 2025#       发表于 2022-11-24 02:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58582536&amp;ptid=1860817" target="_blank">菱0零 发表于 2022-11-24 02:01</a>
+依旧是令人安心的机战质量，轨道空降真的炫酷啊
+不过进度有点快，这么看甲21大概只有三集？那不给管人加戏 ...</blockquote>
+当然是给管人加戏啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+

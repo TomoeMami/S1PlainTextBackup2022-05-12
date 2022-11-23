@@ -2640,3 +2640,24 @@ Congratulations to @SonySantaMonica for making God of War Ragnar&amp;#xF6;k the 
 
 全地图100%就剩这个解谜，怀疑是卡BUG了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuker53  
+##### 1745#       发表于 2022-11-24 02:12
+
+<blockquote>⁣梦醒⁡ 发表于 2022-11-23 23:18
+兽骨是不是限量的，通完关满世界找野兽都找不到</blockquote>
+可以刷坩埚，每把都给20多个
+
+*****
+
+####  wzh5555  
+##### 1746#       发表于 2022-11-24 02:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58582361&amp;ptid=2025548" target="_blank">古尘 发表于 2022-11-24 01:42</a>
+
+全地图100%就剩这个解谜，怀疑是卡BUG了</blockquote>
+这里不就是下电梯后，把电梯放下去踩电梯顶上去拿宝箱么？ 还有别的东西藏着？
+
