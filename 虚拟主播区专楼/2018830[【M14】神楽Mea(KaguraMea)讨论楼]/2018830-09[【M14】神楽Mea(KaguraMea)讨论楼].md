@@ -9396,3 +9396,14 @@ varium，一个小箱，画师全是杏的
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  十九号大侠  
+##### 12891#       发表于 2022-11-23 19:44
+
+开唱啦
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
