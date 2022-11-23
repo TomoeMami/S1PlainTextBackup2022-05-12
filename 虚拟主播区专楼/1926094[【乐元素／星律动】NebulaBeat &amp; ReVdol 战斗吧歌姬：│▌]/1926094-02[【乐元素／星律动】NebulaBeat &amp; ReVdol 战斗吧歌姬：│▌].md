@@ -11267,3 +11267,22 @@ kino早期直播就一首下雨天唱得好，九夏和kino换皮也唱了下雨
 
 鸭鸭叫这样的小女孩姑妈，鸭鸭不会真是未成年吧
 
+
+
+*****
+
+####  ladiesman802  
+##### 2684#       发表于 2022-11-23 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58571226&amp;ptid=1926094" target="_blank">zxc5175011 发表于 2022-11-23 14:08</a>
+
+鸭鸭叫这样的小女孩姑妈，鸭鸭不会真是未成年吧</blockquote>
+裙子穿小码，和约子出门没有被搭讪，估计真的小学生身材
+
+*****
+
+####  MaxFOrder  
+##### 2685#       发表于 2022-11-23 14:21
+
+饭圈妹妹这点还好吧，至少是个有正常爱好的普通人
+
