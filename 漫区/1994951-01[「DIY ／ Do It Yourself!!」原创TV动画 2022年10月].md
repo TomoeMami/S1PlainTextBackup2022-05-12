@@ -6331,3 +6331,17 @@ Job 竟然请布丁做，布丁还真的照做了<img src="https://static.saraba
 
 匠和 Job 子等人，还有布丁都提心吊胆地看着她干活……
 
+
+
+*****
+
+####  库德里尔  
+##### 488#       发表于 2022-11-24 00:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58580920&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-11-23 23:44</a>
+
+第 9 集文字预告
+
+7 月，小己等&amp;#x4EB ...</blockquote>
+还有布丁，草
+
