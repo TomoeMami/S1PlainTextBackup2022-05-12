@@ -12064,3 +12064,17 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 难度只能下降不能上调，除非ce改
 
+
+
+*****
+
+####  adw667  
+##### 2544#       发表于 2022-11-23 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58565880&amp;ptid=2098044" target="_blank">Tissuesea 发表于 2022-11-23 08:52</a>
+
+是的，之前一直用大锤配枪锤和破防技能的套路，但乐园飞弹怪很多，不拿盾有点要命
+
+—— 来自 HONOR CHL- ...</blockquote>
+能量吸收啊，月光或者独角兽都挺便宜，空中擒抱攒精力也快
+

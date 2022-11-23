@@ -7071,3 +7071,19 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 最近沉迷某原和某pg，只刷了60池。还是老了啊，md当年每期200池到底是怎么刷出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 3647#       发表于 2022-11-23 10:23
+
+抽了100发都没新卡。只能再见了。
+
+*****
+
+####  白金口袋  
+##### 3648#       发表于 2022-11-23 10:32
+
+马上就要结束的活动结果给我连着掉仨礼装，有啥意义啊喂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
