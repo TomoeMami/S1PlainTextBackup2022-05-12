@@ -2597,3 +2597,12 @@ ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smile
 Congratulations to @SonySantaMonica for making God of War Ragnar&amp;#xF6;k the fastest-selling first party launch game in PlayStation history! 
 <img src="https://p.sda1.dev/8/89a1d9d0dc83dad470561b1c1038f289/20221123_230623.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ⁣梦醒⁡  
+##### 1742#       发表于 2022-11-23 23:18
+
+兽骨是不是限量的，通完关满世界找野兽都找不到<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

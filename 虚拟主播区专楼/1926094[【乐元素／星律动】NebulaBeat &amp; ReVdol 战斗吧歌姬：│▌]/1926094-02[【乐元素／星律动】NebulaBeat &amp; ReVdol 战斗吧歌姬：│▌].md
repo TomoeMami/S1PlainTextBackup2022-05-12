@@ -11390,3 +11390,14 @@ bgm：双喜
 
 活在其他直播间的唐女妖
 
+
+
+*****
+
+####  天青月白  
+##### 2696#       发表于 2022-11-23 23:13
+
+挺可爱的啊。gachi了，有没有娶退役虚拟主播的攻略看看
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
