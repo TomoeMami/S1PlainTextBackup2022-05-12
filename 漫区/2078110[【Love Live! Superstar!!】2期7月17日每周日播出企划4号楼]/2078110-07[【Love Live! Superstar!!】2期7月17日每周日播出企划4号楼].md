@@ -4864,3 +4864,20 @@ Q：老婆无限增加该怎 ...</blockquote>
 
 说起来鲤鱼今天一整个小奶狗look，我还看到了新表情，关键是她说记得我，满足
 
+
+
+*****
+
+####  nufawneafg  
+##### 9382#       发表于 2022-11-23 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58568723&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-11-23 11:40</a>
+大西强啊，话说原来7000初动已经是top了吗，看来现在声优歌手比我想的还要拉 ...</blockquote>
+唱空了好多年，现在实体是真的靴子落地日薄西山，不只是声优歌手<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+虽然基本上卖的东西不一样，但上次趁着鲤鱼发单瞄了一眼榜，就连演歌这种基本盘稳定的现在也拼不出4k初动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 9383#       发表于 2022-11-23 13:53
+
