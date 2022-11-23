@@ -12078,3 +12078,18 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 —— 来自 HONOR CHL- ...</blockquote>
 能量吸收啊，月光或者独角兽都挺便宜，空中擒抱攒精力也快
 
+
+
+*****
+
+####  redsouris  
+##### 2545#       发表于 2022-11-23 11:19
+
+ 本帖最后由 redsouris 于 2022-11-23 11:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58565503&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-23 08:12</a>
+困难第8章，昨晚又是进度忽略不计，打5章的隐藏龙王连着失败药都吃光只能读盘，打王城的水井连第一个道中怪 ...</blockquote>
+龙神体型太大，各种招都吃满的，很容易破防一套带走
+井里小怪比BOSS都难缠，应该直接冲到底去打BOSS<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
