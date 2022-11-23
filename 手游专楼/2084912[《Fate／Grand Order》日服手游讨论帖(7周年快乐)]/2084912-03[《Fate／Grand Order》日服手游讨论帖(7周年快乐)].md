@@ -7173,3 +7173,25 @@ qp和礼盒都塞满了...圣诞可以摸了...
 
 —— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  alucardcz  
+##### 3658#       发表于 2022-11-23 17:03
+
+王姐居然没复课
+
+c呆复课了
+
+不过不是2。6回顾  王姐还有希望！
+
+*****
+
+####  不垃圾屌丝  
+##### 3659#       发表于 2022-11-23 17:04
+
+75池，都想不起来要刷
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
