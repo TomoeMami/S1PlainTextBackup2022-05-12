@@ -11177,3 +11177,21 @@ kino早期直播就一首下雨天唱得好，九夏和kino换皮也唱了下雨
 
 看起来好小啊 和平时的声音与行为印象基本对应不起来 但确是很可爱
 
+
+
+*****
+
+####  ladiesman802  
+##### 2675#       发表于 2022-11-23 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58569472&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-11-23 12:25</a>
+
+漂亮得昏古七
+
+不过估计真的不会再干这行了，也好吧，祝愿人生美好
+
+ ...</blockquote>
+小纸和叶子有话要说……
+
+你们滤镜也太厚了吧，这不就是大学毕业生的平均颜值吗？胜在够年轻
+
