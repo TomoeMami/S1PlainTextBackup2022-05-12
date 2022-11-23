@@ -222,3 +222,19 @@ nico上有不少10年前制作的不错的MAD。另外有日文阅读能力的�
 最有名的同人文大概是终焉的银河吧）</blockquote>
 哪里能看啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 2021#       发表于 2022-11-23 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58571959&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2022-11-23 15:01</a>
+
+哪里能看啊</blockquote>
+MUV吧里我记得有人翻译了的
+
+如果你能看懂日文的话，[http://www.mai-net.net/bbs/sst/s ... l=4039&amp;n=0#kiji](http://www.mai-net.net/bbs/sst/sst.php?act=dump&amp;cate=muv-luv&amp;all=4039&amp;n=0#kiji)
+
+どうぞ
+
