@@ -11128,3 +11128,15 @@ kino早期直播就一首下雨天唱得好，九夏和kino换皮也唱了下雨
 
 游戏回后面，小纸开始d别的v了。学习很努力阿
 
+
+
+*****
+
+####  别里科夫  
+##### 2670#       发表于 2022-11-23 08:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58558861&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-11-22 19:51</a>
+
+原来的号也就5,6k而已，底边v</blockquote>
+梦之声之前还3100的粉丝数呢。。。
+

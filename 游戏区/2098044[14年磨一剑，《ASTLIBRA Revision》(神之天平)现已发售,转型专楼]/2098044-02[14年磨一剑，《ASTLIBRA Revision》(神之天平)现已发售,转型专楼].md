@@ -12010,3 +12010,26 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 第六章了，在boss房前了，感觉自己穷得发指。原因是火山关之后都不敢近身打小怪，第四章的水胆会流 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">长柄武器能有效降低与怪物接触的频率，再加上那个增加击退距离的被动就舒服很多。五章剧毒怪有超长起手+明显叫声+只丢两坨毒，多盯着点提前后跳躲一下就行
 
+
+
+*****
+
+####  Sannapolis  
+##### 2539#       发表于 2022-11-23 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58565503&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-23 08:12</a>
+
+困难第8章，昨晚又是进度忽略不计，打5章的隐藏龙王连着失败药都吃光只能读盘，打王城的水井连第一个道中怪 ...</blockquote>
+龙王我觉得将各种抗性堆高就好打了，石化、流血堆到100，失明、麻痹尽量堆高
+
+*****
+
+####  Tissuesea  
+##### 2540#       发表于 2022-11-23 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58564864&amp;ptid=2098044" target="_blank">方舟失智博士 发表于 2022-11-23 03:10</a>
+挖矿的石头里卖钱的宝石是不是从来没卖过</blockquote>
+致富之路get<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
