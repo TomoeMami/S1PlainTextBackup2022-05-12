@@ -11415,3 +11415,19 @@ bgm：双喜
 —— 来自 HUAWEI SCM-W09, Android 10上的 S1Next ...</blockquote>
 心比天高 这种被人捧过有点小姿色都觉得未来会有多金温柔白马王子来迎娶 等挑挑拣拣一回头发现三十多了那时也许可以捡漏 前提你还愿意<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 2698#       发表于 2022-11-24 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58580344&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-11-23 23:13</a>
+
+挺可爱的啊。gachi了，有没有娶退役虚拟主播的攻略看看
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 S1Next ...</blockquote>
+晚了，要下手估计厂工已经得手了。或者进厂前已经有了小男友了。
+
+唯一公开过恋情的好像是saku，提了一句国内读书时的小男友。
+
