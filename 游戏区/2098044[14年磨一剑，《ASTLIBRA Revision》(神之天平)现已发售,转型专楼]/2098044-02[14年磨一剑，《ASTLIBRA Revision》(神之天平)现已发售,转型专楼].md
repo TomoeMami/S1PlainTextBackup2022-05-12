@@ -12225,3 +12225,17 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 新章这最后的boss死麻了 满屏幕花花绿绿的背景和弹幕 碰到几个就暴毙
 本来打到队友出来助攻都泪目了 然后啪一下死了 反复循环 死到最后人都麻了 结果还有一个弹幕更恶心的阶段<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  慕容断月  
+##### 2556#       发表于 2022-11-23 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58573810&amp;ptid=2098044" target="_blank">jellyhero 发表于 2022-11-23 16:59</a>
+
+有官方群吗？请问在哪里能找到
+
+—— 来自 HUAWEI TET-AN50, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+steam商店页面的介绍里
+
