@@ -12272,3 +12272,15 @@ steam商店页面的介绍里
 本来打到队友出来助攻都泪目了 然后啪 ...</blockquote>
 最后五连太简单了，伤害都溢出了。攻速加起来，能量吸收加终极技能，按着摩擦。
 
+
+
+*****
+
+####  xiaosayang  
+##### 2560#       发表于 2022-11-23 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58578890&amp;ptid=2098044" target="_blank">yla 发表于 2022-11-23 22:13</a>
+
+有个被动是放凭依的时候消弹，能有效降低后期boss战难度</blockquote>
+主要是根本看不清子弹 冷不防吃一个就暴毙了 清弹幕好像最后一阶段不生效就下了
+
