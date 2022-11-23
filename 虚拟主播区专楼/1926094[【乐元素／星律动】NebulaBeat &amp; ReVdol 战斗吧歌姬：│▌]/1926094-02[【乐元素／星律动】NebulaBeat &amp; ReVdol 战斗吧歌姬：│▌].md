@@ -11335,3 +11335,12 @@ kino早期直播就一首下雨天唱得好，九夏和kino换皮也唱了下雨
 
 就是这样的fqmm，在v的一年，不也融入得巨快，v版本的活照样给整，可以称之为pro
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2691#       发表于 2022-11-23 17:53
+
+kino早就说过了，九夏和鸭鸭一点都不二刺螈，九夏不用说了，鸭鸭哪怕不是饭圈妹妹估计也是更关注真人明星的那一卦，这有啥可破防的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是中之人是fqmm做v就不干净了
+
