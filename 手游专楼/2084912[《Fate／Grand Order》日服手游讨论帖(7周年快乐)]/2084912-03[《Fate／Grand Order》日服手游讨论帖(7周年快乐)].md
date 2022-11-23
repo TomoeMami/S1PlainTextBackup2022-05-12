@@ -7249,3 +7249,12 @@ Q•E•D
 
 另外2.7后面肯定还有个终幕，和时间神殿似的，这游戏续到8周年都有可能<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 3663#       发表于 2022-11-23 18:44
+
+”再见了，所有的servant“<img src="https://static.saraba1st.com/image/smiley/carton2017/034.png" referrerpolicy="no-referrer">
+
