@@ -12192,3 +12192,17 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 而在击坠战舰后出现的无法动弹的异形头boss则neta了R-TYPE系列的超级吉祥物ドブケラドプス。初登场于R-TYPE初代，除R-TYPEⅡ以外的每一部正传都有登场。
 
+
+
+*****
+
+####  hello0607  
+##### 2553#       发表于 2022-11-23 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58575602&amp;ptid=2098044" target="_blank">猫狗猫 发表于 2022-11-23 18:43</a>
+
+之前打到第六章关底boss的时候我一直在想这边是不是neta的R-TYPE
+
+今天得闲找了一下，看到作者主页 ...</blockquote>
+各属性最终凭依技能 火 沙罗曼蛇 土 神威  暗 雷电  圣 斑鸠
+
