@@ -4927,3 +4927,22 @@ Q：老婆无限增加该怎 ...</blockquote>
 
 终于来了
 
+
+
+*****
+
+####  ViyViy  
+##### 9388#       发表于 2022-11-23 20:11
+
+这个睡衣的拼接立牌还阔以，小槽点就是配件印图的颜色太浅了，星星在强光下某些角度都看不见了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+点名儿“表扬”即将发售的近未来立牌，都是2000+日元你看看人家，近未来的规格也就一般大立牌，看预览图也没啥花样，不知道为什么那么贵。
+
+<img src="https://img.saraba1st.com/forum/202211/23/200504hs2ki9khkvovhkip.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_2500.JPG</strong> (838.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-23 20:05 上传
+
