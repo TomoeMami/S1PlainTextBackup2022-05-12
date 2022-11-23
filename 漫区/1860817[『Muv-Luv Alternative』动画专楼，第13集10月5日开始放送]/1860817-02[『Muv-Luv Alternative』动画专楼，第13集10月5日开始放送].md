@@ -211,3 +211,14 @@ nico上有不少10年前制作的不错的MAD。另外有日文阅读能力的�
 nico上有不少10年前制作的不错的MAD。另外有日文阅读能力的话www.mai-net.net这边有不少日本那边的同人文 ...</blockquote>
 最有名的同人文大概是终焉的银河吧）
 
+
+
+*****
+
+####  亚尔古水手  
+##### 2020#       发表于 2022-11-23 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58571500&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-11-23 14:26</a>
+最有名的同人文大概是终焉的银河吧）</blockquote>
+哪里能看啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
