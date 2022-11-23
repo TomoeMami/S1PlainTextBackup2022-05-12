@@ -7235,3 +7235,17 @@ Q•E•D
 第 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不奶一口2。7分几部吗 上中下 还是上中下终上终中终下 完结篇啊
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3662#       发表于 2022-11-23 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58575437&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-23 18:32</a>
+
+不奶一口2。7分几部吗 上中下 还是上中下终上终中终下 完结篇啊</blockquote>
+2.7序，2.7破，2.7Q急，2.7终<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+另外2.7后面肯定还有个终幕，和时间神殿似的，这游戏续到8周年都有可能<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+

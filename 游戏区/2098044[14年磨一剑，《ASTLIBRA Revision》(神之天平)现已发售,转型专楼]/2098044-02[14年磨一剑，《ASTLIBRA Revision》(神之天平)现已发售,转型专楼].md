@@ -12171,3 +12171,24 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 —— 来自 HUAWEI TET-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  猫狗猫  
+##### 2552#       发表于 2022-11-23 18:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">之前打到第六章关底boss的时候我一直在想这边是不是neta的R-TYPE
+<[img src="https://s1.ax1x.com/2022/11/23/z8fMM8.png" referrerpolicy="no-referrer">
+
+今天得闲找了一下，看到作者主页自我介绍是STG爱好者我就知道肯定是了
+<[img src="https://s1.ax1x.com/2022/11/23/z8flqg.png" referrerpolicy="no-referrer">
+<[img src="https://s1.ax1x.com/2022/11/23/z8fzwQ.png" referrerpolicy="no-referrer">
+<[img src="https://s1.ax1x.com/2022/11/23/z8fuxf.png" referrerpolicy="no-referrer">
+
+与庞大的浮空战舰【最终决戦兵器ラダマンテュス】作战的方式neta了R-TYPE初代第3面的设计，本关的关卡设计便是没有任何地形或是杂鱼，而是与一架屏幕无法完全呈现的巨大战舰游斗与其上并拆除掉安装在舰体的机枪、导弹发射器和推进器，最后拆除拥有无敌保护壳的核心
+<[img src="https://s1.ax1x.com/2022/11/23/z8fQsS.png" referrerpolicy="no-referrer">
+<[img src="https://s1.ax1x.com/2022/11/23/z8fmGt.png" referrerpolicy="no-referrer">
+
+而在击坠战舰后出现的无法动弹的异形头boss则neta了R-TYPE系列的超级吉祥物ドブケラドプス。初登场于R-TYPE初代，除R-TYPEⅡ以外的每一部正传都有登场。
+
