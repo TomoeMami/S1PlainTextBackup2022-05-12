@@ -2583,3 +2583,17 @@ ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1741#         楼主| 发表于 2022-11-23 23:07
+
+ 本帖最后由 Piano-Forest 于 2022-11-23 23:10 编辑 
+
+首周销量510万，成为第一方销售最快的作品
+
+Congratulations to @SonySantaMonica for making God of War Ragnar&amp;#xF6;k the fastest-selling first party launch game in PlayStation history! 
+<img src="https://p.sda1.dev/8/89a1d9d0dc83dad470561b1c1038f289/20221123_230623.jpg" referrerpolicy="no-referrer">
+
