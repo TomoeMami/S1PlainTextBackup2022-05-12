@@ -2516,3 +2516,14 @@ ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smile
 
 —— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rainsheep  
+##### 1734#       发表于 2022-11-23 17:51
+
+<blockquote>namelessashen 发表于 2022-11-20 22:34
+卡了飞龙bug，一直触发不了大剑哥的龙的战斗，真是无语了，一到巨坑就有龙战斗的bgm烦得要死 ...</blockquote>
+我也遇到了这个bug，最后网上搜了下，只能卡bug把龙卡出地图解决了
+
