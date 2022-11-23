@@ -12046,3 +12046,12 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nogi  
+##### 2542#       发表于 2022-11-23 09:31
+
+玩到新章还能增加难度吗 一下子数值崩坏变成割草游戏了
+
