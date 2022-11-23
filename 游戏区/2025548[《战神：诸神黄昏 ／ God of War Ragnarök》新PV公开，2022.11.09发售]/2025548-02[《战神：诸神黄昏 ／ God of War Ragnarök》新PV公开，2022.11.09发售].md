@@ -2493,3 +2493,15 @@ ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smile
 
 前面都还蛮好的 某人抢面具刺人开始就不对劲了 剧情一路坐火箭 吹号角后跟腰斩漫画似的 很明显有两部压成一部的感觉 真正的诸神黄昏内容就1小时不到，4的铺垫和伏笔都很摆烂的回收 情感酝酿和剧情发展都不够顺滑，只能说很可惜 游戏还是好玩的 就是明显可以做的更好 唉。 这作boss战的演出感觉也不咋样 没有能让人眼前一亮的部分<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  日日日日日野  
+##### 1732#       发表于 2022-11-23 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58537727&amp;ptid=2025548" target="_blank">ads147147 发表于 2022-11-21 16:41</a>
+
+肯定是砍东西，两部变一部，怕不是cory要跑路的原因，反正cory大纲已经写好了，索尼司马要求改成一部那还能 ...</blockquote>
+我的评价是，如果当事人自己不承认，或者有什么靠谱记者爆料，怎么猜都没用的。
+
