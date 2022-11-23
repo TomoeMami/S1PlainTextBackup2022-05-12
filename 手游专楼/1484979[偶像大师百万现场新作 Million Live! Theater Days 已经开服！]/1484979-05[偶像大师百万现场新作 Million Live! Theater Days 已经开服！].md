@@ -29,3 +29,15 @@
 
 这次粉色异色服好看，但是最近身体有点倦，想躺<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  moonmagian  
+##### 7030#       发表于 2022-11-23 15:32
+
+平常一直咸鱼躺25000，偶尔冲个10000，衣服拿齐就走人
+这次拿齐衣服门槛好高，希望之后三个活动能稍微放宽一点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
