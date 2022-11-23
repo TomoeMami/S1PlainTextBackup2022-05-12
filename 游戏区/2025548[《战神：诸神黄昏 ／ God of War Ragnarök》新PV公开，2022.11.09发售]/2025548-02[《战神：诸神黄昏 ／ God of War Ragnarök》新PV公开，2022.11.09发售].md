@@ -2615,3 +2615,28 @@ Congratulations to @SonySantaMonica for making God of War Ragnar&amp;#xF6;k the 
 
 510万确实可以了，我当时觉得400来万撑死了，结果估计是周三发售的优势<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古尘  
+##### 1744#       发表于 2022-11-24 01:42
+
+<img src="https://img.saraba1st.com/forum/202211/24/014205fsxcg0a3gbjixgcw.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20221114_115224.jpg</strong> (953.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-24 01:42 上传
+
+<img src="https://img.saraba1st.com/forum/202211/24/014205wdxqst6tb1ybxbqn.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20221114_115238.jpg</strong> (1008.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-24 01:42 上传
+
+全地图100%就剩这个解谜，怀疑是卡BUG了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
