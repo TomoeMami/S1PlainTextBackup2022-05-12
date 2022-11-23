@@ -11209,3 +11209,36 @@ kino早期直播就一首下雨天唱得好，九夏和kino换皮也唱了下雨
 你们滤镜也太厚了吧，这不就是大学毕业生的平均颜值吗？胜在够年轻 ...</blockquote>
 这个虫毕竟还是没必要斗的，就是盯着这张可爱脸蛋忽然产生了一种错过的感觉，哎，都过去了
 
+
+
+*****
+
+####  龙娘777  
+##### 2677#       发表于 2022-11-23 13:24
+
+太嫩了 难怪鸟p每当有盒都会说上一句不如唐九夏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  龙娘777  
+##### 2678#       发表于 2022-11-23 13:24
+
+太嫩了 难怪鸟p每当有盒都会说上一句不如唐九夏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ladiesman802  
+##### 2679#       发表于 2022-11-23 13:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58570581&amp;ptid=1926094" target="_blank">龙娘777 发表于 2022-11-23 13:24</a>
+
+太嫩了 难怪鸟p每当有盒都会说上一句不如唐九夏</blockquote>
+草，还有这回事？
+
+*****
+
+####  infinite  
+##### 2680#       发表于 2022-11-23 13:29
+
+九夏颜值是真的高阿，不同意不服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
