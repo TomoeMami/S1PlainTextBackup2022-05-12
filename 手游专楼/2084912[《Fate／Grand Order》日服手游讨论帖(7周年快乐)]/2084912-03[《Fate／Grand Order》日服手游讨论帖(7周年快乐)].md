@@ -7051,3 +7051,14 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 — from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  里村紅葉  
+##### 3645#       发表于 2022-11-23 08:19
+
+13池一张礼装没掉<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

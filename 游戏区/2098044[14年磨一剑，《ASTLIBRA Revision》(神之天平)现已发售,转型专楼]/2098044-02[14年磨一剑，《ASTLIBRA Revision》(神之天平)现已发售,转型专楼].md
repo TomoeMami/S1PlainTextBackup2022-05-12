@@ -11977,3 +11977,12 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 —— 来自 samsung SM-G986W, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  永远的访客  
+##### 2536#       发表于 2022-11-23 08:12
+
+困难第8章，昨晚又是进度忽略不计，打5章的隐藏龙王连着失败药都吃光只能读盘，打王城的水井连第一个道中怪都没打赢，就这战力都不想再去找8章boss刮痧了，但也已经60级，章节全星盘，商店武器全熟练，竞技场基本全过，技能全精通，除了死练级想不出啥办法提高容错了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
