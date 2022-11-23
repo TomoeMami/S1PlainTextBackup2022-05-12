@@ -12033,3 +12033,16 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Tissuesea  
+##### 2541#       发表于 2022-11-23 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58565660&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-23 08:34</a>
+长柄武器能有效降低与怪物接触的频率，再加上那个增加击退距离的被动就舒服很多。五章剧毒怪有超 ...</blockquote>
+是的，之前一直用大锤配枪锤和破防技能的套路，但乐园飞弹怪很多，不拿盾有点要命
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

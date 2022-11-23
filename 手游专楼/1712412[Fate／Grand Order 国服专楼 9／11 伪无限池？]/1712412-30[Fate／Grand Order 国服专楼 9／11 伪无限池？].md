@@ -1276,3 +1276,21 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十抽就一个三星活动礼装 太酷炫了
 
+
+
+*****
+
+####  飞霞精灵  
+##### 43758#       发表于 2022-11-23 08:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58524804&amp;ptid=1712412" target="_blank">Tequila_R 发表于 2022-11-20 19:05</a>
+
+真心觉得不如落地高杉好友里肯定会有妹子抽爆的。出云阿国连男玩家都没几个人抽啊
+
+—— 来自 HUA ...</blockquote>
+阿国的整体形象设计太敷衍了，放到10年前都算不了出众。
+
+人设这个随机英文蹦出来太尴尬了鹅……后面的武士机甲也没啥大吸引力。
+
+说得简单粗暴一点，同为舞女，不如免费送的玛塔哈丽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
