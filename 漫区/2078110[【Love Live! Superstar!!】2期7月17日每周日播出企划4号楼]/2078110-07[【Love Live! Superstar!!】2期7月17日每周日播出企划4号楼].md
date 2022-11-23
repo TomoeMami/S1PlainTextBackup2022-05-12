@@ -4890,3 +4890,14 @@ Q：老婆无限增加该怎 ...</blockquote>
 
 新单宣传期结束，回归星团宣传，接下来就是准备巡回了，寂寞啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  a92063256  
+##### 9385#       发表于 2022-11-23 15:10
+
+我今天鱼talk总共80s，有一半时间都在紧张的傻笑<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
