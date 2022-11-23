@@ -7087,3 +7087,19 @@ FD470EFC-1C55-4ABB-9DCB-DAE4E915DC62.jpeg
 
 马上就要结束的活动结果给我连着掉仨礼装，有啥意义啊喂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 3649#       发表于 2022-11-23 10:33
+
+130多，全员主动技能999就剩骨头、毛球和qp了
+
+*****
+
+####  马桶3  
+##### 3650#       发表于 2022-11-23 10:40
+
+刷了97池，努力一下就100了，但是不想努力了，摩根高难打完了，躺<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
