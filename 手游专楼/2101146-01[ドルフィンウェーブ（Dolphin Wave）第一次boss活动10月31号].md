@@ -337,3 +337,30 @@ SP5的活动SSR一炮能打掉11W血
 VH打完了，活动卡拉起来之后还是比较轻松的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">那是因为你有解异常的中二，这次的boss就是没解异常打毛线系列……
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 152#         楼主| 发表于 2022-11-23 21:35
+
+ 本帖最后由 小五的拖鞋 于 2022-11-23 21:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58576899&amp;ptid=2101146" target="_blank">黑上シグマ 发表于 2022-11-23 20:17</a>
+
+那是因为你有解异常的中&amp;#x ...</blockquote>
+那就没办法了，想办法叠buff速杀吧，我这个位置光属性也只练了中二<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+查了一下SSR飒和由芽也可以解buff的
+
+*****
+
+####  黑上シグマ  
+##### 153#       发表于 2022-11-23 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58578160&amp;ptid=2101146" target="_blank">小五的拖鞋 发表于 2022-11-23 21:35</a>
+
+那就没办法了，想办法叠buff速杀吧，我这个位置光属性也只练了中二
+
+查了一下SSR飒和由芽也可以解b ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能解debuff的我一个都没，叠buff也赶不上对面毒一下1W血啊……
+
