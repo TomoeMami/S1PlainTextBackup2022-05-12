@@ -1575,3 +1575,46 @@ ns这狗牙截图毫不意外
 
 搁这播片呢
 
+
+
+*****
+
+####  rs5621  
+##### 3157#       发表于 2022-11-23 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就半首歌！
+
+*****
+
+####  holoan  
+##### 3158#         楼主| 发表于 2022-11-23 17:18
+
+不过说不定大家都是播片
+
+生放送这东西
+
+*****
+
+####  holoan  
+##### 3159#         楼主| 发表于 2022-11-23 17:22
+
+<img src="https://img.saraba1st.com/forum/202211/23/172052ub3wc0cw1kbkakea.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (13.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-23 17:20 上传
+
+、
+
+不过嘛，yagoo确实转发了，至于看没看
+
+<img src="https://img.saraba1st.com/forum/202211/23/172230ifrqbvzf5faeebzr.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-23 17:22 上传
+

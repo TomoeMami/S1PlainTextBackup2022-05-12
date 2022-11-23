@@ -11313,3 +11313,12 @@ kino早期直播就一首下雨天唱得好，九夏和kino换皮也唱了下雨
 现在学校里面随便抓10个妹妹里面可能有7个都有自己喜欢的明星，又不疯管这些干嘛
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">不过这个姑娘的确好看
 
+
+
+*****
+
+####  Lamapocos  
+##### 2689#       发表于 2022-11-23 17:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">去看了下有点像我当年初中同学和大学同学合体版，确实很好看啊
+
