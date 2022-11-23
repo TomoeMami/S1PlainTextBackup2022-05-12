@@ -2505,3 +2505,14 @@ ps5周期这就过了大半吗<img src="https://static.saraba1st.com/image/smile
 肯定是砍东西，两部变一部，怕不是cory要跑路的原因，反正cory大纲已经写好了，索尼司马要求改成一部那还能 ...</blockquote>
 我的评价是，如果当事人自己不承认，或者有什么靠谱记者爆料，怎么猜都没用的。
 
+
+
+*****
+
+####  名字已被吃  
+##### 1733#       发表于 2022-11-23 16:49
+
+玩着玩着才发现，ps5开了高帧率模式(应该就是开启vrr吧)，手动录像时会提示刷新率过高只能1080p录像，然后录下来的视频一看觉得好糊啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
