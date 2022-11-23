@@ -12215,3 +12215,13 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 这巨型战舰让我想到了空中魂斗罗的第三关boss
 
+
+
+*****
+
+####  xiaosayang  
+##### 2555#       发表于 2022-11-23 21:45
+
+新章这最后的boss死麻了 满屏幕花花绿绿的背景和弹幕 碰到几个就暴毙
+本来打到队友出来助攻都泪目了 然后啪一下死了 反复循环 死到最后人都麻了 结果还有一个弹幕更恶心的阶段<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
