@@ -918,3 +918,12 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  瘦猪与肥猴  
+##### 89#       发表于 2022-11-23 22:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">野队几个聪明头一起打真的很欢乐。这会换子弹会用设备的，怕不是奸奇神选
+
