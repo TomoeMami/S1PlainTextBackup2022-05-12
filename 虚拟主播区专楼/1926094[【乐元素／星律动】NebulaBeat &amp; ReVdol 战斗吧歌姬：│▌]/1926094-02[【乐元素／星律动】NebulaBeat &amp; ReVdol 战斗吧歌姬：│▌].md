@@ -11295,3 +11295,21 @@ kino早期直播就一首下雨天唱得好，九夏和kino换皮也唱了下雨
 
 撕皮也好，能更自由的做想做的事情了(参考鱼)
 
+
+
+*****
+
+####  Nyarteplatho  
+##### 2687#       发表于 2022-11-23 16:55
+
+正常追星，不是什么狂热极端粉就没什么大问题
+
+*****
+
+####  核中核小团体  
+##### 2688#       发表于 2022-11-23 16:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">因为追星破防的是大学没怎么跟女生接触过吗？
+现在学校里面随便抓10个妹妹里面可能有7个都有自己喜欢的明星，又不疯管这些干嘛
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">不过这个姑娘的确好看
+

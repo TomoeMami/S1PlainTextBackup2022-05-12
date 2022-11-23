@@ -12158,3 +12158,16 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 地狱难度进新章最终迷宫了，失去继续刷刷刷的动力
 
+
+
+*****
+
+####  jellyhero  
+##### 2551#       发表于 2022-11-23 16:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58523180&amp;ptid=2098044" target="_blank">慕容断月 发表于 2022-11-20 17:37</a>
+要不加官方群问问？</blockquote>
+有官方群吗？请问在哪里能找到<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TET-AN50, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
