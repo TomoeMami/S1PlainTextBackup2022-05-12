@@ -12093,3 +12093,17 @@ steam版的demo有两个模式，体验第一章剧情或者快速体验战斗�
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  永远的访客  
+##### 2546#       发表于 2022-11-23 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58568368&amp;ptid=2098044" target="_blank">redsouris 发表于 2022-11-23 11:19</a>
+
+龙神体型太大，各种招都吃满的，很容易破防一套带走
+
+井里小怪比BOSS都难缠，应该直接冲到底去打BOSS[f:06 ...</blockquote>
+打龙神主要是刮痧太烦，压着打对面5分钟，3秒内被一套带走。没带够防石化药水，连着打耗不起，抗石化100时忘记关掉自动举盾，开着降落减速和空中悬停都是累赘，每次重试切换太烦，干脆怒退游戏了事，准备练个几级再优化组合来揍<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

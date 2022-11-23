@@ -7121,3 +7121,17 @@ qp见底不得不刷 140池收工
 
 只刷了13池子刷不动了
 
+
+
+*****
+
+####  exiaexa  
+##### 3653#       发表于 2022-11-23 12:18
+
+NMD加班加到失了智
+
+刚才突然想起来两天没打手游
+
+一看只刷了50池，痛失铃铛
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
