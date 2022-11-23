@@ -4842,3 +4842,14 @@ Q：老婆无限增加该怎么办
 Q：老婆无限增加该怎 ...</blockquote>
 大西强啊，话说原来7000初动已经是top了吗，看来现在声优歌手比我想的还要拉
 
+
+
+*****
+
+####  cybernetics31  
+##### 9380#       发表于 2022-11-23 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58568723&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-11-23 11:40</a>
+大西强啊，话说原来7000初动已经是top了吗，看来现在声优歌手比我想的还要拉 ...</blockquote>
+疫情原因形势大不如前了，现在能卖5000已经很好了
+

@@ -882,3 +882,15 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 莫名其妙的，吐了
 
+
+
+*****
+
+####  古代人皮克  
+##### 86#       发表于 2022-11-23 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58549314&amp;ptid=1951151" target="_blank">wthall 发表于 2022-11-22 10:55</a>
+
+请问这个只有PC版本吗？</blockquote>
+以后会出xbox版本，发售时间未定
+
