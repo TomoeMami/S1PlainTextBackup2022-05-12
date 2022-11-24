@@ -23,3 +23,12 @@ G2到底在干什么啊<img src="https://static.saraba1st.com/image/smiley/face2
 
 g2和g2出来的指挥都输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  六道仙鱼  
+##### 2914#       发表于 2022-11-24 10:12
+
+g2的比赛还用看，醒来就是败者组<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
