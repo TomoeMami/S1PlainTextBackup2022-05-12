@@ -1349,3 +1349,19 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 图片看不到啦
 
+
+
+*****
+
+####  妖刀  
+##### 43764#       发表于 2022-11-24 15:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58589683&amp;ptid=1712412" target="_blank">最爱面包超人 发表于 2022-11-24 14:21</a>
+
+才这么一点吗
+
+图片看不到啦</blockquote>
+[https://www.bilibili.com/video/BV1QG4y1o7zR](https://www.bilibili.com/video/BV1QG4y1o7zR)
+
+有专门做这个统计的
+
