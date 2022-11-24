@@ -446,3 +446,17 @@ aquila队除了画崩的男主毛都没有，orbital divers灵魂当然是金毛
 不过吐槽一下帝国部队都是击震太惨了吧，好歹来几台不知火或者阳炎啊，难不成真的全都用在内战时候了，结合 ...</blockquote>
 就是怕，所以第一时间没来，发现目标是横滨后也一直在外围进行削减作战。在BETA撤退后一直在进行追击，你肯定没仔细看战后debrifing。
 
+
+
+*****
+
+####  创始’’’天翔  
+##### 2039#       发表于 2022-11-24 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58593154&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-11-24 17:44</a>
+
+这次加戏体现了chicken diver的内容
+
+先遣部队战术机爬满战车级的演出比游戏里的弱智级好一点</blockquote>
+哪有啥攀爬cg<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
