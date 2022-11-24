@@ -12671,3 +12671,17 @@ steam商店页面的介绍里
 还有个问题，一直缺金币怎么办？打怪全程开 ...</blockquote>
 不如刷 制作来回倒腾，也没加多少。糕点类还是做天平多点
 
+
+
+*****
+
+####  天堂蜘蛛  
+##### 2592#       发表于 2022-11-24 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58595590&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-24 20:24</a>
+
+第六章了才发现那些食物是可以换水晶的，还有必要用掉吗
+
+还有个问题，一直缺金币怎么办？打怪全程开 ...</blockquote>
+CE改
+

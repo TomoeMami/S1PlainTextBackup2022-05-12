@@ -850,3 +850,55 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 虽然是原动画人设，但这新画的真的不行……原作的那种赛璐璐味道真的就那么难复现吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">第一次如此期待岛田监修整容<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LEOKO~  
+##### 77#       发表于 2022-11-24 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58534208&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2022-11-21 12:40</a>
+
+这新PV，90%的画面在前5集而且这旁白文案，一副大叔回忆童年的口吻，推特群众纷纷表示，我当年还没 ...</blockquote>
+正好联动时期更新的主线，队长和东京船团怕是要被反水的枫一炮带走
+
+*****
+
+####  LEOKO~  
+##### 78#       发表于 2022-11-24 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58556629&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2022-11-22 17:42</a>
+
+虽然是原动画人设，但这新画的真的不行……原作的那种赛璐璐味道真的就那么难复现吗第一次如此期待 ...</blockquote>
+这立绘太离谱了，好歹大流士也顺应时代更新了人设（大雾）
+
+*****
+
+####  LEOKO~  
+##### 79#       发表于 2022-11-24 22:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58556629&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2022-11-22 17:42</a>
+
+虽然是原动画人设，但这新画的真的不行……原作的那种赛璐璐味道真的就那么难复现吗第一次如此期待 ...</blockquote>
+这立绘太离谱了，好歹大流士也顺应时代更新了人设（大雾）
+
+*****
+
+####  LEOKO~  
+##### 80#       发表于 2022-11-24 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58549819&amp;ptid=2104259" target="_blank">Cyau 发表于 2022-11-22 11:21</a>
+
+才发现师姐这次算是全员盘子实装了吧，还挺快，就是FA停摆了</blockquote>
+东偶组得写个惨字
+
+*****
+
+####  LEOKO~  
+##### 81#       发表于 2022-11-24 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58549819&amp;ptid=2104259" target="_blank">Cyau 发表于 2022-11-22 11:21</a>
+
+才发现师姐这次算是全员盘子实装了吧，还挺快，就是FA停摆了</blockquote>
+东偶组得写个惨字
+

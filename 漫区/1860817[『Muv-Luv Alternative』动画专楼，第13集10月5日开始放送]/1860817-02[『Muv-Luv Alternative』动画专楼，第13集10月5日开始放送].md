@@ -460,3 +460,14 @@ aquila队除了画崩的男主毛都没有，orbital divers灵魂当然是金毛
 先遣部队战术机爬满战车级的演出比游戏里的弱智级好一点</blockquote>
 哪有啥攀爬cg<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yone0000  
+##### 2040#       发表于 2022-11-24 22:02
+
+这集还不错啊，这次光线级的描写可以说是几部动画里最好的了吧，连预备照射都画出来了，驹木都露了个脸，是不是个伏笔啊，原作里有这段吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+下一话开场就是武爷单刷要塞级了
+
