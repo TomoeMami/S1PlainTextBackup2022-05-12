@@ -1335,3 +1335,17 @@ fgo让我领悟了一个人生真理——友情可以换到很多东西，但�
 
 C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
+
+
+*****
+
+####  最爱面包超人  
+##### 43763#       发表于 2022-11-24 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58584540&amp;ptid=1712412" target="_blank">日蚀之阳 发表于 2022-11-24 09:49</a>
+
+差不多六百石头一百三呼符</blockquote>
+才这么一点吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+图片看不到啦
+

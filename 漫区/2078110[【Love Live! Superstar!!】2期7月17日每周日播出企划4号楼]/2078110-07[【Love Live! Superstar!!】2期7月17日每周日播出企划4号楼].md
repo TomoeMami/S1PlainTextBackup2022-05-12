@@ -5295,3 +5295,18 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 我就随便一说，企划爱咋咋了</blockquote>
 说实话，说出来不好听，我现在还是挺想看企划的乐子的，虽然从理性角度来看，企划的乐子越多，恐怕对中之人的发展没那么有利，不过从个人感性的想法来看，还是挺希望看到企划自食其果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9418#       发表于 2022-11-24 14:26
+
+ 本帖最后由 ads147147 于 2022-11-24 14:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588379&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-11-24 13:02</a>
+
+以后就揪着实力差当卖点不&amp;# ...</blockquote>
+三期不可能比二期弱了啊，光是结那就在那边杵着我寻思除非来两个拖后腿的，按现在二期的状态捆一起被结那打，不过公演来了结那要是拉了就惨了。
+
+动画里更别说了，nv唯一指定垫脚石的含金量，1拖8大战维也纳落榜生，vn会看得起大香以外的人么。
+
