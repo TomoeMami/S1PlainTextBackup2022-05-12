@@ -11446,3 +11446,17 @@ bgm：双喜
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ladiesman802  
+##### 2700#       发表于 2022-11-24 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58584246&amp;ptid=1926094" target="_blank">Neozero 发表于 2022-11-24 09:26</a>
+
+我上了个假大学吗
+
+—— 来自 S1Fun</blockquote>
+当年外语专业的好多美女，我读计算机的别说美女，找个女的都难，别的学校读酒店管理的也是很多美女
+
