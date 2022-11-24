@@ -12451,3 +12451,14 @@ steam商店页面的介绍里
 打竞技场给的</blockquote>
 感谢，是打会长给吗，打到会长打不过去了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  魔法少女大头  
+##### 2574#       发表于 2022-11-24 12:35
+
+新章在东京，阿努莉丝门口怎么进不去，门是红的。也没啥机关要开的吧。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
