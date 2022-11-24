@@ -1377,3 +1377,15 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 高杉明年日服唠唠叨叨会落地吗，这么帅的立绘不实装可惜了</blockquote>
 大概率到关服都不会落地了
 
+
+
+*****
+
+####  DET  
+##### 43766#       发表于 2022-11-24 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58590923&amp;ptid=1712412" target="_blank">UNISONIA 发表于 2022-11-24 15:36</a>
+
+大概率到关服都不会落地了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">只要其它卡池流水不高，落地概率应该很高吧
+

@@ -41,3 +41,12 @@
 
 —— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  花开安菲路  
+##### 7031#       发表于 2022-11-24 15:41
+
+打了13.8w打不动了，躺了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
