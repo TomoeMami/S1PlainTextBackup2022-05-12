@@ -5273,3 +5273,25 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 这么理解挺有道理的，不过&amp;# ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我就随便一说，企划爱咋咋了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9416#       发表于 2022-11-24 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588656&amp;ptid=2078110" target="_blank">player3960 发表于 2022-11-24 13:17</a>
+
+反正现在的liella啊，给我感觉就是个给阿波罗下蛋的老母鸡，至于是不是每次都下金蛋，难说 ...</blockquote>
+我倒是觉得是不是金蛋也没那么重要，反正海选出来的人，它企划一定会去推的，资源倾斜也正常，有这么个企划做曝光，apb多少都是赚的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 9417#       发表于 2022-11-24 14:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58589251&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-11-24 13:52</a>
+
+我就随便一说，企划爱咋咋了</blockquote>
+说实话，说出来不好听，我现在还是挺想看企划的乐子的，虽然从理性角度来看，企划的乐子越多，恐怕对中之人的发展没那么有利，不过从个人感性的想法来看，还是挺希望看到企划自食其果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
