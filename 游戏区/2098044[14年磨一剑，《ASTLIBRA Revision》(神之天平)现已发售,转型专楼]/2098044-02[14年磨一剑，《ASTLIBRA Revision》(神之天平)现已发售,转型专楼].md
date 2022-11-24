@@ -12700,3 +12700,22 @@ CE改
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  MadMinute  
+##### 2594#       发表于 2022-11-24 23:35
+
+看了战历之书现在击杀数是13500多，为了做击杀数15000的成就哪张图刷起来比较快，还是就刷深渊？
+
+*****
+
+####  asd235614  
+##### 2595#       发表于 2022-11-24 23:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58598982&amp;ptid=2098044" target="_blank">MadMinute 发表于 2022-11-24 23:35</a>
+
+看了战历之书现在击杀数是13500多，为了做击杀数15000的成就哪张图刷起来比较快，还是就刷深渊？ ...</blockquote>
+刷史莱姆，从第一个水晶开始清2张图一趟30S，清到头直接读回城飞水晶再来一次
+

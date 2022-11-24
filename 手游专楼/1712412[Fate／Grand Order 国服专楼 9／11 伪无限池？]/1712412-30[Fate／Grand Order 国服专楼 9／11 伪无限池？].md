@@ -1401,3 +1401,12 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 只要其它卡池流水不高，落地概率应该很高吧</blockquote>
 高杉的问题是可能没有下一个咕哒咕哒活动让他落地<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  imlyc4  
+##### 43768#       发表于 2022-11-24 23:33
+
+刚才打高难刷新了半天好友，就是刷不到嘲讽杀狐，甚至跑去好友列表一个一个翻看统计，心想这概率真是绝了，明明还是有几个的，最后终于意识到可能也许大概是礼装筛选里点了只显示最大解放<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
