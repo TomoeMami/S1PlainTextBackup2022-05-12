@@ -377,3 +377,17 @@ op在qq音乐里有了<img src="https://static.saraba1st.com/image/smiley/face20
 
 aquila队除了画崩的男主毛都没有，orbital divers灵魂当然是金毛大胸
 
+
+
+*****
+
+####  hacisiki  
+##### 2033#       发表于 2022-11-24 19:21
+
+<blockquote>再买自检星剁手 发表于 2022-11-24 17:44
+这次加戏体现了chicken diver的内容
+
+先遣部队战术机爬满战车级的演出比游戏里的弱智级好一点
+</blockquote>
+那要到火力转移陷入苦战才到，再说pv里出场就没了那太过分了吧hhhh
+
