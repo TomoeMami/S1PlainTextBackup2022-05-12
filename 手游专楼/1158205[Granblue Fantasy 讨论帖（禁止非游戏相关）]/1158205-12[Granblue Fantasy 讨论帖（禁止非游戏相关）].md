@@ -45,3 +45,14 @@
 
 问一哈转世活动的mission打完还有哪个点值得刷？
 
+
+
+*****
+
+####  Mitka  
+##### 17219#       发表于 2022-11-24 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58586504&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2022-11-24 11:28</a>
+问一哈转世活动的mission打完还有哪个点值得刷？</blockquote>
+只要转世素材没毕业的，都可以趁机刷。任务全清后的效率接近转世减半活动了
+

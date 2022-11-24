@@ -11460,3 +11460,14 @@ bgm：双喜
 —— 来自 S1Fun</blockquote>
 当年外语专业的好多美女，我读计算机的别说美女，找个女的都难，别的学校读酒店管理的也是很多美女
 
+
+
+*****
+
+####  天青月白  
+##### 2701#       发表于 2022-11-24 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58580813&amp;ptid=1926094" target="_blank">龙娘777 发表于 2022-11-23 23:37</a>
+心比天高 这种被人捧过有点小姿色都觉得未来会有多金温柔白马王子来迎娶 等挑挑拣拣一回头发现三十多了那 ...</blockquote>
+脑补能力挺强的
+
