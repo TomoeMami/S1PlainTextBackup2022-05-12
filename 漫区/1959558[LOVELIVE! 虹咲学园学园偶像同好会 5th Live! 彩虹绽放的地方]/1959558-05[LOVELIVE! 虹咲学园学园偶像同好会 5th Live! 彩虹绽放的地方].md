@@ -41,3 +41,21 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行
 
+
+
+*****
+
+####  ads147147  
+##### 6773#       发表于 2022-11-24 20:14
+
+ova四舍五入也是剧场版，而且可以一直出，赢。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  dozen  
+##### 6774#       发表于 2022-11-24 20:22
+
+ova剧场上映多少比出剧场版然后动员力被公开处刑体面点<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

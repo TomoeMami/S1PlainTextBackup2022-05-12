@@ -12618,3 +12618,15 @@ steam商店页面的介绍里
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lh2004ily  
+##### 2588#       发表于 2022-11-24 20:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588114&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-11-24 12:48</a>
+
+小徽章都是宝箱获取，带上鼻子过的地图扫一眼</blockquote>
+搜嘎，我以为书里的宝箱都是掉落宝箱呢
+
