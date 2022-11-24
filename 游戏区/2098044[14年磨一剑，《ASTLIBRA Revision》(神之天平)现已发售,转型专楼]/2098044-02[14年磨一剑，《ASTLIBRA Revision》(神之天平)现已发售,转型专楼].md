@@ -12417,3 +12417,25 @@ steam商店页面的介绍里
 
 看大家说的增加装备盘掉落率的饰品是在哪拿呀，新章快到魔王城了还没看到这个东西
 
+
+
+*****
+
+####  nogi  
+##### 2571#       发表于 2022-11-24 10:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58585596&amp;ptid=2098044" target="_blank">ぽんぽこ仮面 发表于 2022-11-24 10:48</a>
+
+看大家说的增加装备盘掉落率的饰品是在哪拿呀，新章快到魔王城了还没看到这个东西 ...</blockquote>
+打竞技场给的
+
+*****
+
+####  janet_ddr  
+##### 2572#       发表于 2022-11-24 11:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58584579&amp;ptid=2098044" target="_blank">lh2004ily 发表于 2022-11-24 09:52</a>
+
+艾泽里斯的这两个小徽章在哪啊，我当初为了刷龟壳已经刷出过一大堆金银宝箱了，怎么还少俩小徽章 ...</blockquote>
+把隐藏宝箱的被动能力带上，然后多注意海底地面，有一个需要走动到一定位置才能看到地面上有一个绿色箭头。
+
