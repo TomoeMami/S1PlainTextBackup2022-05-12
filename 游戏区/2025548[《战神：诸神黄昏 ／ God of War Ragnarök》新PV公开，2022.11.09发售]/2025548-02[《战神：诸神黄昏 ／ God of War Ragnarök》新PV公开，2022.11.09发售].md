@@ -2672,3 +2672,15 @@ Congratulations to @SonySantaMonica for making God of War Ragnar&amp;#xF6;k the 
 可以刷坩埚，每把都给20多个</blockquote>
 没有吧，我的最终挑战都是通关做的。打完了兽骨数也没变，坩埚怪物似乎不会掉落材料？
 
+
+
+*****
+
+####  focus  
+##### 1748#       发表于 2022-11-24 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58586962&amp;ptid=2025548" target="_blank">⁣梦醒⁡ 发表于 2022-11-24 11:47</a>
+
+没有吧，我的最终挑战都是通关做的。打完了兽骨数也没变，坩埚怪物似乎不会掉落材料？ ...</blockquote>
+打boss连战那个挑战，有几率掉
+
