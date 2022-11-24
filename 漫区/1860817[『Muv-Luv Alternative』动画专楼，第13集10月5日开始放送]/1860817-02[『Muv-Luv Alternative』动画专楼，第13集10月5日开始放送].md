@@ -516,3 +516,16 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 
 这集确实不错，而且抹布这边好在至少没有河豚发颠<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2046#       发表于 2022-11-25 04:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57703324&amp;ptid=1860817" target="_blank">humphrey 发表于 2022-9-30 00:23</a>
+话说回来武爷穿越回来那首翼挺好的，不知道能不能情怀一把…</blockquote>
+确实情怀了一把，代价是后半段作画全崩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
