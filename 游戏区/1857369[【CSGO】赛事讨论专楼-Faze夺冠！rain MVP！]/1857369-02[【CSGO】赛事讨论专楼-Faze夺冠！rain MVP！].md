@@ -32,3 +32,12 @@ g2和g2出来的指挥都输了<img src="https://static.saraba1st.com/image/smil
 
 g2的比赛还用看，醒来就是败者组<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dev2ce  
+##### 2915#       发表于 2022-11-24 10:25
+
+🐔狂爆杀有什么办法，网红队还指望集训吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尼选择打兄弟CS，结果早就可以预料了
+

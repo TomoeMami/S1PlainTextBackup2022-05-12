@@ -329,3 +329,14 @@ BETAとの全面対決を描いた新ビジュアルを解禁！
 op在qq音乐里有了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 讲道理这歌不错的，在white forces后muv文件夹里喜➕1
 
+
+
+*****
+
+####  hacisiki  
+##### 2029#       发表于 2022-11-24 10:23
+
+<blockquote>jerryoq1 发表于 2022-11-24 02:05
+当然是给管人加戏啦</blockquote>
+加戏好啊，赶紧把大人的理由结束掉安安心心做横滨和樱花
+
