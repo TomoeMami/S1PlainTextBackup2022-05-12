@@ -2693,3 +2693,13 @@ Congratulations to @SonySantaMonica for making God of War Ragnar&amp;#xF6;k the 
 
 佛雷的主要剧情估计原本也在第三部的 他几个手下都代表流浪者 光暗精灵 矮人几个实力 估计原本有跟几个手下去说服同胞的剧情  沙漠铺垫了很多的光暗精灵史书最后也没用上
 
+
+
+*****
+
+####  一个过路的  
+##### 1750#       发表于 2022-11-24 16:06
+
+NGA有人发了个帖子，说战斗系统和装备搭配，很不错
+[https://nga.178.com/read.php?tid=34388206](https://nga.178.com/read.php?tid=34388206)
+

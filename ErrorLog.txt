@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/外野/2087576-01[麦当劳羊毛新口味脆汁鸡（需要卡点抢）].md'
-!!error:id=2087576
