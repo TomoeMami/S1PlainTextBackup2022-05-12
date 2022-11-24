@@ -5326,3 +5326,14 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 赶紧分组吧，最好把apb势的都丢一个组里去大推特推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 9420#       发表于 2022-11-24 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58589761&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-11-24 14:26</a>
+三期不可能比二期弱了啊，光是结那就在那边杵着我寻思除非来两个拖后腿的，按现在二期的状态捆一起被结那 ...</blockquote>
+听了星期二的裂垃圾感觉结那也是老油条，嘴上说着很紧张实际听下来并没有那样的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
