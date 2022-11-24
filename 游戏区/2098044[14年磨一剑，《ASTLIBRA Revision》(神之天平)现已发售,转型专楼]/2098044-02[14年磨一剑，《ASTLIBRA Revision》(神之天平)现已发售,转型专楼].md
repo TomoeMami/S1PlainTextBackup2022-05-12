@@ -12719,3 +12719,46 @@ CE改
 看了战历之书现在击杀数是13500多，为了做击杀数15000的成就哪张图刷起来比较快，还是就刷深渊？ ...</blockquote>
 刷史莱姆，从第一个水晶开始清2张图一趟30S，清到头直接读回城飞水晶再来一次
 
+
+
+*****
+
+####  MadMinute  
+##### 2596#       发表于 2022-11-24 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58599026&amp;ptid=2098044" target="_blank">asd235614 发表于 2022-11-24 23:38</a>
+刷史莱姆，从第一个水晶开始清2张图一趟30S，清到头直接读回城飞水晶再来一次 ...</blockquote>
+您是指从边境那张图的第一个水晶开始吗？
+
+*****
+
+####  猫狗猫  
+##### 2597#       发表于 2022-11-24 23:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58599094&amp;ptid=2098044" target="_blank">MadMinute 发表于 2022-11-24 23:43</a>
+
+您是指从边境那张图的第一个水晶开始吗？</blockquote>
+天平村传送点一路往左杀过去，杀到湖边传送点再杀回去，无限反复，非常快。
+
+*****
+
+####  asd235614  
+##### 2598#       发表于 2022-11-24 23:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58599094&amp;ptid=2098044" target="_blank">MadMinute 发表于 2022-11-24 23:43</a>
+
+您是指从边境那张图的第一个水晶开始吗？</blockquote>
+对，不算那两陷阱花一次两张图清完应该是70左右，史莱姆会分裂，而且脆，非常好刷
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| MadMinute| + 1|好的，感谢|
+
+查看全部评分
+
