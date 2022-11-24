@@ -7267,3 +7267,14 @@ Q•E•D
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菌皇现在这状态估计直接入土了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3665#       发表于 2022-11-24 18:38
+
+看来主线的全部都要UP一遍，是要完结了啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
