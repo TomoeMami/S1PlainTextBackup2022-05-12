@@ -12462,3 +12462,27 @@ steam商店页面的介绍里
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  sliver1997  
+##### 2575#       发表于 2022-11-24 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58587886&amp;ptid=2098044" target="_blank">魔法少女大头 发表于 2022-11-24 12:35</a>
+
+新章在东京，阿努莉丝门口怎么进不去，门是红的。也没啥机关要开的吧。
+
+—— 来自 HUAWEI HMA-AL00, Andro ...</blockquote>
+背包打开，使用门卡
+
+*****
+
+####  gwchobit  
+##### 2576#       发表于 2022-11-24 12:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58584579&amp;ptid=2098044" target="_blank">lh2004ily 发表于 2022-11-24 09:52</a>
+
+艾泽里斯的这两个小徽章在哪啊，我当初为了刷龟壳已经刷出过一大堆金银宝箱了，怎么还少俩小徽章 ...</blockquote>
+小徽章都是宝箱获取，带上鼻子过的地图扫一眼
+
