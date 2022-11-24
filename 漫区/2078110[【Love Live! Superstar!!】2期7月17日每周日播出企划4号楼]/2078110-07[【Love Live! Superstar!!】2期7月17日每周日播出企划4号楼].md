@@ -5165,3 +5165,39 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 这访谈是不是又圆了一堆话
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9406#       发表于 2022-11-24 12:52
+
+ 本帖最后由 稀勢のささ 于 2022-11-24 12:56 编辑 
+<blockquote>──一般公募オーディション开催を知って安心したというのはどういう気持ちからですか？
+
+伊达自分がオーディションを受けている时は大丈夫かなと不安に思っていましたが、また一般公募オーディションを开催するということは、自分たちのやってきたことが间违ってはなかったのかなと思えるからだと思います。</blockquote>
+这段是几个意思？难不成能是当初说好营收不够就没有三期现在有说明在预期内所以安心了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 可能只是樱花妹特有的不安です吧 不明白
+
+*****
+
+####  aoaoaodedede  
+##### 9407#       发表于 2022-11-24 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588206&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-11-24 12:52</a>
+
+这段是几个意思？难不成能是当初说好营收不够就没有三期现在有说明在预期内所以安心了？ 可能只是 ...</blockquote>
+日语不好没看懂这一段的意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+坛友能否简单说说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  saya1892  
+##### 9408#       发表于 2022-11-24 13:02
+
+<blockquote>あとは、結構舐められちゃわないかなと心配で（笑）。きな子ちゃんだけ舐められることになったら可哀想だから、もうちょっと頑張らせてあげたい（笑）。</blockquote>
+
+以后就揪着实力差当卖点不放啦<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+3期实力比2期强2期丢脸，3期比2期菜，那……
+

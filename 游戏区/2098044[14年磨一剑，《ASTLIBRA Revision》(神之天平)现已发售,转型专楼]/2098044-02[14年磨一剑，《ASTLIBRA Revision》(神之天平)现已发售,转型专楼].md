@@ -12486,3 +12486,27 @@ steam商店页面的介绍里
 艾泽里斯的这两个小徽章在哪啊，我当初为了刷龟壳已经刷出过一大堆金银宝箱了，怎么还少俩小徽章 ...</blockquote>
 小徽章都是宝箱获取，带上鼻子过的地图扫一眼
 
+
+
+*****
+
+####  魔法少女大头  
+##### 2577#       发表于 2022-11-24 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588069&amp;ptid=2098044" target="_blank">sliver1997 发表于 2022-11-24 12:46</a>
+背包打开，使用门卡</blockquote>
+草……
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  魔法少女大头  
+##### 2578#       发表于 2022-11-24 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588069&amp;ptid=2098044" target="_blank">sliver1997 发表于 2022-11-24 12:46</a>
+背包打开，使用门卡</blockquote>
+草……谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
