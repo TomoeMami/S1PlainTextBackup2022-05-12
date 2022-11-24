@@ -86,3 +86,31 @@ ova剧场上映多少比出剧场版然后动员力被公开处刑体面点<img 
 
 有点战队V Cine后日谈剧场版的感觉，归来的哎呦姆。
 
+
+
+*****
+
+####  Skyline_R  
+##### 6778#       发表于 2022-11-24 20:46
+
+那明年日升是要水虹星三开了吗，说不定还有新团的PV<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kria  
+##### 6779#       发表于 2022-11-24 20:50
+
+<blockquote>Skyline_R 发表于 2022-11-24 20:46
+那明年日升是要水虹星三开了吗，说不定还有新团的PV</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202211/24/205035pvlivv0slnvi5vv0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FflcHBVaAAEDL7e.jpeg</strong> (112.57 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-24 20:50 上传
+
+ 吐血
+
