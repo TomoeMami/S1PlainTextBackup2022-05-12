@@ -6377,3 +6377,18 @@ Job 竟然请布丁做，布丁还真的照做了<img src="https://static.saraba
 
 2022-11-24 17:54 上传
 
+
+
+*****
+
+####  千恋万花  
+##### 491#       发表于 2022-11-24 23:57
+
+当时看第 8 集的时候就好奇 19:11 处窨井盖中间是什么字，看到有人发了实拍照片，就去查了下。
+
+顺道还发现原来「向日葵」是旧三条市市花。
+<img src="https://p.sda1.dev/8/7dfa1b5a004cde25ffbc39aa952cd558/2022-11-24-2352_47.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/f5c2ea69a4fba52b3b565ed753735a9e/kaji_girl-1595778215985156097-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/03e4214c2ca490c36e6eb9713480d4b9/2022-11-24-2354_59.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/1ec9dd858ad321cf40650cc399faa45e/2022-11-24-2356_49.png" referrerpolicy="no-referrer">
+
