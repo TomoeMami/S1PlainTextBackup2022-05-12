@@ -5201,3 +5201,16 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 3期实力比2期强2期丢脸，3期比2期菜，那……
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9409#       发表于 2022-11-24 13:09
+
+ 本帖最后由 稀勢のささ 于 2022-11-24 13:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588356&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-11-24 13:00</a>
+
+日语不好没看懂这一段的意&amp;# ...</blockquote>
+前文打铁说知道开新海选了就安心了，然后人问她这安心从何来啊，回答是自己参加的时候想着大丈夫かな，很不安，知道开三期海选之后，觉得大家至今为止做的事没做错就安心了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也不明白这为啥不安为啥又放心了，大概是  能开新海选→大人们觉得上次选的不错→我不会被开 所以安心了吧
+
