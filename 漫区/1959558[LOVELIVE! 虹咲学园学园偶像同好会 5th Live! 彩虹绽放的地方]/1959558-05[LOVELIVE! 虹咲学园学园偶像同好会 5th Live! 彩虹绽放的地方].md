@@ -217,3 +217,30 @@ CGディレクター　辰口智樹
 詳細は後日お知らせいたしますので、お見逃しなく
 <img src="https://p.sda1.dev/8/c389c4c798507bb00ee19f6a0ff197b5/20221124_205749.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6783#       发表于 2022-11-24 22:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">侑居然唱歌了 解釈违い  对面这么在意这个的吗
+
+*****
+
+####  Skyline_R  
+##### 6784#       发表于 2022-11-24 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58596019&amp;ptid=1959558" target="_blank">kria 发表于 2022-11-24 20:50</a>
+
+吐血</blockquote>
+简写版权名称的好处体现出来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/24/221030sne9xbn1l4n2nffb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-24 22:10 上传
+
