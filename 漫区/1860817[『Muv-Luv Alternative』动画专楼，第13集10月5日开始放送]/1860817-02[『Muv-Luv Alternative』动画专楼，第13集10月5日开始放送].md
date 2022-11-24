@@ -340,3 +340,16 @@ op在qq音乐里有了<img src="https://static.saraba1st.com/image/smiley/face20
 当然是给管人加戏啦</blockquote>
 加戏好啊，赶紧把大人的理由结束掉安安心心做横滨和樱花
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2030#       发表于 2022-11-24 17:44
+
+这次加戏体现了chicken diver的内容
+
+先遣部队战术机爬满战车级的演出比游戏里的弱智级好一点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+动画是不是砍掉了威士忌部队被围攻，斯卫军救场的桥段<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
