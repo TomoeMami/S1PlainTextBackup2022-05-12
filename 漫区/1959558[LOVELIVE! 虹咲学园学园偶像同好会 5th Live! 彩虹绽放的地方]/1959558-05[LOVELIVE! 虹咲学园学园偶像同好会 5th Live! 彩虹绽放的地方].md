@@ -261,3 +261,17 @@ CGディレクター　辰口智樹
 
 2022-11-25 03:40 上传
 
+
+
+*****
+
+####  damian-wade  
+##### 6786#       发表于 2022-11-25 06:47
+
+ 本帖最后由 damian-wade 于 2022-11-25 06:50 编辑 
+
+这ova来得好突然……为啥不在5th公布让大伙乐一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+回头再看看日期，估计是顾及灯避免她尴尬吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
