@@ -12439,3 +12439,15 @@ steam商店页面的介绍里
 艾泽里斯的这两个小徽章在哪啊，我当初为了刷龟壳已经刷出过一大堆金银宝箱了，怎么还少俩小徽章 ...</blockquote>
 把隐藏宝箱的被动能力带上，然后多注意海底地面，有一个需要走动到一定位置才能看到地面上有一个绿色箭头。
 
+
+
+*****
+
+####  ぽんぽこ仮面  
+##### 2573#       发表于 2022-11-24 11:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58585695&amp;ptid=2098044" target="_blank">nogi 发表于 2022-11-24 10:53</a>
+
+打竞技场给的</blockquote>
+感谢，是打会长给吗，打到会长打不过去了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -2661,3 +2661,14 @@ Congratulations to @SonySantaMonica for making God of War Ragnar&amp;#xF6;k the 
 全地图100%就剩这个解谜，怀疑是卡BUG了</blockquote>
 这里不就是下电梯后，把电梯放下去踩电梯顶上去拿宝箱么？ 还有别的东西藏着？
 
+
+
+*****
+
+####  ⁣梦醒⁡  
+##### 1747#       发表于 2022-11-24 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58582603&amp;ptid=2025548" target="_blank">kuker53 发表于 2022-11-24 02:12</a>
+可以刷坩埚，每把都给20多个</blockquote>
+没有吧，我的最终挑战都是通关做的。打完了兽骨数也没变，坩埚怪物似乎不会掉落材料？
+
