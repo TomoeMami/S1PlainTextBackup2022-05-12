@@ -12605,3 +12605,16 @@ steam商店页面的介绍里
 
 这明明是个arpg，中后期boss全整的和stg里出来似的全是弹幕攻击就很离谱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  redsouris  
+##### 2587#       发表于 2022-11-24 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58593391&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-24 17:59</a>
+这明明是个arpg，中后期boss全整的和stg里出来似的全是弹幕攻击就很离谱 ...</blockquote>
+你看看有多少射击游戏的梗就知道作者的XP了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

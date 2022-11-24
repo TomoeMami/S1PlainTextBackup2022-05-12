@@ -368,3 +368,12 @@ op在qq音乐里有了<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 OnePlus LE2110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  乙山法純  
+##### 2032#       发表于 2022-11-24 19:09
+
+aquila队除了画崩的男主毛都没有，orbital divers灵魂当然是金毛大胸
+
