@@ -5310,3 +5310,19 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 动画里更别说了，nv唯一指定垫脚石的含金量，1拖8大战维也纳落榜生，vn会看得起大香以外的人么。
 
+
+
+*****
+
+####  player3960  
+##### 9419#       发表于 2022-11-24 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58589299&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-11-24 13:54</a>
+
+我倒是觉得是不是金蛋也没&amp;#x ...</blockquote>
+我也没说它apb不赚啊，但是你说它不想再来个打铁这样的我是不信的。
+
+还是
+
+赶紧分组吧，最好把apb势的都丢一个组里去大推特推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
