@@ -500,3 +500,19 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 
 爽啊 这战争画面是最带感的了
 
+
+
+*****
+
+####  hlazd  
+##### 2044#       发表于 2022-11-25 01:35
+
+战场描写太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kamarus  
+##### 2045#       发表于 2022-11-25 01:38
+
+这集确实不错，而且抹布这边好在至少没有河豚发颠<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
