@@ -5251,3 +5251,25 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9414#       发表于 2022-11-24 13:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588518&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-11-24 13:09</a>
+
+前文打铁说知道开新海选了就安心了，然后人问她这安心从何来啊，回答是自己参加的时候想着大丈夫かな，很 ...</blockquote>
+这么理解挺有道理的，不过说起来也只能算是sayu的个人心理，运营一开始对三期生是何安排还是没法从这里准确推测的
+
+*****
+
+####  稀勢のささ  
+##### 9415#       发表于 2022-11-24 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58589145&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-11-24 13:46</a>
+
+这么理解挺有道理的，不过&amp;# ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我就随便一说，企划爱咋咋了
+
