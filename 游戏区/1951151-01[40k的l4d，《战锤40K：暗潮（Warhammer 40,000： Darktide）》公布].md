@@ -954,3 +954,12 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 什么鬼 今天更新之后疯狂闪退
 
+
+
+*****
+
+####  squallx  
+##### 93#       发表于 2022-11-25 01:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥每次进游戏后画面设置都给我重置了
+
