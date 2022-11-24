@@ -12365,3 +12365,29 @@ steam商店页面的介绍里
 成就少一个 白在多一个boss形态 ...</blockquote>
 不少成就，新章打的那个也算
 
+
+
+*****
+
+####  永远的访客  
+##### 2567#       发表于 2022-11-24 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58582895&amp;ptid=2098044" target="_blank">M1NG 发表于 2022-11-24 03:51</a>
+
+草..我也中了第五章的陷阱，难得有一次没看攻略自己打，结果选错一个就把白害死了，这谁能想到啊 还 ...</blockquote>
+没事，死了后的剧情路线也补充了一些世界观说明，而且打到后面会发现这都不是个事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  永远的访客  
+##### 2568#       发表于 2022-11-24 09:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58569705&amp;ptid=2098044" target="_blank">夜来 发表于 2022-11-23 12:39</a>
+
+感觉你这进度可以打的啊，60多级都够进新章了。
+
+带上空冲，爆发，能量吸收。
+
+血量，攻击，魔力加到当前等 ...</blockquote>
+昨晚62级打过去了，主要还是石化堆100，不要自动举盾把盾槽留给后面3连，别贪刀把一些技能留在对方弹幕齐的时候放顺便吸血。顺路去打了王城的大脑和elysium的女神和8章老婆3连，感谢各位大佬提示帮助。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
