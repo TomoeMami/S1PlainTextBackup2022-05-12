@@ -1365,3 +1365,15 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 有专门做这个统计的
 
+
+
+*****
+
+####  UNISONIA  
+##### 43765#       发表于 2022-11-24 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58522847&amp;ptid=1712412" target="_blank">DET 发表于 2022-11-20 17:22</a>
+
+高杉明年日服唠唠叨叨会落地吗，这么帅的立绘不实装可惜了</blockquote>
+大概率到关服都不会落地了
+

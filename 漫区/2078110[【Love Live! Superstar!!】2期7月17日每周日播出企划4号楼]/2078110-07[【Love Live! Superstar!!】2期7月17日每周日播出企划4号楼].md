@@ -5337,3 +5337,25 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 三期不可能比二期弱了啊，光是结那就在那边杵着我寻思除非来两个拖后腿的，按现在二期的状态捆一起被结那 ...</blockquote>
 听了星期二的裂垃圾感觉结那也是老油条，嘴上说着很紧张实际听下来并没有那样的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9421#       发表于 2022-11-24 15:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58590764&amp;ptid=2078110" target="_blank">starring 发表于 2022-11-24 15:26</a>
+
+听了星期二的裂垃圾感觉结那也是老油条，嘴上说着很紧张实际听下来并没有那样的感觉而且她的舞台 ...</blockquote>
+是，感觉她就和青山是一个状态，嘴上说不行不行，其实挺自信的。
+
+*****
+
+####  qty  
+##### 9422#       发表于 2022-11-24 15:37
+
+ 本帖最后由 qty 于 2022-11-24 15:41 编辑 
+<blockquote>ads147147 发表于 2022-11-24 14:26
+三期不可能比二期弱了啊，光是结那就在那边杵着我寻思除非来两个拖后腿的，按现在二期的状态捆一起被结那 ...</blockquote>
+结那好像是玩过乐队的，唱歌正常猜测的话应该起码有大熊水平，要是能有青山水平的话那结那就是绝对的全团TOP，别说二期生，一期生也没一个能打的。
+
