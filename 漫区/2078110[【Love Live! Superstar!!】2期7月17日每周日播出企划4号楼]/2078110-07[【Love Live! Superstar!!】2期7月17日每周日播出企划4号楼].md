@@ -5098,3 +5098,19 @@ FNS定了
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  player3960  
+##### 9399#       发表于 2022-11-24 10:04
+
+要不和菜宝回大阪去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9400#       发表于 2022-11-24 10:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">呆在东京的话是只能青山家了呢
+

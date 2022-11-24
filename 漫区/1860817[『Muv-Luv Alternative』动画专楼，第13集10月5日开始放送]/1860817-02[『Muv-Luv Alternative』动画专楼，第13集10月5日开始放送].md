@@ -319,3 +319,13 @@ BETAとの全面対決を描いた新ビジュアルを解禁！
 
 另外到处都有和原作一比就落了下乘的描写……
 
+
+
+*****
+
+####  kamarus  
+##### 2028#       发表于 2022-11-24 10:05
+
+op在qq音乐里有了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+讲道理这歌不错的，在white forces后muv文件夹里喜➕1
+

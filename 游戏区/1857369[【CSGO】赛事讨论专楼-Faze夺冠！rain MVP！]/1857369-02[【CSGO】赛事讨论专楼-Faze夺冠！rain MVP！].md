@@ -14,3 +14,12 @@
 
 G2到底在干什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">打的什么玩意儿
 
+
+
+*****
+
+####  iam_hcl  
+##### 2913#       发表于 2022-11-24 10:06
+
+g2和g2出来的指挥都输了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
