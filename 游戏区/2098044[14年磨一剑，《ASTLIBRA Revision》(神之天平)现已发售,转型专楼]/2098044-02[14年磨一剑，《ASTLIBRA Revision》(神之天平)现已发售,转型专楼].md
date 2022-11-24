@@ -12630,3 +12630,16 @@ steam商店页面的介绍里
 小徽章都是宝箱获取，带上鼻子过的地图扫一眼</blockquote>
 搜嘎，我以为书里的宝箱都是掉落宝箱呢
 
+
+
+*****
+
+####  Quelaan  
+##### 2589#       发表于 2022-11-24 20:24
+
+ 本帖最后由 Quelaan 于 2022-11-24 20:26 编辑 
+
+第六章了才发现那些食物是可以换水晶的，还有必要用掉吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+还有个问题，一直缺金币怎么办？打怪全程开着掠夺的
+
