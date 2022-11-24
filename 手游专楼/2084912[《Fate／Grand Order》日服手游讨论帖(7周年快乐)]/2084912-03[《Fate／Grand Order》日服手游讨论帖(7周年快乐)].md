@@ -7278,3 +7278,12 @@ Q•E•D
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  areklose  
+##### 3666#       发表于 2022-11-24 19:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这妇科得频率就像是要关服跑路一样
+
