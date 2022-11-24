@@ -2714,3 +2714,12 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  jockeyjoestar  
+##### 1752#       发表于 2022-11-24 21:07
+
+亚尔法海姆 峡谷铁匠身后看着有路  却怎么也找不到  地图也100%了 是被砍了内容吗
+

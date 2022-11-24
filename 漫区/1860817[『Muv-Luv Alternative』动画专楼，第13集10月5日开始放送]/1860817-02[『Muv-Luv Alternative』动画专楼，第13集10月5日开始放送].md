@@ -434,3 +434,15 @@ aquila队除了画崩的男主毛都没有，orbital divers灵魂当然是金毛
 
 结果发现这集连个正儿八经的扳机特写都没有）
 
+
+
+*****
+
+####  hacisiki  
+##### 2038#       发表于 2022-11-24 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58595070&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2022-11-24 19:49</a>
+
+不过吐槽一下帝国部队都是击震太惨了吧，好歹来几台不知火或者阳炎啊，难不成真的全都用在内战时候了，结合 ...</blockquote>
+就是怕，所以第一时间没来，发现目标是横滨后也一直在外围进行削减作战。在BETA撤退后一直在进行追击，你肯定没仔细看战后debrifing。
+

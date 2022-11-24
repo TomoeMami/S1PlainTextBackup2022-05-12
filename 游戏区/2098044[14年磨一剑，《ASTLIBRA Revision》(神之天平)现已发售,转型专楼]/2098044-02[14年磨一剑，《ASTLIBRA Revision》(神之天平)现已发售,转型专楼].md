@@ -12643,3 +12643,17 @@ steam商店页面的介绍里
 
 还有个问题，一直缺金币怎么办？打怪全程开着掠夺的
 
+
+
+*****
+
+####  真实之影  
+##### 2590#       发表于 2022-11-24 21:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58595590&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-24 20:24</a>
+
+第六章了才发现那些食物是可以换水晶的，还有必要用掉吗
+
+还有个问题，一直缺金币怎么办？打怪全程开 ...</blockquote>
+矿石里有可以卖掉换钱的
+
