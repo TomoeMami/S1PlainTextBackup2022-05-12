@@ -12685,3 +12685,18 @@ steam商店页面的介绍里
 还有个问题，一直缺金币怎么办？打怪全程开 ...</blockquote>
 CE改
 
+
+
+*****
+
+####  Rainwedell  
+##### 2593#       发表于 2022-11-24 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58595590&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-24 20:24</a>
+第六章了才发现那些食物是可以换水晶的，还有必要用掉吗
+
+还有个问题，一直缺金币怎么办？打怪全程开 ...</blockquote>
+缺钱就算挖矿也会持续到新章，在第6章后的话一个比较好的刷法是刷乐园卫兵掉落的盾，那个很值钱。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
