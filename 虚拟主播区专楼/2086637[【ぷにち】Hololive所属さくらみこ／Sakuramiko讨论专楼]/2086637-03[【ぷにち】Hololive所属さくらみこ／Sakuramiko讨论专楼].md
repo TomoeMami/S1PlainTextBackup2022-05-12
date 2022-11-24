@@ -1730,3 +1730,26 @@ ns这狗牙截图毫不意外
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">好，她不熬夜，解放35p了
 
+
+
+*****
+
+####  rs5621  
+##### 3170#       发表于 2022-11-24 17:18
+
+<blockquote>ポケモンセンターで
+
+たくさん买っちゃった…( ╹ᗜ╹)
+
+ホゲーチ祈愿</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/24/171734p3988fp30zo47e66.png" referrerpolicy="no-referrer">
+
+<strong>%	MSZP84RM@5)M27$K$TM.PNG</strong> (536.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-24 17:17 上传
+
+中毒蛮深的
+
