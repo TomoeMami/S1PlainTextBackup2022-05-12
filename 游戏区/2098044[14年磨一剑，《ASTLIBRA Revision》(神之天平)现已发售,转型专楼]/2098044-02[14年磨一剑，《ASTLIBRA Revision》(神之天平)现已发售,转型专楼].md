@@ -12510,3 +12510,34 @@ steam商店页面的介绍里
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kyyytu  
+##### 2579#       发表于 2022-11-24 13:14
+
+问下如果第一次到时间尽头不与女神签契约，并打败精英驾驶员，剧情会怎样
+
+*****
+
+####  夜来  
+##### 2580#       发表于 2022-11-24 13:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588612&amp;ptid=2098044" target="_blank">kyyytu 发表于 2022-11-24 13:14</a>
+问下如果第一次到时间尽头不与女神签契约，并打败精英驾驶员，剧情会怎样 ...</blockquote>
+我记得第一次黑机甲无敌的
+
+
+
+*****
+
+####  ParadiseMartyr  
+##### 2581#       发表于 2022-11-24 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588612&amp;ptid=2098044" target="_blank">kyyytu 发表于 2022-11-24 13:14</a>
+问下如果第一次到时间尽头不与女神签契约，并打败精英驾驶员，剧情会怎样 ...</blockquote>
+第一次不签直接青蛙大佐带着人来就把你剧情灭了，完全不能打。签的剧情是赶过来你就时间穿越跑了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

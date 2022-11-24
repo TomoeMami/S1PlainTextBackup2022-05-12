@@ -5214,3 +5214,29 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 日语不好没看懂这一段的意&amp;# ...</blockquote>
 前文打铁说知道开新海选了就安心了，然后人问她这安心从何来啊，回答是自己参加的时候想着大丈夫かな，很不安，知道开三期海选之后，觉得大家至今为止做的事没做错就安心了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也不明白这为啥不安为啥又放心了，大概是  能开新海选→大人们觉得上次选的不错→我不会被开 所以安心了吧
 
+
+
+*****
+
+####  player3960  
+##### 9410#       发表于 2022-11-24 13:17
+
+反正现在的liella啊，给我感觉就是个给阿波罗下蛋的老母鸡，至于是不是每次都下金蛋，难说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 9411#       发表于 2022-11-24 13:19
+
+担心きなこ被后辈看不起那段也是扯，你个暴言二号机好意思说这个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 9412#       发表于 2022-11-24 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58588693&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-11-24 13:19:22</a>
+担心きなこ被后辈看不起那段也是扯，你个暴言二号机好意思说这个</blockquote>就不能是在委婉表达对剧本有很大意见吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -91,3 +91,14 @@ oxp出2代了，可拆卸手柄，希望不要像上次那个那样蛋疼
 
 今天怎么一直风怒<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  紫煜  
+##### 515#       发表于 2022-11-24 13:18
+
+奥克前端新功能锁帧＋自动调节功耗挺好用的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
