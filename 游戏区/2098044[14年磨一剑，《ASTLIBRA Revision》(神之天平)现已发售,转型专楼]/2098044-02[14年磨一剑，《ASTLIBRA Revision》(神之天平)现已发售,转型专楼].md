@@ -12584,3 +12584,24 @@ steam商店页面的介绍里
 鸡日屁股玩的少，这剧情难道在这个品类里已经算好的了吗 ...</blockquote>
 吹是因为现在活着的jrpg剧情大部分比这个一般的还拉的多，又或者高开低走，这个突出个稳，纯属矮子里拔高个
 
+
+
+*****
+
+####  永远的访客  
+##### 2585#       发表于 2022-11-24 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58592532&amp;ptid=2098044" target="_blank">慕容断月 发表于 2022-11-24 17:08</a>
+
+吹是因为现在活着的jrpg剧情大部分比这个一般的还拉的多，又或者高开低走，这个突出个稳，纯属矮子里拔高 ...</blockquote>
+这剧情把很多要素捏在一起，有悬疑有煽情有世界观大饼还有现实主题，里面每一个东西都不是新的，但是能合在一起的少之又少，配上音乐，就是用很搓的技术（原料）做出了很精彩的演出效果
+
+另外，一本正经描述时间过了几个月，过了几年...的剧情，可以很好地看得出来作者对故事是认真在写而不是简单的流水账<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  妄想中毒  
+##### 2586#       发表于 2022-11-24 17:59
+
+这明明是个arpg，中后期boss全整的和stg里出来似的全是弹幕攻击就很离谱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
