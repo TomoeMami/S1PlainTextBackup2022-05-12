@@ -34,3 +34,17 @@
 
 问一下现在想买steam deck但不想在闲鱼或者淘宝上面买的话转运那些应该怎么操作？
 
+
+
+*****
+
+####  洪水熊猫大势去  
+##### 1936#       发表于 2022-11-24 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58591902&amp;ptid=2015700" target="_blank">晴岚 发表于 2022-11-24 16:29</a>
+
+问一下现在想买steam deck但不想在闲鱼或者淘宝上面买的话转运那些应该怎么操作？ ...</blockquote>
+最近不用看了 产能跟不上又变成预定模式了
+
+不急等明年过完年以后再看吧
+

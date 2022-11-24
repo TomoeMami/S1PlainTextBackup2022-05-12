@@ -2703,3 +2703,14 @@ Congratulations to @SonySantaMonica for making God of War Ragnar&amp;#xF6;k the 
 NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 [https://nga.178.com/read.php?tid=34388206](https://nga.178.com/read.php?tid=34388206)
 
+
+
+*****
+
+####  crosz1985  
+##### 1751#       发表于 2022-11-24 19:43
+
+大坑这图单独做个dlc都可以了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
