@@ -353,3 +353,18 @@ op在qq音乐里有了<img src="https://static.saraba1st.com/image/smiley/face20
 
 动画是不是砍掉了威士忌部队被围攻，斯卫军救场的桥段<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  freyja_wion  
+##### 2031#       发表于 2022-11-24 18:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58593154&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-11-24 17:44</a>
+这次加戏体现了chicken diver的内容
+
+先遣部队战术机爬满战车级的演出比游戏里的弱智级好一点</blockquote>
+没到那呢，下集才有
+
+—— 来自 OnePlus LE2110, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
