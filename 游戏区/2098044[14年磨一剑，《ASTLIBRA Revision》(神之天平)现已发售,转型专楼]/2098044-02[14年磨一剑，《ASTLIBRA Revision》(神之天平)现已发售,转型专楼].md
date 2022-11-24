@@ -12391,3 +12391,20 @@ steam商店页面的介绍里
 血量，攻击，魔力加到当前等 ...</blockquote>
 昨晚62级打过去了，主要还是石化堆100，不要自动举盾把盾槽留给后面3连，别贪刀把一些技能留在对方弹幕齐的时候放顺便吸血。顺路去打了王城的大脑和elysium的女神和8章老婆3连，感谢各位大佬提示帮助。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lh2004ily  
+##### 2569#       发表于 2022-11-24 09:52
+
+<img src="https://img.saraba1st.com/forum/202211/24/095126nhxm5bppbqlxwb5w.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221124095059.png</strong> (20.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-24 09:51 上传
+
+艾泽里斯的这两个小徽章在哪啊，我当初为了刷龟壳已经刷出过一大堆金银宝箱了，怎么还少俩小徽章
+
