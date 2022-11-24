@@ -1354,3 +1354,13 @@ syl，看到an们前脚说要联合cn玩家/**enkr后脚就有b工商/enkr公告
 
 总的来说就是变姨了
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17753#       发表于 2022-11-24 08:53
+
+https://twitter.com/Selen_Tatsuki/status/1586989689827135488?t=qdBOnu3GUdR9CmZ2BAWkIg&amp;s=19
+Selen这意思是想做个彩虹原创曲的翻唱播放台？
+
