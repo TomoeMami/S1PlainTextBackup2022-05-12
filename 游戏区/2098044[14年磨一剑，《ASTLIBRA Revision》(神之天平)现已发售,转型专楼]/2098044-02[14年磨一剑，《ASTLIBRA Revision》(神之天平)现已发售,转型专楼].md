@@ -12541,3 +12541,15 @@ steam商店页面的介绍里
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  nogi  
+##### 2582#       发表于 2022-11-24 13:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58587046&amp;ptid=2098044" target="_blank">ぽんぽこ仮面 发表于 2022-11-24 11:52</a>
+
+感谢，是打会长给吗，打到会长打不过去了</blockquote>
+是的，会长是竞技场最后的关卡
+

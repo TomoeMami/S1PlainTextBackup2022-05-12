@@ -5240,3 +5240,14 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ruffian  
+##### 9413#       发表于 2022-11-24 13:27
+
+要我说这种访谈但凡有点b数就少问关于剧情的问题，每个中之人都是几乎把角色当自己孩子珍惜的，糟蹋角色的战犯能不能滚出星3啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
