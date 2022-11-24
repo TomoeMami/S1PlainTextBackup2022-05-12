@@ -11431,3 +11431,18 @@ bgm：双喜
 
 唯一公开过恋情的好像是saku，提了一句国内读书时的小男友。
 
+
+
+*****
+
+####  Neozero  
+##### 2699#       发表于 2022-11-24 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58570331&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-11-23 13:08</a>
+小纸和叶子有话要说……
+
+你们滤镜也太厚了吧，这不就是大学毕业生的平均颜值吗？胜在够年轻 ...</blockquote>
+我上了个假大学吗<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
