@@ -77,3 +77,12 @@ ova剧场上映多少比出剧场版然后动员力被公开处刑体面点<img 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能像黄段子学生会那样出OVA吗，偶内该
 
+
+
+*****
+
+####  kos_mos  
+##### 6777#       发表于 2022-11-24 20:35
+
+有点战队V Cine后日谈剧场版的感觉，归来的哎呦姆。
+
