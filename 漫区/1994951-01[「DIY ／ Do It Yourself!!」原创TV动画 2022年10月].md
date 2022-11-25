@@ -6505,3 +6505,13 @@ self你青梅竹马要黄毛被偷了<img src="https://static.saraba1st.com/imag
 
 阿B操刀的话  一般都是消音抽帧 上点心的还会改画面
 
+
+
+*****
+
+####  千恋万花  
+##### 500#       发表于 2022-11-25 19:41
+
+アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第8話放送後インタビュー：くれい役 佐倉綾音さん&amp;#xD7;たくみ役 和氣あず未さん｜個性的なDIY部は声も個性的！
+[https://www.animatetimes.com/news/details.php?id=1669371276](https://www.animatetimes.com/news/details.php?id=1669371276)
+

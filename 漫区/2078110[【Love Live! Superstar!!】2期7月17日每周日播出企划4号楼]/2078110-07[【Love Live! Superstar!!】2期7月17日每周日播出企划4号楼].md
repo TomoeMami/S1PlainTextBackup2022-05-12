@@ -5663,3 +5663,33 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忙的要死 没时间想（）
 
+
+
+*****
+
+####  starring  
+##### 9444#       发表于 2022-11-25 19:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">给大伙纠正一下smile的正确发音
+
+*****
+
+####  稀勢のささ  
+##### 9445#       发表于 2022-11-25 19:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">repeat after me 差点8脸懵逼
+
+*****
+
+####  saya1892  
+##### 9446#       发表于 2022-11-25 19:47
+
+3个人写衣装了，这次不会再出现衣服没做完的情况了吧
+
+*****
+
+####  lj205  
+##### 9447#       发表于 2022-11-25 19:50
+
+…………我不想看到那套日式的演出服
+

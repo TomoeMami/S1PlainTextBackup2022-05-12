@@ -12970,3 +12970,17 @@ CE改
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  jy000129  
+##### 2616#       发表于 2022-11-25 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58611915&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-25 18:12</a>
+装备应该都是最好的了，弑神剑都有了，斗技场全清。62级，成长里还有很多地方没点，接下来准备去刷点力量 ...</blockquote>
+空蝉，神盾，自动格挡这三个可以吃两三次伤害不死，高难度下不带狂暴也就多挨几下
+再就是稳一点，尽量不群殴
+
+—— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
