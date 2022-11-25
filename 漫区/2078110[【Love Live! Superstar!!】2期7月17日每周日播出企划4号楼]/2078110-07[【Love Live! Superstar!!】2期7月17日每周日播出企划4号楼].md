@@ -5540,3 +5540,14 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 由手机上传
 2022-11-25 09:49 上传
 
+
+
+*****
+
+####  ViyViy  
+##### 9431#       发表于 2022-11-25 09:53
+
+原来今天也是BD3发售日，今晚应该是有第四卷封面的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接下注恋+芽衣。
+
+毕竟企划司马昭之心，它要是变阵了还算有一些小反馈。
+
