@@ -13048,3 +13048,15 @@ CE改
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  lh2004ily  
+##### 2623#       发表于 2022-11-26 00:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58618634&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-26 00:27</a>
+
+打那个万圣节隐藏关拿到的法杖要怎么刷啊，这么重压根挥不动</blockquote>
+我也今天刚拿到，洗个点能拿到位置，练满了可以再洗回去
+
