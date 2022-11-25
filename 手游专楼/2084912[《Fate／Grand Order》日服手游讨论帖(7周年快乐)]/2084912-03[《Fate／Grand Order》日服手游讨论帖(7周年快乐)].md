@@ -7373,3 +7373,20 @@ Q•E•D
 实际上甚少手游是因为真·运营不下去了关服的，大部分都是主创中的任意一人合同到期以后不续约/分赃不均 ...</blockquote>
 你说的这些全都可以用一个字总结 那就是钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 3675#       发表于 2022-11-25 15:32
+
+ 本帖最后由 UNISONIA 于 2022-11-25 15:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58609091&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-25 15:27</a>
+
+你说的这些全都可以用一个字总结 那就是钱</blockquote>
+板鸭肉那个和钱没关系，那作曲当时的薪酬几乎是爱娜娜和邦邦作曲的2倍，算业内最顶尖的（甚至高于上松范康）。人就是突然想不开不想给音乐手游写歌了
+
+武士道那边因为预定运营周期的原因，关的时候还在氪金榜前五十的游戏还挺多的呢
+
+游戏运营这回事不能完全以收入来看情况，很多时候要考虑支出、资源等多项名目的。你看隔壁BLZ也打算把占全球炉石收入70%的国服炉石不要了
+
