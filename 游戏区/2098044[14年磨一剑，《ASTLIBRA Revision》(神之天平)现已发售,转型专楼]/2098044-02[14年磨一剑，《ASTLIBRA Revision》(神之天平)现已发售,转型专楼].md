@@ -12906,3 +12906,17 @@ CE改
 终章实在打不过去了。。三阶段挂了从二阶段开始重打什么鬼</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不会呀，保持版本跟新了吗
 
+
+
+*****
+
+####  Sannapolis  
+##### 2611#       发表于 2022-11-25 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58609354&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-25 15:42</a>
+
+终章实在打不过去了。。三阶段挂了从二阶段开始重打什么鬼</blockquote>
+说实话你不提我不记得打最终boss前还要把她的拘束器打掉
+
+终章boss用凭依技龙王喷就好了，属性克制，boss模型又比较高，伤害吃满
+
