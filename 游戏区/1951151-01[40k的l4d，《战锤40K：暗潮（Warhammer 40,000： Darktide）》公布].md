@@ -1076,3 +1076,15 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古代人皮克  
+##### 104#       发表于 2022-11-25 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58617596&amp;ptid=1951151" target="_blank">415452356 发表于 2022-11-25 23:14</a>
+
+和野人组队一直玩聪明头，艰难到了10级终于有盾牌可以用了，我看别人用的双管mg42是要几级解锁的，我才拿 ...</blockquote>
+大枪好像是20还是25来着
+
