@@ -118,3 +118,12 @@ oxp出2代了，可拆卸手柄，希望不要像上次那个那样蛋疼
 
 [https://www.bilibili.com/video/BV1UP4y1R7gc](https://www.bilibili.com/video/BV1UP4y1R7gc)
 
+
+
+*****
+
+####  魔法酪饼  
+##### 517#       发表于 2022-11-25 23:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">绝了，aok加钱换7800u主板，12月就第一批20个测试。。。
+

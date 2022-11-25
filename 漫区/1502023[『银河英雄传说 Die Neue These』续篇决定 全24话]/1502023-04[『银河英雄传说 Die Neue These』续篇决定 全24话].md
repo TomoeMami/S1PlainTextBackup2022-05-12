@@ -41,3 +41,41 @@
 
 要是把朗古换成藤崎龙版漫画的人设，就有趣了，不过倒确实是娃娃脸……
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 5551#       发表于 2022-11-25 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58612054&amp;ptid=1502023" target="_blank">hourousha 发表于 2022-11-25 18:21</a>
+
+要是把朗古换成藤崎龙版漫画的人设，就有趣了，不过倒确实是娃娃脸……</blockquote>
+原文只是说他脸色红润透出婴儿般的光泽，而不是真的婴儿脸型
+
+*****
+
+####  花達香奈  
+##### 5552#       发表于 2022-11-25 22:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我咋觉得这义父子一股古希腊**的气息，杨也像十字教神父了
+
+*****
+
+####  jedipiggy  
+##### 5553#       发表于 2022-11-25 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58503813&amp;ptid=1502023" target="_blank">KOPKOM 发表于 2022-11-19 14:57</a>
+
+尤利安最搞的就是那边卡介伦辛辛苦苦提前布局，机关算尽，结果没想到最后被之前都没听说过的先寇布女儿把这 ...</blockquote>
+笑喷了 好想知道田中看了你这想法回怎么说
+
+他开B站号了 要不要去留言一下问问？
+
+*****
+
+####  stevenzero  
+##### 5554#       发表于 2022-11-25 23:12
+
+好像真做出来缪拉伤愈后左右肩不平的效果了。
+
