@@ -2809,3 +2809,17 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 <blockquote>风怒</blockquote>
 
+
+
+*****
+
+####  ckseng  
+##### 1761#       发表于 2022-11-25 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58605082&amp;ptid=2025548" target="_blank">jpiajwopdm 发表于 2022-11-25 12:00</a>
+
+是的，打邪恶姐妹俺寻思人多打aoe肯定没错，结果那些符文一个个升到满之后攻击动画长达一年，我直接被恢 ...</blockquote>
+大部分游戏在复数精英怪的场合快速单点掉一个才是正路吧
+
+狂战士系的套路比女武神慢而且前摇明显，姐妹那边除了快死前会频繁换人和偶尔双打，其实大部分时间都是跟奎秃SOLO，儿子或芙蕾雅那边坦着两个，我过那场看见这情形都不敢让芙蕾雅射箭
+

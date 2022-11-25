@@ -1014,3 +1014,16 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 狗皮黄什么时候把4070吐出来我才能正常体验这个游戏，我这个服役多年的1080玩这游戏体验基本等于 ...</blockquote>
 我2060倒是很顺滑
 
+
+
+*****
+
+####  415452356  
+##### 99#       发表于 2022-11-25 12:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58605217&amp;ptid=1951151" target="_blank">古代人皮克 发表于 2022-11-25 12:10</a>
+我2060倒是很顺滑</blockquote>
+  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最低画质跑2k分辨率都变成30浮动，必须得降到1080P才行，而且还是这几天连续更新几个补丁之后才能顺滑的玩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
