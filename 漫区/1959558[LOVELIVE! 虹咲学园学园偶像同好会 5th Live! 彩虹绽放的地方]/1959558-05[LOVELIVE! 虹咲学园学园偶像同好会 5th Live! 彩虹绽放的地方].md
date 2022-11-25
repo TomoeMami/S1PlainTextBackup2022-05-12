@@ -284,3 +284,14 @@ CGディレクター　辰口智樹
 
 灯没有转OVA，因为那时雪菜已经不是她了。
 
+
+
+*****
+
+####  ads147147  
+##### 6788#       发表于 2022-11-25 10:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">看来四格就是最后的灯灯了。
+
+估计没剧场版也是这个考量，出几个ova过渡下，再决定要不要出虹3或者虹剧场。
+

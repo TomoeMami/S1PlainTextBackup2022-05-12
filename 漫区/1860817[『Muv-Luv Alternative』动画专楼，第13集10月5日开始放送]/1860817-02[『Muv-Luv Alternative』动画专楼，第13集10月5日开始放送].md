@@ -549,3 +549,16 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 下集小武爆种名场面，经费会继续增加吗</blockquote>
 会吧，pv里不是有beta们围观武爷跳来跳去的吗
 
+
+
+*****
+
+####  はなび  
+##### 2049#       发表于 2022-11-25 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58600668&amp;ptid=1860817" target="_blank">kamarus 发表于 2022-11-25 01:38</a>
+这集确实不错，而且抹布这边好在至少没有河豚发颠</blockquote>
+抹布这种大男主后宫gal改真的能有河豚吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+其实我感觉真要恰还是不少的。香月x小麻x伊隅不用说，宗像x风间一眼女同，班长x彩峰王道cp，极端点水月x遥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
