@@ -5606,3 +5606,35 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 戴口罩生放送？有必要吗
 
+
+
+*****
+
+####  Kfly  
+##### 9437#       发表于 2022-11-25 18:54
+
+戴口罩……感觉会少不少乐趣啊
+
+*****
+
+####  qty  
+##### 9438#       发表于 2022-11-25 18:59
+
+日本看来情况不太妙啊，
+
+*****
+
+####  nufawneafg  
+##### 9439#       发表于 2022-11-25 19:00
+
+ 本帖最后由 nufawneafg 于 2022-11-25 19:01 编辑 
+
+虽然不太可能，但突然想到开远程会议生放的画面，画面一定很奇特<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 9440#       发表于 2022-11-25 19:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死 换了个方向扭
+
