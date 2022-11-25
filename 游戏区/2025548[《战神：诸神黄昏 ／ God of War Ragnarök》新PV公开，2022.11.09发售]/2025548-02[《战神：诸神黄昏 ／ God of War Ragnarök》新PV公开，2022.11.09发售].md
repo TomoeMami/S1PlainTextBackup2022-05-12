@@ -2732,3 +2732,12 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 华纳海姆全收集这跑图弄的我想吐，多加几个传送门会死吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jpiajwopdm  
+##### 1754#       发表于 2022-11-25 08:06
+
+为啥感觉这代符文攻击这么拉胯啊？按上代的思路做了套减cd符文装结果伤害低的一逼，一直到有了彩虹桥风暴才有伤害
+
