@@ -7402,3 +7402,22 @@ Q•E•D
 废狗其实这几年决算里有数次提自家的成本高于竞品手游……尤其是跟cy那边的形势差的非常巨大。虽然有一部 ...</blockquote>
 续作是指TM的手游续作，蘑菇这边这几年被坑了这么多次，肯定不会傻乎乎再去找螺旋社合作了。fgo这边如果真是第二部完结，按现在这人气，靠单纯出小活动新从者加复刻再压榨个1年应该是没问题的，后面就看遗老们肯不肯赏口饭吃了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 3677#       发表于 2022-11-25 16:46
+
+ 本帖最后由 exiaexa 于 2022-11-25 16:49 编辑 
+
+懂哥还是那么乐
+
+我就说fgo关不关服有啥意义，阿菌自己现在能摸就摸，要是以后天天跟樱井混一起做自我感动剧那跟死了有什么区别
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+当年fgo吹剧本的时候同行都是什么臭鱼烂虾
+现在同行起来了fgo又在整什么臭鱼烂虾
+与其苟延残喘不如在还算风光的时候埋了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
