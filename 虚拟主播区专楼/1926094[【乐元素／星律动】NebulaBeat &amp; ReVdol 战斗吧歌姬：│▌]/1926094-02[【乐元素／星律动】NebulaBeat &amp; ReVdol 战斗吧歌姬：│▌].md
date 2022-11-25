@@ -11567,3 +11567,12 @@ bgm：双喜
 
 所谓的mmr真的是比巨魔更恶的群体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Lamapocos  
+##### 2711#       发表于 2022-11-25 19:12
+
+难怪有的管人毕业了也不愿留暗号，有些管人痴实在是太阴湿了
+
