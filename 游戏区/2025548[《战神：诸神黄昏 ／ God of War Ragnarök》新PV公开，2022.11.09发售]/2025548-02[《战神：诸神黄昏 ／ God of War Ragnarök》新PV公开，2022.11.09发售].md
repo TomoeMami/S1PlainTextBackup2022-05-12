@@ -2847,3 +2847,37 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  jpiajwopdm  
+##### 1764#       发表于 2022-11-25 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58605185&amp;ptid=2025548" target="_blank">wzh5555 发表于 2022-11-25 12:08</a>
+其实很多符文和4代一样起手有范围击退，但是boss出招中的失衡抗性太高了，直接顶着莽脸。只能先削失衡抗 ...</blockquote>
+充能这个系统我是真没玩明白，经常满了忘记用。三角那个蓄力也是，一开始嫌弃充能好慢老挨打就不用了，后期解锁了快速蓄力但是习惯已经养成了也没试着用。
+
+*****
+
+####  碎镜子  
+##### 1765#       发表于 2022-11-25 14:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不知福没有二周目重新开始战神难度开荒。
+开始练习一些取消技巧了，但感觉这作没啥操作空间啊。
+敌人各种韧狗不说，追踪和连击方面感觉也变强了。魔男时间还短得一比。难受。
+奎荼哪怕有阿龙一半的控场能力这游戏都能好玩不少。
+
+*****
+
+####  415452356  
+##### 1766#       发表于 2022-11-25 14:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58608061&amp;ptid=2025548" target="_blank">碎镜子 发表于 2022-11-25 14:38</a>
+不知福没有二周目重新开始战神难度开荒。
+开始练习一些取消技巧了，但感觉这作没啥操作空间啊。
+敌 ...</blockquote>
+  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧美人照着日式游戏画瓢又不肯舍弃自己那些所谓的“矜持”就是新战神这两作了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
