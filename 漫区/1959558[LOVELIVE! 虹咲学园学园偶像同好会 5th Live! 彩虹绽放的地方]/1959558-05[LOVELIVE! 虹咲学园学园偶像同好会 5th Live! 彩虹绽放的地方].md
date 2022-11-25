@@ -275,3 +275,12 @@ CGディレクター　辰口智樹
 
 —— 来自 HUAWEI TEL-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  仟音一心  
+##### 6787#       发表于 2022-11-25 09:43
+
+灯没有转OVA，因为那时雪菜已经不是她了。
+
