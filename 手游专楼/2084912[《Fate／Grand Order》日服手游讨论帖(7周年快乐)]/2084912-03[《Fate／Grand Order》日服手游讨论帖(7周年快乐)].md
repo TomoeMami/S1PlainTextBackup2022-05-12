@@ -7390,3 +7390,15 @@ Q•E•D
 
 游戏运营这回事不能完全以收入来看情况，很多时候要考虑支出、资源等多项名目的。你看隔壁BLZ也打算把占全球炉石收入70%的国服炉石不要了
 
+
+
+*****
+
+####  xiongxingyu  
+##### 3676#       发表于 2022-11-25 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58609083&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-11-25 15:27</a>
+
+废狗其实这几年决算里有数次提自家的成本高于竞品手游……尤其是跟cy那边的形势差的非常巨大。虽然有一部 ...</blockquote>
+续作是指TM的手游续作，蘑菇这边这几年被坑了这么多次，肯定不会傻乎乎再去找螺旋社合作了。fgo这边如果真是第二部完结，按现在这人气，靠单纯出小活动新从者加复刻再压榨个1年应该是没问题的，后面就看遗老们肯不肯赏口饭吃了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
