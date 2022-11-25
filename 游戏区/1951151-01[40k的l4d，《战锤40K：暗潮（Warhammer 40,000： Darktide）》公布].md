@@ -963,3 +963,21 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为啥每次进游戏后画面设置都给我重置了
 
+
+
+*****
+
+####  古代人皮克  
+##### 94#       发表于 2022-11-25 10:56
+
+更新了升级装备还有预留了制作的空间，熟悉的味道来了
+
+*****
+
+####  415452356  
+##### 95#       发表于 2022-11-25 10:59
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗皮黄什么时候把4070吐出来我才能正常体验这个游戏，我这个服役多年的1080玩这游戏体验基本等于没有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
