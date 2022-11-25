@@ -1442,3 +1442,14 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 只要其它卡池流水不高，落地概率应该很高吧</blockquote>
 今年的流水砸成什么样了照样没落多少卫星……主要是画师之前暗示过因为有别的角色不会出成卡才让她画了马琴
 
+
+
+*****
+
+####  sandro  
+##### 43772#       发表于 2022-11-25 14:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58605667&amp;ptid=1712412" target="_blank">UNISONIA 发表于 2022-11-25 12:39</a>
+今年的流水砸成什么样了照样没落多少卫星……主要是画师之前暗示过因为有别的角色不会出成卡才让她画了马 ...</blockquote>
+日服不是好几个卡池都登顶了嘛
+
