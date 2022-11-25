@@ -993,3 +993,12 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 野队几个聪明头一起打真的很欢乐。这会换子弹会用设备的，怕不是奸奇神选 ...</blockquote>
 你这么一说确实，以欧克林而言，它们聪明的不正常了。所以四个职业主角都是有“问题”的。
 
+
+
+*****
+
+####  xgazer  
+##### 97#       发表于 2022-11-25 11:26
+
+我1070基本玩不了了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

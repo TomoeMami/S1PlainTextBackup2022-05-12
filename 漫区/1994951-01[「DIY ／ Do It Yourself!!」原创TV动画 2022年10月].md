@@ -6445,3 +6445,17 @@ Do It Yourself!! 8話
 手伝いだったのが惜しいくらい描いてて楽しかったす、、、
 <img src="https://p.sda1.dev/8/46e069f383e91b773e1dfb4f743e3817/20221125_102454.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 495#       发表于 2022-11-25 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58601510&amp;ptid=1994951" target="_blank">CharlieZ- 发表于 2022-11-25 05:27</a>
+
+唉，本来就够冷门了，b站还每一集都要会员，不知道咋想的</blockquote>
+有没有可能是东电的原因呢
+
+包括这个特别离谱的黑屏打码也是东电的特色
+
