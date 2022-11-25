@@ -11536,3 +11536,14 @@ bgm：双喜
 贴吧愈发的不能看了，实在想不明白这究竟是在破防个鸡毛啊，mmr特有的虚拟感恋？逼得人家小姑娘半夜 ...</blockquote>
 还不如说吧主退得不是时候
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2708#       发表于 2022-11-25 15:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了VMV的宣传才想起来鸭鸭还会算命
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

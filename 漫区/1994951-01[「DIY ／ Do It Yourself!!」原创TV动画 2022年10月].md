@@ -6473,3 +6473,12 @@ Do It Yourself!! 8話
 包括这个特别离谱的黑屏打码也是东电的特色</blockquote>
 东电所有动画都要求要付费或者会员吗？黑屏码我也听说了，纸片人被刀划破手那段打码也太离谱了，我感觉像是b站自己搞得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Артём  
+##### 497#       发表于 2022-11-25 15:40
+
+self你青梅竹马要黄毛被偷了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">。
+
