@@ -9517,3 +9517,14 @@ varium，一个小箱，画师全是杏的
 
 用不同人格来运营三个推特<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 12902#       发表于 2022-11-25 11:44
+
+逝我，道我，本我
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
