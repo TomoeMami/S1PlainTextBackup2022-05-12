@@ -2775,3 +2775,16 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  jpiajwopdm  
+##### 1758#       发表于 2022-11-25 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58603301&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-25 10:02</a>
+这次符文最大的问题还是没给无敌时间，要是给了无敌时间还有人喊打不过狂战士我是不信的
+
+—— 来自 S1Fu ...</blockquote>
+是的，打邪恶姐妹俺寻思人多打aoe肯定没错，结果那些符文一个个升到满之后攻击动画长达一年，我直接被恢复霸体的boss几下打死，真的升血压
+
