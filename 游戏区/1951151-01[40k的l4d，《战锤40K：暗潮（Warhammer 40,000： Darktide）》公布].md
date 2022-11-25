@@ -1002,3 +1002,15 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 我1070基本玩不了了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  古代人皮克  
+##### 98#       发表于 2022-11-25 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58604121&amp;ptid=1951151" target="_blank">415452356 发表于 2022-11-25 10:59</a>
+
+狗皮黄什么时候把4070吐出来我才能正常体验这个游戏，我这个服役多年的1080玩这游戏体验基本等于 ...</blockquote>
+我2060倒是很顺滑
+

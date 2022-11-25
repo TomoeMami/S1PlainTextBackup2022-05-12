@@ -304,3 +304,14 @@ CGディレクター　辰口智樹
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哎
 
+
+
+*****
+
+####  dozen  
+##### 6790#       发表于 2022-11-25 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58603749&amp;ptid=1959558" target="_blank">cybernetics31 发表于 2022-11-25 10:33</a>
+就不能让爷唱歌然后搞个留学剧情让雪菜下线吗哎</blockquote>
+已经可以放弃去思考了，看运营的样子是打算当事情没发过来冷处理
+
