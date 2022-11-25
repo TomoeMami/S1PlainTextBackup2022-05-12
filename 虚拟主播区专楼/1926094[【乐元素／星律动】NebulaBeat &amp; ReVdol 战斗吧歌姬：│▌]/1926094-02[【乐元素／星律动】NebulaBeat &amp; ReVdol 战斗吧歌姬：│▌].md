@@ -11524,3 +11524,15 @@ bgm：双喜
 
 贴吧愈发的不能看了，实在想不明白这究竟是在破防个鸡毛啊，mmr特有的虚拟感恋？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">逼得人家小姑娘半夜发微博倒苦水
 
+
+
+*****
+
+####  ladiesman802  
+##### 2707#       发表于 2022-11-25 13:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58606434&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-11-25 13:12</a>
+
+贴吧愈发的不能看了，实在想不明白这究竟是在破防个鸡毛啊，mmr特有的虚拟感恋？逼得人家小姑娘半夜 ...</blockquote>
+还不如说吧主退得不是时候
+
