@@ -295,3 +295,12 @@ CGディレクター　辰口智樹
 
 估计没剧场版也是这个考量，出几个ova过渡下，再决定要不要出虹3或者虹剧场。
 
+
+
+*****
+
+####  cybernetics31  
+##### 6789#       发表于 2022-11-25 10:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哎
+
