@@ -13021,3 +13021,30 @@ CE改
 
 个人体感, 弑神剑没长枪好用, 虽然攻击范围和上手都是三, 但剑的上加攻基本卡不住boss, 终章人形态女神特别明显
 
+
+
+*****
+
+####  lh2004ily  
+##### 2620#       发表于 2022-11-26 00:26
+
+打到研究所，突然开始缺钱了。。到这里有什么好的刷钱方法吗？去东京2号传送点挖矿？挖矿用铁镐挖？
+
+*****
+
+####  Quelaan  
+##### 2621#       发表于 2022-11-26 00:27
+
+打那个万圣节隐藏关拿到的法杖要怎么刷啊，这么重压根挥不动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 2622#       发表于 2022-11-26 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58618634&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-26 00:27</a>
+打那个万圣节隐藏关拿到的法杖要怎么刷啊，这么重压根挥不动</blockquote>
+重就一直点敏捷点到挥动为止<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">，再上个攻速buff。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
