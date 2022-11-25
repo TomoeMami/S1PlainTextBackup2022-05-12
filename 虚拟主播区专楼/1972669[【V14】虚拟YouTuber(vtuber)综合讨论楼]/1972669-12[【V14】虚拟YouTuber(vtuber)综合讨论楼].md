@@ -1373,3 +1373,12 @@ Selen这意思是想做个彩虹原创曲的翻唱播放台？
 
 所以OP的uta不算是vtb吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  マドマコ  
+##### 17755#       发表于 2022-11-25 16:07
+
+ウタ算的话那ado算不算<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
