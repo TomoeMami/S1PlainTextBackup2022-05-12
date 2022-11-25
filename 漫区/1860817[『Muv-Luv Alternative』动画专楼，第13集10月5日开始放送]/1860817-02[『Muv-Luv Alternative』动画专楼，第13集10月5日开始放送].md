@@ -603,3 +603,14 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 
 <img src="https://img.saraba1st.com/forum/202211/25/122930umuzcz0occluu223.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jerryoq1  
+##### 2053#       发表于 2022-11-26 01:03
+
+如果真有第三季  能把樱花作战前期全世界佯攻和黎明作战的大场面做出来  
+
+我就原地和解  再冲一份bd<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
