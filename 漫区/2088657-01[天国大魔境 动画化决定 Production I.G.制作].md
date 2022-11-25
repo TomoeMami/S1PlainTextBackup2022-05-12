@@ -725,3 +725,21 @@ pv那样就很满足了
 
 另外美术监督还真是金子雄司——刚出了一张动画概念图的时候，推特上就有人猜出是他了。
 
+
+
+*****
+
+####  蚊仔蚊仔蚊仔  
+##### 82#         楼主| 发表于 2022-11-25 20:20
+
+霸权两个字我已经说累了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  feliznavidad  
+##### 83#       发表于 2022-11-25 20:22
+
+好耶！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">路上没细看，就是感觉线条有点便宜
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

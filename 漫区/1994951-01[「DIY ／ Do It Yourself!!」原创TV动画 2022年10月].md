@@ -6515,3 +6515,14 @@ self你青梅竹马要黄毛被偷了<img src="https://static.saraba1st.com/imag
 アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』第8話放送後インタビュー：くれい役 佐倉綾音さん&amp;#xD7;たくみ役 和氣あず未さん｜個性的なDIY部は声も個性的！
 [https://www.animatetimes.com/news/details.php?id=1669371276](https://www.animatetimes.com/news/details.php?id=1669371276)
 
+
+
+*****
+
+####  renkan119  
+##### 501#       发表于 2022-11-25 20:13
+
+<blockquote>CharlieZ- 发表于 2022-11-25 13:11
+东电所有动画都要求要付费或者会员吗？黑屏码我也听说了，纸片人被刀划破手那段打码也太离谱了，我感觉像 ...</blockquote>
+ 东电番版权是东电自己弄的 当年是统一卖给国内所有网站   然后优酷状告说只有B站没有广告是不正当竞争  B站先是加了公益广告  后来又下架了全部东电番  最后重新上架时就变成了全部都需要大会员了
+

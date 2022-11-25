@@ -12984,3 +12984,15 @@ CE改
 
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  tmmd  
+##### 2617#       发表于 2022-11-25 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58611915&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-25 18:12</a>
+
+装备应该都是最好的了，弑神剑都有了，斗技场全清。62级，成长里还有很多地方没点，接下来准备去刷点力量 ...</blockquote>
+ 加隆魔法里面有个在一个房间内可以帮你承受一次伤害的技能(切换房间次数重置)这样你可以挨两下了,攻速和攻击力拉满,狂暴化装上再带个增加武器攻击范围的好像是叫神之左手吧  带个长柄武器(弑神剑的范围都够了) ,还不放心带个盾+自动格挡 刷他妈的
+
