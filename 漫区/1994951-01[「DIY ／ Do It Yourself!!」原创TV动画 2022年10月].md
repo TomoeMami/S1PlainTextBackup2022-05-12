@@ -6491,3 +6491,17 @@ self你青梅竹马要黄毛被偷了<img src="https://static.saraba1st.com/imag
 
 她做猪窝的话算不算迫害小猪
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 499#       发表于 2022-11-25 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58606403&amp;ptid=1994951" target="_blank">CharlieZ- 发表于 2022-11-25 13:11</a>
+
+东电所有动画都要求要付费或者会员吗？黑屏码我也听说了，纸片人被刀划破手那段打码也太离谱了，我感觉像 ...</blockquote>
+会员不知道 但是东电的片子是自己审的
+
+阿B操刀的话  一般都是消音抽帧 上点心的还会改画面
+
