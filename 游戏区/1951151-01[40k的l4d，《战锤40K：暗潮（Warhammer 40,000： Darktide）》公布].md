@@ -981,3 +981,15 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  高龙  
+##### 96#       发表于 2022-11-25 11:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58578851&amp;ptid=1951151" target="_blank">瘦猪与肥猴 发表于 2022-11-23 22:09</a>
+
+野队几个聪明头一起打真的很欢乐。这会换子弹会用设备的，怕不是奸奇神选 ...</blockquote>
+你这么一说确实，以欧克林而言，它们聪明的不正常了。所以四个职业主角都是有“问题”的。
+
