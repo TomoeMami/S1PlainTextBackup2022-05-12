@@ -13005,3 +13005,19 @@ CE改
 
 5w步刷完终于全成就了, 最让人想吐槽的就是为什么魔力水晶最后只有104个, 我下意识觉得缺一个找了半天..<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜来  
+##### 2619#       发表于 2022-11-25 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58611915&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-25 18:12</a>
+
+装备应该都是最好的了，弑神剑都有了，斗技场全清。62级，成长里还有很多地方没点，接下来准备去刷点力量 ...</blockquote>
+用最后那把长枪, 血攻魔加点,剩余考虑把重量降到最低, 点上攻击范围和起源.
+
+打boss时双buff一开, 一直按着上加攻击, boss基本被卡的没几招能出就死了.不喜欢跳起来就把那个奥义封印了
+
+个人体感, 弑神剑没长枪好用, 虽然攻击范围和上手都是三, 但剑的上加攻基本卡不住boss, 终章人形态女神特别明显
+

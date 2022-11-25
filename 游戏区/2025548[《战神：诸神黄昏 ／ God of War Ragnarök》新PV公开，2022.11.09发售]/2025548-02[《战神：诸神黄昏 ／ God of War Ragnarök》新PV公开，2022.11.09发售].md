@@ -2941,3 +2941,14 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  about：  
+##### 1772#       发表于 2022-11-25 22:04
+
+我人麻了，遇上任务bug，华纳海姆那个亡者的良知，我杀了最后一只怪的时候任务结算，同时我被那只怪死的时候自爆炸死了，现在任务就成了它显示我没完成，怪又已经消失了的状态，自动存档最早的也已经触发bug了，然后重启也没用。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">我白金是不是寄了
+
+—— 来自 Sony XQ-BC72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
