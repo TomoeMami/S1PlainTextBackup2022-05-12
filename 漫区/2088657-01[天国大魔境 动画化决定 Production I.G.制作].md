@@ -763,3 +763,22 @@ pv那样就很满足了
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  桐木爱丽丝  
+##### 86#       发表于 2022-11-25 23:37
+
+好想知道会选谁来配姐姐，真·性别认知障碍，弟弟的软件姐姐的硬件，很有挑战性。
+选个老声优应该没问题，新声优就比较悬了。
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  midearth  
+##### 87#       发表于 2022-11-25 23:40
+
+这看起来是剧场级制作啊。
+

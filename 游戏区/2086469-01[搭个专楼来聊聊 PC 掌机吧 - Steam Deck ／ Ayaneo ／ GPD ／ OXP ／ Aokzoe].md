@@ -127,3 +127,15 @@ oxp出2代了，可拆卸手柄，希望不要像上次那个那样蛋疼
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">绝了，aok加钱换7800u主板，12月就第一批20个测试。。。
 
+
+
+*****
+
+####  紫煜  
+##### 518#       发表于 2022-11-25 23:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58617592&amp;ptid=2086469" target="_blank">魔法酪饼 发表于 2022-11-25 23:14:51</a>
+绝了，aok加钱换7800u主板，12月就第一批20个测试。。。</blockquote>那二十个十二月只是招募，升级完发出最快也要春节前。。。虽然不知道一号本怎么这么快拿到7840的，这速度也太惊悚了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
