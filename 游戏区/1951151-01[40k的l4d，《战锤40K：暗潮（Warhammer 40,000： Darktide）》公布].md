@@ -1027,3 +1027,20 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  蒋公卖萌  
+##### 100#       发表于 2022-11-25 15:18
+
+每次都在安装anti-cheat的时候给我弹出这图是啥意思，谁来解释下
+
+<img src="https://img.saraba1st.com/forum/202211/25/151854xr4yk4rpeb8s98z9.png" referrerpolicy="no-referrer">
+
+<strong>微信图片_20221125151833.png</strong> (33.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-25 15:18 上传
+

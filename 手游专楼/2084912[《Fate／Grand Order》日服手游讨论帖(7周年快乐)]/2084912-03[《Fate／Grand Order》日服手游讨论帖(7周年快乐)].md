@@ -7325,3 +7325,12 @@ Q•E•D
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们觉得有人会嫌弃钱太多？
 
+
+
+*****
+
+####  xiongxingyu  
+##### 3671#       发表于 2022-11-25 15:13
+
+醒醒，隔壁三蹦子剧情都突入终盘了，二蹦子还好好活着呢。天底下只有赚不到钱被腰斩的，哪有收费榜常年第一却因为故事讲完就关服的手游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

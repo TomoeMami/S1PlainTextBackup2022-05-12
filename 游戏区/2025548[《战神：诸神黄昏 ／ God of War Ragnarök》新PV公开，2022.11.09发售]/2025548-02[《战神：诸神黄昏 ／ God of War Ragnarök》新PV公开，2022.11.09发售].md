@@ -2881,3 +2881,13 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  focus  
+##### 1767#       发表于 2022-11-25 15:22
+
+后期buff叠的快赶上法环了，叠好buff 5秒钟十几倍增伤，瞬秒女武神
+[https://www.bilibili.com/video/BV1X8411774o](https://www.bilibili.com/video/BV1X8411774o)
+
