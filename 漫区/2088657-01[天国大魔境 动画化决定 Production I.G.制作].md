@@ -800,3 +800,12 @@ pv那样就很满足了
 
 我看着倒挺稳啊，期待声优人选
 
+
+
+*****
+
+####  dclara1  
+##### 90#       发表于 2022-11-26 07:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">最期待!
+
