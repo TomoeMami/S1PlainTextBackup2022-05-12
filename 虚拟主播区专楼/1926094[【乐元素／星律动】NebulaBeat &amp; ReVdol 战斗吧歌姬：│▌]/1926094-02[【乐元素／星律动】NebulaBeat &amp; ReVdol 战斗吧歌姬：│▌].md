@@ -11515,3 +11515,12 @@ bgm：双喜
 
 不过这语言文字怎么像ai写的啊
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2706#       发表于 2022-11-25 13:12
+
+贴吧愈发的不能看了，实在想不明白这究竟是在破防个鸡毛啊，mmr特有的虚拟感恋？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">逼得人家小姑娘半夜发微博倒苦水
+

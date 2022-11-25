@@ -6459,3 +6459,17 @@ Do It Yourself!! 8話
 
 包括这个特别离谱的黑屏打码也是东电的特色
 
+
+
+*****
+
+####  CharlieZ-  
+##### 496#       发表于 2022-11-25 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58604583&amp;ptid=1994951" target="_blank">Mc凉月奏酱 发表于 2022-11-25 11:27</a>
+
+有没有可能是东电的原因呢
+
+包括这个特别离谱的黑屏打码也是东电的特色</blockquote>
+东电所有动画都要求要付费或者会员吗？黑屏码我也听说了，纸片人被刀划破手那段打码也太离谱了，我感觉像是b站自己搞得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
