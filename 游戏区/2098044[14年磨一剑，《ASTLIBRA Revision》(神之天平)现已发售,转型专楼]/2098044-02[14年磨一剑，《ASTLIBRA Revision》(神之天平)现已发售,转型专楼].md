@@ -12835,3 +12835,15 @@ CE改
 
 大后期数值膨胀，打boss如打小兵
 
+
+
+*****
+
+####  永远的访客  
+##### 2605#       发表于 2022-11-25 12:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58603539&amp;ptid=2098044" target="_blank">囧Smith 发表于 2022-11-25 10:18</a>
+
+刚玩上，直接走困难，拿棒槌打第一章的龙，纯靠凭依技输出，感觉有点刮后面都这样吗 ...</blockquote>
+后面不是这样，后面会更刮，还有各种boss连战，精英路人战<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
