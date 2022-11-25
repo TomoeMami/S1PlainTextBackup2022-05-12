@@ -5573,3 +5573,12 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  lj205  
+##### 9434#       发表于 2022-11-25 17:38
+
+生日活动抽中了，可惜只能委托朋友带去，可恶的疫情<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+

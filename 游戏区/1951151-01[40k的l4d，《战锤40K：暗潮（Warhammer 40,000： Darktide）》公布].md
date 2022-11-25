@@ -1044,3 +1044,15 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 
 2022-11-25 15:18 上传
 
+
+
+*****
+
+####  陆战型胡杀马  
+##### 101#       发表于 2022-11-25 17:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58535840&amp;ptid=1951151" target="_blank">酒瓶止迁 发表于 2022-11-21 14:48</a>
+
+杀老鼠2最后能用圣杯荆棘这种炫酷兵种，这边以后能用上寂静修女吗……</blockquote>
+我们讲道理精1是巡林客啊，这不比荆棘姐妹炫酷20多倍。
+
