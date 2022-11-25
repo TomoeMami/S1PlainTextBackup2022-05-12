@@ -12947,3 +12947,26 @@ CE改
 
 现在62级，竞技场还缺3场，其他的神打完了，今天去把星盘开开全再来刮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Raumanzug  
+##### 2614#       发表于 2022-11-25 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58611915&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-25 18:12</a>
+
+装备应该都是最好的了，弑神剑都有了，斗技场全清。62级，成长里还有很多地方没点，接下来准备去刷点力量 ...</blockquote>
+试试带st消耗翻倍和凭依消耗所有st的然后开风精buff，直接攻速突破上限不管是平A的dps还是st的回转率都会**提升。
+
+*****
+
+####  redsouris  
+##### 2615#       发表于 2022-11-25 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58611915&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-25 18:12</a>
+装备应该都是最好的了，弑神剑都有了，斗技场全清。62级，成长里还有很多地方没点，接下来准备去刷点力量 ...</blockquote>
+狂暴配空蝉，空蝉可以挨一下，空蝉被打掉就切图，切图又恢复了
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

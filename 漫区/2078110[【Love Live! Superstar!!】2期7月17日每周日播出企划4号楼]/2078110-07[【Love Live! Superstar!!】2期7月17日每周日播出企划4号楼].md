@@ -5582,3 +5582,27 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 生日活动抽中了，可惜只能委托朋友带去，可恶的疫情<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 9435#       发表于 2022-11-25 18:21
+
+草，又是那个傻逼的坐法
+
+*****
+
+####  优妮可  
+##### 9436#       发表于 2022-11-25 18:22
+
+<img src="https://img.saraba1st.com/forum/202211/25/182142hhjkyhu981m8mj8y.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221125_182018.jpg</strong> (149.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-25 18:21 上传
+
+戴口罩生放送？有必要吗
+
