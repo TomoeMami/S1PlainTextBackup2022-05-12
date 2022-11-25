@@ -13060,3 +13060,16 @@ CE改
 打那个万圣节隐藏关拿到的法杖要怎么刷啊，这么重压根挥不动</blockquote>
 我也今天刚拿到，洗个点能拿到位置，练满了可以再洗回去
 
+
+
+*****
+
+####  Tissuesea  
+##### 2624#       发表于 2022-11-26 01:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58618609&amp;ptid=2098044" target="_blank">lh2004ily 发表于 2022-11-26 00:26</a>
+打到研究所，突然开始缺钱了。。到这里有什么好的刷钱方法吗？去东京2号传送点挖矿？挖矿用铁镐挖？ ...</blockquote>
+假如你之前没有全收集，你其实可以逛前面的关卡顺便开个掠夺清怪，我逛了一圈后就有三万九百多了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
