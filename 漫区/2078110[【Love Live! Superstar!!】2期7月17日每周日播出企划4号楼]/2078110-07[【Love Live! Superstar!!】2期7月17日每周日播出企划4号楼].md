@@ -5693,3 +5693,21 @@ https://v-storage.bnarts.jp/talk/interview/196604/
 
 …………我不想看到那套日式的演出服
 
+
+
+*****
+
+####  ads147147  
+##### 9448#       发表于 2022-11-25 19:55
+
+dondon桑，笑死了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  lj205  
+##### 9449#       发表于 2022-11-25 19:59
+
+妈的，这棒子颜色分的出来才有鬼啊
+
