@@ -1469,3 +1469,12 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 以淡季登顶没什么含金量而论，举个着名的例子：18年12月初的始皇卡池保持在第一的时间甚至还比较长，结果来年初官方冬FES上公布的流水前5都榜上无名，足够说明情况了
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 43774#       发表于 2022-11-25 21:18
+
+运营到这个时间会有什么样的未来都不奇怪了啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
