@@ -12933,3 +12933,17 @@ CE改
 
 —— 来自 samsung SM-G986W, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  永远的访客  
+##### 2613#       发表于 2022-11-25 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58609354&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-25 15:42</a>
+
+终章实在打不过去了。。三阶段挂了从二阶段开始重打什么鬼</blockquote>
+我也是困难终章女神3阶段打不过，前面刚刚刮了5个小boss，再加刮boss前2层形态，输了第3场就要从穿衣状态开始刮，又电子ed了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+现在62级，竞技场还缺3场，其他的神打完了，今天去把星盘开开全再来刮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
