@@ -752,3 +752,14 @@ pv那样就很满足了
 
 牛啊又是牛尾
 
+
+
+*****
+
+####  精神  
+##### 85#       发表于 2022-11-25 22:43
+
+这PV真的不错，期待拉满，23年有盼头！<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
