@@ -12920,3 +12920,16 @@ CE改
 
 终章boss用凭依技龙王喷就好了，属性克制，boss模型又比较高，伤害吃满
 
+
+
+*****
+
+####  yueyut  
+##### 2612#       发表于 2022-11-25 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58610578&amp;ptid=2098044" target="_blank">tmmd 发表于 2022-11-25 16:51</a>
+不会呀，保持版本跟新了吗</blockquote>
+装备应该都是最好的了，弑神剑都有了，斗技场全清。62级，成长里还有很多地方没点，接下来准备去刷点力量晶体。。。有没有啥高效的刷级build呢？我看有人提到什么狂暴流练级，不太明白怎么操作的，狂暴不是碰两下就死了么，很危险。
+
+—— 来自 samsung SM-G986W, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
