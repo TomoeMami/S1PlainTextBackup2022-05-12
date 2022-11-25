@@ -6401,3 +6401,47 @@ Job 竟然请布丁做，布丁还真的照做了<img src="https://static.saraba
 
 唉，本来就够冷门了，b站还每一集都要会员，不知道咋想的
 
+
+
+*****
+
+####  Piano-Forest  
+##### 493#         楼主| 发表于 2022-11-25 10:24
+
+本日はすてっぷ７で、せるふ達が訪れたお店をご紹介！
+<img src="https://p.sda1.dev/8/3da3f66278dbd5f840d6e75a437a5cbe/20221125_102143.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/86fbec70ae2de1bd8ef21912cf45df02/20221125_102146.jpg" referrerpolicy="no-referrer">
+
+すてっぷ８より、作監修正をご紹介
+<img src="https://p.sda1.dev/8/a4a36ceb6fccd5581db0cfc117904f76/20221125_102149.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/7b8ac73cfa83790d5171b0ad8bf8a8fe/20221125_102151.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/862c597dbdd348090998724a5297a9f3/20221125_102153.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/ef824fe1db39545fd06c5518923421fb/20221125_102155.jpg" referrerpolicy="no-referrer">
+
+すてっぷ８でも登場した
+
+せるふのイラストを一挙公開
+
+どこで登場したのか、探してみてくださいね！
+<img src="https://p.sda1.dev/8/f8825fe0f6af1056805a3f048c9e2e73/20221125_102205.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/a13049089f19515f99f717e6bd137ba2/20221125_102207.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/cddbd08166924001302df6a167705730/20221125_102210.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/028b1f945211809074470f7c9235e98b/20221125_102208.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 494#         楼主| 发表于 2022-11-25 10:26
+
+[https://twitter.com/plus_plus09/status/1595438795297808385](https://twitter.com/plus_plus09/status/1595438795297808385)
+<img src="https://p.sda1.dev/8/4941005c049243c8ce067fb20b35e097/20221125_102450.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/miacci0/status/1595439754438660096](https://twitter.com/miacci0/status/1595439754438660096)
+
+Do It Yourself!! 8話
+
+最初の方の80カット程作監やってました！
+
+手伝いだったのが惜しいくらい描いてて楽しかったす、、、
+<img src="https://p.sda1.dev/8/46e069f383e91b773e1dfb4f743e3817/20221125_102454.jpg" referrerpolicy="no-referrer">
+

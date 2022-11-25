@@ -12817,3 +12817,21 @@ CE改
 
 刚玩上，直接走困难，拿棒槌打第一章的龙，纯靠凭依技输出，感觉有点刮<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后面都这样吗
 
+
+
+*****
+
+####  PNK  
+##### 2604#       发表于 2022-11-25 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58603539&amp;ptid=2098044" target="_blank">囧Smith 发表于 2022-11-25 10:18</a>
+
+刚玩上，直接走困难，拿棒槌打第一章的龙，纯靠凭依技输出，感觉有点刮后面都这样吗 ...</blockquote>
+第一章守护兽是最刮的，大家都刮
+
+差不多第二章成长和等级上来了之后就好多了
+
+中期不怎么刮，可能更多的是需要防止暴毙
+
+大后期数值膨胀，打boss如打小兵
+

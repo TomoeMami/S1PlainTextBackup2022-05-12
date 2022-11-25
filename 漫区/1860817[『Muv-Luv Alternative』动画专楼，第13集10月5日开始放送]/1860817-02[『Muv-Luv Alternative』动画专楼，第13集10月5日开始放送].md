@@ -562,3 +562,17 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 
 其实我感觉真要恰还是不少的。香月x小麻x伊隅不用说，宗像x风间一眼女同，班长x彩峰王道cp，极端点水月x遥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kamarus  
+##### 2050#       发表于 2022-11-25 10:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58603524&amp;ptid=1860817" target="_blank">はなび 发表于 2022-11-25 10:17</a>
+抹布这种大男主后宫gal改真的能有河豚吗
+
+其实我感觉真要恰还是不少的。香月x小麻x伊隅不用说，宗 ...</blockquote>
+不一样的，抹布又不卖百合，真有你说的那种也是底下人自己搞搞，成不了主流的。
+主要是泥潭某些白河豚玻璃心又嘴臭，还经不起别人开玩笑，9月份那波对河豚的清算我希望等水星崩了再来一次。
+
