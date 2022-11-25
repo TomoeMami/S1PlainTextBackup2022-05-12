@@ -12847,3 +12847,41 @@ CE改
 刚玩上，直接走困难，拿棒槌打第一章的龙，纯靠凭依技输出，感觉有点刮后面都这样吗 ...</blockquote>
 后面不是这样，后面会更刮，还有各种boss连战，精英路人战<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gwchobit  
+##### 2606#       发表于 2022-11-25 13:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58602170&amp;ptid=2098044" target="_blank">矮矮人 发表于 2022-11-25 08:39</a>
+
+打到新章了，问下每个武器的武器盘是固定的吗？
+
+有没有比较好的武器
+
+宝珠有哪个效果比较强 ...</blockquote>
+装备盘随机，三个等级，蓝色，蓝色黑边，红色。红色最好
+
+武器最好神杀剑，蓝色的盾。进入新章为了避免无效装备盘可以将装备饰品都卖掉，系统会强制一些卖不掉。
+
+*****
+
+####  Tissuesea  
+##### 2607#       发表于 2022-11-25 13:58
+
+通关了，还是用CE改了过了，第七八章还只是把箭改成9999，到新章直接成长拉满，武器防具强化+100，才开始感觉到砍瓜切菜的感觉，所以新章节省很多时间，最后78小时通关。
+这游戏对我来说比较好的地方是很多角色是美少女，指凭依技和boss二三阶段。凭依技是美少女就有想用的欲望，前期常驻雷姬，中期乱射强度不错，大后期有妖精王，火焰巫女和女武神，妖精王起床声有点可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">。boss是指M字腿，阿努利斯系统和最后的盖亚，本来打着一块石头，虽然不能说无聊但感觉有点平淡，但一转阶段出现巨大的妹子就开始精神抖擞了。总的来说，对于喜欢美少女的玩家，这一作还挺不错的。
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Tissuesea  
+##### 2608#       发表于 2022-11-25 13:58
+
+通关了，还是用CE改了过了，第七八章还只是把箭改成9999，到新章直接成长拉满，武器防具强化+100，才开始感觉到砍瓜切菜的感觉，所以新章节省很多时间，最后78小时通关。
+这游戏对我来说比较好的地方是很多角色是美少女，指凭依技和boss二三阶段。凭依技是美少女就有想用的欲望，前期常驻雷姬，中期乱射强度不错，大后期有妖精王，火焰巫女和女武神，妖精王起床声有点可爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">。boss是指M字腿，阿努利斯系统和最后的盖亚，本来打着一块石头，虽然不能说无聊但感觉有点平淡，但一转阶段出现巨大的妹子就开始精神抖擞了。总的来说，对于喜欢美少女的玩家，这一作还挺不错的。
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
