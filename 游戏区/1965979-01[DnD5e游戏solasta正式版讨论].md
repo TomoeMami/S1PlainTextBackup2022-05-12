@@ -966,3 +966,15 @@ CRPG 不行
 
 求问这游戏哪几个DLC推荐买？
 
+
+
+*****
+
+####  scikirbypoke  
+##### 95#         楼主| 发表于 2022-11-25 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58616158&amp;ptid=1965979" target="_blank">yolu 发表于 2022-11-25 22:11</a>
+
+求问这游戏哪几个DLC推荐买？</blockquote>
+这b游戏其他职业子职全在DLC，建议除supporter pack外全买
+
