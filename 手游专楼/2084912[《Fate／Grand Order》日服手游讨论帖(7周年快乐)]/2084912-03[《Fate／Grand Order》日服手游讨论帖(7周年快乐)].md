@@ -7316,3 +7316,12 @@ Q•E•D
 
 太好了，准备关服了，国服我直接鸽了，让我在日服体验一个完整的关服就可以和这个辣鸡手游说再见了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3670#       发表于 2022-11-25 14:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们觉得有人会嫌弃钱太多？
+

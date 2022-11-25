@@ -2823,3 +2823,27 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 狂战士系的套路比女武神慢而且前摇明显，姐妹那边除了快死前会频繁换人和偶尔双打，其实大部分时间都是跟奎秃SOLO，儿子或芙蕾雅那边坦着两个，我过那场看见这情形都不敢让芙蕾雅射箭
 
+
+
+*****
+
+####  jpiajwopdm  
+##### 1762#       发表于 2022-11-25 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58605443&amp;ptid=2025548" target="_blank">ckseng 发表于 2022-11-25 12:28</a>
+大部分游戏在复数精英怪的场合快速单点掉一个才是正路吧
+
+狂战士系的套路比女武神慢而且前摇明显，姐妹那 ...</blockquote>
+我是默认符文攻击里敌人一定会硬直，所以我可以无脑甩6套。靠配装甩完最后一个符文打几套狂怒第一个又好了，以为这样就可以把boss直接赖死。
+
+*****
+
+####  415452356  
+##### 1763#       发表于 2022-11-25 14:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58607478&amp;ptid=2025548" target="_blank">jpiajwopdm 发表于 2022-11-25 14:07</a>
+我是默认符文攻击里敌人一定会硬直，所以我可以无脑甩6套。靠配装甩完最后一个符文打几套狂怒第一个又好 ...</blockquote>
+  这次继续吸纳了一些日式act的点但还是那种扭扭捏捏不肯给玩家太多的无敌时间，build也属于这种情况，不肯让玩家放开手脚，只能说希望下一作或者新ip还是这套系统的衍生的话可以彻底抛掉那种白皮思维
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
