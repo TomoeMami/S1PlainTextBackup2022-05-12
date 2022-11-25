@@ -11556,3 +11556,14 @@ bgm：双喜
 
 所以说vmv直播间能算命，鸭自己直播间不行？
 
+
+
+*****
+
+####  佛皇  
+##### 2710#       发表于 2022-11-25 16:59
+
+一个小女孩，就要承担这些莫名的事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+所谓的mmr真的是比巨魔更恶的群体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

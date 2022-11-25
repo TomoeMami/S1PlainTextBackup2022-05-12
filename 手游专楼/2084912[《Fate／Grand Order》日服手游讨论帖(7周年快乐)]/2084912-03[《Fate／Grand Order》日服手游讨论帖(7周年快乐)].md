@@ -7421,3 +7421,17 @@ Q•E•D
 与其苟延残喘不如在还算风光的时候埋了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 3678#       发表于 2022-11-25 16:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58610099&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2022-11-25 16:25</a>
+
+续作是指TM的手游续作，蘑菇这边这几年被坑了这么多次，肯定不会傻乎乎再去找螺旋社合作了。fgo这边如果 ...</blockquote>
+新纳之前的talk看起来，Type-Moon在FGO完结以后应该没有做手游的计划了
+
+蘑菇自己是想做原神那个模式的，但是业内的条件看起来没有这个资源，米哈游也不肯接他的单
+
