@@ -7334,3 +7334,42 @@ Q•E•D
 
 醒醒，隔壁三蹦子剧情都突入终盘了，二蹦子还好好活着呢。天底下只有赚不到钱被腰斩的，哪有收费榜常年第一却因为故事讲完就关服的手游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 3672#       发表于 2022-11-25 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58607481&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-25 14:08</a>
+
+你们觉得有人会嫌弃钱太多？</blockquote>
+实际上甚少手游是因为真·运营不下去了关服的，大部分都是主创中的任意一人合同到期以后不续约/分赃不均谈崩/剧情意义上的完结这三种理由关的
+
+以DW自己的游戏为例。Band Yarouze是作曲不想继续这个游戏，合同到期后跑路导致关服的；甚至樱花革命都不算是因为“运营不下去了”才关服的，这游戏根本没进入收益化的环节，而且决定关的时候启动的投资都没花完，可以说是为了止损才关的
+
+*****
+
+####  UNISONIA  
+##### 3673#       发表于 2022-11-25 15:27
+
+ 本帖最后由 UNISONIA 于 2022-11-25 15:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58608777&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2022-11-25 15:13</a>
+
+醒醒，隔壁三蹦子剧情都突入终盘了，二蹦子还好好活着呢。天底下只有赚不到钱被腰斩的，哪有收费榜常年第一 ...</blockquote>
+废狗其实这几年决算里有数次提自家的成本高于竞品手游……尤其是跟cy那边的形势差的非常巨大。虽然有一部分是因为金沢利幸的宣传手法效率不高，导致过于高额的宣传成本
+
+关是应该不会那么早关，没开发环节或者减缓开发以后成本可以控制到一个不高的水平（但是废狗麻烦代码繁复落后、运维成本比较巨大+不肯把服务器搬离东京这两点就足够致命了）。续作可能性很低，他家对外招人的时候还说的挺明白的
+
+至于现在的登顶比起以前的登顶有什么问题，我在隔壁国服楼稍微展开了一下
+
+*****
+
+####  alucardcz  
+##### 3674#       发表于 2022-11-25 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58608991&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-11-25 15:23</a>
+
+实际上甚少手游是因为真·运营不下去了关服的，大部分都是主创中的任意一人合同到期以后不续约/分赃不均 ...</blockquote>
+你说的这些全都可以用一个字总结 那就是钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
