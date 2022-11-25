@@ -13099,3 +13099,26 @@ CE改
 
 nmh啊，第五章刷了四个多小时通关了告诉我tmd要从进魔王城开始选不进队才能救白，作者你是不是有那么个大病，我tm没留档啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Senbascira  
+##### 2627#       发表于 2022-11-26 06:52
+
+好消息，习惯性留了个档，坏消息，这下要重刷了。
+我真是谢谢你啊作者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mlfans  
+##### 2628#       发表于 2022-11-26 06:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58620116&amp;ptid=2098044" target="_blank">Senbascira 发表于 2022-11-26 06:28</a>
+nmh啊，第五章刷了四个多小时通关了告诉我tmd要从进魔王城开始选不进队才能救白，作者你是不是有那么个大病 ...</blockquote>
+实际通关后会发现其实也无所谓，救不救都是游戏流程，这游戏突出一个过程中错过了啥最后都能找补。
+
+少掉的道具最终章迷宫也能刷，错过的boss也会打。
+
+当然因为中途剧情还是有几句话的差别的，强迫症患者那是没办法了。
+
