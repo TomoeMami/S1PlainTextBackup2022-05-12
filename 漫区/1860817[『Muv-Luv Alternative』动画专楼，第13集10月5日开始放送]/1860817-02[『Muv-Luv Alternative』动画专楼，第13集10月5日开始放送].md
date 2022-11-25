@@ -538,3 +538,14 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 
 下集小武爆种名场面，经费会继续增加吗
 
+
+
+*****
+
+####  kamarus  
+##### 2048#       发表于 2022-11-25 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58601602&amp;ptid=1860817" target="_blank">SHIRT 发表于 2022-11-25 06:39</a>
+下集小武爆种名场面，经费会继续增加吗</blockquote>
+会吧，pv里不是有beta们围观武爷跳来跳去的吗
+
