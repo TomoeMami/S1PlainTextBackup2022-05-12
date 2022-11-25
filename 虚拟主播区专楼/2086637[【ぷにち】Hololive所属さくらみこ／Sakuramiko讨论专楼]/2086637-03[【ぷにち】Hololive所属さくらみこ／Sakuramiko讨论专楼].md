@@ -1958,3 +1958,19 @@ peko上个月也出过一次，你问我也不懂啊，反正等后续发表了
 
 隔壁铁匠出粉的呆火鳄了,35你这运气啊
 
+
+
+*****
+
+####  ZQXY2002  
+##### 3190#       发表于 2022-11-26 00:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还不出，真要整个1000只吗。这耐久直播当电台听还行，就是聊的内容过于跳跃。
+
+*****
+
+####  rs5621  
+##### 3191#       发表于 2022-11-26 00:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">同接很坚挺啊,3个小时了还维持在4w2左右
+

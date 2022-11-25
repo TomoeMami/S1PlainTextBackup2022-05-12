@@ -1088,3 +1088,16 @@ boss护盾打完之后直接灵能剑特殊攻击蓄能上去一刀砍到boss直
 和野人组队一直玩聪明头，艰难到了10级终于有盾牌可以用了，我看别人用的双管mg42是要几级解锁的，我才拿 ...</blockquote>
 大枪好像是20还是25来着
 
+
+
+*****
+
+####  415452356  
+##### 105#       发表于 2022-11-26 00:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58618292&amp;ptid=1951151" target="_blank">古代人皮克 发表于 2022-11-25 23:57</a>
+大枪好像是20还是25来着</blockquote>
+  那还有的折腾，野人不喜欢玩聪明头要是我自己不玩就很容易翻车
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
