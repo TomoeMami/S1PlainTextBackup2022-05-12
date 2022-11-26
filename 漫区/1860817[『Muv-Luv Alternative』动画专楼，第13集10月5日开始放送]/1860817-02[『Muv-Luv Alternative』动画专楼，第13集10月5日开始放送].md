@@ -632,3 +632,14 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 
 从火力准备，到全甲板突击，都描写了一遍，这第二季已经值了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  亚尔古水手  
+##### 2056#       发表于 2022-11-26 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58605440&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2022-11-25 12:28</a>
+查了下还真可能是德国那边的典故</blockquote>
+二战期间着名的惩戒营
+
