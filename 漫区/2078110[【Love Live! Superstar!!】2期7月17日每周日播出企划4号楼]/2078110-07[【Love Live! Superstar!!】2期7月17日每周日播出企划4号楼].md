@@ -5863,3 +5863,25 @@ dondon桑，笑死了。
 
 说起来vn那套solo真的挺不错的，出了可以买。
 
+
+
+*****
+
+####  player3960  
+##### 9466#       发表于 2022-11-26 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58620725&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-11-26 09:19</a>
+
+运营:明年还有两个，想到这里是不是感觉很淦？</blockquote>
+三期没什么感觉呢，除非来四期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 9467#       发表于 2022-11-26 10:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58620725&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-11-26 09:19</a>
+
+运营:明年还有两个，想到这里是不是感觉很淦？</blockquote>
+是三个谢谢jpg
+
