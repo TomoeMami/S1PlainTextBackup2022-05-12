@@ -13144,3 +13144,19 @@ nmh啊，第五章刷了四个多小时通关了告诉我tmd要从进魔王城�
 
 —— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  永远的访客  
+##### 2631#       发表于 2022-11-26 08:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58619371&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-11-26 02:07</a>
+
+三阶段应该比二阶段简单的说。体大不动，站桩不担心技能覆盖不到。
+
+觉得刮就带爆发，拼一点带暗黑狂热，就 ...</blockquote>
+昨晚开了一些星盘点，级别也拉到65，补过去了。
+
+二阶段主要是要带长武器，放的炸弹相对威胁最大，尽量远距离清，没事蓄个力。boss放禁技能时先去把小怪清掉解除掉就好了，地图大可以安心刮。三阶段有好几招威力很大，放招时需要用技能兑掉不然会挂。（我最喜欢用的是空舞，耗精低又技能过程移动范围大，基本无缝了）。这游戏仁慈在boss放招前还会打台词不需要观察对方动作，小品制作没那么多预算设计boss多种动作<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
