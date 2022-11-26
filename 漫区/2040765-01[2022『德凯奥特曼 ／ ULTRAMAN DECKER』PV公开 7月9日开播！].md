@@ -368,3 +368,14 @@ PS：那么大的日式中文字“大蚁超兽”，星空字幕组能翻译成
 
 久弥，出院！
 
+
+
+*****
+
+####  赤道氮  
+##### 774#       发表于 2022-11-26 13:19
+
+队长什么都知道嘛<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2118A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
