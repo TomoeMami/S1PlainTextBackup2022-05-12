@@ -294,3 +294,14 @@ PS：那么大的日式中文字“大蚁超兽”，星空字幕组能翻译成
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">正常是正常，但是台词设计的水平还是有差距
 
+
+
+*****
+
+####  无敌のpeach  
+##### 769#       发表于 2022-11-26 11:05
+
+这索菲亚也太强了点吧，“亚波人要死了....!”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+另外最终章是要上院线的意思？
+
