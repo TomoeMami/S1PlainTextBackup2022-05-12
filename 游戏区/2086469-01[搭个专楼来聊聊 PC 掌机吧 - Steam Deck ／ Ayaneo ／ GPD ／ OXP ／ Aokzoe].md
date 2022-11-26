@@ -207,3 +207,24 @@ C、如果认为现在这个屏幕色彩满意，不想换屏，暂时不需要�
 
 ps5和sd怎么决定<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">数字版比sd便宜1k，但是ps5除了恶魂我也想不到买什么玩，sd的话目前情况没多大外出需求，电脑就在旁边，虽然很想下班就躺下玩一会睡觉这样子，但是我怕瘾没了就丢一边了
 
+
+
+*****
+
+####  精钢魔像  
+##### 525#       发表于 2022-11-26 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58626257&amp;ptid=2086469" target="_blank">isa2456 发表于 2022-11-26 16:18</a>
+
+ps5和sd怎么决定数字版比sd便宜1k，但是ps5除了恶魂我也想不到买什么玩，sd的话目前情况没多大外出 ...</blockquote>
+ps游戏很贵的
+
+*****
+
+####  Fuero  
+##### 526#       发表于 2022-11-26 17:29
+
+<blockquote>isa2456 发表于 2022-11-26 16:18
+ps5和sd怎么决定数字版比sd便宜1k，但是ps5除了恶魂我也想不到买什么玩，sd的话目前情况没多大外出 ...</blockquote>
+想不到ps5玩什么的话还是sd吧
+

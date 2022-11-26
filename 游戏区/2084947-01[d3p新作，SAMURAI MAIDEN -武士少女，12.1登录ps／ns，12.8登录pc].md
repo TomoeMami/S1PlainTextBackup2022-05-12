@@ -767,3 +767,15 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 
 要求不高，手感比女武神驱动好就行
 
+
+
+*****
+
+####  孫光龍  
+##### 73#       发表于 2022-11-26 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58626646&amp;ptid=2084947" target="_blank">liekong 发表于 2022-11-26 16:49</a>
+
+几百块买断无氪金扭蛋的手游还不好吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">可是他这个人物有点少，起码达到闪乱神乐无印的数量吧.......
+
