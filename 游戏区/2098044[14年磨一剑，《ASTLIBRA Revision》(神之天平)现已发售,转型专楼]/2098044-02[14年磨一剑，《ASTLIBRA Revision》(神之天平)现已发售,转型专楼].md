@@ -13213,3 +13213,27 @@ nmh啊，第五章刷了四个多小时通关了告诉我tmd要从进魔王城�
 
 3 后期可以随便买的，也只能道中用，精英怪用，没必要太仓鼠，不过我反正也不舍得用<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  urvark  
+##### 2636#       发表于 2022-11-26 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58620864&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-26 09:37</a>
+
+1 盾前冲有个乌鸦魔法可以禁掉（我常开），还有些你不喜欢开启的脑残动作技能可以用金头像硬币封掉（背包 ...</blockquote>
+我只是单纯的仓鼠症，不舍得用任何消耗道具，也不舍得卖或者丢……有地方能存起来或者在设置里让它别每次死了就问我用不用吗……这也太不人性化了
+
+*****
+
+####  verniy  
+##### 2637#       发表于 2022-11-26 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58620776&amp;ptid=2098044" target="_blank">urvark 发表于 2022-11-26 09:26</a>
+
+前几天刚开始玩，没玩之前看宣传视频以为这是2D伊苏，结果玩了才发现是2D黑魂，除了弱鸡杂鱼比如最小号的史 ...</blockquote>
+书店里卖封印章，买了之后可以和技能书合成把技能书封印，12两个问题都可以封印相对的技能解决
+
+3没啥好办法，只有一个的时候可以丢天平上，多了也不行
+
