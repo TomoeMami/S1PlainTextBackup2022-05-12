@@ -697,3 +697,14 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 
 为啥纯黑水手服的方案没采用，因为太初中生了么
 
+
+
+*****
+
+####  千千千千鸟  
+##### 66#       发表于 2022-11-26 15:00
+
+牛掰，准备买了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

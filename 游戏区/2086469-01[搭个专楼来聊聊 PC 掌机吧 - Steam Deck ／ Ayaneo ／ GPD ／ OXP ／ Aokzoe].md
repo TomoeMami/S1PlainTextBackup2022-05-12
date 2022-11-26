@@ -186,3 +186,15 @@ C、如果认为现在这个屏幕色彩满意，不想换屏，暂时不需要�
 
 —— 来自 OnePlus IN2010, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  紫煜  
+##### 523#       发表于 2022-11-26 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58624908&amp;ptid=2086469" target="_blank">Mzi 发表于 2022-11-26 14:41:28</a>
+据说是6800的马甲卡 v2.5.4</blockquote>记得奥克群管理说过是7800，而不是传闻中6800u马甲卡7735
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
