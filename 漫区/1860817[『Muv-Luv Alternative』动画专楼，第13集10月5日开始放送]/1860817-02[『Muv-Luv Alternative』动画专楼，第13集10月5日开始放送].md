@@ -749,3 +749,14 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 
 这回白银武终于想起来他的另一个名字叫“基拉·大和”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hlazd  
+##### 2065#       发表于 2022-11-27 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58632647&amp;ptid=1860817" target="_blank">hacisiki 发表于 2022-11-26 22:04</a>
+除了轨道AL弹仓外整场战役的所有机动单位全都是3D建模。</blockquote>
+UN远东舰队的鸭滑也有建模有炮击动画还好几个镜头，整个感觉就很奢侈…
+

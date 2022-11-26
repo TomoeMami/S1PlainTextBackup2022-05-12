@@ -13609,3 +13609,12 @@ ok多谢，看来3只能忍着了
 
 中午打到第八章，现在上去发现全部存档没了，咋回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Quelaan  
+##### 2669#       发表于 2022-11-27 00:17
+
+有人做了天平配平工具吗，我倒是找到个做这个的算法[https://blog.csdn.net/li_qw_er/article/details/124231008](https://blog.csdn.net/li_qw_er/article/details/124231008)
+
