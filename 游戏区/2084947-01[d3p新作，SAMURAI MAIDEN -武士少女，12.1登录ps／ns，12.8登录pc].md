@@ -641,3 +641,39 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 
 <img src="https://p.sda1.dev/8/891c6f5d7c9db8b9dd42d139cc967362/010 _1_.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  whzfjd  
+##### 62#       发表于 2022-11-26 12:22
+
+导购一图流
+
+<img src="https://img.saraba1st.com/forum/202211/26/122111rfvz7ft7m7cg2116.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-11-26_12-17-42.png</strong> (58.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-26 12:21 上传
+
+<img src="https://img.saraba1st.com/forum/202211/26/122111w2cc2c7br9g2grhh.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-11-26_12-17-21.png</strong> (24.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-26 12:21 上传
+
+看实机试玩有种物业之国1.5倍精致版的感觉，普攻比较朴素，但是动作非常细腻啊。
+
+*****
+
+####  宛若青空  
+##### 63#       发表于 2022-11-26 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58622690&amp;ptid=2084947" target="_blank">whzfjd 发表于 2022-11-26 12:22</a>
+导购一图流</blockquote>
+根据三个队友来看可以学的派生招式看起来还不少。
+

@@ -942,3 +942,18 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 为了同一比例（系列）出齐吧，而且现在有资源马上给你出胶的只有DTA了，除非找国内胶厂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 86#         楼主| 发表于 2022-11-26 12:27
+
+ 本帖最后由 江戸前ルナ 于 2022-11-26 12:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58622433&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2022-11-26 11:59</a>
+
+为了同一比例（系列）出齐吧，而且现在有资源马上给你出胶的只有DTA了，除非找国内胶厂
+
+月刊的采访D ...</blockquote>
+亲女儿阿星就一个，舞出了DTA基本就与肥姑妈和MD系无缘了。游戏内高人气本身色气度和机设也能吸引路人的tama酱就这么没了，讲真宁愿继续排队等。阿嘎本身出的能吸引路人的又有多少个。
+
