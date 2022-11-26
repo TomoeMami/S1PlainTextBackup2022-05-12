@@ -13546,3 +13546,36 @@ ok多谢，看来3只能忍着了
 3. 关于武器盘，8个格子是完全随机、还是说每种武器一共就那么几种武器盘。
 4. 如果为了净化掉落池，有没有必要把没啥用的武器卖掉。
 
+
+
+*****
+
+####  BQlin  
+##### 2664#       发表于 2022-11-26 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58630333&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-26 20:24</a>
+
+感谢各位的指导，已经顺利虐杀终章，满ST的风精灵确实卡的boss连动都动不了。。
+
+接下来是关于新章的许多问 ...</blockquote>
+2.强化是将最低级的白色词条转为最高级的蓝色词条，不同颜色的词条可以叠加，不冲突
+
+3.全随机
+
+*****
+
+####  A1LI  
+##### 2665#       发表于 2022-11-26 20:37
+
+ 本帖最后由 A1LI 于 2022-11-26 20:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58630333&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-26 20:24</a>
+
+感谢各位的指导，已经顺利虐杀终章，满ST的风精灵确实卡的boss连动都动不了。。
+
+接下来是关于新章的许多问 ...</blockquote>
+1:99级并不是最高的，可以强化的更高，但是最高是不是999这个没人知道，没那么材料强化。
+
+4:卖不卖都行，无所谓的。
+
+2和3见楼上。
+
