@@ -924,3 +924,12 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 昨天做梦梦到你游FAG联动出新的，祸月+崩天和杜尔迦+黑暗女王，推上像过节一样<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 84#         楼主| 发表于 2022-11-26 11:33
+
+弱智啊，舞这么色的一个扔去DTA，太TM浪费<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
