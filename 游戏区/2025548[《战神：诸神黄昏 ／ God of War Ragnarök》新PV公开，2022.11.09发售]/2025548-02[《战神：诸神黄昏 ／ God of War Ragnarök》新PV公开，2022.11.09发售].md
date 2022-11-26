@@ -2952,3 +2952,21 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 —— 来自 Sony XQ-BC72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  wornixxoo  
+##### 1773#       发表于 2022-11-26 12:59
+
+不敢爬楼怕剧透，请问这次字幕简体繁体哪个好点
+
+*****
+
+####  霸王向小受  
+##### 1774#       发表于 2022-11-26 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58623260&amp;ptid=2025548" target="_blank">wornixxoo 发表于 2022-11-26 12:59</a>
+不敢爬楼怕剧透，请问这次字幕简体繁体哪个好点</blockquote>
+简体被坑太多次了，现在都是无脑选繁体
+

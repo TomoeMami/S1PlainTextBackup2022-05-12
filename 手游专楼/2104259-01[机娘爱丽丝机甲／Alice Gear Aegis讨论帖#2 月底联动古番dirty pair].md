@@ -957,3 +957,12 @@ dirty pair，我还找来看过两集，起因是看过本子...
 月刊的采访D ...</blockquote>
 亲女儿阿星就一个，舞出了DTA基本就与肥姑妈和MD系无缘了。游戏内高人气本身色气度和机设也能吸引路人的tama酱就这么没了，讲真宁愿继续排队等。阿嘎本身出的能吸引路人的又有多少个。
 
+
+
+*****
+
+####  孫光龍  
+##### 87#       发表于 2022-11-26 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">只要双子发起进攻，一起都会好起来
+
