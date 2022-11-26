@@ -708,3 +708,12 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  oyss  
+##### 67#       发表于 2022-11-26 15:16
+
+就抱一下,贴个脸? 不真亲上去的么
+
