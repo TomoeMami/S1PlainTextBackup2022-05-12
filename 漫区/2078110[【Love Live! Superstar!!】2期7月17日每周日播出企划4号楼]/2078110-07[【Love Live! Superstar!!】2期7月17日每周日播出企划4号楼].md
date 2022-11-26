@@ -5832,3 +5832,23 @@ dondon桑，笑死了。
   -- 来自 能搜索的 Stage1官方 Android客户端 ...</blockquote>
 运营:明年还有两个，想到这里是不是感觉很淦？
 
+
+
+*****
+
+####  ViyViy  
+##### 9463#       发表于 2022-11-26 09:31
+
+这家好像是国内厂，还很年轻的那种？至少是不用担心购买渠道了？
+
+*****
+
+####  Piano-Forest  
+##### 9464#       发表于 2022-11-26 09:42
+
+【商品情報】【Liella!】SolarainよりLiella!1期生5人「オリジナル衣装1/7スケールフィギュア」の制作が決定しました！
+
+詳細はこちら⇒[https://www.lovelive-anime.jp/news/01_1360.html](https://www.lovelive-anime.jp/news/01_1360.html)
+<img src="https://p.sda1.dev/8/b909863046a53dc8437d3c405b00d36a/JP.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/c70605a11cc86f7b654a3ff88b088a0d/20221126_094015.jpg" referrerpolicy="no-referrer">
+

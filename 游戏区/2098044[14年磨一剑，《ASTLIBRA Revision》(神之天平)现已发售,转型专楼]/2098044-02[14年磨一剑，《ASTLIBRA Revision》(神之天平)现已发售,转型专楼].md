@@ -13187,3 +13187,29 @@ nmh啊，第五章刷了四个多小时通关了告诉我tmd要从进魔王城�
 前几天刚开始玩，没玩之前看宣传视频以为这是2D伊苏，结果玩了才发现是2D黑魂，除了弱鸡杂鱼比如最小号的史 ...</blockquote>
 直接买封印书把盾冲 上挑ban了
 
+
+
+*****
+
+####  urvark  
+##### 2634#       发表于 2022-11-26 09:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58620795&amp;ptid=2098044" target="_blank">胧楼 发表于 2022-11-26 09:28</a>
+
+直接买封印书把盾冲 上挑ban了</blockquote>
+哦这个好，另两个也能这么解决吗？
+
+*****
+
+####  永远的访客  
+##### 2635#       发表于 2022-11-26 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58620776&amp;ptid=2098044" target="_blank">urvark 发表于 2022-11-26 09:26</a>
+
+前几天刚开始玩，没玩之前看宣传视频以为这是2D伊苏，结果玩了才发现是2D黑魂，除了弱鸡杂鱼比如最小号的史 ...</blockquote>
+1 盾前冲有个乌鸦魔法可以禁掉（我常开），还有些你不喜欢开启的脑残动作技能可以用金头像硬币封掉（背包里2者合成一下）
+
+2 所以我不开连续攻击<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+3 后期可以随便买的，也只能道中用，精英怪用，没必要太仓鼠，不过我反正也不舍得用<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
