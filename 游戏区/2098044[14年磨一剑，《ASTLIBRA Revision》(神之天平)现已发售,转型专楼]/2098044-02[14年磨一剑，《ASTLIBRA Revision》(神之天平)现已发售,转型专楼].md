@@ -13133,3 +13133,14 @@ nmh啊，第五章刷了四个多小时通关了告诉我tmd要从进魔王城�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  onezer0618  
+##### 2630#       发表于 2022-11-26 08:38
+
+问个弱智问题，，，键盘操作的时候进入道具栏里面的移动逻辑是啥，跟手柄不一样啊
+
+—— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
