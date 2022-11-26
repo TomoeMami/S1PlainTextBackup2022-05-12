@@ -13667,3 +13667,15 @@ ok多谢，看来3只能忍着了
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  M1NG  
+##### 2674#       发表于 2022-11-27 04:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58636296&amp;ptid=2098044" target="_blank">取名真是难 发表于 2022-11-27 00:59</a>
+
+这个素材爆率感觉是不是有点问题，现在第四章装了盗贼技能海底的那几条鱼爆率还没有第三章时候没装技能的高 ...</blockquote>
+还是看运气，也可能是代码写的不太好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 火山那章我刷石像刷了可能有上百只都凑不够素材，都要吐了
+
