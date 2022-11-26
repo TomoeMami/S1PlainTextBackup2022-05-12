@@ -266,3 +266,22 @@ PS：那么大的日式中文字“大蚁超兽”，星空字幕组能翻译成
 
 话说索菲亚那么厉害吗，连亚波人都能控制。
 
+
+
+*****
+
+####  Piano-Forest  
+##### 767#         楼主| 发表于 2022-11-26 09:52
+
+12月剧集剧照（无序）
+<img src="https://p.sda1.dev/8/0028a2088dd7125f18e216fdcf4ba00f/20221125232614.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/1185bac8088e1eca3b99be13ca94fa53/20221125232614_20221125232629.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/ea35fc4060ab4ae842cec926e449eef3/20221125232614_20221125232628.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/813722501c4f7332e2e8e1f91263f24d/20221125232654.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0858dc1d8ad8243b5b8b9f4ff9652668/20221125232017_20221125232033.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/a1030201ca6f9dafd14a5e8c4780cc3f/20221125232218.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/ce41533ea577f1613df99c8c00684bd7/20221125232243.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/9cb3ca75db617b4e04559bdd0e3f3d65/20221125232017.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/a390ab19bf90e751d38fa236334405e4/20221125231814.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/e010ef9390add6cf3eac38f46985351c/20221125232346.png" referrerpolicy="no-referrer">
+

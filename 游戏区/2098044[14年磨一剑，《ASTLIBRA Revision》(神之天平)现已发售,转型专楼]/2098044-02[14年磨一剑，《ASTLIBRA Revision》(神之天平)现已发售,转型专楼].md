@@ -13237,3 +13237,17 @@ nmh啊，第五章刷了四个多小时通关了告诉我tmd要从进魔王城�
 
 3没啥好办法，只有一个的时候可以丢天平上，多了也不行
 
+
+
+*****
+
+####  urvark  
+##### 2638#       发表于 2022-11-26 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58620949&amp;ptid=2098044" target="_blank">verniy 发表于 2022-11-26 09:48</a>
+
+书店里卖封印章，买了之后可以和技能书合成把技能书封印，12两个问题都可以封印相对的技能解决
+
+3没啥好办 ...</blockquote>
+ok多谢，看来3只能忍着了
+
