@@ -13500,3 +13500,14 @@ ok多谢，看来3只能忍着了
 刮的有点顶不住了是我选困难的原因吗？各个难度等级差别很大吗？一周目是不是选普通更好 ...</blockquote>
 困难有成就，都是起手直接困难的。
 
+
+
+*****
+
+####  Senbascira  
+##### 2660#       发表于 2022-11-26 20:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58629490&amp;ptid=2098044" target="_blank">囧Smith 发表于 2022-11-26 19:48</a>
+刮的有点顶不住了是我选困难的原因吗？各个难度等级差别很大吗？一周目是不是选普通更好 ...</blockquote>
+第四章开始就不刮了，前提是把武器和装备还有成长都刷一刷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
