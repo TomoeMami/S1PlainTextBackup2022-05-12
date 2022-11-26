@@ -3047,3 +3047,20 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 80多小时白了，战神难度卡了一下女武神，老吃那个飞镖<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一个过路的  
+##### 1782#       发表于 2022-11-26 23:06
+
+ 本帖最后由 一个过路的 于 2022-11-26 23:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58632617&amp;ptid=2025548" target="_blank">矮矮人 发表于 2022-11-26 22:03</a>
+
+刚玩，多人锁定是不是有点怪，总是打着打着不知道在打谁了
+
+还总是被后背一堆怪围殴 ...</blockquote>
+群战锁定不好用，不要锁。
+
+这游戏看着笨，其实格外讲究走位和控场。
+

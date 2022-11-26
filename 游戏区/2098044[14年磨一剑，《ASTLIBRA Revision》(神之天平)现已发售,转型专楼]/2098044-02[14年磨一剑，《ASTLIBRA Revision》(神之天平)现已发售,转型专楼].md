@@ -13600,3 +13600,12 @@ ok多谢，看来3只能忍着了
 
 这天平洞窟的龙boss，从旧章到新章，都是一脉相承打起来刮痧，气死人了。
 
+
+
+*****
+
+####  lawww  
+##### 2668#       发表于 2022-11-26 23:04
+
+中午打到第八章，现在上去发现全部存档没了，咋回事啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
