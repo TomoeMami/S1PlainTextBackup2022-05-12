@@ -5852,3 +5852,14 @@ dondon桑，笑死了。
 <img src="https://p.sda1.dev/8/b909863046a53dc8437d3c405b00d36a/JP.jpeg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/c70605a11cc86f7b654a3ff88b088a0d/20221126_094015.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9465#       发表于 2022-11-26 10:07
+
+原画漂亮，手办我就要打问号了。事到如今还在消费五色战队，是觉得二期生卖不出去吗。
+
+说起来vn那套solo真的挺不错的，出了可以买。
+

@@ -623,3 +623,12 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 
 什么 后宫番真的会有豚豚进来么<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  亚尔古水手  
+##### 2055#       发表于 2022-11-26 10:11
+
+从火力准备，到全甲板突击，都描写了一遍，这第二季已经值了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
