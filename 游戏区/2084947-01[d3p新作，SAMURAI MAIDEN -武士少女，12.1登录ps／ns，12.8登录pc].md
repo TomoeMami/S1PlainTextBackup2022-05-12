@@ -717,3 +717,14 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 
 就抱一下,贴个脸? 不真亲上去的么
 
+
+
+*****
+
+####  宛若青空  
+##### 68#       发表于 2022-11-26 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58625329&amp;ptid=2084947" target="_blank">oyss 发表于 2022-11-26 15:16</a>
+就抱一下,贴个脸? 不真亲上去的么</blockquote>
+我记得是有阶段的，亲密程度逐渐升级，最后会到口唇相交的程度，至于亲上去瞬间给仔细看还是亲上的瞬间白光就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+

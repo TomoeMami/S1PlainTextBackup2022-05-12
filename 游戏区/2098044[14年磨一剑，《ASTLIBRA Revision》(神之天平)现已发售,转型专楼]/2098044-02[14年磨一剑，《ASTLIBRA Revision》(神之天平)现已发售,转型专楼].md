@@ -13318,3 +13318,17 @@ ok多谢，看来3只能忍着了
 
 — from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  cc-2  
+##### 2645#       发表于 2022-11-26 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58625206&amp;ptid=2098044" target="_blank">AeonsTorn 发表于 2022-11-26 15:06</a>
+
+最后一个技能是杀神剑给的，杀神剑要求收集光剑除外的所有武器盾牌铠甲，你大概漏了某个给绿水晶的装备吧 ...</blockquote>
+神杀剑一周目就拿了啊
+
+所以才觉得奇怪
+
