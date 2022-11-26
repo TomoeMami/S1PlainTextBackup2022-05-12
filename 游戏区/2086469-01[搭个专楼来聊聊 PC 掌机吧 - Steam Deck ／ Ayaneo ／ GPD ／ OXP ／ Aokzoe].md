@@ -237,3 +237,15 @@ ps5和sd怎么决定数字版比sd便宜1k，但是ps5除了恶魂我也想不�
 
 sd原生系统玩gal和模拟器肯定不方便，刷windows玩模拟器的话体验如何
 
+
+
+*****
+
+####  isa2456  
+##### 528#       发表于 2022-11-26 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58627123&amp;ptid=2086469" target="_blank">精钢魔像 发表于 2022-11-26 17:25</a>
+
+ps游戏很贵的</blockquote>
+一直有跟朋友合购，所以相当于半价吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

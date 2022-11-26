@@ -808,3 +808,12 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 
 虽然肉眼可见的不好玩，但是它有美少女贴贴，当然要买爆啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无动于衷  
+##### 77#       发表于 2022-11-26 19:35
+
+我严重怀疑d3是不是觉得御姐武戏卖不出去才改的JK
+

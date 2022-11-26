@@ -13469,3 +13469,16 @@ ok多谢，看来3只能忍着了
 才开始玩，这游戏有什么错过就无法弥补或者一定要做的事么？</blockquote>
 非要说无法弥补的话没有，但一周目最好能拿到三个爱情
 
+
+
+*****
+
+####  Tissuesea  
+##### 2657#       发表于 2022-11-26 19:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58628772&amp;ptid=2098044" target="_blank">撸一记 发表于 2022-11-26 19:09</a>
+才开始玩，这游戏有什么错过就无法弥补或者一定要做的事么？</blockquote>
+最好每章开头去一下竞技场，给的东西挺急需的（然后看竞技场出现的怪你就知道每章怪是啥类型的）
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
