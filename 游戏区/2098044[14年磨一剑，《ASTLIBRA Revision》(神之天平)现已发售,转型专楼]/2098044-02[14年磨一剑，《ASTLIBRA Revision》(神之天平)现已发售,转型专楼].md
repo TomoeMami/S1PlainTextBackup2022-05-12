@@ -13482,3 +13482,21 @@ ok多谢，看来3只能忍着了
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  囧Smith  
+##### 2658#       发表于 2022-11-26 19:48
+
+刮的有点顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是我选困难的原因吗？各个难度等级差别很大吗？一周目是不是选普通更好
+
+*****
+
+####  otakun  
+##### 2659#       发表于 2022-11-26 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58629490&amp;ptid=2098044" target="_blank">囧Smith 发表于 2022-11-26 19:48</a>
+刮的有点顶不住了是我选困难的原因吗？各个难度等级差别很大吗？一周目是不是选普通更好 ...</blockquote>
+困难有成就，都是起手直接困难的。
+
