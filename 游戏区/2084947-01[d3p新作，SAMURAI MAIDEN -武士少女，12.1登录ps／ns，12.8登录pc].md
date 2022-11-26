@@ -779,3 +779,14 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 几百块买断无氪金扭蛋的手游还不好吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">可是他这个人物有点少，起码达到闪乱神乐无印的数量吧.......
 
+
+
+*****
+
+####  415452356  
+##### 74#       发表于 2022-11-26 17:35
+
+  想要玩有质量的姑娘砍杀游戏还是等御姐武戏吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
