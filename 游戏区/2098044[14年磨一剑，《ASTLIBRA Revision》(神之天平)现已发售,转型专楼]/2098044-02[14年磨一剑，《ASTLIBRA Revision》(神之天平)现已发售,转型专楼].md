@@ -13373,3 +13373,19 @@ ok多谢，看来3只能忍着了
 我傻了，装备盘捡到还能取消的？这是什么设定</blockquote>
 常规设定。装备盘分三个等级，捡到差的当然可以不要
 
+
+
+*****
+
+####  wsgxsm  
+##### 2650#       发表于 2022-11-26 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58626277&amp;ptid=2098044" target="_blank">cc-2 发表于 2022-11-26 16:20</a>
+
+神杀剑一周目就拿了啊
+
+所以才觉得奇怪</blockquote>
+嘉隆那个是不是捏他恶魔城的技能没拿？
+
+全装备包括面包店防具都拿了的话还差个绿水晶就只能带着鼻子/翻着攻略扫图了
+
