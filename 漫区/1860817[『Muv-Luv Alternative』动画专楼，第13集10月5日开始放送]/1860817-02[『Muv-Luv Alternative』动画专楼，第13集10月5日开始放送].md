@@ -740,3 +740,12 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 
 制圧支援ブラスト・ガード ​​​
 
+
+
+*****
+
+####  灰谷真实  
+##### 2064#       发表于 2022-11-26 23:30
+
+这回白银武终于想起来他的另一个名字叫“基拉·大和”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
