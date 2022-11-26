@@ -5969,3 +5969,14 @@ tx这个ai调的还行
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ads147147  
+##### 9476#       发表于 2022-11-26 22:30
+
+合鲤口罩，唯独鲤鱼姐不会让我们失望。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
