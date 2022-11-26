@@ -13579,3 +13579,15 @@ ok多谢，看来3只能忍着了
 
 2和3见楼上。
 
+
+
+*****
+
+####  真实之影  
+##### 2666#       发表于 2022-11-26 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58628772&amp;ptid=2098044" target="_blank">撸一记 发表于 2022-11-26 19:09</a>
+
+才开始玩，这游戏有什么错过就无法弥补或者一定要做的事么？</blockquote>
+全游戏唯一一个错过就没了的宝箱在开头村子商店里跳出来，但是就3个钥匙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
