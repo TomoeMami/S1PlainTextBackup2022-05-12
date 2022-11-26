@@ -13332,3 +13332,44 @@ ok多谢，看来3只能忍着了
 
 所以才觉得奇怪
 
+
+
+*****
+
+####  逃离学校  
+##### 2646#       发表于 2022-11-26 16:43
+
+我傻了，装备盘捡到还能取消的？这是什么设定
+
+*****
+
+####  otakun  
+##### 2647#       发表于 2022-11-26 16:46
+
+ 本帖最后由 otakun 于 2022-11-26 16:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58626575&amp;ptid=2098044" target="_blank">逃离学校 发表于 2022-11-26 16:43</a>
+
+我傻了，装备盘捡到还能取消的？这是什么设定</blockquote>
+
+后期一大堆，属性随机品质随机，当然可以取消啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，强行替换吗
+
+*****
+
+####  逃离学校  
+##### 2648#       发表于 2022-11-26 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58626613&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-26 16:46</a>
+
+后期一大堆，属性随机品质随机，当然可以取消啊，强行替换吗</blockquote>
+<[img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">原来如此，我还以为很难掉
+
+*****
+
+####  gwchobit  
+##### 2649#       发表于 2022-11-26 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58626575&amp;ptid=2098044" target="_blank">逃离学校 发表于 2022-11-26 16:43</a>
+
+我傻了，装备盘捡到还能取消的？这是什么设定</blockquote>
+常规设定。装备盘分三个等级，捡到差的当然可以不要
+

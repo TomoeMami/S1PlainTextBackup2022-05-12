@@ -737,3 +737,15 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">感觉着画面和玩法都是手游水平........
 
+
+
+*****
+
+####  liekong  
+##### 70#       发表于 2022-11-26 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58626422&amp;ptid=2084947" target="_blank">孫光龍 发表于 2022-11-26 16:31</a>
+
+感觉着画面和玩法都是手游水平........</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几百块买断无氪金扭蛋的手游还不好吗
+
