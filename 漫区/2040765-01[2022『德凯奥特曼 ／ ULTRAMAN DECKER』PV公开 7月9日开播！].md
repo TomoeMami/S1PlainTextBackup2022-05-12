@@ -285,3 +285,12 @@ PS：那么大的日式中文字“大蚁超兽”，星空字幕组能翻译成
 <img src="https://p.sda1.dev/8/a390ab19bf90e751d38fa236334405e4/20221125231814.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/e010ef9390add6cf3eac38f46985351c/20221125232346.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  scorbian  
+##### 768#       发表于 2022-11-26 10:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">正常是正常，但是台词设计的水平还是有差距
+
