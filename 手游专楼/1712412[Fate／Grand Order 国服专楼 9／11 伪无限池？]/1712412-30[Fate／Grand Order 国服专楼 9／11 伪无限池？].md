@@ -1478,3 +1478,16 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 运营到这个时间会有什么样的未来都不奇怪了啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kazemitoya  
+##### 43775#       发表于 2022-11-26 22:37
+
+在某宝不可描述弄的友情点已经刷完接近一周了
+
+但科技号还在继续，每天贡献300-400多万友情，加起来又两三千万了
+
+我突然有种负罪感<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
