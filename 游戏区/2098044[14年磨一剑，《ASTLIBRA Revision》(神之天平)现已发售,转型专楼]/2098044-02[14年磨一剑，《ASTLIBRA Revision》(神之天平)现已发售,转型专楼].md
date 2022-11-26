@@ -13653,3 +13653,17 @@ ok多谢，看来3只能忍着了
 
 这个素材爆率感觉是不是有点问题，现在第四章装了盗贼技能海底的那几条鱼爆率还没有第三章时候没装技能的高，同章老鹰却爆率非常高达到了技能的预期收益
 
+
+
+*****
+
+####  rgauss  
+##### 2673#       发表于 2022-11-27 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58636296&amp;ptid=2098044" target="_blank">取名真是难 发表于 2022-11-27 00:59</a>
+这个素材爆率感觉是不是有点问题，现在第四章装了盗贼技能海底的那几条鱼爆率还没有第三章时候没装技能的高 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是这样的 体感就是每个新图的前俩素材很好掉 后面的要刷半天 
+比如说3图的龙角我就刷了半天
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
