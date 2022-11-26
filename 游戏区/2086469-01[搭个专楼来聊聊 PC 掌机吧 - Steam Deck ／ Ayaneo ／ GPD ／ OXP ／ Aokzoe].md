@@ -249,3 +249,15 @@ sd原生系统玩gal和模拟器肯定不方便，刷windows玩模拟器的话�
 ps游戏很贵的</blockquote>
 一直有跟朋友合购，所以相当于半价吧<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LMBS  
+##### 529#       发表于 2022-11-27 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58627509&amp;ptid=2086469" target="_blank">妄想中毒 发表于 2022-11-26 17:55</a>
+sd原生系统玩gal和模拟器肯定不方便，刷windows玩模拟器的话体验如何</blockquote>
+STEAMOS玩模拟器很适合，安装方便自动调教好，放个BIOS转换下游戏格式就能玩。
+WiiU异度X 风之杖，PS3机战 圣恩这些试了开头都能跑个实机效果
+

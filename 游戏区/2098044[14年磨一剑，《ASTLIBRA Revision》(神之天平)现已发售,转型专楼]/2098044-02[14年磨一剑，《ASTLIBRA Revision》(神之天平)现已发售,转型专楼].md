@@ -13618,3 +13618,29 @@ ok多谢，看来3只能忍着了
 
 有人做了天平配平工具吗，我倒是找到个做这个的算法[https://blog.csdn.net/li_qw_er/article/details/124231008](https://blog.csdn.net/li_qw_er/article/details/124231008)
 
+
+
+*****
+
+####  gwchobit  
+##### 2670#       发表于 2022-11-27 00:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58635424&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-11-27 00:17</a>
+
+有人做了天平配平工具吗，我倒是找到个做这个的算法https://blog.csdn.net/li_qw_er/article/details/12423 ...</blockquote>
+可能终章有些用吧，除了三连女神之前道具是流动的。配天平就是几分钟的事儿，从重到轻排，选要的属性，倒序左1右1最后两个摇摆位，几分钟的事儿
+
+
+
+*****
+
+####  M1NG  
+##### 2671#       发表于 2022-11-27 00:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58628772&amp;ptid=2098044" target="_blank">撸一记 发表于 2022-11-26 19:09</a>
+
+才开始玩，这游戏有什么错过就无法弥补或者一定要做的事么？</blockquote>
+感觉会在剧情上有点膈应的是第五章，很在意的话查一查会有很多说这个的视频。实际上倒是完全没有影响，只是会有点心里不太舒服。
+
+其他没啥了，尽量要多保存多保存，有时候想试一试选了某个选项，直接就提前结局了，要是没保存就只能从上个存档点开始再来一回了。
+
