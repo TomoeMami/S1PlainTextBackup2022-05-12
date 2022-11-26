@@ -749,3 +749,12 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 感觉着画面和玩法都是手游水平........</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">几百块买断无氪金扭蛋的手游还不好吗
 
+
+
+*****
+
+####  嘉术2015  
+##### 71#       发表于 2022-11-26 17:00
+
+女武神驱动的精神续作？
+
