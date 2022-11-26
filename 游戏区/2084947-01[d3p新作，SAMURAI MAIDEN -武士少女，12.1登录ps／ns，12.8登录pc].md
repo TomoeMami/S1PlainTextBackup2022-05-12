@@ -817,3 +817,16 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 
 我严重怀疑d3是不是觉得御姐武戏卖不出去才改的JK
 
+
+
+*****
+
+####  415452356  
+##### 78#       发表于 2022-11-26 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58629216&amp;ptid=2084947" target="_blank">无动于衷 发表于 2022-11-26 19:35</a>
+我严重怀疑d3是不是觉得御姐武戏卖不出去才改的JK</blockquote>
+  开发商不是一家，如果是御姐武戏开发商反而不用担心游戏性问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
