@@ -175,3 +175,14 @@ oxp出2代了，可拆卸手柄，希望不要像上次那个那样蛋疼
 
 C、如果认为现在这个屏幕色彩满意，不想换屏，暂时不需要返现200。可享受以1999元（原价2599）在23年5月30日前更换AMD 7000系CPU的主板，如23年5月30日前无法发货可申请返还200元。并持续享受约定价格，注：有可能提前。 
 
+
+
+*****
+
+####  Mzi  
+##### 522#       发表于 2022-11-26 14:41
+
+据说是6800的马甲卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2010, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
