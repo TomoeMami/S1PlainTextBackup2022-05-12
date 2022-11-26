@@ -5894,3 +5894,20 @@ dondon桑，笑死了。
 
 不如拿这套图出点别的吧……立牌不好吗？另外其他人的粘土人什么时候出？
 
+
+
+*****
+
+####  ads147147  
+##### 9469#       发表于 2022-11-26 11:02
+
+<img src="https://img.saraba1st.com/forum/202211/26/110018sk1uizsnwwnikfk6.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221126110007.jpg</strong> (250.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-26 11:00 上传
+
+tx这个ai调的还行
+

@@ -56,3 +56,16 @@
 
 今天的答案是 阿德里亚诺•卡拉撒
 
+
+
+*****
+
+####  扑克脸军曹  
+##### 1708#       发表于 2022-11-26 10:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58617492&amp;ptid=2027972" target="_blank">leystage 发表于 2022-11-25 23:09</a>
+中南美</blockquote>
+第一天瞎选了一个，答错不发奖励有点坑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
