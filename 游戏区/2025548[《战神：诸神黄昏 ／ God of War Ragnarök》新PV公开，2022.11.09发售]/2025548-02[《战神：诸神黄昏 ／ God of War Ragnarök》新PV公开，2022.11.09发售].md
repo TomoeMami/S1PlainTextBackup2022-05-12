@@ -3015,3 +3015,18 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 —— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  415452356  
+##### 1779#       发表于 2022-11-26 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58630671&amp;ptid=2025548" target="_blank">牛油 发表于 2022-11-26 20:42</a>
+最后阿特柔斯对密密尔说你就像我第二个父亲一样，真没忍住狂哭...
+
+—— 来自 samsung SM-N9860, Android 1 ...</blockquote>
+  “没能让你觉得我能帮你是我的错。”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
