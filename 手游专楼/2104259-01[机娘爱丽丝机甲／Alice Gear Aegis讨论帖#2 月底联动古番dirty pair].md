@@ -977,3 +977,17 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 希望狗大户给狗屋做。
 
+
+
+*****
+
+####  madcow  
+##### 89#       发表于 2022-11-26 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58621870&amp;ptid=2104259" target="_blank">Cyau 发表于 2022-11-26 11:14</a>
+
+原来你游还记得出胶
+
+昨天做梦梦到你游FAG联动出新的，祸月+崩天和杜尔迦+黑暗女王，推上像过节一样[ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">骨架子呢（（
+

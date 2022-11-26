@@ -13441,3 +13441,31 @@ ok多谢，看来3只能忍着了
 
 才开始玩，这游戏有什么错过就无法弥补或者一定要做的事么？
 
+
+
+*****
+
+####  cc-2  
+##### 2655#       发表于 2022-11-26 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58628407&amp;ptid=2098044" target="_blank">管住键政的手 发表于 2022-11-26 18:47</a>
+
+放包里就行，宝石确定拿了吗？</blockquote>
+宝石强化到10级了
+
+然后想去装备它，就是找不到
+
+以为是不是装到哪个卸下来的装备上了，也没找到
+
+十分诡异
+
+*****
+
+####  从零开始的ccc  
+##### 2656#       发表于 2022-11-26 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58628772&amp;ptid=2098044" target="_blank">撸一记 发表于 2022-11-26 19:09</a>
+
+才开始玩，这游戏有什么错过就无法弥补或者一定要做的事么？</blockquote>
+非要说无法弥补的话没有，但一周目最好能拿到三个爱情
+

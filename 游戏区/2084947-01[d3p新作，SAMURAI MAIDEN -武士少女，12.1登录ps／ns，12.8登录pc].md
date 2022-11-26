@@ -799,3 +799,12 @@ dx版有子弹少女的bgm，前世已经被看穿了（
 
 看群里ns预购的说游戏预加载不到3个g
 
+
+
+*****
+
+####  cqc1021  
+##### 76#       发表于 2022-11-26 19:30
+
+虽然肉眼可见的不好玩，但是它有美少女贴贴，当然要买爆啦<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
