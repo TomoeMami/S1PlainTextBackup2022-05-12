@@ -2970,3 +2970,15 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 不敢爬楼怕剧透，请问这次字幕简体繁体哪个好点</blockquote>
 简体被坑太多次了，现在都是无脑选繁体
 
+
+
+*****
+
+####  Znesmoc  
+##### 1775#       发表于 2022-11-26 13:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58623260&amp;ptid=2025548" target="_blank">wornixxoo 发表于 2022-11-26 12:59</a>
+
+不敢爬楼怕剧透，请问这次字幕简体繁体哪个好点</blockquote>
+简繁都有点错译问题，喜欢啥用啥吧，注意听英文原文就行
+
