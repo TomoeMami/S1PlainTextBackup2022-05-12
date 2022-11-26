@@ -305,3 +305,24 @@ PS：那么大的日式中文字“大蚁超兽”，星空字幕组能翻译成
 
 另外最终章是要上院线的意思？
 
+
+
+*****
+
+####  Piano-Forest  
+##### 770#         楼主| 发表于 2022-11-26 11:11
+
+『ウルトラマンデッカー最終章 旅立ちの彼方へ…』
+
+2023年2月23日(木･祝)公開決定
+
+「TSUBURAYA IMAGINATION」
+
+オンライン独占配信
+
+全国劇場でも同時公開！
+
+特报PV：[https://youtu.be/sD16Lt9JawM](https://youtu.be/sD16Lt9JawM)
+
+<img src="https://p.sda1.dev/8/97cd20e1dec2ac241cbb218780d0a50b/20221126011406.png" referrerpolicy="no-referrer">
+
