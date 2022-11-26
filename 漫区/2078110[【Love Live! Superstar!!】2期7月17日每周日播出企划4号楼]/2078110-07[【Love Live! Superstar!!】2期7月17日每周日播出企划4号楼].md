@@ -5931,3 +5931,21 @@ tx这个ai调的还行
 是三个谢谢jpg</blockquote>
 我知道是三个，但是VN本身提前登场了。剩下两个是未知的
 
+
+
+*****
+
+####  cat1230  
+##### 9472#       发表于 2022-11-26 21:36
+
+维他命这舞蹈不错啊，还可爱，穿着运动服跳起来也很可爱，动画咋拍成那么普通。。。。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  lj205  
+##### 9473#       发表于 2022-11-26 21:37
+
+合鲤一起发糖<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+

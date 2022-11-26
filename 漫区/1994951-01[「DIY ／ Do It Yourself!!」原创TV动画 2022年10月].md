@@ -6638,3 +6638,13 @@ self还搁这儿楔钉子呢，媳妇都快要给人睡了（排球人并感）<
 
 布丁还不入队吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 508#       发表于 2022-11-26 21:42
+
+11 月 26 日是「いい風呂の日」
+<img src="https://p.sda1.dev/8/92bca763da9c0088392f4d7b03d96027/shikayo_-1596482874932613120-img1.jpg" referrerpolicy="no-referrer">
+
