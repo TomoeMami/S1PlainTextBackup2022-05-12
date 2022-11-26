@@ -3030,3 +3030,20 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  矮矮人  
+##### 1780#       发表于 2022-11-26 22:03
+
+刚玩，多人锁定是不是有点怪，总是打着打着不知道在打谁了
+还总是被后背一堆怪围殴
+
+*****
+
+####  DelPiero  
+##### 1781#       发表于 2022-11-26 22:03
+
+80多小时白了，战神难度卡了一下女武神，老吃那个飞镖<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

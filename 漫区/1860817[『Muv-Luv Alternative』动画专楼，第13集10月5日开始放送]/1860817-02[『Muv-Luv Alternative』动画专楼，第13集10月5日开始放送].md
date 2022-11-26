@@ -688,3 +688,15 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 确实。86的联邦军总攻击场面只用烟花和无线电通讯来表现。在Muv里看到这一幕已经很满足了。 ...</blockquote>
 86除了战术机的cg，别的都没有很好的动画体现。而这里至少给纪伊尾张建模了，鸡枞不容易<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hacisiki  
+##### 2061#       发表于 2022-11-26 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58630494&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2022-11-26 20:33</a>
+
+86除了战术机的cg，别的都没有很好的动画体现。而这里至少给纪伊尾张建模了，鸡枞不容易 ...</blockquote>
+除了轨道AL弹仓外整场战役的所有机动单位全都是3D建模。
+

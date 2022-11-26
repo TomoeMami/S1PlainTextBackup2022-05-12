@@ -13591,3 +13591,12 @@ ok多谢，看来3只能忍着了
 才开始玩，这游戏有什么错过就无法弥补或者一定要做的事么？</blockquote>
 全游戏唯一一个错过就没了的宝箱在开头村子商店里跳出来，但是就3个钥匙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lh2004ily  
+##### 2667#       发表于 2022-11-26 22:06
+
+这天平洞窟的龙boss，从旧章到新章，都是一脉相承打起来刮痧，气死人了。
+
