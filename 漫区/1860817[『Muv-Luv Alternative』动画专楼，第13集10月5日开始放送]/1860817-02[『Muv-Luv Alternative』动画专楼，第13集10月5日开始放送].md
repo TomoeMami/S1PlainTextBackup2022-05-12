@@ -666,3 +666,14 @@ e绅士呗，不过steam上有正版，英文好的话可以看，我记得b站�
 从火力准备，到全甲板突击，都描写了一遍，这第二季已经值了</blockquote>
 确实。86的联邦军总攻击场面只用烟花和无线电通讯来表现。在Muv里看到这一幕已经很满足了。
 
+
+
+*****
+
+####  亚尔古水手  
+##### 2059#       发表于 2022-11-26 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58621878&amp;ptid=1860817" target="_blank">hacisiki 发表于 2022-11-26 11:15</a>
+而且和黑标不一样，大家都是3d可动</blockquote>
+从轨道轰炸/第一波al弹/第一次炮击/A-6登陆开辟登陆场/第二波炮击/whiskey战术机和机械化师团登陆（下略）每个都有动画表现，已经满足了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
