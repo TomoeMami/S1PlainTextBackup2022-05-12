@@ -418,3 +418,15 @@ PS：那么大的日式中文字“大蚁超兽”，星空字幕组能翻译成
 
 爹妈的全息影像留言插入的时机不太好，某人还是会唐突斯麦鲁——前辈给他整个活儿！艹！走！ጿ ኈ ቼ ዽ ጿ 构筑未来，希望之光，ultraman 脱力尬！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  游蜓  
+##### 778#       发表于 2022-11-26 15:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58625149&amp;ptid=2040765" target="_blank">RainbowSealife 发表于 2022-11-26 15:01</a>
+
+打戏坂本是正常发挥。亚布鲁便当领的太便宜，哈，已成斯菲亚的垫脚石了。（不知道为什么这两集亚布鲁没有以 ...</blockquote>
+皮套鸭脖人是亚波个体的合体吧，这回就只复活了一个单体，不过没想到斯菲亚能影响异次元人，真猛啊
+

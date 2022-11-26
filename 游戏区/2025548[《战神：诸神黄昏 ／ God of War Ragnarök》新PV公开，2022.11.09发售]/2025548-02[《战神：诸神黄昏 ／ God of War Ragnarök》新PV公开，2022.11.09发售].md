@@ -2991,3 +2991,16 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 请问光等的具体影响幅度是多少？
 
+
+
+*****
+
+####  415452356  
+##### 1777#       发表于 2022-11-26 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58625224&amp;ptid=2025548" target="_blank">jbjack1215 发表于 2022-11-26 15:08</a>
+请问光等的具体影响幅度是多少？</blockquote>
+  红色（跨3级）不但要求无伤而且操作不能失误，紫色（跨2级）最多能扛两下，铜色（跨1级）不算事，黄色绿色（同级/碾压）只按攻击键都行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
