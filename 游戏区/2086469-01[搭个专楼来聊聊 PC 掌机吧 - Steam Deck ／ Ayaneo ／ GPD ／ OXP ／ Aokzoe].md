@@ -160,3 +160,18 @@ oxp出2代了，可拆卸手柄，希望不要像上次那个那样蛋疼
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  医生狼多  
+##### 521#       发表于 2022-11-26 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58622286&amp;ptid=2086469" target="_blank">魔法酪饼 发表于 2022-11-26 11:47</a>
+有啥消息了？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+之前出的补偿方案
+
+C、如果认为现在这个屏幕色彩满意，不想换屏，暂时不需要返现200。可享受以1999元（原价2599）在23年5月30日前更换AMD 7000系CPU的主板，如23年5月30日前无法发货可申请返还200元。并持续享受约定价格，注：有可能提前。 
+
