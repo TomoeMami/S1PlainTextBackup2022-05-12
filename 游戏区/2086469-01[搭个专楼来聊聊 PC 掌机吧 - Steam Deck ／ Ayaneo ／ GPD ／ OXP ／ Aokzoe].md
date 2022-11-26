@@ -148,3 +148,15 @@ oxp出2代了，可拆卸手柄，希望不要像上次那个那样蛋疼
 
 怪不得奥克自信5月前升级7000系
 
+
+
+*****
+
+####  魔法酪饼  
+##### 520#       发表于 2022-11-26 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58618098&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-11-25 23:45:17</a>
+怪不得奥克自信5月前升级7000系</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有啥消息了？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
