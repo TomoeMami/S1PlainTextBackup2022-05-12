@@ -7507,3 +7507,36 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 你看他故意给你一个练度不高的  让你可以有机会上自己的顶练从者啊 ...</blockquote>
 可惜我没有啊，大卫还是强制固定的<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 3686#       发表于 2022-11-27 20:45
+
+ 本帖最后由 eilot 于 2022-11-27 20:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58646957&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-27 18:44</a>
+
+你看他故意给你一个练度不高的  让你可以有机会上自己的顶练从者啊 ...</blockquote>
+某程度来讲，幕间只能出自己也算合理，虽然是噁心，不过也不用连礼装也不能用吧...
+
+现在这些突然出现的新幕间也只当成送钻活动吧
+
+不过第一章及1.5章池也不来一堆强化或幕间，但又不是全部有关角色都有，
+
+期待的金闪闪或爷爷还是没有
+
+就看之后的新活动是否也是饲料关来拖时间，拖到12月底(12月下旬，通常都是最后一星期才来)的2.7序(上)，但只得数关就完了，之后就圣诞，之后就是序(中)，序(下)....
+
+*****
+
+####  alucardcz  
+##### 3687#       发表于 2022-11-27 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58649755&amp;ptid=2084912" target="_blank">eilot 发表于 2022-11-27 20:45</a>
+
+某程度来讲，幕间只能出自己也算合理，虽然是噁心，不过也不用连礼装也不能用吧...
+
+现在这些突然出现的新 ...</blockquote>
+因为幕间以前你没有的人是不让你看的 这么做只是为了“提前体验”吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

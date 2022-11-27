@@ -3166,3 +3166,14 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 战神这种需要组合键 招式有多的动作游戏对我果然太难了，还是血源黑魂这种无脑r1就能通关的游戏简单
 
+
+
+*****
+
+####  Kazepollar  
+##### 1792#       发表于 2022-11-27 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58649623&amp;ptid=2025548" target="_blank">chrisluvdjmax 发表于 2022-11-27 20:39</a>
+ 女武神王红圈前冲那一下怎么躲 无论朝哪闪都会被打 无奈之下调成故事模式又死了半小时才勉强打过白金。 战 ...</blockquote>
+点两下闪就行啦
+
