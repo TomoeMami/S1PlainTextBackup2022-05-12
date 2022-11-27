@@ -1491,3 +1491,13 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 我突然有种负罪感<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimotsuki14  
+##### 43776#       发表于 2022-11-27 11:59
+
+开活动扔了一单石头分配到阿国和龙马各一半无事发生
+前两天看完龙马那段剧情之后抽了两张呼符居然来了
+

@@ -6050,3 +6050,15 @@ tx这个ai调的还行
 
 星空独白这曲子，到时候不会又是五人唱四人搁旁边摇吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许是五个人摇，加个结娜
 
+
+
+*****
+
+####  starring  
+##### 9484#       发表于 2022-11-27 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58640226&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-27 11:48</a>
+
+星空独白这曲子，到时候不会又是五人唱四人搁旁边摇吧也许是五个人摇，加个结娜 ...</blockquote>
+这歌起码要4th才会唱，得七个人摇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
