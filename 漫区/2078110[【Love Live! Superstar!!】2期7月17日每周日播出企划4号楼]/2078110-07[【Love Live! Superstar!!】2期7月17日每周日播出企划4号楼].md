@@ -5989,3 +5989,12 @@ tx这个ai调的还行
 
 要是以前的我看到今晚合鲤照大概能乐晕一晚上，天啊赐我一个没看过第二季清洗掉花田的回忆的大脑罢<img src="https://static.saraba1st.com/image/smiley/animal2017/028.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  snowballcc  
+##### 9478#       发表于 2022-11-27 10:28
+
+久违的合鲤发糖
+
