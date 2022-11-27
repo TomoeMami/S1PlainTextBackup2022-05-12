@@ -2153,3 +2153,44 @@ Glory Steady Go!
 
 サクラカゼ</blockquote>
 
+
+
+*****
+
+####  holoan  
+##### 3211#         楼主| 发表于 2022-11-27 20:59
+
+VARK其他方面不说
+
+一个其他平台做不到的最大的优势
+
+<img src="https://img.saraba1st.com/forum/202211/27/205952db966dwb9o3dpdq3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (177.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-27 20:59 上传
+
+*****
+
+####  rs5621  
+##### 3212#       发表于 2022-11-27 21:00
+
+不错,很高清
+
+*****
+
+####  rs5621  
+##### 3213#       发表于 2022-11-27 21:00
+
+<img src="https://img.saraba1st.com/forum/202211/27/210038p7jwd3hwq7d7dzpy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-27 21:00 上传
+
+我投了个否
+
