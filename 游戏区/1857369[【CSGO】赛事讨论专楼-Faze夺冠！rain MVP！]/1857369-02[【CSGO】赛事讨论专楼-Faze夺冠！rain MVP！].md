@@ -50,3 +50,14 @@ Blast这个表演赛有点意思啊<img src="https://static.saraba1st.com/image/
 
 感觉先别对blast巴黎期待太高，毕竟blast总部丹麦主场，资源优势多。就像ESL总部科隆，分部卡托活动也不会差
 
+
+
+*****
+
+####  Rainwedell  
+##### 2922#       发表于 2022-11-28 00:01
+
+效果确实好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
