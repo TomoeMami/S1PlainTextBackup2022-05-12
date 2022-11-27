@@ -3284,3 +3284,24 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 鳄鱼哥嫌弃难打故事难度实在是有点菜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 不是嘲笑你啊，别介意
 
+
+
+*****
+
+####  windtrack_qh  
+##### 1801#       发表于 2022-11-27 23:14
+
+ 本帖最后由 windtrack_qh 于 2022-11-27 23:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58652571&amp;ptid=2025548" target="_blank">Kazepollar 发表于 2022-11-27 23:02</a>
+
+鳄鱼哥嫌弃难打故事难度实在是有点菜了
+
+不是嘲笑你啊，别介意</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不介意不介意，确实菜，得承认
+
+这代感觉倒不是打不过，就是小怪打起来太烦躁了。尤其是远程怪总在莫名其妙的位置刷出来。
+
+我4代还是平衡难度白金的，这回第一次打3怨怒者降了一次难度，沙漠打图书管理员卡了我一小时果断故事了
+
+可能这也是一种游戏阳痿的早期症状吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
