@@ -13867,3 +13867,12 @@ ok多谢，看来3只能忍着了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">全通了。。最终boss战中正好跳5万步成就、打完boss正好升99级，也太有演出效果了
 
+
+
+*****
+
+####  s3080722703  
+##### 2692#       发表于 2022-11-27 21:31
+
+想问下 火精灵，水女神这类技能的效果是什么，看文字描述看不懂…
+
