@@ -1433,3 +1433,22 @@ Selen这意思是想做个彩虹原创曲的翻唱播放台？
 
 莎小姐的世界杯观战窗简介里写着不想高血压的请前往舞元处<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 17759#       发表于 2022-11-28 01:45
+
+「我がさいね姉妹は永久に不灭です！」
+
+<img src="https://img.saraba1st.com/forum/202211/28/014415x8na1nbm18ghjh57.jpg" referrerpolicy="no-referrer">
+
+<strong>20221128_013839.jpg</strong> (174.47 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 01:44 上传
+
+只要还是第一个发出来的就不算火星。
+
