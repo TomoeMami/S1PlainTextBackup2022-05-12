@@ -73,3 +73,38 @@ tps://www.bilibili.com/video/BV1b8411L7va/?spm_id_from=333.337.search-card.all.c
 4w那个吗，价格也太哈人了</blockquote>
 嗯,除了hot limit和10th 3人组以外的卯月塑料小人我都买了.景品不算.
 
+
+
+*****
+
+####  kria  
+##### 5349#       发表于 2022-11-28 04:20
+
+ 本帖最后由 kria 于 2022-11-28 04:46 编辑 
+
+<img src="https://img.saraba1st.com/forum/202211/28/041940jqp7ypsx5j72qr11.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>45081ECB-40A2-4762-9111-A7A2248EAA48.jpeg</strong> (186.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 04:19 上传
+
+<img src="https://img.saraba1st.com/forum/202211/28/041940x1ow1unh1wzuw99o.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C78B73EC-B66B-416B-A37D-D63C245E7919.jpeg</strong> (114.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 04:19 上传
+
+<img src="https://img.saraba1st.com/forum/202211/28/041940dt2tz0bbbclb0z9m.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EF85EA18-A575-443F-848A-49E1D6EED033.jpeg</strong> (110.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 04:19 上传
+
+福原绫香已开推
+

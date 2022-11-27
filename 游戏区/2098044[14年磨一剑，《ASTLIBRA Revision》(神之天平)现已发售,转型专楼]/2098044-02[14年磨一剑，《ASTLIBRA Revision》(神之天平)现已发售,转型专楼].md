@@ -13990,3 +13990,44 @@ ok多谢，看来3只能忍着了
 
 这游戏不会也来一出拉xx就是玛xx吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  防撞桶好  
+##### 2702#       发表于 2022-11-28 02:34
+
+仔细想想，这个星球之前4800万年说不定是两代种族一循环，每次灭世之后造物主创造出后来成为主导物种的第一代种族，第一代种族受限制不能直接对抗造物主，于是自己创造培养第二代种族，反抗造物主失败被灭（不彻底灭世）。然后没有限制的第二代种族成长为主导种族之后直接对抗造物主失败，彻底灭世。然后往复<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+顺便有名有姓的角色里除了女神再顺便祭奠一下公会咖啡男和努盖
+
+*****
+
+####  linc555  
+##### 2703#       发表于 2022-11-28 02:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58651795&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-27 22:26</a>
+全通以后来讨论几个剧情问题：
+
+1. 我在第四章蛇神关，清楚的记得神父+修女+红毛并称三英雄；然后到了第五 ...</blockquote>
+3英雄里面是没红毛的，他是叛徒啊
+
+—— 来自 Xiaomi M2007J22C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  アルメリア  
+##### 2704#       发表于 2022-11-28 03:42
+
+第八章魔物入侵的时候是谁在门口抵抗后面会讲嘛，另外这里的爱情漏了对剧情是否有影响
+
+*****
+
+####  huge_cat  
+##### 2705#       发表于 2022-11-28 04:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58655587&amp;ptid=2098044" target="_blank">アルメリア 发表于 2022-11-28 03:42</a>
+
+第八章魔物入侵的时候是谁在门口抵抗后面会讲嘛，另外这里的爱情漏了对剧情是否有影响 ...</blockquote>
+会讲，没影响
+
