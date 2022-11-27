@@ -7496,3 +7496,14 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 还是那句，这么喜欢锁阵容&amp;#x5 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看他故意给你一个练度不高的  让你可以有机会上自己的顶练从者啊
 
+
+
+*****
+
+####  khxooo  
+##### 3685#       发表于 2022-11-27 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58646973&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-27 18:45</a>
+你看他故意给你一个练度不高的  让你可以有机会上自己的顶练从者啊 ...</blockquote>
+可惜我没有啊，大卫还是强制固定的<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
