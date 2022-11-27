@@ -13836,3 +13836,16 @@ ok多谢，看来3只能忍着了
 
 扭蛋大师那个成就有什么说法么。我看wiki说一共37个，最后一个是个饰品，我也早拿到了，但一看成就竟然未解锁。。
 
+
+
+*****
+
+####  liyropen  
+##### 2689#       发表于 2022-11-27 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58647761&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-27 19:26</a>
+扭蛋大师那个成就有什么说法么。我看wiki说一共37个，最后一个是个饰品，我也早拿到了，但一看成就竟然未解 ...</blockquote>
+重开游戏
+
+— from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+

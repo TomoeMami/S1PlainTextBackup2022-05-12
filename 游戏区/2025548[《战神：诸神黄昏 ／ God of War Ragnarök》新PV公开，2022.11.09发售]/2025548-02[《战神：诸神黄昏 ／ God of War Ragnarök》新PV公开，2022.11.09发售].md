@@ -3132,3 +3132,15 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古凌锋  
+##### 1789#       发表于 2022-11-27 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58647493&amp;ptid=2025548" target="_blank">潜水人27 发表于 2022-11-27 19:15</a>
+
+怒气槽空的咋办，不会就无解了吧。符文攻击能破盾，但这代符文不带无敌，放一半总是从背后被车死 ...</blockquote>
+摸一下传送门就满了
+
