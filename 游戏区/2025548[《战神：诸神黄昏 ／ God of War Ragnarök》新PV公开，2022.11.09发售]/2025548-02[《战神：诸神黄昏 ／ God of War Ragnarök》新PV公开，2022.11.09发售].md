@@ -3177,3 +3177,28 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
  女武神王红圈前冲那一下怎么躲 无论朝哪闪都会被打 无奈之下调成故事模式又死了半小时才勉强打过白金。 战 ...</blockquote>
 点两下闪就行啦
 
+
+
+*****
+
+####  svmkty  
+##### 1793#       发表于 2022-11-27 21:12
+
+这游戏还是有长得养眼的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/27/211226k7d00dmjkjjdh7hv.jpg" referrerpolicy="no-referrer">
+
+<strong>12312312432232323232.jpg</strong> (119.4 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-27 21:12 上传
+
+<img src="https://img.saraba1st.com/forum/202211/27/211233ww7aecf24v1waahs.jpg" referrerpolicy="no-referrer">
+
+<strong>1231231243223232323.jpg</strong> (161.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-27 21:12 上传
+
