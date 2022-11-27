@@ -11614,3 +11614,15 @@ bgm：双喜
 
 好像量子猫也要加入nb了？
 
+
+
+*****
+
+####  ladiesman802  
+##### 2716#       发表于 2022-11-27 12:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58639431&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-11-27 10:50</a>
+
+好像量子猫也要加入nb了？</blockquote>
+没有，她是被发了好人卡。老实说，我觉得厂长做得不够果断，量子猫直播风格不适合nb，厂长可以给意见而不是假希望吊着别人
+
