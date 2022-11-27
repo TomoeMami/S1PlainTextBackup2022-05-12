@@ -3248,3 +3248,29 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 那时候讨论最多的那个帖子里我的观点不过也就是老头环保持魂系游戏原有的设计思路不应该成为批判的游戏的理由。
 
+
+
+*****
+
+####  子夜的黑暗  
+##### 1798#       发表于 2022-11-27 22:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58649623&amp;ptid=2025548" target="_blank">chrisluvdjmax 发表于 2022-11-27 20:39:23</a>
+女武神王红圈前冲那一下怎么躲 无论朝哪闪都会被打 无奈之下调成故事模式又死了半小时才勉强打过白金。
+
+战 ...</blockquote>红冲往右边躲就行，左边必中
+女武神王距离拉远了有两种冲刺，黄冲直接防，红冲右闪，挺容易反应不过来
+这作好像很强调配装和属性攻击，动作切武器苦手只能用一把斧子跟boss玩立回慢慢等对方出硬直，硬是打了三个小时才把平衡难度过了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  子夜的黑暗  
+##### 1799#       发表于 2022-11-27 22:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58647335&amp;ptid=2025548" target="_blank">潜水人27 发表于 2022-11-27 19:06:37</a>
+小兵上背之后就会开盾，得迂回找角度才能敲下来……但是地方实在太小，根本周转不过来啊 ...</blockquote>盾不是让芙蕾雅放一箭就没了么，就是不能锁定，否则瞄准的是骑手
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -11701,3 +11701,15 @@ bgm：双喜
 
 看贴吧怎么还有人破防了，发生了什么事？
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2725#       发表于 2022-11-27 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58652107&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-11-27 22:41</a>
+
+看贴吧怎么还有人破防了，发生了什么事？</blockquote>
+查房活动查了几个男V（甚至只是披了正太皮的女v），贴吧mmr觉得鸭鸭态度太积极了当场取关，还在贴吧嚷嚷
+
