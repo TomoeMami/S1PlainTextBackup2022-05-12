@@ -13876,3 +13876,17 @@ ok多谢，看来3只能忍着了
 
 想问下 火精灵，水女神这类技能的效果是什么，看文字描述看不懂…
 
+
+
+*****
+
+####  hello0607  
+##### 2693#       发表于 2022-11-27 22:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58650635&amp;ptid=2098044" target="_blank">s3080722703 发表于 2022-11-27 21:31</a>
+
+想问下 火精灵，水女神这类技能的效果是什么，看文字描述看不懂…</blockquote>
+属性克制伤害1.5倍变两倍 对位属性克制才触发
+
+庇护是同属性伤害0.5变1
+
