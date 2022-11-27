@@ -6071,3 +6071,14 @@ tx这个ai调的还行
 
 之前没想过，感觉还真有可能，经历过fmt那歌的安排，现在企划整啥骚操作都不奇怪，5人都歌也要，团队感也要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9486#       发表于 2022-11-27 15:29
+
+队友打call没啥，hnk不是演示的很好嘛，就是现在的团队感塑造的真的。。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
