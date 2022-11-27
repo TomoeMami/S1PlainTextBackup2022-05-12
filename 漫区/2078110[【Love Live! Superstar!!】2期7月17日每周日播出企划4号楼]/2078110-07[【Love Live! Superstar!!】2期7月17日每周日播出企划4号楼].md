@@ -6029,3 +6029,15 @@ tx这个ai调的还行
 好家伙 pay的日式英语怕不是演的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺久之前某个广播还是哪里就好好说过一次老白旗英语
 
+
+
+*****
+
+####  starring  
+##### 9482#       发表于 2022-11-27 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58639646&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-11-27 11:08</a>
+
+好家伙 pay的日式英语怕不是演的</blockquote>
+就是演的，之前的Ins直播她英语就说得挺溜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
