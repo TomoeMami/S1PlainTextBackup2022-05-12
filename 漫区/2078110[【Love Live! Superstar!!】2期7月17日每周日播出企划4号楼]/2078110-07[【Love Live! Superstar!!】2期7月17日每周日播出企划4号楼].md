@@ -6041,3 +6041,12 @@ tx这个ai调的还行
 好家伙 pay的日式英语怕不是演的</blockquote>
 就是演的，之前的Ins直播她英语就说得挺溜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 9483#       发表于 2022-11-27 11:48
+
+星空独白这曲子，到时候不会又是五人唱四人搁旁边摇吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许是五个人摇，加个结娜
+
