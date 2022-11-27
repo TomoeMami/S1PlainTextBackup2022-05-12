@@ -13717,3 +13717,19 @@ ok多谢，看来3只能忍着了
 
 —— 来自 samsung SM-G986W, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  永远的访客  
+##### 2678#       发表于 2022-11-27 13:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58638801&amp;ptid=2098044" target="_blank">tsubaki 发表于 2022-11-27 09:50</a>
+
+弓优先解决，之后就光头先打死（群奶基本光头扔的
+
+只剩两个后就随便打了，输出跟不上就多用上挑跟空中连 ...</blockquote>
+好的，我昨天也发现作为魔王不该和正面的T纠缠应该去切后排，但我以为修女是法师应该优先打，结果切到后排反而被追回来堵在墙角4个人一起揍。这群人不讲武德，欺负我2个老婆刚走还有一个老婆在船上没来帮忙，有本事等我3个老婆都到了4v4<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+我琢磨了下，输出不够也是因为到新章还没开始升级武器（没想好以后主要用哪个），逼急就准备堆上去再来揍他们。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
