@@ -13890,3 +13890,14 @@ ok多谢，看来3只能忍着了
 
 庇护是同属性伤害0.5变1
 
+
+
+*****
+
+####  onezer0618  
+##### 2694#       发表于 2022-11-27 22:07
+
+求助第四章海底洞窟那里的机关，解开之后后面怎么跳过去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
