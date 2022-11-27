@@ -13849,3 +13849,12 @@ ok多谢，看来3只能忍着了
 
 — from Xiaomi Redmi K20 Pro, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  M1NG  
+##### 2690#       发表于 2022-11-27 20:00
+
+草。。打完最后boss读完剧情，进新章前问我要不要存档，一下按错按了b，直接回主菜单了，最近的存档又要重打一次boss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 能不能不要设置地这么弱智啊，我受不了了
+

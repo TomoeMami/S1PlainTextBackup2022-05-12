@@ -3144,3 +3144,14 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 怒气槽空的咋办，不会就无解了吧。符文攻击能破盾，但这代符文不带无敌，放一半总是从背后被车死 ...</blockquote>
 摸一下传送门就满了
 
+
+
+*****
+
+####  潜水人27  
+##### 1790#       发表于 2022-11-27 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58647812&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-27 19:28</a>
+那可以芙蕾雅带雷或者毒的技能开场接敌了就放，这样子你应该有足够的时间搞死狮子，记得换玛尼套的手和 ...</blockquote>
+打过了，去刷满怒气再回来打的。多谢解答<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
