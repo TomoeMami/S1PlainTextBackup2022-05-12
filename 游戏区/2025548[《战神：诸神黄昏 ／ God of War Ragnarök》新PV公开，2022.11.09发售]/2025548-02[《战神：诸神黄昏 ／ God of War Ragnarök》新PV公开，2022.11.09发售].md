@@ -3274,3 +3274,13 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Kazepollar  
+##### 1800#       发表于 2022-11-27 23:02
+
+鳄鱼哥嫌弃难打故事难度实在是有点菜了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+不是嘲笑你啊，别介意
+
