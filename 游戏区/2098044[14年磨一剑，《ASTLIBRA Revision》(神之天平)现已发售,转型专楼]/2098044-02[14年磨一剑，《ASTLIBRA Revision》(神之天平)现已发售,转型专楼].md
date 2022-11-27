@@ -13690,3 +13690,19 @@ ok多谢，看来3只能忍着了
 
 妈呀这4人团+老年版红毛助力会打不赢boss我是死都不信，肯定又是红毛在当内奸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tsubaki  
+##### 2676#       发表于 2022-11-27 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58638779&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-27 09:47</a>
+
+困难被4勇者打出屎了，有何战术？难道只能狂暴拼命？
+
+妈呀这4人团+老年版红毛助力会打不赢boss我是死都不信 ...</blockquote>
+弓优先解决，之后就光头先打死（群奶基本光头扔的
+
+只剩两个后就随便打了，输出跟不上就多用上挑跟空中连别在地上打
+
