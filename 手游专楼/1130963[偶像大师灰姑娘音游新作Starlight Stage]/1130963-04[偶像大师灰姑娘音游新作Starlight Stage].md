@@ -49,3 +49,15 @@ tps://www.bilibili.com/video/BV1b8411L7va/?spm_id_from=333.337.search-card.all.c
 
 订了卯月的新塑料小人.
 
+
+
+*****
+
+####  小市民_re  
+##### 5347#       发表于 2022-11-27 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58643363&amp;ptid=1130963" target="_blank">oyss 发表于 2022-11-27 15:31</a>
+
+订了卯月的新塑料小人.</blockquote>
+4w那个吗，价格也太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
