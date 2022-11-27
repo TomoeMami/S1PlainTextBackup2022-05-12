@@ -13733,3 +13733,14 @@ ok多谢，看来3只能忍着了
 
 我琢磨了下，输出不够也是因为到新章还没开始升级武器（没想好以后主要用哪个），逼急就准备堆上去再来揍他们。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  滋啦球  
+##### 2679#       发表于 2022-11-27 13:33
+
+进去新章了，不过发现一周目还有几个隐藏神没打缺了几件装备，想问一下进新章以后能不能再打？
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
