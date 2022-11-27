@@ -1501,3 +1501,17 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 开活动扔了一单石头分配到阿国和龙马各一半无事发生
 前两天看完龙马那段剧情之后抽了两张呼符居然来了
 
+
+
+*****
+
+####  DET  
+##### 43777#       发表于 2022-11-27 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58633457&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-26 22:37</a>
+
+在某宝不可描述弄的友情点已经刷完接近一周了
+
+但科技号还在继续，每天贡献300-400多万友情，加起来又两三 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">科技号刷完了直接删好友就行了，可能是店家不记得了
+
