@@ -13744,3 +13744,24 @@ ok多谢，看来3只能忍着了
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  蓬莱妹红  
+##### 2680#       发表于 2022-11-27 14:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58642043&amp;ptid=2098044" target="_blank">滋啦球 发表于 2022-11-27 13:33</a>
+
+进去新章了，不过发现一周目还有几个隐藏神没打缺了几件装备，想问一下进新章以后能不能再打？
+
+—— 来自  ...</blockquote>
+可以
+
+*****
+
+####  蓬莱妹红  
+##### 2681#       发表于 2022-11-27 14:49
+
+玩了100个小时，因为怕剧透一直没上专栏闷头不停的玩，今天终于全装备全魔法通关了，真好啊，真的好游戏让你每把武器每个魔法都刷满，还是非常好玩的
+
