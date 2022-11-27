@@ -13765,3 +13765,53 @@ ok多谢，看来3只能忍着了
 
 玩了100个小时，因为怕剧透一直没上专栏闷头不停的玩，今天终于全装备全魔法通关了，真好啊，真的好游戏让你每把武器每个魔法都刷满，还是非常好玩的
 
+
+
+*****
+
+####  囧Smith  
+##### 2682#       发表于 2022-11-27 16:20
+
+刚进第四章，听楼友的建议先去打斗技场了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">打一堆缸和水草那个挑战根本打不过
+西洋剑平a加凭依技勉强刮死一个缸，往右边一看还有俩<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这怎么打
+
+*****
+
+####  A1LI  
+##### 2683#       发表于 2022-11-27 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58644146&amp;ptid=2098044" target="_blank">囧Smith 发表于 2022-11-27 16:20</a>
+
+刚进第四章，听楼友的建议先去打斗技场了打一堆缸和水草那个挑战根本打不过
+
+西洋剑平a加凭依技勉强 ...</blockquote>
+你第3章那个3倍攻击力的大剑呢。
+
+*****
+
+####  囧Smith  
+##### 2684#       发表于 2022-11-27 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58644169&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-27 16:21</a>
+你第3章那个3倍攻击力的大剑呢。</blockquote>
+哪个，我只有一把石质大剑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  囧Smith  
+##### 2685#       发表于 2022-11-27 16:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58644169&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-11-27 16:21</a>
+你第3章那个3倍攻击力的大剑呢。</blockquote>
+哪个，我只有一把石质大剑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  A1LI  
+##### 2686#       发表于 2022-11-27 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58644363&amp;ptid=2098044" target="_blank">囧Smith 发表于 2022-11-27 16:28</a>
+
+哪个，我只有一把石质大剑</blockquote>
+这游戏想顺利推进，最好把每一章的商店装备全做出来，然后每章还有5个图纸装备，也要做出来。3倍攻击力那个就是第3章的一把图纸武器。
+
