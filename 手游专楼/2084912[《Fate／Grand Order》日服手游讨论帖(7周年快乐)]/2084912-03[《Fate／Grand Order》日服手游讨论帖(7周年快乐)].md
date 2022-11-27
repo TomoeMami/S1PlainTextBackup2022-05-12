@@ -7465,3 +7465,12 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  khxooo  
+##### 3682#       发表于 2022-11-27 18:29
+
+还是那句，这么喜欢锁阵容干脆取消抽卡这东西，现在和没有抽卡有什么区别<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
