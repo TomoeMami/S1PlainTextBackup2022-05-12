@@ -7453,3 +7453,15 @@ Q•E•D
 
 c呆1100-1200石满宝了，等接下来2.6回顾看有没有妖兰和奥伯龙，没有就躺了等2.7
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3681#       发表于 2022-11-27 17:24
+
+居然有新幕间
+HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

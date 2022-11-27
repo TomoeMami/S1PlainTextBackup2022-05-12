@@ -13815,3 +13815,15 @@ ok多谢，看来3只能忍着了
 哪个，我只有一把石质大剑</blockquote>
 这游戏想顺利推进，最好把每一章的商店装备全做出来，然后每章还有5个图纸装备，也要做出来。3倍攻击力那个就是第3章的一把图纸武器。
 
+
+
+*****
+
+####  gwchobit  
+##### 2687#       发表于 2022-11-27 17:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58644360&amp;ptid=2098044" target="_blank">囧Smith 发表于 2022-11-27 16:27</a>
+
+哪个，我只有一把石质大剑</blockquote>
+火山的传说武器，屠龙剑，觉醒狂暴 3倍攻击不能受伤
+
