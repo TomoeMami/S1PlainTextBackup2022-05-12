@@ -2129,3 +2129,14 @@ miko：明晚回来了会直播
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么烂片,还好我都是挂小窗看的
 
+
+
+*****
+
+####  holoan  
+##### 3209#         楼主| 发表于 2022-11-27 14:34
+
+22点的窗猴急的现在就开了
+
+所以怀疑今天晚上live是录像
+
