@@ -13858,3 +13858,12 @@ ok多谢，看来3只能忍着了
 
 草。。打完最后boss读完剧情，进新章前问我要不要存档，一下按错按了b，直接回主菜单了，最近的存档又要重打一次boss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 能不能不要设置地这么弱智啊，我受不了了
 
+
+
+*****
+
+####  yueyut  
+##### 2691#       发表于 2022-11-27 21:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">全通了。。最终boss战中正好跳5万步成就、打完boss正好升99级，也太有演出效果了
+
