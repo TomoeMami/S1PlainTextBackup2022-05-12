@@ -6062,3 +6062,12 @@ tx这个ai调的还行
 星空独白这曲子，到时候不会又是五人唱四人搁旁边摇吧也许是五个人摇，加个结娜 ...</blockquote>
 这歌起码要4th才会唱，得七个人摇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9485#       发表于 2022-11-27 12:17
+
+之前没想过，感觉还真有可能，经历过fmt那歌的安排，现在企划整啥骚操作都不奇怪，5人都歌也要，团队感也要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
