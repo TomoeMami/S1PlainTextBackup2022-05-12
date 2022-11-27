@@ -13679,3 +13679,14 @@ ok多谢，看来3只能忍着了
 这个素材爆率感觉是不是有点问题，现在第四章装了盗贼技能海底的那几条鱼爆率还没有第三章时候没装技能的高 ...</blockquote>
 还是看运气，也可能是代码写的不太好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 火山那章我刷石像刷了可能有上百只都凑不够素材，都要吐了
 
+
+
+*****
+
+####  永远的访客  
+##### 2675#       发表于 2022-11-27 09:47
+
+困难被4勇者打出屎了，有何战术？难道只能狂暴拼命？
+
+妈呀这4人团+老年版红毛助力会打不赢boss我是死都不信，肯定又是红毛在当内奸<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
