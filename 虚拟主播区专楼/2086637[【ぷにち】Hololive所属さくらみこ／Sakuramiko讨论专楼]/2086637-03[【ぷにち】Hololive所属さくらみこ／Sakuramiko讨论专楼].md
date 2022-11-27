@@ -2140,3 +2140,16 @@ miko：明晚回来了会直播
 
 所以怀疑今天晚上live是录像
 
+
+
+*****
+
+####  holoan  
+##### 3210#         楼主| 发表于 2022-11-27 20:03
+
+setlist<blockquote>ベイビーダンス
+
+Glory Steady Go! 
+
+サクラカゼ</blockquote>
+
