@@ -13928,3 +13928,15 @@ ok多谢，看来3只能忍着了
 —— 来自 vivo V2157A, Android 12上的 S ...</blockquote>
 拿弩或者回旋镖射那个机关。两边机关都得是蓝色的才会有桥出现
 
+
+
+*****
+
+####  真实之影  
+##### 2697#       发表于 2022-11-28 00:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58652990&amp;ptid=2098044" target="_blank">取名真是难 发表于 2022-11-27 23:24</a>
+
+拿弩或者回旋镖射那个机关。两边机关都得是蓝色的才会有桥出现</blockquote>
+其实还可以靠上挑+二段跳强行跳过去<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
+
