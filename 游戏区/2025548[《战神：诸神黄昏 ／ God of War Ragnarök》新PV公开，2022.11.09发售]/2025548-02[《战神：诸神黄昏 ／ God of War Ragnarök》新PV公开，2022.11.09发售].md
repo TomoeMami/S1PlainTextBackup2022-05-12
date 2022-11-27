@@ -3305,3 +3305,12 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 可能这也是一种游戏阳痿的早期症状吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  哈罗  
+##### 1802#       发表于 2022-11-27 23:51
+
+这次明显比前作难，特别是直奔主线
+
