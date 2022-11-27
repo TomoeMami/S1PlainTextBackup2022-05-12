@@ -13981,3 +13981,12 @@ ok多谢，看来3只能忍着了
 —— 来自 vivo V2157A, Android 12上的  ...</blockquote>
 弓箭不行，竞技场给的弩才能手动瞄准
 
+
+
+*****
+
+####  Senbascira  
+##### 2701#       发表于 2022-11-28 01:17
+
+这游戏不会也来一出拉xx就是玛xx吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
