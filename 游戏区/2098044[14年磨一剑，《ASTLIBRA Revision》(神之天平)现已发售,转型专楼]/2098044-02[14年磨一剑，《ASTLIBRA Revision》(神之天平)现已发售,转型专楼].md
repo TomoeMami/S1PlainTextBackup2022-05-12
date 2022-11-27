@@ -13967,3 +13967,17 @@ ok多谢，看来3只能忍着了
 
 你是不是级别太低，或者成长没点满，要么就是每章没把所有武器练满，导致输出不够
 
+
+
+*****
+
+####  真实之影  
+##### 2700#       发表于 2022-11-28 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58654149&amp;ptid=2098044" target="_blank">onezer0618 发表于 2022-11-28 00:32</a>
+
+感谢，上去了！没有弩箭只有回旋镖，请问这游戏射箭如何瞄准？
+
+—— 来自 vivo V2157A, Android 12上的  ...</blockquote>
+弓箭不行，竞技场给的弩才能手动瞄准
+
