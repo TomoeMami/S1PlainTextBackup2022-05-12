@@ -41,3 +41,12 @@ Blast这个表演赛有点意思啊<img src="https://static.saraba1st.com/image/
 
 这blast太搞了，本特纳都拉来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  雨中曲  
+##### 2921#       发表于 2022-11-27 23:57
+
+感觉先别对blast巴黎期待太高，毕竟blast总部丹麦主场，资源优势多。就像ESL总部科隆，分部卡托活动也不会差
+

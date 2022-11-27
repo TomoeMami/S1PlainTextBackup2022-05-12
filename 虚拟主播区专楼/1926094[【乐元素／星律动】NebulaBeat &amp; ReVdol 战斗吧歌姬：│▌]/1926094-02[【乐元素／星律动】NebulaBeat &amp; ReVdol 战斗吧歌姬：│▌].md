@@ -11741,3 +11741,21 @@ bgm：双喜
 
 清唱woth，牛，可惜没有bgm差了点意思，等后期了
 
+
+
+*****
+
+####  佛皇  
+##### 2729#       发表于 2022-11-27 23:58
+
+卷卷的毕业回也差不多了，唉，小鹿算是偶像之路最坚持的一个了吧
+
+*****
+
+####  黄金鸡屁屁  
+##### 2730#       发表于 2022-11-28 00:01
+
+小番茄第二次没有家了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
