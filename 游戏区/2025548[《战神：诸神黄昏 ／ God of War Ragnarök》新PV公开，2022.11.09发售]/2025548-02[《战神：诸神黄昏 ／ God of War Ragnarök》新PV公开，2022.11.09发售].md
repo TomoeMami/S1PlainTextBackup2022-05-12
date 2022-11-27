@@ -3108,3 +3108,14 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  潜水人27  
+##### 1787#       发表于 2022-11-27 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58647396&amp;ptid=2025548" target="_blank">415452356 发表于 2022-11-27 19:09</a>
+开场就暴怒打狮子可以让驯兽师掉下来，然后可以用斧头的那个往地上造成持续冰冻减速的符文攻击控住他们 ...</blockquote>
+怒气槽空的咋办，不会就无解了吧。符文攻击能破盾，但这代符文不带无敌，放一半总是从背后被车死
+
