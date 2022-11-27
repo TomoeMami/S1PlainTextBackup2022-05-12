@@ -63,3 +63,12 @@ kanojyo<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" ref
 
 nmd真鬼啊？<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天光逸  
+##### 389#       发表于 2022-11-27 22:57
+
+这集的赌狗心态很应景
+
