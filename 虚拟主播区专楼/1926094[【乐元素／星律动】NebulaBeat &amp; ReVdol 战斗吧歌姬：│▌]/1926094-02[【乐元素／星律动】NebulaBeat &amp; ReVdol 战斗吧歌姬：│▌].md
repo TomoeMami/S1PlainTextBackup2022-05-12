@@ -11653,3 +11653,15 @@ bgm：双喜
 
 这种查房活动都是安排好的，看了眼名单没有卷卷
 
+
+
+*****
+
+####  ladiesman802  
+##### 2720#       发表于 2022-11-27 20:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58649326&amp;ptid=1926094" target="_blank">佛皇 发表于 2022-11-27 20:25</a>
+
+这种查房活动都是安排好的，看了眼名单没有卷卷</blockquote>
+原来是叔叔的任务，无聊啊
+
