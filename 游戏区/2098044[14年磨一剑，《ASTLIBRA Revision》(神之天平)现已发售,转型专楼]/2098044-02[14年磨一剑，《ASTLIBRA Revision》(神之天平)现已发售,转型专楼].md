@@ -13940,3 +13940,30 @@ ok多谢，看来3只能忍着了
 拿弩或者回旋镖射那个机关。两边机关都得是蓝色的才会有桥出现</blockquote>
 其实还可以靠上挑+二段跳强行跳过去<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  onezer0618  
+##### 2698#       发表于 2022-11-28 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58652990&amp;ptid=2098044" target="_blank">取名真是难 发表于 2022-11-27 23:24</a>
+拿弩或者回旋镖射那个机关。两边机关都得是蓝色的才会有桥出现</blockquote>
+感谢，上去了！没有弩箭只有回旋镖，请问这游戏射箭如何瞄准？
+
+—— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  urvark  
+##### 2699#       发表于 2022-11-28 00:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58644146&amp;ptid=2098044" target="_blank">囧Smith 发表于 2022-11-27 16:20</a>
+
+刚进第四章，听楼友的建议先去打斗技场了打一堆缸和水草那个挑战根本打不过
+
+西洋剑平a加凭依技勉强 ...</blockquote>
+我也是每章开始就打完竞技场的，那个缸和水草我直接满魔力加点拿魔杖一直丢就过了，都没换rush武器，荒谬难度
+
+你是不是级别太低，或者成长没点满，要么就是每章没把所有武器练满，导致输出不够
+
