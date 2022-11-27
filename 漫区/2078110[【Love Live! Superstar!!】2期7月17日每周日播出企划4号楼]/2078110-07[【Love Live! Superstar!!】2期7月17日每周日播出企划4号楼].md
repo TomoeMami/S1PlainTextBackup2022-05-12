@@ -6082,3 +6082,14 @@ tx这个ai调的还行
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  csolfans  
+##### 9487#       发表于 2022-11-27 23:29
+
+<blockquote>starring 发表于 2022-11-27 11:37
+就是演的，之前的Ins直播她英语就说得挺溜</blockquote>
+哈哈(ಡωಡ)hiahiahia我就是看的ins直播切片，有感而发
+
