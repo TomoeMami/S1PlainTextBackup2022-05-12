@@ -14237,3 +14237,17 @@ ok多谢，看来3只能忍着了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四章的技能不加怪物素材掉率，只加食品素材掉率
 我记得6章老家的剥取名人这个技能才能加怪物素材掉率<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  取名真是难  
+##### 2724#       发表于 2022-11-28 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58667304&amp;ptid=2098044" target="_blank">夜来 发表于 2022-11-28 21:53</a>
+
+四章的技能不加怪物素材掉率，只加食品素材掉率
+
+我记得6章老家的剥取名人这个技能才能加怪物素材 ...</blockquote>
+怪不得我打怪必爆食品 前几章刷的是真的累 这几天晚上一直在第五章刷材料还没刷完
+
