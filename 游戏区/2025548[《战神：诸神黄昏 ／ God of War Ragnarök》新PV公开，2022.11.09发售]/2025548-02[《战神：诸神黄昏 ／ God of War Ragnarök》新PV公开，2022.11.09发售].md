@@ -3351,3 +3351,15 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 穆斯贝尔海姆，在世界的火花；
 华纳海姆，在弗雷的营地。
 
+
+
+*****
+
+####  白猫MKII  
+##### 1805#       发表于 2022-11-28 08:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58656174&amp;ptid=2025548" target="_blank">糖然君 发表于 2022-11-28 07:32</a>
+① 完成支线任务「维京式葬礼」，观看真结局；
+② 完成尼福尔海姆的支线任务「破碎的监狱」，找到一位 NP ...</blockquote>
+5是抓林德虫的道路？如果是的话打造枪前就能接了
+
