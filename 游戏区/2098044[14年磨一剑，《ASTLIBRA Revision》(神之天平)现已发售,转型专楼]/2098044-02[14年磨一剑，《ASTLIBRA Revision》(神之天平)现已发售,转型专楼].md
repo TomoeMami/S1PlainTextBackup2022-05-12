@@ -14182,3 +14182,15 @@ ok多谢，看来3只能忍着了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  妄想中毒  
+##### 2720#       发表于 2022-11-28 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58663799&amp;ptid=2098044" target="_blank">猫狗猫 发表于 2022-11-28 18:07</a>
+
+泊灵也是队友，你还漏了俩</blockquote>
+草，这狼我从头到尾都没带过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -6439,3 +6439,20 @@ https://febri.jp/topics/llss_2nd_1/
 
 2022-11-28 18:27 上传
 
+
+
+*****
+
+####  ads147147  
+##### 9512#       发表于 2022-11-28 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58664135&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-28 18:30</a>
+突然被戳到笑点了，门面做不好再怎么多媒体IP也没用，没多少人有兴趣继续关注。
+
+所以才说那些变种厕纸和伴 ...</blockquote>
+5ch那边还真直白，虽然我觉得这位就是来找茬的就是了。
+
+动画电影电视剧作为现代传媒的集大成者，可以说是ip发展的绝对核心，看看隔壁米老鼠怎么做的就知道，反过来说，看米老鼠也知道漫威现在拍的多烂也不会摧毁基础盘，他们已经控制住了这座大山。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
