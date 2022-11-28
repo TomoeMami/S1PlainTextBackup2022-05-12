@@ -14116,3 +14116,15 @@ ok多谢，看来3只能忍着了
 这游戏不会也来一出拉xx就是玛xx吧</blockquote>
 刚玩的时候会很顺的这样想,后面会有很多反转.
 
+
+
+*****
+
+####  lightingwolf  
+##### 2714#       发表于 2022-11-28 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58660417&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-28 14:02</a>
+
+奇怪，一共37个小徽章，第37个扭蛋是凯撒奖牌，奖品都是一一对应的，你怎么还能转出空的来。 ...</blockquote>
+修改了数量，想试试看还能转出啥
+

@@ -6367,3 +6367,17 @@ https://febri.jp/topics/llss_2nd_1/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 9506#       发表于 2022-11-28 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58662427&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-11-28 16:39</a>
+
+真的要比销量吗？虹2卷均1万7哦cd就更不提了，打个小星星洒洒水的事情 ...</blockquote>
+虹2还没出完呢，电子斗蛐蛐不急一时，主要是基本盘是定死的出的多烂都有人愿意买。不过前下还看到说拉拉首日没过万的就是星s2第二卷，只能说令人唏嘘（累计一周还是过万了）。
+
+而且小星星不还是可以的嘛，斗蛐蛐不要打人啊jpg
+
