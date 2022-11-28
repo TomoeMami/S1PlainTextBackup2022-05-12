@@ -14057,3 +14057,17 @@ ok多谢，看来3只能忍着了
 
 扭蛋是不是有限的？我后面出来的都是空的
 
+
+
+*****
+
+####  s3080722703  
+##### 2709#       发表于 2022-11-28 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58651294&amp;ptid=2098044" target="_blank">hello0607 发表于 2022-11-27 22:01</a>
+
+属性克制伤害1.5倍变两倍 对位属性克制才触发
+
+庇护是同属性伤害0.5变1</blockquote>
+好的，感谢，原来是这个意思...
+
