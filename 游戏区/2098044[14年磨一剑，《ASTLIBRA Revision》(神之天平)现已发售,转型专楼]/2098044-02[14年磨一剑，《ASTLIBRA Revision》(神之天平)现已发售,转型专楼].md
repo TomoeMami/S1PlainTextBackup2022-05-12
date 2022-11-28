@@ -14128,3 +14128,23 @@ ok多谢，看来3只能忍着了
 奇怪，一共37个小徽章，第37个扭蛋是凯撒奖牌，奖品都是一一对应的，你怎么还能转出空的来。 ...</blockquote>
 修改了数量，想试试看还能转出啥
 
+
+
+*****
+
+####  妄想中毒  
+##### 2715#       发表于 2022-11-28 18:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58657002&amp;ptid=2098044" target="_blank">cnwind042 发表于 2022-11-28 09:25</a>
+差俩爱情怎么刷都刷不出来，只能视频通关真结局了，我真的不适合刷子游戏 ...</blockquote>
+流程给2小徽章给1，4个队友给8，真正要刷的其实只有3个，拿队友8个的过程中基本就能顺手刷3个出来了
+
+*****
+
+####  猫狗猫  
+##### 2716#       发表于 2022-11-28 18:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58663732&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-28 18:02</a>
+流程给2小徽章给1，4个队友给8，真正要刷的其实只有3个，拿队友8个的过程中基本就能顺手刷3个出来了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泊灵也是队友，你还漏了俩
+
