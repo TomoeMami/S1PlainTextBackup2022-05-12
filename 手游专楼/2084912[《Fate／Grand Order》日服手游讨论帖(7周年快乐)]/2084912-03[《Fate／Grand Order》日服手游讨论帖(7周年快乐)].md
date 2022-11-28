@@ -7576,3 +7576,22 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">更新了40多m就出了3个垃圾本？？
 
+
+
+*****
+
+####  exiaexa  
+##### 3692#       发表于 2022-11-28 17:42
+
+我甚至开始想念狩猎本了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 3693#       发表于 2022-11-28 17:47
+
+我更了100多M<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
