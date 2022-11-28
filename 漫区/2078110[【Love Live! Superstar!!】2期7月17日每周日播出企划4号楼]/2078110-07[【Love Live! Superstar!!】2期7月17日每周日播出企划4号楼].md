@@ -6093,3 +6093,62 @@ tx这个ai调的还行
 就是演的，之前的Ins直播她英语就说得挺溜</blockquote>
 哈哈(ಡωಡ)hiahiahia我就是看的ins直播切片，有感而发
 
+
+
+*****
+
+####  优妮可  
+##### 9488#       发表于 2022-11-28 11:32
+
+<img src="https://img.saraba1st.com/forum/202211/28/112933fd8tls22qs9sf9ja.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8494_2400_.jpg</strong> (332.84 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202211/28/112934unvibxzidc41jkxs.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8461_1280.jpg</strong> (138.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202211/28/112934yhlpne4tlfobbsdt.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8481_1280.jpg</strong> (157.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202211/28/112935kdzi2scdd33smdzd.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8498_1280.jpg</strong> (157.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202211/28/112936jp0d30119d1314i2.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8521_1280.jpg</strong> (150.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 11:29 上传
+
+<img src="https://img.saraba1st.com/forum/202211/28/112936l1fjq1ggz3yls00h.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8562_1280.jpg</strong> (175 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 11:29 上传
+
+这次访谈是二期生
+
+https://febri.jp/topics/llss_2nd_1/
+
