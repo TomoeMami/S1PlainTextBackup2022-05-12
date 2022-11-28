@@ -14305,3 +14305,24 @@ ok多谢，看来3只能忍着了
 话说到了新章比较强的流派是什么，我点魔力带法杖发现普攻抡着涨精力还不如跳起来冲怪涨的快，是不 ...</blockquote>
 空中擒抱涨精力是独一档的，往下我觉得是双手大剑大锤之类的
 
+
+
+*****
+
+####  adw667  
+##### 2730#       发表于 2022-11-29 01:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我大概是闲得蛋疼才会去再刷一遍神杀剑
+
+
+
+*****
+
+####  wellerman  
+##### 2731#       发表于 2022-11-29 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58670543&amp;ptid=2098044" target="_blank">adw667 发表于 2022-11-29 01:11</a>
+
+空中擒抱涨精力是独一档的，往下我觉得是双手大剑大锤之类的</blockquote>
+加点是改成攻击靠平A打伤害么，还是跟法杖一样点魔力靠凭依技能
+
