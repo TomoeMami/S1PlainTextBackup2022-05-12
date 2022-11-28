@@ -6275,3 +6275,19 @@ https://febri.jp/topics/llss_2nd_1/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 9499#       发表于 2022-11-28 16:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58661607&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-11-28 15:42</a>
+
+不知道花田老师有没有这种心情
+
+—— 来自 S1Fun</blockquote>
+1-3话的重要角色呢，我不知道花田自己写完吃可香尸体的香樱回是自豪还是自己也犯恶心。
+
+我可以接受non酱表现很差，但是动画里的樱小路已经是彻底的负分角色了，仅次于叔叔。
+

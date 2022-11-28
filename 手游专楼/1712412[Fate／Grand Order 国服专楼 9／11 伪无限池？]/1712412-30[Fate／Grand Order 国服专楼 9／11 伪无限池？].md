@@ -1515,3 +1515,17 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 但科技号还在继续，每天贡献300-400多万友情，加起来又两三 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">科技号刷完了直接删好友就行了，可能是店家不记得了
 
+
+
+*****
+
+####  艾尔特翔  
+##### 43778#       发表于 2022-11-28 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58633457&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-11-26 22:37</a>
+
+在某宝不可描述弄的友情点已经刷完接近一周了
+
+但科技号还在继续，每天贡献300-400多万友情，加起来又两三 ...</blockquote>
+和你一样，每天30~50万不等，确认后已经好几天了
+
