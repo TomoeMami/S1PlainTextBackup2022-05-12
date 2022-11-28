@@ -14148,3 +14148,37 @@ ok多谢，看来3只能忍着了
 流程给2小徽章给1，4个队友给8，真正要刷的其实只有3个，拿队友8个的过程中基本就能顺手刷3个出来了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">泊灵也是队友，你还漏了俩
 
+
+
+*****
+
+####  cnwind042  
+##### 2717#       发表于 2022-11-28 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58663732&amp;ptid=2098044" target="_blank">妄想中毒 发表于 2022-11-28 18:02</a>
+流程给2小徽章给1，4个队友给8，真正要刷的其实只有3个，拿队友8个的过程中基本就能顺手刷3个出来了 ...</blockquote>
+因为没看攻略瞎打的，白的那个没拿，黑给的那个被我手贱做成巧克力了，拿队友10个之后又刷了十几把第四层，一个都没出，我就干脆放弃了，还是我刷的姿势不对<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  钢铁苏打  
+##### 2718#       发表于 2022-11-28 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58664308&amp;ptid=2098044" target="_blank">cnwind042 发表于 2022-11-28 18:42:47</a>
+因为没看攻略瞎打的，白的那个没拿，黑给的那个被我手贱做成巧克力了，拿队友10个之后又刷了十几把第四层 ...</blockquote>最好带上降低装备盘掉率的饰品
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ParadiseMartyr  
+##### 2719#       发表于 2022-11-28 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58664308&amp;ptid=2098044" target="_blank">cnwind042 发表于 2022-11-28 18:42</a>
+因为没看攻略瞎打的，白的那个没拿，黑给的那个被我手贱做成巧克力了，拿队友10个之后又刷了十几把第四层 ...</blockquote>
+直接ce呗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

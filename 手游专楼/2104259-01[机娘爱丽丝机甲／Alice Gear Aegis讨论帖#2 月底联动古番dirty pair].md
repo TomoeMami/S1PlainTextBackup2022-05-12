@@ -1002,3 +1002,22 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 （因为联动去补片，现在看到17集了，这片太强了，角色已经变得想抽了，已经中了阿金的陷阱
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 91#         楼主| 发表于 2022-11-28 12:22
+
+圭的还原度很可以啊~~
+
+（因为联动去补片，现在看到17集了，这片太强了，角色已经变得想抽了，已经中了阿金的陷阱
+
+*****
+
+####  江戸前ルナ  
+##### 92#         楼主| 发表于 2022-11-28 18:49
+
+阿金直接整了个OP再现MMD出来，可以的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1WR4y1y7mw/](https://www.bilibili.com/video/BV1WR4y1y7mw/)
+
