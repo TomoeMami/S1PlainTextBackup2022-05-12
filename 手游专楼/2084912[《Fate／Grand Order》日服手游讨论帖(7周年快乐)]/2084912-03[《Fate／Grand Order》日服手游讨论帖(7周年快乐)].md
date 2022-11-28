@@ -7595,3 +7595,17 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  eilot  
+##### 3694#       发表于 2022-11-28 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58662841&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-11-28 17:02</a>
+
+更新了40多m就出了3个垃圾本？？</blockquote>
+居然连饲料的狩猎本都没有?
+
+看来下星期才开?
+

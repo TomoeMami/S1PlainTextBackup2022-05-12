@@ -6421,3 +6421,21 @@ https://febri.jp/topics/llss_2nd_1/
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  ViyViy  
+##### 9511#       发表于 2022-11-28 18:30
+
+突然被戳到笑点了，门面做不好再怎么多媒体IP也没用，没多少人有兴趣继续关注。
+所以才说那些变种厕纸和伴奏BGM给唐小姐找的补越多越气，一股子外面人多不合适，现在屋里就我两，我给你跪下赔不是的样子。
+
+<img src="https://img.saraba1st.com/forum/202211/28/182757jsrhhy5b3z0fzz3k.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221128182732.jpg</strong> (23.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 18:27 上传
+
