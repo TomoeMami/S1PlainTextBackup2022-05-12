@@ -6456,3 +6456,28 @@ https://febri.jp/topics/llss_2nd_1/
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ViyViy  
+##### 9513#       发表于 2022-11-28 21:35
+
+<blockquote>微博：@咸鲅
+
+今天第一次去鲤鱼姐的活动，抽到了第一排，鲤鱼姐太可爱辣
+
+整个活动是对谈形式，记录一些有意思的问题：
+
+staff：有没有对于日本的文化和习惯感到不适应的时候？
+
+鲤鱼：我非常不擅长鞠躬，来日本单独活动的第一年，基本上都没有鞠躬过。后来加入组合之后，也搞不清鞠躬到底要鞠多久，就会出现大家还在鞠躬，只有我一个人抬起头来的情况…
+
+staff：出现这种情况的话，你一般会怎么做呢？
+
+鲤鱼：啊我就……我就搞砸了，反正我是外国人，这是正常的.jpg 对了好孩子不要学我哦.jpg
+
+staff：请问你觉得日本的宅文化和中国的有什么不同呢？
+
+鲤鱼：我感觉日本的阿宅对作品很认真，但是中国的阿宅喜欢用作品来造梗玩</blockquote>姐歪果人，怎么滴了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
