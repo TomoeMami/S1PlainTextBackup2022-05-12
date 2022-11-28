@@ -6247,3 +6247,31 @@ https://febri.jp/topics/llss_2nd_1/
 
 再下去要输U149了，虹输完输U149，再输百万，接下来没人输了（
 
+
+
+*****
+
+####  cat1230  
+##### 9497#       发表于 2022-11-28 15:42
+
+虹的商业成绩也没有特别突出吧，好评的动画的碟片销量特没有异军突起，所以指望京极花田学学虹那套应该不大可能吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没有财报上明显的数字，上面的大人物是不会在意这些细节的。唯一受伤的可能只有打铁的嗓子，这也是大香老师普度众生所遭受的代价吧。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  愛さ実  
+##### 9498#       发表于 2022-11-28 15:42
+
+<img src="https://img.saraba1st.com/forum/202211/28/154139kx7x79nm77lqk7mx.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4634.PNG</strong> (674.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 15:41 上传
+
+不知道花田老师有没有这种心情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
