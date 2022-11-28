@@ -14194,3 +14194,34 @@ ok多谢，看来3只能忍着了
 泊灵也是队友，你还漏了俩</blockquote>
 草，这狼我从头到尾都没带过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asdfg  
+##### 2721#       发表于 2022-11-28 19:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58651795&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-27 09:26</a>
+
+全通以后来讨论几个剧情问题：
+
+1. 我在第四章蛇神关，清楚的记得神父+修女+红毛并称三英雄；然后到了第五 ...</blockquote>
+1. 去打的时候是四英雄（红毛，修女，牧师，弓箭手）
+
+大魔王的时候红毛看见核心是他妹妹，崩了，当场背刺同伴把剩下三个人打扑了，于是没有成功干掉魔王，红毛也就成为了背叛者。于是传下来就是三英雄。
+
+后来回到过去之后红毛背叛事件没有发生，于是就四英雄下来了。
+
+2. 宰相和公主是两码事。宰相我记得没有特别多提相貌。画出来的和描述不符没有解释过为什么，但可能单纯是画师画的都比较好看。
+
+而第六章进行过程中的“公主”显然和后来实际出现的公主不是一个人。至于是谁，到后边会解释，不过你看那个人像应该也能猜到了……
+
+*****
+
+####  komoechan  
+##### 2722#       发表于 2022-11-28 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58664308&amp;ptid=2098044" target="_blank">cnwind042 发表于 2022-11-28 18:42</a>
+因为没看攻略瞎打的，白的那个没拿，黑给的那个被我手贱做成巧克力了，拿队友10个之后又刷了十几把第四层 ...</blockquote>
+巧克力可以分解的哦，掉率是很低没错，我为了保情人节礼物在天平上，也刷了得有10圈才出了一个
+
