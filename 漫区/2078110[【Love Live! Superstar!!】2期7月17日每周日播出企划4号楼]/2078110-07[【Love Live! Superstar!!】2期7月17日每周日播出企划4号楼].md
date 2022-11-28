@@ -6527,3 +6527,13 @@ staff：请问你觉得日本的宅文化和中国的有什么不同呢？
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  starring  
+##### 9516#       发表于 2022-11-28 22:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58667315&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-11-28 21:54</a></blockquote>
+看第一张照片时心想鲤鱼的手指真长，然后越看越不对劲，右手手指P过头啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
