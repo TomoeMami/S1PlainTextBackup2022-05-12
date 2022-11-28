@@ -2457,3 +2457,14 @@ miko参加VARK都3次了
 
 朗读会看不下去了不会读的字太多了
 
+
+
+*****
+
+####  holoan  
+##### 3239#         楼主| 发表于 2022-11-28 19:21
+
+顺便一提推特的手游原住民正在大骂运营中，好不容易投一个工商结果观感这么差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正工商效果不好不是我们的错
+
