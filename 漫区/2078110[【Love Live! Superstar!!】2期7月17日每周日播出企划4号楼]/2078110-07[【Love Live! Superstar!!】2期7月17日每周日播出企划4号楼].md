@@ -6291,3 +6291,50 @@ https://febri.jp/topics/llss_2nd_1/
 
 我可以接受non酱表现很差，但是动画里的樱小路已经是彻底的负分角色了，仅次于叔叔。
 
+
+
+*****
+
+####  ads147147  
+##### 9500#       发表于 2022-11-28 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58661606&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-11-28 15:42</a>
+
+虹的商业成绩也没有特别突出吧，好评的动画的碟片销量特没有异军突起，所以指望京极花田学学虹那套应该不大 ...</blockquote>
+虹1星1还能说是疫情问题不能直接对比，现在第二季是接档播出，光是碟片数已经很说明问题了，更别说实质上两个续作面临的都是同样的加人问题。
+
+代哥没直接宰了京极花田这两个（又或者什么瞎指挥的上头）就已经对制作组相当宽容了。
+
+*****
+
+####  ads147147  
+##### 9501#       发表于 2022-11-28 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58661011&amp;ptid=2078110" target="_blank">四宫家印 发表于 2022-11-28 14:48</a>
+
+再下去要输U149了，虹输完输U149，再输百万，接下来没人输了（</blockquote>
+只要百万不播出，就不算输。
+
+*****
+
+####  稀勢のささ  
+##### 9502#       发表于 2022-11-28 16:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58661607&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-11-28 15:42</a>
+不知道花田老师有没有这种心情
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是真没办法，可能你一生仅有的机会在别人眼里屁都不是
+
+*****
+
+####  四宫家印  
+##### 9503#       发表于 2022-11-28 16:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58661911&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-11-28 16:03</a>
+
+虹1星1还能说是疫情问题不能直接对比，现在第二季是接档播出，光是碟片数已经很说明问题了，更别说实质上 ...</blockquote>
+就怕星三还是这俩贵物……
+
+其实星一结束的时候就已经多少觉得不对了
+
