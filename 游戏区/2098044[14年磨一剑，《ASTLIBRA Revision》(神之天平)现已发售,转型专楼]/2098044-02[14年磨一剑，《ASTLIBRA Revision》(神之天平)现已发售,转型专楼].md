@@ -14031,3 +14031,29 @@ ok多谢，看来3只能忍着了
 第八章魔物入侵的时候是谁在门口抵抗后面会讲嘛，另外这里的爱情漏了对剧情是否有影响 ...</blockquote>
 会讲，没影响
 
+
+
+*****
+
+####  cnwind042  
+##### 2706#       发表于 2022-11-28 09:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差俩爱情怎么刷都刷不出来，只能视频通关真结局了，我真的不适合刷子游戏
+
+*****
+
+####  永远的访客  
+##### 2707#       发表于 2022-11-28 09:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58655587&amp;ptid=2098044" target="_blank">アルメリア 发表于 2022-11-28 03:42</a>
+
+第八章魔物入侵的时候是谁在门口抵抗后面会讲嘛，另外这里的爱情漏了对剧情是否有影响 ...</blockquote>
+第8章结束前基本就已经说清楚了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lightingwolf  
+##### 2708#       发表于 2022-11-28 09:28
+
+扭蛋是不是有限的？我后面出来的都是空的
+
