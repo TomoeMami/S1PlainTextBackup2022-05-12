@@ -6381,3 +6381,14 @@ https://febri.jp/topics/llss_2nd_1/
 
 而且小星星不还是可以的嘛，斗蛐蛐不要打人啊jpg
 
+
+
+*****
+
+####  cybernetics31  
+##### 9507#       发表于 2022-11-28 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58662544&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-11-28 16:46</a>
+虹2还没出完呢，电子斗蛐蛐不急一时，主要是基本盘是定死的出的多烂都有人愿意买。不过前下还看到说拉拉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提小星星不就是因为卖的还行嘛，星2的歌卖的咋样都清楚啊…………真的不太行
+
