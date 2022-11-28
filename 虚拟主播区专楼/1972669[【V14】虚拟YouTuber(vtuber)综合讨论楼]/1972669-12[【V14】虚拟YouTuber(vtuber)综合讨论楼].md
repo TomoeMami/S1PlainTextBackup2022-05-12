@@ -1452,3 +1452,14 @@ Selen这意思是想做个彩虹原创曲的翻唱播放台？
 
 只要还是第一个发出来的就不算火星。
 
+
+
+*****
+
+####  大主教伊瑞尔  
+##### 17760#       发表于 2022-11-28 08:37
+
+ethyria 2.0
+
+我觉得没有1.0耐看，特别是reimu和millie<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
