@@ -14225,3 +14225,15 @@ ok多谢，看来3只能忍着了
 因为没看攻略瞎打的，白的那个没拿，黑给的那个被我手贱做成巧克力了，拿队友10个之后又刷了十几把第四层 ...</blockquote>
 巧克力可以分解的哦，掉率是很低没错，我为了保情人节礼物在天平上，也刷了得有10圈才出了一个
 
+
+
+*****
+
+####  夜来  
+##### 2723#       发表于 2022-11-28 21:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58636296&amp;ptid=2098044" target="_blank">取名真是难 发表于 2022-11-27 00:59</a>
+这个素材爆率感觉是不是有点问题，现在第四章装了盗贼技能海底的那几条鱼爆率还没有第三章时候没装技能的高 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四章的技能不加怪物素材掉率，只加食品素材掉率
+我记得6章老家的剥取名人这个技能才能加怪物素材掉率<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+

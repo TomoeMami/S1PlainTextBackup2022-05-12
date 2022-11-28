@@ -2549,3 +2549,14 @@ miko也是，看是个黄油改作就很激动瞎比接工商，结果一看就�
 
 可以
 
+
+
+*****
+
+####  rs5621  
+##### 3247#       发表于 2022-11-28 21:55
+
+努力孵蛋中
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

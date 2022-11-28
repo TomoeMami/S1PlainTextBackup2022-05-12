@@ -6481,3 +6481,34 @@ staff：请问你觉得日本的宅文化和中国的有什么不同呢？
 
 鲤鱼：我感觉日本的阿宅对作品很认真，但是中国的阿宅喜欢用作品来造梗玩</blockquote>姐歪果人，怎么滴了！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kfly  
+##### 9514#       发表于 2022-11-28 21:54
+
+<img src="https://img.saraba1st.com/forum/202211/28/215417dbsl7sb61d3c65s5.jpg" referrerpolicy="no-referrer">
+
+<strong>acad3be0a6b2fa5b6345ffc90a889321.jpg</strong> (661.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 21:54 上传
+
+<img src="https://img.saraba1st.com/forum/202211/28/215421bfexoc1slxoz23t5.jpg" referrerpolicy="no-referrer">
+
+<strong>b9ea8dcb2f73009f61f94d5e03da5e00.jpg</strong> (314.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 21:54 上传
+
+<img src="https://img.saraba1st.com/forum/202211/28/215423fk6kkke6gckte64c.jpg" referrerpolicy="no-referrer">
+
+<strong>8bc80b010c91bd1eda0f88ff694b3f8d.jpg</strong> (620.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 21:54 上传
+
