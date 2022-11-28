@@ -2499,3 +2499,22 @@ miko也是，看是个黄油改作就很激动瞎比接工商，结果一看就�
 
 推特没反应是怎么回事，看来今晚在忙
 
+
+
+*****
+
+####  rs5621  
+##### 3243#       发表于 2022-11-28 20:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/28/200851k1dxduritmwsstwd.png" referrerpolicy="no-referrer">
+
+<strong>NPMYOF_KDFYI))KM2.PNG</strong> (306.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 20:08 上传
+
+这35，专门截这张是吧
+
