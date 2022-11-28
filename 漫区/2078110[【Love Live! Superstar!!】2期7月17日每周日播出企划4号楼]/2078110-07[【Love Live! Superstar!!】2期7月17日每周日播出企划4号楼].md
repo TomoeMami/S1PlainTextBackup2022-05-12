@@ -6410,3 +6410,14 @@ https://febri.jp/topics/llss_2nd_1/
 
 说到星2的歌，第三话的插曲真的毫无存在感，第八话插曲即使不好听起码旋律还能记起，go restart听了几次都完全记不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 9510#       发表于 2022-11-28 17:39
+
+不止碟啊，还有更大头的周边销量，总营收在万代财报里应该有细分，给股东们看的只是ll一项的总数，没看过他家的财报，我是这么彩的。如果星整体营收差很多，作为上市公司不应该没动作啊，只能说基本盘保底，再烂也不会亏，努力做也不能翻倍，导致整个运营摆烂啃老。到毁灭的那一天他们就知道痛了。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
