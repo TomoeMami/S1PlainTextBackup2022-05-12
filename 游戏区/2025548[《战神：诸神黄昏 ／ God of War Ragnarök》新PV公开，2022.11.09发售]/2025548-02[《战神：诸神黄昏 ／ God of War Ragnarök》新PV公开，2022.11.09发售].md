@@ -3379,3 +3379,14 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 这作 ...</blockquote>
 向右躲好像还是会被打到 而且我还带了回避距离+2的护石 是不是要快接近身前的时候才躲避
 
+
+
+*****
+
+####  糖然君  
+##### 1807#       发表于 2022-11-28 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58656383&amp;ptid=2025548" target="_blank">白猫MKII 发表于 2022-11-28 08:18</a>
+5是抓林德虫的道路？如果是的话打造枪前就能接了</blockquote>
+不是，松鼠会给你几个新种子，去剧情上奎爷没去过的地图，庇佑林地、约顿海姆之类的
+
