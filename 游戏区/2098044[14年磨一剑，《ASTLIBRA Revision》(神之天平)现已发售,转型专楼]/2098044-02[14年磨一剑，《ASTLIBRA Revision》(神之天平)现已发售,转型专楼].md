@@ -14104,3 +14104,15 @@ ok多谢，看来3只能忍着了
 奇怪，一共37个小徽章，第37个扭蛋是凯撒奖牌，奖品都是一一对应的，你怎么还能转出空的来。 ...</blockquote>
 修改了小徽章的数量大概
 
+
+
+*****
+
+####  gwchobit  
+##### 2713#       发表于 2022-11-28 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58654743&amp;ptid=2098044" target="_blank">Senbascira 发表于 2022-11-28 01:17</a>
+
+这游戏不会也来一出拉xx就是玛xx吧</blockquote>
+刚玩的时候会很顺的这样想,后面会有很多反转.
+
