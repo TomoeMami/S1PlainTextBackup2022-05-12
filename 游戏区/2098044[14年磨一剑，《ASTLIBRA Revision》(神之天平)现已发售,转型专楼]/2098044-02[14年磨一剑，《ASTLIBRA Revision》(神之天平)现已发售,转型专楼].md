@@ -14082,3 +14082,25 @@ ok多谢，看来3只能忍着了
 扭蛋是不是有限的？我后面出来的都是空的</blockquote>
 对，拿到最终残虐神数这个盾牌以后就没有新的了，本质上就是兑换券，怕你流程漏掉给的溢出了。
 
+
+
+*****
+
+####  yueyut  
+##### 2711#       发表于 2022-11-28 14:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58657051&amp;ptid=2098044" target="_blank">lightingwolf 发表于 2022-11-28 09:28</a>
+
+扭蛋是不是有限的？我后面出来的都是空的</blockquote>
+奇怪，一共37个小徽章，第37个扭蛋是凯撒奖牌，奖品都是一一对应的，你怎么还能转出空的来。
+
+*****
+
+####  urvark  
+##### 2712#       发表于 2022-11-28 14:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58660417&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-28 14:02</a>
+
+奇怪，一共37个小徽章，第37个扭蛋是凯撒奖牌，奖品都是一一对应的，你怎么还能转出空的来。 ...</blockquote>
+修改了小徽章的数量大概
+
