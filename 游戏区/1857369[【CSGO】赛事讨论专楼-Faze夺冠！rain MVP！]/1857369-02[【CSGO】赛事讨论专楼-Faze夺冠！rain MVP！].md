@@ -93,3 +93,19 @@ Blast这个表演赛有点意思啊<img src="https://static.saraba1st.com/image/
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  雨中曲  
+##### 2926#       发表于 2022-11-28 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58660986&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-11-28 14:46</a>
+
+看看年底总决先，主要ESL最近几场比赛办的太拉，里约烂，epl经典人山人海两观众，今年还彻底砍掉了dreamh ...</blockquote>
+dreamhack展会可是ESL最值钱的项目，毕竟游戏年头长了，可能就不流行。PCMR的聚会展会可一直会是稀缺品。
+
+dreamhack可是专业的展会举办方，肯定是先办好展会再发展电竞比赛，优先度不一样。ESL次级赛程分站基本就是跟dreamhack的步伐。
+
+所以科隆，卡托，会比较特殊，都是以CSGO比赛优先
+
