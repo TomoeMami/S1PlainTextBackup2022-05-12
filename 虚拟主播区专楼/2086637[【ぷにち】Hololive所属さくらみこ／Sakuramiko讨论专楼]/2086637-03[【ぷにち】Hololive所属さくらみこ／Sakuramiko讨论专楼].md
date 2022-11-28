@@ -2381,3 +2381,12 @@ miko参加VARK都3次了
 
 这玩意原本是黄油，这人莫不会以前玩过吧
 
+
+
+*****
+
+####  rs5621  
+##### 3231#       发表于 2022-11-28 13:48
+
+真的话,那很符合我心目中黄油大师的形象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
