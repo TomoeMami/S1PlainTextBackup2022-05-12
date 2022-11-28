@@ -6392,3 +6392,21 @@ https://febri.jp/topics/llss_2nd_1/
 虹2还没出完呢，电子斗蛐蛐不急一时，主要是基本盘是定死的出的多烂都有人愿意买。不过前下还看到说拉拉 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提小星星不就是因为卖的还行嘛，星2的歌卖的咋样都清楚啊…………真的不太行
 
+
+
+*****
+
+####  player3960  
+##### 9508#       发表于 2022-11-28 17:24
+
+今天鲤鱼早稻田大学活动，等一个repo，看返图好像有主持人，应该是对谈性质的
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 9509#       发表于 2022-11-28 17:24
+
+说到星2的歌，第三话的插曲真的毫无存在感，第八话插曲即使不好听起码旋律还能记起，go restart听了几次都完全记不住<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

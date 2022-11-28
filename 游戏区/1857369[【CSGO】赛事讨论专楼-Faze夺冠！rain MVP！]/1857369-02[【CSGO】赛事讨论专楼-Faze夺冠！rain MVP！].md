@@ -82,3 +82,14 @@ Blast这个表演赛有点意思啊<img src="https://static.saraba1st.com/image/
 感觉先别对blast巴黎期待太高，毕竟blast总部丹麦主场，资源优势多。就像ESL总部科隆，分部卡托活动也不会 ...</blockquote>
 看看年底总决先，主要ESL最近几场比赛办的太拉，里约烂，epl经典人山人海两观众，今年还彻底砍掉了dreamhack的赛事，pgl一直垃，其他也不举办比赛了
 
+
+
+*****
+
+####  Rainwedell  
+##### 2925#       发表于 2022-11-28 17:25
+
+摸鱼看完录播，还是很精彩的，恭喜x队<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
