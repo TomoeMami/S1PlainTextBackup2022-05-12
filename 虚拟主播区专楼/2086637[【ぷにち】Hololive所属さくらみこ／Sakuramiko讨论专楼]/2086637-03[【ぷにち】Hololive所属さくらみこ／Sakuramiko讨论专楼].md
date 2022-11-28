@@ -2390,3 +2390,21 @@ miko参加VARK都3次了
 
 真的话,那很符合我心目中黄油大师的形象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ZQXY2002  
+##### 3232#       发表于 2022-11-28 14:19
+
+传颂之物IP现在可是叶子社这个老牌黄油公司的救命稻草啊。
+
+其实叶子社自从白色相簿2之后就没出过黄油，之后摸爬滚打在主机市场，现在也就靠着传颂之物手游赚钱了。<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 3233#         楼主| 发表于 2022-11-28 14:21
+
+然后找holo做工商来救吗，怕是按以前的规律没多久又死了
+
