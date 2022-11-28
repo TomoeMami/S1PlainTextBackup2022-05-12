@@ -66,3 +66,12 @@
 
 到了！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">8月4号预定的一共4个月
 
+
+
+*****
+
+####  isa2456  
+##### 1939#       发表于 2022-11-28 23:04
+
+想问下tf卡怎么才能在windows上拷文件<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">ext4格式主pc的win不能读，exfat的话steam又用不了，不可能准备两张卡吧？
+
