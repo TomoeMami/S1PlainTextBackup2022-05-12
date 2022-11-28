@@ -6512,3 +6512,18 @@ staff：请问你觉得日本的宅文化和中国的有什么不同呢？
 
 2022-11-28 21:54 上传
 
+
+
+*****
+
+####  ruffian  
+##### 9515#       发表于 2022-11-28 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58664135&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-28 18:30:54</a>
+突然被戳到笑点了，门面做不好再怎么多媒体IP也没用，没多少人有兴趣继续关注。
+
+ ...</blockquote>草这形容好形象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+但没办法啊，只能自我安慰“嘛，还有别的媒体可看。”但是，凭啥啊……关键是这点补丁至少我还真没底气拒绝。淦，老子来追小偶像不是来讨饭的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
