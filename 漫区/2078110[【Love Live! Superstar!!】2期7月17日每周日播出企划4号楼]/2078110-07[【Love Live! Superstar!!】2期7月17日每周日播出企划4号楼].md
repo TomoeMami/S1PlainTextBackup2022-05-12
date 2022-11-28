@@ -6358,3 +6358,12 @@ https://febri.jp/topics/llss_2nd_1/
 
 但是第三季还是这样以三次元为重的做live，我宁可他别做了，定死的正面镜头说不定还更好看点。
 
+
+
+*****
+
+####  cybernetics31  
+##### 9505#       发表于 2022-11-28 16:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

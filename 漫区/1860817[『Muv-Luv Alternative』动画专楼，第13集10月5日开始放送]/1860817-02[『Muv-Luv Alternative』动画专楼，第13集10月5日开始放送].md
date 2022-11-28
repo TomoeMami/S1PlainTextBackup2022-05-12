@@ -819,3 +819,17 @@ UN远东舰队的鸭滑也有建模有炮击动画还好几个镜头，整个感
 所以为什么老是要打要击级的尾巴啊！</blockquote>
 头太硬根本打不穿 战术机主要对付就是他和光线级
 
+
+
+*****
+
+####  忘记插卡  
+##### 2071#       发表于 2022-11-28 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58662205&amp;ptid=1860817" target="_blank">zhwpjy 发表于 2022-11-28 16:25</a>
+
+头太硬根本打不穿 战术机主要对付就是他和光线级</blockquote>
+我说的是要击级，不是突击级……
+
+要击级那个长的像人头的是尾巴
+
