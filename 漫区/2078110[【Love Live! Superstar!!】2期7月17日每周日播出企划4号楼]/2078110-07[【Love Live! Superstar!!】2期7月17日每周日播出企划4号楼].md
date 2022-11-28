@@ -6187,3 +6187,23 @@ https://febri.jp/topics/llss_2nd_1/
 
 动画就该做这种逆输入啊
 
+
+
+*****
+
+####  Kfly  
+##### 9492#       发表于 2022-11-28 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58658921&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-28 11:55</a>
+
+有叫过铃鱼，和大熊就是熊掌和鱼，不过这个不知道算不算cp名，和yabu的我是叫薮鱼，彩的好像没合照 ...</blockquote>
+彩和鱼还是有的，Venue101EXTRA的时候，不过确实很少
+
+<img src="https://img.saraba1st.com/forum/202211/28/122408cq26tqmzdp13tzpt.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>【20221001 · Venue101EXTRA】鱼&amp;amp;emorin.jpeg</strong> (76.49 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-28 12:24 上传
+
