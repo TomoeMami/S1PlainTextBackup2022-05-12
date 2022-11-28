@@ -11768,3 +11768,23 @@ bgm：双喜
 
 没有看完整，但是看开头卷卷还挺欢乐了，感觉休息一段时间会回来吧？
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2732#       发表于 2022-11-28 20:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">斑比开不了个人号，如果回来估计还是要套皮
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  黄金鸡屁屁  
+##### 2733#       发表于 2022-11-28 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58666013&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-11-28 20:30:03</a></blockquote>不对，我看到有个人号的台湾数码博主哎。看斑比怎么想的吧
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
