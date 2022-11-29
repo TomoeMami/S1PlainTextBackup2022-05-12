@@ -6849,3 +6849,63 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如买btr...专辑
 
+
+
+*****
+
+####  starring  
+##### 9544#       发表于 2022-11-29 17:05
+
+就VN那个洗脚婢形象，明天发售的CD首周销量超过3000就算胜利<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 9545#       发表于 2022-11-29 17:10
+
+<img src="https://img.saraba1st.com/forum/202211/29/171007f3v2eld7b2d0300d.jpg" referrerpolicy="no-referrer">
+
+<strong>Fis19h4aUAA82lr.jpg</strong> (250.37 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202211/29/171010fveu1kfemw7kkj4g.jpg" referrerpolicy="no-referrer">
+
+<strong>Fis1-KzacAcKleV.jpg</strong> (155.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 17:10 上传
+
+<img src="https://img.saraba1st.com/forum/202211/29/171012dmpmchfm00keiiir.jpg" referrerpolicy="no-referrer">
+
+<strong>Fis1-0AaMAAcmdt.jpg</strong> (581.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 17:10 上传
+
+*****
+
+####  haohaoh4  
+##### 9546#       发表于 2022-11-29 17:10
+
+<img src="https://img.saraba1st.com/forum/202211/29/171049cvaffu2seeofcgcy.jpg" referrerpolicy="no-referrer">
+
+<strong>0@4OZ_SE`OU~G_K24U2(0R1.jpg</strong> (97.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 17:10 上传
+
+*****
+
+####  ViyViy  
+##### 9547#       发表于 2022-11-29 17:10
+
+甚至不是大八千，看壁吧说的恶性循环笑死，这一切不都是动画烂开始的雪球。
+
+也不需要等了，我看BD3初动就是历史第一个不过万的，次周想刷2600+做梦呢，那是人家动画水平好的才有的本事，你动画啥情况？
+

@@ -14401,3 +14401,15 @@ ok多谢，看来3只能忍着了
 开新档再打一遍荒谬，顺便打了一遍内置的体验版，原来还有剧情的</blockquote>
 同样二周目荒谬受苦中,算是逼着你无伤
 
+
+
+*****
+
+####  quanlix  
+##### 2739#       发表于 2022-11-29 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58678909&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-11-29 16:49</a>
+
+同样二周目荒谬受苦中,算是逼着你无伤</blockquote>
+还好吧，我一周目打的地狱，俩难度差不太多
+
