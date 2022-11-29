@@ -6738,3 +6738,14 @@ yabu好腿prprpr<img src="https://static.saraba1st.com/image/smiley/face2017/072
 朱茵说在FMT之前没有跟1期生说 ...</blockquote>
 会不会是指那种比较聊得比较深入的对话啊，她们一巡见面的时候总不至于没说过话吧。
 
+
+
+*****
+
+####  starring  
+##### 9532#       发表于 2022-11-29 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58675278&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-29 12:21</a>
+会不会是指那种比较聊得比较深入的对话啊，她们一巡见面的时候总不至于没说过话吧。 ...</blockquote>
+第一次9人生放送的时候，Nagi也说过之前完全没跟二期生聊过天，估计是除了见面打招呼就没对话过
+
