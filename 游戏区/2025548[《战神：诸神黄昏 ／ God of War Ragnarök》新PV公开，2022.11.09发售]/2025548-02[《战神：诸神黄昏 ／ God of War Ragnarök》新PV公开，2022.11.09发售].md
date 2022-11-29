@@ -3616,3 +3616,23 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 服了，原来英文字幕才是最大的伏笔，其他角色叫提尔的时候字幕写的是Týr ，而提尔说话的时候名字是Tyr[f:0 ...</blockquote>
 那后面的真提尔是用的啥？
 
+
+
+*****
+
+####  东方定助  
+##### 1828#       发表于 2022-11-29 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58677760&amp;ptid=2025548" target="_blank">wgoenitz 发表于 2022-11-29 15:29</a>
+
+那后面的真提尔是用的啥？</blockquote>
+带撇的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突出一个细
+
+<img src="https://img.saraba1st.com/forum/202211/29/153846g4lfv040081fyyvp.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20221129153814.png</strong> (53.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 15:38 上传
+
