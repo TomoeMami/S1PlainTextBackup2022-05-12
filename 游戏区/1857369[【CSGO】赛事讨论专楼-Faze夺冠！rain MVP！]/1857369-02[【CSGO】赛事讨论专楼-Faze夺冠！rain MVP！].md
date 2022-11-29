@@ -109,3 +109,12 @@ dreamhack可是专业的展会举办方，肯定是先办好展会再发展电�
 
 所以科隆，卡托，会比较特殊，都是以CSGO比赛优先
 
+
+
+*****
+
+####  dev2ce  
+##### 2927#       发表于 2022-11-29 08:34
+
+设备elisa线下不打，打cct这种线上吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看看复健效果吧
+
