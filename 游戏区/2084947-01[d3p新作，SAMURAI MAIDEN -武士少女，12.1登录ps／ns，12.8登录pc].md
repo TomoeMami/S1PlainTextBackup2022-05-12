@@ -1,0 +1,13 @@
+
+
+*****
+
+####  宛若青空  
+##### 79#       发表于 2022-11-30 00:40
+
+PS4版预载 5.28GB
+
+虽然说看容量断定游戏体量是不靠谱的事，不过对于D3P来说可能还是有点参考价值，御姐武戏Origin好歹还有10G，虽然最多也就10小时。
+
+不过这些都无所谓，反正是买来看JK久违当一回萌豚<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

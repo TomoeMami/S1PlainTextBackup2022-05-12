@@ -14562,3 +14562,17 @@ ok多谢，看来3只能忍着了
  狂暴我感觉我的dps不足以支撑这么长时间的无伤  —— 来自 vivo V2157A, Android 12上的 S1Next- ...</blockquote>
 那就去刷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  M1NG  
+##### 2754#       发表于 2022-11-30 00:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684562&amp;ptid=2098044" target="_blank">onezer0618 发表于 2022-11-30 00:22</a>
+
+对，就是那个boss，经常招2个3万血的飞龙
+
+—— 来自 vivo V2157A, Android 12上的 S1Next-鹅版 v2.5.2-p ...</blockquote>
+照理除了那条龙剩下的玩意都是随便秒的才对，而且那条龙的主要用途也是给你上剧毒加dps。如果是觉得敌人攻击频率太高没有反击的机会，可以带上能量吸收，用低耗凭依争取无敌时间和回复。这样还是打起来吃力的话说明你不该来这，先去刷一刷吧
+
