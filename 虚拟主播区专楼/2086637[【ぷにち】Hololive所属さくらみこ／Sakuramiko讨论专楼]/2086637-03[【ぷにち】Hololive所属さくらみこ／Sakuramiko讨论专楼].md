@@ -2779,3 +2779,48 @@ buff太强了
 
 甚至国际孵化buff都救不了
 
+
+
+*****
+
+####  rs5621  
+##### 3266#       发表于 2022-11-30 04:12
+
+草,发现一个35p画师
+
+<img src="https://img.saraba1st.com/forum/202211/30/041155uf713gzrkkiirba2.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (142.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-30 04:11 上传
+
+*****
+
+####  Map-2  
+##### 3267#       发表于 2022-11-30 04:18
+
+出这么快干嘛，是同接下山了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+亲方可能还嫌闪出太早了呢
+
+*****
+
+####  rs5621  
+##### 3268#       发表于 2022-11-30 04:29
+
+要不是今天二动,我差点气晕过去了,又得是虚无杂谈的一晚.
+
+来点35黄段子
+
+<img src="https://img.saraba1st.com/forum/202211/30/042932sqgkj03p0jkbp49a.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-30 04:29 上传
+
+[https://youtu.be/4q1dsVQ2Fno](https://youtu.be/4q1dsVQ2Fno)
+

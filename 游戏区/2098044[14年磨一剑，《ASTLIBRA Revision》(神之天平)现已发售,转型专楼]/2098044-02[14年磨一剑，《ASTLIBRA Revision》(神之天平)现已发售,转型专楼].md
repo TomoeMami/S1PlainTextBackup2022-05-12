@@ -14626,3 +14626,26 @@ ok多谢，看来3只能忍着了
 1. 我在第四章蛇神关，清楚的记得神父+修女+红毛并称三英雄；然后到了第五 ...</blockquote>
 晚上还想到个问题，弓箭手是第5章中期送了精灵弓就神隐，最终章却和神父+修女在一起，暗示他已死亡，所以我怀疑剧本又玩了幽灵托言的把戏，另外他和宰相可能有关系（耳朵特征类似），但是没把故事写完整，下半部宰相偷公主内衣和修女同款，又说修女是贵族出身，加上从头到尾不明不白的公主，也不知道是不是有联系<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gwchobit  
+##### 2759#       发表于 2022-11-30 02:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684562&amp;ptid=2098044" target="_blank">onezer0618 发表于 2022-11-30 00:22</a>
+
+对，就是那个boss，经常招2个3万血的飞龙
+
+—— 来自 vivo V2157A, Android 12上的 S1Next-鹅版 v2.5.2-p ...</blockquote>
+召唤是运气,因为boss本身是粪怪,血厚就一个麻痹闪电(有起手很好处理 一个闪现 一个召唤.用白马扫,熟练应该可以不断的召唤,用能量吸收换血
+
+困难以下应该不难.荒谬血量翻倍才开狂暴
+
+*****
+
+####  yueyut  
+##### 2760#       发表于 2022-11-30 04:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">要是能多玩一会儿装备盘系统就好了。。目前游戏的节奏是，不用刷多好的装备盘，只需武装个七七八八就能把最终boss打的哭爹喊娘，然后游戏也就全通失去继续刷的动力。。如果像之前刷武器熟练度那样有奖励机制鼓励玩家刷装备盘、并且最终boss强度跟得上玩家，能更完美一些
+
