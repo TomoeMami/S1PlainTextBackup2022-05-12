@@ -131,3 +131,15 @@ exFAT格式可以在SteamOS桌面模式读取，右下角快捷区域，选择�
 
 说好的模拟神器呢，yuzu开咒术泡泡那种游戏都闪退<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  泰坦失足  
+##### 1945#       发表于 2022-11-30 07:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58668696&amp;ptid=2015700" target="_blank">isa2456 发表于 2022-11-28 23:04</a>
+
+想问下tf卡怎么才能在windows上拷文件ext4格式主pc的win不能读，exfat的话steam又用不了，不可能准 ...</blockquote>
+Linux桌面模式商城有个Usermode FTP, 我都是FTP传的
+
