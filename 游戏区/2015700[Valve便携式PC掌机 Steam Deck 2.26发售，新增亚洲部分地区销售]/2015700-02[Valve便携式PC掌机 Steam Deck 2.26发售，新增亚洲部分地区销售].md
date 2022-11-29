@@ -101,3 +101,15 @@ exFAT格式可以在SteamOS桌面模式读取，右下角快捷区域，选择�
 
 基本就是这个流程
 
+
+
+*****
+
+####  isa2456  
+##### 1942#       发表于 2022-11-29 17:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58678260&amp;ptid=2015700" target="_blank">guotao323 发表于 2022-11-29 16:04</a>
+exFAT格式可以在SteamOS桌面模式读取，右下角快捷区域，选择扩展卡后点击“mount and open” ...</blockquote>
+但是exfat不给创建steam库
+最后美团外卖了一条转接线从外接硬盘拷过去了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+

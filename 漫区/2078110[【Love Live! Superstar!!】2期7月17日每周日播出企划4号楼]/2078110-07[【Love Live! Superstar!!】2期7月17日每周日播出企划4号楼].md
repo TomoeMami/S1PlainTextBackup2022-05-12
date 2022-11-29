@@ -6943,3 +6943,19 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 感觉有点无所谓了，我加的星群别说关注销量或者说开香槟说好似的，都没几人有反应的，活跃度掉了好多。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那咋办嘛，还有啥能聊的吗，不如抱着小星星溺死得了
 
+
+
+*****
+
+####  Kfly  
+##### 9551#       发表于 2022-11-29 17:33
+
+大伙不少都骂累了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 9552#       发表于 2022-11-29 17:36
+
+是没啥聊的了，虹群发点步梦图都能玩波梗，星群基本只是聊聊鱼她们了
+
