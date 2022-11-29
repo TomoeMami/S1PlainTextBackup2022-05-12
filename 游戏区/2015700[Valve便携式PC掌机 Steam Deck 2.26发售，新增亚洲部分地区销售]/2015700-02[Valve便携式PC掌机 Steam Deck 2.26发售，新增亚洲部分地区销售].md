@@ -113,3 +113,12 @@ exFAT格式可以在SteamOS桌面模式读取，右下角快捷区域，选择�
 但是exfat不给创建steam库
 最后美团外卖了一条转接线从外接硬盘拷过去了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kalavinka  
+##### 1943#       发表于 2022-11-29 22:58
+
+仁王2有稳40帧的设置吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉优化好屎
+
