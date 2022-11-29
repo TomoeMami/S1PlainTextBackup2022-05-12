@@ -14471,3 +14471,12 @@ ok多谢，看来3只能忍着了
 我找到问题了，一般我都是挑起来空步打的，之前空步输出高，都已经肌肉记忆了，根本没发现这玩意多离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 好家伙这东西空战基本没啥提升。但站地上撸，一刀两万多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">离离原上谱了属于是
 
+
+
+*****
+
+####  维克塔利昂  
+##### 2745#       发表于 2022-11-29 22:02
+
+进到新章装备一强化，难度陡降。。。
+

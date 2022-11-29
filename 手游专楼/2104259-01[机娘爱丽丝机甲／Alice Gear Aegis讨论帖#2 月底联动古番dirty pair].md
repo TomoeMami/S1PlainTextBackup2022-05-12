@@ -1036,3 +1036,21 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 不过两位老声优，特别是百合的声线，只能感叹真的岁月不饶人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LEOKO~  
+##### 94#       发表于 2022-11-29 22:06
+
+阿噶同世界观联动喜加一
+
+*****
+
+####  不灭的旋律  
+##### 95#       发表于 2022-11-29 22:08
+
+不是全语音，说明社长独走还是被压住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+提醒一下两人也能做点心
+
