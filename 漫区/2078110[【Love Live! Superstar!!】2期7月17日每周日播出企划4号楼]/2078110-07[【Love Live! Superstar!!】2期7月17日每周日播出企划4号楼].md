@@ -6614,3 +6614,69 @@ staff：请问你觉得日本的宅文化和中国的有什么不同呢？
 肯定单人优先级高</blockquote>
 动画捧香音，粉丝也要跟着投香音么？按我个人的，恋，夏美，希奈子这三其中一个单人吧
 
+
+
+*****
+
+####  优妮可  
+##### 9524#       发表于 2022-11-29 11:16
+
+<img src="https://img.saraba1st.com/forum/202211/29/111609updcn2dblelmzwc3.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8187_1280.jpg</strong> (224.09 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202211/29/111610qb44vffvsbiv00bi.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8125_2400 (2).jpg</strong> (638.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202211/29/111611lqvwbe28hsyjwzqb.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8021_1280.jpg</strong> (238.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202211/29/111611i4fmnfojilfi41of.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8164_1280.jpg</strong> (278.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202211/29/111611x5teo44rokpok4ot.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8266_1280.jpg</strong> (149 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 11:16 上传
+
+<img src="https://img.saraba1st.com/forum/202211/29/111612dq2kgzgmuemvrguu.jpg" referrerpolicy="no-referrer">
+
+<strong>V8A8243_1280.jpg</strong> (147.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 11:16 上传
+
+https://febri.jp/topics/llss_2nd_2/
+
+*****
+
+####  稀勢のささ  
+##### 9525#       发表于 2022-11-29 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58673889&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-29 10:52</a>
+动画捧香音，粉丝也要跟着投香音么？按我个人的，恋，夏美，希奈子这三其中一个单人吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都是单人的话还可以聊，这有单人有成对优先级又不明确不是想谁上就谁上，投一票意思一下就行了
+
