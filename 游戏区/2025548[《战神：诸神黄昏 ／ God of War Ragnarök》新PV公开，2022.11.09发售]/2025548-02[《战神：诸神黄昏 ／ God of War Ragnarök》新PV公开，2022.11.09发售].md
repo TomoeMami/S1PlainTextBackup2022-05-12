@@ -3556,3 +3556,30 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 白金了，还是意难平。索尔死得憋屈，提尔就是个废物
 
+
+
+*****
+
+####  东方定助  
+##### 1824#       发表于 2022-11-29 12:42
+
+ 本帖最后由 东方定助 于 2022-11-29 12:49 编辑 
+
+服了，原来英文字幕才是最大的伏笔，其他角色叫提尔的时候字幕写的是Týr ，而提尔说话的时候名字是Tyr<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/29/124855tp1s8ne22cnunnhj.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20221129124636.png</strong> (38.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 12:48 上传
+
+<img src="https://img.saraba1st.com/forum/202211/29/124855ob5w3b6fbbt8mbed.png" referrerpolicy="no-referrer">
+
+<strong>微信截图_20221129124656.png</strong> (72.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-29 12:48 上传
+
