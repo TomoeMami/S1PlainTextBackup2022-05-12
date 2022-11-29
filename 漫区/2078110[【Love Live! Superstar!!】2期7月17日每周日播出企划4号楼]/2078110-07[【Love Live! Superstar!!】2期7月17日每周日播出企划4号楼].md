@@ -6548,3 +6548,16 @@ staff：请问你觉得日本的宅文化和中国的有什么不同呢？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  saya1892  
+##### 9518#       发表于 2022-11-29 09:28
+
+[https://twitter.com/156mochokawaii/status/1597228159765999618](https://twitter.com/156mochokawaii/status/1597228159765999618)
+
+比较好懂的repo
+
+特别是「当日の意気込み」这句看了三个版本，直到这个才看懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
