@@ -87,3 +87,17 @@
 想问下tf卡怎么才能在windows上拷文件ext4格式主pc的win不能读，exfat的话steam又用不了，不可能准 ...</blockquote>
 exFAT格式可以在SteamOS桌面模式读取，右下角快捷区域，选择扩展卡后点击“mount and open”
 
+
+
+*****
+
+####  zris  
+##### 1941#       发表于 2022-11-29 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58591902&amp;ptid=2015700" target="_blank">晴岚 发表于 2022-11-24 16:29</a>
+
+问一下现在想买steam deck但不想在闲鱼或者淘宝上面买的话转运那些应该怎么操作？ ...</blockquote>
+美区号，充值美刀，找转运，收货
+
+基本就是这个流程
+
