@@ -2571,3 +2571,12 @@ amongus的联动周边到预售期结束了也没发一条推宣传过
 
 看来是相当不满了
 
+
+
+*****
+
+####  rs5621  
+##### 3249#       发表于 2022-11-29 15:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这联动太没存在感了，你不说，我都快不记得这联动了
+
