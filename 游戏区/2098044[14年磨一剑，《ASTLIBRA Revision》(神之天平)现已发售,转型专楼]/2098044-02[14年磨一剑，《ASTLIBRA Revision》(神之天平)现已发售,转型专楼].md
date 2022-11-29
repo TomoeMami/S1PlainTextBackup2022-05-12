@@ -14489,3 +14489,21 @@ ok多谢，看来3只能忍着了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">把移动速度改到110之后发现了新的乐子
 
+
+
+*****
+
+####  onezer0618  
+##### 2747#       发表于 2022-11-29 23:42
+
+第五章这个boss，怎么打，招了一堆几万血的boss，能不能过全看脸吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  十个印地男孩  
+##### 2748#       发表于 2022-11-29 23:45
+
+开局乌鸦在河流上忙碌，往树林走就会弹出跳过事件，是跳过了什么事件啊
+
