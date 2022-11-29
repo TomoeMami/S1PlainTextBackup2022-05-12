@@ -3595,3 +3595,12 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 服了，原来英文字幕才是最大的伏笔，其他角色叫提尔的时候字幕写的是Týr ，而提尔说话的时候名字是Tyr[f:0 ...</blockquote>
 这个细节好鸡贼啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wujae  
+##### 1826#       发表于 2022-11-29 14:37
+
+字幕这个伏笔厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+

@@ -14362,3 +14362,12 @@ ok多谢，看来3只能忍着了
 
 希望这游戏可以出个DLC，给深渊的怪物和装备盘都加个词缀系统。同时将层数可以无限向下<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 2735#       发表于 2022-11-29 14:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">把防御改到4000总算是能在困难横着走了
+
