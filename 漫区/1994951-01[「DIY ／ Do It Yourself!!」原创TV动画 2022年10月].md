@@ -6730,3 +6730,12 @@ self还搁这儿楔钉子呢，媳妇都快要给人睡了（排球人并感）<
 布丁这是算半入部了吗草</blockquote>
 第一张图应该是在小己家的院子里
 
+
+
+*****
+
+####  Piano-Forest  
+##### 515#         楼主| 发表于 2022-11-30 01:08
+
+<img src="https://p.sda1.dev/8/adc92a80fadc89ba9a9e4d43651bca68/20221130_010653.jpg" referrerpolicy="no-referrer">
+
