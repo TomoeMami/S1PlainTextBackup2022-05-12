@@ -6715,3 +6715,26 @@ yabu好腿prprpr<img src="https://static.saraba1st.com/image/smiley/face2017/072
 朱茵说在FMT之前没有跟1期生说 ...</blockquote>
 之前说因为新冠各种收录是一二期分开的  不知道这个是指配音还是录碟
 
+
+
+*****
+
+####  saya1892  
+##### 9530#       发表于 2022-11-29 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58675176&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-11-29 12:11</a>
+
+之前说因为新冠各种收录是一二期分开的  不知道这个是指配音还是录碟</blockquote>
+铃原昨天访谈说的是录前半动画的时候跟鱼一起回家的路上，这时间不太好推断，说不定2期公开之前她们就在做相关工作了
+
+鱼之前说过录歌的时候完全不知道剧情，所以应该录歌的时间早于动画录音
+
+*****
+
+####  优妮可  
+##### 9531#       发表于 2022-11-29 12:21
+
+<blockquote>saya1892 发表于 2022-11-29 12:06
+朱茵说在FMT之前没有跟1期生说 ...</blockquote>
+会不会是指那种比较聊得比较深入的对话啊，她们一巡见面的时候总不至于没说过话吧。
+
