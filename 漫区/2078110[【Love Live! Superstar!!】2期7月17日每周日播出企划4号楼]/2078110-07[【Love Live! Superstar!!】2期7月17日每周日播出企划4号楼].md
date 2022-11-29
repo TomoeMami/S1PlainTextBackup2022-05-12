@@ -7040,3 +7040,31 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 
 至少鱼现在在9人体制里混得还挺如鱼得水，并且很多活动里随着日语的进步更加出彩，这大概是企划挽留我的最后一点手段罢
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9561#       发表于 2022-11-29 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小剧场我从来都是跳的(
+
+*****
+
+####  灼眼的夏娜酱  
+##### 9562#       发表于 2022-11-29 18:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58679220&amp;ptid=2078110" target="_blank">haohaoh4 发表于 2022-11-29 17:10</a>
+
+。</blockquote>
+怎么这个楼里也有你，还就发一个句号<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9563#       发表于 2022-11-29 18:37
+
+赶紧出分队分成一期生二期生三期生罢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
