@@ -6682,3 +6682,33 @@ self还搁这儿楔钉子呢，媳妇都快要给人睡了（排球人并感）<
 
 剧中第 5 集提到过目前社团活动经费有 8 万日元左右，买建树屋必不可少的「树屋固定螺栓（TAB）」需要 12~13 万日元左右（占了大头），这次卖了 4 万日元，应该能买 TAB，而其他大多数材料和工具都是现成的。
 
+
+
+*****
+
+####  千恋万花  
+##### 512#       发表于 2022-11-29 16:03
+
+【すてっぷ⑨】ＤＩＹって、どっきり？・いがい！・よていがい！
+
+７月、せるふたちの学校の期末試験が終わり、溜まった資金で『秘密基地』作りに必要なパーツも発注し、いよいよ着工が目前に迫る。
+
+「週明け、月曜日の放課後から作業を開始し、夏休みまでには完成」させるというくれいの言葉に、盛り上がるせるふたち。
+
+日曜日、せるふはＤＩＹ部の部員を家に呼ぶ。
+
+自分の不器用さを自覚しているせるふは、それでも自分もＤＩＹ部の一員で、役に立つ所を見せたいとの思いから、誰の手も借りずにひとりで懸命に「豚小屋」を作ろうとする。
+
+たくみやジョブ子たち、そしてぷりんも、ハラハラと見守るが……。
+
+脚本：筆安一幸 
+
+絵コンテ・演出：ソガメグミ
+
+作画監督：上原史之 加藤けえ
+<img src="https://p.sda1.dev/8/e94da4844600a3e4eedb6e742766c5f9/d8f36ef49140ee329ac556a16876ae27.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/61cf17a8530c9fe706e8a16191f17b75/46ec962e1eba601072d5204968517f80.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/47261603bebfaf1123dbd80333bba6da/7777ed72c0ec241a2323772abd3b513f.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/015a8f1f158b9bc7234ef96dfcbd2bb9/03e398c7f3883ec40e849e584c2472c3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/21f555637e0ef3b9a6c91dfee33a82f9/e33f3358d2c605b74ab7ebbc4aada647.jpg" referrerpolicy="no-referrer">
+

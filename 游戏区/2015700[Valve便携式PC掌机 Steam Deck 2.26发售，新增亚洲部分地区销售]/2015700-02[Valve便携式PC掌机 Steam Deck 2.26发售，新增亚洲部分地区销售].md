@@ -75,3 +75,15 @@
 
 想问下tf卡怎么才能在windows上拷文件<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">ext4格式主pc的win不能读，exfat的话steam又用不了，不可能准备两张卡吧？
 
+
+
+*****
+
+####  guotao323  
+##### 1940#       发表于 2022-11-29 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58668696&amp;ptid=2015700" target="_blank">isa2456 发表于 2022-11-28 23:04</a>
+
+想问下tf卡怎么才能在windows上拷文件ext4格式主pc的win不能读，exfat的话steam又用不了，不可能准 ...</blockquote>
+exFAT格式可以在SteamOS桌面模式读取，右下角快捷区域，选择扩展卡后点击“mount and open”
+
