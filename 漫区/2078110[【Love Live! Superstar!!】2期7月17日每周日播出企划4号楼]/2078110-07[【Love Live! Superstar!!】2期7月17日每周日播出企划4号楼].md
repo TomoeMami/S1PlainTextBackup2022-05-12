@@ -7235,3 +7235,18 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 
 但是现在来看最热衷于复制LL的成功的人不是别人就是LL企划自己啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 9581#       发表于 2022-11-29 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58681824&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-11-29 20:31</a>
+怎么还有人转发我之前的吐槽的
+
+话说其实就是
+
+想起来无印最火那段时间出的一些偶像企划</blockquote>
+过于精辟令人过目难忘<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
