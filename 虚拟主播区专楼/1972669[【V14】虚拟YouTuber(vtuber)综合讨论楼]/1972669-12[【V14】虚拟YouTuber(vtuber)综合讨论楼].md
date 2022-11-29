@@ -1490,3 +1490,28 @@ ethyria 2.0
 
 乐天的家电杯怎么一个虹人都没有……
 
+
+
+*****
+
+####  SuntoryNomu  
+##### 17764#       发表于 2022-11-29 18:03
+
+<strong>【Sony公布动作捕捉设备 “mocopi” ，可创作虚拟形象短片】</strong>
+
+日本Sony公布动作捕捉设备 “mocopi” ，是一套简易的动作捕捉系统，使用者仅需穿戴 6 个感测器并与手机连接，即可结合虚拟形象打造动态虚拟形象的短片。
+
+且由于 mocopi 设备不须搭配外部侦测装置，仅需使用手机接收 6 个感测器的讯号，无论何时何地都能进行动态捕捉，相当适合作为以虚拟形象制舞蹈影片、建立虚拟形象动画或打造更动感的 Vtuber 等用途。
+
+mocopi 包括 6 个感测器，分别佩戴在头部、左右腕、臀部与左右脚踝，借助算法与自动虚拟人物连动骨架技术，能够以简单的方式完成 3D 动态的虚拟形象影片，同时 Sony 也提供相关应用程序 mocopi Receiver Plugin ，除了可在APP记录动态信息与信息输出、影像合成以外，还可将动态资料即时输出到 Unity、MotionBuilder 、 VMC 虚拟动作捕捉、 VR Chat 等软件进行更复杂的人物动作制作，另外在APP也可录制语音并使虚拟人物的脸部也做出对应的表情。
+
+当前 mocopi 的应用程式主要提供给 Sony 旗下 Xperia 1 与 Xperia 5 系列机型与 iPhone ，后续将会陆续增加对应的机型。每个感测器约 8 克，一次充电最多可使用 10 小时，感测器本身具备 IPX5/IPX8 防水与 IP6X 防尘，能在雨中或轻微潮湿环境中使用。
+
+官网型号参考如下
+
+安卓： Xperia 5IV, Xperia 1IV, Xperia 5III, Xperia 1III, Xperia 5II, Xperia 1II
+
+iOS：iPhone 14 Pro Max、iPhone 14 Pro、iPhone 14 Plus、iPhone14、iPhone 13 Pro Max、iPhone 13 Pro、iPhone 13、iPhone 12 Pro Max、iPhone 12 Pro、iPhone 12
+
+[https://www.sony.jp/mocopi](https://www.sony.jp/mocopi)
+
