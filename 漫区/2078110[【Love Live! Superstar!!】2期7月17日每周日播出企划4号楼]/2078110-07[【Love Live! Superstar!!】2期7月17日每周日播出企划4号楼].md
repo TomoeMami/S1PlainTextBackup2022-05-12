@@ -6840,3 +6840,12 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 还单飞呢，下一季不做洗脚婢就是胜利</blockquote>
 大家都是大香老师的洗脚婢，有什么输的，能在都是洗脚婢的情况下出单曲已经赢了。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9543#       发表于 2022-11-29 16:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉不如买btr...专辑
+
