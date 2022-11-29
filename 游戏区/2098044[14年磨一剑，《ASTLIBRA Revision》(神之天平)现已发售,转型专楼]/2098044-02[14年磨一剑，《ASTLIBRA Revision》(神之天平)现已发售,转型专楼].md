@@ -14576,3 +14576,17 @@ ok多谢，看来3只能忍着了
 —— 来自 vivo V2157A, Android 12上的 S1Next-鹅版 v2.5.2-p ...</blockquote>
 照理除了那条龙剩下的玩意都是随便秒的才对，而且那条龙的主要用途也是给你上剧毒加dps。如果是觉得敌人攻击频率太高没有反击的机会，可以带上能量吸收，用低耗凭依争取无敌时间和回复。这样还是打起来吃力的话说明你不该来这，先去刷一刷吧
 
+
+
+*****
+
+####  永远的访客  
+##### 2755#       发表于 2022-11-30 00:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684123&amp;ptid=2098044" target="_blank">onezer0618 发表于 2022-11-29 23:42</a>
+
+第五章这个boss，怎么打，招了一堆几万血的boss，能不能过全看脸吗难度是困难难度，目前这个阶段有 ...</blockquote>
+我觉得主要是看脸，反正章节里能点的都点了，能练的都练了，剩下的就是瞎**技能乱轰和对方兑招
+
+当初我也卡过几次，不过很快就忘记那种痛苦了，因为后几章道中怪比这痛苦得多<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
