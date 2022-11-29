@@ -6579,3 +6579,15 @@ staff：请问你觉得日本的宅文化和中国的有什么不同呢？
 
 香音一个人可能性大还是可香可能性大啊
 
+
+
+*****
+
+####  ViyViy  
+##### 9521#       发表于 2022-11-29 10:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58673155&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-29 10:12</a>
+
+香音一个人可能性大还是可香可能性大啊</blockquote>
+肯定单人优先级高
+
