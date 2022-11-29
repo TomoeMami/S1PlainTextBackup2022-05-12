@@ -3583,3 +3583,15 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 2022-11-29 12:48 上传
 
+
+
+*****
+
+####  trollius  
+##### 1825#       发表于 2022-11-29 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58675550&amp;ptid=2025548" target="_blank">东方定助 发表于 2022-11-29 12:42</a>
+
+服了，原来英文字幕才是最大的伏笔，其他角色叫提尔的时候字幕写的是Týr ，而提尔说话的时候名字是Tyr[f:0 ...</blockquote>
+这个细节好鸡贼啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
