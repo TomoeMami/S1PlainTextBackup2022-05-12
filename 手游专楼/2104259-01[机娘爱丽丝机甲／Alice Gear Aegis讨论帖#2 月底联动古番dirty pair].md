@@ -1021,3 +1021,18 @@ dirty pair，我还找来看过两集，起因是看过本子...
 阿金直接整了个OP再现MMD出来，可以的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 [https://www.bilibili.com/video/BV1WR4y1y7mw/](https://www.bilibili.com/video/BV1WR4y1y7mw/)
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 93#         楼主| 发表于 2022-11-29 21:16
+
+ 本帖最后由 江戸前ルナ 于 2022-11-29 21:18 编辑 
+
+直接播原动画OP还行。开场就撞坏了东京船团外墙，不愧是DIRT PAIR<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）
+
+人品爆发两个都抽到了（然后追了50连AN米娅暴死还债），都打了3件专属结合试用看了下，KEI很强比百合厉害很多（原作也是比较攻和肌肉女杠正面的一方）。百合的近战伤害有点emmm。反击会扔手雷，还没试清楚。
+
+不过两位老声优，特别是百合的声线，只能感叹真的岁月不饶人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

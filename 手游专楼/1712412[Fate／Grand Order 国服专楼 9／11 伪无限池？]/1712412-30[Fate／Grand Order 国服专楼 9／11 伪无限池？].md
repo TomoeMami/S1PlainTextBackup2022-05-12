@@ -1538,3 +1538,16 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 这次几个角色塑造都挺不错的，虽然都在反复横跳但也算跳得不惹人厌。还有这什么天逆神也太丢人了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  marxel  
+##### 43780#       发表于 2022-11-29 21:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58677812&amp;ptid=1712412" target="_blank">飞霞精灵 发表于 2022-11-29 15:33</a>
+这次几个角色塑造都挺不错的，虽然都在反复横跳但也算跳得不惹人厌。还有这什么天逆神也太丢人了 ...</blockquote>
+毕竟女儿在别人手上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
