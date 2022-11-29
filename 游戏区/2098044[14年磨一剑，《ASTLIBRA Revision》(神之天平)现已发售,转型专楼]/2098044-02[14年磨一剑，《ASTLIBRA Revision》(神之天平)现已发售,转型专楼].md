@@ -14413,3 +14413,25 @@ ok多谢，看来3只能忍着了
 同样二周目荒谬受苦中,算是逼着你无伤</blockquote>
 还好吧，我一周目打的地狱，俩难度差不太多
 
+
+
+*****
+
+####  若闲  
+##### 2740#       发表于 2022-11-29 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58677743&amp;ptid=2098044" target="_blank">Kazepollar 发表于 2022-11-29 15:28</a>
+
+指令拳真无敌啊，开了暗黑和恶魔狂热以后boss压根活不过三秒。</blockquote>
+我怎么没搞懂这个指令拳。扫帚跟风精灵都有，比起用那个爪子，还是觉得光剑强点？
+
+*****
+
+####  Kazepollar  
+##### 2741#       发表于 2022-11-29 18:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58680276&amp;ptid=2098044" target="_blank">若闲 发表于 2022-11-29 18:15</a>
+
+我怎么没搞懂这个指令拳。扫帚跟风精灵都有，比起用那个爪子，还是觉得光剑强点？ ...</blockquote>
+你试试全魔加点，技能出恶魔狂热  暗黑 强化持续，DPS起飞，伤害基本8000一跳，最终BOSS每个阶段都是两三秒打完
+

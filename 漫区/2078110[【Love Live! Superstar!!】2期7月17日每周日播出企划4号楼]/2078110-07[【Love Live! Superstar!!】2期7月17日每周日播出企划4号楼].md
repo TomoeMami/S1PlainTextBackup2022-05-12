@@ -6988,3 +6988,22 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 
 3rd的场刊微博上有预览了，这豹纹裙子不但难看还显得腿短，就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9556#       发表于 2022-11-29 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候出2期动画公式书 我想看二期锐评
+
+*****
+
+####  稀勢のささ  
+##### 9557#       发表于 2022-11-29 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58680200&amp;ptid=2078110" target="_blank">starring 发表于 2022-11-29 18:09</a>
+
+3rd的场刊微博上有预览了，这豹纹裙子不但难看还显得腿短，就离谱</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拍出了大家符合自己身高的样子
+
