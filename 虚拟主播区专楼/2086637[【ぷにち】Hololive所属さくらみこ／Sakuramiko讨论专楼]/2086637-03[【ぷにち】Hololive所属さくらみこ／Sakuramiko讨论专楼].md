@@ -2824,3 +2824,16 @@ buff太强了
 
 [https://youtu.be/4q1dsVQ2Fno](https://youtu.be/4q1dsVQ2Fno)
 
+
+
+*****
+
+####  holoan  
+##### 3269#         楼主| 发表于 2022-11-30 07:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58685495&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-11-30 04:12</a>
+草,发现一个35p画师</blockquote>
+别发现了，2年前就在画了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

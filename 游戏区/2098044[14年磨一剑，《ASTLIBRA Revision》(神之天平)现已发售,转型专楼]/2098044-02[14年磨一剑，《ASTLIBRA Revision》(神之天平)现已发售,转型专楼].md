@@ -14660,3 +14660,18 @@ ok多谢，看来3只能忍着了
 第五章这个boss，怎么打，招了一堆几万血的boss，能不能过全看脸吗难度是困难难度，目前这个阶段有 ...</blockquote>
 boss机制是每次消失出现都一定会出现在玩家视野里，然后小怪不在玩家视野里时也会大幅下降，所以把boss拉在版边，龙这些慢悠悠过来集中立马疾跑到走廊另一边就很轻松
 
+
+
+*****
+
+####  redsouris  
+##### 2762#       发表于 2022-11-30 07:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684562&amp;ptid=2098044" target="_blank">onezer0618 发表于 2022-11-30 00:22</a>
+对，就是那个boss，经常招2个3万血的飞龙
+
+—— 来自 vivo V2157A, Android 12上的 S1Next-鹅版 v2.5.2-p ...</blockquote>
+次次双飞龙你该去洗脸了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
