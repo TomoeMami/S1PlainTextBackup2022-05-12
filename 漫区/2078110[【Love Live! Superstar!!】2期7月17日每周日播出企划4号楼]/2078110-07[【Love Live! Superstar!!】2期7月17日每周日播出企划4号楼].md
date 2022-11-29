@@ -7198,3 +7198,23 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 
 下期广播鱼pay彩yabu。等着官方“我的忏悔”。（指广播剧可能是可芽+堇夏，来正式宣告拆了某trash couple罢！）
 
+
+
+*****
+
+####  starring  
+##### 9578#       发表于 2022-11-29 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58681034&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-11-29 19:25</a>
+上面的大人是不是觉得动画搞成怎么样都会有粉丝买单？
+
+没有动画做良好的宣传效果，哪来的可持续发展 ...</blockquote>
+这不就卖了8000多份，比一众七月番都强，运营开心都来不及呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 9579#       发表于 2022-11-29 20:10
+
+想看朱茵和鲤鱼
+
