@@ -6920,3 +6920,26 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 感觉有点无所谓了，我加的星群别说关注销量或者说开香槟说好似的，都没几人有反应的，活跃度掉了好多。 ...</blockquote>
 早就没人关心这破玩意了，我最大的期待反而是让它好好当个跳板吧
 
+
+
+*****
+
+####  player3960  
+##### 9549#       发表于 2022-11-29 17:30
+
+代哥家大业大，三期都板上钉钉了，卖多少确实没人在乎了。
+反正这企划给鲤鱼的红利也差不多到头了，
+，来专楼也只想和大伙聊鱼而已，对这个团我早就无慈悲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 9550#       发表于 2022-11-29 17:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58678853&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-11-29 16:44</a>
+
+感觉有点无所谓了，我加的星群别说关注销量或者说开香槟说好似的，都没几人有反应的，活跃度掉了好多。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那咋办嘛，还有啥能聊的吗，不如抱着小星星溺死得了
+
