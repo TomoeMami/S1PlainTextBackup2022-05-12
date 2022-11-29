@@ -7122,3 +7122,70 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 
 我估计怕不是只要开了，哪怕只坐了一半也是有的赚的，指标不够，场次来凑喽
 
+
+
+*****
+
+####  ViyViy  
+##### 9570#       发表于 2022-11-29 19:23
+
+这场刊里的角色绘能做成周边吗，那个自拍的可可画的挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  沙茶酱  
+##### 9571#       发表于 2022-11-29 19:25
+
+上面的大人是不是觉得动画搞成怎么样都会有粉丝买单？
+
+没有动画做良好的宣传效果，哪来的可持续发展
+
+*****
+
+####  nufawneafg  
+##### 9572#       发表于 2022-11-29 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58681034&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-11-29 19:25</a>
+上面的大人是不是觉得动画搞成怎么样都会有粉丝买单？
+
+没有动画做良好的宣传效果，哪来的可持续发展 ...</blockquote>
+不要再想可持续发展了，草台班子做不到的
+
+*****
+
+####  稀勢のささ  
+##### 9573#       发表于 2022-11-29 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能多咬一块算一块 持续发展个屁勒
+
+*****
+
+####  ads147147  
+##### 9574#       发表于 2022-11-29 19:29
+
+豹纹裙不是上过地上波表演还可以吗，怎么又场刊拍的不行了。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 9575#       发表于 2022-11-29 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58681034&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-11-29 19:25</a>
+上面的大人是不是觉得动画搞成怎么样都会有粉丝买单？
+
+没有动画做良好的宣传效果，哪来的可持续发展 ...</blockquote>
+只要星3把staff的战犯降板或者沉湖，我才相信上面的大人真在乎星团。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9576#       发表于 2022-11-29 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">场刊里的自拍可可好可爱哦
+
