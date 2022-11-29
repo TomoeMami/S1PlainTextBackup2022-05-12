@@ -14507,3 +14507,25 @@ ok多谢，看来3只能忍着了
 
 开局乌鸦在河流上忙碌，往树林走就会弹出跳过事件，是跳过了什么事件啊
 
+
+
+*****
+
+####  Kazepollar  
+##### 2749#       发表于 2022-11-30 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684123&amp;ptid=2098044" target="_blank">onezer0618 发表于 2022-11-29 23:42</a>
+ 第五章这个boss，怎么打，招了一堆几万血的boss，能不能过全看脸吗难度是困难难度，目前这个阶段有 ...</blockquote>
+开狂暴，拼脸，多打几次总有一次运气好能过。
+
+*****
+
+####  rgauss  
+##### 2750#       发表于 2022-11-30 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684123&amp;ptid=2098044" target="_blank">onezer0618 发表于 2022-11-29 23:42</a>
+第五章这个boss，怎么打，招了一堆几万血的boss，能不能过全看脸吗难度是困难难度，目前这个阶段有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">招之前boss那个boss么 挺好打的 站台阶上 大部分攻击就很好躲了 招沼泽王更简单 只有石化能打到你
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

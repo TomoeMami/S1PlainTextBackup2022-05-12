@@ -122,3 +122,12 @@ exFAT格式可以在SteamOS桌面模式读取，右下角快捷区域，选择�
 
 仁王2有稳40帧的设置吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉优化好屎
 
+
+
+*****
+
+####  isa2456  
+##### 1944#       发表于 2022-11-30 00:00
+
+说好的模拟神器呢，yuzu开咒术泡泡那种游戏都闪退<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
