@@ -3604,3 +3604,15 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 字幕这个伏笔厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wgoenitz  
+##### 1827#       发表于 2022-11-29 15:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58675550&amp;ptid=2025548" target="_blank">东方定助 发表于 2022-11-29 12:42</a>
+
+服了，原来英文字幕才是最大的伏笔，其他角色叫提尔的时候字幕写的是Týr ，而提尔说话的时候名字是Tyr[f:0 ...</blockquote>
+那后面的真提尔是用的啥？
+

@@ -14371,3 +14371,12 @@ ok多谢，看来3只能忍着了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/052.png" referrerpolicy="no-referrer">把防御改到4000总算是能在困难横着走了
 
+
+
+*****
+
+####  Kazepollar  
+##### 2736#       发表于 2022-11-29 15:28
+
+指令拳真无敌啊，开了暗黑和恶魔狂热以后boss压根活不过三秒。
+
