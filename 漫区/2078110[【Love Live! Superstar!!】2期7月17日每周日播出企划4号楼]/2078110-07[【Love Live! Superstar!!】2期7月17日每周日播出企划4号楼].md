@@ -7250,3 +7250,16 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 想起来无印最火那段时间出的一些偶像企划</blockquote>
 过于精辟令人过目难忘<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 9582#       发表于 2022-11-29 20:57
+
+ 本帖最后由 仟音一心 于 2022-11-29 20:59 编辑 
+
+【【中字·完整版】Edelstein（宝石）-薇恩·玛格丽特《LoveLive!Superstar!!》  第二季第10话插入歌-哔哩哔哩】 [https://b23.tv/YgkcYR2](https://b23.tv/YgkcYR2)
+
+【【中字·完整版】Butterfly Wing-薇恩·玛格丽特《LoveLive!Superstar!!》第二季第3话插入歌-哔哩哔哩】 [https://b23.tv/VTSQRly](https://b23.tv/VTSQRly)
+
