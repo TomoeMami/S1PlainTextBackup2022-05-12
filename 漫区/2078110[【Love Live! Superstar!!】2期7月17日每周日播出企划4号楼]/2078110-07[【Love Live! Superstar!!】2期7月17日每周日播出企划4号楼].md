@@ -6760,3 +6760,19 @@ yabu好腿prprpr<img src="https://static.saraba1st.com/image/smiley/face2017/072
 第一次9人生放送的时候，Nagi也说过之前完全没跟二期生聊过天，估计是除了见面打招呼就没对话过 ...</blockquote>
 我觉得也是只打了招呼这些，然后fmt里有很大的交流，之后的购买部鱼和朱音的贴贴，这个时间应该没什么问题的。也就九人五人那个时间段捋不清
 
+
+
+*****
+
+####  优妮可  
+##### 9534#       发表于 2022-11-29 16:23
+
+bd3首周八千多，这个是场地影响大还是动画五六集影响大？
+
+*****
+
+####  稀勢のささ  
+##### 9535#       发表于 2022-11-29 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个数字面前说什么都没用
+
