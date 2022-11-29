@@ -6561,3 +6561,12 @@ staff：请问你觉得日本的宅文化和中国的有什么不同呢？
 
 特别是「当日の意気込み」这句看了三个版本，直到这个才看懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 9519#       发表于 2022-11-29 10:02
+
+今天下午4点电击杂志的封面投票结束，虽然都知道什么结果<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
