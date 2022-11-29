@@ -7068,3 +7068,22 @@ bd3首周八千多，这个是场地影响大还是动画五六集影响大？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9564#       发表于 2022-11-29 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">VN两首完整版听完，只能说还是当时星2曲子垫的好
+
+*****
+
+####  ruffian  
+##### 9565#       发表于 2022-11-29 18:56
+
+我的妈这个场刊把人拍的好壮，特别是pay和nagi一个好tm臃肿另一个头小身子大幻视韩漫双开门冰箱<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">比起豹纹裙这上衣版型更噩梦吧？
+唯一让我有点安慰的是樱小路那页动画插图，经过我的仔细对比给她整理领子的是恋恋，谢谢恋恋，你好温柔
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

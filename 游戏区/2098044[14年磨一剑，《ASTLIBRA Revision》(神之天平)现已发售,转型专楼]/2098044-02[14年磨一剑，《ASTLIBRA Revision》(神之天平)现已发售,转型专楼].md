@@ -14447,3 +14447,14 @@ ok多谢，看来3只能忍着了
 你试试全魔加点，技能出恶魔狂热  暗黑 强化持续，DPS起飞，伤害基本8000一跳，最终BOSS每个阶段都是两三 ...</blockquote>
 精力会不会够用啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">攒一管也挺费劲的
 
+
+
+*****
+
+####  Kazepollar  
+##### 2743#       发表于 2022-11-29 18:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58680406&amp;ptid=2098044" target="_blank">若闲 发表于 2022-11-29 18:27</a>
+ 精力会不会够用啊攒一管也挺费劲的</blockquote>
+用这个流派就抛弃别的技能了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">精力用来放魔法扫帚和风精灵，所以要带强化持续
+
