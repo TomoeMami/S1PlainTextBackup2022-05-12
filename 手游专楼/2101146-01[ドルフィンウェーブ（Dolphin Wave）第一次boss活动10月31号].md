@@ -24,3 +24,12 @@
 
 12月3日冬季赛，属性还是暗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  羽出  
+##### 156#       发表于 2022-11-29 21:31
+
+估计过几天还有下半期的活动商店更新，这次商店拆开三种货币商品太不平均了..有的溢出有的完全不够用
+
