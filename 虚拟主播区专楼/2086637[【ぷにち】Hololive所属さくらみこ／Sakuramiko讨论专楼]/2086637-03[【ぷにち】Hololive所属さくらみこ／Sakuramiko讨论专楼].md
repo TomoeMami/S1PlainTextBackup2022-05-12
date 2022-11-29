@@ -2768,3 +2768,14 @@ buff太强了
 
 快完了，还没出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，这是想孵几天
 
+
+
+*****
+
+####  holoan  
+##### 3265#         楼主| 发表于 2022-11-29 23:53
+
+事实证明buff叠再多也没点屁用
+
+甚至国际孵化buff都救不了
+
