@@ -3697,3 +3697,17 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 铺垫了那么久的预言命运最后她老婆让他们be better就好了。很诡异。
 
+
+
+*****
+
+####  黑炎凤凰  
+##### 1835#       发表于 2022-11-29 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58683385&amp;ptid=2025548" target="_blank">火鸡味锅巴 发表于 2022-11-29 22:54</a>
+
+关键还吐出一条蛇，自己还和奥丁好上了。
+
+铺垫了那么久的预言命运最后她老婆让他们be better就好了。很诡 ...</blockquote>
+那不是蛇，只是咒语而已。
+
