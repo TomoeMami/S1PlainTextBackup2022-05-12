@@ -6591,3 +6591,26 @@ staff：请问你觉得日本的宅文化和中国的有什么不同呢？
 香音一个人可能性大还是可香可能性大啊</blockquote>
 肯定单人优先级高
 
+
+
+*****
+
+####  adw667  
+##### 9522#       发表于 2022-11-29 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58664135&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-28 18:30</a>
+
+突然被戳到笑点了，门面做不好再怎么多媒体IP也没用，没多少人有兴趣继续关注。
+
+所以才说那些变种厕纸和伴 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">列垃圾现在最有意思的反而是工商环节
+
+*****
+
+####  优妮可  
+##### 9523#       发表于 2022-11-29 10:52
+
+<blockquote>ViyViy 发表于 2022-11-29 10:28
+肯定单人优先级高</blockquote>
+动画捧香音，粉丝也要跟着投香音么？按我个人的，恋，夏美，希奈子这三其中一个单人吧
+
