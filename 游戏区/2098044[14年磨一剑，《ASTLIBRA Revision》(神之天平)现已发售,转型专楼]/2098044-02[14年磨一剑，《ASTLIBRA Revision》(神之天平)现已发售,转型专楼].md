@@ -14612,3 +14612,17 @@ ok多谢，看来3只能忍着了
 
 说到招怪 魔王初见时候第一手召俩蜡烛台笑尿了
 
+
+
+*****
+
+####  永远的访客  
+##### 2758#       发表于 2022-11-30 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58651795&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-27 22:26</a>
+
+全通以后来讨论几个剧情问题：
+
+1. 我在第四章蛇神关，清楚的记得神父+修女+红毛并称三英雄；然后到了第五 ...</blockquote>
+晚上还想到个问题，弓箭手是第5章中期送了精灵弓就神隐，最终章却和神父+修女在一起，暗示他已死亡，所以我怀疑剧本又玩了幽灵托言的把戏，另外他和宰相可能有关系（耳朵特征类似），但是没把故事写完整，下半部宰相偷公主内衣和修女同款，又说修女是贵族出身，加上从头到尾不明不白的公主，也不知道是不是有联系<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
