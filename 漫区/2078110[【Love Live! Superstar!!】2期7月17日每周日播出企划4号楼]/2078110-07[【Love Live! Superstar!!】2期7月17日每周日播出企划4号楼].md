@@ -6680,3 +6680,38 @@ https://febri.jp/topics/llss_2nd_2/
 动画捧香音，粉丝也要跟着投香音么？按我个人的，恋，夏美，希奈子这三其中一个单人吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都是单人的话还可以聊，这有单人有成对优先级又不明确不是想谁上就谁上，投一票意思一下就行了
 
+
+
+*****
+
+####  ruffian  
+##### 9526#       发表于 2022-11-29 12:04
+
+yabu好腿prprpr<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  saya1892  
+##### 9527#       发表于 2022-11-29 12:06
+
+朱茵说在FMT之前没有跟1期生说过话，FMT都5月了，7月动画都播了也车祸了，那铃原说的录音前半在几月份啊，这时间轴好迷
+
+*****
+
+####  saya1892  
+##### 9528#       发表于 2022-11-29 12:07
+
+风怒
+
+*****
+
+####  稀勢のささ  
+##### 9529#       发表于 2022-11-29 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58675106&amp;ptid=2078110" target="_blank">saya1892 发表于 2022-11-29 12:06</a>
+
+朱茵说在FMT之前没有跟1期生说 ...</blockquote>
+之前说因为新冠各种收录是一二期分开的  不知道这个是指配音还是录碟
+
