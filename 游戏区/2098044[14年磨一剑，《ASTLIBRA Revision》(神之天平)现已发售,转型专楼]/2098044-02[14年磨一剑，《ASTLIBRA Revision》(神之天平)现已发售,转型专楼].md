@@ -14529,3 +14529,36 @@ ok多谢，看来3只能忍着了
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  onezer0618  
+##### 2751#       发表于 2022-11-30 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684436&amp;ptid=2098044" target="_blank">Kazepollar 发表于 2022-11-30 00:08</a>
+开狂暴，拼脸，多打几次总有一次运气好能过。</blockquote>
+狂暴<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我感觉我的dps不足以支撑这么长时间的无伤
+
+—— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  onezer0618  
+##### 2752#       发表于 2022-11-30 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684450&amp;ptid=2098044" target="_blank">rgauss 发表于 2022-11-30 00:09</a>
+招之前boss那个boss么 挺好打的 站台阶上 大部分攻击就很好躲了 招沼泽王更简单 只有石化能打到你 ...</blockquote>
+对，就是那个boss，经常招2个3万血的飞龙
+
+—— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Kazepollar  
+##### 2753#       发表于 2022-11-30 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684557&amp;ptid=2098044" target="_blank">onezer0618 发表于 2022-11-30 00:21</a>
+ 狂暴我感觉我的dps不足以支撑这么长时间的无伤  —— 来自 vivo V2157A, Android 12上的 S1Next- ...</blockquote>
+那就去刷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
