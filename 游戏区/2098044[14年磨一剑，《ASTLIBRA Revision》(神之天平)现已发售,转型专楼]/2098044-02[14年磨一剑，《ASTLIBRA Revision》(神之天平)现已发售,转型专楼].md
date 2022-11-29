@@ -14458,3 +14458,16 @@ ok多谢，看来3只能忍着了
  精力会不会够用啊攒一管也挺费劲的</blockquote>
 用这个流派就抛弃别的技能了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">精力用来放魔法扫帚和风精灵，所以要带强化持续
 
+
+
+*****
+
+####  若闲  
+##### 2744#       发表于 2022-11-29 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58680678&amp;ptid=2098044" target="_blank">Kazepollar 发表于 2022-11-29 18:55</a>
+用这个流派就抛弃别的技能了精力用来放魔法扫帚和风精灵，所以要带强化持续 ...</blockquote>
+靠，试完了，打了最终boss，就尼玛离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我找到问题了，一般我都是挑起来空步打的，之前空步输出高，都已经肌肉记忆了，根本没发现这玩意多离谱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+好家伙这东西空战基本没啥提升。但站地上撸，一刀两万多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">离离原上谱了属于是
+
