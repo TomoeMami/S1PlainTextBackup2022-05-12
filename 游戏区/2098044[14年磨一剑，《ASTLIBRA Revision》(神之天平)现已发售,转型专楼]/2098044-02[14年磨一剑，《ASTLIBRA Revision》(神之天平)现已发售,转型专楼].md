@@ -14821,3 +14821,17 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 到新章了，捏麻麻的不会是变色小龙虾再打一轮吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">困难难度这个天平洞窟守护龙就已经给我折磨惨了
 
+
+
+*****
+
+####  永远的访客  
+##### 2775#       发表于 2022-11-30 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58693049&amp;ptid=2098044" target="_blank">shierhu125 发表于 2022-11-30 16:18</a>
+
+请问剧情能差多少啊，有通关后再来一遍的价值吗？
+
+—— 来自 Xiaomi M2007J17C, Android 11上的  ...</blockquote>
+我反正不会，后面剧情还长着，开始也不爽，后面就觉得这都不是个事了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
