@@ -14924,3 +14924,30 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 我还觉得那个森林应该被加了类似会不断循环迷路的魔法。8年，除了吃饭睡觉就是走路，那路程一点都 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">估计也就是了，我也这么想过，不断循环必须走够。
 
+
+
+*****
+
+####  adw667  
+##### 2784#       发表于 2022-11-30 22:24
+
+<img src="https://img.saraba1st.com/forum/202211/30/222352muaujb2a3uywlxnd.jpg" referrerpolicy="no-referrer">
+
+<strong>20221130214929_1.jpg</strong> (180.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-30 22:23 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">究极家暴
+
+*****
+
+####  adw667  
+##### 2785#       发表于 2022-11-30 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58694486&amp;ptid=2098044" target="_blank">HOLIDAY 发表于 2022-11-30 17:53</a>
+
+到新章了，捏麻麻的不会是变色小龙虾再打一轮吧这装备盘是按进度随机掉吗，有没有无脑纯爽配装加点+ ...</blockquote>
+困难的话防御堆到3000基本能横着走了
+
