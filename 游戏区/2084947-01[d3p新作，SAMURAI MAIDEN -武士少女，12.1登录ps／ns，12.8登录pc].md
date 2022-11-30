@@ -90,3 +90,12 @@ PS4版预载 5.28GB
 
 有人买了么？到几成闪乱的水平
 
+
+
+*****
+
+####  水莲寺流歌  
+##### 89#       发表于 2022-12-1 01:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">云了下感觉除了百合毫无亮点，而且前面好感度没解锁也没什么互动
+
