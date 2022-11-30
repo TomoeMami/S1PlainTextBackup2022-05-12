@@ -55,3 +55,31 @@
 
 而废渣地平线还是有基本正经物理的，至少不开那些漂移车我得老老实实做钟摆才行
 
+
+
+*****
+
+####  415452356  
+##### 89#       发表于 2022-11-30 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58683031&amp;ptid=2091867" target="_blank">真实之影 发表于 2022-11-29 22:21</a>
+玩上了，感觉手感比heat更硬了点，漂移也略微增加了控制需求
+
+双氮气系统不错，蓄满3格发动配合上特效挺爽快 ...</blockquote>
+  像我这种赛车游戏农民可以玩吗，看到有我的车在游戏里面还挺想试试的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  415452356  
+##### 90#       发表于 2022-11-30 21:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58683031&amp;ptid=2091867" target="_blank">真实之影 发表于 2022-11-29 22:21</a>
+玩上了，感觉手感比heat更硬了点，漂移也略微增加了控制需求
+
+双氮气系统不错，蓄满3格发动配合上特效挺爽快 ...</blockquote>
+  像我这种赛车游戏农民可以玩吗，看到有我的车在游戏里面还挺想试试的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
