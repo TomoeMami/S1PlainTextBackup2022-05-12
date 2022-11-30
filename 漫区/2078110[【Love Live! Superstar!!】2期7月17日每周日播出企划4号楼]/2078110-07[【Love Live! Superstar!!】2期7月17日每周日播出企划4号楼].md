@@ -7843,3 +7843,18 @@ twi：_CelticWhite_
 今年只边补边看了水手服和街角魔族<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 我不用说你也知道没法比吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 9636#       发表于 2022-11-30 16:40
+
+ 本帖最后由 nufawneafg 于 2022-11-30 16:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58693085&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-11-30 16:19</a>
+别说今年，在偶像动画这个赛道，未来几年大概都不会有吧
+
+星三：？</blockquote>
+不会了，星三我是基本上不会去看了
+只能说前两部捏着鼻子都能把人熏的头昏脑胀，第三部肯定是没这个动力看，唯恐避之不及啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
