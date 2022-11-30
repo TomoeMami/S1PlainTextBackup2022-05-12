@@ -14675,3 +14675,15 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  永远的访客  
+##### 2763#       发表于 2022-11-30 09:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58685479&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-30 04:06</a>
+
+要是能多玩一会儿装备盘系统就好了。。目前游戏的节奏是，不用刷多好的装备盘，只需武装个七七八八 ...</blockquote>
+装备盘还好些，本质是堆几个词缀加个几点参数换几个技能。最破坏平衡的是锻造，老婆送的光剑随手做了个+18，输出已经提升到原版的1.5倍了，我75级时手里的资源就足够做到+50，要是刷99级那得翻多少倍来着<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
