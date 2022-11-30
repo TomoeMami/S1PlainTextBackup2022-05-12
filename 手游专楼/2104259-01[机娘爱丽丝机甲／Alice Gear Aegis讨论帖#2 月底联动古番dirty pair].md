@@ -1063,3 +1063,15 @@ dirty pair，我还找来看过两集，起因是看过本子...
 
 这次两个人的机甲上色完全是80年代动画的上色风格，有点厉害。还有这两位应该是4年多快5年了第一次真真正正在“坐”的女演员了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  孫光龍  
+##### 97#       发表于 2022-11-30 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58683369&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2022-11-29 22:53</a>
+
+这次两个人的机甲上色完全是80年代动画的上色风格，有点厉害。还有这两位应该是4年多快5年了第一次真真正正 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但是办公室那个飞船却没有用那个仿旧的赛璐璐上色风格
+
