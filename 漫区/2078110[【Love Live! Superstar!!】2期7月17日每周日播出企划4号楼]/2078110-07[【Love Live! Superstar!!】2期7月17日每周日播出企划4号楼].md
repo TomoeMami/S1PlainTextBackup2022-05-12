@@ -7946,3 +7946,19 @@ twi：_CelticWhite_
 
 换事务所业界常见，machico也不缺下家
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9645#       发表于 2022-12-1 00:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58698771&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-11-30 23:29</a>
+
+换事务所业界常见，machico也不缺下家</blockquote>
+主要是看她是h社的TSC试镜发掘出来的，今年HoriPro International的艺人变动也有几个了
+
+之前是第34回TSC试镜的巴奎依退社了，这次是11年h社搞的“次世代声優”试镜的艺人退社了
+
+当然我不怎么太了解声优这方面的东西，不知道这种试镜选拔入社的换事务所多不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
