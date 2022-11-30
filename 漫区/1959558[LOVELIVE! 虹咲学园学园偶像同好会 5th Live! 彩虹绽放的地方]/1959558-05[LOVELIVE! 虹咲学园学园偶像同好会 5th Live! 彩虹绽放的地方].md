@@ -57,3 +57,14 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  笋狐  
+##### 6795#       发表于 2022-11-30 13:02
+
+之 后 还 有 谁 能 超 越 这 个 画 面
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后大铝优打出了目前为止最爆炸的输出，疑似圣诞节背景两人单独出门手拉手溜冰，旁人看来根本一眼情侣
+
