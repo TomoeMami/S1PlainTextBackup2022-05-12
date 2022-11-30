@@ -14844,3 +14844,12 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打完了，我还是不知道为啥走了八年没遇上活人。
 
+
+
+*****
+
+####  Booorunestud  
+##### 2777#       发表于 2022-11-30 20:07
+
+刚开始玩，怕剧透不敢爬楼，有什么关键tip要注意吗？谢谢坛友<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
