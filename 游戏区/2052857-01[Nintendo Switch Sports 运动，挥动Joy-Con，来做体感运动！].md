@@ -31,3 +31,16 @@
 这游戏自从更新回滚之后就很难联机了，经常显示无法连接对方主机，已开加速器和网线直连；关闭加速器反而连 ...</blockquote>
 排球感觉特别卡，其他的都还好，我整上了5gWIFI和uu加速器
 
+
+
+*****
+
+####  DewPRISM  
+##### 422#       发表于 2022-11-30 18:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58689433&amp;ptid=2052857" target="_blank">kikka 发表于 2022-11-30 12:32</a>
+这游戏自从更新回滚之后就很难联机了，经常显示无法连接对方主机，已开加速器和网线直连；关闭加速器反而连 ...</blockquote>
+服务器维护以后我也是这样，原来用加速器秒配对，不卡不丢包，现在开了加速器很难配对了，不开加速器还能秒配对但是会卡会丢包。
+
+—— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
