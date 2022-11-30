@@ -3886,3 +3886,14 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 通关后回老家拿到的儿子旅途纪念品能在背包里找到吗？还是要去哪看？不会就多两句对话就完事了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kaion111  
+##### 1851#       发表于 2022-11-30 09:44
+
+收集者奖杯要是漏了个剑柄不看攻略根本找不到吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+地图收集栏里是没有的
+我昨天差一个去查了攻略才知道在监牢里
+
