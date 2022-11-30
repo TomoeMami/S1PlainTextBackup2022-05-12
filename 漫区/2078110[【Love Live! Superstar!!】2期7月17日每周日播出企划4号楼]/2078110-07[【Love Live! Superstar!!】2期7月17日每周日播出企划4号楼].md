@@ -7340,3 +7340,32 @@ VN这两首歌可以去少歌片场，不过这叫啥风格？歌剧风？不是
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ads147147  
+##### 9590#       发表于 2022-11-30 08:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684963&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-11-30 01:13</a>
+
+无所谓的 反正也只是伪物の呗</blockquote>
+香音纠结了大概两集真物，最后掏出来的东西是合家欢。严格说是可以解释的，毕竟as里已经演示过一边了，vn不过是再复刻了一遍表演者压倒粉丝，偶像只需要服务粉丝就行的理念，大香老师自然也只能选与民同乐的合家欢。
+
+如果真是复刻r3之子，那么就有很大的可能性是三期生有一个vn的青梅竹马登场，把二期vn的问题转化为性格问题，再修正下就ok了。当然，目前的大香列传来看，没有这个青梅竹马，大香自己上也是很有可能的。
+
+*****
+
+####  ViyViy  
+##### 9591#       发表于 2022-11-30 08:31
+
+这他妈的是在干什么我一看它举的那个例子血压暴高
+
+<img src="https://img.saraba1st.com/forum/202211/30/083013guayxybwyk7xsoaw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2B6B550B-3A58-47B0-B33D-7871912DFE0E.jpeg</strong> (824.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-30 08:30 上传
+
