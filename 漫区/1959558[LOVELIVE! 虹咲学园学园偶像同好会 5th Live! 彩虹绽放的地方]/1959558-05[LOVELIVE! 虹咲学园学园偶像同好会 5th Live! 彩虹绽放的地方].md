@@ -68,3 +68,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后大铝优打出了目前为止最爆炸的输出，疑似圣诞节背景两人单独出门手拉手溜冰，旁人看来根本一眼情侣
 
+
+
+*****
+
+####  sxcluck  
+##### 6796#       发表于 2022-11-30 13:30
+
+这ova宣传图看着不是滋味啊，灯厨不说了，雪菜厨也受不了啊，明明是开国功臣，现在却站最后一排了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

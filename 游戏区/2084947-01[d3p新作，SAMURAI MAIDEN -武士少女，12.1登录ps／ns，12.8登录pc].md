@@ -63,3 +63,12 @@ PS4版预载 5.28GB
 
 看了下价格太不美丽了，等打折<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wang752541922  
+##### 86#       发表于 2022-11-30 13:32
+
+感觉内容少得可怜...希望后续能多加几个角色
+
