@@ -11,3 +11,12 @@ PS4版预载 5.28GB
 
 不过这些都无所谓，反正是买来看JK久违当一回萌豚<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yeaha123  
+##### 80#       发表于 2022-11-30 08:15
+
+等8号pc版吧
+
