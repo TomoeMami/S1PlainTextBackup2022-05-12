@@ -1551,3 +1551,18 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  麻花疼  
+##### 43781#       发表于 2022-11-30 08:05
+
+练度全999了，衣服也满了，目前最缺的就是圣杯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+算是达成入坑小目标了，6年了没弃游没断过登录，也算是一种坚持了。
+
+虽然不太可能，但如果你游安卓有新人的话可以加一下
+
+100,101,205,295
+

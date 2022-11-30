@@ -7327,3 +7327,16 @@ VN这两首歌可以去少歌片场，不过这叫啥风格？歌剧风？不是
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 9589#       发表于 2022-11-30 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58684544&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-11-30 00:20</a>
+VN这两首歌可以去少歌片场，不过这叫啥风格？歌剧风？不是很懂，不过我欣赏不来这种曲子，给我感觉就是有种 ...</blockquote>
+歌剧风，其实看米老鼠家的动画电影就挺熟悉这种风格的，一堆管弦乐，也符合vn考维也纳，古典乐出生的身份（然后都成了笑柄）。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
