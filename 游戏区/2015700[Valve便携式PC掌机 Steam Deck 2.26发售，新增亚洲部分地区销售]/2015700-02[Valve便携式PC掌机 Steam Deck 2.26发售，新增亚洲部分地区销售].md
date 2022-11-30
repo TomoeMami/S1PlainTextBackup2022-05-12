@@ -143,3 +143,12 @@ exFAT格式可以在SteamOS桌面模式读取，右下角快捷区域，选择�
 想问下tf卡怎么才能在windows上拷文件ext4格式主pc的win不能读，exfat的话steam又用不了，不可能准 ...</blockquote>
 Linux桌面模式商城有个Usermode FTP, 我都是FTP传的
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1946#         楼主| 发表于 2022-11-30 10:46
+
+1217日开始面向日本、韩国、台湾和香港发售
+

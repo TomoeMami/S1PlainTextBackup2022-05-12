@@ -7502,3 +7502,15 @@ VN还有个姐姐(
 
 动画搞不好一二期生描写关系，然后通过杂志来补，感觉搞错了什么。隔壁动画重力剧情写好了，杂志每月的约会才有乐子的。星这个属于火上浇油了。，
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9606#       发表于 2022-11-30 10:51
+
+企划整啥骚操作都正常，二期动画的可香就已经被某些剧情强力削弱了，可能这企划觉得很感人，要加把劲继续搞吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我看这企划可能是觉得老本不吃就可惜了，要完全榨干<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说个有点扯的猜想，我觉得这投票不过是给企划一个“合理”利用一期服装的借口罢了，反正这种投票就是个黑箱，官方说什么结果就是什么结果，最后要是投票出来观众不满意的了，那锅自然被推到粉丝自己头上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+

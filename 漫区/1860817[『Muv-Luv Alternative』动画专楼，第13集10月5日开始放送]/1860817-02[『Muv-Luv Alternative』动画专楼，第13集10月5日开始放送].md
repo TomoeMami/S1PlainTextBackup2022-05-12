@@ -891,3 +891,42 @@ UN远东舰队的鸭滑也有建模有炮击动画还好几个镜头，整个感
 
 999惩罚大队是把政变军的幸存者编成的吗？
 
+
+
+*****
+
+####  blood_iron  
+##### 2077#       发表于 2022-11-30 10:42
+
+大规模登陆作战太爽了
+
+萝卜片多少年没见过这种大场面了啊，真是泪流满面
+
+终于给人一种萝卜不是精贵的单挑角色，而是战斗中的消耗品的感觉
+
+*****
+
+####  亚尔古水手  
+##### 2078#       发表于 2022-11-30 10:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58687746&amp;ptid=1860817" target="_blank">blood_iron 发表于 2022-11-30 10:42</a>
+大规模登陆作战太爽了
+
+萝卜片多少年没见过这种大场面了啊，真是泪流满面
+
+终于给人一种萝卜不是精贵的单挑角 ...</blockquote>
+除了奶黄包和00单元，确实所有都是消耗品<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  亚尔古水手  
+##### 2079#       发表于 2022-11-30 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58634071&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-11-26 23:08</a>
+这幕太爽了，A-01女武神中队全员合照。
+
+突撃前卫ストーム・ヴァンガード</blockquote>
+喜欢那个导弹舱全蛋发射的镜头捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+第一次有中队级战术机全装的展示，连黑标都没做到过，原地和解<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
