@@ -14800,3 +14800,15 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 求教下天赋树开锁需要的钥匙在哪买？这些设定有够繁琐<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yujohn  
+##### 2773#       发表于 2022-11-30 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58693371&amp;ptid=2098044" target="_blank">小黑鱼 发表于 2022-11-30 16:35</a>
+
+求教下天赋树开锁需要的钥匙在哪买？这些设定有够繁琐</blockquote>
+也是在天赋图里解锁出来的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
