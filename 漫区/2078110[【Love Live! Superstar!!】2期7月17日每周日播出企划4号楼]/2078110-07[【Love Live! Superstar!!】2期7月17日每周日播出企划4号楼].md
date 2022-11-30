@@ -7962,3 +7962,14 @@ twi：_CelticWhite_
 
 当然我不怎么太了解声优这方面的东西，不知道这种试镜选拔入社的换事务所多不多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CamphorLife  
+##### 9646#       发表于 2022-12-1 00:30
+
+能战胜星二的只有星三<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
