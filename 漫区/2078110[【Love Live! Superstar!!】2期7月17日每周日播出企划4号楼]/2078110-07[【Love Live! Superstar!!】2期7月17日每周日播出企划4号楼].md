@@ -7617,3 +7617,31 @@ https://febri.jp/topics/llss_2nd_3/
 
 外面全是海胆，五星原教旨还有地下党在挣扎，这纯度还不够运营得再加大力度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9614#       发表于 2022-11-30 11:15
+
+ 本帖最后由 稀勢のささ 于 2022-11-30 11:16 编辑 
+
+挪了下屁股之后想了想，某种意义上我还蛮期待现场版打铁x铃原版小星星的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 9615#       发表于 2022-11-30 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58688315&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-11-30 11:15</a>
+
+挪了下屁股之后想了想，某种意义上我还蛮期待打铁x铃原版小星星的</blockquote>
+没有冒犯的意思，就现在这俩的状态，凑一块这歌听起来感觉会很难顶啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 9616#       发表于 2022-11-30 11:20
+
+五人原教旨跟可香一样地基都快被拆完了，现在什么也不怕了，加速加速要看血流成河
+
