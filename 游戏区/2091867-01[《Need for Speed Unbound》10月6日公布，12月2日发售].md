@@ -129,3 +129,14 @@
 单说操控方面好像比NFS ...</blockquote>
   之前倒是买了，一直没兴致玩，这次看评价不错就打算买了，总而言之先买个试试
 
+
+
+*****
+
+####  IcarusInFire  
+##### 94#       发表于 2022-11-30 23:45
+
+好久没玩nfs，手感完全不适应
+
+（听到“刘德华”时，真的很震惊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
+
