@@ -14714,3 +14714,17 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 —— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  電子器官依存  
+##### 2766#       发表于 2022-11-30 14:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58690532&amp;ptid=2098044" target="_blank">onezer0618 发表于 2022-11-30 13:51</a>
+
+你这个是初见吗我现在才30多级。。。
+
+—— 来自 vivo V2157A, Android 12上的 S1Next-鹅版 v2.5. ...</blockquote>
+第五章有能量吸收了，用起来，多刮一会
+
