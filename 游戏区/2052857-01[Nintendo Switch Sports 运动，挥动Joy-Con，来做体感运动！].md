@@ -44,3 +44,16 @@
 
 —— 来自 OPPO PEDM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Waldeinsamkeit  
+##### 423#       发表于 2022-11-30 18:37
+
+我在海外，联机倒是一切正常……
+排球足球偶尔会卡，极偶尔会卡掉线，但大体来说没什么大问题，工作日午休排起来也挺快的，最近中午还经常能排到亚洲语言称号的玩家。
+实在不行试试看用加速器欧洲这边的线路呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
