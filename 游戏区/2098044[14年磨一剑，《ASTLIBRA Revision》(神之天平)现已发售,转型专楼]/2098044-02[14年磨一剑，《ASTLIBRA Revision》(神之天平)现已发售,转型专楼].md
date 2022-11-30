@@ -14853,3 +14853,38 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 刚开始玩，怕剧透不敢爬楼，有什么关键tip要注意吗？谢谢坛友<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wolfwood  
+##### 2778#       发表于 2022-11-30 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58693049&amp;ptid=2098044" target="_blank">shierhu125 发表于 2022-11-30 16:18</a>
+
+请问剧情能差多少啊，有通关后再来一遍的价值吗？
+
+—— 来自 Xiaomi M2007J17C, Android 11上的  ...</blockquote>
+不差多少，后面剧情会救回来的，不如说第一次失去了队友才更有JRPG味道
+
+*****
+
+####  M1NG  
+##### 2779#       发表于 2022-11-30 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58692887&amp;ptid=2098044" target="_blank">shierhu125 发表于 2022-11-30 16:10</a>
+
+求问第五章魔王城没救到队友对后续剧情有多大影响？我第六章都打好一会了，要读档回去吗？
+
+—— 来自 Xiao ...</blockquote>
+基本没任何影响，只有第五章结尾黑说的那点话让人有点心里不舒服。至于打魔王时缺掉的剧情在新章会原封不动地再演一回，所以没关系<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  otakun  
+##### 2780#       发表于 2022-11-30 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58695578&amp;ptid=2098044" target="_blank">梦窗 发表于 2022-11-30 19:36</a>
+打完了，我还是不知道为啥走了八年没遇上活人。</blockquote>
+我自己觉得，传送他们到屋子的是大贤者嘉隆，那就是他故意把主角传去一个非常偏远的地区，还是小朋友的主角没办法对抗魔物，让他走八年长大了之后才遇到盖乌开始冒险，是计划的一部分。
+
