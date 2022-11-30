@@ -83,3 +83,17 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  GrayishWh0  
+##### 91#       发表于 2022-11-30 22:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58692254&amp;ptid=2091867" target="_blank">真实之影 发表于 2022-11-30 15:37</a>
+
+街机风格赛车游戏漂移普遍是这样，算是继承自山脊outrun和daytona的思路，拐弯时候踩一下刹车就能飘
+
+而废 ...</blockquote>
+原来如此。。。看来要慢慢适应了
+
