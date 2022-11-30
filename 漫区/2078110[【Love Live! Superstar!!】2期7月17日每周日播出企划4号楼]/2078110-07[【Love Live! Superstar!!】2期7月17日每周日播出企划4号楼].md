@@ -7829,3 +7829,17 @@ twi：_CelticWhite_
 别说今年，在偶像动画这个赛道，未来几年大概都不会有吧
  星三：？ 
 
+
+
+*****
+
+####  nufawneafg  
+##### 9635#       发表于 2022-11-30 16:21
+
+ 本帖最后由 nufawneafg 于 2022-11-30 16:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58692873&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-11-30 16:09</a>
+想问一下漏油，假如剩下的一个月其他动画没有出现骚操作，星二会是今年你们看过的动画里面最粪的一部吗[f:0 ...</blockquote>
+只能说上次每周追完的番还是三狮二期
+今年只边补边看了水手服和街角魔族<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+我不用说你也知道没法比吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
