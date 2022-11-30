@@ -930,3 +930,14 @@ UN远东舰队的鸭滑也有建模有炮击动画还好几个镜头，整个感
 
 第一次有中队级战术机全装的展示，连黑标都没做到过，原地和解<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  oskneo  
+##### 2080#       发表于 2022-12-1 00:16
+
+开始了，这话进度别这么快
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
