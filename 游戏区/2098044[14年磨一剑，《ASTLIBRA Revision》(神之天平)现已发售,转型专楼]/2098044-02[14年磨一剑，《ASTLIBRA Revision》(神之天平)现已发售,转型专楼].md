@@ -14755,3 +14755,26 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  shierhu125  
+##### 2769#       发表于 2022-11-30 16:10
+
+求问第五章魔王城没救到队友对后续剧情有多大影响？我第六章都打好一会了，要读档回去吗？
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  永远的访客  
+##### 2770#       发表于 2022-11-30 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58692887&amp;ptid=2098044" target="_blank">shierhu125 发表于 2022-11-30 16:10</a>
+
+求问第五章魔王城没救到队友对后续剧情有多大影响？我第六章都打好一会了，要读档回去吗？
+
+—— 来自 Xiao ...</blockquote>
+老问题了，不要怕，继续浪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

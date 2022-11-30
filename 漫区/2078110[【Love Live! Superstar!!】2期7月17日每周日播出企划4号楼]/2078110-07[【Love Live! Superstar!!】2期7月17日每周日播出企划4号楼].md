@@ -7790,3 +7790,25 @@ twi：_CelticWhite_
 这具体是要干嘛</blockquote>
 投票选衣服，举的例子就是土妹子穿tiny stars的衣服
 
+
+
+*****
+
+####  沙茶酱  
+##### 9631#       发表于 2022-11-30 16:09
+
+想问一下漏油，假如剩下的一个月其他动画没有出现骚操作，星二会是今年你们看过的动画里面最粪的一部吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 9632#       发表于 2022-11-30 16:12
+
+ 本帖最后由 player3960 于 2022-11-30 16:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58692873&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-11-30 16:09:45</a>
+
+想问一下漏油，假如剩下的一个月其他动画没有出现骚操作，星二会是今年你们看过的动画里面最粪的一部吗 ...</blockquote>
+我这肯定是，因为今年就看了这一部动画，已经几年不追动画了，顺带一提，去年只看了一部，星一期<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
