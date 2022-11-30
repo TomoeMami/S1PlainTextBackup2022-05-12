@@ -14728,3 +14728,19 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 —— 来自 vivo V2157A, Android 12上的 S1Next-鹅版 v2.5. ...</blockquote>
 第五章有能量吸收了，用起来，多刮一会
 
+
+
+*****
+
+####  urvark  
+##### 2767#       发表于 2022-11-30 14:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58690532&amp;ptid=2098044" target="_blank">onezer0618 发表于 2022-11-30 13:51</a>
+
+你这个是初见吗我现在才30多级。。。
+
+—— 来自 vivo V2157A, Android 12上的 S1Next-鹅版 v2.5. ...</blockquote>
+是初见啊……你试试就知道，战神的单手剑+狂暴，输出很高的，攻击频率也高，记得带自动连击，一般手动按没那么快
+
+不过我打到那里好像40多级了，但影响不大，无非攻击低点而已，攻击力主要来自武器，装上就有1000-1200左右，差10级才差50点攻击
+
