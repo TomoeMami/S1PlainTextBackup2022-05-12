@@ -14912,3 +14912,15 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 其实我整个后半段的游戏过程就是为了找出这问题的答案，期 ...</blockquote>
 我还觉得那个森林应该被加了类似会不断循环迷路的魔法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。8年，除了吃饭睡觉就是走路，那路程一点都不少
 
+
+
+*****
+
+####  梦窗  
+##### 2783#       发表于 2022-11-30 20:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58696548&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-30 20:50</a>
+
+我还觉得那个森林应该被加了类似会不断循环迷路的魔法。8年，除了吃饭睡觉就是走路，那路程一点都 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">估计也就是了，我也这么想过，不断循环必须走够。
+
