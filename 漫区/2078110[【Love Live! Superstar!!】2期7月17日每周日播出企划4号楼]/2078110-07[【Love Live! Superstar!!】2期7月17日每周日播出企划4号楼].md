@@ -7917,3 +7917,14 @@ twi：_CelticWhite_
 
 感觉h社也有点留不下人的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Enakina  
+##### 9642#       发表于 2022-11-30 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58696492&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-11-30 20:45</a>
+看马池口写的好像是要换地&amp;# ...</blockquote>
+是，还不知道会转到哪里去
+
