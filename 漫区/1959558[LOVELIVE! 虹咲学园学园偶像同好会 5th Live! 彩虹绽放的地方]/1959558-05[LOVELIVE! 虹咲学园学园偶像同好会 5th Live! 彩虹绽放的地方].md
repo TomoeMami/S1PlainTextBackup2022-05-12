@@ -37,3 +37,23 @@
 
 这个摔一下，太卑女了。 
 
+
+
+*****
+
+####  无聊者X  
+##### 6793#       发表于 2022-11-30 10:54
+
+<img src="https://p.sda1.dev/8/fc097393f145fbc826abdc167b0d966a/14892aae00068ad0.jpg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI DCO-AL00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  川陀  
+##### 6794#       发表于 2022-11-30 10:56
+
+下一期是果林与大自然的话，一定会迷路吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -7514,3 +7514,28 @@ VN还有个姐姐(
 我看这企划可能是觉得老本不吃就可惜了，要完全榨干<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 说个有点扯的猜想，我觉得这投票不过是给企划一个“合理”利用一期服装的借口罢了，反正这种投票就是个黑箱，官方说什么结果就是什么结果，最后要是投票出来观众不满意的了，那锅自然被推到粉丝自己头上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9607#       发表于 2022-11-30 10:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+“求求你让我抱着可香溺死吧”
+“不行，你得换一个”
+
+*****
+
+####  沙茶酱  
+##### 9608#       发表于 2022-11-30 10:54
+
+泥星的运营一直在试探粉丝忍耐下限，难道这是在提纯？不过我琢磨现在还是泥星粉丝的人纯度都可以结晶了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 9609#       发表于 2022-11-30 10:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这卷均破万都难了哇
+
