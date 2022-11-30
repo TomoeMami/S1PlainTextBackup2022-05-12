@@ -7749,3 +7749,22 @@ twi：_CelticWhite_
 
 现场版小星星没崩的次数一只手数得过来，那个开头也确实难唱
 
+
+
+*****
+
+####  ViyViy  
+##### 9627#       发表于 2022-11-30 15:37
+
+酸菜鱼，看板娘生放也都没消息，尤其是看板娘生放，还不安排、企划是准备等灯4月退了再搞是吧？
+
+*****
+
+####  adw667  
+##### 9628#       发表于 2022-11-30 15:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58686077&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-30 08:31</a>
+
+这他妈的是在干什么我一看它举的那个例子血压暴高</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这具体是要干嘛
+
