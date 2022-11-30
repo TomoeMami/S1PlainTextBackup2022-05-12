@@ -7973,3 +7973,16 @@ twi：_CelticWhite_
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Earendil_C  
+##### 9647#       发表于 2022-12-1 00:50
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">星2因为考试没空看，看了一集就搁了
+后来拉拉群的朋友一路看一路骂，只能说还好没看
+就是二期基本都不熟，3rd也没啥兴致了，可能就这么慢慢淡了吧。很多可爱的网友是看星一期认识的，还是挺赚的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
