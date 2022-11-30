@@ -7380,3 +7380,28 @@ VN这两首歌可以去少歌片场，不过这叫啥风格？歌剧风？不是
 这他妈的是在干什么我一看它举的那个例子血压暴高</blockquote>
 乐，可香的血可香了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 9593#       发表于 2022-11-30 08:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58686046&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-11-30 08:27</a>
+
+香音纠结了大概两集真物，最后掏出来的东西是合家欢。严格说是可以解释的，毕竟as里已经演示过一边了，vn ...</blockquote>
+VN还有个姐姐(
+
+*****
+
+####  player3960  
+##### 9594#       发表于 2022-11-30 08:56
+
+ 本帖最后由 player3960 于 2022-11-30 08:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58686077&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-11-30 08:31</a>
+
+这他妈的是在干什么我一看它举的那个例子血压暴高</blockquote>
+要选没穿过的话，恋可以投个常夏，千堇难道选小星星？
+
+可香，这里面每一件我们都穿过，选个屁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
