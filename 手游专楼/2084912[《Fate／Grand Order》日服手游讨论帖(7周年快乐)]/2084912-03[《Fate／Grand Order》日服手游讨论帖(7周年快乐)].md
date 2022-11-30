@@ -7691,3 +7691,19 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 街机才是真的感觉要卷钱跑路，2.0剧情一点没出，直接把2.6的角色端出来了 ...</blockquote>
 街机下一章给整上也不是不可能，毕竟剧情都不一样<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 3703#       发表于 2022-11-30 19:32
+
+我乌鸦嘴一波2.6回忆up妖兰和村正，不复刻奥伯龙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qixinno2  
+##### 3704#       发表于 2022-11-30 19:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复刻芭娜娜的超级限定池么
+

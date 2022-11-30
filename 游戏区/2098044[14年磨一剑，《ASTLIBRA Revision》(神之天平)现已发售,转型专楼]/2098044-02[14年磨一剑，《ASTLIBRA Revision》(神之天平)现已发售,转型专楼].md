@@ -14835,3 +14835,12 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 —— 来自 Xiaomi M2007J17C, Android 11上的  ...</blockquote>
 我反正不会，后面剧情还长着，开始也不爽，后面就觉得这都不是个事了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  梦窗  
+##### 2776#       发表于 2022-11-30 19:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打完了，我还是不知道为啥走了八年没遇上活人。
+
