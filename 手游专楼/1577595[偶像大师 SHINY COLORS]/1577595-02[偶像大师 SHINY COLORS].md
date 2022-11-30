@@ -18,3 +18,20 @@
 
 [モノラル・ダイアローグス](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1577595&amp;page=88#pid56408531)
 
+
+
+*****
+
+####  kria  
+##### 2681#       发表于 2022-12-1 06:16
+
+ 本帖最后由 kria 于 2022-12-1 06:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57574228&amp;ptid=1577595" target="_blank">KalaLake 发表于 2022-9-21 00:53</a>
+
+宣传一下魔都imas线下观影群
+
+包括sc在内的各家P都欢迎加入！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如是和百度贴吧只玩和推土屋李央厨  我就算了不入去....
+
+有谈live和cv吗? 
+
