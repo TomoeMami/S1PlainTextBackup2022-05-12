@@ -14888,3 +14888,27 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 打完了，我还是不知道为啥走了八年没遇上活人。</blockquote>
 我自己觉得，传送他们到屋子的是大贤者嘉隆，那就是他故意把主角传去一个非常偏远的地区，还是小朋友的主角没办法对抗魔物，让他走八年长大了之后才遇到盖乌开始冒险，是计划的一部分。
 
+
+
+*****
+
+####  梦窗  
+##### 2781#       发表于 2022-11-30 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58696156&amp;ptid=2098044" target="_blank">otakun 发表于 2022-11-30 20:19</a>
+
+我自己觉得，传送他们到屋子的是大贤者嘉隆，那就是他故意把主角传去一个非常偏远的地区，还是小朋友的主 ...</blockquote>
+有道理啊，屋里那堆书确实能说明这点。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我整个后半段的游戏过程就是为了找出这问题的答案，期间还看到很多人说谜题都会在最后揭开。结果游戏本身的剧情都没这个问题吸引我，最后还没得到答案，很气。
+
+*****
+
+####  otakun  
+##### 2782#       发表于 2022-11-30 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58696486&amp;ptid=2098044" target="_blank">梦窗 发表于 2022-11-30 20:44</a>
+有道理啊，屋里那堆书确实能说明这点。
+
+其实我整个后半段的游戏过程就是为了找出这问题的答案，期 ...</blockquote>
+我还觉得那个森林应该被加了类似会不断循环迷路的魔法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。8年，除了吃饭睡觉就是走路，那路程一点都不少
+

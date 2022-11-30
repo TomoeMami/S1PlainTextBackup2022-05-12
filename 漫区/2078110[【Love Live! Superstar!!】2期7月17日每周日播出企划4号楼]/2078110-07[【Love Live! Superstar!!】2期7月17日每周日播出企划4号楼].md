@@ -7903,3 +7903,17 @@ twi：_CelticWhite_
 
 草，马池口退h社了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9641#       发表于 2022-11-30 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58696187&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-11-30 20:21</a>
+
+草，马池口退h社了</blockquote>
+看马池口写的好像是要换地方样子（可能是换事务所？）（日语不好，看得不那么明白）
+
+感觉h社也有点留不下人的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
