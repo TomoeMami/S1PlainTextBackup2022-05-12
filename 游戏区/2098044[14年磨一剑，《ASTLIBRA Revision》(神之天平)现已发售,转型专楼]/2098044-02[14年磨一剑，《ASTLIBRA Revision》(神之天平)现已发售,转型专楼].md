@@ -14972,3 +14972,15 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 各种凭依技都是在天赋树里解锁吧？没找到月光被第三章boss暴揍中
 
+
+
+*****
+
+####  adw667  
+##### 2788#       发表于 2022-11-30 23:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58698519&amp;ptid=2098044" target="_blank">小黑鱼 发表于 2022-11-30 23:11</a>
+
+各种凭依技都是在天赋树里解锁吧？没找到月光被第三章boss暴揍中</blockquote>
+对，而且每章把所有武器都刷满拿到的晶体也基本能把成长树开完
+
