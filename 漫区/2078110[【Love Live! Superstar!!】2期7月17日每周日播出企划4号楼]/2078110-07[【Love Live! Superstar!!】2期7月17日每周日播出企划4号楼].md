@@ -7466,3 +7466,30 @@ VN还有个姐姐(
 看到希柰子×小星星，血压一下子就上去了。</blockquote>
 装都不装了（虽然也没怎么装过）<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 9602#       发表于 2022-11-30 10:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真这么搞的话我直接推特下面问候运营家里人了
+
+*****
+
+####  ruffian  
+##### 9603#       发表于 2022-11-30 10:14
+
+这投票什么意义？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  懂你意思  
+##### 9604#       发表于 2022-11-30 10:21
+
+不讨厌二期生，但运营接连不断的NT操作真的很难让人喜欢上后面这四位
+
+顺便运营怎么不把亲妈摆上来匹配点野爹啊
+
