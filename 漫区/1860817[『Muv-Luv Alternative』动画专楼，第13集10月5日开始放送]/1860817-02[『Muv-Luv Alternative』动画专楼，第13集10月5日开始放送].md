@@ -959,3 +959,33 @@ UN远东舰队的鸭滑也有建模有炮击动画还好几个镜头，整个感
 
 还在等油管播出。
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2083#       发表于 2022-12-1 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58699256&amp;ptid=1860817" target="_blank">oskneo 发表于 2022-12-1 00:16</a>
+
+开始了，这话进度别这么快
+
+—— 来自 Sony XQ-AT52, Android 10上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+进度没那么快也挺快的，第一季op的镜头还是停留在了op里<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+关系户管人最好下一集就吃便当<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+*****
+
+####  忘记插卡  
+##### 2084#       发表于 2022-12-1 03:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58687780&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2022-11-30 10:43</a>
+
+除了奶黄包和00单元，确实所有都是消耗品</blockquote>
+00单元也是消耗品啊
+
+只要能做成一个，就能做成无数个
+
+我记得鉴纯夏原本的脑子在做成00单元后也没了
+

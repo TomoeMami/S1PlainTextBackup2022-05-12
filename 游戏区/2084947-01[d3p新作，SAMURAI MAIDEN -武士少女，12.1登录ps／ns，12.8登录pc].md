@@ -99,3 +99,46 @@ PS4版预载 5.28GB
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">云了下感觉除了百合毫无亮点，而且前面好感度没解锁也没什么互动
 
+
+
+*****
+
+####  依存香炉  
+##### 90#       发表于 2022-12-1 02:13
+
+这个pc比ns和ps晚一周发售...
+
+云了一下c酱直播 感觉除了建模可爱之外其他方面有些敷衍啊
+
+希望打斗能至少有御姐武戏的质感吧
+
+
+
+*****
+
+####  chivalry  
+##### 91#       发表于 2022-12-1 02:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">本来想买，商店这个7000多日元还挺贵的，然后这容量，隔壁热血少女2都比你大，是不是过分了
+
+*****
+
+####  blackll7  
+##### 92#       发表于 2022-12-1 02:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">内容不少，关卡还行，反馈不咋滴，ns版帧数过低了。
+
+*****
+
+####  慕容断月  
+##### 93#       发表于 2022-12-1 04:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58700145&amp;ptid=2084947" target="_blank">依存香炉 发表于 2022-12-1 02:13</a>
+
+这个pc比ns和ps晚一周发售...
+
+云了一下c酱直播 感觉除了建模可爱之外其他方面有些敷衍啊
+
+希望打斗能至少有 ...</blockquote>
+那不可能，这家开发商底子不行，做子弹少女系列的，近战系做的不太行
+

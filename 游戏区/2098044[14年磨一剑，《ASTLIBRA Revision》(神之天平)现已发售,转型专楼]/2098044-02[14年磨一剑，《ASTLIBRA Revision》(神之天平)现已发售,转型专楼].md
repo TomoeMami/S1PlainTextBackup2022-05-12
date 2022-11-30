@@ -15005,3 +15005,17 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 打到第八章了，发现第七章最后入侵剧情时，我没打结界对面那几个怪，错过了5个面包和1个爱情的那段小剧情， ...</blockquote>
 其实也就大概两句话……你随便网上搜下视频就行了。
 
+
+
+*****
+
+####  M1NG  
+##### 2791#       发表于 2022-12-1 04:22
+
+ 本帖最后由 M1NG 于 2022-12-1 04:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58699644&amp;ptid=2098044" target="_blank">urvark 发表于 2022-12-1 00:53</a>
+打到第八章了，发现第七章最后入侵剧情时，我没打结界对面那几个怪，错过了5个面包和1个爱情的那段小剧情， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没有剧情其实，就嘉隆两句话说原来是这个ta吗和ta到底是谁啊。还有两句描写了下外貌，没立绘也没对话。人的话通关后会在路边遇到的
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

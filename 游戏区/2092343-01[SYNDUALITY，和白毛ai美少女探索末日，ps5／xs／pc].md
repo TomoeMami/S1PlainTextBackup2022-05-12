@@ -626,3 +626,13 @@ CV：広瀬裕也
 
 这机甲，有点像樱花大战的光武...
 
+
+
+*****
+
+####  jerryoq1  
+##### 63#       发表于 2022-12-1 02:53
+
+竟然还有动画
+财团B上一个白毛红瞳女主 动画和游戏一起搞得叫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

@@ -2888,3 +2888,14 @@ buff太强了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">下班咯下班咯，就天天播这个吧，脑死聊天脑死孵蛋，也不用读sc啦。
 
+
+
+*****
+
+####  holoan  
+##### 3275#         楼主| 发表于 2022-12-1 02:33
+
+怎么突然发病了是你的sc没读吗？偷懒归偷懒红sc还是很认真读了的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
