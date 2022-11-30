@@ -14951,3 +14951,15 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 到新章了，捏麻麻的不会是变色小龙虾再打一轮吧这装备盘是按进度随机掉吗，有没有无脑纯爽配装加点+ ...</blockquote>
 困难的话防御堆到3000基本能横着走了
 
+
+
+*****
+
+####  M1NG  
+##### 2786#       发表于 2022-11-30 22:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58695994&amp;ptid=2098044" target="_blank">Booorunestud 发表于 2022-11-30 20:07</a>
+
+刚开始玩，怕剧透不敢爬楼，有什么关键tip要注意吗？谢谢坛友</blockquote>
+想了想好像也没啥建议，每关都多刷刷，然后如果用的无线手柄的话多充充电，其他就没啥了，正常玩就是
+
