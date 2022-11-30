@@ -7645,3 +7645,47 @@ https://febri.jp/topics/llss_2nd_3/
 
 五人原教旨跟可香一样地基都快被拆完了，现在什么也不怕了，加速加速要看血流成河
 
+
+
+*****
+
+####  沙茶酱  
+##### 9617#       发表于 2022-11-30 11:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 9618#       发表于 2022-11-30 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58688315&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-11-30 11:15</a>
+挪了下屁股之后想了想，某种意义上我还蛮期待现场版打铁x铃原版小星星的 ...</blockquote>
+我猜一下
+你期待的难道是终于平均的身高？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙茶酱  
+##### 9619#       发表于 2022-11-30 11:28
+
+忽然间意识到星接下来陪伴我们的日子还挺长的，至少还有第三季以及理论上必有的剧场版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 9620#       发表于 2022-11-30 11:29
+
+twi：_CelticWhite_
+
+这个小恐龙是结丘(存在感极低)的吉祥物，身上是五老星的应援色。
+
+<img src="https://img.saraba1st.com/forum/202211/30/112908i31i5zp01hbit030.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1BAD53D6-2F19-42D1-BDBC-FBEBE677EF6F.jpeg</strong> (140.62 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-11-30 11:29 上传
+

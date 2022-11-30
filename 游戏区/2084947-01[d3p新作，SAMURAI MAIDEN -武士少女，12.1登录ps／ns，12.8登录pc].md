@@ -29,3 +29,21 @@ PS4版预载 5.28GB
 
 这游戏ps4和ns版的画面应该差不多吧。
 
+
+
+*****
+
+####  Piano-Forest  
+##### 82#       发表于 2022-11-30 11:24
+
+发售宣传PV：[https://youtu.be/IcBxI6s69w0](https://youtu.be/IcBxI6s69w0)
+
+*****
+
+####  iriyano  
+##### 83#       发表于 2022-11-30 11:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+有没有ps版玩起来的来个反馈
+准备steam入
+
