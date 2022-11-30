@@ -82,3 +82,17 @@ nmd真鬼啊？<img src="https://static.saraba1st.com/image/smiley/face2017/244.
 每集迫害一次同伴，不过琉璃应该比前辈次数多点，迫害得狠多了，系列最惨女主无跑了…
 这新手环就是加新技能的，就前辈没有新必杀…
 
+
+
+*****
+
+####  汇聚群光  
+##### 391#       发表于 2022-11-30 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58690304&amp;ptid=2018235" target="_blank">plusfive 发表于 2022-11-30 13:34</a>
+
+每集迫害一次同伴，不过琉璃应该比前辈次数多点，迫害得狠多了，系列最惨女主无跑了…
+
+这新手环就是加新技 ...</blockquote>
+忒提斯兽的所有必杀技在换新手环之前就已经全解锁完了
+

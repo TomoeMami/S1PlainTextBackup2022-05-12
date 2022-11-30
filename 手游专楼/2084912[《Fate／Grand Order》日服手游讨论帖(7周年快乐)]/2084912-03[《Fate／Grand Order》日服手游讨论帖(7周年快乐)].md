@@ -7679,3 +7679,15 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 街机才是真的感觉要卷钱跑路，2.0剧情一点没出，直接把2.6的角色端出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3702#       发表于 2022-11-30 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58694729&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-11-30 18:07</a>
+
+街机才是真的感觉要卷钱跑路，2.0剧情一点没出，直接把2.6的角色端出来了 ...</blockquote>
+街机下一章给整上也不是不可能，毕竟剧情都不一样<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
