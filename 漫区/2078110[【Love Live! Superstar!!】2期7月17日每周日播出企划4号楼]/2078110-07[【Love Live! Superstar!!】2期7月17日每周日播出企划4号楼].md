@@ -7740,3 +7740,12 @@ twi：_CelticWhite_
 
 其实现场小星星我也听不下去，因为打铁起头一崩我就没兴致听了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 9626#       发表于 2022-11-30 14:49
+
+现场版小星星没崩的次数一只手数得过来，那个开头也确实难唱
+
