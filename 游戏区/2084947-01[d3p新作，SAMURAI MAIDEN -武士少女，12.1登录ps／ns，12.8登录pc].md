@@ -47,3 +47,19 @@ PS4版预载 5.28GB
 有没有ps版玩起来的来个反馈
 准备steam入
 
+
+
+*****
+
+####  Ryuji1145  
+##### 84#       发表于 2022-11-30 11:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">感觉不错，等个5折再买
+
+*****
+
+####  duraa  
+##### 85#       发表于 2022-11-30 11:33
+
+看了下价格太不美丽了，等打折<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

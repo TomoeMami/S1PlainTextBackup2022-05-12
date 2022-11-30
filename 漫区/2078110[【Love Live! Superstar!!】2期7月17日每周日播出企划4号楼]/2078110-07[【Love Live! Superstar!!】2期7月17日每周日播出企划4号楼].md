@@ -7689,3 +7689,54 @@ twi：_CelticWhite_
 由手机上传
 2022-11-30 11:29 上传
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9621#       发表于 2022-11-30 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58688471&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-11-30 11:24</a>
+
+我猜一下
+
+你期待的难道是终于平均的身高？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">错啦，只是因为巡演后期的小星星其实我根本听不下去，有几次都是一个带着另一个在唱了。这样一换假如打铁状态回满了，你看就是旧带新，跟动画解釈一致，就算还是那个B样其实也不会尴尬。所以要怪就怪你鱼吧
+
+*****
+
+####  player3960  
+##### 9622#       发表于 2022-11-30 11:31
+
+不出意外的话，鲤鱼应该能在这团干到30岁吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 9623#       发表于 2022-11-30 11:31
+
+我现在是觉得剧场那位置被三期顶替掉了。
+牺牲了可以软重启的机会去狗尾续貂那垃圾番剧。
+
+*****
+
+####  稀勢のささ  
+##### 9624#       发表于 2022-11-30 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58688447&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-11-30 11:23</a>
+
+如果不开玩笑的话，我觉得还是让曾经的感动能成为回忆吧，不要把曾经的美好都拿出来销毁殆尽 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">我这是提前给自己加BUFF，毕竟万一真这么搞呢
+
+*****
+
+####  player3960  
+##### 9625#       发表于 2022-11-30 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58688585&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-11-30 11:31</a>
+
+错啦，只是因为巡演后期的小星星其实我根本听不下去，有几次都是一个带着另一个在唱了。这样一换假 ...</blockquote>
+那还不如鱼和non算了，谁也盖不过谁。
+
+其实现场小星星我也听不下去，因为打铁起头一崩我就没兴致听了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
