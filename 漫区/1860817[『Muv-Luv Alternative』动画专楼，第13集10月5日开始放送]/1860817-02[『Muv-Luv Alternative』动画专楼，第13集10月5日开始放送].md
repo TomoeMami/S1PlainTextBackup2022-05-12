@@ -941,3 +941,12 @@ UN远东舰队的鸭滑也有建模有炮击动画还好几个镜头，整个感
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  菱0零  
+##### 2081#       发表于 2022-12-1 00:59
+
+这集Apart大段战斗配上奶黄包开炮收尾真的爽，无双部分镜头也是好赞顶，要吹爆了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+

@@ -7727,3 +7727,12 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 2.6回忆要分上中下吗，直接把12月混过去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Blackson  
+##### 3707#       发表于 2022-12-1 00:52
+
+按运营这德性，玩家想要的通通舍弃(就是不UP 奥伯龙)
+
