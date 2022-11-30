@@ -950,3 +950,12 @@ UN远东舰队的鸭滑也有建模有炮击动画还好几个镜头，整个感
 
 这集Apart大段战斗配上奶黄包开炮收尾真的爽，无双部分镜头也是好赞顶，要吹爆了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hacisiki  
+##### 2082#       发表于 2022-12-1 01:14
+
+还在等油管播出。
+
