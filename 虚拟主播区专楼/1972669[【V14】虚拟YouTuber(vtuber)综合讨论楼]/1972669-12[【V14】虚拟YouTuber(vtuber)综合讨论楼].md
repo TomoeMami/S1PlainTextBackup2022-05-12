@@ -1515,3 +1515,22 @@ iOS：iPhone 14 Pro Max、iPhone 14 Pro、iPhone 14 Plus、iPhone14、iPhone 13 
 
 [https://www.sony.jp/mocopi](https://www.sony.jp/mocopi)
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17765#       发表于 2022-11-30 19:28
+
+sony music这个叫VEE的箱一开始我还看不起，想着索尼又在捞人打白工了，还找了几个不到十万的底边凑点人气
+
+结果这段时间こはく银盾没多久就能办自己名字命名的杯赛，箱内均粉不到一万的情况下就有电视番组，真财大气粗啊<img src="https://static.saraba1st.com/image/smiley/face2017/173.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202211/30/192721afmi0jxx6222z6oi.png" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221130192209.png</strong> (84.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-11-30 19:27 上传
+

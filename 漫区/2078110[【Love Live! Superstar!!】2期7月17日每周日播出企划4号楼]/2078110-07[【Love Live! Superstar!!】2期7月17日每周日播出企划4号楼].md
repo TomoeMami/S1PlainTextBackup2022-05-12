@@ -7858,3 +7858,39 @@ twi：_CelticWhite_
 不会了，星三我是基本上不会去看了
 只能说前两部捏着鼻子都能把人熏的头昏脑胀，第三部肯定是没这个动力看，唯恐避之不及啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 9637#       发表于 2022-11-30 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58692607&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-11-30 15:56</a>
+
+票选人x曲子衣服出杂志图，然后说可以让二期生选一期生的曲子，接着就举了希奈子x小星星的例子，雷点跳舞 ...</blockquote>
+土妹X小星星和恋恋X常夏比起来哪个更地狱我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不插电的常夏给青山安排的戏份是打CALL这件事我能记到这团解散，得亏你青山姐有能力，这要是换成土妹来的话不尬才怪
+
+*****
+
+####  adw667  
+##### 9638#       发表于 2022-11-30 19:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58692648&amp;ptid=2078110" target="_blank">starring 发表于 2022-11-30 15:58</a>
+
+投票选衣服，举的例子就是土妹子穿tiny stars的衣服</blockquote>
+我还以为是选的是那个人没唱的歌的衣服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 9639#       发表于 2022-11-30 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58693502&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-11-30 16:40</a>
+
+不会了，星三我是基本上不会去看了
+
+只能说前两部捏着鼻子都能把人熏的头昏脑胀，第三部肯定是没这个动力 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">看，为什么不看，看了才能喷到点上
+
