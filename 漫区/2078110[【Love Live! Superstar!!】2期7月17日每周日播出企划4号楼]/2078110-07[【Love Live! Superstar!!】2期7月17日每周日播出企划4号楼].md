@@ -7768,3 +7768,25 @@ twi：_CelticWhite_
 这他妈的是在干什么我一看它举的那个例子血压暴高</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这具体是要干嘛
 
+
+
+*****
+
+####  ads147147  
+##### 9629#       发表于 2022-11-30 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58692308&amp;ptid=2078110" target="_blank">adw667 发表于 2022-11-30 15:40</a>
+
+这具体是要干嘛</blockquote>
+票选人x曲子衣服出杂志图，然后说可以让二期生选一期生的曲子，接着就举了希奈子x小星星的例子，雷点跳舞。
+
+*****
+
+####  starring  
+##### 9630#       发表于 2022-11-30 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58692308&amp;ptid=2078110" target="_blank">adw667 发表于 2022-11-30 15:40</a>
+
+这具体是要干嘛</blockquote>
+投票选衣服，举的例子就是土妹子穿tiny stars的衣服
+
