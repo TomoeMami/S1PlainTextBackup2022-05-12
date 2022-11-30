@@ -3906,3 +3906,15 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 去废弃村落收集个渡鸦结果绕不出来了，有没有人能帮忙大致指下该往哪走<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  acg_s1  
+##### 1853#       发表于 2022-11-30 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58687362&amp;ptid=2025548" target="_blank">yth329 发表于 2022-11-30 10:18</a>
+
+去废弃村落收集个渡鸦结果绕不出来了，有没有人能帮忙大致指下该往哪走 ...</blockquote>
+有个扎矛的地方跳上去，我玩的时候这里出bug了显示矛在但跳不上去要重新扎一次
+
