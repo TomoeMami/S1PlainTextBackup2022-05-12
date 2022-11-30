@@ -14701,3 +14701,16 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 我是荒谬难度，就这么打过的，没试过困难难度，按理说BOSS血会更少，用这方法应该没问题
 
+
+
+*****
+
+####  onezer0618  
+##### 2765#       发表于 2022-11-30 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58686840&amp;ptid=2098044" target="_blank">urvark 发表于 2022-11-30 09:41</a>
+带狂暴和金蝉脱壳，武器用第三章隐藏BOSS战神的单手剑，敏捷加到140左右，其他全力量，打掉手之后跑去BOS ...</blockquote>
+你这个是初见吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我现在才30多级。。。
+
+—— 来自 vivo V2157A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
