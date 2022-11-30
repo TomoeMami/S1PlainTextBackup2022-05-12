@@ -14791,3 +14791,12 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 —— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  小黑鱼  
+##### 2772#       发表于 2022-11-30 16:35
+
+求教下天赋树开锁需要的钥匙在哪买？这些设定有够繁琐<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
