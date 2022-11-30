@@ -14812,3 +14812,12 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 求教下天赋树开锁需要的钥匙在哪买？这些设定有够繁琐</blockquote>
 也是在天赋图里解锁出来的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  HOLIDAY  
+##### 2774#       发表于 2022-11-30 17:53
+
+到新章了，捏麻麻的不会是变色小龙虾再打一轮吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">困难难度这个天平洞窟守护龙就已经给我折磨惨了
+
