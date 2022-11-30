@@ -14778,3 +14778,16 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 —— 来自 Xiao ...</blockquote>
 老问题了，不要怕，继续浪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shierhu125  
+##### 2771#       发表于 2022-11-30 16:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58692962&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-11-30 16:14</a>
+老问题了，不要怕，继续浪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">请问剧情能差多少啊，有通关后再来一遍的价值吗？
+
+—— 来自 Xiaomi M2007J17C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
