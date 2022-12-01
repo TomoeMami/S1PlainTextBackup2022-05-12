@@ -15060,3 +15060,14 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 这游戏在我心目里距离神作就差多弄三个黑白和乌鸦的短分支结局
 
+
+
+*****
+
+####  adw667  
+##### 2796#       发表于 2022-12-1 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58701978&amp;ptid=2098044" target="_blank">夕暮至破晓 发表于 2022-12-1 09:44</a>
+这游戏在我心目里距离神作就差多弄三个黑白和乌鸦的短分支结局</blockquote>
+你不要鸦哥不就有一个短结局吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
