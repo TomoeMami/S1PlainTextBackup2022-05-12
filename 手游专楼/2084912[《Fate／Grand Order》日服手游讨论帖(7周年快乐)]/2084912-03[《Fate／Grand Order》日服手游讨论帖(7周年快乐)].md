@@ -7829,3 +7829,24 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3716#       发表于 2022-12-1 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58708945&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-1 17:07</a>
+预言家，刀了</blockquote>
+？
+16号开始UP奥伯隆啊
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  里村紅葉  
+##### 3717#       发表于 2022-12-1 17:19
+
+这村正池子给我出了2张罗摩是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

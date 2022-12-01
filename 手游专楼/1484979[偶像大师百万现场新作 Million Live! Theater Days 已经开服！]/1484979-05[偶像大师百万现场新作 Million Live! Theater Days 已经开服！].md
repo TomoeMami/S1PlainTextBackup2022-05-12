@@ -28,3 +28,13 @@
 
 —— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  花开安菲路  
+##### 7035#       发表于 2022-12-1 17:12
+
+只看上半身确实有点难绷，但其实整体还是挺可爱的，环的异色服必须得拿下了，就是没有卡pt加成只有19%<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/226d79fcd55938d93f8439403dd2cb37/CMP_20221201171154762.jpg" referrerpolicy="no-referrer">
+

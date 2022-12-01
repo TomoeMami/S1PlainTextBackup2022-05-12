@@ -15149,3 +15149,27 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 是的，不会有任何一个道具是错失了就再也拿不到的，在后期要不可以直接买，要不扭蛋会给，要不原场景你回 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">圣衣甚至给了你两件
 
+
+
+*****
+
+####  yla  
+##### 2804#       发表于 2022-12-1 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58701890&amp;ptid=2098044" target="_blank">urvark 发表于 2022-12-1 09:39</a>
+
+主要是我看前面不少人说这游戏除了开头村子房间里那个宝箱之外，啥东西错过了都可以补，就想着是不是这段 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这种对话好几个，第四章穿着女装进第五章有特殊对话，第五章的女孩带不带什么时候带都有区别
+
+*****
+
+####  urvark  
+##### 2805#       发表于 2022-12-1 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58709108&amp;ptid=2098044" target="_blank">yla 发表于 2022-12-1 17:18</a>
+
+这种对话好几个，第四章穿着女装进第五章有特殊对话，第五章的女孩带不带什么时候带都有区别 ...</blockquote>
+这些我都没漏，SL着看完了
+
+有一个漏了，第五章让她死在那里的话，后面第七章最后对话会有不同，这个跨度太长了我没看
+
