@@ -1645,3 +1645,17 @@ ANYCOLOR株式会社
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">之前说自己精神状态挺好的会回来的，这就毕业了？等了两个月的粉丝也是有够倒霉
 
+
+
+*****
+
+####  purdre  
+##### 17773#       发表于 2022-12-1 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58704516&amp;ptid=1972669" target="_blank">woui003woui 发表于 2022-12-1 12:30</a>
+
+之前说自己精神状态挺好的会回来的，这就毕业了？等了两个月的粉丝也是有够倒霉 ...</blockquote>
+这期间还出了各种联动和周边商品，真是把剩余价值全部压榨光了再走的啊
+
+当然这不能只怪他本人，使劲卖商品的虹自己也一个水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
