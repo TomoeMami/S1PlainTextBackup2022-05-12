@@ -1097,3 +1097,15 @@ a01全员00单元候补，按后续设定00单元都成一个种族了<img src="
 
 所以说这个世界的男主已经死了，青梅被beta给抓了当成沟通工具后来又被救回来当成00组件，是这个意思吗
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2095#       发表于 2022-12-1 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58706242&amp;ptid=1860817" target="_blank">liwangli1983 发表于 2022-12-1 14:13</a>
+
+所以说这个世界的男主已经死了，青梅被beta给抓了当成沟通工具后来又被救回来当成00组件，是这个意思吗 ...</blockquote>
+soudayo
+

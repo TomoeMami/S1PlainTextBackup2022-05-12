@@ -250,3 +250,24 @@ Steam一样的，这个应该是自主规制了，不过PC能用MOD<img src="htt
 
 这僵硬、拖泥带水的动作，ps4版这漫长的加载，而且ps4版预购和豪华版给的那堆东西下载了却找不到在哪用实数把人整乐了。有美俏女剑士四分之一爽也好啊。只能凑活凑活看看美少女角色了，建模还可以。
 
+
+
+*****
+
+####  宛若青空  
+##### 105#       发表于 2022-12-1 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58706287&amp;ptid=2084947" target="_blank">senran 发表于 2022-12-1 14:16</a>
+这僵硬、拖泥带水的动作，ps4版这漫长的加载，而且ps4版预购和豪华版给的那堆东西下载了却找不到在哪用实数 ...</blockquote>
+那堆服装在每关开始前的准备界面的装备选项里可以换，武器也是在里面
+
+*****
+
+####  senran  
+##### 106#       发表于 2022-12-1 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58706548&amp;ptid=2084947" target="_blank">宛若青空 发表于 2022-12-1 14:34</a>
+
+那堆服装在每关开始前的准备界面的装备选项里可以换，武器也是在里面</blockquote>
+昨晚打的，准备界面里没有。不知道是不是得重新下载下才有。
+
