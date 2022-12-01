@@ -11815,3 +11815,12 @@ bgm：双喜
 
 叶学日本人口音的汉语有一套的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 2737#       发表于 2022-12-1 13:22
+
+之前九夏和喵总的投稿播放量64w了，应该是九夏音乐类最好的成绩了
+

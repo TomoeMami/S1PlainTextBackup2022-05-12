@@ -1058,3 +1058,12 @@ a01全员00单元候补，按后续设定00单元都成一个种族了<img src="
 999惩罚大队是把政变军的幸存者编成的吗？</blockquote>
 是的 游戏里没有登场 驹木和管人这两个和佐渡有关系的人 应该还有一些戏份
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2091#       发表于 2022-12-1 13:30
+
+[投票贴](https://bbs.saraba1st.com/2b/thread-2107762-1-1.html)来了，大家快来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
