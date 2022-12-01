@@ -1956,3 +1956,22 @@ Fes缺席不给退票 ，龙胆尊歌谣祭被运营拿去收费
 
 只希望我郡不用被骂作伪证以及pt别哭惹，感觉pt吃尽了厄介女粉的苦<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17805#       发表于 2022-12-1 18:21
+
+劳伦也是刚知道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他同期倒是知道得早一些
+
+*****
+
+####  327080  
+##### 17806#       发表于 2022-12-1 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58708908&amp;ptid=1972669" target="_blank">海洋队手下mayo 发表于 2022-12-1 17:05</a>
+
+当初到处都刷这皮是大舅哥，enkr瞧不起玩任天堂拒绝了大舅哥还非要凑一对枪男组合，这下算盘砸了吧 ...</blockquote>
+不是很了解，请问彩虹哥拒绝大舅子这事有指路吗，非常感谢
+
