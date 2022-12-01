@@ -1244,3 +1244,33 @@ a01全员00单元候补，按后续设定00单元都成一个种族了
 
 只能说在AL这条线，某间谍导致的打不过就没然后了……
 
+
+
+*****
+
+####  墨染樱@mt  
+##### 2106#       发表于 2022-12-2 01:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58713739&amp;ptid=1860817" target="_blank">鱼雷鲨 发表于 2022-12-1 23:05</a>
+那段后续其实我也看了，试管种植白毛的技术二次利用？总觉得手里没个巢穴还是不好搞00的 ...</blockquote>
+没有重头脑级以后的beta是人类能处理，按后续设定是月球夺回以后才爆凄乃皇海来看，应该是地球巢穴清理完了以后才大量生产的00单元以至于内战。
+不过这个前后顺序就确定不了了。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  半分宅  
+##### 2107#       发表于 2022-12-2 01:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58714386&amp;ptid=1860817" target="_blank">亚尔古水手 发表于 2022-12-1 11:49</a>
+
+＝＝
+
+樱花打不赢就没有然后了</blockquote>
+取决于是怎么个打不赢法，应该是介于本篇和TDA之间的状况？
+
+既然人类侧已经知道原初Hive是BETA的战术网络核心，从奶黄包成功降落开始就是小赢大赢的区别了。最差情况就是奶黄包被击破且未能自爆，美军投下大量G弹强行炸平原初Hive（记得是原作的后备方案）；小赢的情况是奶黄包在到达重头脑级之前被迫自爆，威力还是足够炸平原初Hive和重头脑级，但是没能带出资料。
+
+这两个方案人类侧后面都会打得比较吃力，但即使用G弹强行炸平原初Hive，结果也会比TDA线用G弹作地毯式轰炸、造成地球重力圈崩溃要好很多。
+
