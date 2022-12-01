@@ -185,3 +185,26 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 
 —— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  古代人皮克  
+##### 126#       发表于 2022-12-1 19:18
+
+ 本帖最后由 古代人皮克 于 2022-12-1 19:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">无语，肥鲨说补丁已经改好了，但是封包改版本的人已经放假去了，还不知道什么时候能推送
+
+对自己做的这个b游戏没b数是吗
+
+“这游戏为什么不能叫EA版”
+
+<img src="https://img.saraba1st.com/forum/202212/01/192143pm4jzrkc4xriegjt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (33.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-1 19:21 上传
+
