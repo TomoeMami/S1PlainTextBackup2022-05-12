@@ -15137,3 +15137,15 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 你一定没往左边走。姑娘就&amp;#x ...</blockquote>
 是我表达的不好，立绘指的是其他人那种大头照<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 2803#       发表于 2022-12-1 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58706936&amp;ptid=2098044" target="_blank">M1NG 发表于 2022-12-1 14:58</a>
+
+是的，不会有任何一个道具是错失了就再也拿不到的，在后期要不可以直接买，要不扭蛋会给，要不原场景你回 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">圣衣甚至给了你两件
+
