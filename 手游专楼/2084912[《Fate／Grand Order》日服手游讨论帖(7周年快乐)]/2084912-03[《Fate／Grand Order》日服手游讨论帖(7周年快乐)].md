@@ -7917,3 +7917,25 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 顺便给剑兰有新的幕间/强化也好吧...
 
+
+
+*****
+
+####  Blackson  
+##### 3724#       发表于 2022-12-1 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58710201&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-12-1 18:33</a>
+
+那么问题来了，奥伯龙要抽2宝吗</blockquote>
+当拐不需要，但是按日服刚过去的90++的做法，可能还得充当打手
+
+*****
+
+####  alucardcz  
+##### 3725#       发表于 2022-12-1 21:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58710201&amp;ptid=2084912" target="_blank">rooarr 发表于 2022-12-1 18:33</a>
+
+那么问题来了，奥伯龙要抽2宝吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">课佬你还要问  5宝啊
+
