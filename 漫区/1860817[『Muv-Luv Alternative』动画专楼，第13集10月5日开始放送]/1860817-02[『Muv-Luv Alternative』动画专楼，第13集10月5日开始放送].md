@@ -1214,3 +1214,15 @@ a01全员00单元候补，按后续设定00单元都成一个种族了
 ＝＝
 樱花打不赢就没有然后了
 
+
+
+*****
+
+####  忘记插卡  
+##### 2104#       发表于 2022-12-2 00:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58713714&amp;ptid=1860817" target="_blank">鱼雷鲨 发表于 2022-12-1 23:02</a>
+
+横滨机库下面那俩没完成的XG1型，3型还修得好吗？不是都被啃了么</blockquote>
+凄乃皇打上花火哦不月球不是鸡枞吃书的标准症状之一吗
+
