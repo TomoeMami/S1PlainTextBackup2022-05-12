@@ -1737,3 +1737,19 @@ ky下这么好的皮不如给大舅哥（
 你虹没有竞业协议的吗。
 隔壁那啥riot音乐都有呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 17782#       发表于 2022-12-1 13:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">别到时候光速转生哦
+
+*****
+
+####  winda  
+##### 17783#       发表于 2022-12-1 13:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">kun桑昨天投的动画还在说axia这样还不如去当streamer，好了，这下真去当streamer了
+

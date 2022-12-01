@@ -151,3 +151,21 @@ PS4版预载 5.28GB
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">云了一下，被闪乱神乐薄纱，当然它有啵嘴我肯定买
 
+
+
+*****
+
+####  iriyano  
+##### 95#       发表于 2022-12-1 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58700145&amp;ptid=2084947" target="_blank">依存香炉 发表于 2022-12-1 03:13</a>
+
+这个pc比ns和ps晚一周发售...
+
+云了一下c酱直播 感觉除了建模可爱之外其他方面有些敷衍啊
+
+希望打斗能至少有 ...</blockquote>
+现在c酱没有录播了吗？
+
+还想去看一下
+
