@@ -1012,3 +1012,29 @@ UN远东舰队的鸭滑也有建模有炮击动画还好几个镜头，整个感
 只要能做成一个，就能做成无数个</blockquote>
 别人做不了吧
 
+
+
+*****
+
+####  墨染樱@mt  
+##### 2087#       发表于 2022-12-1 11:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58703405&amp;ptid=1860817" target="_blank">鱼雷鲨 发表于 2022-12-1 11:22</a>
+别人做不了吧</blockquote>
+a01全员00单元候补，按后续设定00单元都成一个种族了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  亚尔古水手  
+##### 2088#       发表于 2022-12-1 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58700290&amp;ptid=1860817" target="_blank">忘记插卡 发表于 2022-12-1 03:27</a>
+00单元也是消耗品啊
+
+只要能做成一个，就能做成无数个</blockquote>
+相对来讲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+要不是打完樱花，xb-70也量产不了，生产力问题
+
