@@ -998,3 +998,17 @@ UN远东舰队的鸭滑也有建模有炮击动画还好几个镜头，整个感
 
 听贴吧吐槽，花钱花在不该花的地方了，南条爱乃去配伊隅三姐妹里一个了
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 2086#       发表于 2022-12-1 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58700290&amp;ptid=1860817" target="_blank">忘记插卡 发表于 2022-12-1 03:27</a>
+
+00单元也是消耗品啊
+
+只要能做成一个，就能做成无数个</blockquote>
+别人做不了吧
+
