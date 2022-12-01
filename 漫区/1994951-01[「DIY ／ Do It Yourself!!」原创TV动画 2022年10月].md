@@ -6858,3 +6858,14 @@ Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐ Blu-ray
 <img src="https://p.sda1.dev/8/2809047136ac6d33ee719a7577c36150/20221201_110559.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/38733e91b75f3a32ce5d77d5d662fb88/20221201_110625.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 521#       发表于 2022-12-1 18:42
+
+除了部长都是学霸是吧
+
+这猪为啥要叫三代目，不会真是三代目了吧（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
