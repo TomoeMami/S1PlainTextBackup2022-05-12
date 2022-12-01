@@ -241,3 +241,12 @@ Steam一样的，这个应该是自主规制了，不过PC能用MOD<img src="htt
 
 感觉不如.....无夜之国<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  senran  
+##### 104#       发表于 2022-12-1 14:16
+
+这僵硬、拖泥带水的动作，ps4版这漫长的加载，而且ps4版预购和豪华版给的那堆东西下载了却找不到在哪用实数把人整乐了。有美俏女剑士四分之一爽也好啊。只能凑活凑活看看美少女角色了，建模还可以。
+
