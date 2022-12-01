@@ -282,3 +282,16 @@ Steam一样的，这个应该是自主规制了，不过PC能用MOD<img src="htt
 昨晚打的，准备界面里没有。不知道是不是得重新下载下才有。</blockquote>
 看看DLC是不是被锁了，系统里账号修复下凭证就好
 
+
+
+*****
+
+####  roxassix  
+##### 108#       发表于 2022-12-1 15:42
+
+ 本帖最后由 roxassix 于 2022-12-1 15:43 编辑 
+
+话说这游戏ps日版居然有中文我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+se你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer"> 
+
