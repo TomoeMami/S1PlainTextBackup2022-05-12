@@ -8119,3 +8119,14 @@ https://febri.jp/topics/llss_2nd_4/
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ruffian  
+##### 9656#       发表于 2022-12-1 18:03
+
+今天的pop talking有意思，不知道明天的会不会更疯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

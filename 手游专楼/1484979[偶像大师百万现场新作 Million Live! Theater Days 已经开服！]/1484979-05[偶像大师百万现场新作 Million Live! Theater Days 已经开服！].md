@@ -38,3 +38,12 @@
 只看上半身确实有点难绷，但其实整体还是挺可爱的，环的异色服必须得拿下了，就是没有卡pt加成只有19%<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/226d79fcd55938d93f8439403dd2cb37/CMP_20221201171154762.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  louriga1990  
+##### 7036#       发表于 2022-12-1 18:06
+
+儿歌活动的这几个角色没啥喜欢的，可以摸鱼过了
+
