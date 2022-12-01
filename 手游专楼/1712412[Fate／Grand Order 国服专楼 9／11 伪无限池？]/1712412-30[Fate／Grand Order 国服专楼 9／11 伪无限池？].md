@@ -1575,3 +1575,17 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 才想起来今天友情池没抽，卡了一下出了第五个哈贝喵，还挺高兴，就看到最后一个是三星活动礼装，活动都结束了，你给我活动礼装？一脸懵逼
 
+
+
+*****
+
+####  wfantasia  
+##### 43783#       发表于 2022-12-1 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58685905&amp;ptid=1712412" target="_blank">麻花疼 发表于 2022-11-30 08:05</a>
+
+练度全999了，衣服也满了，目前最缺的就是圣杯
+
+算是达成入坑小目标了，6年了没弃游没断过登录，也 ...</blockquote>
+求大佬给个好友100,108,488,216已申请
+
