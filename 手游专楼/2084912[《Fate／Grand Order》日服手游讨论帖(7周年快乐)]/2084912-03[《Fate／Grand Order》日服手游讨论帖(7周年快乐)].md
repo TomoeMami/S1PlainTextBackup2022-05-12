@@ -7736,3 +7736,15 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 按运营这德性，玩家想要的通通舍弃(就是不UP 奥伯龙)
 
+
+
+*****
+
+####  UNISONIA  
+##### 3708#       发表于 2022-12-1 08:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58694729&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-11-30 18:07</a>
+
+街机才是真的感觉要卷钱跑路，2.0剧情一点没出，直接把2.6的角色端出来了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上周纽约动漫展上几乎是明说了叶良树是从世嘉过来SME的，怕是不会比手游先跑路了
+
