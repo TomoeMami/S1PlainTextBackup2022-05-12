@@ -13,7 +13,7 @@ with open(rootdir+'RefreshingData.json',"r",encoding='utf-8') as f:
     thdata=json.load(f)
 newthdata = deepcopy(thdata)
 for i in thdata.keys():
-    if not thdata[i]['active']:
+    if thdata[i]['totalreply'] // 30 < 15 and not thdata[i]['active']:
         if thdata[i]['newtitle'] == '[]':
             newthdata.pop(i)
 with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
