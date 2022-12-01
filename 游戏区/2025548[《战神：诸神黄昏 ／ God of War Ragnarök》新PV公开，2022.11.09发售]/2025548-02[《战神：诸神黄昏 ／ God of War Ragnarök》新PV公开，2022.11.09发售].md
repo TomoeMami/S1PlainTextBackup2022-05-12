@@ -3974,3 +3974,14 @@ NGA有人发了个帖子，说战斗系统和装备搭配，很不错
 
 为啥我ps4会音画不同步，后面直接连对话都没了，只有动作和bgm
 
+
+
+*****
+
+####  Booorunestud  
+##### 1859#       发表于 2022-12-1 12:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58691961&amp;ptid=2025548" target="_blank">大弹涂鱼潜伏 发表于 2022-11-30 15:20</a>
+为啥我ps4会音画不同步，后面直接连对话都没了，只有动作和bgm</blockquote>
+bug，存档重读，之前遇到过
+
