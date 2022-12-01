@@ -65,3 +65,26 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">原来是老兵bug，4难度无尽bug也没修，说好的打造也没出，这正式版正式了个锤子
 
+
+
+*****
+
+####  415452356  
+##### 115#       发表于 2022-12-1 15:06
+
+  看这代天赋树就知道要重新发明轮子了，对比鼠疫2那种全方面的进化落差太大了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  古代人皮克  
+##### 116#       发表于 2022-12-1 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58707071&amp;ptid=1951151" target="_blank">415452356 发表于 2022-12-1 15:06</a>
+
+看这代天赋树就知道要重新发明轮子了，对比鼠疫2那种全方面的进化落差太大了
+
+—— 来自 S1Fun ...</blockquote>
+其实鼠疫2花里胡哨天赋和转职玩的多的也就那么几个
+
