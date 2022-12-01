@@ -324,3 +324,30 @@ se你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/218.p
 
 指望这玩意儿有御姐武戏手感是有点想太多了
 
+
+
+*****
+
+####  printer22  
+##### 112#       发表于 2022-12-1 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58710806&amp;ptid=2084947" target="_blank">applebloom 发表于 2022-12-1 19:19</a>
+
+指望这玩意儿有御姐武戏手感是有点想太多了</blockquote>
+没有什么御姐了，从甲斐田换成搞笑艺人，年龄上也JK化了，倒是妹妹从司马脸变好看了，秋月爱莉好评
+
+*****
+
+####  你好s1  
+##### 113#       发表于 2022-12-1 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58705209&amp;ptid=2084947" target="_blank">iriyano 发表于 2022-12-1 13:08</a>
+
+现在c酱没有录播了吗？
+
+还想去看一下</blockquote>
+
+  去B站搜索 小肉包的家电维修部
+
+   录播都在这里，因为B站自动录像只有7个小时，录不全
+
