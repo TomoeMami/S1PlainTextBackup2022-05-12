@@ -7804,3 +7804,28 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">12月也可以是11月
 
+
+
+*****
+
+####  khxooo  
+##### 3714#       发表于 2022-12-1 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58702756&amp;ptid=2084912" target="_blank">日蚀之阳 发表于 2022-12-1 10:36</a>
+1.不推出让玩家能**的企划活动
+
+2.不去做其他手游有的活动和功能
+
+3.不做不像Fate的内容</blockquote>
+预言家，刀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  不垃圾屌丝  
+##### 3715#       发表于 2022-12-1 17:13
+
+狗，摩根，奥伯隆
+没有角神也够恶心了
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

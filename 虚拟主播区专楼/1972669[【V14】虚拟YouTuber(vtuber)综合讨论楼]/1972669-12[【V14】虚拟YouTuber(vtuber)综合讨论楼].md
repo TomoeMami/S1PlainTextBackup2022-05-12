@@ -1869,3 +1869,52 @@ bora毕业前都多次暗示明示要转生的
 
 Axia是个狠人
 
+
+
+*****
+
+####  qwera3469  
+##### 17796#       发表于 2022-12-1 17:03
+
+就没那能吸引纯游戏观众的技术力，靠皮吸了点妈妈粉还真以为自己行了，最好是转生纯游戏主播看看还能有什么粉丝
+
+*****
+
+####  海洋队手下mayo  
+##### 17797#       发表于 2022-12-1 17:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初到处都刷这皮是大舅哥，enkr瞧不起玩任天堂拒绝了大舅哥还非要凑一对枪男组合，这下算盘砸了吧
+
+*****
+
+####  psnsic8nag  
+##### 17798#       发表于 2022-12-1 17:08
+
+卖谷子这件事把锅扣在V头上是认真的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们忘了彩虹运营的nt操作了？
+
+Fes缺席不给退票 ，龙胆尊歌谣祭被运营拿去收费
+
+*****
+
+####  psnsic8nag  
+##### 17799#       发表于 2022-12-1 17:08
+
+卖谷子这件事把锅扣在V头上是认真的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们忘了彩虹运营的nt操作了？
+
+Fes缺席不给退票 ，龙胆尊歌谣祭被运营拿去收费
+
+*****
+
+####  psnsic8nag  
+##### 17800#       发表于 2022-12-1 17:08
+
+卖谷子这件事把锅扣在V头上是认真的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们忘了彩虹运营的nt操作了？
+
+Fes缺席不给退票 ，龙胆尊歌谣祭被运营拿去收费
+
