@@ -271,3 +271,14 @@ Steam一样的，这个应该是自主规制了，不过PC能用MOD<img src="htt
 那堆服装在每关开始前的准备界面的装备选项里可以换，武器也是在里面</blockquote>
 昨晚打的，准备界面里没有。不知道是不是得重新下载下才有。
 
+
+
+*****
+
+####  宛若青空  
+##### 107#       发表于 2022-12-1 14:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58706575&amp;ptid=2084947" target="_blank">senran 发表于 2022-12-1 14:36</a>
+昨晚打的，准备界面里没有。不知道是不是得重新下载下才有。</blockquote>
+看看DLC是不是被锁了，系统里账号修复下凭证就好
+
