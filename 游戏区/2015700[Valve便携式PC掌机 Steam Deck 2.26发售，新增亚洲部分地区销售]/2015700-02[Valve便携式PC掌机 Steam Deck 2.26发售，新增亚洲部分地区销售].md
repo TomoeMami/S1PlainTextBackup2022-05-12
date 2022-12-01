@@ -161,3 +161,12 @@ Linux桌面模式商城有个Usermode FTP, 我都是FTP传的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">收到补款邮件了，已下单
 
+
+
+*****
+
+####  妄想中毒  
+##### 1948#       发表于 2022-12-1 22:50
+
+用的转运中国G胖今天发货了，然后我转运中国填入库发现几种转运方式都不支持我所在的地址只能香港自提，这什么坑爹玩意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

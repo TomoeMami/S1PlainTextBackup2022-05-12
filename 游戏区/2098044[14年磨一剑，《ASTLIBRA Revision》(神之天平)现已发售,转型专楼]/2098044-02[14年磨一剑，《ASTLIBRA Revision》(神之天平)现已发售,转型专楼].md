@@ -15241,3 +15241,22 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 那么在新章还能领弑神剑吗，难道也要冲到新章的矿石镇才能拿……<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hello0607  
+##### 2813#       发表于 2022-12-1 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58713465&amp;ptid=2098044" target="_blank">shimotsuki14 发表于 2022-12-1 22:44</a>
+
+淦，大意了，进新章之前去了趟魔导师塔，才领了武器盾牌铠甲全收集的任务，以为进了新章有新武器要拿才能凑 ...</blockquote>
+新章矿石镇火山后就能去了 在本篇四章的位置 新章不用解谜舔图很快就到了
+
+*****
+
+####  hello0607  
+##### 2814#       发表于 2022-12-1 22:54
+
+free版结局和正式版终章一样么 就是变成了融合世界？ 感觉有点随便
+
