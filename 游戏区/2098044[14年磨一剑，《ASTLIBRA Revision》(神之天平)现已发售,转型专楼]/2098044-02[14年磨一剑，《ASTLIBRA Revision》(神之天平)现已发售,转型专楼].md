@@ -15185,3 +15185,12 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 是我表达的不好，立绘指的是其他人那种大头照</blockquote>
 因为是外传主人公，和本传主人公一样没有立绘
 
+
+
+*****
+
+####  HOLIDAY  
+##### 2807#       发表于 2022-12-1 21:14
+
+这KEIZO是不是有颗做黄油的心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
