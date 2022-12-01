@@ -88,3 +88,22 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 —— 来自 S1Fun ...</blockquote>
 其实鼠疫2花里胡哨天赋和转职玩的多的也就那么几个
 
+
+
+*****
+
+####  wakener2  
+##### 117#       发表于 2022-12-1 15:14
+
+我都不奢求别的，正式版能不让我闪退就行...  真的是崩的没想法了
+
+*****
+
+####  415452356  
+##### 118#       发表于 2022-12-1 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58707189&amp;ptid=1951151" target="_blank">古代人皮克 发表于 2022-12-1 15:12</a>
+
+其实鼠疫2花里胡哨天赋和转职玩的多的也就那么几个</blockquote>
+  给多点选择还是好的，像现在这样直来直去感觉也不得劲
+

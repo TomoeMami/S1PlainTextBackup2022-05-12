@@ -15125,3 +15125,15 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 没有剧情其实，就嘉隆两句话说原来是这个ta吗和ta到底是谁啊。还有两句描写了下外貌，没立绘也没 ...</blockquote>
 你一定没往左边走。姑娘就躲在树后。还能把树打了，不过裹的严严实实的。
 
+
+
+*****
+
+####  M1NG  
+##### 2802#       发表于 2022-12-1 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58707128&amp;ptid=2098044" target="_blank">cym887 发表于 2022-12-1 15:09</a>
+
+你一定没往左边走。姑娘就&amp;#x ...</blockquote>
+是我表达的不好，立绘指的是其他人那种大头照<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
