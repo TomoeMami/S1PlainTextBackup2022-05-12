@@ -7748,3 +7748,25 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 街机才是真的感觉要卷钱跑路，2.0剧情一点没出，直接把2.6的角色端出来了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上周纽约动漫展上几乎是明说了叶良树是从世嘉过来SME的，怕是不会比手游先跑路了
 
+
+
+*****
+
+####  日蚀之阳  
+##### 3709#       发表于 2022-12-1 10:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58699639&amp;ptid=2084912" target="_blank">Blackson 发表于 2022-12-1 00:52</a>
+
+按运营这德性，玩家想要的通通舍弃(就是不UP 奥伯龙)</blockquote>
+1.不推出让玩家能**的企划活动
+
+2.不去做其他手游有的活动和功能
+
+3.不做不像Fate的内容
+
+4.不做让玩家互相享受战斗乐趣的内容（即PVP）
+
+5.舍弃掉不喜欢FGO的玩家
+
+大胆一点，舍弃掉想要奥伯龙复刻的玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
