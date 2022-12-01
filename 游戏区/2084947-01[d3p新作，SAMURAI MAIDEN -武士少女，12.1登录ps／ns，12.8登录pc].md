@@ -396,3 +396,15 @@ se你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/218.p
 
 子弹少女至少能用的人多一点，还有调教模式……
 
+
+
+*****
+
+####  printer22  
+##### 118#       发表于 2022-12-2 01:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58712214&amp;ptid=2084947" target="_blank">慕容断月 发表于 2022-12-1 21:06</a>
+
+不要为难这家开发商，你看看子弹少女系列，他们不是tamsoft，没多少act经验，所以一看开发商我就知道要雷 ...</blockquote>
+河豚啵嘴是主题，ACT是附赠的小游戏，这样想不就不雷了。
+
