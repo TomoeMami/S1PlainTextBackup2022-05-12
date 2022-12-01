@@ -169,3 +169,23 @@ PS4版预载 5.28GB
 
 还想去看一下
 
+
+
+*****
+
+####  roxassix  
+##### 96#       发表于 2022-12-1 13:35
+
+神tm拍照模式裙底有暗牧的。。脑子有病吧<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+*****
+
+####  宛若青空  
+##### 97#       发表于 2022-12-1 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58705590&amp;ptid=2084947" target="_blank">roxassix 发表于 2022-12-1 13:35</a>
+神tm拍照模式裙底有暗牧的。。脑子有病吧特么的世界怎么变成了这个样子 ...</blockquote>
+讲道理想做就做彻底啊，拍照模式还给裙底来个暗牧简直有病，精神分裂了属于是；
+
+动作也没多少个甚至不能轻重派生攻击<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

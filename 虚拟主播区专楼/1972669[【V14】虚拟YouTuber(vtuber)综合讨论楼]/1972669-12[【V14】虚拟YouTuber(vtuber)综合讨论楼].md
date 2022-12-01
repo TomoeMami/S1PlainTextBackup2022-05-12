@@ -1762,3 +1762,23 @@ ky下这么好的皮不如给大舅哥（
 
 光速肯定光速，当初Axia就是觉得粉丝很烦在休止的。也没说不想继续做套皮man。
 
+
+
+*****
+
+####  rzrbtk  
+##### 17785#       发表于 2022-12-1 13:30
+
+ 本帖最后由 rzrbtk 于 2022-12-1 13:37 编辑 
+
+我靠，之前郡还说感觉阿夏身体还行情绪良好，走得这么突然<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+是真的有点突然，当时休止的理由是厄介粉丝，现在一转方向不同，读不懂惹，希望我郡解读一下
+
+*****
+
+####  格林卡罗尔  
+##### 17786#       发表于 2022-12-1 13:31
+
+理念不合已成为にじさんじ最潮的毕业理由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
