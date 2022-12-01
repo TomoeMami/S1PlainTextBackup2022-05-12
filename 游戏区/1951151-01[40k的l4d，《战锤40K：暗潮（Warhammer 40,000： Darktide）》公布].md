@@ -107,3 +107,25 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 其实鼠疫2花里胡哨天赋和转职玩的多的也就那么几个</blockquote>
   给多点选择还是好的，像现在这样直来直去感觉也不得劲
 
+
+
+*****
+
+####  古代人皮克  
+##### 119#       发表于 2022-12-1 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58707278&amp;ptid=1951151" target="_blank">415452356 发表于 2022-12-1 15:18</a>
+
+给多点选择还是好的，像现在这样直来直去感觉也不得劲</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">给点专精武器的天赋也行，现在天赋要不然就是哪个完爆，要不然就是点谁区别不大
+
+*****
+
+####  415452356  
+##### 120#       发表于 2022-12-1 15:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58707342&amp;ptid=1951151" target="_blank">古代人皮克 发表于 2022-12-1 15:23</a>
+
+给点专精武器的天赋也行，现在天赋要不然就是哪个完爆，要不然就是点谁区别不大 ...</blockquote>
+  确实，我玩个聪明头在那边狂洒子弹都感觉不如人家老兵狂热者爆弹枪清兵效率高，存在感还不如鼠疫矮人
+
