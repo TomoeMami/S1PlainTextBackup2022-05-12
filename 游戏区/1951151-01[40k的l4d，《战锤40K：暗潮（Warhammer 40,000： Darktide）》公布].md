@@ -208,3 +208,14 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 
 2022-12-1 19:21 上传
 
+
+
+*****
+
+####  mirrorside  
+##### 127#       发表于 2022-12-1 22:04
+
+我设置一打开光追就闪退，有人也这样吗？
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
