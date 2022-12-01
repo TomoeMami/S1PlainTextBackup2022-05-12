@@ -2975,3 +2975,12 @@ sc嘛，我意思是读sc也是聊天，聊天时间也省了。
 
 不过年末这么搞也好，反正是收录就不用去现场，这样miko今年又可以在家直播同时视听日出了
 
+
+
+*****
+
+####  rs5621  
+##### 3284#       发表于 2022-12-1 16:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还得是播日出好
+
