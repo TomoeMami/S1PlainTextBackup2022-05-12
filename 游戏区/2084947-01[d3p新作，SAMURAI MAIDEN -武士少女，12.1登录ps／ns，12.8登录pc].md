@@ -225,3 +225,19 @@ Steam一样的，这个应该是自主规制了，不过PC能用MOD<img src="htt
 
 云了七章，少女们互动太少了，别说亲吻，连个拥抱都没
 
+
+
+*****
+
+####  Kojimaru  
+##### 102#       发表于 2022-12-1 14:03
+
+跟前几作一样，主机版自带圣光、迷雾、暗牧。pc版可去
+
+*****
+
+####  名余竹  
+##### 103#       发表于 2022-12-1 14:10
+
+感觉不如.....无夜之国<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

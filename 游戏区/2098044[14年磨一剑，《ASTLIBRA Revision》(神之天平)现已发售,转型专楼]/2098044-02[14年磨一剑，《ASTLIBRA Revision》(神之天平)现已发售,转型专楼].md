@@ -15080,3 +15080,15 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 问一下，魔王城的苹果一周目四个全喂了就没了？
 
+
+
+*****
+
+####  M1NG  
+##### 2798#       发表于 2022-12-1 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58706050&amp;ptid=2098044" target="_blank">double8 发表于 2022-12-1 14:01</a>
+
+问一下，魔王城的苹果一周目四个全喂了就没了？</blockquote>
+后面扭蛋会给一个
+
