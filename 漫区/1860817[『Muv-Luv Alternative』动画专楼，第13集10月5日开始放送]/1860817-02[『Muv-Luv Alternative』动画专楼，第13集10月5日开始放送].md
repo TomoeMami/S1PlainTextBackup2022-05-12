@@ -1118,3 +1118,16 @@ soudayo
 
 忘记游戏里非要纯夏当unit00的原因了，看动画时想到，纯夏看了武爷和冥夜的小电影后就进入自闭状态，这么不安定为啥不换个人当？何况纯夏还是贵重的研究材料。
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2097#       发表于 2022-12-1 17:43
+
+联动恋爱flops，都涉及青梅竹马意识上传<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+本作对于为什么把00unit的外貌做成纯夏，理由是为了意识的健康与卫生。连生殖器都还原了
+
+隔壁恋爱flops片场就惨了，青梅竹马醒来后和男主被次元壁隔开，从人类肉体变成只剩电脑还不是独立的机械硬件上，载体大概在数据中心上。于是精神发生了扭曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

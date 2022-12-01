@@ -7861,3 +7861,15 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  khxooo  
+##### 3719#       发表于 2022-12-1 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58709062&amp;ptid=2084912" target="_blank">不垃圾屌丝 发表于 2022-12-1 17:15</a>
+？
+16号开始UP奥伯隆啊</blockquote>
+草，公告一时找不到，还以为真的不UP奥伯龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
