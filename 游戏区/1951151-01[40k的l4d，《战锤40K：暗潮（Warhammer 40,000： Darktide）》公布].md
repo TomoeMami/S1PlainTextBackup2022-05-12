@@ -138,3 +138,30 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">懂了，绿皮程序员没加百分号，100%韧性伤害减免变成了100韧性伤害减免，大于100的韧性直接变成负值
 
+
+
+*****
+
+####  415452356  
+##### 122#       发表于 2022-12-1 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58707553&amp;ptid=1951151" target="_blank">古代人皮克 发表于 2022-12-1 15:40</a>
+
+懂了，绿皮程序员没加百分号，100%韧性伤害减免变成了100韧性伤害减免，大于100的韧性直接变成负值 ...</blockquote>
+  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这要是放在国内的MMO或者手游上线版本出这种事我不敢想
+
+*****
+
+####  古代人皮克  
+##### 123#       发表于 2022-12-1 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说好的七十多种武器也没了，肥鲨典中典发售日崩盘
+
+(21.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-1 15:56 上传
+
+<img src="https://img.saraba1st.com/forum/202212/01/155640stt1zcg5vtcsz75z.png" referrerpolicy="no-referrer">
+
