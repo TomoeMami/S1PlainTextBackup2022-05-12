@@ -1163,3 +1163,31 @@ soudayo
 
 当然把地球重头脑干掉之后打其他的可能轻松点
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 2100#       发表于 2022-12-1 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58711733&amp;ptid=1860817" target="_blank">忘记插卡 发表于 2022-12-1 20:24</a>
+
+打完樱花能做的更多
+
+一个横滨除了研究除了异界召唤除了重启还能起码两台凄乃皇</blockquote>
+横滨机库下面那俩没完成的XG1型，3型还修得好吗？不是都被啃了么
+
+
+
+*****
+
+####  鱼雷鲨  
+##### 2101#       发表于 2022-12-1 23:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58703610&amp;ptid=1860817" target="_blank">墨染樱@mt 发表于 2022-12-1 11:34</a>
+
+a01全员00单元候补，按后续设定00单元都成一个种族了
+
+—— 来自 HUAWEI HMA-AL00, Android 10上 ...</blockquote>
+那段后续其实我也看了，试管种植白毛的技术二次利用？总觉得手里没个巢穴还是不好搞00的
+
