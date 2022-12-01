@@ -142,3 +142,12 @@ PS4版预载 5.28GB
 希望打斗能至少有 ...</blockquote>
 那不可能，这家开发商底子不行，做子弹少女系列的，近战系做的不太行
 
+
+
+*****
+
+####  soranoguiji  
+##### 94#       发表于 2022-12-1 07:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">云了一下，被闪乱神乐薄纱，当然它有啵嘴我肯定买
+
