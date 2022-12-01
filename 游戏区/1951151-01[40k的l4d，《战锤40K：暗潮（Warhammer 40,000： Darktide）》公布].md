@@ -52,3 +52,16 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 
 测试最后一天更了个1.08负优化帧数砍半，本来将将60帧的老卡直接没法玩，正式版是一点都没修
 
+
+
+*****
+
+####  古代人皮克  
+##### 114#       发表于 2022-12-1 14:48
+
+ 本帖最后由 古代人皮克 于 2022-12-1 14:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这更新的什么傻逼玩意，不想要电梯血就直接让小怪在满韧性的情况下把白血砍空是吧
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">原来是老兵bug，4难度无尽bug也没修，说好的打造也没出，这正式版正式了个锤子
+
