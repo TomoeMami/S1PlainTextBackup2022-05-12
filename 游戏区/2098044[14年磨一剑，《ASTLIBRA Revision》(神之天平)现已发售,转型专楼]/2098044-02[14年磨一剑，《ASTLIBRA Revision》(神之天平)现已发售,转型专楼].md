@@ -15173,3 +15173,15 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 有一个漏了，第五章让她死在那里的话，后面第七章最后对话会有不同，这个跨度太长了我没看
 
+
+
+*****
+
+####  quanlix  
+##### 2806#       发表于 2022-12-1 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58707270&amp;ptid=2098044" target="_blank">M1NG 发表于 2022-12-1 15:18</a>
+
+是我表达的不好，立绘指的是其他人那种大头照</blockquote>
+因为是外传主人公，和本传主人公一样没有立绘
+

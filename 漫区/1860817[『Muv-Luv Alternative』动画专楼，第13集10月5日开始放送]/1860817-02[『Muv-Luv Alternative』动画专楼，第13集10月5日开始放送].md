@@ -1131,3 +1131,15 @@ soudayo
 
 隔壁恋爱flops片场就惨了，青梅竹马醒来后和男主被次元壁隔开，从人类肉体变成只剩电脑还不是独立的机械硬件上，载体大概在数据中心上。于是精神发生了扭曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jerryoq1  
+##### 2098#       发表于 2022-12-1 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58709056&amp;ptid=1860817" target="_blank">Dai-Dai-Dai-Dai 发表于 2022-12-1 17:14</a>
+
+忘记游戏里非要纯夏当unit00的原因了，看动画时想到，纯夏看了武爷和冥夜的小电影后就进入自闭状态，这么不 ...</blockquote>
+后面夕呼有修正说法阿  纯夏自闭真正原因是读取HIVE情报时候想起了当初被实验的记忆 忌妒感只能说是最后一根稻草  甲21后纯夏就躲着武爷阿
+

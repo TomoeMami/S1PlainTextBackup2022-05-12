@@ -3004,3 +3004,22 @@ sc嘛，我意思是读sc也是聊天，聊天时间也省了。
 
 他们难道不知道今年24小时直播最后的节目是什么
 
+
+
+*****
+
+####  holoan  
+##### 3287#         楼主| 发表于 2022-12-1 17:55
+
+<img src="https://img.saraba1st.com/forum/202212/01/175353aibmhqitsihvzjzb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (301.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-1 17:53 上传
+
+[https://twitter.com/Guchico77/status/1598251332712136704](https://twitter.com/Guchico77/status/1598251332712136704)
+
+这身衣服简直了
+
