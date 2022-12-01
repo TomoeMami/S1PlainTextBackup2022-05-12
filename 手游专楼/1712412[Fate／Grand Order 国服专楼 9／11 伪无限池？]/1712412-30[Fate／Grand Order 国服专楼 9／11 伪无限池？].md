@@ -1589,3 +1589,17 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 算是达成入坑小目标了，6年了没弃游没断过登录，也 ...</blockquote>
 求大佬给个好友100,108,488,216已申请
 
+
+
+*****
+
+####  麻花疼  
+##### 43784#       发表于 2022-12-1 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58711805&amp;ptid=1712412" target="_blank">wfantasia 发表于 2022-12-1 20:30</a>
+
+求大佬给个好友100,108,488,216已申请</blockquote>
+星海流风那个号是你么？
+
+通过了。
+
