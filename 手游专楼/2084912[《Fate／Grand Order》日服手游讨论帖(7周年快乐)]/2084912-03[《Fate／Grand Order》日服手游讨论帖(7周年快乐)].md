@@ -7850,3 +7850,14 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 这村正池子给我出了2张罗摩是什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 3718#       发表于 2022-12-1 17:25
+
+在12月的第一天就宣告我们这个月摆烂的手游是真的没见过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

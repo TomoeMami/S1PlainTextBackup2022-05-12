@@ -1927,3 +1927,21 @@ Fes缺席不给退票 ，龙胆尊歌谣祭被运营拿去收费
 
 团体谷姑且不说，个人谷不就是个人意愿，把刀架脖子上唱的歌也有点好笑了
 
+
+
+*****
+
+####  winda  
+##### 17802#       发表于 2022-12-1 17:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">11月10号有的毕业消息，9号是focus on专辑发售，踩点踩的真极限
+
+*****
+
+####  woui003woui  
+##### 17803#       发表于 2022-12-1 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">如果早定了谈不拢毕业的话在视频里完全不提本来就很
+黛灰不是已经打了一个很好的“理念不合退社”样板吗，至少我没看到多少粉丝觉得他这么干对不起自己的
+对比之下axia这波操作导向大伙觉得他真情实感怨恨粉丝不是很合理吗
+
