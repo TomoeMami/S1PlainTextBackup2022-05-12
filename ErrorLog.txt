@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/漫区/1997514-01[「龙幸伸」《超自然武装噹哒噹》（胆大党）「2022漫厉」No.4].md'
-!!error:id=1997514
