@@ -1753,3 +1753,12 @@ ky下这么好的皮不如给大舅哥（
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">kun桑昨天投的动画还在说axia这样还不如去当streamer，好了，这下真去当streamer了
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 17784#       发表于 2022-12-1 13:19
+
+光速肯定光速，当初Axia就是觉得粉丝很烦在休止的。也没说不想继续做套皮man。
+
