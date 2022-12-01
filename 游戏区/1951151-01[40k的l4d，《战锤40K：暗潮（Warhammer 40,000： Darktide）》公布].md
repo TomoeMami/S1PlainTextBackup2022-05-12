@@ -219,3 +219,12 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 
 —— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  山岚夜雨  
+##### 128#       发表于 2022-12-1 22:27
+
+开加速器换了好多节点都进不去，什么垃圾网络
+
