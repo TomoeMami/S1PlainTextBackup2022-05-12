@@ -1800,3 +1800,12 @@ ky下这么好的皮不如给大舅哥（
 
 理念不同的意思是不是 想继续直播但是不想在现在的企业当主播
 
+
+
+*****
+
+####  psnsic8nag  
+##### 17789#       发表于 2022-12-1 14:28
+
+和Bora一样半年后转生就好笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
