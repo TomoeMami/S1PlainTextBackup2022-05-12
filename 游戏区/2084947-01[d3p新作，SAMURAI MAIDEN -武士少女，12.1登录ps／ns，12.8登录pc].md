@@ -198,3 +198,30 @@ PS4版预载 5.28GB
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">什么?不让拍裙底?RNM退钱!
 
+
+
+*****
+
+####  孫光龍  
+##### 99#       发表于 2022-12-1 13:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没暗牧怕是索尼不给过审核哦
+咱们还是安心等pc版吧，再不济还能用mod保底
+
+*****
+
+####  宛若青空  
+##### 100#       发表于 2022-12-1 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58705884&amp;ptid=2084947" target="_blank">孫光龍 发表于 2022-12-1 13:51</a>
+没暗牧怕是索尼不给过审核哦
+咱们还是安心等pc版吧，再不济还能用mod保底 ...</blockquote>
+Steam一样的，这个应该是自主规制了，不过PC能用MOD<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  牛奶笛  
+##### 101#       发表于 2022-12-1 13:57
+
+云了七章，少女们互动太少了，别说亲吻，连个拥抱都没
+

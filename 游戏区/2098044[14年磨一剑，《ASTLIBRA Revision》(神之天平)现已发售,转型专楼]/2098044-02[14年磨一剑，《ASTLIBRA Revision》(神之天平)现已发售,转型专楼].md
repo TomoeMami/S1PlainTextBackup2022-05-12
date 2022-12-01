@@ -15071,3 +15071,12 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 这游戏在我心目里距离神作就差多弄三个黑白和乌鸦的短分支结局</blockquote>
 你不要鸦哥不就有一个短结局吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  double8  
+##### 2797#       发表于 2022-12-1 14:01
+
+问一下，魔王城的苹果一周目四个全喂了就没了？
+

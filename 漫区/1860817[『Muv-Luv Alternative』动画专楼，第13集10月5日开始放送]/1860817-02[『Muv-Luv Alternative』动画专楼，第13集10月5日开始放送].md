@@ -1067,3 +1067,12 @@ a01全员00单元候补，按后续设定00单元都成一个种族了<img src="
 
 [投票贴](https://bbs.saraba1st.com/2b/thread-2107762-1-1.html)来了，大家快来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jerryoq1  
+##### 2092#       发表于 2022-12-1 13:53
+
+管人和驹木估计还有点戏份 我猜半话 上尉和晴子大概1.5话  剩下一话的估计就甲21收尾 估计还塞点继承篇的 再像上一季停在树下放礼炮呗 这样结局还算告一个段落  真有第三季估计也是安排在明年秋番
+
