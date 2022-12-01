@@ -636,3 +636,12 @@ CV：広瀬裕也
 竟然还有动画
 财团B上一个白毛红瞳女主 动画和游戏一起搞得叫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  920619lqy  
+##### 64#       发表于 2022-12-1 08:17
+
+他们能不能趁着我还记得有这么个东西的时候把产品页面先放了让人加一下愿望单？
+
