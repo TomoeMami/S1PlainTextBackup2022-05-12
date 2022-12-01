@@ -1659,3 +1659,64 @@ ANYCOLOR株式会社
 
 当然这不能只怪他本人，使劲卖商品的虹自己也一个水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  woui003woui  
+##### 17774#       发表于 2022-12-1 12:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58704631&amp;ptid=1972669" target="_blank">purdre 发表于 2022-12-1 12:37</a>
+这期间还出了各种联动和周边商品，真是把剩余价值全部压榨光了再走的啊
+
+当然这不能只怪他本人，使劲卖商 ...</blockquote>
+不管怪谁从结论来说粉丝绝对是输麻了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 17775#       发表于 2022-12-1 12:43
+
+你虹粉丝太惨了
+
+*****
+
+####  dybang  
+##### 17776#       发表于 2022-12-1 12:44
+
+ky下这么好的皮不如给大舅哥（
+虽然星的3d好不少但还是看着不顺眼
+不过他这个性格和声线也不违和就是了，不贪钱说跑路就跑路了（
+
+*****
+
+####  purdre  
+##### 17777#       发表于 2022-12-1 12:44
+
+ 本帖最后由 purdre 于 2022-12-1 12:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58704704&amp;ptid=1972669" target="_blank">woui003woui 发表于 2022-12-1 12:41</a>
+
+不管怪谁从结论来说粉丝绝对是输麻了</blockquote>
+就这样推上还一堆人说是粉丝自己把他逼走活该毕业配信都看不到的呢，不能小瞧了日本人的自省能力<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 17778#       发表于 2022-12-1 12:45
+
+奶一口转生neo-porte二期生
+
+*****
+
+####  purdre  
+##### 17779#       发表于 2022-12-1 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58704759&amp;ptid=1972669" target="_blank">dybang 发表于 2022-12-1 12:44</a>
+
+ky下这么好的皮不如给大舅哥（
+
+虽然星的3d好不少但还是看着不顺眼
+
+不过他这个性格和声线也不违和就是了，不 ...</blockquote>
+这SSR皮这SSR亲妈简直打着灯笼都难找，只能说节哀了
+
