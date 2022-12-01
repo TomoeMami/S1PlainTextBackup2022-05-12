@@ -15029,3 +15029,25 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 困难打到第五章开头
 这风味我太喜欢了
 
+
+
+*****
+
+####  urvark  
+##### 2793#       发表于 2022-12-1 09:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58699760&amp;ptid=2098044" target="_blank">A1LI 发表于 2022-12-1 01:01</a>
+
+其实也就大概两句话……你随便网上搜下视频就行了。</blockquote>
+好，错过自己体验的机会实在有点可惜，不过为了这点剧情从头再玩一次也太奢侈了，我还是去网上搜搜视频吧
+
+*****
+
+####  urvark  
+##### 2794#       发表于 2022-12-1 09:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58700500&amp;ptid=2098044" target="_blank">M1NG 发表于 2022-12-1 04:22</a>
+
+没有剧情其实，就嘉隆两句话说原来是这个ta吗和ta到底是谁啊。还有两句描写了下外貌，没立绘也没 ...</blockquote>
+主要是我看前面不少人说这游戏除了开头村子房间里那个宝箱之外，啥东西错过了都可以补，就想着是不是这段剧情后面还能时光倒流再过一次
+
