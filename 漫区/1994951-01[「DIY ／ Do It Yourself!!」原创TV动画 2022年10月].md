@@ -6793,3 +6793,68 @@ self还搁这儿楔钉子呢，媳妇都快要给人睡了（排球人并感）<
 
 终于要来布丁回了吗
 
+
+
+*****
+
+####  千恋万花  
+##### 519#       发表于 2022-12-1 11:06
+
+／
+
+&amp;#x1F4E2;Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐ Blu-ray
+
+店舗別特典 描きおろしイラスト公開！！
+
+＼
+
+まずは、ゲーマーズ！
+
+全巻購入特典：描き下ろしB2タペストリー＆描き下ろしアクリルスタンド
+
+ご予約はコチラ！
+
+▶[https://gamers.co.jp/pn/pd/10624361/](https://gamers.co.jp/pn/pd/10624361/)
+<img src="https://p.sda1.dev/8/898a938e695f6bdd44a810e27432a9eb/diy_anime-1598150223121223681-img1.jpg" referrerpolicy="no-referrer">
+
+続いて、とらのあな！
+
+全巻購入特典：描き下ろしB2タペストリー
+
+1巻とらのあな限定版：オリジナルアクリルジオラマ
+
+ご予約はコチラ！
+
+▶[https://ecs.toranoana.jp/tora/ec/item/210006643255](https://ecs.toranoana.jp/tora/ec/item/210006643255)
+<img src="https://p.sda1.dev/8/fd6d327a8a56f4c34a49c1014295a0b0/diy_anime-1598150456664285184-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/bdacc4a60586320c46a3ea25cb840e7a/diy_anime-1598150456664285184-img2.jpg" referrerpolicy="no-referrer">
+
+そして、ソフマップ・アニメガ！
+
+全巻購入特典：描き下ろしフルグラフィックTシャツ(Lサイズ)
+
+ご予約はコチラ！
+
+▶[https://a.sofmap.com/product_detail.aspx?sku=23847688](https://a.sofmap.com/product_detail.aspx?sku=23847688)
+<img src="https://p.sda1.dev/8/fcd84f46e1332987e5e818a7779e8e65/diy_anime-1598150737124818944-img1.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 520#         楼主| 发表于 2022-12-1 11:07
+
+／
+
+Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐ Blu-ray
+
+店舗別描きおろしイラスト画像公開！
+
+＼
+
+詳細はコチラ
+[https://diy-anime.com/bd-cd/tokuten.php](https://diy-anime.com/bd-cd/tokuten.php)
+<img src="https://p.sda1.dev/8/0d4b9a7f4a8005c7975549025e0dabf9/20221201_110549.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/1809240eb0f35fb73c20ee366e9f90b6/20221201_110553.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2809047136ac6d33ee719a7577c36150/20221201_110559.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/38733e91b75f3a32ce5d77d5d662fb88/20221201_110625.jpg" referrerpolicy="no-referrer">
+
