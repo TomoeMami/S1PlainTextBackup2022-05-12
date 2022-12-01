@@ -15194,3 +15194,12 @@ boss机制是每次消失出现都一定会出现在玩家视野里，然后小�
 
 这KEIZO是不是有颗做黄油的心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  double8  
+##### 2808#       发表于 2022-12-1 21:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">六章到了空岛是不是就刷不了雪山的怪了，我还奇怪为啥打完两个雪怪BOSS后去温泉路上赛好多怪还基本没宝箱，现在看是给你一口气刷够素材不用回头的机会（我也正好刷够雪山素材）
+
