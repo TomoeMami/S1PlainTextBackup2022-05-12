@@ -239,3 +239,17 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 
 ----发送自 [Sony H8296,Android 10](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  古代人皮克  
+##### 130#       发表于 2022-12-1 23:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58713015&amp;ptid=1951151" target="_blank">mirrorside 发表于 2022-12-1 22:04</a>
+
+我设置一打开光追就闪退，有人也这样吗？
+
+—— 来自 samsung SM-G9860, Android 12上的 S1Next-鹅版 v2.5. ...</blockquote>
+光追现在有bug
+

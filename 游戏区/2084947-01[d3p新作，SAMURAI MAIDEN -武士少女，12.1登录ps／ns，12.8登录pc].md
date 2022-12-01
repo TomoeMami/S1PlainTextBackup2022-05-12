@@ -387,3 +387,12 @@ se你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/218.p
 这僵硬、拖泥带水的动作，ps4版这漫长的加载，而且ps4版预购和豪华版给的那堆东西下载了却找不到在哪用实数 ...</blockquote>
 不要为难这家开发商，你看看子弹少女系列，他们不是tamsoft，没多少act经验，所以一看开发商我就知道要雷<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sanada  
+##### 117#       发表于 2022-12-1 23:15
+
+子弹少女至少能用的人多一点，还有调教模式……
+

@@ -170,3 +170,16 @@ Linux桌面模式商城有个Usermode FTP, 我都是FTP传的
 
 用的转运中国G胖今天发货了，然后我转运中国填入库发现几种转运方式都不支持我所在的地址只能香港自提，这什么坑爹玩意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  maninhole  
+##### 1949#       发表于 2022-12-1 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58713555&amp;ptid=2015700" target="_blank">妄想中毒 发表于 2022-12-1 22:50</a>
+用的转运中国G胖今天发货了，然后我转运中国填入库发现几种转运方式都不支持我所在的地址只能香港自提，这 ...</blockquote>
+先问问客服，不行……就只能再转运一次了
+
+—— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
