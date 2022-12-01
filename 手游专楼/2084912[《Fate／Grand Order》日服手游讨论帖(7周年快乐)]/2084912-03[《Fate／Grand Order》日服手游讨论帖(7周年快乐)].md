@@ -7939,3 +7939,96 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 那么问题来了，奥伯龙要抽2宝吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">课佬你还要问  5宝啊
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3726#       发表于 2022-12-2 01:55
+
+ 本帖最后由 Jamaisvu 于 2022-12-2 02:02 编辑 
+
+凹了半天，终于...给克姐喂了个圣杯把奥伯龙3T了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（早知道之前up时多抽几个...）
+
+稍微记录一下：
+
+1.排热大公战，看到忠心大狗狗，第一反应就是用他敬爱的女王殿下亲手折磨他<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+...然后打了近八十回合，互相折磨，互相体谅<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+前期五气槽时恐惧buff和暴击出的很勤，需要SL；后期二气槽时因为放大要占用攻击次数反而好打不少（也可能是攻击buff没了），而且宝具连携正好可以放在对面的大招后面，节奏很舒服<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/02/010931xcwmb3rly3ggsggk.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221201_224911_com.aniplex.fategrandorder.jpg</strong> (353.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 01:09 上传
+
+2.冬之女王战，坏女人当然要用金钻头的恶特攻。之前抽武藏的时候终于抽齐了满破黑圣杯，打3T有底气了。
+
+不过我的嘲讽礼装只有万圣马修那个嘲讽+60防御的，拐也不全，换人打法比较吃力...
+
+其实后排还有个奥伯龙，因为司马懿没送掉就没上来...伤害不够于是令咒开司马懿宝具然后叠OC秒了。
+
+（司马懿宝具也能OC+1...感觉排热大公战用莱梅C也不错？）
+
+整体来说不难（有五宝金钻头和满破黑杯的话），凹点在于打手不能被摩根平A清BUFF。
+
+<img src="https://img.saraba1st.com/forum/202212/02/010932luseoaq9u66z8o4b.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221201_234238_com.aniplex.fategrandorder.jpg</strong> (515.96 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 01:09 上传
+
+3.奈落之虫战，凹了半天，最后喂了个圣杯过了。
+
+小知识：歌德是德国人，奥伯龙是龙。
+
+本来要用金钻头打恶特攻，然后看攻略视频发现克琳希德有混沌与龙双特攻，直接把蛾子当自家老公揍（误）。
+
+难点在于锁助战，好在马修是初始形态能加20NP，要是外骨骼那身就更恶心了。
+
+打法：马修给克姐20NP，然后和最后的太岁星君换一下（弓南丁也不错，需要提供战续和解除耐性...）。
+
+（换上来的辅助不能是法骑杀，因为需要被奥伯龙快速打死...另外礼装最好带无慈悲之人或卡姆兰之战补打手NP）
+
+然后C呆技能全交，克姐技能全交，嘲讽给换上来的辅助，C呆宝具+克姐宝具+克姐蓝卡（没有蓝卡要重开，否则NP不够）。没破血条可以开换人服1技能（或者喂圣杯...）。
+
+破血条后，奥伯龙对着嘲讽角色一通输出送下场，换上来新的辅助，最好是有攻击加成和NP充能的，比如花嫁尼禄，司马懿（不推荐，蛾子的宝具可能送不掉），梅莉...etc。
+
+我因为SL的时候发现奥伯龙第三条血有无敌贯通，就用的兰陵王，技能全开也能保证自己下回合被抬走<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">。
+
+第二血条破掉后，奥伯龙会获得无敌贯通和满充能，要确保换上来的辅助顺利下场。
+
+顺便一提，我一开始以为太岁的弱体无效是抵消睡眠的，结果发现攻击奥伯龙会受到debuff，直接用掉了，逃不过昏睡红茶（悲）
+
+解决方法是给克姐蓝卡打一个八叶镜的纹章使得无法行动弱体无效。或者更简单，等蛾子放完宝具让他手贱把克姐打醒，反正身上挂着战续也不怕死<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+最后BUFF全开收工<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+（好像有梅莉和司马懿的话甚至不用带蛾子，可惜我没有梅莉）
+
+<img src="https://img.saraba1st.com/forum/202212/02/010933f0nmjhpm3n10bswc.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221202_010655_com.aniplex.fategrandorder.jpg</strong> (392.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 01:09 上传
+
+总结：
+
+茶壶本的打法越来越趋向唯一解，而且配置要求高，只能说不是正常人容易打的...
+
+摩根和奥伯龙平A有解除强化，没法持久战，只能用高配打手速战速决。
+
+希望以后能出现五星嘲讽拐，或者可以即死我方单位的打手（吞噬者穆坦努斯是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）。
+
+这应该是完结前最后的回忆本了。假如2.7能撑到出回忆本的那一天，希望少锁几个助战...
+
+over
+

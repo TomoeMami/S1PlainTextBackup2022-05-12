@@ -422,3 +422,23 @@ se你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/218.p
 
 大后期解锁蚊子腿主题，99%都是小游戏是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  swordofsoul1  
+##### 120#       发表于 2022-12-2 01:58
+
+这家最大的优点是3d建模对人设的完美还原（甚至还优于人设）
+
+动作系统一团糟，游戏内容可有可无，贴贴内容还行吧，能吃，就是某人声线就这么一个总串戏到隔壁黎轨学妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  布拉德莱恩  
+##### 121#       发表于 2022-12-2 05:07
+
+这头发的柔顺度惊了，印象里JRPG妹子的头发都是梆硬的根本不存在重力<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

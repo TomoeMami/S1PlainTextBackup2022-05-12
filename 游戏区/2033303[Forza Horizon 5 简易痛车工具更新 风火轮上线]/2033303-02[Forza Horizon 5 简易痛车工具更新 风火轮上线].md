@@ -20,3 +20,18 @@
 
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  天神十三煞  
+##### 2502#         楼主| 发表于 2022-12-2 05:34
+
+PG在搞什么飞机
+
+进游戏连接就让我windows的网络连接掉线 
+
+是的你没看错 不是游戏掉线
+
+是尼玛本地右下角直接失连
+
