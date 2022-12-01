@@ -364,3 +364,14 @@ se你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/218.p
    录播都在这里，因为B站自动录像只有7个小时，录不全 ...</blockquote>
 多谢去看看
 
+
+
+*****
+
+####  iriyano  
+##### 115#       发表于 2022-12-1 20:53
+
+普通版224
+豪华版280
+在日厂定价里还算客气的？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
