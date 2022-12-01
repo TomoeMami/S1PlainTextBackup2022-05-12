@@ -7891,3 +7891,12 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 我还以为打三大灾厄呢。还没进茶壶本，不过摩根和奥伯龙都在金钻头特攻范围内，自己拐齐全和发牌好的话，难度应该不会太难吧。不过我就不打了，这次两个都锁助战，没有奥伯龙打个屁。
 
+
+
+*****
+
+####  rooarr  
+##### 3722#       发表于 2022-12-1 18:33
+
+那么问题来了，奥伯龙要抽2宝吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
