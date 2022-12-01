@@ -2984,3 +2984,12 @@ sc嘛，我意思是读sc也是聊天，聊天时间也省了。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还得是播日出好
 
+
+
+*****
+
+####  holoan  
+##### 3285#         楼主| 发表于 2022-12-1 16:54
+
+原来年末一起唱歌，难怪最近老跟fbk联动，时不时就提夸，昨天还夸了风真的live
+

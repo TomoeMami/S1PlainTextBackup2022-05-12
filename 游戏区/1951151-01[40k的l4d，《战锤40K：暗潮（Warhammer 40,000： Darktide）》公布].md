@@ -165,3 +165,23 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 
 <img src="https://img.saraba1st.com/forum/202212/01/155640stt1zcg5vtcsz75z.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  back57992  
+##### 124#       发表于 2022-12-1 16:51
+
+优化真是差的离谱。。鼠疫2明明还不错。
+
+*****
+
+####  eblis2  
+##### 125#       发表于 2022-12-1 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58707810&amp;ptid=1951151" target="_blank">415452356 发表于 2022-12-1 15:56</a>
+这要是放在国内的MMO或者手游上线版本出这种事我不敢想</blockquote>
+？这种事还少了
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
