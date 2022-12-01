@@ -17,3 +17,14 @@
 
 这次新衣服真的好丑，活动卡面也好难看。。。
 
+
+
+*****
+
+####  moonmagian  
+##### 7034#       发表于 2022-12-1 09:40
+
+毕竟是子供向，虽然不好看但和曲子搭配起来还是挺可爱
+
+—— 来自 Sony XQ-BT52, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
