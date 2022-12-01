@@ -7900,3 +7900,20 @@ HG佩妮洛佩<img src="https://static.saraba1st.com/image/smiley/face2017/067.p
 
 那么问题来了，奥伯龙要抽2宝吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 3723#       发表于 2022-12-1 19:48
+
+ 本帖最后由 eilot 于 2022-12-1 19:51 编辑 
+
+等到16号才能抽奥伯隆
+
+即是这两星期都是没事发生，只得回忆关，月底就2.7
+
+对了，还多了一个崔斯坦的幕间
+
+顺便给剑兰有新的幕间/强化也好吧...
+
