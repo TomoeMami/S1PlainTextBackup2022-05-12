@@ -15609,3 +15609,15 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 加时杯到新章才可以打
 终章打的是铁处女
 
+
+
+*****
+
+####  真实之影  
+##### 2845#       发表于 2022-12-2 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58725341&amp;ptid=2098044" target="_blank">janet_ddr 发表于 2022-12-2 16:23</a>
+
+我是最终BOSS前去打的，正好打完6位神拿到宝石换回心天平，然后发现没法拿到弑神剑，折腾了一整圈。最后 ...</blockquote>
+所以进了终章还能回去？
+

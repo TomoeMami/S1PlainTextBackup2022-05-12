@@ -2108,3 +2108,12 @@ https://www.youtube.com/watch?v=lbmE9AwMJ-s
 TVアニメ「绊のアリル」PV第1弾／2023年放送开始！</blockquote>
 <img src="http://tva1.sinaimg.cn/large/732205bcgy1h8pk1kdhjxj20ih072dhy.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  心垂万刃  
+##### 17819#       发表于 2022-12-2 17:12
+
+什么管人版偶像荣耀<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
