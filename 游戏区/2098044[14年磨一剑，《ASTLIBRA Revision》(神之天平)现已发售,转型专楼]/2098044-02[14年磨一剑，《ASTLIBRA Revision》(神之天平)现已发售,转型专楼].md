@@ -15546,3 +15546,17 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 正好截了图</blockquote>
 翻了下エルフの王 エルフの森这个词就弓箭手相关出现过 看来还真是有精灵 但是幻想生物不是魔物就是神 大抵就是一群长的像エルフ群居在一起的精灵 不是真是个生物种族
 
+
+
+*****
+
+####  haze.l  
+##### 2840#       发表于 2022-12-2 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58651795&amp;ptid=2098044" target="_blank">yueyut 发表于 2022-11-27 22:26</a>
+
+全通以后来讨论几个剧情问题：
+
+1. 我在第四章蛇神关，清楚的记得神父+修女+红毛并称三英雄；然后到了第五 ...</blockquote>
+读档看了下第六章的路人台词，原文：城の宰相を見たよ。あの人やり手らしいけど <strong>見た目が怖い</strong>よなぁ<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">翻译问题
+
