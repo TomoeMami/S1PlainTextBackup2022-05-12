@@ -59,3 +59,17 @@ More details on r/Edgerunners soon 👉 [https://reddit.com/r/Edgerunners/](http
 
 <img src="https://img.saraba1st.com/forum/202212/02/114457b3hzm35t35rrru5y.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  洛热赖  
+##### 3173#       发表于 2022-12-2 13:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58690511&amp;ptid=2069884" target="_blank">碳酸锂缓释片 发表于 2022-11-30 13:50</a>
+
+北京时间 12 月 1 日 16 点，今石将在 Reddit 的 Edgerunners 板块在线答疑。
+
+【お知らせ】</blockquote>
+[https://www.reddit.com/r/Edgerun ... _anything/?sort=top](https://www.reddit.com/r/Edgerunners/comments/z9hre7/we_made_cyberpunk_edgerunners_ask_us_anything/?sort=top)
+
