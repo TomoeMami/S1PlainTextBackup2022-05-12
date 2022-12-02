@@ -15621,3 +15621,15 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 我是最终BOSS前去打的，正好打完6位神拿到宝石换回心天平，然后发现没法拿到弑神剑，折腾了一整圈。最后 ...</blockquote>
 所以进了终章还能回去？
 
+
+
+*****
+
+####  adw667  
+##### 2846#       发表于 2022-12-2 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58726191&amp;ptid=2098044" target="_blank">真实之影 发表于 2022-12-2 17:14</a>
+
+所以进了终章还能回去？</blockquote>
+新章在终章之后<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
