@@ -15435,3 +15435,15 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 宰相最后说他有个出生就分离的弟弟，说不定还真是弓手.</blockquote>
 宰相弟弟一般都猜是主角 都长着女人脸
 
+
+
+*****
+
+####  hello0607  
+##### 2831#       发表于 2022-12-2 12:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58721321&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-12-2 12:20</a>
+
+剧本里有提到精灵族，可能精灵族就是elysium的后裔，弓手和宰相都来自这个种族，弓手的弓也是精灵族的，这 ...</blockquote>
+日本的精灵和咱们概念不一样 精灵其实就是神 你凭依出那些就是精灵 弱的叫精灵 强的叫神
+
