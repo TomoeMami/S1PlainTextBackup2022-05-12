@@ -2036,3 +2036,20 @@ Vtuber背锅，商品不给退货，热度又炒起来
 
 频道12月7日隐藏，谷子也要卖到12月7日<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就当毕业谷再赚一回吧
 
+
+
+*****
+
+####  psnsic8nag  
+##### 17814#       发表于 2022-12-2 12:24
+
+ 本帖最后由 psnsic8nag 于 2022-12-2 12:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58720956&amp;ptid=1972669" target="_blank">winda 发表于 2022-12-2 11:53</a>
+
+追悼会搞接力不在一起播，而且劳伦还是和观众同时知道axia毕业，要是放养的19组就算了，你运营强推 ...</blockquote>
+上市后吃相越来越难看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+劳伦犯了两次大错也不好工商，彩虹想冷冻干脆放人走
+
+别为了演同期情搞的大家尴尬
+
