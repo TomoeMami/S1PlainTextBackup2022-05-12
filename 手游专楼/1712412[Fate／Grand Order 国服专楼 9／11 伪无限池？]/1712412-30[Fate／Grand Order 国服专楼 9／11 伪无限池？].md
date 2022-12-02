@@ -1633,3 +1633,17 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 谢谢啦
 
+
+
+*****
+
+####  麻花疼  
+##### 43787#       发表于 2022-12-2 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58725821&amp;ptid=1712412" target="_blank">lightingstar 发表于 2022-12-2 16:53</a>
+
+大佬加你啦，拉特莉就是我
+
+谢谢啦</blockquote>
+没看到申请啊。。你重新申请下试试
+
