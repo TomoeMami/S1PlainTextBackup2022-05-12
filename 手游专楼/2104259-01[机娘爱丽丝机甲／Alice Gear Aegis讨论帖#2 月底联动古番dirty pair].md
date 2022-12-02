@@ -1107,3 +1107,29 @@ GEAR齐了，也打封锁试了下
 
 真正的厨：当了公司老板后做游戏开联动安利玩家去看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  LEOKO~  
+##### 101#       发表于 2022-12-2 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58702846&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2022-12-1 10:43</a>
+
+GEAR齐了，也打封锁试了下
+
+圭：爆发在新世代里算比较强的级别。RPG实弹高速，蓄力比较渣没什么用；近战目 ...</blockquote>
+百合的腿不算普通啊，这么高输出的导弹
+
+*****
+
+####  LEOKO~  
+##### 102#       发表于 2022-12-2 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58702846&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2022-12-1 10:43</a>
+
+GEAR齐了，也打封锁试了下
+
+圭：爆发在新世代里算比较强的级别。RPG实弹高速，蓄力比较渣没什么用；近战目 ...</blockquote>
+百合的腿不算普通啊，这么高输出的导弹
+
