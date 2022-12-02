@@ -107,3 +107,19 @@
 你游也挺色的啊 福利也更好 为啥完全干不过Nikke</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该是宣发力度不行吧
 
+
+
+*****
+
+####  羽出  
+##### 163#       发表于 2022-12-2 17:42
+
+这次的UR辅助卡是真的…真的大，可惜对角色需求不大就不抽了，等歪
+
+*****
+
+####  MEKA  
+##### 164#       发表于 2022-12-2 17:46
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
