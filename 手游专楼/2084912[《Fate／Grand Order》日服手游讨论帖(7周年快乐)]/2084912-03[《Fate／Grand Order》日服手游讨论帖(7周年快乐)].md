@@ -8050,3 +8050,12 @@ over
 
 飞嫂，我心中永远的痛。第一次up时才1抽到3宝夏露露就满了，第二次up绑定西嫂，3年之前就已经是100级五宝了，没敢下手（灵基保管库里躺着的2只女帝和水武藏至今让我不敢再顶着满宝5星抽4星了）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能老老实实交了2个杯子。
 
+
+
+*****
+
+####  khxooo  
+##### 3729#       发表于 2022-12-2 18:05
+
+抄了个摩根3t的作业，奥伯龙就真的无能为力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
