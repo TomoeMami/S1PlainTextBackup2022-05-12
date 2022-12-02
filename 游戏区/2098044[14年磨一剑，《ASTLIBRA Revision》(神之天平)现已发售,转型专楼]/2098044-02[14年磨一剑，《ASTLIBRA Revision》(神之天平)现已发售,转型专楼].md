@@ -15269,3 +15269,12 @@ free版结局和正式版终章一样么 就是变成了融合世界？ 感觉�
 
 FREE版铁娘子BR打自己换成梦神飞天版（另外两个版本没有），结局一样，掉落 部分差别 ，具体WIKI有资料
 
+
+
+*****
+
+####  adw667  
+##### 2816#       发表于 2022-12-2 08:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">全成就了，用STEAM十几年来第一次正儿八经地去打一款游戏的全成就
+
