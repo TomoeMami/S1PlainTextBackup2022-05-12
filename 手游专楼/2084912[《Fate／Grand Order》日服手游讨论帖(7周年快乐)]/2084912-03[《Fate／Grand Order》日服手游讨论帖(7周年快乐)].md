@@ -8041,3 +8041,12 @@ over
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两发十连获得一堆绿方块 GG
 
+
+
+*****
+
+####  xiongxingyu  
+##### 3728#       发表于 2022-12-2 13:52
+
+飞嫂，我心中永远的痛。第一次up时才1抽到3宝夏露露就满了，第二次up绑定西嫂，3年之前就已经是100级五宝了，没敢下手（灵基保管库里躺着的2只女帝和水武藏至今让我不敢再顶着满宝5星抽4星了）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能老老实实交了2个杯子。
+
