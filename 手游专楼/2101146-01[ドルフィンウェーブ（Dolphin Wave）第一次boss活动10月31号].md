@@ -150,3 +150,13 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有日文怎么能比多语言火？
 
+
+
+*****
+
+####  startea15  
+##### 168#       发表于 2022-12-2 22:54
+
+我觉得这游戏不火的原因也在于抽卡太粪了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+哪来每次都要抽到井的石油王，遭不住
+
