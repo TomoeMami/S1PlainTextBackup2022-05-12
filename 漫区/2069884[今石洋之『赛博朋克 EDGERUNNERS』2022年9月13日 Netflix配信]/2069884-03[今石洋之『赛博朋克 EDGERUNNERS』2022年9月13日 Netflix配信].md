@@ -73,3 +73,16 @@ More details on r/Edgerunners soon 👉 [https://reddit.com/r/Edgerunners/](http
 【お知らせ】</blockquote>
 [https://www.reddit.com/r/Edgerun ... _anything/?sort=top](https://www.reddit.com/r/Edgerunners/comments/z9hre7/we_made_cyberpunk_edgerunners_ask_us_anything/?sort=top)
 
+
+
+*****
+
+####  ギナ  
+##### 3174#       发表于 2022-12-2 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=57872998&amp;ptid=2069884" target="_blank">sosgame67 发表于 2022-10-12 12:05</a>
+明显是把电子游戏数值代入了呗，v根本没有官方公式卡而且电子游戏数值和trpg数值肯定不能直接转换 ...</blockquote>
+其实按照烧塔线来说，剧情里V是拖着半死不活的低改造躯体单人杀穿荒坂塔，路上还顺手干掉了重锤，这神棍程度确实得有三项20才说得通<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
