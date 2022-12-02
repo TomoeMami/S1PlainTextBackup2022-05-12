@@ -15673,3 +15673,17 @@ EX关卡 女神ベアトリーチェ
 途中脱出        可</blockquote>
 六章中盘到西方尽头后，那边门口左上角
 
+
+
+*****
+
+####  装甲兔  
+##### 2849#       发表于 2022-12-2 21:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58726786&amp;ptid=2098044" target="_blank">yla 发表于 2022-12-2 17:54</a>
+
+六章中盘到西方尽头后，那边门口左上角</blockquote>
+谢谢，问完了我就自己找到了……
+
+求推荐后期好用的天平配方
+
