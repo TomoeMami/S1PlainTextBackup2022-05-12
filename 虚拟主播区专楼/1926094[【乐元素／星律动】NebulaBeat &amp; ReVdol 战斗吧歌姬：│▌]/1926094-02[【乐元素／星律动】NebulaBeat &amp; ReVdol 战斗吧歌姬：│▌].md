@@ -11863,3 +11863,15 @@ bgm：双喜
 叶子形象小漏。这玩意3d会动吗，还是说只有立绘有的东西
 <img src="https://p.sda1.dev/8/532367c372efb496a5436ff5a512f8cf/CMP_20221202193852161.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ladiesman802  
+##### 2742#       发表于 2022-12-2 23:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58728220&amp;ptid=1926094" target="_blank">天青月白 发表于 2022-12-2 19:36</a>
+
+鸭现在就在播，没影响吧</blockquote>
+没有弹幕，观感差一点。虽然下面的弹幕列表有
+
