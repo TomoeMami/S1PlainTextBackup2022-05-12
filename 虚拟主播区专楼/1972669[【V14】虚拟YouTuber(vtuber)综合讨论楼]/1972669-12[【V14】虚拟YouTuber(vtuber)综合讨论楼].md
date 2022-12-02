@@ -2073,3 +2073,38 @@ holo走joysound
 <img src="https://p.sda1.dev/8/8bd1a715902682e68abc1b61a6f059cc/IMG_20221202_144557_060.jpg" referrerpolicy="no-referrer">
 玩挺大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  free  
+##### 17817#       发表于 2022-12-2 16:32
+
+[https://www.youtube.com/watch?v=lbmE9AwMJ-s](https://www.youtube.com/watch?v=lbmE9AwMJ-s)
+
+TVアニメ「绊のアリル」PV第1弾／2023年放送开始！
+
+这五个和绊爱是啥关系？<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+怎么感觉要搞成偶像片了
+
+<img src="https://img.saraba1st.com/forum/202212/02/163212e77v8omqowrnqm1s.jpg" referrerpolicy="no-referrer">
+
+<strong>？.jpg</strong> (656.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 16:32 上传
+
+*****
+
+####  喜闻乐见  
+##### 17818#       发表于 2022-12-2 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58725499&amp;ptid=1972669" target="_blank">free 发表于 2022-12-2 16:32</a>
+
+https://www.youtube.com/watch?v=lbmE9AwMJ-s
+
+TVアニメ「绊のアリル」PV第1弾／2023年放送开始！</blockquote>
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h8pk1kdhjxj20ih072dhy.jpg" referrerpolicy="no-referrer">
+
