@@ -15483,3 +15483,46 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 
 不过说不定大贤者当年也派人或者亲自参与过他们的活动（所以傲娇能记得起老师提过弓箭手的名字）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  M1NG  
+##### 2835#       发表于 2022-12-2 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58721672&amp;ptid=2098044" target="_blank">hello0607 发表于 2022-12-2 12:46</a>
+有官方地图的 这个世界是真的小</blockquote>
+就是这地图搞得大家在想到底为什么边境到天平村竟然需要8年的时间<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  haze.l  
+##### 2836#       发表于 2022-12-2 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58721965&amp;ptid=2098044" target="_blank">hello0607 发表于 2022-12-2 13:08</a>
+
+汉字的精灵就是指fairy 长耳朵玩弓的叫エルフ 这游戏应该是没エルフ这个种族  ...</blockquote>
+正好截了图
+
+<img src="https://img.saraba1st.com/forum/202212/02/143319gpwiauam25m7fp2g.jpg" referrerpolicy="no-referrer">
+
+<strong>20221201103437_1.jpg</strong> (161.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 14:33 上传
+
+*****
+
+####  永远的访客  
+##### 2837#       发表于 2022-12-2 14:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58723462&amp;ptid=2098044" target="_blank">M1NG 发表于 2022-12-2 14:33</a>
+
+就是这地图搞得大家在想到底为什么边境到天平村竟然需要8年的时间
+
+论坛助手,iPhone ...</blockquote>
+肯定是大闲者安排好的，让他们迷路7年半还以为一直在走正路<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
