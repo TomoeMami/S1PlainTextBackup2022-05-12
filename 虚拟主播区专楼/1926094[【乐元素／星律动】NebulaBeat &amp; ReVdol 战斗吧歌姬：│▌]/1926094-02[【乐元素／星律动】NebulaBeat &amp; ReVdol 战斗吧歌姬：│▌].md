@@ -11844,3 +11844,22 @@ bgm：双喜
 
 3号不知道还能不能直播
 
+
+
+*****
+
+####  天青月白  
+##### 2740#       发表于 2022-12-2 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58715136&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-12-2 00:44</a>
+3号不知道还能不能直播</blockquote>
+鸭现在就在播，没影响吧
+
+*****
+
+####  天青月白  
+##### 2741#       发表于 2022-12-2 19:39
+
+叶子形象小漏。这玩意3d会动吗，还是说只有立绘有的东西
+<img src="https://p.sda1.dev/8/532367c372efb496a5436ff5a512f8cf/CMP_20221202193852161.jpg" referrerpolicy="no-referrer">
+
