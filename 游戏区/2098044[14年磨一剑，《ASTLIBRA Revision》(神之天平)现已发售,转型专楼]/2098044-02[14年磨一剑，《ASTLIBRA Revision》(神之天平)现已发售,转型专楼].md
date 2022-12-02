@@ -15399,3 +15399,12 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 宰相最后说他有个出生就分离的弟弟，说不定还真是弓手.</blockquote>
 剧本里有提到精灵族，可能精灵族就是elysium的后裔，弓手和宰相都来自这个种族，弓手的弓也是精灵族的，这样也说得通。结合进不去的城堡，这里我估计本来可以有一条支线剧本，但是作者后来不填坑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  soranoguiji  
+##### 2828#       发表于 2022-12-2 12:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你们一说我想起来新章里提到盖乌在精灵之森还犯过禁忌，是弓箭手救了他，结果后面完全没提发生了啥，感觉盖乌他们勇者小队出个新游戏有搞头啊
+
