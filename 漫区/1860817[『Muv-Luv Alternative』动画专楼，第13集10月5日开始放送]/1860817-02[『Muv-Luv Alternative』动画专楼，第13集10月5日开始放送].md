@@ -1354,3 +1354,17 @@ a01全员00单元候补，按后续设定00单元都成一个种族了
 
 那么人类如果不上钩，下一个饵应该还是重头脑那边选
 
+
+
+*****
+
+####  鱼雷鲨  
+##### 2113#       发表于 2022-12-2 11:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58718575&amp;ptid=1860817" target="_blank">Dai-Dai-Dai-Dai 发表于 2022-12-2 09:32</a>
+
+召唤附带回档，不会有G元素不够的问题。
+
+看了下游戏里夕呼的那段，也是语焉不详，能得出的信息有两点：</blockquote>
+其他人真不一定能拉孝之和慎二过了
+

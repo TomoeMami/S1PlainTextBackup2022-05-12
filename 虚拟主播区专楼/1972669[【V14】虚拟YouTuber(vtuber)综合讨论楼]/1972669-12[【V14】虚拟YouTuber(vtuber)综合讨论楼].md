@@ -1984,3 +1984,21 @@ Fes缺席不给退票 ，龙胆尊歌谣祭被运营拿去收费
 
 这事本质不就是被粉恶心了之后不爽辞，顺手再把粉丝恶心回去呗，狗咬狗还是挺喜闻乐见的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  psnsic8nag  
+##### 17808#       发表于 2022-12-2 11:21
+
+Vtuber背锅，商品不给退货，热度又炒起来
+
+田角陆有点东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  格林卡罗尔  
+##### 17809#       发表于 2022-12-2 11:29
+
+虹有毕业纪念谷的说法，这锅分给谁还真不好说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
