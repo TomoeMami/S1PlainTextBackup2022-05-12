@@ -15526,3 +15526,12 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 论坛助手,iPhone ...</blockquote>
 肯定是大闲者安排好的，让他们迷路7年半还以为一直在走正路<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  永远的访客  
+##### 2838#       发表于 2022-12-2 14:42
+
+另外，这图完全没提魔王城毁灭后出现新魔王的东方大陆，我可以怀疑说画图的人地理水平不行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
