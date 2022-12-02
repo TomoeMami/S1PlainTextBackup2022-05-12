@@ -22,3 +22,40 @@ More details on r/Edgerunners soon 👉 [https://reddit.com/r/Edgerunners/](http
 <img src="http://tvax1.sinaimg.cn/large/006ajUXPly1h8n3u4atxej31hc0u01kx.jpg" referrerpolicy="no-referrer">
 [https://twitter.com/edgerunners/status/1597606495205888004](https://twitter.com/edgerunners/status/1597606495205888004)
 
+
+
+*****
+
+####  洛热赖  
+##### 3172#       发表于 2022-12-2 11:51
+
+看到份杂志上的情报，找人翻译了下自己再稍微排了下文字，以前在这里爬过楼，现在回报社会
+[https://share.weiyun.com/uCWy5Ywt](https://share.weiyun.com/uCWy5Ywt)
+
+边缘行者2.jpg
+(318.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 11:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/02/114456jeeiqeqzvie7q1t9.jpg" referrerpolicy="no-referrer">
+
+边缘行者3.jpg
+(349.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 11:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/02/114457p27uuwn2rv2z0jvz.jpg" referrerpolicy="no-referrer">
+
+边缘行者4.jpg
+(361.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 11:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/02/114457b3hzm35t35rrru5y.jpg" referrerpolicy="no-referrer">
+
