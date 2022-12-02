@@ -1617,3 +1617,19 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 通过了。</blockquote>
 感谢
 
+
+
+*****
+
+####  lightingstar  
+##### 43786#       发表于 2022-12-2 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58685905&amp;ptid=1712412" target="_blank">麻花疼 发表于 2022-11-30 08:05</a>
+
+练度全999了，衣服也满了，目前最缺的就是圣杯
+
+算是达成入坑小目标了，6年了没弃游没断过登录，也 ...</blockquote>
+大佬加你啦，拉特莉就是我
+
+谢谢啦
+
