@@ -211,3 +211,15 @@ Linux桌面模式商城有个Usermode FTP, 我都是FTP传的
 这个触控板怎么还有惯性的能关吗</blockquote>
 触控板行为最右的齿轮里，把轨迹球模式关了
 
+
+
+*****
+
+####  kalavinka  
+##### 1953#       发表于 2022-12-2 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58725420&amp;ptid=2015700" target="_blank">斯库鲁多 发表于 2022-12-2 16:27</a>
+
+触控板行为最右的齿轮里，把轨迹球模式关了</blockquote>
+感谢
+
