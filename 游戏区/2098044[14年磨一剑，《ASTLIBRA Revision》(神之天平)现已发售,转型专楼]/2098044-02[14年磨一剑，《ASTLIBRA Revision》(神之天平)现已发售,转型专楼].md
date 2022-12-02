@@ -15447,3 +15447,39 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 剧本里有提到精灵族，可能精灵族就是elysium的后裔，弓手和宰相都来自这个种族，弓手的弓也是精灵族的，这 ...</blockquote>
 日本的精灵和咱们概念不一样 精灵其实就是神 你凭依出那些就是精灵 弱的叫精灵 强的叫神
 
+
+
+*****
+
+####  永远的访客  
+##### 2832#       发表于 2022-12-2 13:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58721785&amp;ptid=2098044" target="_blank">hello0607 发表于 2022-12-2 12:54</a>
+
+日本的精灵和咱们概念不一样 精灵其实就是神 你凭依出那些就是精灵 弱的叫精灵 强的叫神 ...</blockquote>
+先不说日本人标准概念上的精灵到底对应elf还是fairy，这游戏一点比较明显的就是给神/神兽设定了一套外星人之类的统一框架，所以我期待这游戏也能来一套elf的起源设定<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hello0607  
+##### 2833#       发表于 2022-12-2 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58721871&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-12-2 13:01</a>
+
+先不说日本人标准概念上的精灵到底对应elf还是fairy，这游戏一点比较明显的就是给神/神兽设定了一套外星 ...</blockquote>
+汉字的精灵就是指fairy 长耳朵玩弓的叫エルフ 这游戏应该是没エルフ这个种族 
+
+*****
+
+####  永远的访客  
+##### 2834#       发表于 2022-12-2 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58721485&amp;ptid=2098044" target="_blank">soranoguiji 发表于 2022-12-2 12:31</a>
+
+你们一说我想起来新章里提到盖乌在精灵之森还犯过禁忌，是弓箭手救了他，结果后面完全没提发生了啥 ...</blockquote>
+已知红毛勾搭上修女时修女是个贵族，神父是队里的圣骑T（信仰啥不记得有说），弓箭手也是输出，
+
+所以这个小队最缺的就是控场法师，靠T当奶妈，修女硬转法师，这波团灭合情合理<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过说不定大贤者当年也派人或者亲自参与过他们的活动（所以傲娇能记得起老师提过弓箭手的名字）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
