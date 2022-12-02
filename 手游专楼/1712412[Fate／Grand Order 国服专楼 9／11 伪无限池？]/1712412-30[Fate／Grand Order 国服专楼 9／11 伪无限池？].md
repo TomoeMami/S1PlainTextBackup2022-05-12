@@ -1647,3 +1647,38 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 谢谢啦</blockquote>
 没看到申请啊。。你重新申请下试试
 
+
+
+*****
+
+####  Humpy  
+##### 43788#       发表于 2022-12-2 20:34
+
+这几天一直在集中隔离，今天终于转居家了。
+
+带去的游戏玩累了，动画和电影看完了后，为了自娱自乐用ipad画了一张略有点涩涩的玛修（所谓饱暖思淫欲……）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+由于已经太习惯用WACOM的数位屏画图了，用ipad画的经验还是太少，这次倒是实验了不少笔刷……结果忘了颜色模式的事，转到电脑上发现图片颜色严重失真，还得慢慢调= =但好像也没完全调正就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这次想画得肉感丰满一点，但似乎画成了轻型坦克，已经在脑内想象到咕哒大喊“你这肥猪……”的景象了……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/02/203343hdd7d3r5d55dgz36.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_0040.jpg</strong> (441.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 20:33 上传
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| namelessashen| + 2|画得好啊，然而现在看到玛修就想到ntr了.|
+
+查看全部评分
+
