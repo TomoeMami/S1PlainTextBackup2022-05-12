@@ -15350,3 +15350,12 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 
 把新章的东京打完了，应该快结束了吧，这游戏真的不应该叫chrono balance吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这即视感太强了
 
+
+
+*****
+
+####  qappip  
+##### 2823#       发表于 2022-12-2 11:57
+
+通关后我突然想起来贝镇一对身份不明男女到底什么来头？我以为新章会有说结果全程就是神秘人到尾。
+

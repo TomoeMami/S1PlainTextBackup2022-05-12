@@ -2011,3 +2011,12 @@ Vtuber背锅，商品不给退货，热度又炒起来
 
 有一种大排档隔壁桌酒醉阿叔们互喷厚黑学的美
 
+
+
+*****
+
+####  winda  
+##### 17811#       发表于 2022-12-2 11:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">追悼会搞接力不在一起播，而且劳伦还是和观众同时知道axia毕业，要是放养的19组就算了，你运营强推的edens咋也变塑料同期情了呢
+
