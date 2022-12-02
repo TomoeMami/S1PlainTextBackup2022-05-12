@@ -153,3 +153,26 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  无意义小号  
+##### 96#       发表于 2022-12-3 01:56
+
+ps5和pc画面差多少啊，本来想换pc玩的，但是ps5上已经玩了快10个小时了
+
+*****
+
+####  真实之影  
+##### 97#       发表于 2022-12-3 02:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58735121&amp;ptid=2091867" target="_blank">ohi 发表于 2022-12-3 01:40</a>
+
+音乐太赞了，环绕音响没白买
+
+美中不足，ps5画质不好而且掉帧太严重了
+
+目前还不熟悉操作，轻点L2刹车 ...</blockquote>
+按油门也行，默认点油门或者刹车都能飘
+

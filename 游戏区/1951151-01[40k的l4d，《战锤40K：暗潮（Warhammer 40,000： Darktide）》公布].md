@@ -271,3 +271,57 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  jcq21121  
+##### 133#       发表于 2022-12-3 02:24
+
+终于更新了，老兵穿盾的bug终于修了。居然还优化了帧数稳了不少令我电脑机魂大悦<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  雷修特  
+##### 134#       发表于 2022-12-3 02:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58732896&amp;ptid=1951151" target="_blank">Eric_方歌阙 发表于 2022-12-2 23:42</a>
+这游戏没有按等级匹配的吗…现在10来级有一套蓝装，打难度2匹配到全是3级4级，打难度3全匹配到6级7级，尽全 ...</blockquote>
+有最低等级，10来级可以去4，5了，打难度2还觉得难受那就是打法有问题了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  搞不好是洗衣粉  
+##### 135#       发表于 2022-12-3 03:07
+
+今晚玩了一晚上，6800xt，2k高画质80-140帧，游戏中没崩过，但是白天露天地图阴影有问题，经常出现花纹，感觉应该是显存占了很大一部分问题
+
+*****
+
+####  415452356  
+##### 136#       发表于 2022-12-3 03:09
+
+  这游戏美术屌但是贴图质量也不超纲，但就是能撑爆显存
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  FLZB  
+##### 137#       发表于 2022-12-3 03:18
+
+现在帧数甚至比1.07还好了，肥鲨的马算是复活了一根脚趾
+
+*****
+
+####  415452356  
+##### 138#       发表于 2022-12-3 03:49
+
+  这不到100mb的体验带来的体验飙升比前阵子加起来接近20G的补丁都给力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
