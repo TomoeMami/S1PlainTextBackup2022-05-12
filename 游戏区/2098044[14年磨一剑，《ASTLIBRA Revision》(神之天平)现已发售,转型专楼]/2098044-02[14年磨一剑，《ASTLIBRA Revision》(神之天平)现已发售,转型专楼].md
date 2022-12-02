@@ -15560,3 +15560,12 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 1. 我在第四章蛇神关，清楚的记得神父+修女+红毛并称三英雄；然后到了第五 ...</blockquote>
 读档看了下第六章的路人台词，原文：城の宰相を見たよ。あの人やり手らしいけど <strong>見た目が怖い</strong>よなぁ<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">翻译问题
 
+
+
+*****
+
+####  soranoguiji  
+##### 2841#       发表于 2022-12-2 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这游戏没用的设定还挺多的，还有没有人记得一开始提过边境有七个
+
