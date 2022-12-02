@@ -15597,3 +15597,15 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 
 这个时点竞技场的所有挑战应该都能打了
 
+
+
+*****
+
+####  Sannapolis  
+##### 2844#       发表于 2022-12-2 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58724799&amp;ptid=2098044" target="_blank">真实之影 发表于 2022-12-2 15:50</a>
+我最后一个加时杯没法打，好像要终章打完才能去？</blockquote>
+加时杯到新章才可以打
+终章打的是铁处女
+
