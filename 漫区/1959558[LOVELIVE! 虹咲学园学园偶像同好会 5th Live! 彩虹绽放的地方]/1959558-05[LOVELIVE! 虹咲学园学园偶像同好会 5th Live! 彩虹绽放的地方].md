@@ -87,3 +87,17 @@
 【【切片中字】别怪p妃不争气 都是秀神太给力-哔哩哔哩】 [https://b23.tv/J2n54DR](https://b23.tv/J2n54DR)
 <img src="https://p.sda1.dev/8/8b4381af18cc0504021bcf075ebc4277/CMP_20221201095415223.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yicihanshu  
+##### 6798#       发表于 2022-12-2 23:32
+
+<img src="https://p.sda1.dev/8/7fc5f6d97ac0fe9dc9be4b4ea025d686/CMP_20221202232513292.jpg" referrerpolicy="no-referrer">
+国际展示场駅の駅名看板（１箇所）を「虹ヶ咲学园前」に期间限定で変更します。
+
+解释了bd一个修改，当时我没理解，觉得没啥意义。tv里，百合海鸥线有虹ヶ咲学园前站（现实为东京ビックサイト站），临海线有虹ヶ咲学园站（现实为国际展示场站），bd却进行修改，百合海鸥线用虹ヶ咲学园，临海线用虹ヶ咲学园前。现在看或许，这是讨论过的结果。
+
+—— 来自 Xiaomi 2201123C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
