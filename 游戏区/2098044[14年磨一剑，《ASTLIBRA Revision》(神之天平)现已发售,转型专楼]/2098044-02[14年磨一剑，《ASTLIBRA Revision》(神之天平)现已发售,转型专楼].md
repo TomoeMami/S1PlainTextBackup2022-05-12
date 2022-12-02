@@ -15569,3 +15569,17 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这游戏没用的设定还挺多的，还有没有人记得一开始提过边境有七个
 
+
+
+*****
+
+####  真实之影  
+##### 2842#       发表于 2022-12-2 15:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58718776&amp;ptid=2098044" target="_blank">janet_ddr 发表于 2022-12-2 09:44</a>
+
+小徽章27个就可以换到啊，不用到新章，不然拿不到弑神剑。
+
+我之前也是差两个盾折腾了好久才明白是漏了这 ...</blockquote>
+我最后一个加时杯没法打，好像要终章打完才能去？
+
