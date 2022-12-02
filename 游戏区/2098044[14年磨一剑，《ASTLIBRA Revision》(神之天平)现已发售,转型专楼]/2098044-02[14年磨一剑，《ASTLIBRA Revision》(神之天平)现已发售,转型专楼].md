@@ -15408,3 +15408,30 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你们一说我想起来新章里提到盖乌在精灵之森还犯过禁忌，是弓箭手救了他，结果后面完全没提发生了啥，感觉盖乌他们勇者小队出个新游戏有搞头啊
 
+
+
+*****
+
+####  hello0607  
+##### 2829#       发表于 2022-12-2 12:46
+
+<img src="https://img.saraba1st.com/forum/202212/02/124529a7i99emb0v9aam46.jpg" referrerpolicy="no-referrer">
+
+<strong>3ed47c_48b7f363d7c747ca867fbc4626c4c4bd_mv2.jpg</strong> (200.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-2 12:45 上传
+
+有官方地图的 这个世界是真的小
+
+*****
+
+####  hello0607  
+##### 2830#       发表于 2022-12-2 12:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58721085&amp;ptid=2098044" target="_blank">Raumanzug 发表于 2022-12-2 12:01</a>
+
+宰相最后说他有个出生就分离的弟弟，说不定还真是弓手.</blockquote>
+宰相弟弟一般都猜是主角 都长着女人脸
+
