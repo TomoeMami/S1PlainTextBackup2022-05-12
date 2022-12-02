@@ -141,3 +141,12 @@
 这游戏l2d确实还行，但是3d活太糙
 而且游玩过程中还是3d占主导，扬短避长了属于是
 
+
+
+*****
+
+####  kulanyee  
+##### 167#       发表于 2022-12-2 21:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只有日文怎么能比多语言火？
+
