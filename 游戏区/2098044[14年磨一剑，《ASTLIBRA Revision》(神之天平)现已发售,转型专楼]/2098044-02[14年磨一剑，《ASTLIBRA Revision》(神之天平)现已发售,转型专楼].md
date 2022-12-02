@@ -15793,3 +15793,17 @@ EX关卡 女神ベアトリーチェ
 印象深刻的是：都带走，还可以给士兵用用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 结果回头你说嫌碍事扔门口了？那你带这俩干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  永远的访客  
+##### 2860#       发表于 2022-12-3 01:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58734579&amp;ptid=2098044" target="_blank">若闲 发表于 2022-12-3 01:05</a>
+
+印象深刻的是：都带走，还可以给士兵用用
+
+结果回头你说嫌碍事扔门口了？那你带这俩干嘛 ...</blockquote>
+我觉得6章的剧情是所有章里最潦草的，前面5章就高潮起伏不断，后面几关更是连续颠覆对游戏整体剧情的预判把剧情做了个非常精彩的收尾，唯独6就是简单粗暴**，莫名其妙无铺垫地登场新boss又退场，还搭配上最恶心的谜题，只有最后还稍微抖出了个小颠覆<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
