@@ -2002,3 +2002,12 @@ Vtuber背锅，商品不给退货，热度又炒起来
 
 虹有毕业纪念谷的说法，这锅分给谁还真不好说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17810#       发表于 2022-12-2 11:31
+
+有一种大排档隔壁桌酒醉阿叔们互喷厚黑学的美
+

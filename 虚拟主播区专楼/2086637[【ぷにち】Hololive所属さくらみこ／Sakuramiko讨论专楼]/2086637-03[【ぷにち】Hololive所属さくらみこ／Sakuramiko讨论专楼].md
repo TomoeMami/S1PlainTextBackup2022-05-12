@@ -3090,3 +3090,12 @@ sc嘛，我意思是读sc也是聊天，聊天时间也省了。
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 3295#         楼主| 发表于 2022-12-2 11:30
+
+柚子请工商不如直接安插角色
+
