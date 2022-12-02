@@ -192,3 +192,22 @@ Linux桌面模式商城有个Usermode FTP, 我都是FTP传的
 
 日本的邮件总算到了 付款了坐等
 
+
+
+*****
+
+####  kalavinka  
+##### 1951#       发表于 2022-12-2 16:24
+
+这个触控板怎么还有惯性的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能关吗
+
+*****
+
+####  斯库鲁多  
+##### 1952#       发表于 2022-12-2 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58725364&amp;ptid=2015700" target="_blank">kalavinka 发表于 2022-12-2 16:24</a>
+
+这个触控板怎么还有惯性的能关吗</blockquote>
+触控板行为最右的齿轮里，把轨迹球模式关了
+
