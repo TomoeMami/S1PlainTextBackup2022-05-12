@@ -140,3 +140,16 @@
 
 （听到“刘德华”时，真的很震惊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">）
 
+
+
+*****
+
+####  ohi  
+##### 95#       发表于 2022-12-3 01:40
+
+音乐太赞了，环绕音响没白买<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+美中不足，ps5画质不好而且掉帧太严重了
+目前还不熟悉操作，轻点L2刹车触发漂移有点延迟，但是刹车踩重了要么速度立即降下去漂不起来，要么一下子转向过度冲出道路<img src="https://static.saraba1st.com/image/smiley/face2017/233.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
