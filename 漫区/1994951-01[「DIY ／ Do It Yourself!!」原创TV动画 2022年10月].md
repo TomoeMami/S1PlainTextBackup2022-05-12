@@ -6932,3 +6932,39 @@ Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐ Blu-ray
 
 这集有点水啊，女主把人都叫过去看她做小屋，不是迷惑行为吗
 
+
+
+*****
+
+####  Piano-Forest  
+##### 525#         楼主| 发表于 2022-12-2 14:13
+
+本日はすてっぷ８で登場した街並みを大公開
+<img src="https://p.sda1.dev/8/1bc0b12d6e67a1fa37f7729442daa38a/20221202_141205.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/5040c4a5bed3bea4bab026212a31db87/20221202_141208.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/82d9b09f7b7a03ba33dd10ddd38f5adc/20221202_141209.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/241aa52427f483de6290841727baf22d/20221202_141210.jpg" referrerpolicy="no-referrer">
+
+すてっぷ９で登場した品々をご紹介
+
+こちらも #スワロ 先生と一緒に作成しました！
+<img src="https://p.sda1.dev/8/75c8b7d3c6bf36b23c757bcf23b946cb/20221202_141214.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/9d7a0147000e1afc87f1d25d954e3f87/20221202_141215.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/f32cf869ae22c758fdee13423791dcab/20221202_141216.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/34685ae35991e585a0b31f9729655325/20221202_141217.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 526#         楼主| 发表于 2022-12-2 14:15
+
+すてっぷ９より、作監修正
+<img src="https://p.sda1.dev/8/507cc749e916f4727aaedb91869a709f/20221202_141355.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/9a4f029d8be62565fd565da3dc61419b/20221202_141356.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/7058ee094f605ad940efd2da45ba53b5/20221202_141358.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/dacc8ea45c40114c589f51585ce71dd8/20221202_141359.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/e1cff49d963220914b47493adc57347b/20221202_141402.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/220f008a11bc066726f14820623a6b32/20221202_141404.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/a70fba2a0745631311769f91e72ecb33/20221202_141405.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/1ce2f469fc95752555fb1aaf0cf07ae5/20221202_141407.jpg" referrerpolicy="no-referrer">
+
