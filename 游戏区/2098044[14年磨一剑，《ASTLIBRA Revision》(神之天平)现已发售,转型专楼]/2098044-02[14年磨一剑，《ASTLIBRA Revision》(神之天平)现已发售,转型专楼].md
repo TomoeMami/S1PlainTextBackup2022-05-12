@@ -15278,3 +15278,33 @@ FREE版铁娘子BR打自己换成梦神飞天版（另外两个版本没有）�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">全成就了，用STEAM十几年来第一次正儿八经地去打一款游戏的全成就
 
+
+
+*****
+
+####  janet_ddr  
+##### 2817#       发表于 2022-12-2 09:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58713053&amp;ptid=2098044" target="_blank">真实之影 发表于 2022-12-1 22:07</a>
+
+神盾残虐命数是不是要新章才能拿到？</blockquote>
+小徽章27个就可以换到啊，不用到新章，不然拿不到弑神剑。
+
+我之前也是差两个盾折腾了好久才明白是漏了这样和雪山路上石像的盾
+
+*****
+
+####  janet_ddr  
+##### 2818#       发表于 2022-12-2 09:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58713325&amp;ptid=2098044" target="_blank">小黑鱼 发表于 2022-12-1 22:32</a>
+
+求教下米糕之类的食材也是特定怪掉落么，感觉完全随机？还有金银粘石每个挖矿点概率是一样对吧 ...</blockquote>
+食材都是特定怪掉落的，打不到就反复刷吧，可以多点幸运和嘉隆的增加掉落奖励的能力。
+
+挖矿这个推荐后面刷钱后用最贵的镐来挖，然后嘉隆也有两个能力增加掉落和发现隐藏矿脉。
+
+基本每类都有机会给到，打到红宝石和钻石就直接买掉刷钱，一直循环就是，打起来也快。
+
+至于金银粘石我个人是感觉前面几章出的机率更高点
+
