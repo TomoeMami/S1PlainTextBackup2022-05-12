@@ -3043,3 +3043,32 @@ sc嘛，我意思是读sc也是聊天，聊天时间也省了。
 
 很难说跟谁一起看的
 
+
+
+*****
+
+####  holoan  
+##### 3290#         楼主| 发表于 2022-12-2 10:51
+
+柚子社出新作，推上一群人深情呼喊miko赶紧播试玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+问题是
+
+*****
+
+####  rs5621  
+##### 3291#       发表于 2022-12-2 10:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要辜负群众的期待，35你就玩吧。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3292#         楼主| 发表于 2022-12-2 10:58
+
+关键是运营不让播，如果硬要播说不定要被处罚的
+
+当然私下肯定会去买店头限定版回来收藏
+

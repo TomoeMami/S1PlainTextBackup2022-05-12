@@ -15341,3 +15341,12 @@ free1.25版最后一幕是主人公和阿努丽丝在花田见面，开始滚sta
 
 1.25版最终天平盘只能获得9个也算是表明游戏不完整了吧（看wiki上写1.17版的时候有2周目，可以通过打2周目获得第10个托盘，但是1.25版取消2周目选项了）
 
+
+
+*****
+
+####  CswStar  
+##### 2822#       发表于 2022-12-2 10:55
+
+把新章的东京打完了，应该快结束了吧，这游戏真的不应该叫chrono balance吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这即视感太强了
+
