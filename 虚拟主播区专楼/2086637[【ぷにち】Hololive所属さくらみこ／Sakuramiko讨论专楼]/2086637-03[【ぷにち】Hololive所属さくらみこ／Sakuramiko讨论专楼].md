@@ -3023,3 +3023,14 @@ sc嘛，我意思是读sc也是聊天，聊天时间也省了。
 
 这身衣服简直了
 
+
+
+*****
+
+####  rs5621  
+##### 3288#       发表于 2022-12-2 10:35
+
+不睡觉在那看球？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
