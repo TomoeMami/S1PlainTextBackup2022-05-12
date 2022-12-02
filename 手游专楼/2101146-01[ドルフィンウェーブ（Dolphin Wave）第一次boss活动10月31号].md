@@ -77,3 +77,21 @@
 
 另外新卡池仍然是日向重工的另外两人
 
+
+
+*****
+
+####  黑上シグマ  
+##### 160#       发表于 2022-12-2 17:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">发的券出UR了
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  CrayS1  
+##### 161#       发表于 2022-12-2 17:09
+
+你游也挺色的啊 福利也更好 为啥完全干不过Nikke
+
