@@ -123,3 +123,21 @@
 
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  MEKA  
+##### 165#       发表于 2022-12-2 17:53
+
+话说活动商店好像没更新的样子？但是活动标为什么多了一个NEW<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  孫光龍  
+##### 166#       发表于 2022-12-2 17:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">讲真nikke也没多好玩
+这游戏l2d确实还行，但是3d活太糙
+而且游玩过程中还是3d占主导，扬短避长了属于是
+

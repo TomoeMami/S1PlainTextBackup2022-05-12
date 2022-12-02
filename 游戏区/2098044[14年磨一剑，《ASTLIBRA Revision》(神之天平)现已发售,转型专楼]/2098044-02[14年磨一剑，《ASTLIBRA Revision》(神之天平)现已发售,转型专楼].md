@@ -15656,3 +15656,20 @@ EX关卡 女神ベアトリーチェ
 
 这一关在哪里，怎么进去？
 
+
+
+*****
+
+####  yla  
+##### 2848#       发表于 2022-12-2 17:54
+
+ 本帖最后由 yla 于 2022-12-2 17:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58726732&amp;ptid=2098044" target="_blank">装甲兔 发表于 2022-12-2 17:50</a>
+
+EX关卡 女神ベアトリーチェ
+
+解禁时期        6章中盘
+
+途中脱出        可</blockquote>
+六章中盘到西方尽头后，那边门口左上角
+

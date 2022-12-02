@@ -50,3 +50,12 @@
 刚好一推五出新人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 传说的前辈绊爱.png
 
+
+
+*****
+
+####  mes  
+##### 1668#       发表于 2022-12-2 17:53
+
+个人觉得更适合做电波点四格风般的动画，看PV是多人组合偶像类的方向也行吧，只要做得好。但似乎都和现在现实分出的几个形象都没啥关系就是了。
+
