@@ -15781,3 +15781,15 @@ EX关卡 女神ベアトリーチェ
 
 剧情强度上给我相似印象的还是以前推的传颂白皇，加上新章，两部的量塞一作里面，后半程稍显仓促。整体品质，那就是用免费素材精心垒砌起来的独游胧村正。跨越14年的个人独立游戏，无论质还是量，都是正正堂堂，称得上“活过的证明”。
 
+
+
+*****
+
+####  若闲  
+##### 2859#       发表于 2022-12-3 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58712304&amp;ptid=2098044" target="_blank">HOLIDAY 发表于 2022-12-1 21:14</a>
+这KEIZO是不是有颗做黄油的心啊冷不丁塞进来个半牛不牛的桥段，感觉没道理的。而且感觉全篇好几个地 ...</blockquote>
+印象深刻的是：都带走，还可以给士兵用用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+结果回头你说嫌碍事扔门口了？那你带这俩干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
