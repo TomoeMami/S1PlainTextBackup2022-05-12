@@ -183,3 +183,12 @@ Linux桌面模式商城有个Usermode FTP, 我都是FTP传的
 
 —— 来自 realme RMX3370, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  nnnnick22  
+##### 1950#       发表于 2022-12-2 16:00
+
+日本的邮件总算到了 付款了坐等
+
