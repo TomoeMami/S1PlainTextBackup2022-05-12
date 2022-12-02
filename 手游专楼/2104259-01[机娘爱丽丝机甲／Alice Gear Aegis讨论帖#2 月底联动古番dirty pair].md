@@ -1098,3 +1098,12 @@ GEAR齐了，也打封锁试了下
 访谈来了，柏木说是先和colopl说好和“美少女动画”联动然后“社内讨论”决定的。也就是说柏木不但公款追星还背刺老东家，胆子不小啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确定西塔拉有联动服
 [https://dengekionline.com/articles/158971/](https://dengekionline.com/articles/158971/)
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 100#         楼主| 发表于 2022-12-2 20:19
+
+真正的厨：当了公司老板后做游戏开联动安利玩家去看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -223,3 +223,15 @@ Linux桌面模式商城有个Usermode FTP, 我都是FTP传的
 触控板行为最右的齿轮里，把轨迹球模式关了</blockquote>
 感谢
 
+
+
+*****
+
+####  慕容断月  
+##### 1954#       发表于 2022-12-2 20:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58668696&amp;ptid=2015700" target="_blank">isa2456 发表于 2022-11-28 23:04</a>
+
+想问下tf卡怎么才能在windows上拷文件ext4格式主pc的win不能读，exfat的话steam又用不了，不可能准 ...</blockquote>
+win10和11的话可以装wsl，然后挂载，win10和11可以通过这个方式原生支持ext4的读写
+
