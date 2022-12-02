@@ -6968,3 +6968,42 @@ Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐ Blu-ray
 <img src="https://p.sda1.dev/8/a70fba2a0745631311769f91e72ecb33/20221202_141405.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/1ce2f469fc95752555fb1aaf0cf07ae5/20221202_141407.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 527#         楼主| 发表于 2022-12-2 14:26
+
+[https://twitter.com/plus_plus09/status/1597976562766610433](https://twitter.com/plus_plus09/status/1597976562766610433)
+
+9話も動画描きました！
+
+ペット主役？回です
+<img src="https://p.sda1.dev/8/ca0c6e6c1de8597c1d402712f8dcb1de/20221202_142232.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/Dai24669639/status/1598144179905126400](https://twitter.com/Dai24669639/status/1598144179905126400)
+
+DIY9話、LO/原画参加させて頂きました。
+
+ありがとうございます！
+
+（しーかわいい
+<img src="https://p.sda1.dev/8/3b6bf28e95f1a3e6843236913aad7fa1/20221202_142303.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/__ria_iks/status/1598249088713363457](https://twitter.com/__ria_iks/status/1598249088713363457)
+
+DIY#09、原画とかやってました
+
+後半話数、どの話も何かしらの仕事してます
+
+残りの話数も宜しくお願いします
+
+（全然関係ない最推ししーのラクガキを添えて…）
+<img src="https://p.sda1.dev/8/3c29987fb846a5c47ed71d4e9ff3a0ca/20221202_142308.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/k_ekaki/status/1597977607941025792](https://twitter.com/k_ekaki/status/1597977607941025792)
+
+DIY9話、Aパートのお風呂シーンの原画とBパート豚小屋作りの辺りを少し作監させて頂きました。ありがとうございました！
+<img src="https://p.sda1.dev/8/ae828bd1cddb745bd3a7c0debc595c9b/20221202_142228.jpg" referrerpolicy="no-referrer">
+
