@@ -176,3 +176,14 @@ ps5和pc画面差多少啊，本来想换pc玩的，但是ps5上已经玩了快1
 目前还不熟悉操作，轻点L2刹车 ...</blockquote>
 按油门也行，默认点油门或者刹车都能飘
 
+
+
+*****
+
+####  ohi  
+##### 98#       发表于 2022-12-4 00:21
+
+这代的中文配音也太赞了，女声好像跟2077是同个人，而且还有中文的rap<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
