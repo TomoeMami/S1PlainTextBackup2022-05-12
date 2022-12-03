@@ -8594,3 +8594,141 @@ non酱的角色音真的
 
 早该抢抢了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  iuhehc  
+##### 9693#       发表于 2022-12-3 16:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9694#       发表于 2022-12-3 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58742847&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-12-3 16:38</a>
+
+原教旨能等到一首五人曲吗
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">这不就来了
+
+*****
+
+####  starring  
+##### 9695#       发表于 2022-12-3 16:53
+
+这破麦发音轻一点都没声音
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9696#       发表于 2022-12-3 16:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这冒个头出来没蚌住
+
+*****
+
+####  lj205  
+##### 9697#       发表于 2022-12-3 16:54
+
+为啥不做这套衣服？！
+
+*****
+
+####  Kfly  
+##### 9698#       发表于 2022-12-3 16:54
+
+五人曲这不就来了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Earendil_C  
+##### 9699#       发表于 2022-12-3 16:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我也觉得这套衣服比op好看很多
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ViyViy  
+##### 9700#       发表于 2022-12-3 16:56
+
+五人肯定不做了，这是算盘之一啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9701#       发表于 2022-12-3 16:57
+
+啊啊啊啊啊？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kfly  
+##### 9702#       发表于 2022-12-3 16:57
+
+non和鱼这个互动可以啊
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9703#       发表于 2022-12-3 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以可以
+
+*****
+
+####  Kfly  
+##### 9704#       发表于 2022-12-3 16:58
+
+ 本帖最后由 Kfly 于 2022-12-3 17:01 编辑 
+
+结那这么快出来啊稳！
+
+*****
+
+####  Earendil_C  
+##### 9705#       发表于 2022-12-3 16:59
+
+我超  我是结那的肉体厨
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9706#       发表于 2022-12-3 16:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还把众人震惊的画面也做进去了
+
+*****
+
+####  starring  
+##### 9707#       发表于 2022-12-3 17:00
+
+结那的表现可以，气场好强，就是这这衣服的质感完全不行
+
+*****
+
+####  iuhehc  
+##### 9708#       发表于 2022-12-3 17:00
+
+另一首不给吊威亚来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Enakina  
+##### 9709#       发表于 2022-12-3 17:01
+
+脸上那个贴纸，还以为是推特
+

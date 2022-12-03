@@ -59,3 +59,12 @@
 
 有在油管官方频道追的楼友吗？最新一集怎么没有官方中文字幕了？明明上集还有的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  roxas.sora  
+##### 789#       发表于 2022-12-3 16:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这集好文艺啊
+
