@@ -143,3 +143,16 @@
 
 罗权最早在奥特Q中就登场了，以前的设定一直是海底原人，这次又多加了个地方神明的设定，毕竟小日子有八百万神<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">腓力斯丁人的农耕之神确实是大衮，但被某个一神教污蔑成邪神和恶魔。德凯更离谱的是可能把克苏鲁神话和圣经的设定直接杂糅在一起了，虽然克苏鲁神话中大衮的原型应该就是出自圣经。不过德凯的鱼人更容易让人联想到黑湖妖潭和水形物语吧，都是半鱼半人和人类女子的故事。只不过我个人不太理解德凯里的罗权众为什么急于把自己崇拜的神明送走，它只不过是想和小孩玩而已，是出于对神的恐惧或尊敬吗？
 
+
+
+*****
+
+####  游蜓  
+##### 794#       发表于 2022-12-3 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58741208&amp;ptid=2040765" target="_blank">毛头子 发表于 2022-12-3 14:48</a>
+因为唯千夏的心病一直是狗币斯菲亚闹得与同事分离，但又几乎没有在日常中通过画面和台词表现她对同事的牵挂 ...</blockquote>
+是的，和上一集一对比真的是高下立现了，唯千夏之前根本没刻画过和同事前辈的感情，一点铺垫都没有
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
