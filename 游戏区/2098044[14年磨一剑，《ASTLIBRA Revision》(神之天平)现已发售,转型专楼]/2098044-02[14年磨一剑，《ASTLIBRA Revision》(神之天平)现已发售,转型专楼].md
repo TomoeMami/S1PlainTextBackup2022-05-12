@@ -15922,3 +15922,25 @@ EX关卡 女神ベアトリーチェ
 
 请问钻石要怎么才能刷出来啊？离全成就就差这一个道具了，看攻略说在东京挖矿能挖到，可我刷了快半小时了还是没出<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  urvark  
+##### 2871#       发表于 2022-12-3 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58748183&amp;ptid=2098044" target="_blank">Mokou1207 发表于 2022-12-3 20:59</a>
+
+请问钻石要怎么才能刷出来啊？离全成就就差这一个道具了，看攻略说在东京挖矿能挖到，可我刷了快半小时了还 ...</blockquote>
+我体感是幸运值越高越容易出
+
+*****
+
+####  A1LI  
+##### 2872#       发表于 2022-12-3 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58748259&amp;ptid=2098044" target="_blank">urvark 发表于 2022-12-3 21:03</a>
+
+我体感是幸运值越高越容易出</blockquote>
+隐藏矿更容易出吧。
+
