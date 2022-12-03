@@ -15944,3 +15944,14 @@ EX关卡 女神ベアトリーチェ
 我体感是幸运值越高越容易出</blockquote>
 隐藏矿更容易出吧。
 
+
+
+*****
+
+####  Sannapolis  
+##### 2873#       发表于 2022-12-3 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58748183&amp;ptid=2098044" target="_blank">Mokou1207 发表于 2022-12-3 20:59</a>
+请问钻石要怎么才能刷出来啊？离全成就就差这一个道具了，看攻略说在东京挖矿能挖到，可我刷了快半小时了还 ...</blockquote>
+我是在研究所里面的矿点才挖出来的，去研究所途中和井下exboss道中没挖出来过
+
