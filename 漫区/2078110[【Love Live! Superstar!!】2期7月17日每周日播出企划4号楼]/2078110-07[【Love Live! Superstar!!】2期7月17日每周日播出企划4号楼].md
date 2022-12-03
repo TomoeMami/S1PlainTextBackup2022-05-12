@@ -9033,3 +9033,145 @@ sayu和non这车祸组合<img src="https://static.saraba1st.com/image/smiley/fac
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">某2分半曲子会有小车车吗 怕不是推车的累死
 
+
+
+*****
+
+####  ruffian  
+##### 9745#       发表于 2022-12-3 17:22
+
+鲤p会有花车对创吗？搞快点搞快点
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 9746#       发表于 2022-12-3 17:23
+
+哦豁
+
+*****
+
+####  starring  
+##### 9747#       发表于 2022-12-3 17:23
+
+依然是一场3首裂歌，14场随机组合
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9748#       发表于 2022-12-3 17:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">我得了看见香圣嘴炮就会死的病
+
+*****
+
+####  player3960  
+##### 9749#       发表于 2022-12-3 17:24
+
+今天看不到小车车了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 9750#       发表于 2022-12-3 17:25
+
+圣香音正在攻击我死去的记忆<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 9751#       发表于 2022-12-3 17:26
+
+可不可以不要放这垃圾动画
+
+*****
+
+####  nufawneafg  
+##### 9752#       发表于 2022-12-3 17:26
+
+已经尽力在剪搞笑片段了（大概）
+
+*****
+
+####  player3960  
+##### 9753#       发表于 2022-12-3 17:27
+
+要换衣服没办法啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9754#       发表于 2022-12-3 17:28
+
+把瞬移剪掉了（但还在そうかな持续输出
+这段真的很尬我都不想直视屏幕了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 9755#       发表于 2022-12-3 17:29
+
+U咩
+
+*****
+
+####  Kfly  
+##### 9756#       发表于 2022-12-3 17:29
+
+折磨啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 9757#       发表于 2022-12-3 17:30
+
+根据动画走的Live，那剧情不得不品尝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9758#       发表于 2022-12-3 17:30
+
+草，这廉价的质感<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 9759#       发表于 2022-12-3 17:31
+
+这衣服，无语了
+
+*****
+
+####  starring  
+##### 9760#       发表于 2022-12-3 17:31
+
+本来就难看的衣服，配上这廉价的布材更难看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 9761#       发表于 2022-12-3 17:32
+
+好消息：白花花的大腿可劲看
+坏消息：衣服很怪，导播很渣
+
+*****
+
+####  ViyViy  
+##### 9762#       发表于 2022-12-3 17:32
+
+这套反正对我来说还是太超前了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 9763#       发表于 2022-12-3 17:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">师承大飞？
+
