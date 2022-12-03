@@ -7030,3 +7030,19 @@ DIY9話、Aパートのお風呂シーンの原画とBパート豚小屋作り�
 这猪为啥要叫三代目，不会真是三代目了吧（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几集第一次有全名的时候没注意看，这一集才发现猪的全名叫三代目High Grade Meat，结合猪一听到猪肉就发抖怀疑
 
+
+
+*****
+
+####  千恋万花  
+##### 530#       发表于 2022-12-3 22:44
+
+ 本帖最后由 千恋万花 于 2022-12-3 22:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58750047&amp;ptid=1994951" target="_blank">Totokei 发表于 2022-12-3 22:37</a>
+
+前几集第一次有全名的时候没注意看，这一集才发现猪的全名叫三代目High Grade Meat，结合猪一听到 ...</blockquote>
+这猪的名字挺怪的，之前[楼里提到](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1994951&amp;page=12#pid58310646)过声优访谈和漫画初版给的全名是「三代目・J・ソウル・ミート」（NETA 的「三代目 J Soul Brothers」），这集又是另一个名字（动画里还错写成「ハイグレート」了，按理说应该是「ハイグレー<strong>ド</strong>」，本片 DIY 兼修发的[设计图](https://twitter.com/VintageSwaro109/status/1597995106489233408)和官方发的[实物图](https://twitter.com/PINEJAM_info/status/1598232936662245377)都是后者），至少能确认「三代目」和「ミート」是固定的。
+<img src="https://p.sda1.dev/8/896daba8076ce3d4beb258201ba4b624/2022-12-03-2249_14.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2287fad41537014f3fb00a320e8ce820/VintageSwaro109-1597995106489233408-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/c676ca21f262d336506976fa1223539d/PINEJAM_info-1598232936662245377-img3.png" referrerpolicy="no-referrer">
+
