@@ -8316,3 +8316,14 @@ https://febri.jp/topics/llss_2nd_6/
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是备货少，早上群里在日的吐槽了好久，说是场贩很快就没了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9665#       发表于 2022-12-3 14:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58740336&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-3 13:24</a>
+应该是备货少，但是不可能才备货10个20个这么夸张吧？每次一提人气就把恋恋拉出来，这么久也该混脸熟了，按 ...</blockquote>
+10个20个什么的肯定是调侃啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
