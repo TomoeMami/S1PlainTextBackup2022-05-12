@@ -8280,3 +8280,21 @@ https://febri.jp/topics/llss_2nd_6/
 
 いや笑えん</blockquote>老番翻新
 
+
+
+*****
+
+####  ads147147  
+##### 9661#       发表于 2022-12-3 12:17
+
+恋能切这么快我是觉得就没库存。。我淘宝里所谓限量速购的恋趴趴待在购物车一年了一点销量0
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ViyViy  
+##### 9662#       发表于 2022-12-3 12:17
+
+啥意思，恋虽然是最早切的但是备货少？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
