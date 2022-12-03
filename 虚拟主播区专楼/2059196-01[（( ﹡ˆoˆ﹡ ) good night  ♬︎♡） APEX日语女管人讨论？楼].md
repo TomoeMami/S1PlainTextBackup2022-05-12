@@ -5581,3 +5581,16 @@ bora这APEX同接下山的有点快，还以为能再撑个3、4回才下万棒�
 https://event. ...</blockquote>
 有分组表嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 591#       发表于 2022-12-3 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58742090&amp;ptid=2059196" target="_blank">渡鸦骑士 发表于 2022-12-3 16:03</a>
+有分组表嘛</blockquote>
+连接点进去就是，太长了不想占版面
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

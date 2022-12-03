@@ -9424,3 +9424,102 @@ U咩
 
 这套是要跳到SSS嘛草。
 
+
+
+*****
+
+####  ruffian  
+##### 9790#       发表于 2022-12-3 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58744359&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-12-03 17:48:42</a></blockquote>emo老惯犯了，二期生最早拍写真的时候就亲non，放映会上亲sayu，亲nagi属于正常发挥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  名津流  
+##### 9791#       发表于 2022-12-3 17:53
+
+鱼拍pay的尾巴
+
+然后少见的看到pay打回去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 9792#       发表于 2022-12-3 17:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">求你播个片让她们回去换衣服吧
+
+*****
+
+####  一绪  
+##### 9793#       发表于 2022-12-3 17:55
+
+一套VTM打歌服连着唱4首了啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 9794#       发表于 2022-12-3 17:55
+
+不是 灯光呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9795#       发表于 2022-12-3 17:55
+
+对着在阴影中的pay拍了半天没蚌住，搞得跟黑衣人一样<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 9796#       发表于 2022-12-3 17:58
+
+vn又来了
+
+*****
+
+####  Kfly  
+##### 9797#       发表于 2022-12-3 17:59
+
+结那返场！
+
+*****
+
+####  iuhehc  
+##### 9798#       发表于 2022-12-3 18:00
+
+西部呀卡农！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  nufawneafg  
+##### 9799#       发表于 2022-12-3 18:00
+
+经典西布牙卡农，ptsd犯了
+
+*****
+
+####  starring  
+##### 9800#       发表于 2022-12-3 18:01
+
+看在破丝袜的份上，就原谅这套廉价衣服<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 9801#       发表于 2022-12-3 18:01
+
+草 真的是破丝袜
+
+*****
+
+####  稀勢のささ  
+##### 9802#       发表于 2022-12-3 18:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你再拉远点啥都看不到了 真就没搞明白看点
+
