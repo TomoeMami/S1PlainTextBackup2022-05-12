@@ -8298,3 +8298,21 @@ https://febri.jp/topics/llss_2nd_6/
 
 啥意思，恋虽然是最早切的但是备货少？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 9663#       发表于 2022-12-3 13:24
+
+应该是备货少，但是不可能才备货10个20个这么夸张吧？每次一提人气就把恋恋拉出来，这么久也该混脸熟了，按理说应该能收割一些同情票的啊……
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  cybernetics31  
+##### 9664#       发表于 2022-12-3 13:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是备货少，早上群里在日的吐槽了好久，说是场贩很快就没了
+
