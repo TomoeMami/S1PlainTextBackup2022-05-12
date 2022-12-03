@@ -325,3 +325,23 @@ a卡好像优化不行。。。建议观望一下</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  aestivalls  
+##### 139#       发表于 2022-12-3 08:04
+
+肥鲨是不是又把难度改回去了，昨天打了2把没有海量狙击手和每次都碰到恶魔宿主了
+
+*****
+
+####  抠鼻屎男  
+##### 140#       发表于 2022-12-3 08:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58736369&amp;ptid=1951151" target="_blank">aestivalls 发表于 2022-12-3 08:04</a>
+肥鲨是不是又把难度改回去了，昨天打了2把没有海量狙击手和每次都碰到恶魔宿主了 ...</blockquote>
+同感。。。我才难度2啊，打了三把就一把勉强过，剩下两把都碰到智障队友乱跑乱开恶魔宿主，吐了
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
