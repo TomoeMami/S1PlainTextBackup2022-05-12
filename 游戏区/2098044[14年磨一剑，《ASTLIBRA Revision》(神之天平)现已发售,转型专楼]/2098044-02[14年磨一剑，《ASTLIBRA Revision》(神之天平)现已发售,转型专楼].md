@@ -15899,3 +15899,17 @@ EX关卡 女神ベアトリーチェ
 如果合成过两个情人节巧克力和情人节礼物，把这两东西拆了也行</blockquote>
 已经拆了，加上5个人的，加上竞技场和扭蛋的，还只有14个，是要15才能完美吧，13也能触发结局<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sannapolis  
+##### 2869#       发表于 2022-12-3 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58745341&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-12-3 18:51</a>
+
+已经拆了，加上5个人的，加上竞技场和扭蛋的，还只有14个，是要15才能完美吧，13也能触发结局 ...</blockquote>
+13个好结局，14个拿光剑
+
+印象中拿齐剧情给的爱情后刚好是足够的
+

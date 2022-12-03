@@ -2135,3 +2135,12 @@ TVアニメ「绊のアリル」PV第1弾／2023年放送开始！</blockquote>
 
  反正看了解的人都公开出来喷了 我也直说了 绊爱这个就是没什么关系恰尸体烂钱的企划
 
+
+
+*****
+
+####  noHentai  
+##### 17822#       发表于 2022-12-3 19:00
+
+这PV看着就是便宜动画，洗洗睡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
