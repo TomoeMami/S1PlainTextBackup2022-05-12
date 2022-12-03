@@ -5568,3 +5568,16 @@ bora这APEX同接下山的有点快，还以为能再撑个3、4回才下万棒�
 
 2022-12-3 15:22 上传
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 590#       发表于 2022-12-3 16:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58741528&amp;ptid=2059196" target="_blank">格林卡罗尔 发表于 2022-12-3 15:24</a>
+今天北京时间18:00有个乐天杯，赛制非常娱乐能抽奖直接获得点数，看点大概是つな和のあ互殴
+
+https://event. ...</blockquote>
+有分组表嘛<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

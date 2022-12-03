@@ -3185,3 +3185,21 @@ sc嘛，我意思是读sc也是聊天，聊天时间也省了。
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ZQXY2002  
+##### 3304#       发表于 2022-12-3 16:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">就这两天努力下多孵点蛋吧，可别拖到下周了，想想她主线也要玩，这宝可梦直播得持续到月中了。
+
+*****
+
+####  holoan  
+##### 3305#         楼主| 发表于 2022-12-3 16:08
+
+可以播3个月的
+
+不要急
+
