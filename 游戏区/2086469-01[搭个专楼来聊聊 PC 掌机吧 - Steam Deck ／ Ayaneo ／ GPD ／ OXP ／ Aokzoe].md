@@ -64,3 +64,29 @@ GPD WIN 4 的价格和发售时间也出来了。
 
 色域估计是找不到好屏幕了吧。
 
+
+
+*****
+
+####  83913536  
+##### 533#       发表于 2022-12-3 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58740533&amp;ptid=2086469" target="_blank">plumlis 发表于 2022-12-3 13:40</a>
+
+笑死，GPD Win4，当初宣传的几大特性全鸽了
+
+https://tieba.baidu.com/p/8169834502</blockquote>
+Max2就是霍尔小摇杆啊
+
+*****
+
+####  83913536  
+##### 534#       发表于 2022-12-3 14:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58740533&amp;ptid=2086469" target="_blank">plumlis 发表于 2022-12-3 13:40</a>
+
+笑死，GPD Win4，当初宣传的几大特性全鸽了
+
+https://tieba.baidu.com/p/8169834502</blockquote>
+Max2就是霍尔小摇杆啊
+
