@@ -9822,3 +9822,181 @@ nako这个发型难得
 
 啊？还有这种坐牢环节？动画鉴赏？之前一期老五人有吗，噢老无人不需要，一期前三集唯一白月光了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 9838#       发表于 2022-12-3 18:52
+
+三巡这个TEE配上校服裙子整个一个全灰
+
+*****
+
+####  奥柏伦亲王  
+##### 9839#       发表于 2022-12-3 18:52
+
+另外对于vcr我的评价是不行，没有5人时期任何一个vcr走心
+
+*****
+
+####  iuhehc  
+##### 9840#       发表于 2022-12-3 18:53
+
+lapapa 没力
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9841#       发表于 2022-12-3 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">拉粑粑惨遭9人化
+
+*****
+
+####  奥柏伦亲王  
+##### 9842#       发表于 2022-12-3 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是鲤鱼届喜欢的拍手歌
+
+*****
+
+####  starring  
+##### 9843#       发表于 2022-12-3 18:53
+
+五人曲受害名单+1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然早就料到
+
+*****
+
+####  iuhehc  
+##### 9844#       发表于 2022-12-3 18:55
+
+接下来会是哪一首呢
+
+day1都…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥柏伦亲王  
+##### 9845#       发表于 2022-12-3 18:56
+
+卧槽
+
+*****
+
+####  starring  
+##### 9846#       发表于 2022-12-3 18:56
+
+五人曲受害名单+2<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9847#       发表于 2022-12-3 18:56
+
+ 本帖最后由 兔姬姬姬姬姬 于 2022-12-3 18:59 编辑 
+
+哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 9848#       发表于 2022-12-3 18:56
+
+twi: _CelticWhite_ 
+
+<img src="https://img.saraba1st.com/forum/202212/03/185648lxrbbrtjtxsxab3y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E0C55BB8-C2BB-4A87-B0F2-2C82EC6E117F.jpeg</strong> (340.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 18:56 上传
+
+<img src="https://img.saraba1st.com/forum/202212/03/185648oxgmv9hxd1ltzgeg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1BA1DD9F-C756-4486-9E72-EFFDDCD5D322.jpeg</strong> (203.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 18:56 上传
+
+*****
+
+####  iuhehc  
+##### 9849#       发表于 2022-12-3 18:57
+
+ 本帖最后由 iuhehc 于 2022-12-3 18:59 编辑 
+
+差不多得了运营    
+热曲c位？拿来吧你
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥柏伦亲王  
+##### 9850#       发表于 2022-12-3 18:59
+
+改成9人后完全失去原版的痛快感了，我求求你改就改好点
+
+*****
+
+####  Kfly  
+##### 9851#       发表于 2022-12-3 18:59
+
+总会来的……唉
+
+就是真的不要九人小星星<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 9852#       发表于 2022-12-3 19:00
+
+现在目前暂时还没有动动画曲
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  csolfans  
+##### 9853#       发表于 2022-12-3 19:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想想明年还是12人哦
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9854#       发表于 2022-12-3 19:01
+
+动画曲的问题是后面背景动画会很怪，我觉得是不用担心小星星这种
+
+*****
+
+####  ViyViy  
+##### 9855#       发表于 2022-12-3 19:01
+
+day1从堇C改堇夏双C？
+
+*****
+
+####  JhIenog  
+##### 9856#       发表于 2022-12-3 19:01
+
+动画曲应该是不会改的，，，吧
+
+*****
+
+####  starring  
+##### 9857#       发表于 2022-12-3 19:01
+
+回头把南梦宫fes的day1刷个十来二十遍清空记忆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -15887,3 +15887,15 @@ EX关卡 女神ベアトリーチェ
 存盘时间70小时终于通了困难，已经99级了，还缺一个爱情才能进完美结局，之前刷出来2个花了大概4小时，感觉 ...</blockquote>
 如果合成过两个情人节巧克力和情人节礼物，把这两东西拆了也行
 
+
+
+*****
+
+####  永远的访客  
+##### 2868#       发表于 2022-12-3 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58744790&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-12-3 18:12</a>
+
+如果合成过两个情人节巧克力和情人节礼物，把这两东西拆了也行</blockquote>
+已经拆了，加上5个人的，加上竞技场和扭蛋的，还只有14个，是要15才能完美吧，13也能触发结局<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
