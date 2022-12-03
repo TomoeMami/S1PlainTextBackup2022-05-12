@@ -8327,3 +8327,46 @@ https://febri.jp/topics/llss_2nd_6/
 应该是备货少，但是不可能才备货10个20个这么夸张吧？每次一提人气就把恋恋拉出来，这么久也该混脸熟了，按 ...</blockquote>
 10个20个什么的肯定是调侃啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 9666#       发表于 2022-12-3 14:27
+
+<img src="https://img.saraba1st.com/forum/202212/03/142752gd6hbgplgspgextc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>0C72001B-250B-4819-BC3B-C698C4EACCB3.jpeg</strong> (141.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 14:27 上传
+
+<img src="https://img.saraba1st.com/forum/202212/03/142753xxes2i3iinqq2ein.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9DC36C48-9D22-42FD-8BA1-25664C766CA9.jpeg</strong> (319.97 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 14:27 上传
+
+<img src="https://img.saraba1st.com/forum/202212/03/142755jfmfkhhaa5pzhp2p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>85EDCE24-A171-4D30-A3DA-0AF8B3181575.jpeg</strong> (319.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 14:27 上传
+
+<img src="https://img.saraba1st.com/forum/202212/03/142756ulh0m0hhi8l0elzk.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>853E0865-F882-4166-B84A-EB0F82F48F86.jpeg</strong> (294.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 14:27 上传
+
