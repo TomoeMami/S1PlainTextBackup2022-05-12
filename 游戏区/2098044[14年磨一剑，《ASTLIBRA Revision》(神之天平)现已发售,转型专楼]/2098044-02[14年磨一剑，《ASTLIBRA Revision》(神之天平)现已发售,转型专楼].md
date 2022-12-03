@@ -15964,3 +15964,15 @@ EX关卡 女神ベアトリーチェ
 
 话说刷金银箱子有啥玄学吗，第五章脸黑都快到最终boss了一件传说武器都没，随便哪个小怪打一巴掌就半血<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  urvark  
+##### 2875#       发表于 2022-12-3 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58750451&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-3 23:01</a>
+
+话说刷金银箱子有啥玄学吗，第五章脸黑都快到最终boss了一件传说武器都没，随便哪个小怪打一巴掌就半血[f:0 ...</blockquote>
+玄学就是幸运，幸运高了这些掉率都高，我敏捷加到够负重后就全加幸运的，基本上每关刷宝石和练技能的流程中就能把箱子打够，不需要刻意去刷
+

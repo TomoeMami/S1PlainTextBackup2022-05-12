@@ -5612,3 +5612,20 @@ https://event. ...</blockquote>
 
 胡桃のあ第一轮吃鸡第二轮二十<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，つな倒是两轮都寄得飞快，明明队友很强来着
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 594#       发表于 2022-12-3 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58747046&amp;ptid=2059196" target="_blank">格林卡罗尔 发表于 2022-12-3 20:10</a>
+胡桃のあ第一轮吃鸡第二轮二十，つな倒是两轮都寄得飞快，明明队友很强来着
+
+のあ第三局鸡第四局第 ...</blockquote>
+恭喜のあ夺冠，就算不计奖励分也是冠军
+つな队12，这下分清高下了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2947e36734a6e1c9b55942704d811bea/CMP_20221203232209691.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
