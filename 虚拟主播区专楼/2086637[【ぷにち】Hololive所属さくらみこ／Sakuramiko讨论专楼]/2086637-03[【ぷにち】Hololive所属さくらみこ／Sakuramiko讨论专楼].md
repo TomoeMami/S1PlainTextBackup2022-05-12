@@ -3229,3 +3229,23 @@ twitch刚好2年，不知道有什么事情
 
 莫比亚斯，索尼的烂片能不能不要再看了
 
+
+
+*****
+
+####  rs5621  
+##### 3308#       发表于 2022-12-3 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去搜搜看有多烂
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3309#         楼主| 发表于 2022-12-3 18:16
+
+imdb5.2
+
+日亚还没人评分
+

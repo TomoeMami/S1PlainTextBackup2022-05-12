@@ -9606,3 +9606,79 @@ vn又来了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就动画瞎拍，现实真有这实力老早solo歌手出道了
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 9811#       发表于 2022-12-3 18:15
+
+该来的还是来了……
+
+*****
+
+####  starring  
+##### 9812#       发表于 2022-12-3 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">死去的记忆再次攻击我
+
+*****
+
+####  iuhehc  
+##### 9813#       发表于 2022-12-3 18:15
+
+别吧..有不好的预感
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9814#       发表于 2022-12-3 18:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不行，结那越看越像礒部花凛，尤其是这身暗黑哥特装一穿，直接幻视隔壁月冈恋钟了
+
+*****
+
+####  奥柏伦亲王  
+##### 9815#       发表于 2022-12-3 18:17
+
+这个变奏编的还挺好的，pay唱的尤其好，只是…
+
+*****
+
+####  稀勢のささ  
+##### 9816#       发表于 2022-12-3 18:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">注意下表情管理啊
+
+*****
+
+####  ads147147  
+##### 9817#       发表于 2022-12-3 18:18
+
+还是我稳定，看完结那的两场直接关掉，mc等切片。
+
+结那之前的哪个真正的唱歌是什么真的是一股ptsd
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9818#       发表于 2022-12-3 18:19
+
+感觉不如一单发售live……私のsymphony
+
+*****
+
+####  稀勢のささ  
+##### 9819#       发表于 2022-12-3 18:21
+
+别急 总有一天会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 9820#       发表于 2022-12-3 18:22
+
+感觉是一种全新的玩法，在听歌的享受和动画的折磨之间反复横跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
