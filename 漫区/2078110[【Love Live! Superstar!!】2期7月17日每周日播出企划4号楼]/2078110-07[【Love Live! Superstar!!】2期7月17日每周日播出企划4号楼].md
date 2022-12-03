@@ -8380,3 +8380,12 @@ https://febri.jp/topics/llss_2nd_6/
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58741053&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-12-3 14:27</a></blockquote>
 Febri拍的这套写真质量好高，有几张还把150的打铁拍出160的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9668#       发表于 2022-12-3 16:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么开场前是unison背景音乐，不应该放点9人的吗
+
