@@ -10421,3 +10421,12 @@ EN04 TO BE CONTINUED</blockquote>
 
 今天裂啦之歌的安排顺序不好，迷宫赞歌之后接着Dreamer Coaster是一种怎样的处刑
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9897#       发表于 2022-12-3 23:42
+
+9人的1st 明年是12人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
