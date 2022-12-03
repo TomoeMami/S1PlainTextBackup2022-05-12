@@ -8389,3 +8389,119 @@ Febri拍的这套写真质量好高，有几张还把150的打铁拍出160的样
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么开场前是unison背景音乐，不应该放点9人的吗
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9669#       发表于 2022-12-3 16:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能整点大的吗
+
+*****
+
+####  ViyViy  
+##### 9670#       发表于 2022-12-3 16:32
+
+草，刚刚可可的时候镜头是不是一堆拿恋恋色混过去的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9671#       发表于 2022-12-3 16:34
+
+小百合这嗓子估计好不起来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 9672#       发表于 2022-12-3 16:34
+
+还想说我们仨公用一色儿的 四季这多少沾点粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Earendil_C  
+##### 9673#       发表于 2022-12-3 16:34
+
+鲨鱼这个麦是不是有点问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iuhehc  
+##### 9674#       发表于 2022-12-3 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58742770&amp;ptid=2078110" target="_blank">Earendil_C 发表于 2022-12-3 16:34</a>
+鲨鱼这个麦是不是有点问题
+
+—— 来自 S1Fun</blockquote>
+不是麦，还是唱法问题
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Earendil_C  
+##### 9675#       发表于 2022-12-3 16:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58742782&amp;ptid=2078110" target="_blank">iuhehc 发表于 2022-12-3 16:35</a>
+不是麦，还是唱法问题
+
+—— 来自 S1Fun</blockquote>
+有一两次一瞬间失声，感觉麦问题比较大
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 9676#       发表于 2022-12-3 16:37
+
+麦克风也有点问题吧，声音好弱
+
+*****
+
+####  稀勢のささ  
+##### 9677#       发表于 2022-12-3 16:37
+
+人声是真的小
+
+*****
+
+####  lj205  
+##### 9678#       发表于 2022-12-3 16:38
+
+开了电视的人声增强，所以声音还好
+
+顺便这演唱会有舞台设计吗
+
+*****
+
+####  iuhehc  
+##### 9679#       发表于 2022-12-3 16:38
+
+原教旨能等到一首五人曲吗<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ViyViy  
+##### 9680#       发表于 2022-12-3 16:39
+
+想听五人，只有拍手有可能了吧，因为衣服通用的。
+
+*****
+
+####  Earendil_C  
+##### 9681#       发表于 2022-12-3 16:39
+
+non酱的角色音真的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不好唱还不可爱，不如本音了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
