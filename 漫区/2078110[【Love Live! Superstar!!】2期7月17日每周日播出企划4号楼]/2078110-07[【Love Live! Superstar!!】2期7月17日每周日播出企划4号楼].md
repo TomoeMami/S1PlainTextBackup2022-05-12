@@ -10154,3 +10154,67 @@ day1从堇C改堇夏双C？
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ViyViy  
+##### 9876#       发表于 2022-12-3 19:23
+
+对了，刚刚拿外卖没看到，第九集是不是直接全跳了，哈哈哈，反正个人挺乐的，就当不存在吧运营。
+
+*****
+
+####  ViyViy  
+##### 9877#       发表于 2022-12-3 19:25
+
+ 本帖最后由 ViyViy 于 2022-12-3 19:28 编辑 
+
+我有不好的预感……嗯？这歌是哪首？我没印象草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 9878#       发表于 2022-12-3 19:28
+
+ 本帖最后由 csolfans 于 2022-12-3 19:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58745977&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-3 19:25</a>
+
+我有不好的预感……嗯？这歌是哪首？我没印象草</blockquote>
+冠军曲的cw曲
+
+*****
+
+####  iuhehc  
+##### 9879#       发表于 2022-12-3 19:29
+
+之后的场次lapapa那个顺序估计会一直换五人的cw曲
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Kfly  
+##### 9880#       发表于 2022-12-3 19:29
+
+《TO BE CONTINUED》
+
+*****
+
+####  starring  
+##### 9881#       发表于 2022-12-3 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58745977&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-3 19:25</a>
+
+我有不好的预感……嗯？这歌是哪首？我没印象草</blockquote>
+12话盘的CW曲
+
+*****
+
+####  ads147147  
+##### 9882#       发表于 2022-12-3 19:33
+
+我才发现结娜的战损黑丝不是纯黑丝弄破，是蝴蝶图案的黑丝袜，更中意了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

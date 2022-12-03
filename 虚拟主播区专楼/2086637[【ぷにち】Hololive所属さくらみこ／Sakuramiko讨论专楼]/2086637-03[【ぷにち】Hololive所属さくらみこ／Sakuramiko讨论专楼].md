@@ -3249,3 +3249,12 @@ imdb5.2
 
 日亚还没人评分
 
+
+
+*****
+
+####  ZQXY2002  
+##### 3310#       发表于 2022-12-3 19:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">索尼买的漫威ip，反正评分是很低，听说特效做的很烂
+

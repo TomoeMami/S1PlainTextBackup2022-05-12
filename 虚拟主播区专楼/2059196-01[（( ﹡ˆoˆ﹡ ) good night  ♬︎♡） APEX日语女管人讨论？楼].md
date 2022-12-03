@@ -5594,3 +5594,12 @@ https://event. ...</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  TiHaru  
+##### 592#       发表于 2022-12-3 19:29
+
+吃鸡15分，小游戏第一16分
+
