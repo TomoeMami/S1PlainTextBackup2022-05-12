@@ -299,3 +299,22 @@ hk终于补款了，当做给自己的圣诞礼物了，虽然25号前不一定�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  拉沃契金  
+##### 1961#       发表于 2022-12-3 16:16
+
+收到补款邮件了，香港转中可以运吗？
+
+*****
+
+####  leo204672099  
+##### 1962#       发表于 2022-12-3 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58739117&amp;ptid=2015700" target="_blank">eistla 发表于 2022-12-3 12:03</a>
+
+deck现在是不是还不能用创意工坊，以及为什么风扇老是狂转，都还没开游戏诶，吵死了 ...</blockquote>
+没遇到你的情况，我机器风扇狂转情况很少，看看是不是设置的问题
+
