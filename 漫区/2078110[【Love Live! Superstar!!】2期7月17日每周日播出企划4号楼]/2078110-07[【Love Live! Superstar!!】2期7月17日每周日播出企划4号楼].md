@@ -8732,3 +8732,209 @@ non和鱼这个互动可以啊
 
 脸上那个贴纸，还以为是推特
 
+
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9710#       发表于 2022-12-3 17:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">我早就是结那的肉体厨了
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">我草，别放你那b动画了
+
+*****
+
+####  iuhehc  
+##### 9711#       发表于 2022-12-3 17:02
+
+我真的不想看剧情了 yue
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 9712#       发表于 2022-12-3 17:02
+
+ 本帖最后由 稀勢のささ 于 2022-12-3 17:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚想说会不会不放这B动画了  理所当然的单人MV单人舞台（虽然衣服有点难蚌） 你二期生拿什么跟我斗啊
+
+*****
+
+####  Enakina  
+##### 9713#       发表于 2022-12-3 17:02
+
+吐了，还要放动画啊
+
+*****
+
+####  starring  
+##### 9714#       发表于 2022-12-3 17:02
+
+导播还是埋了吧，两次高抬腿都没拉镜头<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9715#       发表于 2022-12-3 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58743408&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-3 17:02</a>
+
+导播还是埋了吧，两次高抬腿都没拉镜头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">附议！健康的大腿完全看不到
+
+*****
+
+####  名津流  
+##### 9716#       发表于 2022-12-3 17:03
+
+VN好强！ 流石~
+
+*****
+
+####  lj205  
+##### 9717#       发表于 2022-12-3 17:03
+
+这舞感觉一般
+
+*****
+
+####  Earendil_C  
+##### 9718#       发表于 2022-12-3 17:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">动画我都没看，但该厨脸厨肉体是没落下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  aoaoaodedede  
+##### 9719#       发表于 2022-12-3 17:04
+
+动画还正好是尴尬的那一段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 9720#       发表于 2022-12-3 17:05
+
+舞倒是就那样
+
+
+
+*****
+
+####  player3960  
+##### 9721#       发表于 2022-12-3 17:05
+
+结那唱的好平啊，高音拉不上去的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9722#       发表于 2022-12-3 17:06
+
+鱼这发带幻视凉宫春日了
+
+*****
+
+####  仟音一心  
+##### 9723#       发表于 2022-12-3 17:07
+
+<img src="https://img.saraba1st.com/forum/202212/03/170655mli3ke0ele4v30hn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1E09FF85-19AB-4AFA-8702-76BBCA260958.jpeg</strong> (69.03 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202212/03/170658v2pqbqx746q04ooh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>F083614F-FFC5-4FE4-BE69-851C86BE64C1.jpeg</strong> (280.4 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202212/03/170658lq5jamqdrgh5bgy5.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1B88B96A-054B-4E90-885F-A0B0E696F585.jpeg</strong> (224.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 17:06 上传
+
+<img src="https://img.saraba1st.com/forum/202212/03/170705m8s2b8dzse8e24is.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E6D420C6-8E86-45F3-8CB1-8B989341BE6C.jpeg</strong> (68.47 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 17:07 上传
+
+*****
+
+####  Kfly  
+##### 9724#       发表于 2022-12-3 17:08
+
+按动画剧情顺序来的话，歌的顺序稍微能猜到一点了
+
+*****
+
+####  cybernetics31  
+##### 9725#       发表于 2022-12-3 17:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结那这脸和肉体直接把2期生比下去了
+
+*****
+
+####  稀勢のささ  
+##### 9726#       发表于 2022-12-3 17:09
+
+毫无违和感的难看的要死的袜子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 9727#       发表于 2022-12-3 17:10
+
+新画面！
+
+*****
+
+####  奥柏伦亲王  
+##### 9728#       发表于 2022-12-3 17:10
+
+结那还挺强的，suki<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+go这首歌的裙子，上身很显条，很好看，下身看着有点怪，配上红袜子，不怪弹幕评论说像麦当劳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 9729#       发表于 2022-12-3 17:10
+
+幻视凉宫春日了
+
+*****
+
+####  iuhehc  
+##### 9730#       发表于 2022-12-3 17:12
+
+这衣服为什么会让我产生很显老的感觉
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  奥柏伦亲王  
+##### 9731#       发表于 2022-12-3 17:12
+
+红蓝这裙子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
