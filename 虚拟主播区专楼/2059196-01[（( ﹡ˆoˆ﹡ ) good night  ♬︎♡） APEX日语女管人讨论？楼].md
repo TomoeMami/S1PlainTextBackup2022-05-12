@@ -5603,3 +5603,12 @@ https://event. ...</blockquote>
 
 吃鸡15分，小游戏第一16分
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 593#       发表于 2022-12-3 20:10
+
+胡桃のあ第一轮吃鸡第二轮二十<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，つな倒是两轮都寄得飞快，明明队友很强来着
+

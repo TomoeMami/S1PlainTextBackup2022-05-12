@@ -388,3 +388,25 @@ pc xgp版本, 一开始单人逃出剧情, 过那个桥必定崩溃跳出, 有�
 
 不能手动加BOT自己玩吗。。。像鼠疫一样
 
+
+
+*****
+
+####  猎户座  
+##### 146#       发表于 2022-12-3 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58742101&amp;ptid=1951151" target="_blank">seele9999 发表于 2022-12-3 16:03</a>
+
+不能手动加BOT自己玩吗。。。像鼠疫一样</blockquote>
+不能，导致找书及其困难。。。
+
+*****
+
+####  猎户座  
+##### 147#       发表于 2022-12-3 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58741121&amp;ptid=1951151" target="_blank">Lisylfn 发表于 2022-12-3 14:37</a>
+
+pc xgp版本, 一开始单人逃出剧情, 过那个桥必定崩溃跳出, 有没有一样的</blockquote>
+用代理，不开代理很快就跳出，是联网的问题
+

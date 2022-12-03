@@ -10337,3 +10337,21 @@ EN04 TO BE CONTINUED</blockquote>
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  cat1230  
+##### 9889#       发表于 2022-12-3 20:04
+
+有说换唱法，有说嗓子伤了，到底是哪种？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  csolfans  
+##### 9890#       发表于 2022-12-3 20:11
+
+今天live真的爽，上次这么爽还是5th。但是维他命打歌服唱了这么多首真的差评，导播切镜也很混乱还有就是mc太短了，nagi没搞事不太习惯，亮点全在结那的那句西←部→呀↑卡↓农。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我个人十分喜欢抒情曲，所以这次变奏版幸福里真的是满分了，散发麻麻真的很漂亮，孝心变质了属于是。随便提一句sayu的嗓子对于我来说现在是回到正常水平了，远比2nd那会好（那会有部分歌曲我真的是一听sayu开嗓，我都很担忧她的身体状况）
+
