@@ -179,3 +179,15 @@
 
 活动商店太不合理了，每天打满任务1500的话，滑板搬不完，排球和棋子就溢出
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 171#         楼主| 发表于 2022-12-3 17:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58742937&amp;ptid=2101146" target="_blank">kulanyee 发表于 2022-12-3 16:42</a>
+
+活动商店太不合理了，每天打满任务1500的话，滑板搬不完，排球和棋子就溢出 ...</blockquote>
+已经放弃滑板了，大多数都是突破材料，想要直接去刷材料关就行了
+

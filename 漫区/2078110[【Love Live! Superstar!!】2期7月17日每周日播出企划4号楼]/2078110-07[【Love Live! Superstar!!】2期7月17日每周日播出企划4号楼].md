@@ -8938,3 +8938,98 @@ go这首歌的裙子，上身很显条，很好看，下身看着有点怪，配
 
 红蓝这裙子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 9732#       发表于 2022-12-3 17:14
+
+yabu台风和唱都不错啊
+
+*****
+
+####  ViyViy  
+##### 9733#       发表于 2022-12-3 17:14
+
+刚刚GO是不是鲨鱼没成员色互换的头饰？这个曲子我当时动画就想吐槽一个事，为什么让可可去戴新人色的头饰，香哥哥这么中意土妹子你自己去戴啊，西八<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 9734#       发表于 2022-12-3 17:14
+
+红蓝牵手成功~
+
+*****
+
+####  一绪  
+##### 9735#       发表于 2022-12-3 17:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">原来车子是staff手动推动的
+
+*****
+
+####  稀勢のささ  
+##### 9736#       发表于 2022-12-3 17:16
+
+这一套服装一个都跑不了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奥柏伦亲王  
+##### 9737#       发表于 2022-12-3 17:16
+
+这么烂的收音都能唱出这么好的效果，不愧是我青山姐
+
+*****
+
+####  iuhehc  
+##### 9738#       发表于 2022-12-3 17:16
+
+这套衣服被一巡liella之歌那套打爆
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9739#       发表于 2022-12-3 17:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">这什么老年衫啊
+
+*****
+
+####  starring  
+##### 9740#       发表于 2022-12-3 17:18
+
+这套衣服谁也跑不掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">袖子和下摆做一些区分
+
+*****
+
+####  ViyViy  
+##### 9741#       发表于 2022-12-3 17:18
+
+这老年杉不会是明年生日套的柄吧……草
+
+*****
+
+####  奥柏伦亲王  
+##### 9742#       发表于 2022-12-3 17:20
+
+sayu和non这车祸组合<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 9743#       发表于 2022-12-3 17:20
+
+还行还在调上问题不大
+
+*****
+
+####  稀勢のささ  
+##### 9744#       发表于 2022-12-3 17:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">某2分半曲子会有小车车吗 怕不是推车的累死
+
