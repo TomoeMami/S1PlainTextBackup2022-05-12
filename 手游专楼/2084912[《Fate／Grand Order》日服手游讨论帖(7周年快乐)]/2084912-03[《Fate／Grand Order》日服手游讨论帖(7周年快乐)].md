@@ -8059,3 +8059,30 @@ over
 
 抄了个摩根3t的作业，奥伯龙就真的无能为力了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3730#       发表于 2022-12-3 09:47
+
+因为2.6相关从者在2.6刷free本有30%的羁绊提升，顺便又送了茶壶，于是研究了一下现在要不要喝茶刷羁绊。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+目前编队页面是会显示茶壶过期倒计时的（哪怕没有也显示），就是说官方应该是不希望玩家浪费掉茶壶。
+
+目前的茶壶是到12.31日过期，能赶上2.7开幕。
+
+主线剧情的羁绊都是1000起步（除去纯剧情、必败、NPC战等），无论如何都是比刷free高的。
+
+但是哪怕开了新章也很难保证连打35场正常战斗的主线关卡...
+
+除非是刷柱子。
+
+也就是说这堆月底过期的茶壶，要不就是为截止12.15的2.6羁绊加成准备的，要不就是用于2.7开荒顺便剩不少，或者2.7开幕的时候有需要刷刷刷的东西来消耗它们...
+
+唉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实我就是看着茶壶不知道怎么办，闲着没事瞎奶一下。
+
+2.7对应的应该不是时间神殿吧...不过圣诞节快到了，弄个世界BOSS刷刷材料然后抬走个冠位也挺应景的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+是吧，所罗门/盖提亚。
+
