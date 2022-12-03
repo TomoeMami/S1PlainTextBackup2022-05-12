@@ -10062,3 +10062,95 @@ day1从堇C改堇夏双C？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">14场都上了，不知道非得拧巴什么，还缺那个入队仪式吗
 
+
+
+*****
+
+####  starring  
+##### 9866#       发表于 2022-12-3 19:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总之先是9人吧
+
+*****
+
+####  长日留痕  
+##### 9867#       发表于 2022-12-3 19:15
+
+二期生融入还蛮自然的，和观众互动也都不错。
+
+小百合着嗓子我都快听习惯了，不知道能不能养好了，哎。
+
+*****
+
+####  csolfans  
+##### 9868#       发表于 2022-12-3 19:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草
+
+*****
+
+####  仟音一心  
+##### 9869#       发表于 2022-12-3 19:16
+
+<img src="https://img.saraba1st.com/forum/202212/03/191602e699cn969wwj768t.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C720E6ED-385B-482F-B2B9-E1A1CCD3EEB0.jpeg</strong> (49.79 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-3 19:16 上传
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9870#       发表于 2022-12-3 19:16
+
+有没有懂哥评价下小百合现在的嗓子情况，反正我还是受不了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  csolfans  
+##### 9871#       发表于 2022-12-3 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58745779&amp;ptid=2078110" target="_blank">兔姬姬姬姬姬 发表于 2022-12-3 19:16</a>
+
+有没有懂哥评价下小百合现在的嗓子情况，反正我还是受不了</blockquote>
+我个人觉得比2nd好多了，但是应该回不去1巡那时候了
+
+*****
+
+####  starring  
+##### 9872#       发表于 2022-12-3 19:19
+
+嗓子没问题就是唱法的问题吧，平时说话还有唱慢歌都没有沙哑的情况
+
+*****
+
+####  稀勢のささ  
+##### 9873#       发表于 2022-12-3 19:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗓子什么的不懂啦，反正我耳朵让我到时候拉一下进度条
+
+*****
+
+####  iuhehc  
+##### 9874#       发表于 2022-12-3 19:21
+
+唱法大半年没改过来 总不可能本人没意识到或者企划会社没安排专业训练吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ads147147  
+##### 9875#       发表于 2022-12-3 19:21
+
+也没见二期生有什么入队仪式，还让结那遮遮掩掩的干什么。
+
+话说这个动画剪辑是不是坐实了愉悦犯了。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
