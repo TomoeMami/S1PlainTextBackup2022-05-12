@@ -269,3 +269,22 @@ win10和11的话可以装wsl，然后挂载，win10和11可以通过这个方式
 其实重装之前就试过一次也是这样 ...</blockquote>
 试了下我机战30能玩的，proton experimental的bleeding edge分支
 
+
+
+*****
+
+####  eistla  
+##### 1958#       发表于 2022-12-3 12:03
+
+deck现在是不是还不能用创意工坊，以及为什么风扇老是狂转，都还没开游戏诶，吵死了
+
+*****
+
+####  yoyodty  
+##### 1959#       发表于 2022-12-3 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58739117&amp;ptid=2015700" target="_blank">eistla 发表于 2022-12-3 12:03</a>
+
+deck现在是不是还不能用创意工坊，以及为什么风扇老是狂转，都还没开游戏诶，吵死了 ...</blockquote>
+可以用创意工坊啊，我环世界的mod都是在游戏模式上创意工坊打的
+
