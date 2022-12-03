@@ -1146,3 +1146,35 @@ GEAR齐了，也打封锁试了下
 
 嘛实际上这种偏门联动确实也挣到了话题度就是，虽然更偏向于稳固既有玩家吧……
 
+
+
+*****
+
+####  不灭的旋律  
+##### 104#       发表于 2022-12-3 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58683369&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2022-11-29 22:53</a>
+
+这次两个人的机甲上色完全是80年代动画的上色风格，有点厉害。还有这两位应该是4年多快5年了第一次真真正正 ...</blockquote>
+金字塔：听说你要坐的女演员？
+
+<img src="https://img.saraba1st.com/forum/202212/03/134625rd7v4086d8h0dg3h.jpg" referrerpolicy="no-referrer">
+
+<strong>566464646546.jpg</strong> (196.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-3 13:46 上传
+
+睦海的看板比心的和竖大拇指的都有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 105#         楼主| 发表于 2022-12-3 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58740636&amp;ptid=2104259" target="_blank">不灭的旋律 发表于 2022-12-3 13:48</a>
+
+金字塔：听说你要坐的女演员？</blockquote>
+游戏里建模啊……外面怎么画很自由……
+
