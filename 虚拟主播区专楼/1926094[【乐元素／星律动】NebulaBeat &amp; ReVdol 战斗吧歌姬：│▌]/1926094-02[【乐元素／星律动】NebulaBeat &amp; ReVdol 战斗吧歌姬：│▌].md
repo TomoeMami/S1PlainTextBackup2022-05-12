@@ -11912,3 +11912,13 @@ bgm：双喜
 
 既视感
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2746#         楼主| 发表于 2022-12-3 21:57
+
+看到露米投稿霞光 准备复习下大小姐版本 没想到就有人剪了
+[https://www.bilibili.com/video/BV14W4y177Cc](https://www.bilibili.com/video/BV14W4y177Cc)
+
