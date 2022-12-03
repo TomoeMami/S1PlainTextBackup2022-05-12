@@ -7016,3 +7016,17 @@ DIY9話、Aパートのお風呂シーンの原画とBパート豚小屋作り�
 
 部长被学霸部员组团霸凌（确信
 
+
+
+*****
+
+####  Totokei  
+##### 529#       发表于 2022-12-3 22:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58710341&amp;ptid=1994951" target="_blank">バーチャルS1er 发表于 2022-12-1 18:42</a>
+
+除了部长都是学霸是吧
+
+这猪为啥要叫三代目，不会真是三代目了吧（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前几集第一次有全名的时候没注意看，这一集才发现猪的全名叫三代目High Grade Meat，结合猪一听到猪肉就发抖怀疑
+

@@ -92,3 +92,19 @@
 
 要是多十分钟写写唯千夏的回忆就好了……老婆婆的转变也很突兀，应该和大滚来个对话想通什么的……幸好最后是唯千夏去陪空巢老人，算是拉回来了一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  athena_1982  
+##### 792#       发表于 2022-12-3 22:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58741108&amp;ptid=2040765" target="_blank">renkan119 发表于 2022-12-3 14:34</a>
+
+这集最后的铺垫是真的不过 最后缺乏说服力 而且真想体现这论点就算强行点也应该让老婆皮被说服 结果最后老 ...</blockquote>
+去了就是甜蜜的死亡，回来就是痛苦的活着。强行拉回来就是一定要活着。活着才有希望，这也是德凯的主题，活在当下。
+
+嘴炮多了就变梗了，行为才是最大的说服力。直接奇迹型一把抓回来，不比唯千夏说那么多更有力？（物理
+
+这集很文艺，但是没有一般文艺片的那种颓废气，我觉得非常赞！
+
