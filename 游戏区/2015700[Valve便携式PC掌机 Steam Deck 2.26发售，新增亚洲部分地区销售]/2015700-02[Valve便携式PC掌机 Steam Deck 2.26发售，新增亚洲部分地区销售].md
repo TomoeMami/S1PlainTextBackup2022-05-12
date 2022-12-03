@@ -318,3 +318,17 @@ hk终于补款了，当做给自己的圣诞礼物了，虽然25号前不一定�
 deck现在是不是还不能用创意工坊，以及为什么风扇老是狂转，都还没开游戏诶，吵死了 ...</blockquote>
 没遇到你的情况，我机器风扇狂转情况很少，看看是不是设置的问题
 
+
+
+*****
+
+####  LMBS  
+##### 1963#       发表于 2022-12-3 16:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58737813&amp;ptid=2015700" target="_blank">Fuero 发表于 2022-12-3 10:31</a>
+
+试了下我机战30能玩的，proton experimental的bleeding edge分支</blockquote>
+之前也是能玩的，突然就玩不了
+
+想起还有桌面模式，切到桌面模式竟然可以玩，回到掌机又不行，真的好奇怪
+

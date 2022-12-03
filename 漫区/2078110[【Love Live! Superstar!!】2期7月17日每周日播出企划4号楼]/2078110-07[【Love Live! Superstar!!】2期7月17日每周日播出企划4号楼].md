@@ -8505,3 +8505,92 @@ non酱的角色音真的
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9682#       发表于 2022-12-3 16:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是 收尾真就只给个正中间画面啊
+
+*****
+
+####  iuhehc  
+##### 9683#       发表于 2022-12-3 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58742926&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-3 16:41</a>
+不是 收尾真就只给个正中间画面啊</blockquote>
+我也刚想吐嘈 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 也不是个人c曲啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  iuhehc  
+##### 9684#       发表于 2022-12-3 16:43
+
+还以为那边现场能出声了 原来还不行么
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 9685#       发表于 2022-12-3 16:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">边上的几个一人半边脸给我整乐了
+
+*****
+
+####  player3960  
+##### 9686#       发表于 2022-12-3 16:43
+
+又要开始导播修行了，等慢慢优化吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 9687#       发表于 2022-12-3 16:44
+
+导播去死
+
+*****
+
+####  Earendil_C  
+##### 9688#       发表于 2022-12-3 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼疯狂被挡镜头
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 9689#       发表于 2022-12-3 16:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">pay子
+
+*****
+
+####  ViyViy  
+##### 9690#       发表于 2022-12-3 16:46
+
+想出声等西武吧，毕竟各方预测西武寄中寄上座很惨，现在出声都成上座不行的遮羞布了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  starring  
+##### 9691#       发表于 2022-12-3 16:46
+
+鱼佩互抢镜头还行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 9692#       发表于 2022-12-3 16:48
+
+早该抢抢了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
