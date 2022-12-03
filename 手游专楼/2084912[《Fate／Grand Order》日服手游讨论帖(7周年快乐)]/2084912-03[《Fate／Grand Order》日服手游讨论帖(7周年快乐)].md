@@ -8086,3 +8086,14 @@ over
 
 是吧，所罗门/盖提亚。
 
+
+
+*****
+
+####  khxooo  
+##### 3731#       发表于 2022-12-3 10:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58737272&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-3 09:47</a>
+因为2.6相关从者在2.6刷free本有30%的羁绊提升，顺便又送了茶壶，于是研究了一下现在要不要喝茶刷羁绊。[f: ...</blockquote>
+就算是柱子，大蜘蛛或者所长机会更大一点吧
+

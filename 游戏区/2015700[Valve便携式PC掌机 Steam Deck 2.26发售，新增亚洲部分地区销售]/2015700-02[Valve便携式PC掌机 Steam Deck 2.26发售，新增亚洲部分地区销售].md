@@ -255,3 +255,17 @@ win10和11的话可以装wsl，然后挂载，win10和11可以通过这个方式
 
 终于全部折腾好了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">玩起来感觉还是很不错的，mangohud折腾老半天，最后完全关机重启了之后就能用了，就是不知道为什么模拟器只能用ryujinx不能用yuzu，可能是装的ea版不对？
 
+
+
+*****
+
+####  Fuero  
+##### 1957#       发表于 2022-12-3 10:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58733060&amp;ptid=2015700" target="_blank">LMBS 发表于 2022-12-2 23:48</a>
+
+好奇怪，之前机战30还能玩的，突然就不能玩了
+
+其实重装之前就试过一次也是这样 ...</blockquote>
+试了下我机战30能玩的，proton experimental的bleeding edge分支
+
