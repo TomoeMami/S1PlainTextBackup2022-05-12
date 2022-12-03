@@ -156,3 +156,25 @@
 
 —— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  scorbian  
+##### 795#       发表于 2022-12-4 00:55
+
+这集换成龙门来劝会不会更合理一点，从经历上来说
+
+不过已经很不错了，昭和味很浓<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  a656418zz  
+##### 796#       发表于 2022-12-4 01:06
+
+看到一个说法 
+唯千夏的行为就类似是消防员救自杀的人一样，有什么事情，先活下来，再想想。后面又去陪孤寡老人算是升华了一点
+至于德凯救 就只能说是机械降神救人吧 他也不知道什么原因 救了再说
+
+—— 来自 OnePlus IN2025, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

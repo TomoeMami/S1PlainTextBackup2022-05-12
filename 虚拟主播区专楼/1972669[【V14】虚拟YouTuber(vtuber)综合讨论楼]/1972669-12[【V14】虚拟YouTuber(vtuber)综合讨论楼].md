@@ -2144,3 +2144,12 @@ TVアニメ「绊のアリル」PV第1弾／2023年放送开始！</blockquote>
 
 这PV看着就是便宜动画，洗洗睡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17823#       发表于 2022-12-4 02:33
+
+感觉，阿夏的毕业在郡看来算是恨粉行为了，虽然她本人是祝福态度（然后乘机又进行一个恨粉发言<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
