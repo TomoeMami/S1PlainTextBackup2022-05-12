@@ -10326,3 +10326,14 @@ EN04 TO BE CONTINUED</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  player3960  
+##### 9888#       发表于 2022-12-3 19:52
+
+这几天敏感时间，估计鲤鱼都不会往国内发返图和感想了吧，推上应该会发吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
