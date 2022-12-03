@@ -10430,3 +10430,16 @@ EN04 TO BE CONTINUED</blockquote>
 
 9人的1st 明年是12人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 9898#       发表于 2022-12-3 23:57
+
+以前：鲨鱼林开口跪
+现在：鲨鱼林开口跪
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
