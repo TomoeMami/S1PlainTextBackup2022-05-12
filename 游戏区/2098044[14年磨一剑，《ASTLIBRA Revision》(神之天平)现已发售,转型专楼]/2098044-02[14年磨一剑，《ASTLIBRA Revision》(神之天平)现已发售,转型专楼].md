@@ -15836,3 +15836,19 @@ EX关卡 女神ベアトリーチェ
 
 没记错的话，和小鬼在雪山过2人世界时他就提到他有“很多朋友”因为天平消失了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  urvark  
+##### 2864#       发表于 2022-12-3 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58732716&amp;ptid=2098044" target="_blank">smileboom 发表于 2022-12-2 23:35</a>
+
+刚才打魔怔了，硬要近战打，调整了一下思路就打过去了
+
+毒雨那买满99个箭，用法杖+弩放风筝慢慢射就 ...</blockquote>
+近战也是可以打的，我就是近战打过去的，这种大场地的竞技场战斗都是一个思路，开局先冲到一侧，然后一个个清，那两只大飞龙你靠近打的话它们就一招扇翅膀，闪避或者盾挡都行
+
+你已经很强了，那些怪打我都是一下秒，我干脆带狂暴3倍伤害魂斗罗打的。后面几章还有更恶心的竞技场，一定要学会跑开然后分批击破，开局被夹在中间死路一条
+
