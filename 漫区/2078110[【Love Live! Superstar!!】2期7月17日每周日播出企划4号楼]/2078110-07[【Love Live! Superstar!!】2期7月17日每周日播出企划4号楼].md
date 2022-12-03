@@ -10218,3 +10218,85 @@ day1从堇C改堇夏双C？
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lj205  
+##### 9883#       发表于 2022-12-3 19:37
+
+我就觉得9个人还是很乱，各种乱，而且明显2期生镜头给足
+
+*****
+
+####  Kfly  
+##### 9884#       发表于 2022-12-3 19:39
+
+ 本帖最后由 Kfly 于 2022-12-3 19:41 编辑 
+<blockquote><strong>歌单</strong>：
+
+1 WE WILL!!
+
+2 スター宣言
+
+MC①
+
+3 Welcome to 仆らのセカイ
+
+4 Butterfly Wing
+
+5 Go!! リスタート
+
+6 パレードはいつも（メイ・四季 Ver.）
+
+7 迷宫讃歌（恋・夏美 Ver.）
+
+8 Dreamer Coaster（かのん・きな子 Ver.）
+
+9 ビタミンSUMMER！
+
+10 POP TALKING
+
+11 ユートピアマジック
+
+12 Chance Day, Chance Way！
+
+MC②
+
+13 揺らぐわ
+
+14 色づいて透明
+
+15 エーデルシュタイン
+
+16 Sing！Shine！Smile！
+
+17 名前呼びあうように
+
+18 私のSymphony
+
+オーケストラアレンジ・9人Ver.
+
+19 未来の音が聴こえる
+
+MC③
+
+20 追いかける梦の先で
+
+EN01 水しぶきのサイン
+
+EN02 Dancing Heart La-Pa-Pa-Pa!（9人Ver.）
+
+EN03 Day1（9人Ver.）
+
+MC④
+
+EN04 TO BE CONTINUED</blockquote>
+
+*****
+
+####  长日留痕  
+##### 9885#       发表于 2022-12-3 19:41
+
+导播仍然是养成系。
+
