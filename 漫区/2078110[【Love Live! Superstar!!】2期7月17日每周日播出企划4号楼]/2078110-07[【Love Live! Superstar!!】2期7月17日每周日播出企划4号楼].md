@@ -10300,3 +10300,29 @@ EN04 TO BE CONTINUED</blockquote>
 
 导播仍然是养成系。
 
+
+
+*****
+
+####  Kfly  
+##### 9886#       发表于 2022-12-3 19:44
+
+<img src="https://img.saraba1st.com/forum/202212/03/194420dt804r1m2v8ao0tv.jpg" referrerpolicy="no-referrer">
+
+<strong>FjDNWOuaYAApRiw.jpg</strong> (227.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-3 19:44 上传
+
+*****
+
+####  ads147147  
+##### 9887#       发表于 2022-12-3 19:47
+
+结那这个渐变裤袜和后面的蝴蝶黑丝，配上腿精真的很棒，就是为啥羽毛变成了这个蓝色圆片（动画也有，只是没那么大，因为有个长摆羽毛压比例。。这服装设计的。。
+
+还有切镜头这事，这次的导播依然不行。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
