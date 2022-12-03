@@ -160,3 +160,13 @@
 我觉得这游戏不火的原因也在于抽卡太粪了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 哪来每次都要抽到井的石油王，遭不住
 
+
+
+*****
+
+####  startea15  
+##### 169#       发表于 2022-12-3 08:33
+
+哇这个雾岛ex，要不是我全带4张main的回血礼装还真有可能打不到三星，会给你上盾腐蚀和浸蚀，突出一个很快就把你盾和血条烧光
+相对来说这活动冬季杯还好打点，虽然我一张gear的ur都没，只能靠活动加奈80加另外三张60ssr手操过最后一战，前面都能auto就是了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
