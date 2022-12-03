@@ -9795,3 +9795,30 @@ nako这个发型难得
 
 安可会用哪首五人曲来给大家带来惊吓呢
 
+
+
+*****
+
+####  ViyViy  
+##### 9835#       发表于 2022-12-3 18:42
+
+刚刚推有个吐槽VN唱的时候拿可可色的棒当VN应援？我没注意，真的？<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 9836#       发表于 2022-12-3 18:43
+
+ 本帖最后由 iuhehc 于 2022-12-3 18:44 编辑 
+
+反正别是始空
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ViyViy  
+##### 9837#       发表于 2022-12-3 18:49
+
+啊？还有这种坐牢环节？动画鉴赏？之前一期老五人有吗，噢老无人不需要，一期前三集唯一白月光了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
