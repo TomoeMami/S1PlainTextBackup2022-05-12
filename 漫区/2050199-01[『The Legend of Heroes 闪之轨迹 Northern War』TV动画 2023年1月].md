@@ -1076,3 +1076,12 @@ DMM TV
 地上波先行配信！</blockquote>
 撞谁都无所谓，这片子除了轨迹粉真有路人会去看吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ciokex  
+##### 101#       发表于 2022-12-4 23:44
+
+看了pv2，感觉主要是色指不行，原创人物都显得非常廉价，老人物和3d部分观感还都可以。
+
