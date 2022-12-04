@@ -8175,3 +8175,17 @@ over
 
 为什么非得拖到年底的年底才肯放出来啊，有病
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 3739#       发表于 2022-12-4 20:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58766279&amp;ptid=2084912" target="_blank">ddr 发表于 2022-12-4 20:44</a>
+
+为什么非得拖到年底的年底才肯放出来啊，有病</blockquote>
+要不就是没做完，在赶工
+
+要不就是做完了，但是要按照计划放出，延长游戏生命周期<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
