@@ -8136,3 +8136,21 @@ over
 
 不想长线，刷个大腿打狗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 3735#       发表于 2022-12-4 20:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">出PV了
+
+*****
+
+####  黑上シグマ  
+##### 3736#       发表于 2022-12-4 20:23
+
+出了个预告PV
+
+之前蘑菇在那儿“2.7将会是个单纯明快的冒险谭”…………我信你个球
+
