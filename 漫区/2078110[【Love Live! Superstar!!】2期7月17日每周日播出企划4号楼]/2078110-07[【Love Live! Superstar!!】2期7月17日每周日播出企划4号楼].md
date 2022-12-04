@@ -11401,3 +11401,12 @@ day2还是不错，看点还蛮多的，下一场要等到1月7号了，不过�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9951#       发表于 2022-12-5 00:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一共也没听过几次 长走了也不知道辣
+
