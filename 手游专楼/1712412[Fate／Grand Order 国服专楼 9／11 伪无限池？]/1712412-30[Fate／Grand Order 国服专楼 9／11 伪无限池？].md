@@ -1728,3 +1728,19 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 不亏是最容易搞定的女人</blockquote>
 黑贞真的是一路从地狱组中杀出来的，最佳老婆这名号当之无愧。
 
+
+
+*****
+
+####  dawning  
+##### 43793#       发表于 2022-12-4 22:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58767888&amp;ptid=1712412" target="_blank">khxooo 发表于 2022-12-4 22:04</a>
+
+黑贞真的是一路从地狱组中&amp;# ...</blockquote>
+之前没怎么关注，今天看了下一路的对手，学妹，bx，总司，艾蕾，伽摩，
+
+这什么魔鬼赛程<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+
+黑贞这是真的强<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
