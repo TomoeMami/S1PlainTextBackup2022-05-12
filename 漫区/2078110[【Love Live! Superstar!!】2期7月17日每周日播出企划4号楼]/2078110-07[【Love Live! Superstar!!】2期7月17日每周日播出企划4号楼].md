@@ -10443,3 +10443,14 @@ EN04 TO BE CONTINUED</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ViyViy  
+##### 9899#       发表于 2022-12-4 09:32
+
+看贝比volg的吐槽，大早上前头就两位数的人儿呢还限购的排到他了基本啥都没了，按前面都是限购上限的算，同一种商品一天的备货有两百吗，你这是第一场啊。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一切要从那拉跨的动画开始说起
+
+我只能认为运营想着能靠这种限定小周边的饥饿营销吸引到几个多跑几场是几场勒？
+
