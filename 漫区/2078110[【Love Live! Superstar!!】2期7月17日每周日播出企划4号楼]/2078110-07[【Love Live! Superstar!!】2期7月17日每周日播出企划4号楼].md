@@ -10518,3 +10518,51 @@ EN04 TO BE CONTINUED</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么快？
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9906#       发表于 2022-12-4 15:46
+
+换车play
+
+*****
+
+####  Kfly  
+##### 9907#       发表于 2022-12-4 15:47
+
+歪特老师： OMG this is so cute（指可堇）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 9908#       发表于 2022-12-4 15:48
+
+这赛车现场甚至还有对话互动……
+
+*****
+
+####  愛さ実  
+##### 9909#       发表于 2022-12-4 15:49
+
+赛车现场喷垃圾话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  稀勢のささ  
+##### 9910#       发表于 2022-12-4 15:51
+
+后面应该就是重复昨天的内容了吧  躺好等MC了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 9911#       发表于 2022-12-4 15:51
+
+碰碰车还带猜拳的，有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
