@@ -473,3 +473,14 @@ xgp似乎没有推送补丁啊，看版本还是12月1号的，所以xgp和steam
 
 附身有时候真不是故意开的，我有两次听到了找半天结果一脚踩上了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cortexiv  
+##### 155#       发表于 2022-12-4 22:30
+
+xgp每次启动都得更新失败重试两三下进
+
+本来还忍着玩得津津有味，昨天十来把一点问题没有今天调了调显示设置崩了三次了，白干二十分钟一分钱拿不到太难受了，等一个月算了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
