@@ -1178,3 +1178,14 @@ GEAR齐了，也打封锁试了下
 金字塔：听说你要坐的女演员？</blockquote>
 游戏里建模啊……外面怎么画很自由……
 
+
+
+*****
+
+####  Rincewind  
+##### 106#       发表于 2022-12-4 08:12
+
+[http://weibo.com/3739104131/MhWFy58eq](http://weibo.com/3739104131/MhWFy58eq)
+
+Dirty Pair联动访谈翻译
+
