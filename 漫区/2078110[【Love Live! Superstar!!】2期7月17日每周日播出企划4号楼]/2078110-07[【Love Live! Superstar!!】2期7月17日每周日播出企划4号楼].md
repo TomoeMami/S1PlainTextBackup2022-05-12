@@ -11072,3 +11072,14 @@ EN04 《TO BE CONTINUED》</blockquote>
 草听说鲤鱼没单人花篮倒是有几个可香合鲤花篮</blockquote>
 昨天推上的返图看到每个人都有单人花篮
 
+
+
+*****
+
+####  lj205  
+##### 9940#       发表于 2022-12-4 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58764078&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-4 19:12</a>
+昨天推上的返图看到每个人都有单人花篮</blockquote>
+哎，那就好，估计说的那个人没看全
+
