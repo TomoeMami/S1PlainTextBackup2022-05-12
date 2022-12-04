@@ -1714,3 +1714,17 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  khxooo  
+##### 43792#       发表于 2022-12-4 22:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58767127&amp;ptid=1712412" target="_blank">dawning 发表于 2022-12-4 21:24</a>
+
+盟战黑贞赢了，
+
+不亏是最容易搞定的女人</blockquote>
+黑贞真的是一路从地狱组中杀出来的，最佳老婆这名号当之无愧。
+
