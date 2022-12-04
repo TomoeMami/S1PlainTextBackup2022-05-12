@@ -3994,3 +3994,15 @@ bug，存档重读，之前遇到过
 
 崽有一招从天而降，花了我750经验，学习后死活用不出来？为什么，三角三角三角三角圈圈圈，怎么按怎么没有
 
+
+
+*****
+
+####  一个过路的  
+##### 1861#       发表于 2022-12-4 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58658714&amp;ptid=2025548" target="_blank">jokertx 发表于 2022-11-28 11:40</a>
+
+5的输出性能和花样比4好的太多了，虽然有很多build看起来很像rpg，但整个战斗设计思路是回归经典老派act的 ...</blockquote>
+前作符文有起手无敌这个说法有出处吗？
+
