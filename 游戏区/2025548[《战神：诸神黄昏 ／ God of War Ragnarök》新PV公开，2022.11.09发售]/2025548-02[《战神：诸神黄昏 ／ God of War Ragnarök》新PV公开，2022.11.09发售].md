@@ -4068,3 +4068,15 @@ bug，存档重读，之前遇到过
 竖着丢出来的左右躲就行了，横着弧线过来的我前后左右都被 ...</blockquote>
 有个护符加闪避距离，试试
 
+
+
+*****
+
+####  windlikeman  
+##### 1867#       发表于 2022-12-4 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58686604&amp;ptid=2025548" target="_blank">伏矢 发表于 2022-11-30 09:20</a>
+
+通关后回老家拿到的儿子旅途纪念品能在背包里找到吗？还是要去哪看？不会就多两句对话就完事了吧 ...</blockquote>
+菜单里会追加儿子的笔记（小作文）
+
