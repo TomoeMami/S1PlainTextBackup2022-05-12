@@ -11005,3 +11005,59 @@ twi: _CelticWhite_
 由手机上传
 2022-12-4 18:27 上传
 
+
+
+*****
+
+####  Kfly  
+##### 9938#       发表于 2022-12-4 18:37
+
+<strong>歌单：</strong> <blockquote>01 《WE WILL!!》
+
+02 《スター宣言》
+
+03 《Welcome to 仆らのセカイ》
+
+04 《Butterfly Wing》
+
+05 《Go!! リスタート》
+
+06 《プライム・アドベンチャー》(メイ・四季・夏美 Ver.)
+
+07 《エンドレスサーキット》(可可・すみれ Ver.)
+
+08 《駆けるメリーゴーランド》(かのん・千砂都 Ver.)
+
+09 《ビタミンSUMMER！》
+
+10 《POP TALKING》
+
+11 《ユートピアマジック》
+
+12 《Chance Day, Chance Way！》
+
+13 《揺らぐわ》
+
+14 《色づいて透明》
+
+15 《エーデルシュタイン》
+
+16 《Sing！Shine！Smile！》
+
+17 《名前呼びあうように》
+
+18 《私のSymphony》(9人Ver.)
+
+19 《未来の音が聴こえる》
+
+20 《追いかける梦の先で》
+<strong>安可</strong>
+
+EN01 《水しぶきのサイン》
+
+EN02 《Dreaming Energy》(9人Ver.)
+
+EN03 《Day1》(9人Ver.)
+
+EN04 《TO BE CONTINUED》</blockquote>
+
