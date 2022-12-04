@@ -4098,3 +4098,15 @@ bug，存档重读，之前遇到过
 
 打算玩下老战神恢复一下对这个系列的印象，PS5上居然没有1和2吗，明明我以前还买过PSV版的
 
+
+
+*****
+
+####  percy1234  
+##### 1870#       发表于 2022-12-5 03:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58770922&amp;ptid=2025548" target="_blank">霸王向小受 发表于 2022-12-5 00:11</a>
+打算玩下老战神恢复一下对这个系列的印象，PS5上居然没有1和2吗，明明我以前还买过PSV版的 ...</blockquote>
+ps4、5上想玩1和2只能外服用串流玩了。
+不过比较蛋疼的是我日服号进去发现只有日语配音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
