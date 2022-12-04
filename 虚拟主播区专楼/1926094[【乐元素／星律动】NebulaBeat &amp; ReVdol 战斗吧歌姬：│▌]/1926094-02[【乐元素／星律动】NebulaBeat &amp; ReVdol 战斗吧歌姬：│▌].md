@@ -11922,3 +11922,14 @@ bgm：双喜
 看到露米投稿霞光 准备复习下大小姐版本 没想到就有人剪了
 [https://www.bilibili.com/video/BV14W4y177Cc](https://www.bilibili.com/video/BV14W4y177Cc)
 
+
+
+*****
+
+####  ladiesman802  
+##### 2747#       发表于 2022-12-5 00:16
+
+笑死，卡姐新投稿怎么回事？
+
+真的鸭觉得好没面子
+
