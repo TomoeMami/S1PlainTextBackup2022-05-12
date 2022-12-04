@@ -11083,3 +11083,14 @@ EN04 《TO BE CONTINUED》</blockquote>
 昨天推上的返图看到每个人都有单人花篮</blockquote>
 哎，那就好，估计说的那个人没看全
 
+
+
+*****
+
+####  player3960  
+##### 9941#       发表于 2022-12-4 19:48
+
+day2还是不错，看点还蛮多的，下一场要等到1月7号了，不过过几天看看有伏牛山<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
