@@ -10474,3 +10474,20 @@ EN04 TO BE CONTINUED</blockquote>
 
 感觉现地repo反馈都不错，一方面是铁粉滤镜一方面也可能是昨天的转播质量太差了…等多几场看看大家（指liella和转播团队）的成长吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 9902#       发表于 2022-12-4 14:07
+
+<img src="https://img.saraba1st.com/forum/202212/04/140716zt9ufrw2bih8i4bt.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221204_140558.jpg</strong> (165.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-4 14:07 上传
+
+什么吃货，跟nagi pay聊吃的
+
