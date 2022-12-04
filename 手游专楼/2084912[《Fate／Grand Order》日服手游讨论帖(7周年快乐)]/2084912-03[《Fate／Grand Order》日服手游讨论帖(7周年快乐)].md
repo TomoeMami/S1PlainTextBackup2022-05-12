@@ -8189,3 +8189,14 @@ over
 
 要不就是做完了，但是要按照计划放出，延长游戏生命周期<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Blackson  
+##### 3740#       发表于 2022-12-4 21:06
+
+反正日本人磨洋工的问题在这种以新内容为驱动动力的游戏上非常要命就是了
+
+至于蘑菇说的话，只能说宣传得很美好，实际上是怎么样只能自己去体验了
+

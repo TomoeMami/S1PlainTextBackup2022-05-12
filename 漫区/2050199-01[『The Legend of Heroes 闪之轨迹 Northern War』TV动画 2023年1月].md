@@ -1044,3 +1044,19 @@ https://www.bilibili ...</blockquote>
 
 被黎轨2剧情恶心到了，闪2我都没感觉这么不适，对这个动画还挺期待的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小小的信义  
+##### 99#       发表于 2022-12-4 21:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58758958&amp;ptid=2050199" target="_blank">wyhman 发表于 2022-12-4 15:24</a>
+
+被黎轨2剧情恶心到了，闪2我都没感觉这么不适，对这个动画还挺期待的 ...</blockquote>
+闪二就是单纯的灌水而已
+
+罪不至此
+
+真的<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
