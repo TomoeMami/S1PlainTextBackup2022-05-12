@@ -1693,3 +1693,12 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 也求好友
 
+
+
+*****
+
+####  dawning  
+##### 43790#       发表于 2022-12-4 12:00
+
+去淘宝弄友情点了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
