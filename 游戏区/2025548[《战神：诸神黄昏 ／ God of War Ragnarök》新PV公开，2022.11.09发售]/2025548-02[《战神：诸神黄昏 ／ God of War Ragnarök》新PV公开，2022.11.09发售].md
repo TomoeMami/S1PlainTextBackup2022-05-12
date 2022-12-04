@@ -4045,3 +4045,26 @@ bug，存档重读，之前遇到过
 崽有一招从天而降，花了我750&amp; ...</blockquote>
 按键的时候不要推摇杆，闪避不断连招那个也需要摇杆回中，战神这个连招系统和格斗游戏很像
 
+
+
+*****
+
+####  redbuck  
+##### 1865#       发表于 2022-12-4 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58652799&amp;ptid=2025548" target="_blank">windtrack_qh 发表于 2022-11-27 23:14</a>
+不介意不介意，确实菜，得承认
+
+这代感觉倒不是打不过，就是小怪打起来太烦躁了。尤其是远程怪总在 ...</blockquote>
+单人boss无脑毒套就完了，盾牌用石墙，除了躲红圈，破蓝圈没啥注意的
+
+*****
+
+####  redbuck  
+##### 1866#       发表于 2022-12-4 17:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58685021&amp;ptid=2025548" target="_blank">Booorunestud 发表于 2022-11-30 01:23</a>
+对了，女武神王那个红光紫色飞行道具是要怎么躲
+竖着丢出来的左右躲就行了，横着弧线过来的我前后左右都被 ...</blockquote>
+有个护符加闪避距离，试试
+

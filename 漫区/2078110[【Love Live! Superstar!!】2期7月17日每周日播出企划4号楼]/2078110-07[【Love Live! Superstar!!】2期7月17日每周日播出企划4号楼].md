@@ -10720,3 +10720,29 @@ EN04 TO BE CONTINUED</blockquote>
 
 这两天的导播都什么垃圾
 
+
+
+*****
+
+####  player3960  
+##### 9925#       发表于 2022-12-4 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58760960&amp;ptid=2078110" target="_blank">lj205 发表于 2022-12-04 16:51:03</a>
+我最喜欢的鲤鱼的歌词都给剥夺了，甚至似乎只剩一句歌词，不但如此几乎没有单独镜头，真想骂人 ...</blockquote>你说的是媳妇里吧，同感，改的一坨答辩，鲤鱼那段生生搞没了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aoaoaodedede  
+##### 9926#       发表于 2022-12-4 17:20
+
+改编的歌solo part肯定要少不少，然后既要又要，只可能更少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 9927#       发表于 2022-12-4 17:22
+
+dream energy（九人Ver）
+
