@@ -11094,3 +11094,19 @@ day2还是不错，看点还蛮多的，下一场要等到1月7号了，不过�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  lj205  
+##### 9942#       发表于 2022-12-4 19:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">哇开始安排结那在打铁身边了，以后估计连前排打情骂俏都没了，还好安排在朱茵旁边
+
+*****
+
+####  csolfans  
+##### 9943#       发表于 2022-12-4 20:03
+
+今天这场有**往舞台中央扔化棒
+

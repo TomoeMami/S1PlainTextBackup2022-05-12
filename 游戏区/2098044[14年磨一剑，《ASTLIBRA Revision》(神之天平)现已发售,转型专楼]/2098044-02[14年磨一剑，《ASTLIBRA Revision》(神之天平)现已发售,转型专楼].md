@@ -16087,3 +16087,27 @@ EX关卡 女神ベアトリーチェ
 
 第五章的秤盘没拿，破关后再去就没了，是不是拿不到了
 
+
+
+*****
+
+####  shimotsuki14  
+##### 2886#       发表于 2022-12-4 19:53
+
+进新章之前以为自己没拿全武器铠甲盾牌，错过了去大贤者那里换弑神剑
+
+现在进了新章打了五六个小时了过了雪山，感觉是不是没法拿弑神剑了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Rainwedell  
+##### 2887#       发表于 2022-12-4 19:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58765107&amp;ptid=2098044" target="_blank">shimotsuki14 发表于 2022-12-4 19:53</a>
+进新章之前以为自己没拿全武器铠甲盾牌，错过了去大贤者那里换弑神剑
+
+现在进了新章打了五六个小时了过了雪 ...</blockquote>
+放心，后面都能拿的
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
