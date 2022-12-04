@@ -16111,3 +16111,14 @@ EX关卡 女神ベアトリーチェ
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  史莱姆KING  
+##### 2888#       发表于 2022-12-4 21:41
+
+奇怪了。下载了这游戏的steam上的demo
+
+但是主界面过后，选择体验版确定之后就闪退了。。。。有人遇到么。。。。
+
