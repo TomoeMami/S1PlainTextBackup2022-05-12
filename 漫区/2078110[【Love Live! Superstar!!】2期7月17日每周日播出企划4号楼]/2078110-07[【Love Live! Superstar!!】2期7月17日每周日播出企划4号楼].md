@@ -10465,3 +10465,12 @@ EN04 TO BE CONTINUED</blockquote>
 
 也不知道变的到底是MC的时长还是我的脑子
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 9901#       发表于 2022-12-4 13:18
+
+感觉现地repo反馈都不错，一方面是铁粉滤镜一方面也可能是昨天的转播质量太差了…等多几场看看大家（指liella和转播团队）的成长吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
