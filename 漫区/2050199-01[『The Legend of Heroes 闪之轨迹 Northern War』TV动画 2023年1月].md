@@ -977,3 +977,25 @@ DMM TV
 
 黎恩出境率好高，又能卖一波美强惨人设了
 
+
+
+*****
+
+####  医生狼多  
+##### 93#       发表于 2022-12-4 10:17
+
+这番到时够人气有字幕组吗(
+看在黎恩和黑兔出现份上想追追看
+
+*****
+
+####  酷乐  
+##### 94#       发表于 2022-12-4 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58754711&amp;ptid=2050199" target="_blank">医生狼多 发表于 2022-12-4 10:17</a>
+这番到时够人气有字幕组吗(
+看在黎恩和黑兔出现份上想追追看</blockquote>
+bilibili和台湾宇峻奥汀联合出资的，连PV里的日文都改简体了：
+
+[https://www.bilibili.com/bangumi/media/md28340408/](https://www.bilibili.com/bangumi/media/md28340408/)
+
