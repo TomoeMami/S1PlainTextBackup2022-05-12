@@ -1024,3 +1024,14 @@ https://www.bilibili ...</blockquote>
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  nozomitech  
+##### 97#       发表于 2022-12-4 15:10
+
+其实我很好奇这动画给新人人家能看看得懂吗？<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
