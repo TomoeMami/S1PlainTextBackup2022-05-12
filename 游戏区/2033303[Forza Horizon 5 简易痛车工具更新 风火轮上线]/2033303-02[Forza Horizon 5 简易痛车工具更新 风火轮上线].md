@@ -35,3 +35,15 @@ PG在搞什么飞机
 
 是尼玛本地右下角直接失连
 
+
+
+*****
+
+####  h20020901  
+##### 2503#       发表于 2022-12-4 10:25
+
+跑线上遇到个开挂都开不利索的
+https://b23.tv/k774DwD
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
