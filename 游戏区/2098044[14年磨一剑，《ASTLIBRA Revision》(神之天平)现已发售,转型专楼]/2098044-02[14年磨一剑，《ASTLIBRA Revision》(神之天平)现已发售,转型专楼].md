@@ -16018,3 +16018,16 @@ EX关卡 女神ベアトリーチェ
 
 你没好武器的话，第五章隐藏BOSS不就有神枪和强力盾牌，这两个我一直用到通关，非常好用……
 
+
+
+*****
+
+####  瓦米里奥  
+##### 2880#       发表于 2022-12-4 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58756755&amp;ptid=2098044" target="_blank">urvark 发表于 2022-12-4 12:50</a>
+传武礼剑是啥？没这东西啊？你说的是第五章的那个克里斯马德礼剑？那个要巧克力派
+
+你没好武器的话，第五 ...</blockquote>
+对的，我猜多半也是新增的食材巧克力加其他食材合成
+
