@@ -464,3 +464,12 @@ xgp似乎没有推送补丁啊，看版本还是12月1号的，所以xgp和steam
 倒数第二简单的难度散人局，被打爆</blockquote>
 只要有个手欠的招惹恶魔附身者，那被打爆也是日常了（）
 
+
+
+*****
+
+####  xgazer  
+##### 154#       发表于 2022-12-4 16:14
+
+附身有时候真不是故意开的，我有两次听到了找半天结果一脚踩上了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
