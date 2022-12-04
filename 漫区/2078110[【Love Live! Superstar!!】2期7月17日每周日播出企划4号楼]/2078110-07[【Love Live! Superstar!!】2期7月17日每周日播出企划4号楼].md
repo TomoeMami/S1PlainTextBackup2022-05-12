@@ -10454,3 +10454,14 @@ EN04 TO BE CONTINUED</blockquote>
 
 我只能认为运营想着能靠这种限定小周边的饥饿营销吸引到几个多跑几场是几场勒？
 
+
+
+*****
+
+####  稀勢のささ  
+##### 9900#       发表于 2022-12-4 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今早起来脑子里回味了下，明明是9人的1st但总感觉差了点啥，テンション不够？
+
+也不知道变的到底是MC的时长还是我的脑子
+
