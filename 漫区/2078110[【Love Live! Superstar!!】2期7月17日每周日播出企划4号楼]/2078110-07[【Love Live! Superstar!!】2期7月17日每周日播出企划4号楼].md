@@ -11252,3 +11252,44 @@ day2还是不错，看点还蛮多的，下一场要等到1月7号了，不过�
 由手机上传
 2022-12-4 20:05 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 9945#       发表于 2022-12-4 20:17
+
+<img src="https://img.saraba1st.com/forum/202212/04/201717ozx1juwu3wmfmaux.png" referrerpolicy="no-referrer">
+
+<strong>DD4FBCA4-A17B-4352-8D8B-80DE6C045F25.png</strong> (429.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202212/04/201717yxoocvxu20f5av6a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>AFF6D6BD-27F3-48CE-95A5-CF5084ED6F2E.jpeg</strong> (900.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 20:17 上传
+
+<img src="https://img.saraba1st.com/forum/202212/04/201717uzawnzwuckhadouz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>11655221-52B6-490D-B9B8-3C8E849417E0.jpeg</strong> (594.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 20:17 上传
+
+*****
+
+####  starring  
+##### 9946#       发表于 2022-12-4 20:20
+
+原来今天结那唱butterfly wing稍微翻车了，两处都是tamashi后漏气没唱上去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
