@@ -11320,3 +11320,73 @@ day2还是不错，看点还蛮多的，下一场要等到1月7号了，不过�
 
 今天起码A段在调上了，但是还是不会发假音，每个都唱疵了
 
+
+
+*****
+
+####  仟音一心  
+##### 9949#       发表于 2022-12-4 23:32
+
+<img src="https://img.saraba1st.com/forum/202212/04/233221uwfeee4mtulo5wel.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9957ECC8-5154-4CAA-9639-AB0DE8B283E6.jpeg</strong> (379.53 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202212/04/233221xtt016bt6416d1t4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E93C9004-8899-41FB-A5DA-7830C0D71729.jpeg</strong> (769.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202212/04/233234dz58jj72e808778x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>30B5BAFE-B7EE-4F5E-B664-897447164641.jpeg</strong> (389.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202212/04/233234nqbzhxbbdfqhdbyy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BE9084B9-21C7-4FB8-9808-4D2F4933BB94.jpeg</strong> (407.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202212/04/233245ksigqmiri3cvsi5b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>890C0EBB-07A3-4A98-AB56-5E64926C54AE.jpeg</strong> (297.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202212/04/233245lq6a61si614vff1u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>329EEE91-94E4-4330-B5A3-EE198B3B1878.jpeg</strong> (299.36 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 23:32 上传
+
+<img src="https://img.saraba1st.com/forum/202212/04/233254ql9zq298lwlz22sw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>106BA09E-4922-47DA-B817-A40534C99135.jpeg</strong> (378.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 23:32 上传
+
