@@ -8154,3 +8154,24 @@ over
 
 之前蘑菇在那儿“2.7将会是个单纯明快的冒险谭”…………我信你个球
 
+
+
+*****
+
+####  khxooo  
+##### 3737#       发表于 2022-12-4 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58765751&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-12-4 20:23</a>
+
+出了个预告PV
+
+之前蘑菇在那儿“2.7将会是个单纯明快的冒险谭”…………我信你个球 ...</blockquote>
+"2.6是充满爱的故事"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddr  
+##### 3738#       发表于 2022-12-4 20:44
+
+为什么非得拖到年底的年底才肯放出来啊，有病
+
