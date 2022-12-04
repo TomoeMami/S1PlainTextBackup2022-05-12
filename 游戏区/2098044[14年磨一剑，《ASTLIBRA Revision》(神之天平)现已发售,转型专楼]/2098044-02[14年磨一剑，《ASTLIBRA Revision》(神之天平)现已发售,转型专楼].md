@@ -16078,3 +16078,12 @@ EX关卡 女神ベアトリーチェ
 
 鸟哥没卡奥斯那股子痞劲，爱看书那印象就差更远了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我一直是脑补的是摩尔加纳的声
 
+
+
+*****
+
+####  DarkSider  
+##### 2885#       发表于 2022-12-4 19:38
+
+第五章的秤盘没拿，破关后再去就没了，是不是拿不到了
+
