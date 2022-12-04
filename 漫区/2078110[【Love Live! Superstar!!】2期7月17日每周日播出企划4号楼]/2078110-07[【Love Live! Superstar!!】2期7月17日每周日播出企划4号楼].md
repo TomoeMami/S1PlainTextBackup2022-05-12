@@ -10928,3 +10928,24 @@ dream energy（九人Ver）
 草听说鲤鱼没单人花篮倒是有几个可香合鲤花篮</blockquote>
 不够时间，得下星期
 
+
+
+*****
+
+####  lj205  
+##### 9935#       发表于 2022-12-4 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58762735&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-12-4 18:08</a>
+不够时间，得下星期</blockquote>
+听说合理花篮反而有几个，这打铁家人看到了会不会啥想法<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 9936#       发表于 2022-12-4 18:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58762890&amp;ptid=2078110" target="_blank">lj205 发表于 2022-12-4 18:15</a>
+
+听说合理花篮反而有几个，这打铁家人看到了会不会啥想法</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没事，之前一巡宫城day2已经见识过了
+
