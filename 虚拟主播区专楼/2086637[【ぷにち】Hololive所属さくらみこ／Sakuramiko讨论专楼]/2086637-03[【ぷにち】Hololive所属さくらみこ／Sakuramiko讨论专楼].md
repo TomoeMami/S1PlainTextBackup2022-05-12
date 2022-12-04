@@ -3415,3 +3415,14 @@ IQ test！？
 
 那真的……会很有趣
 
+
+
+*****
+
+####  rs5621  
+##### 3324#       发表于 2022-12-4 22:55
+
+这个好玩，赶紧安排日程吧
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
