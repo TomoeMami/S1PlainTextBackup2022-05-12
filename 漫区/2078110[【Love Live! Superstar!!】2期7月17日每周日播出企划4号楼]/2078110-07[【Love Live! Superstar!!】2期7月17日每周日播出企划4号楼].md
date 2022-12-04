@@ -11293,3 +11293,19 @@ day2还是不错，看点还蛮多的，下一场要等到1月7号了，不过�
 
 原来今天结那唱butterfly wing稍微翻车了，两处都是tamashi后漏气没唱上去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 9947#       发表于 2022-12-4 20:37
+
+<img src="https://img.saraba1st.com/forum/202212/04/203719a6g1a788zpssbvbg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>BD47126A-49BF-4DAE-82D1-B9D0F3800E8F.jpeg</strong> (340.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-4 20:37 上传
+
