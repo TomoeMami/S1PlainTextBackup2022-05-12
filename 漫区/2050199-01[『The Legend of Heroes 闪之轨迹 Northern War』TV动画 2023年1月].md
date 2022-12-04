@@ -1013,3 +1013,14 @@ https://www.bilibili ...</blockquote>
 那就好
 扫了眼一月番，这个差不多是最感兴趣的……
 
+
+
+*****
+
+####  風卷豹  
+##### 96#       发表于 2022-12-4 13:07
+
+手游这动画四人组的图不是挺好的，动画怎么会做成人均马脸<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
