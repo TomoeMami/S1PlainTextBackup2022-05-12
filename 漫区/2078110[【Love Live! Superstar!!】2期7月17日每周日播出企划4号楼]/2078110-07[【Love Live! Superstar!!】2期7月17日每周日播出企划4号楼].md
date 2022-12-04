@@ -11061,3 +11061,14 @@ EN03 《Day1》(9人Ver.)
 
 EN04 《TO BE CONTINUED》</blockquote>
 
+
+
+*****
+
+####  starring  
+##### 9939#       发表于 2022-12-4 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58762513&amp;ptid=2078110" target="_blank">lj205 发表于 2022-12-4 17:59</a>
+草听说鲤鱼没单人花篮倒是有几个可香合鲤花篮</blockquote>
+昨天推上的返图看到每个人都有单人花篮
+
