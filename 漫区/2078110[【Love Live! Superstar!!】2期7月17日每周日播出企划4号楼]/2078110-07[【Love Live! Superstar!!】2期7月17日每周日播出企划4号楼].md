@@ -10631,3 +10631,74 @@ EN04 TO BE CONTINUED</blockquote>
 
 2022-12-4 16:16 上传
 
+
+
+*****
+
+####  ruffian  
+##### 9915#       发表于 2022-12-4 16:25
+
+心情复杂啊……每次视线离开可堇鲤p都会因为懂得都懂的原因把这两对列入雷区，但每次看到这些又会忍不住悸动起来，然后再次被某些……懂得都懂的东西恶心到。每次都是这样，记吃不记打……我摊牌了昨天和今天我又对着她俩悸动了，这该死的满足感，谁来救救我<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 9916#       发表于 2022-12-4 16:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">答案是切割
+
+*****
+
+####  ads147147  
+##### 9917#       发表于 2022-12-4 16:29
+
+学会合理切割，虹连as都切了，为毛不能切动画呢。而且也不用你全切了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  player3960  
+##### 9918#       发表于 2022-12-4 16:29
+
+当个单推人，这样你推贴谁都无所谓，甚至爽到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 9919#       发表于 2022-12-4 16:41
+
+动画早切割了，给我干破防的是某些魔怔人……不过我自己也没好到哪去()正磕着糖突然蹦出来一句暴言，好心情瞬间没了血压拉满。目前只有磕可堇鲤p时遇见过这种情况……可堇鲤p，我的毒品……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 9920#       发表于 2022-12-4 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58760760&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-4 16:41</a>
+
+动画早切割了，给我干破防的是某些魔怔人……不过我自己也没好到哪去()正磕着糖突然蹦出来一句暴言，好心情 ...</blockquote>
+某些魔怔的都是厕所人居多，连看的价值都没有
+
+而且鲤鱼喜欢贴谁哪轮得到厕所人指点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 9921#       发表于 2022-12-4 16:50
+
+一期那些特典曲是不是要4th唱了
+
+*****
+
+####  lj205  
+##### 9922#       发表于 2022-12-4 16:51
+
+我最喜欢的鲤鱼的歌词都给剥夺了，甚至似乎只剩一句歌词，不但如此几乎没有单独镜头，真想骂人
+
