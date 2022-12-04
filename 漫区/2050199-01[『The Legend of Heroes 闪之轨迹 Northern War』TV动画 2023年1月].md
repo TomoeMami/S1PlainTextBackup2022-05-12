@@ -999,3 +999,17 @@ bilibili和台湾宇峻奥汀联合出资的，连PV里的日文都改简体了�
 
 [https://www.bilibili.com/bangumi/media/md28340408/](https://www.bilibili.com/bangumi/media/md28340408/)
 
+
+
+*****
+
+####  医生狼多  
+##### 95#       发表于 2022-12-4 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58754750&amp;ptid=2050199" target="_blank">酷乐 发表于 2022-12-4 10:20</a>
+bilibili和台湾宇峻奥汀联合出资，b站连PV里的日文都改简体了，应该是同步放送的：
+
+https://www.bilibili ...</blockquote>
+那就好
+扫了眼一月番，这个差不多是最感兴趣的……
+
