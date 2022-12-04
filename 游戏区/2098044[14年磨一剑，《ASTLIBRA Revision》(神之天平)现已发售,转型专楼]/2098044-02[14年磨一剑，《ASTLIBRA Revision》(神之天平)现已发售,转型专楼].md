@@ -16131,3 +16131,15 @@ EX关卡 女神ベアトリーチェ
 
 第五章打最终boss前没带红毛先在门口和小白对话，对完美结局会不会有影响？
 
+
+
+*****
+
+####  gwchobit  
+##### 2890#       发表于 2022-12-4 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58768260&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-4 22:21</a>
+
+第五章打最终boss前没带红毛先在门口和小白对话，对完美结局会不会有影响？ ...</blockquote>
+不影响。会少一些对话和爱情
+

@@ -8229,3 +8229,14 @@ over
 
 今年圣诞节还能有新活动吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 3744#       发表于 2022-12-4 23:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58769526&amp;ptid=2084912" target="_blank">廖化 发表于 2022-12-4 23:17</a>
+今年圣诞节还能有新活动吗</blockquote>
+别想了，估计就是长草一个月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
