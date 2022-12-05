@@ -8284,3 +8284,17 @@ over
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  呆毛王赛高  
+##### 3749#       发表于 2022-12-5 16:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58776674&amp;ptid=2084912" target="_blank">quanlix 发表于 2022-12-5 11:31</a>
+
+https://www.bilibili.com/video/BV1Kv4y1o7Ai
+
+盐川做的新游，特效过于瞎眼，2024上steam ...</blockquote>
+看插画不错
+

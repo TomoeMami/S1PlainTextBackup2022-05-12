@@ -1755,3 +1755,17 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 [https://game.bilibili.com/fgo/h5/news.html#detailId=11583](https://game.bilibili.com/fgo/h5/news.html#detailId=11583)
 
+
+
+*****
+
+####  呆毛王赛高  
+##### 43795#       发表于 2022-12-5 16:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58776795&amp;ptid=1712412" target="_blank">Urakawa 发表于 2022-12-5 11:37</a>
+
+停服公告出了 5号23:55～7号00:05
+
+https://game.bilibili.com/fgo/h5/news.html#detailId=11583</blockquote>
+评论区真逆天
+
