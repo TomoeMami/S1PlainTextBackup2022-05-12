@@ -117,3 +117,15 @@ win4看起来跟win3一样，把机器正面面积做得很小，但是很厚。
 
 为啥原生横屏那么难搞？我知道小批量没钱定制屏幕，而且我知道捡手机屏会是竖屏的，但是捡车机中控的屏那就是横屏的呀？
 
+
+
+*****
+
+####  bypass  
+##### 538#         楼主| 发表于 2022-12-5 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58745022&amp;ptid=2086469" target="_blank">creymorgan 发表于 2022-12-3 18:27</a>
+
+为啥原生横屏那么难搞？我知道小批量没钱定制屏幕，而且我知道捡手机屏会是竖屏的，但是捡车机中控的屏那就 ...</blockquote>
+没有质量特别好的屏幕吧我猜
+
