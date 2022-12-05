@@ -8249,3 +8249,15 @@ over
 
 圣诞一定有
 
+
+
+*****
+
+####  UNISONIA  
+##### 3746#       发表于 2022-12-5 08:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58771904&amp;ptid=2084912" target="_blank">rzxa 发表于 2022-12-5 00:51</a>
+
+圣诞一定有</blockquote>
+今年12月的学妹语音是搞月度语音以后第一年没有圣诞内容的
+
