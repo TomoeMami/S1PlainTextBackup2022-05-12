@@ -588,3 +588,15 @@ xgp每次启动都得更新失败重试两三下进
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  DLSDFY  
+##### 166#         楼主| 发表于 2022-12-5 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58780621&amp;ptid=1951151" target="_blank">BallanceHZ 发表于 2022-12-5 15:57</a>
+
+鼠疫2刚出的时候玩过一阵弃了（主要是因为服务器），问下这作推荐吗 ...</blockquote>
+我的评价是，暗潮之于鼠疫2，不如2077之于巫师3。先等肥鲨更新一年再说。
+
