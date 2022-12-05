@@ -22,3 +22,14 @@ XGP版有BUG，闪电戒指解锁不了<img src="https://static.saraba1st.com/im
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  水边井  
+##### 452#       发表于 2022-12-5 15:09
+
+看了一下全武器进阶表，那些箭头、戒指、绿圈怎么解锁的啊，我看成就列表也没有啊
+
+—— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

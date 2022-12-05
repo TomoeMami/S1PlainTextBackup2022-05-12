@@ -4404,3 +4404,15 @@ b站恶评如潮的竟然是铁森林那一节……
 因为这代符文伤害方面回报一般，所以总的来说就是上属性、打晕值、群控或吹飞杂兵、攒彩虹桥风暴这些需求 ...</blockquote>
 我故事难度，随便乱打，但是视角的确是不舒服
 
+
+
+*****
+
+####  wzh5555  
+##### 1896#       发表于 2022-12-5 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58779413&amp;ptid=2025548" target="_blank">woshenc 发表于 2022-12-5 14:41</a>
+
+我故事难度，随便乱打，但是视角的确是不舒服</blockquote>
+故事难度就无所谓了，符文搭配几个伤害最高的，莽就是了
+

@@ -1432,3 +1432,14 @@ BETA残骸是一堆骨肉，很快会腐烂，以人类的技术无法回收；�
 
 人类捕获的巢穴只有阿萨巴斯卡降落单元和横滨。目前已知回收到能用的东西是G元素和横滨反应炉。
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2119#       发表于 2022-12-5 15:09
+
+[声优感想（游戏版）](https://www.bilibili.com/video/BV1Ct411R7nu)
+
+香月夕呼和社霞声优的本音竟然差了这么远<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
