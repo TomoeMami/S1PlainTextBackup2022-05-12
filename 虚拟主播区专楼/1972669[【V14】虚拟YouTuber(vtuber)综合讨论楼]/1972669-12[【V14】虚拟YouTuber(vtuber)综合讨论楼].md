@@ -2315,3 +2315,22 @@ vspo这天天ark宝可梦的，看不下去了
 
 等到ark2进攻的时候, 一切都会好起来的
 
+
+
+*****
+
+####  Suzutsuki  
+##### 17838#       发表于 2022-12-5 19:03
+
+宝可梦刚开那几天我看みみたや、67和ひなーの的直播看着还行，最近几天属实不太行。ark的话是真难看，一秒都看不下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  FCCHua  
+##### 17839#       发表于 2022-12-5 19:05
+
+ 本帖最后由 FCCHua 于 2022-12-5 19:09 编辑 
+
+我前几天看rrm的ark同接有1.5万，很难不播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+vspo最近打枪的确实不多，有比赛的话还可能会提前动一动，不过像hnn这种连续经历两次cr杯的确实该歇歇了，今年还会玩fps游戏就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

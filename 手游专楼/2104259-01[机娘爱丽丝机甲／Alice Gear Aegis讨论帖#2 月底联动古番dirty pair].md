@@ -1207,3 +1207,14 @@ Dirty Pair联动访谈翻译
 
 这下再也没人可以说阿嘎不是3D STG了 (
 
+
+
+*****
+
+####  Rincewind  
+##### 109#       发表于 2022-12-5 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58740663&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2022-12-3 13:51</a>
+游戏里建模啊……外面怎么画很自由……</blockquote>
+不是我翻译的我就是转载不要给我加鹅<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
