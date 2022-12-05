@@ -11810,3 +11810,18 @@ twi：@_CelticWhite_
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  靡宜  
+##### 9987#       发表于 2022-12-5 18:24
+
+ 本帖最后由 靡宜 于 2022-12-5 18:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58780164&amp;ptid=2078110" target="_blank">lj205 发表于 2022-12-5 15:27</a>
+
+我是觉得两个疑问，一个是日本人完全不组织就怪。一个是为啥就群里组织，很多人没加群，我觉得超话里组织 ...</blockquote>
+霓虹金确实不清楚。群的话主要是第一次组织，没摸清路线，浩浩荡荡最后搞不定白瞎；其次，群这边就两三个人在跟进这个事，参加容易但是组织带头的事多，例如这次带头要是下次忙没法组织会各种头疼。然后人少好组织管理，都是有了解人的话，基本上人员变动不大，分摊下来的资费相对稳定。其实最终还是要发挥大家能动性，有个成功案例作为底层模板给大家参考，可以主动组织，有点类似汉化组的感觉？到底能不能成，还是得看这周的爱知场<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+另外国内的hp官方也挺友善积极的，什么活动能不能送什么东西的事也可以中文交流<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
