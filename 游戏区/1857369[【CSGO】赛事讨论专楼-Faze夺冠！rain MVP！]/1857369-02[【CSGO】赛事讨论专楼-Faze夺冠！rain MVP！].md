@@ -40,3 +40,12 @@
  陈先生现在没队吧，9和mistr真的可以优化掉了，丹麦人这么多，选择空间很大 ...</blockquote>
 彬彬不踢现在已经起飞了
 
+
+
+*****
+
+####  dev2ce  
+##### 2932#       发表于 2022-12-5 21:57
+
+所以a队今年在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，设备采访的意思打这个线上赛是要拿卡托play-in的积分
+
