@@ -515,3 +515,54 @@ xgp每次启动都得更新失败重试两三下进
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">组到过一局有2个1级新人的难度1，碰到混沌欧格林+刷小怪+网子哥翻车了
 
+
+
+*****
+
+####  415452356  
+##### 159#       发表于 2022-12-5 15:56
+
+  恶魔附身这么难打的怪打死之后会有特殊奖励吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  BallanceHZ  
+##### 160#       发表于 2022-12-5 15:57
+
+鼠疫2刚出的时候玩过一阵弃了（主要是因为服务器），问下这作推荐吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  xgazer  
+##### 161#       发表于 2022-12-5 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58780603&amp;ptid=1951151" target="_blank">415452356 发表于 2022-12-5 15:56</a>
+恶魔附身这么难打的怪打死之后会有特殊奖励吗
+
+—— 来自 S1Fun</blockquote>
+第一次给个成就<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+*****
+
+####  415452356  
+##### 162#       发表于 2022-12-5 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58780621&amp;ptid=1951151" target="_blank">BallanceHZ 发表于 2022-12-5 15:57</a>
+鼠疫2刚出的时候玩过一阵弃了（主要是因为服务器），问下这作推荐吗 ...</blockquote>
+  目前处于重新发明轮子的阶段，多职业后面才有，服务器依旧垃圾一定要开加速器，优化在前几天的补丁之后舒服了不少但是加载问题依旧很吃硬件，不是特别想玩可以等个一年半载打折
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  415452356  
+##### 163#       发表于 2022-12-5 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58780663&amp;ptid=1951151" target="_blank">xgazer 发表于 2022-12-5 15:59</a>
+第一次给个成就</blockquote>
+  <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">无语
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

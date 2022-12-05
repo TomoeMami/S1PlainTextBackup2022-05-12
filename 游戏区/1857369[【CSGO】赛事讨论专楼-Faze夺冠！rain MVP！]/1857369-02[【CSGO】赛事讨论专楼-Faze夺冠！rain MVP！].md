@@ -17,3 +17,15 @@
 阿汤回来第一场先1.66军训lucky，合理
 什么时候有机会打farlig啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dev2ce  
+##### 2930#       发表于 2022-12-5 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58773051&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-12-5 02:06</a>
+阿汤回来第一场先1.66军训lucky，合理
+什么时候有机会打farlig啊</blockquote>
+陈先生现在没队吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，9和mistr真的可以优化掉了，丹麦人这么多，选择空间很大
+

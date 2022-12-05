@@ -11787,3 +11787,15 @@ twi：@_CelticWhite_
 
 日本人果然靠不住，想想那场景就有点尴尬，大家都有你没有，如果是我的话应该会很难受的。不过也可能是外国人的原因，小日子还是过于保守和排外了
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9985#       发表于 2022-12-5 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58780486&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-5 15:48</a>
+
+我觉得日本本地没有很大可能就是因为烂铁对鱼个活的时候说不收导致LL这边也没搞了，烂铁毕竟也是企划直接参 ...</blockquote>
+不怎么了解，烂铁啥时候说过么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，鱼的生日会也好，1st个唱也罢，都是h社主办的
+
