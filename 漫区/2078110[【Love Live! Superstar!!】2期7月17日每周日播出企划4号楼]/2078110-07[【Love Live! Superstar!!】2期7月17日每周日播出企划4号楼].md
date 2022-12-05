@@ -12047,3 +12047,30 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 2022-12-5 22:58 上传
 
+
+
+*****
+
+####  ads147147  
+##### 10005#       发表于 2022-12-5 23:55
+
+ 本帖最后由 ads147147 于 2022-12-6 00:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58786894&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-5 22:59</a>
+成长了，各方面都是</blockquote>
+其实也就是正常东亚水准啦<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+说起来怎么还有那么多人对vn不是三期生或者不入Liella抱有幻想，甚至拿出九上绝对数这种注定打脸的话来论证的。猜猜看为什么作为solo出演的结那为什么要跟大部队一起训练啊w
+
+说起来代孙自己就是最清楚九人体制带来成功这种话就是笑话的吧。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 10006#       发表于 2022-12-5 23:56
+
+才发现万楼了，庆贺拍手
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
