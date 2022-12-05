@@ -506,3 +506,12 @@ xgp每次启动都得更新失败重试两三下进
 
 还是灵能适合我，拿把闪电杖后面混就完事儿了，啥东西也不用抢，就突出个闲庭信步、真男人从不回头看捏头<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aestivalls  
+##### 158#       发表于 2022-12-5 14:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">组到过一局有2个1级新人的难度1，碰到混沌欧格林+刷小怪+网子哥翻车了
+
