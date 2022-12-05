@@ -4577,3 +4577,32 @@ bug取消符文有详细介绍吗？怎么操作</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 [https://www.bilibili.com/video/BV1524y1y7hE](https://www.bilibili.com/video/BV1524y1y7hE)
 
+
+
+*****
+
+####  wzh5555  
+##### 1910#       发表于 2022-12-5 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58782371&amp;ptid=2025548" target="_blank">focus 发表于 2022-12-5 17:36</a>
+
+bug取消符文有详细介绍吗？怎么操作</blockquote>
+就是楼上贴的，老汉登脚取消<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+稍微正常一点的应用大概是这样的
+[www.bilibili.com/video/BV1eD4y1s72N](http://www.bilibili.com/video/BV1eD4y1s72N)
+
+*****
+
+####  gary76  
+##### 1911#       发表于 2022-12-5 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58781985&amp;ptid=2025548" target="_blank">jxzeroga0 发表于 2022-12-5 17:13</a>
+
+你这2刀死明显跨级太多了，arpg还是要搞搞属性的。
+
+护卫者这代我都是符文开场拉满充能，L1+三角后闪避AAA ...</blockquote>
+就跨了一级吧，对面黄血，上毒之后绿血
+
+我面板显示5级，对面应该6级，中间有10几次都是一分钟不到就把狂战打了7成血，然后她进二阶段我看错动作就被抓了空檔黄圈接素质三连，没法动直接满血打死
+

@@ -8318,3 +8318,17 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 能不能配个编辑精选一下
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  呆毛王赛高  
+##### 3752#       发表于 2022-12-5 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58782044&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-5 17:18</a>
+
+nmd，阿菌怎么又在吹文本量了，脑壳疼
+
+能不能配个编辑精选一下</blockquote>
+这恐怕是菌类一直以来的作风，当年空境也是因为字数没法控制没法出版还是怎么样来着
+
