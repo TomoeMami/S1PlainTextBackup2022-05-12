@@ -4630,3 +4630,15 @@ ok
 稍微正常一点的应用大概是这样的</blockquote>
 看了几个，符文取消前后摇，不过CD还是有的吧
 
+
+
+*****
+
+####  wzh5555  
+##### 1914#       发表于 2022-12-5 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58783795&amp;ptid=2025548" target="_blank">focus 发表于 2022-12-5 19:12</a>
+
+看了几个，符文取消前后摇，不过CD还是有的吧</blockquote>
+CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动作
+

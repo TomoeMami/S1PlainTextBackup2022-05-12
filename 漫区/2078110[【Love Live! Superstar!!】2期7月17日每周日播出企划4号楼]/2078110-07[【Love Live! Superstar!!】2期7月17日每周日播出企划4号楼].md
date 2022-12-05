@@ -11954,3 +11954,16 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ads147147  
+##### 9999#       发表于 2022-12-5 19:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58783960&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-5 19:26</a>
+他也承认星2有很大问题，但他给我的感觉是“剧情结构本身没问题(甚至很优秀），但因为演呲了观众没有get到 ...</blockquote>
+反正动不动就往子供向推，小孩子不配看好片子了属于。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
