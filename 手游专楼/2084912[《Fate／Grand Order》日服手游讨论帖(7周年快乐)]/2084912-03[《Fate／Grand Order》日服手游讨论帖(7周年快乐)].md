@@ -8261,3 +8261,14 @@ over
 圣诞一定有</blockquote>
 今年12月的学妹语音是搞月度语音以后第一年没有圣诞内容的
 
+
+
+*****
+
+####  quanlix  
+##### 3747#       发表于 2022-12-5 11:31
+
+[https://www.bilibili.com/video/BV1Kv4y1o7Ai](https://www.bilibili.com/video/BV1Kv4y1o7Ai)
+
+盐川做的新游，特效过于瞎眼，2024上steam
+

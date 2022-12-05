@@ -1744,3 +1744,14 @@ C:\Users\93461\Desktop\到八月十号为止的攒石进度.jpg
 
 黑贞这是真的强<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Urakawa  
+##### 43794#       发表于 2022-12-5 11:37
+
+停服公告出了 5号23:55～7号00:05
+
+[https://game.bilibili.com/fgo/h5/news.html#detailId=11583](https://game.bilibili.com/fgo/h5/news.html#detailId=11583)
+
