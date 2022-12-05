@@ -1297,3 +1297,35 @@ alc这个字母暗示的比较明显了
 
 估计是从云组被捕获然后反水？
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 116#         楼主| 发表于 2022-12-5 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58786012&amp;ptid=2104259" target="_blank">LEOKO~ 发表于 2022-12-5 21:59</a>
+
+东京要寄
+
+估计是从云组被捕获然后反水？</blockquote>
+不懂啊。从开头来看反水的怎么也是夜露那边（
+
+*****
+
+####  アヘ顔  
+##### 117#       发表于 2022-12-5 22:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要反水的不是毛子吗
+
+*****
+
+####  江戸前ルナ  
+##### 118#         楼主| 发表于 2022-12-5 22:08
+
+从开头CG来看，夜露可能要反水（反人类的水）
+
+从剧情来看，毛子势力可能要反水（反东京船团的水），妮娜可能要反水（反毛子势力的水）
+
+怎么也轮不到死战派枫啊
+
