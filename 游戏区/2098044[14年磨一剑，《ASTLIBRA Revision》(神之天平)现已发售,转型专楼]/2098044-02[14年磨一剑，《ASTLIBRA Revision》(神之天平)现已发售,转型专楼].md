@@ -16435,3 +16435,35 @@ DX9改成11之后貌似OK了
 
 要是所有装备都有两个装备盘那这游戏牛逼炸了
 
+
+
+*****
+
+####  otakun  
+##### 2915#       发表于 2022-12-5 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58786458&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-12-5 22:30</a>
+新章有没有全装备盘的收集呀？
+
+还是只要几件武器有装备盘的
+
+我还看到那个骑士盾有两个装备盘</blockquote>
+？
+所有装备都能装备三个装备盘，属性和品质随机的。
+
+*****
+
+####  tsubaki  
+##### 2916#       发表于 2022-12-5 22:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58786458&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-12-5 22:30</a>
+
+新章有没有全装备盘的收集呀？
+
+还是只要几件武器有装备盘的
+
+我还看到那个骑士盾有两个装备盘</blockquote>
+最好就紫盘，一般30左右强化三紫盘武器足够你 用脚打最终BOSS了（拿光剑基本是无双）
+
+成就的话没有装备盘的要求 ，只要HARD以上通关新章就行  
+
