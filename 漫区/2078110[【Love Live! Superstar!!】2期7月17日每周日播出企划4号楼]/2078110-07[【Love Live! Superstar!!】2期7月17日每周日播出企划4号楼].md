@@ -11548,3 +11548,17 @@ twi：@_CelticWhite_
 
 <img src="https://img.saraba1st.com/forum/202212/05/114526gpjx4tdid4d2ckvb.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  2148214  
+##### 9962#       发表于 2022-12-5 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58776958&amp;ptid=2078110" target="_blank">player3960 发表于 2022-12-5 11:46</a>
+
+唉~这真是三巡最膈应我的地方</blockquote>
+无比同意，最爱的听的一段了。
+
+从一单发售活动以来就一直最爱听的一句。
+
