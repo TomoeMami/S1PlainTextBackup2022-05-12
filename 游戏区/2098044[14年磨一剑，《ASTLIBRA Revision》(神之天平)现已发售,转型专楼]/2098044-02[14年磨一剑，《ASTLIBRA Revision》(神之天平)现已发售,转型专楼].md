@@ -16319,3 +16319,15 @@ DX9改成11之后貌似OK了
 
 这个宝箱怎么解？掉下去瞬间开空步？
 
+
+
+*****
+
+####  tsubaki  
+##### 2906#       发表于 2022-12-5 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58782313&amp;ptid=2098044" target="_blank">装甲兔 发表于 2022-12-5 17:32</a>
+
+这个宝箱怎么解？掉下去瞬间开空步？</blockquote>
+站在这个标记上面对下面射
+

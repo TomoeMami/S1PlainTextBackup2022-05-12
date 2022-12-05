@@ -2295,3 +2295,14 @@ vspo这天天ark宝可梦的，看不下去了
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17836#       发表于 2022-12-5 17:40
+
+别急，ark今天就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且同接也不如几年前的虹ark,虽然劳伦是越来越像皇了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

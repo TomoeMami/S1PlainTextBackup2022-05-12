@@ -4564,3 +4564,16 @@ b站恶评如潮的竟然是铁森林那一节……
 因为这代符文伤害方面回报一般，所以总的来说就是上属性、打晕值、群控或吹飞杂兵、攒彩虹桥风暴这些需求 ...</blockquote>
 bug取消符文有详细介绍吗？怎么操作
 
+
+
+*****
+
+####  一个过路的  
+##### 1909#       发表于 2022-12-5 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58782371&amp;ptid=2025548" target="_blank">focus 发表于 2022-12-5 17:36</a>
+
+bug取消符文有详细介绍吗？怎么操作</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/BV1524y1y7hE](https://www.bilibili.com/video/BV1524y1y7hE)
+
