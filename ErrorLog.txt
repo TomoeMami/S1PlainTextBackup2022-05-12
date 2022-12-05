@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/外野/2107877-01[都有个从怀疑到愤怒再到接受的过程].md'
-!!error:id=2107877
