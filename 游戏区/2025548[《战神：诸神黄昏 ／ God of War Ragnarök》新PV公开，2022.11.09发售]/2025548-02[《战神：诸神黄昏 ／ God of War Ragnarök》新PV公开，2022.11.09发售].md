@@ -4606,3 +4606,27 @@ bug取消符文有详细介绍吗？怎么操作</blockquote>
 
 我面板显示5级，对面应该6级，中间有10几次都是一分钟不到就把狂战打了7成血，然后她进二阶段我看错动作就被抓了空檔黄圈接素质三连，没法动直接满血打死
 
+
+
+*****
+
+####  focus  
+##### 1912#       发表于 2022-12-5 19:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58782479&amp;ptid=2025548" target="_blank">一个过路的 发表于 2022-12-5 17:42</a>
+
+https://www.bilibili.com/video/BV1524y1y7hE</blockquote>
+ok
+
+*****
+
+####  focus  
+##### 1913#       发表于 2022-12-5 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58782605&amp;ptid=2025548" target="_blank">wzh5555 发表于 2022-12-5 17:51</a>
+
+就是楼上贴的，老汉登脚取消
+
+稍微正常一点的应用大概是这样的</blockquote>
+看了几个，符文取消前后摇，不过CD还是有的吧
+

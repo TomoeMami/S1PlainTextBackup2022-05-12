@@ -11901,3 +11901,26 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 个人一向不喜欢用过度脑补来圆一个剧情，然后搞得只有我能欣赏一样
 
+
+
+*****
+
+####  Kfly  
+##### 9995#       发表于 2022-12-5 19:13
+
+他提出的一些东西算是不无道理的，但也有不少难以自圆其说的东西
+
+让观众直观地理解剧情不就是制作组的责任吗？不应该要求观众去特地揪细节，而是要让大多数观众都能不曲解剧情想表达的意思才对吧？
+
+就算是制作组想表达的意思观众没get到吧，“没get到”这件事本身其实就意味着作品本身失败了。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+而且说实话我不觉得制作组没一点剧情想表达的那个意思，再怎么让观众“没get到”也有个度吧，最后整出个香音传我实在是……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 9996#       发表于 2022-12-5 19:21
+
+要解释怎么都能解释，西有释经东有解诂，都突出一个解释一切
+但是你这商业作品犯不上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
