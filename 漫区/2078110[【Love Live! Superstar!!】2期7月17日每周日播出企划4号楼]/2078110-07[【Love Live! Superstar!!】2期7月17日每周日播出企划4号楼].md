@@ -11583,3 +11583,12 @@ twi：@_CelticWhite_
 老哥翻译翻译？</blockquote>
 右手的小指和左手的小指连不到一起了很伤心，这本来是symphony里鲤鱼的一段歌词，这次9人版划给了打铁<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 9965#       发表于 2022-12-5 12:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接不看就膈应不到我了( 现在就想现场看他们，线上live缺点太多了
+
