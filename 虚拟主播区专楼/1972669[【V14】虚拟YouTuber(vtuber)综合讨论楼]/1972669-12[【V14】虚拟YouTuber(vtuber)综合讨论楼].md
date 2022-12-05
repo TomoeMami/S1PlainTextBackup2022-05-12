@@ -2259,3 +2259,14 @@ anycolor跌了14%。
 
 憋了这么久好不容易看她玩朱紫才两天就要停了
 
+
+
+*****
+
+####  poipanchao  
+##### 17833#       发表于 2022-12-5 16:59
+
+vspo这天天ark宝可梦的，看不下去了
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

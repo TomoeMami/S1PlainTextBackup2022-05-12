@@ -3435,3 +3435,22 @@ IQ test！？
 
 一下播就到pol那去了。
 
+
+
+*****
+
+####  holoan  
+##### 3326#         楼主| 发表于 2022-12-5 16:59
+
+说到开示的事情，突然想到之前在5ch个人串（带发帖IP/ID记录的正规串）上个月突然有人发了个这内容的东西
+
+<img src="https://img.saraba1st.com/forum/202212/05/165857w16hz7hou4g6rh83.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (21.5 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-5 16:58 上传
+
+虽然没头没尾莫名其妙但是既然发在个人串里面姑且留了个意
+
