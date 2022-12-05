@@ -165,3 +165,32 @@ SD随时待机随时开机继续玩的体验薄纱win掌机。
 
 同时很多号称支持 Deck 的 galgame，你没有触摸板的话，只能用摇杆控制鼠标，控制两次你就砸机器了。
 
+
+
+*****
+
+####  Sue  
+##### 542#       发表于 2022-12-5 21:29
+
+<img src="https://img.saraba1st.com/forum/202212/05/212716lznqzq8n0hy1nvke.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1670246300482.jpg</strong> (117.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-5 21:27 上传
+
+<img src="https://img.saraba1st.com/forum/202212/05/212712iz2y4g4tzckcgrn2.jpg" referrerpolicy="no-referrer">
+
+<strong>mmexport1670246617482.jpg</strong> (117.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-5 21:27 上传
+
+港版，昨天下单，没想到这么快就补款了
+
+趁现在SSD价格不贵一起买了，2T也不需要再买TF卡
+
+坐等到货折腾<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer"> 
+
