@@ -16481,3 +16481,30 @@ DX9改成11之后貌似OK了
 
 高技书主要是为了全成就。
 
+
+
+*****
+
+####  CswStar  
+##### 2918#       发表于 2022-12-5 22:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58785343&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-12-5 21:07</a>
+
+大概是打开方式的问题
+
+这游戏刷的程度普遍觉得还行。新章之前单独章节可能就刷一两趟的样子，为了武器技 ...</blockquote>
+困难难度刷一两趟肯定是不够的，而且在刷图过程中也挺容易一不注意就暴毙的，虽然推图不难，但要一直保持注意力还是挺烦的。
+
+本篇最终boss那条龙数值太高了，切简单难度都砍了很久，最后实在没耐心刷下去了
+
+*****
+
+####  CswStar  
+##### 2919#       发表于 2022-12-5 22:57
+
+ 本帖最后由 CswStar 于 2022-12-5 22:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58786162&amp;ptid=2098044" target="_blank">M1NG 发表于 2022-12-5 22:11</a>
+
+困难难度除了有一次某个装备材料刷不出来，以及后面为了碾压boss想刷个牛逼装备盘之外，好像没觉得哪里有 ...</blockquote>
+做出全装备对我来说已经非常刷了，我每一章一般只刷4~5个装备，摸到boss房门口就没动力刷了，感觉自己的数值差不多能过boss了就不刷了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
