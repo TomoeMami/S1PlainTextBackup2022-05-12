@@ -16268,3 +16268,16 @@ DX9改成11之后貌似OK了
 14个就完美了 我15个多的那个也给不了女主 只能做个情人节巧克力挂天平</blockquote>
 原来是这样，可以安心通关了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  拆骨羊肉2  
+##### 2902#       发表于 2022-12-5 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58756646&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-4 12:41</a>
+请问第五章的传武礼剑最左边的材料是啥，合了苹果派发现不是，食谱里也没对应的 ...</blockquote>
+去竞技场，可以打到高级合成书
+
+—— 来自 vivo V2183A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

@@ -11624,3 +11624,14 @@ twi：@_CelticWhite_
 
 这两天膈应的事有点多，单人镜头少歌词被分到只剩一句还有花篮的尴尬，只能说还好她有自己的个活，要不现在真是憋屈<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 9969#       发表于 2022-12-5 12:53
+
+<blockquote>lj205 发表于 2022-12-5 12:30
+这两天膈应的事有点多，单人镜头少歌词被分到只剩一句还有花篮的尴尬，只能说还好她有自己的个活，要不现在 ...</blockquote>
+没事，花篮这事下个星期到我们表演了
+
