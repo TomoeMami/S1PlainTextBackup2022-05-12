@@ -495,3 +495,14 @@ xgp每次启动都得更新失败重试两三下进
 
 爆弹枪如果队友不刻意留子弹给你，爽不起来。暂时阿卡特兰电筒刮痧，除了罐头打不动 其他的兹起来很爽，而且泛用。开罐头，俺提着动力剑看就是了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dfbbymice  
+##### 157#       发表于 2022-12-5 12:41
+
+目前4职业都练了灵能30 欧格林29 狂信27 老兵15
+
+还是灵能适合我，拿把闪电杖后面混就完事儿了，啥东西也不用抢，就突出个闲庭信步、真男人从不回头看捏头<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
