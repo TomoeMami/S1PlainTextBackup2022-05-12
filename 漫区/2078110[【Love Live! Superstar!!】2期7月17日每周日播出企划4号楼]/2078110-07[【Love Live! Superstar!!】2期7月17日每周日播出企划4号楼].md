@@ -11825,3 +11825,58 @@ twi：@_CelticWhite_
 
 另外国内的hp官方也挺友善积极的，什么活动能不能送什么东西的事也可以中文交流<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 9988#       发表于 2022-12-5 18:33
+
+ 本帖最后由 nufawneafg 于 2022-12-5 18:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58783037&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-12-5 18:16</a>
+看到某位up孜孜不倦的洗星团的人物塑造没问题（甚至可以硬切割花田后再说人设完整没毛病），只能说有些人魔 ...</blockquote>
+也许是过于清汤，也许是创伤后应激失忆
+已经不记得动画的许多内容了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 9989#       发表于 2022-12-5 18:36
+
+ 本帖最后由 ads147147 于 2022-12-5 18:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58783257&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-12-5 18:33</a>
+也许是过于清汤，也许是创伤后应激失忆
+已经不记得动画的许多内容了 ...</blockquote>
+之前看他讲过维恩香音，感觉还没这么魔怔，现在他开始讲叶月恋，一本正经的真的去分析，一条条拆，感觉自己和柯南一样，我觉得他疯了，因为为了洗叶月恋人设没问题他连01，a5，特利伽都要洗。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 9990#       发表于 2022-12-5 18:36
+
+ 本帖最后由 ads147147 于 2022-12-5 18:40 编辑 
+
+泥潭又被高达疯子冲了风怒了
+
+
+
+*****
+
+####  nufawneafg  
+##### 9991#       发表于 2022-12-5 18:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58783295&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-12-5 18:36</a>
+他可是一本正经的真的去分析，一条条拆，感觉自己和柯南一样，我觉得他疯了，因为他连01，a5，特利伽都要 ...</blockquote>
+那只能说有不同的世界观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 9992#       发表于 2022-12-5 18:38
+
+ 本帖最后由 nufawneafg 于 2022-12-5 18:42 编辑 
+
+风怒
+
