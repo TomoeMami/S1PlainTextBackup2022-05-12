@@ -11442,3 +11442,31 @@ Day1的话就不太清楚了。
 看了油管一个把花篮从头拍到尾的up的视频，彩和鱼是没有单独花篮的，可香花篮有一个。小百合花篮没数可能 ...</blockquote>
 day1的合鲤花篮我推上看到照片的有3个吧，原来鲤鱼一个个人花篮都没有啊，有点惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 9955#       发表于 2022-12-5 10:31
+
+<blockquote>引用第9953楼player3960于2022-12-05 10:29发表的  :
+
+引用:2148214 发表于 2022-12-5 03:02看了油管一个把花篮从头拍到尾的up的视频......</blockquote>
+@player3960
+
+为啥会一个都没有啊
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  player3960  
+##### 9956#       发表于 2022-12-5 10:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58775714&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-12-5 10:31</a>
+
+@player3960
+
+为啥会一个都没有啊</blockquote>
+我不到啊，我确实没看到照片
+
