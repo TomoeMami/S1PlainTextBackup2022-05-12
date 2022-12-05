@@ -1218,3 +1218,26 @@ Dirty Pair联动访谈翻译
 游戏里建模啊……外面怎么画很自由……</blockquote>
 不是我翻译的我就是转载不要给我加鹅<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  アヘ顔  
+##### 110#       发表于 2022-12-5 20:37
+
+ 本帖最后由 アヘ顔 于 2022-12-5 20:40 编辑 
+
+怎么这回连下期预告都没做了........
+
+话说安卓启动的时候那个alc-0的意思，是不是说还有123号
+
+*****
+
+####  江戸前ルナ  
+##### 111#         楼主| 发表于 2022-12-5 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58784921&amp;ptid=2104259" target="_blank">アヘ顔 发表于 2022-12-5 20:37</a>
+
+怎么这回连下期预告都没做了........</blockquote>
+因为是part 1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
