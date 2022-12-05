@@ -16508,3 +16508,20 @@ DX9改成11之后貌似OK了
 困难难度除了有一次某个装备材料刷不出来，以及后面为了碾压boss想刷个牛逼装备盘之外，好像没觉得哪里有 ...</blockquote>
 做出全装备对我来说已经非常刷了，我每一章一般只刷4~5个装备，摸到boss房门口就没动力刷了，感觉自己的数值差不多能过boss了就不刷了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  manyin1  
+##### 2920#       发表于 2022-12-5 23:07
+
+ 本帖最后由 manyin1 于 2022-12-5 23:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58786519&amp;ptid=2098044" target="_blank">otakun 发表于 2022-12-5 22:36</a>
+
+？
+
+所有装备都能装备三个装备盘，属性和品质随机的。</blockquote>
+卧槽那且不是刷爆了？我新章都打到东京了，也才出那么个几个装备盘
+
+然后24种技能在新章通过装备盘还会再有24种技能？！
+
