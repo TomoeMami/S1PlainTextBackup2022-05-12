@@ -11720,3 +11720,33 @@ twi：@_CelticWhite_
 
 小百合这人气加地元buff，直接一个人整了15个？原来星二期是个纪录片啊，还是你花田老师懂啊
 
+
+
+*****
+
+####  lj205  
+##### 9978#       发表于 2022-12-5 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58778635&amp;ptid=2078110" target="_blank">靡宜 发表于 2022-12-5 13:46</a>
+爱知花篮顺利的话，应该会有兄弟出教程，到时候各开花了。主要组织是个大问题，然后要会霓虹语。涉及金钱 ...</blockquote>
+我是觉得两个疑问，一个是日本人完全不组织就怪。一个是为啥就群里组织，很多人没加群，我觉得超话里组织，应该不少人支援
+
+*****
+
+####  player3960  
+##### 9979#       发表于 2022-12-5 15:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58780164&amp;ptid=2078110" target="_blank">lj205 发表于 2022-12-05 15:27:47</a>
+我是觉得两个疑问，一个是日本人完全不组织就怪。一个是为啥就群里组织，很多人没加群，我觉得超话里组织 ...</blockquote>小本子还是指望不上，还得娘家人，所以到底有没有人组织，想入伙<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  csolfans  
+##### 9980#       发表于 2022-12-5 15:32
+
+<blockquote>lj205 发表于 2022-12-5 15:27
+我是觉得两个疑问，一个是日本人完全不组织就怪。一个是为啥就群里组织，很多人没加群，我觉得超话里组织 ...</blockquote>
+第二个问题:主要是涉及到金钱管理方面，然后就是其实花篮群人也不少。
+
