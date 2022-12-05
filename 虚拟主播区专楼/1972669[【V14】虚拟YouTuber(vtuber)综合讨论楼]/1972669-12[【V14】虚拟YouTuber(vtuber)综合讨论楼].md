@@ -2334,3 +2334,14 @@ vspo这天天ark宝可梦的，看不下去了
 我前几天看rrm的ark同接有1.5万，很难不播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 vspo最近打枪的确实不多，有比赛的话还可能会提前动一动，不过像hnn这种连续经历两次cr杯的确实该歇歇了，今年还会玩fps游戏就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 17840#       发表于 2022-12-6 00:56
+
+咋又把葛尊放一起了
+
+去年不还特意分开的
+
