@@ -11650,3 +11650,18 @@ twi：@_CelticWhite_
 说起来鱼的粉丝转化率可能是比别人都差的，我一直觉得鱼属于那种buff与debuff叠加的状态，在一期动画那段时间应该是buff盖过debuff，二期动画这里我不好说可可（鱼）还有啥正向的buff，就是不知道debuff会有多大的影响了
 其实说实话，2.5次元偶像企划，二三次元互相影响，有两个次元的良性循环，那我感觉也有两个次元的偏不好的传递，不太清楚动画里可可的剧情对三次元有多少影响……
 
+
+
+*****
+
+####  iuhehc  
+##### 9971#       发表于 2022-12-5 13:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58777560&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-12-5 12:24</a>
+@cybernetics31
+
+不在日本没办法啊。来大陆这个好遥远，2，3年内没戏吧</blockquote>
+我反而觉得应该不用很久了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
