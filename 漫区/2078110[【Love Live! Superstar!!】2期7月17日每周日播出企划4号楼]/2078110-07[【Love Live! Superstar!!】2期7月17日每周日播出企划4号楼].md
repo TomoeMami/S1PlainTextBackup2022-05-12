@@ -11592,3 +11592,35 @@ twi：@_CelticWhite_
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接不看就膈应不到我了( 现在就想现场看他们，线上live缺点太多了
 
+
+
+*****
+
+####  cat1230  
+##### 9966#       发表于 2022-12-5 12:24
+
+<blockquote>引用第9964楼cybernetics31于2022-12-05 12:15发表的  :
+
+直接不看就膈应不到我了( 现在就想现场看他们，线上live缺点太多了</blockquote>
+@cybernetics31
+
+不在日本没办法啊。来大陆这个好遥远，2，3年内没戏吧
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  csolfans  
+##### 9967#       发表于 2022-12-5 12:27
+
+<blockquote>player3960 发表于 2022-12-5 12:08
+右手的小指和左手的小指连不到一起了很伤心，这本来是symphony里鲤鱼的一段歌词，这次9人版划给了打铁[f: ...</blockquote>
+谢谢老哥
+
+*****
+
+####  lj205  
+##### 9968#       发表于 2022-12-5 12:30
+
+这两天膈应的事有点多，单人镜头少歌词被分到只剩一句还有花篮的尴尬，只能说还好她有自己的个活，要不现在真是憋屈<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
