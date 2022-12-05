@@ -16420,3 +16420,18 @@ DX9改成11之后貌似OK了
 
 打第六章前有必要把竞技场第六章通了吗？那个高级配方书坑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  manyin1  
+##### 2914#       发表于 2022-12-5 22:30
+
+新章有没有全装备盘的收集呀？
+
+还是只要几件武器有装备盘的
+
+我还看到那个骑士盾有两个装备盘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+要是所有装备都有两个装备盘那这游戏牛逼炸了
+

@@ -8350,3 +8350,12 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 
 毕竟新年毁老家已经成了过年习俗了，同一套把戏玩了3+次哪还有惊喜阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 3755#       发表于 2022-12-5 22:28
+
+二姐、狐狸、C呆过了狗了，用了44回合，也不必卑呆梅快多少<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。奥伯龙用了3令咒，反正可以恢复，不亏就是了。
+
