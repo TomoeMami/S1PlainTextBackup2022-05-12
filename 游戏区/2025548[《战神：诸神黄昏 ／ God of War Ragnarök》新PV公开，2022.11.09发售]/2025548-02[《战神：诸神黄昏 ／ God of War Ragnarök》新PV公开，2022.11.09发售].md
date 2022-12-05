@@ -4392,3 +4392,15 @@ b站恶评如潮的竟然是铁森林那一节……
 
 另外，这座也有bug取消符文的里技，如果会这个，很多动作持续较长的重符文都变得十分灵活了。
 
+
+
+*****
+
+####  woshenc  
+##### 1895#       发表于 2022-12-5 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58779327&amp;ptid=2025548" target="_blank">wzh5555 发表于 2022-12-5 14:37</a>
+
+因为这代符文伤害方面回报一般，所以总的来说就是上属性、打晕值、群控或吹飞杂兵、攒彩虹桥风暴这些需求 ...</blockquote>
+我故事难度，随便乱打，但是视角的确是不舒服
+
