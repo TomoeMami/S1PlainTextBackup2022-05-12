@@ -1443,3 +1443,12 @@ BETA残骸是一堆骨肉，很快会腐烂，以人类的技术无法回收；�
 
 香月夕呼和社霞声优的本音竟然差了这么远<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yone0000  
+##### 2120#       发表于 2022-12-5 20:30
+
+感觉奶黄包开炮后在场人们的反应还是差了口气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
