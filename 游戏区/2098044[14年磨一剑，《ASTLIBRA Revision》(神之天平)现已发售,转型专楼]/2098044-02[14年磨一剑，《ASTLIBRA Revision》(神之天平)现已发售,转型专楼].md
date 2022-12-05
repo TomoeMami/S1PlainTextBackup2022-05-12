@@ -16581,3 +16581,29 @@ DX9改成11之后貌似OK了
  ...</blockquote>
 变南瓜炸弹后很好用 几下一个戒誓芽
 
+
+
+*****
+
+####  永远的访客  
+##### 2926#       发表于 2022-12-6 00:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58787657&amp;ptid=2098044" target="_blank">shimotsuki14 发表于 2022-12-5 23:37</a>
+
+自从后期出了龙王和女武神凭依技，对大中型boss就是空中擒抱涨精力然后龙王从头喷到脚，或者女武神戳一枪
+
+ ...</blockquote>
+万圣节召唤要对空中固定怪打提前量放，所有火球都在对方身上反复生效，输出效果不比龙王差甚至感觉还高点，但是如果怪的体型比较大让龙王从头喷到脚会输出更高，满足这种条件的怪太少了（老婆立方应该可以算一个），所以综合下来万圣节还是不好用。至于变异后的南瓜炸弹更是一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Tissuesea  
+##### 2927#       发表于 2022-12-6 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58788287&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-12-6 00:06</a>
+竞技场最终之战怎么打，箱子血厚得跟鬼一样</blockquote>
+也许你该强化一下武器了。
+反正我记得我在进入新章前还是信弓箭神教，用能射20发箭打过女武神（那时就很刮了，但我还沉迷于定住boss的快感）。然后这个木头让我幻想破灭了
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

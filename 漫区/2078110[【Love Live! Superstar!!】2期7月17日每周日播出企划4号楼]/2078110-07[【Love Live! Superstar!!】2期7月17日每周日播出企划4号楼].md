@@ -12074,3 +12074,14 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10007#       发表于 2022-12-6 00:38
+
+ 本帖最后由 稀勢のささ 于 2022-12-6 00:40 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都是来洗脚的，谁洗不是洗，看到就烦的角色也不差这一个，又不是Vn不来就没3期了
+
