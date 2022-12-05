@@ -4190,3 +4190,15 @@ b站恶评如潮的竟然是铁森林那一节……
 
 我自己是低难度打的…………感觉…………就非常无趣，一个纯纯的机制怪，让我没得选
 
+
+
+*****
+
+####  一个过路的  
+##### 1877#       发表于 2022-12-5 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58774177&amp;ptid=2025548" target="_blank">origen 发表于 2022-12-5 08:35</a>
+
+白熊冲锋有无敌吧</blockquote>
+总不能说这话的人都只用过白熊冲锋吧。
+
