@@ -11976,3 +11976,21 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 子供向剧本质量高的一堆
 
+
+
+*****
+
+####  Kfly  
+##### 10001#       发表于 2022-12-5 19:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58783931&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-12-5 19:23</a>
+
+可能我们大多数观众不行吧[f ...</blockquote>
+就说这次恋的解析吧，第一季第八集的部分基本算是念完剧情就过去了，没怎么详细分析。
+
+要么是他也不知道这里该怎么解释，要么是他觉得恋这段剧情没问题。
+
+感觉他的最新视频真的只是为了证明他的标题“塑造最完整的角色”，而不是证明“恋的塑造是合理的”
+
+（而且分析出来的“恋”其实和我想看视频前脑内的“恋”的差别不大，但我想看到的是塑造的“多少”、“完整”吗？优秀且贴合角色的塑造才是我想看到的啊）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
