@@ -16467,3 +16467,17 @@ DX9改成11之后貌似OK了
 
 成就的话没有装备盘的要求 ，只要HARD以上通关新章就行  
 
+
+
+*****
+
+####  gwchobit  
+##### 2917#       发表于 2022-12-5 22:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58786221&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-5 22:14</a>
+
+打第六章前有必要把竞技场第六章通了吗？那个高级配方书坑死我了</blockquote>
+前后其实无所谓。死亡没成本，可以提前打用来熟悉怪的技能。之后打装备成型且熟悉技能也算更容易过。
+
+高技书主要是为了全成就。
+
