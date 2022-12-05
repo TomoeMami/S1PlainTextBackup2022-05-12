@@ -2270,3 +2270,16 @@ vspo这天天ark宝可梦的，看不下去了
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17834#       发表于 2022-12-5 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58781763&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-12-5 16:59</a>
+vspo这天天ark宝可梦的，看不下去了
+
+—— 来自 Xiaomi 22081212C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+笑死，结果还是趋同演化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
