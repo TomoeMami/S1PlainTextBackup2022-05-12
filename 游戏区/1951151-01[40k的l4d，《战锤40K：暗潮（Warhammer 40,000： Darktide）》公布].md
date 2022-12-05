@@ -484,3 +484,14 @@ xgp每次启动都得更新失败重试两三下进
 
 本来还忍着玩得津津有味，昨天十来把一点问题没有今天调了调显示设置崩了三次了，白干二十分钟一分钱拿不到太难受了，等一个月算了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  虫牙很多  
+##### 156#       发表于 2022-12-5 11:50
+
+除了难度1肯定不翻车，难度2碰到不会玩的也有可能翻车。我只玩了IG 如果队友瞎吃弹药真的很容易血压高。
+
+爆弹枪如果队友不刻意留子弹给你，爽不起来。暂时阿卡特兰电筒刮痧，除了罐头打不动 其他的兹起来很爽，而且泛用。开罐头，俺提着动力剑看就是了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+

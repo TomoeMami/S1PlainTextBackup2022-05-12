@@ -11528,3 +11528,23 @@ twi：@_CelticWhite_
 
 无尽赛道这歌live上的表现真是全场最佳，不但唱得稳，而且相互衬托得很好谁也没有掩盖谁，名副其实跟歌词一样相互竞争
 
+
+
+*****
+
+####  player3960  
+##### 9961#       发表于 2022-12-5 11:46
+
+ 本帖最后由 player3960 于 2022-12-5 11:49 编辑 
+
+唉~这真是三巡最膈应我的地方<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+20221205.jpg
+(52.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-5 11:45 上传
+
+<img src="https://img.saraba1st.com/forum/202212/05/114526gpjx4tdid4d2ckvb.jpg" referrerpolicy="no-referrer">
+
