@@ -4642,3 +4642,14 @@ ok
 看了几个，符文取消前后摇，不过CD还是有的吧</blockquote>
 CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动作
 
+
+
+*****
+
+####  白猫MKII  
+##### 1915#       发表于 2022-12-5 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58781743&amp;ptid=2025548" target="_blank">gary76 发表于 2022-12-5 16:58</a>
+不行啊，大坑的浪人boss你用蓄力肯定就一个红刺突过来，儿子的射击角度长期对着他的背盾，根本就上不到属 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你什么难度？如果浪人还抓不到双刀蓄力的话，那我只能建议多练练
+
