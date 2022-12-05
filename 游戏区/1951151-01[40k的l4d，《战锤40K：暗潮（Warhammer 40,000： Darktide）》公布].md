@@ -643,3 +643,15 @@ xgp每次启动都得更新失败重试两三下进
 xgp似乎没有推送补丁啊，看版本还是12月1号的，所以xgp和steam是不能联机的吗？ ...</blockquote>
 目前不能，所以xgp上武器没有数值，文本也没修正
 
+
+
+*****
+
+####  FLZB  
+##### 171#       发表于 2022-12-5 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58781521&amp;ptid=1951151" target="_blank">seedees3 发表于 2022-12-5 16:46</a>
+
+这次暗潮的内容丰富吗，鼠疫2一个职业只有一个主动技能实在不够看</blockquote>
+暗潮这首发职业数量都没鼠疫2的可选角色多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

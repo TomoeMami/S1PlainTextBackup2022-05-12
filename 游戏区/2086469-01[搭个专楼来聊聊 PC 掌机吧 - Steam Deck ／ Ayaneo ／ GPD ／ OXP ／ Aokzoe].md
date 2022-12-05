@@ -147,3 +147,21 @@ win4看起来跟win3一样，把机器正面面积做得很小，但是很厚。
 
 aya明晚大规模发货了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  plumlis  
+##### 541#       发表于 2022-12-5 21:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58774932&amp;ptid=2086469" target="_blank">关二爷 发表于 2022-12-5 09:38</a>
+
+现在有体验超越SD的PC掌机不？</blockquote>
+Win掌机阵营来说，没有。
+
+SD随时待机随时开机继续玩的体验薄纱win掌机。
+
+而且很多人说触摸板没用，实际上触摸板玩很多老游戏很有用，而且可以最大程度的兼容那些不支持手柄的游戏。最近拿来打CS 零点行动，体验不错。
+
+同时很多号称支持 Deck 的 galgame，你没有触摸板的话，只能用摇杆控制鼠标，控制两次你就砸机器了。
+
