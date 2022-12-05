@@ -1272,3 +1272,17 @@ Dirty Pair联动访谈翻译
 
 群舰模式很爽，突入模式爽，可不可以量产化<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  アヘ顔  
+##### 114#       发表于 2022-12-5 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58785039&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2022-12-5 20:44</a>
+不好说
+
+以下防剧透</blockquote>
+alc这个字母暗示的比较明显了
+但是那个-0不好说，搞不好alice分成了几份分别藏在几个人身体里，每一份有不同的能力
+
