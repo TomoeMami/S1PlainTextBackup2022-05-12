@@ -16247,3 +16247,24 @@ DX9改成11之后貌似OK了
 
 话说泊灵为啥一周目会是一条狗？二周目是女主乱入变得，新章这点后面有解释吗
 
+
+
+*****
+
+####  hello0607  
+##### 2900#       发表于 2022-12-5 12:05
+
+<blockquote>double8 发表于 2022-12-5 11:50
+话说泊灵为啥一周目会是一条狗？二周目是女主乱入变得，新章这点后面有解释吗 ...</blockquote>
+正常历史就是都是女主变得 男主才是乱入的那个
+
+*****
+
+####  永远的访客  
+##### 2901#       发表于 2022-12-5 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58773430&amp;ptid=2098044" target="_blank">アルメリア 发表于 2022-12-5 03:28</a>
+
+14个就完美了 我15个多的那个也给不了女主 只能做个情人节巧克力挂天平</blockquote>
+原来是这样，可以安心通关了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

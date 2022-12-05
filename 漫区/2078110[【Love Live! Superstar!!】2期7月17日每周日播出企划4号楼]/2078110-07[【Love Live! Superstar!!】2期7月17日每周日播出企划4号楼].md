@@ -11562,3 +11562,24 @@ twi：@_CelticWhite_
 
 从一单发售活动以来就一直最爱听的一句。
 
+
+
+*****
+
+####  csolfans  
+##### 9963#       发表于 2022-12-5 12:04
+
+<blockquote>player3960 发表于 2022-12-5 11:46
+唉~这真是三巡最膈应我的地方</blockquote>
+老哥翻译翻译？
+
+*****
+
+####  player3960  
+##### 9964#       发表于 2022-12-5 12:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58777285&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-12-5 12:04</a>
+
+老哥翻译翻译？</blockquote>
+右手的小指和左手的小指连不到一起了很伤心，这本来是symphony里鲤鱼的一段歌词，这次9人版划给了打铁<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
