@@ -16538,3 +16538,24 @@ DX9改成11之后貌似OK了
 
 相比之下战神还能全屏清一下杂兵，万圣节女神的凭依我就没找到好用的机会
 
+
+
+*****
+
+####  Kazepollar  
+##### 2922#       发表于 2022-12-5 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58786861&amp;ptid=2098044" target="_blank">CswStar 发表于 2022-12-5 22:57</a>
+ 做出全装备对我来说已经非常刷了，我每一章一般只刷4~5个装备，摸到boss房门口就没动力刷了，感觉自己的数 ...</blockquote>
+最终boss刷出好装备都是秒钟就能秒的，这么爽的刷子体验为啥不刷呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">就当成鬼泣刷评价不也挺愉悦
+
+*****
+
+####  leader01234  
+##### 2923#       发表于 2022-12-5 23:45
+
+熬了两天通了 10/10。剧情也说不上多深刻多回味无穷，但最后在酒馆看着伙伴们等着出发就想哭。作为半个独立（小黄油）爱好者，刷的内容也正好在我点子上，简单纯粹的快乐。
+话说之前在贴吧看到老版的立绘，感觉黑老版立绘更有味啊
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
