@@ -11880,3 +11880,15 @@ twi：@_CelticWhite_
 
 风怒
 
+
+
+*****
+
+####  ruffian  
+##### 9993#       发表于 2022-12-5 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58783037&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-12-05 18:16:36</a>
+v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认同一部分，但是恋这个我真觉得有点为洗而洗的意思了……而且他包括之前的视频有个中心主题就是“剧情结构本身没问题，但是因为演呲了观众没get到”。为什么要框死在现有剧情找合理性呢？有没有一种可能，这些剧情本来可以不那么写的？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
