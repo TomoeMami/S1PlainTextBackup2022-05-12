@@ -1241,3 +1241,34 @@ Dirty Pair联动访谈翻译
 怎么这回连下期预告都没做了........</blockquote>
 因为是part 1<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 112#         楼主| 发表于 2022-12-5 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58784921&amp;ptid=2104259" target="_blank">アヘ颜 发表于 2022-12-5 20:37</a>
+
+怎么这回连下期预告都没做了........
+
+话说安卓启动的时候那个alc-0的意思，是不是说还有123号</blockquote>
+不好说
+
+以下防剧透
+毛子那边误以为安卓是机器人，本来是安卓扮得太像的玩笑，谁知道这玩笑开大了的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  江戸前ルナ  
+##### 113#         楼主| 发表于 2022-12-5 20:50
+
+这次阿金真是憋了个大的（1/2），什么超级寸止训练<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+剧情方面：
+某人果然没死；战线方面本来快扛住了，谁知道先是格里芬群来袭，最后甚至是坏灭月面政府的巨型VICE来袭，要寄，然后安卓忽然自身觉醒或者疑似XXXX附体，指引枫小队装备专门的兵器去干对面；安卓这个剧情点炸得非常狠<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还有也安排了未罗和NAGI干了一仗。
+
+关卡方面：
+
+群舰模式很爽，突入模式爽，可不可以量产化<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+

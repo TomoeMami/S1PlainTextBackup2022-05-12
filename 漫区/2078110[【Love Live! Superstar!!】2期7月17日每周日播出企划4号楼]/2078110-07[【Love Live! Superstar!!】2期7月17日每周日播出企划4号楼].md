@@ -11994,3 +11994,12 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 （而且分析出来的“恋”其实和我想看视频前脑内的“恋”的差别不大，但我想看到的是塑造的“多少”、“完整”吗？优秀且贴合角色的塑造才是我想看到的啊）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 10002#       发表于 2022-12-5 20:50
+
+会去洗中日网友一致认同的反人类粪作，精神多少有点异于常人<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
