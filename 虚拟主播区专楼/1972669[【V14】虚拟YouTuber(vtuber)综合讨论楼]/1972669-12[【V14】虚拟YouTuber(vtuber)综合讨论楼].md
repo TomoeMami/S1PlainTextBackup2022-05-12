@@ -2172,3 +2172,20 @@ TVアニメ「绊のアリル」PV第1弾／2023年放送开始！</blockquote>
 anycolor跌了14%。
 过去半小时有所回升
 
+
+
+*****
+
+####  psnsic8nag  
+##### 17826#       发表于 2022-12-5 13:36
+
+ 本帖最后由 psnsic8nag 于 2022-12-5 13:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58776640&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-12-5 11:29</a>
+
+anycolor跌了14%。
+
+过去半小时有所回升</blockquote>
+明天EN7期首播股价重回10000
+
+彩虹股太好炒了 首播前买 首播后卖
+
