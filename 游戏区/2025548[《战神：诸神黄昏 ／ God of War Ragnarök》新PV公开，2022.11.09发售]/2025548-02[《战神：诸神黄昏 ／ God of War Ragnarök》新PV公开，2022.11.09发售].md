@@ -4416,3 +4416,16 @@ b站恶评如潮的竟然是铁森林那一节……
 我故事难度，随便乱打，但是视角的确是不舒服</blockquote>
 故事难度就无所谓了，符文搭配几个伤害最高的，莽就是了
 
+
+
+*****
+
+####  gary76  
+##### 1897#       发表于 2022-12-5 16:02
+
+昨晚打了3个小时才干掉冰湖那个狂战，之后又在大坑那受苦了一个半小时打荒原浪人
+
+这次这些支线boss都这么难打吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+

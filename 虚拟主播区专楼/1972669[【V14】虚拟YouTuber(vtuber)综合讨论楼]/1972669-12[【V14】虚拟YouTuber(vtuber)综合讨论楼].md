@@ -2198,3 +2198,16 @@ anycolor跌了14%。
 
 解禁期过了，大股东可以卖了。
 
+
+
+*****
+
+####  free  
+##### 17828#       发表于 2022-12-5 16:10
+
+[https://www.anycolor.co.jp/news/39rbql4wa](https://www.anycolor.co.jp/news/39rbql4wa)
+
+诽谤中伤行为等に対するＡＮＹＣＯＬＯＲ株式会社及びカバー株式会社による连携体制の构筑について
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
+
