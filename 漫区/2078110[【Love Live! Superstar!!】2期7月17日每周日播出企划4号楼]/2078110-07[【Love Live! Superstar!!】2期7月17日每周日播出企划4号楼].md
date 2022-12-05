@@ -11924,3 +11924,33 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 要解释怎么都能解释，西有释经东有解诂，都突出一个解释一切
 但是你这商业作品犯不上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 9997#       发表于 2022-12-5 19:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58783811&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-12-5 19:13</a>
+
+他提出的一些东西算是不无道理的，但也有不少难以自圆其说的东西
+
+让观众直观地理解剧情不就是制作组的责任 ...</blockquote>
+可能我们大多数观众不行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然不是一个类型，但是我以前看攻壳老TV版的时候也不需要那么费脑子想（当然讨论哲学的部分除外）
+
+而所谓星二想表达的剧情究竟是编剧本来想表达的，但是被“解析过”感觉出“想表达”的东西呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 9998#       发表于 2022-12-5 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58783811&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-12-05 19:13:53</a>
+他提出的一些东西算是不无道理的，但也有不少难以自圆其说的东西
+
+让观众直观地理解剧情不就是制作组的责任 ...</blockquote>他也承认星2有很大问题，但他给我的感觉是“剧情结构本身没问题(甚至很优秀），但因为演呲了观众没有get到”，而不是是“演呲了想表达的东西没能好好地传达给观众”。先不说剧情结构没问题这一前提是否成立(反正我是持相反观点的)，把责任转嫁到观众身上这一点让我有些不爽……
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
