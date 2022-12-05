@@ -4202,3 +4202,31 @@ b站恶评如潮的竟然是铁森林那一节……
 白熊冲锋有无敌吧</blockquote>
 总不能说这话的人都只用过白熊冲锋吧。
 
+
+
+*****
+
+####  percy1234  
+##### 1878#       发表于 2022-12-5 10:03
+
+偶然刷到smvr的视频，这算是把动作系统（里技除外）榨干了吧，赏心悦目
+
+*****
+
+####  origen  
+##### 1879#       发表于 2022-12-5 10:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58775214&amp;ptid=2025548" target="_blank">一个过路的 发表于 2022-12-5 09:57</a>
+总不能说这话的人都只用过白熊冲锋吧。</blockquote>
+白熊冲锋是前期就能拿到的符文吧，而且比较好用，除了投技其他都无敌，不玩高难度很容易会留下印象。
+
+*****
+
+####  一个过路的  
+##### 1880#       发表于 2022-12-5 10:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58775283&amp;ptid=2025548" target="_blank">origen 发表于 2022-12-5 10:03</a>
+
+白熊冲锋是前期就能拿到的符文吧，而且比较好用，除了投技其他都无敌，不玩高难度很容易会留下印象。 ...</blockquote>
+就算白熊冲锋+斯巴达冲锋，那还有俩空格呢，他们没用过重符文吗。
+
