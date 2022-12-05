@@ -566,3 +566,25 @@ xgp每次启动都得更新失败重试两三下进
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  BallanceHZ  
+##### 164#       发表于 2022-12-5 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58780668&amp;ptid=1951151" target="_blank">415452356 发表于 2022-12-5 16:00</a>
+目前处于重新发明轮子的阶段，多职业后面才有，服务器依旧垃圾一定要开加速器，优化在前几天的补丁之后 ...</blockquote>
+那算了，我先玩别的去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  seele9999  
+##### 165#       发表于 2022-12-5 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58746869&amp;ptid=1951151" target="_blank">猎户座 发表于 2022-12-3 20:04</a>
+不能，导致找书及其困难。。。</blockquote>
+那挺傻逼的……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

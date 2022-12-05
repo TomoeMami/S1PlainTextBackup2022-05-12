@@ -4429,3 +4429,17 @@ b站恶评如潮的竟然是铁森林那一节……
 
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  jxzeroga0  
+##### 1898#       发表于 2022-12-5 16:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58780714&amp;ptid=2025548" target="_blank">gary76 发表于 2022-12-5 16:02</a>
+
+昨晚打了3个小时才干掉冰湖那个狂战，之后又在大坑那受苦了一个半小时打荒原浪人
+
+这次这些支线boss都这么 ...</blockquote>
+狂战不是随便弹反就死了，浪人这种霸体粪怪就是符文或者魔女时间闪避灌伤害
+
