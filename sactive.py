@@ -15,7 +15,7 @@ for i in thdata.keys():
     # if(((int(time.time()) -thdata[i]['lastedit']) < 1296000 ) and thdata[i]['totalreply'] > 1) :
     # thdata[i]['newtitle'] = thdata[i]['title']
 #    print(thdata[i])
-    if(int(time.time()) -thdata[i]['lastedit']) < 259200 and thdata[i]['newtitle'] == '[]':
+    if(int(time.time()) -thdata[i]['lastedit']) < 2592000 and thdata[i]['newtitle'] == '[]':
     # if thdata[i]['newtitle'] == '[]':
         thdata[i]['active'] = True
 print("finish")
