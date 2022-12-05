@@ -2306,3 +2306,12 @@ vspo这天天ark宝可梦的，看不下去了
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lb19931118  
+##### 17837#       发表于 2022-12-5 18:55
+
+等到ark2进攻的时候, 一切都会好起来的
+
