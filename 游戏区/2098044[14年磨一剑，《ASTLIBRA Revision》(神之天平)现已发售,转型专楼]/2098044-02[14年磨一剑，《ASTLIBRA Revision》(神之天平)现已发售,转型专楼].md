@@ -16399,3 +16399,24 @@ DX9改成11之后貌似OK了
 
 而且这游戏刷图的正反馈很强，刷图有图纸/钱/经验/武器经验/力量/素材（后期强化），都能马上看到效果
 
+
+
+*****
+
+####  M1NG  
+##### 2912#       发表于 2022-12-5 22:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58784984&amp;ptid=2098044" target="_blank">CswStar 发表于 2022-12-5 20:41</a>
+
+通了，好肝啊，刷刷刷好多，打到终章boss那里就刷不动了，最后调简单难度过了，顺便把新章剧情也看了。
+
+剧 ...</blockquote>
+困难难度除了有一次某个装备材料刷不出来，以及后面为了碾压boss想刷个牛逼装备盘之外，好像没觉得哪里有特别刷的。每章花多一点时间做出全装备，点完棋盘后基本都处在打boss有难度但不至于打不过的范围，我觉得还挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  瓦米里奥  
+##### 2913#       发表于 2022-12-5 22:14
+
+打第六章前有必要把竞技场第六章通了吗？那个高级配方书坑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+

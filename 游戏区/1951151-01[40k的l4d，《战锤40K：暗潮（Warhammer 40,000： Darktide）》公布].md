@@ -655,3 +655,12 @@ xgp似乎没有推送补丁啊，看版本还是12月1号的，所以xgp和steam
 这次暗潮的内容丰富吗，鼠疫2一个职业只有一个主动技能实在不够看</blockquote>
 暗潮这首发职业数量都没鼠疫2的可选角色多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  猎户座  
+##### 172#       发表于 2022-12-5 22:13
+
+等一年半载也没人玩了。。我玩鼠疫的时候就没啥人了，打起来挺没意思的
+
