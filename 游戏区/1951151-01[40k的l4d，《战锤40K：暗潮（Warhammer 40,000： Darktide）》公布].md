@@ -632,3 +632,14 @@ xgp每次启动都得更新失败重试两三下进
 现在总共只有4个角色各1个职业，还不如鼠疫2</blockquote>
 顿时毫无兴趣
 
+
+
+*****
+
+####  Andrue  
+##### 170#       发表于 2022-12-5 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58752724&amp;ptid=1951151" target="_blank">DLSDFY 发表于 2022-12-4 01:16</a>
+xgp似乎没有推送补丁啊，看版本还是12月1号的，所以xgp和steam是不能联机的吗？ ...</blockquote>
+目前不能，所以xgp上武器没有数值，文本也没修正
+
