@@ -11799,3 +11799,14 @@ twi：@_CelticWhite_
 我觉得日本本地没有很大可能就是因为烂铁对鱼个活的时候说不收导致LL这边也没搞了，烂铁毕竟也是企划直接参 ...</blockquote>
 不怎么了解，烂铁啥时候说过么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，鱼的生日会也好，1st个唱也罢，都是h社主办的
 
+
+
+*****
+
+####  ads147147  
+##### 9986#       发表于 2022-12-5 18:16
+
+看到某位up孜孜不倦的洗星团的人物塑造没问题（甚至可以硬切割花田后再说人设完整没毛病），只能说有些人魔怔起来比黑子还可怕。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
