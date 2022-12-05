@@ -609,3 +609,14 @@ xgp每次启动都得更新失败重试两三下进
 
 这次暗潮的内容丰富吗，鼠疫2一个职业只有一个主动技能实在不够看
 
+
+
+*****
+
+####  idkenji  
+##### 168#       发表于 2022-12-5 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58781521&amp;ptid=1951151" target="_blank">seedees3 发表于 2022-12-5 16:46</a>
+这次暗潮的内容丰富吗，鼠疫2一个职业只有一个主动技能实在不够看</blockquote>
+现在总共只有4个角色各1个职业，还不如鼠疫2
+
