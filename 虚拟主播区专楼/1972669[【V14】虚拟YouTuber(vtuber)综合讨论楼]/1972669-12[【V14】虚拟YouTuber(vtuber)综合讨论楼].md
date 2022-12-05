@@ -2153,3 +2153,12 @@ TVアニメ「绊のアリル」PV第1弾／2023年放送开始！</blockquote>
 
 感觉，阿夏的毕业在郡看来算是恨粉行为了，虽然她本人是祝福态度（然后乘机又进行一个恨粉发言<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 17824#       发表于 2022-12-5 09:25
+
+又tm 马车杯和谢林一组，真的是服了
+
