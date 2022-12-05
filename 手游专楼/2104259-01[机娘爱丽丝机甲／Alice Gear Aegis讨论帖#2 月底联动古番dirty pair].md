@@ -1353,3 +1353,13 @@ alc这个字母暗示的比较明显了
 
 说起来安卓的alice附体，FAG的剧情里美军特种部队已经准备突袭东京shard来物理上清除所有可能寄宿有alice的女演员了，这下如何是好<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Rincewind  
+##### 121#       发表于 2022-12-6 05:57
+
+说不准到时候就发现Alice其实退到高次元了所有有emission能力的女演员都有可能被顶号
+博士精神病归精神病，发病之余还真是个有研究成果的博士这点还是挺恐怖的
+

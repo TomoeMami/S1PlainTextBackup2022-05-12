@@ -16607,3 +16607,50 @@ DX9改成11之后貌似OK了
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  gwchobit  
+##### 2928#       发表于 2022-12-6 01:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58788287&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-12-6 00:06</a>
+
+竞技场最终之战怎么打，箱子血厚得跟鬼一样</blockquote>
+不会动站桩就是输出测试器，狂暴啊暗黑啊恶魔什么的 攻速叠起来 单体女神扔起来。
+
+破防卡肉多练习
+
+*****
+
+####  gwchobit  
+##### 2929#       发表于 2022-12-6 01:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58788635&amp;ptid=2098044" target="_blank">アルメリア 发表于 2022-12-6 00:23</a>
+
+变南瓜炸弹后很好用 几下一个戒誓芽</blockquote>
+终极火/龙/女神/武技能的变体aoe都很可观
+
+*****
+
+####  yueyut  
+##### 2930#       发表于 2022-12-6 02:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58787045&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-12-5 23:07</a>
+
+卧槽那且不是刷爆了？我新章都打到东京了，也才出那么个几个装备盘
+
+然后24种技能在新章通过装备盘还会再有 ...</blockquote>
+虽然装备盘刷爆的上限很高。。。但是由于新章对于装备的强化太过头，所以只要稍微刷刷就可以秒杀一切包括最终boss了。。我曾经计划刷过一套超猛的技能搭配，结果秒了boss之后就完全失去了动力。
+
+*****
+
+####  M1NG  
+##### 2931#       发表于 2022-12-6 02:18
+
+ 本帖最后由 M1NG 于 2022-12-6 02:35 编辑 
+
+问个无聊问题，通关了已经，但是就差五万步的成就，有什么地方适合刷步数吗，搞了个宏在镇子里跑一个小时了还没做完，该不会在镇子里不算吧
+
+没事了，在研究所门口又跑了一会，已经全成就了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
