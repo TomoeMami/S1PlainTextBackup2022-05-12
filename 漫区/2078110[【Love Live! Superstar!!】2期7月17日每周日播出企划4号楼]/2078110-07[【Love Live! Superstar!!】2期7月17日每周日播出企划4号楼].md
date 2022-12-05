@@ -12085,3 +12085,42 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都是来洗脚的，谁洗不是洗，看到就烦的角色也不差这一个，又不是Vn不来就没3期了
 
+
+
+*****
+
+####  starring  
+##### 10008#       发表于 2022-12-6 01:04
+
+ 本帖最后由 starring 于 2022-12-6 01:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58788088&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-12-5 23:55</a>
+
+其实也就是正常东亚水准啦
+
+说起来怎么还有那么多人对vn不是三期生或者不入Liella抱有幻想，甚至 ...</blockquote>
+连自尊都不要成做香音的洗脚婢了，要是VN还不入队那就是小丑中的小丑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+先是5人然后9人12人，财团B这是走在创死粉丝新的道路上，9人制的祖宗之法已经不需要<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 10009#       发表于 2022-12-6 01:09
+
+不懂，VN在队外能干点啥啊
+1vs.9+2？
+那企划还真是个大聪明，快找精神病院看看吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ads147147  
+##### 10010#       发表于 2022-12-6 01:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58789217&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-6 01:04</a>
+连自尊都不要成做香音的洗脚婢了，要是VN还不入队那就是小丑中的小丑
+
+先是5人然后9人12人，财团B这 ...</blockquote>
+也不说水虹，缪自己都有日天歌这种其实也不能算是9人曲的超级大合唱曲子。其实我想想vn在动画世界线已经是高1，其实是和二期生一个年级，所以其实是5加5加5的15人体制也不是不可能哦。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
