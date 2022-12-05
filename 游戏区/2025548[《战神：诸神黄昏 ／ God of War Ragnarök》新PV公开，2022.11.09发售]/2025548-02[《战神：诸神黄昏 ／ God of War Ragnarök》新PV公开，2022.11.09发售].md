@@ -4552,3 +4552,15 @@ b站恶评如潮的竟然是铁森林那一节……
 
 需要一个小胖妞和肥仔为主角的DLC，把1代敲钟的谜团和阿斯加德这边的家庭关系补充一下
 
+
+
+*****
+
+####  focus  
+##### 1908#       发表于 2022-12-5 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58779327&amp;ptid=2025548" target="_blank">wzh5555 发表于 2022-12-5 14:37</a>
+
+因为这代符文伤害方面回报一般，所以总的来说就是上属性、打晕值、群控或吹飞杂兵、攒彩虹桥风暴这些需求 ...</blockquote>
+bug取消符文有详细介绍吗？怎么操作
+

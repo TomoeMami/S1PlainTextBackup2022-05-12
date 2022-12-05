@@ -2283,3 +2283,15 @@ vspo这天天ark宝可梦的，看不下去了
 —— 来自 Xiaomi 22081212C, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 笑死，结果还是趋同演化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 17835#       发表于 2022-12-5 17:32
+
+最气人的是ark宝批越播同接越高
+这届日本人真的不行
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
