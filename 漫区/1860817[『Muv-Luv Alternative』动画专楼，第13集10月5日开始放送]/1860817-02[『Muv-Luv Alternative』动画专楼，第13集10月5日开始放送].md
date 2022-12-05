@@ -1395,3 +1395,14 @@ a01全员00单元候补，按后续设定00单元都成一个种族了
 
 游戏太久之前玩的有点模糊了，问个设定：beta挂了以后是完全没有值得回收利用的资源吗，尸体和巢穴就是纯纯的不可燃垃圾么
 
+
+
+*****
+
+####  JAROD009  
+##### 2116#       发表于 2022-12-5 10:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58775498&amp;ptid=1860817" target="_blank">cauchua 发表于 2022-12-5 10:16</a>
+游戏太久之前玩的有点模糊了，问个设定：beta挂了以后是完全没有值得回收利用的资源吗，尸体和巢穴就是纯纯 ...</blockquote>
+有机物都能回收
+

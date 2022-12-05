@@ -11430,3 +11430,15 @@ day2还是不错，看点还蛮多的，下一场要等到1月7号了，不过�
 
 Day1的话就不太清楚了。
 
+
+
+*****
+
+####  player3960  
+##### 9954#       发表于 2022-12-5 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58773341&amp;ptid=2078110" target="_blank">2148214 发表于 2022-12-5 03:02</a>
+
+看了油管一个把花篮从头拍到尾的up的视频，彩和鱼是没有单独花篮的，可香花篮有一个。小百合花篮没数可能 ...</blockquote>
+day1的合鲤花篮我推上看到照片的有3个吧，原来鲤鱼一个个人花篮都没有啊，有点惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
