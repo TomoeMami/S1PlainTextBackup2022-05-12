@@ -429,3 +429,15 @@ del
 17年CDPR立项，18年找到扳机且确定今石洋之当监督，并扯皮了两年多剧本和前期设定，然后才正式开始制作到 ...</blockquote>
 2022年开始制作的？
 
+
+
+*****
+
+####  山岚夜雨  
+##### 3182#       发表于 2022-12-6 18:32
+
+ 本帖最后由 山岚夜雨 于 2022-12-6 18:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58795190&amp;ptid=2069884" target="_blank">韶华白首 发表于 2022-12-6 12:10</a>
+2022年开始制作的？</blockquote>
+剧本设定搞定之后开始制作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看清我说的，18年开始讨论剧本扯了两年多，然后制作到现在，那不就是20年左右正式开始作画制作吗，而且要看你把不把前期剧本当成制作的一部分了不然18年就能算开始了
+
