@@ -853,3 +853,15 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 
 激光枪有超强的XII，低射速高精度威力炸裂的DMR，专家精英收割机。还有射速更高弹量更多专攻枪兵的IV，以及泼水枪侦查（这个配地狱火词条能打罐头，虽然削过）。
 
+
+
+*****
+
+####  DLSDFY  
+##### 191#         楼主| 发表于 2022-12-7 01:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58807297&amp;ptid=1951151" target="_blank">mirrorside 发表于 2022-12-7 00:46</a>
+
+是开了光追么？我现在不开光追帧数比之前不开时涨了一二十帧，但是开了光追后的帧数比之前开时跌了起码二 ...</blockquote>
+我显卡是1070，没有光追选项的。
+
