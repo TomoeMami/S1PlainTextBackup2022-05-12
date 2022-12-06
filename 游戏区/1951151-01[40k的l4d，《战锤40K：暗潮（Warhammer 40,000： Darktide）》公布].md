@@ -865,3 +865,82 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 是开了光追么？我现在不开光追帧数比之前不开时涨了一二十帧，但是开了光追后的帧数比之前开时跌了起码二 ...</blockquote>
 我显卡是1070，没有光追选项的。
 
+
+
+*****
+
+####  半分宅  
+##### 192#       发表于 2022-12-7 03:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58798769&amp;ptid=1951151" target="_blank">afer 发表于 2022-12-6 03:58</a>
+
+天天打混沌（打僵尸），要么就打虫子，特么别的异端就不能打打么，什么绿皮艾达黑艾达排骨钛帝国都 ...</blockquote>
+因为别的异端不是几个大头可以处理的。巢都这些异端就只是杂鱼中的杂鱼，甚至都不是杂“兵”。
+
+绿皮：就算是普通的绿皮小子，可能都要光枪一整个弹夹才能放倒。
+
+黑白豆芽：面对守护者之类的杂兵可能还有机会，一个支派武士对几个大头来说就是BOSS级。
+
+排骨：成建制帝国卫军使用反装甲武器和重炮集火，才能勉强应付。
+
+钛：钛军自己是射击战为主，在暗潮的系统下打起来会非常恶心。钛协军加克鲁特又感觉不太有特色。
+
+*****
+
+####  afer  
+##### 193#       发表于 2022-12-7 03:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58808674&amp;ptid=1951151" target="_blank">半分宅 发表于 2022-12-7 03:26</a>
+
+因为别的异端不是几个大头可以处理的。巢都这些异端就只是杂鱼中的杂鱼，甚至都不是杂“兵”。
+
+绿皮：就 ...</blockquote>
+加克鲁特还是不错的，说到底还是这游戏机制还是走僵尸人海流派的，其实我想要的是过关动作。
+
+倒是非人类视角，到现在就一个火焰战士，结果还暴死了。
+
+*****
+
+####  半分宅  
+##### 194#       发表于 2022-12-7 03:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58808710&amp;ptid=1951151" target="_blank">afer 发表于 2022-12-6 15:37</a>
+
+加克鲁特还是不错的，说到底还是这游戏机制还是走僵尸人海流派的，其实我想要的是过关动作。
+
+倒是非人类 ...</blockquote>
+对，机制走僵尸人海流，那敌方也需要是走人海流的势力才比较不会出戏（中古的鼠人、混沌信徒，40k的异端和虫子）。星际战士那样的动作过关流就比较适合多样化的敌人和敌方载具。
+
+*****
+
+####  415452356  
+##### 195#       发表于 2022-12-7 03:44
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥时候出个战斗修女为主角的act/arpg/tps啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  afer  
+##### 196#       发表于 2022-12-7 03:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58808734&amp;ptid=1951151" target="_blank">半分宅 发表于 2022-12-7 03:44</a>
+
+对，机制走僵尸人海流，那敌方也需要是走人海流的势力才比较不会出戏（中古的鼠人、混沌信徒，40k的异端 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以又转回来了，归根结底还是老美还是喜欢打僵尸，就是套皮打僵尸，越打越无聊。
+
+*****
+
+####  afer  
+##### 197#       发表于 2022-12-7 03:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58808736&amp;ptid=1951151" target="_blank">415452356 发表于 2022-12-7 03:44</a>
+
+啥时候出个战斗修女为主角的act/arpg/tps啊
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“您是不是在找：Warhammer 40K：Battle Sister”
+
+虽然是个VR游戏
+

@@ -49,3 +49,16 @@ XGP版有BUG，闪电戒指解锁不了<img src="https://static.saraba1st.com/im
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  センコウ  
+##### 454#       发表于 2022-12-7 04:39
+
+[https://store.steampowered.com/a ... y_of_the_Moonspell/](https://store.steampowered.com/app/2230760/Vampire_Survivors_Legacy_of_the_Moonspell/)
+
+DLC来了，15号
+
+新地图+8新角色+13新武器
+
