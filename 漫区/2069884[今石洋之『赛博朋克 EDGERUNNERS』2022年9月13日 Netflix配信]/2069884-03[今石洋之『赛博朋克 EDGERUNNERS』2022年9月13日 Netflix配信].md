@@ -478,3 +478,14 @@ del
 
 结果萝莉的同人图最多<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  绮罗丛  
+##### 3186#       发表于 2022-12-6 23:35
+
+其实我对后三集有点不满，扳机社的味儿太浓了，感觉和片子的基调不太搭
+
+—— 来自 Xiaomi 22021211RC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
