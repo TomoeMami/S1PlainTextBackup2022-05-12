@@ -4754,3 +4754,15 @@ CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动
 
 —— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  查马丁魔术师  
+##### 1925#       发表于 2022-12-6 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58801822&amp;ptid=2025548" target="_blank">名字已被吃 发表于 2022-12-6 18:55</a>
+
+日版兑换码现在都不到200，我的美版收藏版才清关出来走国内快递寄过来，美版兑换码是不是也只能卖这个价了[ ...</blockquote>
+美版不可能，日版一个是因为汇率太夸张的原因，还有一个是因为日本是战神卖的最差的地区之一
+
