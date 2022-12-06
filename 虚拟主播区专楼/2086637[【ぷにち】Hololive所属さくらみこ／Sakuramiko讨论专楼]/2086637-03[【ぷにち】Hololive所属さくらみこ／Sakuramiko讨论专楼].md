@@ -3733,3 +3733,15 @@ twitch开台了
 
 这BUG是100%的吗？还是只有少部分人有？
 
+
+
+*****
+
+####  holoan  
+##### 3349#         楼主| 发表于 2022-12-6 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58804961&amp;ptid=2086637" target="_blank">tesparu 发表于 2022-12-6 22:25</a>
+
+羡慕老贼</blockquote>
+一时间不知道该羡慕谁了
+
