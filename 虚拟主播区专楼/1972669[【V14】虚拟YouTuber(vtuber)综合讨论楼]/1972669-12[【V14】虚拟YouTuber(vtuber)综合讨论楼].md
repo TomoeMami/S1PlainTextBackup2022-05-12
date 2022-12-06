@@ -2588,3 +2588,24 @@ vta一是线下小团体气息浓厚，像未来丹发各种写真感觉就很�
 
 说来杰尼斯卖点之一就是团爱j家爱（现在好像因为散的散退的退消退很多了）……<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  空集  
+##### 17861#       发表于 2022-12-6 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58802067&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-6 19:09</a>
+
+是的，所以即使已经出道的两期也或多或少有遇到直播上的问题。
+
+但我对vta时期的看法就是人造前世，看已出 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 人造前世挺有道理，不过这么说确实强烈感觉在玩一种非常偶像圈的东西了
+
+*****
+
+####  psnsic8nag  
+##### 17862#       发表于 2022-12-6 21:15
+
+死心吧 田角为了财报不可能放弃偶像化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
