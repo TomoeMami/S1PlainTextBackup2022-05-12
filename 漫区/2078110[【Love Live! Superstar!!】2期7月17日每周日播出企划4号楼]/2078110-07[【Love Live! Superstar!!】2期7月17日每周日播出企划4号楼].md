@@ -12234,3 +12234,22 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 结那50问的视频太招人喜欢了，动画怎么样无所谓的好吧，哦这里是漫区，对不住对不住<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  沙茶酱  
+##### 10021#       发表于 2022-12-6 12:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不知道这样说好不好···如果都可以接受二期生了，我觉得结那以及VN（只说人设和歌，不说后面相关剧情），那怎么都是可以接受了吧，甚至我已经迫不及待想看结那进团了，别夜长梦多了
+
+*****
+
+####  沙茶酱  
+##### 10022#       发表于 2022-12-6 12:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58794801&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-12-6 11:51</a>
+
+结那50问的视频太招人喜欢了，动画怎么样无所谓的好吧，哦这里是漫区，对不住对不住 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我明白，我明白，好可爱
+
