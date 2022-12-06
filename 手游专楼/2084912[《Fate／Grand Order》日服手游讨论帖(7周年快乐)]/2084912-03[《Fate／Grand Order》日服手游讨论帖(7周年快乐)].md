@@ -8693,3 +8693,31 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 你刷几把狗粮本就能满了还特意等翻倍？ 不愧是你</blockquote>
 有便宜不占网吧蛋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 3787#       发表于 2022-12-6 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58801339&amp;ptid=2084912" target="_blank">ayanamilin 发表于 2022-12-6 18:23</a>
+
+我猜他指的是蘑菇投稿魔法使之夜时由于篇幅限制被拒绝；
+
+信源可以看这里，我认为有一定的可信度：
+
+https:/ ...</blockquote>
+魔夜原稿版确实有这个说法，而且前后提过两次
+
+虽然个人觉得型月轨迹那本书里有很多杜撰或者美化的东西……太田其实早年提过菌的小说一直落选是内容原因
+
+*****
+
+####  UNISONIA  
+##### 3788#       发表于 2022-12-6 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58800345&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-6 17:21</a>
+
+2.6不就是完美的证明了，给一个作者在创作上无限大的自由之后，他在进取心上能拉胯到什么程度</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是轨迹拉了，我建议竹入和奈须互换东家
+

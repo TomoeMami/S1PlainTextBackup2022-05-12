@@ -2650,3 +2650,15 @@ j家的程度可不敢想啊，能吸点最近心碎的粉丝已经是大赚了<
 就是不知道这个三期是什么个情况，皮感觉更像一期，授课选拔又是怎样的模式，虹本身对于vta的效果应该是满意的，不然三期人这么多的情况下这都开始招四期了。
 以前看46系的时候也很喜欢看showroom甄选，当时很看好的66和马思萌都能进我喜欢的团还蛮高兴的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 17866#       发表于 2022-12-6 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58804055&amp;ptid=1972669" target="_blank">fastary 发表于 2022-12-6 21:26</a>
+说实话，这么看重财报那田角不如咬牙彻底搞偶像养成好了，放开vta的收益化(也可能已经放开了我没注意)，用 ...</blockquote>
+sc还没，感觉对非正式员工会涉及到利益分配这种应该挺麻烦的吧，我觉得就算有工资也应该是固定那种，人日下部都跑来东京租房了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">…
+直播内容也没有限制那么死，上上周日下部蒙眼做菜<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，联动的时候内容更多一些，我觉得像是没有读观众名字的t台这样
+

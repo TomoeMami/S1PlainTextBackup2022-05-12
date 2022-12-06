@@ -16716,3 +16716,17 @@ DX9改成11之后貌似OK了
 
 —— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  urvark  
+##### 2937#       发表于 2022-12-6 21:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58803827&amp;ptid=2098044" target="_blank">绕指流光 发表于 2022-12-6 21:08</a>
+
+带黑去打啊，竞技场能带伙伴的
+
+—— 来自 OPPO PEDM00, Android 13上的 S1Next-鹅版 v2.5.2-play ...</blockquote>
+带着的啊，没啥用，挡不了几下，而且黑需要时间才能移动到我身边，我必须一直走动来躲避各种子弹，她能挡的机会不多
+
