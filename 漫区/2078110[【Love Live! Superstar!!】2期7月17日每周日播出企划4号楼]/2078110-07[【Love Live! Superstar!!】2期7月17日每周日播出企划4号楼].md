@@ -12404,3 +12404,21 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 让星的三叉戟分一组吧，充分展现这破企划想要的差距卖点<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 10037#       发表于 2022-12-6 16:47
+
+怕不是把你企的嫡系都分一起，待遇拉满，剩下的随便打发一下，感觉他们做的出来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 10038#       发表于 2022-12-6 16:47
+
+早说了烂动画什么buff都没法次周刷大数据的，还有大一千多的目标呢，加油努力哦。
+
