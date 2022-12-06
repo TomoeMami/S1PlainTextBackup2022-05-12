@@ -8563,3 +8563,26 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 
 不过还是要留石等到16号
 
+
+
+*****
+
+####  仰望神的括约肌  
+##### 3775#       发表于 2022-12-6 17:43
+
+没延迟 官网更新情报一般17:06~  常年摸鱼刷网页观测到的时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 3776#       发表于 2022-12-6 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58800491&amp;ptid=2084912" target="_blank">eilot 发表于 2022-12-6 17:29</a>
+
+终于有新活动消息，只是復刻一个圣诞小太阳...
+
+何时才復刻圣诞全角餐，旧角就没个人硬币吗...没人力资源像 ...</blockquote>
+不复刻全员可能还是因为圣诞羽蛇神和筋肉人的版权问题吧......只复刻她之外的从者又显得欲盖弥彰，于是挑了时间最近的没有从者硬币的圣诞从者迦尔纳...
+
+其实以后可以出一个活动从者专属的通用硬币，能解决不少问题...
+
