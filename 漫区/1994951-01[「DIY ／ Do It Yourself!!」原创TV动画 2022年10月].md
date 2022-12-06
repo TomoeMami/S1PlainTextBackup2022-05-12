@@ -7155,3 +7155,14 @@ self也算是高分低能的一种写照了<img src="https://static.saraba1st.co
 在这边学的再好也赶不上隔壁学习先进科技的精英学校，一场升学考试就决定了人生的轨迹 ...</blockquote>
 一考定终身嘛……
 
+
+
+*****
+
+####  亚瑟邓特  
+##### 538#       发表于 2022-12-6 23:24
+
+布女士有料啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

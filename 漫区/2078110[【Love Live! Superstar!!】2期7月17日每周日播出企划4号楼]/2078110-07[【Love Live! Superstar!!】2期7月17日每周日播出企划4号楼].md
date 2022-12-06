@@ -12655,3 +12655,15 @@ Nako的新活，在12月1日起开服的【信长的野望 霸道】中饰演看
 
 2022-12-6 21:26 上传
 
+
+
+*****
+
+####  starring  
+##### 10053#       发表于 2022-12-6 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58801722&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-12-6 18:49</a>
+
+完全同意，青山鲤鱼pay子一组的话我可以不看其他组</blockquote>
+正好这三人有一首HAPPY TO DO WA!要是哪天能在live上看到就好
+
