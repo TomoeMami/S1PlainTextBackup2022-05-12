@@ -12506,3 +12506,12 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 角色方面，现有的九人也不乏小丑角色（其实我觉得小丑与否与入不入团关系不大， ...</blockquote>
 然而不进来更看不到了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 10044#       发表于 2022-12-6 17:17
+
+看看SNP，除了说两句心痛话就没人记得。要是结那不入团就不会有曝光度，这群人去哪里发癫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
