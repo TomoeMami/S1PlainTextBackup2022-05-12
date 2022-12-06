@@ -12157,3 +12157,24 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 我有点担心代孙会不会故意不转播的时候出yura，那我是无话可说了。
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 10014#       发表于 2022-12-6 09:30
+
+应该不至于，宫城场已经基本把live歌单定型了，高度对齐星二动画的live歌单，很难加其他曲子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 10015#       发表于 2022-12-6 09:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58791668&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-12-6 08:40</a>
+
+怎么说呢，塑造的不好再怎么丢在正中心也不会有人把他当center的。还好sayu还能顶得住，至少只是看live不会 ...</blockquote>
+看宫城这两场的歌单就知道3rd肯定不会唱yura，没有可以换这歌的位置
+
+至少要到5th，或者分组Live才有可能唱（也可能明年不等三期生直接开4th，然后5th三期生加入再跑一次动画歌单）
+
