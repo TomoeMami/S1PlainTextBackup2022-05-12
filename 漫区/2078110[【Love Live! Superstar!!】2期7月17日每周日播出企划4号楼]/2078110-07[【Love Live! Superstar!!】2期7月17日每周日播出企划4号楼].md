@@ -12192,3 +12192,12 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 至少要到5th，或者分组Live才有可能 ...</blockquote>
 感觉三期前还是会开4th的，星团的这个日程安排相当固定了。就是不懂fmt会不会。
 
+
+
+*****
+
+####  ViyViy  
+##### 10017#       发表于 2022-12-6 10:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一的变数就是最后一场是不是9人始空了，顺便想起来件事，去年跨年的ShootingVoice和Live with smile是不是也必有9版
+
