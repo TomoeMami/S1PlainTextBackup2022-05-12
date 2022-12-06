@@ -16665,3 +16665,16 @@ DX9改成11之后貌似OK了
 
 还有潜水通气管这技能怎么有时候有用有时候又失效了？
 
+
+
+*****
+
+####  夜来  
+##### 2933#       发表于 2022-12-6 16:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58798976&amp;ptid=2098044" target="_blank">blueelf 发表于 2022-12-6 16:09</a>
+第四章快打完了，RB的后跳一直用不了是怎么回事？后跳不了雾隐这技能也没用了
+
+还有潜水通气管这技能怎么有 ...</blockquote>
+背包里看看是不是把后跳封印了
+

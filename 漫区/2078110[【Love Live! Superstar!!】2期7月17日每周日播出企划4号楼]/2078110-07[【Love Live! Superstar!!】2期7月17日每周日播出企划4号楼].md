@@ -12358,3 +12358,14 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 如果借工时少把连轴转的工期调整一下似乎也可以。
 
+
+
+*****
+
+####  player3960  
+##### 10032#       发表于 2022-12-6 16:17
+
+三期还是快点出来吧，出来了好分小组，按年级分或者老带新或者投票都可以<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
