@@ -3665,3 +3665,27 @@ IQ test！？
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">知道是孵蛋的图，我发散一下罢了
 
+
+
+*****
+
+####  holoan  
+##### 3342#         楼主| 发表于 2022-12-6 21:38
+
+<img src="https://img.saraba1st.com/forum/202212/06/213823xss5nv6rs52yzxvn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (51.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-6 21:38 上传
+
+*****
+
+####  rs5621  
+##### 3343#       发表于 2022-12-6 21:41
+
+再来一个团长，火建就齐了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

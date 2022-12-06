@@ -4779,3 +4779,16 @@ CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动
 
 —— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  gary76  
+##### 1927#       发表于 2022-12-6 21:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58784582&amp;ptid=2025548" target="_blank">白猫MKII 发表于 2022-12-5 20:09</a>
+你什么难度？如果浪人还抓不到双刀蓄力的话，那我只能建议多练练</blockquote>
+就默认难度啊，没改过的
+
+伊戈尔那个大剑我试了很多次都弹不中，只能乖乖用石墙顶了
+
