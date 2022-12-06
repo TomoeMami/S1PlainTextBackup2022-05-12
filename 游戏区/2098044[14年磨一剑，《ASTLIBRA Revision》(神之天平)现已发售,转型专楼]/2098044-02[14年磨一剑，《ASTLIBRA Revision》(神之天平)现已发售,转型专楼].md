@@ -16654,3 +16654,14 @@ DX9改成11之后貌似OK了
 
 没事了，在研究所门口又跑了一会，已经全成就了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  blueelf  
+##### 2932#       发表于 2022-12-6 16:09
+
+第四章快打完了，RB的后跳一直用不了是怎么回事？后跳不了雾隐这技能也没用了
+
+还有潜水通气管这技能怎么有时候有用有时候又失效了？
+

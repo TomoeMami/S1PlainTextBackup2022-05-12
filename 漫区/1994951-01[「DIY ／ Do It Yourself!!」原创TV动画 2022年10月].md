@@ -7088,3 +7088,39 @@ self也算是高分低能的一种写照了<img src="https://static.saraba1st.co
 
 —— 来自 samsung SM-G981N, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  千恋万花  
+##### 534#       发表于 2022-12-6 16:03
+
+【すてっぷ⑩】ＤＩＹって、どんぞこ？・いんぽっしぶる？・ゆうきとやるきがあればなんでもできる！
+
+『秘密基地』着工当日、せるふたちは衝撃を受ける。
+
+学校側の事務的な伝達ミスで、これまでに集めた材料がすべて失われてしまったのだ。
+
+せるふたち、ＤＩＹ部の部員たち、さすがに落ち込み家に帰る……。
+
+ジョブ子から何があったかを聞いたぷりんは、物置で昔の思い出の品を探すと、せるふを訪ねる。
+
+ぷりんは、懸命にせるふを励まそうとするが、せるふはちっとも落ち込んでいなかった。
+
+どうしたら、必要な材料をまた集められるか、とっくに前向きに考えていたのだった。
+
+呆れるも安心するぷりんは、思い出の品をせるふに渡し……。
+
+脚本：筆安一幸
+
+絵コンテ：笹木信作 
+
+演出：中込健人
+
+作画監督：吉田南 茂木海渡 福永智子 片出健太
+<img src="https://p.sda1.dev/8/40f34d4d1532377c02af7a5620add9eb/433f7049ea0a2a7c8f3a1a44212cfefc.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0d20f7d06778cf9f23afc4cf7e08d45c/d121595d26cfec58f89ca78a8684c652.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/c6db9ed368b7f4215d8bea80248db3f5/f6e50ac0b407702d4270b6617dd16e46.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/c14d18ee7ee7c14516cf676c5c68a8dc/89e2396b25caf4dbfd07925868fd2ccd.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/205d09835389c731a92b53854359efa0/3459f2d030c290df906386a0f7c22188.jpg" referrerpolicy="no-referrer">
+
