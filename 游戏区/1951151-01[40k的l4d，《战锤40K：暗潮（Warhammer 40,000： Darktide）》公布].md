@@ -711,3 +711,14 @@ xgp似乎没有推送补丁啊，看版本还是12月1号的，所以xgp和steam
 内容是真的少，老兵上来那一堆看不出大区别的自动枪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自动枪有一两把还是能用的，没区别也不好用的斧头才是污染池子，更不要说伤害计算改了之后刷出有提升的装备太难了
 
+
+
+*****
+
+####  cortexiv  
+##### 178#       发表于 2022-12-6 14:31
+
+xgp红迪上都说更新了，这边照常报错但是没法像之前一样反复尝试卡进游戏里了
+
+重下试试，不玩还微微有点瘾，更新后少炸几次估计就捏着鼻子继续玩了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
