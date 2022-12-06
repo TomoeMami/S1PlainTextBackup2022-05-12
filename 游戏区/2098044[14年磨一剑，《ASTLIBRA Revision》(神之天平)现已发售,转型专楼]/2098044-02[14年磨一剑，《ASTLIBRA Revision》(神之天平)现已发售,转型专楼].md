@@ -16739,3 +16739,25 @@ DX9改成11之后貌似OK了
 
 光剑村正解锁的电池怎么装备在村正上面？？
 
+
+
+*****
+
+####  hello0607  
+##### 2939#       发表于 2022-12-6 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58804698&amp;ptid=2098044" target="_blank">装甲兔 发表于 2022-12-6 22:08</a>
+
+光剑村正解锁的电池怎么装备在村正上面？？</blockquote>
+解锁就行了 砍人带波
+
+*****
+
+####  装甲兔  
+##### 2940#       发表于 2022-12-6 22:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58804734&amp;ptid=2098044" target="_blank">hello0607 发表于 2022-12-6 22:10</a>
+
+解锁就行了 砍人带波</blockquote>
+哦哦
+
