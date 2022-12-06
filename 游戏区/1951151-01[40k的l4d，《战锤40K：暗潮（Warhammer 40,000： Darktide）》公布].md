@@ -768,3 +768,12 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 
 按肥鲨的尿性，第一年都是付费测试
 
+
+
+*****
+
+####  bayes  
+##### 184#       发表于 2022-12-6 18:16
+
+怎么今天xgp要更新35个G？什么鬼。。查了查还就是个hotfix，我还以为DLC出了呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
+
