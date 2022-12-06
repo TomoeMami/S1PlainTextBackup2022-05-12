@@ -689,3 +689,25 @@ xgp似乎没有推送补丁啊，看版本还是12月1号的，所以xgp和steam
 
 这个游戏现在真是一坨屎
 
+
+
+*****
+
+####  古代人皮克  
+##### 176#       发表于 2022-12-6 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58785295&amp;ptid=1951151" target="_blank">FLZB 发表于 2022-12-5 21:04</a>
+
+暗潮这首发职业数量都没鼠疫2的可选角色多</blockquote>
+大胆点，没有鼠疫一多
+
+*****
+
+####  古代人皮克  
+##### 177#       发表于 2022-12-6 13:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58795339&amp;ptid=1951151" target="_blank">aestivalls 发表于 2022-12-6 12:18</a>
+
+内容是真的少，老兵上来那一堆看不出大区别的自动枪</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自动枪有一两把还是能用的，没区别也不好用的斧头才是污染池子，更不要说伤害计算改了之后刷出有提升的装备太难了
+

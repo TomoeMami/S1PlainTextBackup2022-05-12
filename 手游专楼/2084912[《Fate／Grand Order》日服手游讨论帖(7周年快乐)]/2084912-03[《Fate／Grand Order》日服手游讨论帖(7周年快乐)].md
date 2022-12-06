@@ -8462,3 +8462,12 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赶紧搞完2.7我要看月姬R下啊
 
+
+
+*****
+
+####  zakki  
+##### 3765#       发表于 2022-12-6 13:56
+
+早该踢了蘑菇了，让东大王和樱女士来拯救被菌类糟蹋过的fgo的颓势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

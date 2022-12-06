@@ -194,3 +194,26 @@ SD随时待机随时开机继续玩的体验薄纱win掌机。
 
 坐等到货折腾<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  魔法酪饼  
+##### 543#       发表于 2022-12-6 13:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58740533&amp;ptid=2086469" target="_blank">plumlis 发表于 2022-12-03 13:40:50</a>
+原生横屏 大概率取消
+
+霍尔摇杆 基本取消
+
+屏幕色域也不提了，大概率又是一个不到100% Srgb的烂屏了，还有 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">霍尔摇杆没了？？？干。。。
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  医生狼多  
+##### 544#       发表于 2022-12-6 14:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我才发现gpd又在四处碰瓷了，这次追着sd咬
+
