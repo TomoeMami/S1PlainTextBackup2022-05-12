@@ -417,3 +417,15 @@ del
 弄了多久？</blockquote>
 17年CDPR立项，18年找到扳机且确定今石洋之当监督，并扯皮了两年多剧本和前期设定，然后才正式开始制作到今年吧
 
+
+
+*****
+
+####  韶华白首  
+##### 3181#       发表于 2022-12-6 12:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58791133&amp;ptid=2069884" target="_blank">山岚夜雨 发表于 2022-12-6 04:41</a>
+
+17年CDPR立项，18年找到扳机且确定今石洋之当监督，并扯皮了两年多剧本和前期设定，然后才正式开始制作到 ...</blockquote>
+2022年开始制作的？
+
