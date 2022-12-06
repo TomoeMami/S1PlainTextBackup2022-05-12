@@ -12620,3 +12620,21 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 由手机上传
 2022-12-6 19:22 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 10051#       发表于 2022-12-6 20:45
+
+Nako的新活，在12月1日起开服的【信长的野望 霸道】中饰演看板娘三鸟屋よしの
+
+<img src="https://img.saraba1st.com/forum/202212/06/204540w9bw12hs22z2p1s1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EB4EFC72-1D37-4500-8F15-2FD926E42C54.jpeg</strong> (289.15 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-6 20:45 上传
+

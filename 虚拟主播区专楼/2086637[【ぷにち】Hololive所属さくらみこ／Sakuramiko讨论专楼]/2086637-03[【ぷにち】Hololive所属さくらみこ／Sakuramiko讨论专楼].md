@@ -3649,3 +3649,19 @@ IQ test！？
 
 那个图和同接无关，说的是孵化回数和出率惹
 
+
+
+*****
+
+####  holoan  
+##### 3340#         楼主| 发表于 2022-12-6 20:45
+
+这个还是知道的，是楼上自己歪了
+
+*****
+
+####  rs5621  
+##### 3341#       发表于 2022-12-6 20:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">知道是孵蛋的图，我发散一下罢了
+
