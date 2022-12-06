@@ -7124,3 +7124,14 @@ self也算是高分低能的一种写照了<img src="https://static.saraba1st.co
 <img src="https://p.sda1.dev/8/c14d18ee7ee7c14516cf676c5c68a8dc/89e2396b25caf4dbfd07925868fd2ccd.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/205d09835389c731a92b53854359efa0/3459f2d030c290df906386a0f7c22188.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CharlieZ-  
+##### 535#       发表于 2022-12-6 17:04
+
+高分低能不至于，人家画画还是顶级的，就是动手能力差点
+
+怎么最新一集截图这么沉重的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种萌豚动画不应该是齐心协力找回丢失的材料顺利解决危机吗
+
