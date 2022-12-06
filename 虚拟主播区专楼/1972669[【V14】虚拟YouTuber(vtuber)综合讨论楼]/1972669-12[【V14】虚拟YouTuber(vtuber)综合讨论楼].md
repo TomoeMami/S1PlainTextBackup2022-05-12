@@ -2662,3 +2662,19 @@ j家的程度可不敢想啊，能吸点最近心碎的粉丝已经是大赚了<
 sc还没，感觉对非正式员工会涉及到利益分配这种应该挺麻烦的吧，我觉得就算有工资也应该是固定那种，人日下部都跑来东京租房了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">…
 直播内容也没有限制那么死，上上周日下部蒙眼做菜<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，联动的时候内容更多一些，我觉得像是没有读观众名字的t台这样
 
+
+
+*****
+
+####  fastary  
+##### 17867#       发表于 2022-12-6 22:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58804496&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-6 21:57</a>
+
+sc还没，感觉对非正式员工会涉及到利益分配这种应该挺麻烦的吧，我觉得就算有工资也应该是固定那种，人日 ...</blockquote>
+那内容其实还好，不过同接来看……果然主播还是要打游戏和唱歌吧？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+其实是想起jr的恋人赏和48系的总选了，印象里是类似jump顺位投票那种给公司打钱为支持的人打榜的制度，钱给运营换推出道机会，不求本人分成的感觉（如果有分成那就是我记错了
+
+我是觉得按目前本社出道和vta入学的速度迟早vta也会扩展成中等箱，真的有种会搞练习生打榜大逃杀的出道模式的感觉x
+
