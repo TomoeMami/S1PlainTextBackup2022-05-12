@@ -3791,3 +3791,21 @@ twitch开台了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ZQXY2002  
+##### 3355#       发表于 2022-12-7 00:15
+
+最后打斗差点让我睡着，这么催眠的boss战好久没见过了。
+
+*****
+
+####  holoan  
+##### 3356#         楼主| 发表于 2022-12-7 00:17
+
+在只有4000人看的twitch同时视听直播里看完电影大家都要散的时候突然说了一个这么重要的情报
+
+这人确实没什么逼数
+
