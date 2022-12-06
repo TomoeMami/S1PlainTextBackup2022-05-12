@@ -12273,3 +12273,15 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ads147147  
+##### 10025#       发表于 2022-12-6 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58796851&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-6 13:49</a>
+
+鱼不是都说了9人的liella之后还会持续很长时间么，感觉3期生活动可能得再等两年了，也不怪会有人幻想结那不 ...</blockquote>
+选拔差不多到明年三四月，给三个月培训时间就该准备上台赚米了，还什么给你拖个两年，最快23年7月三期动画就该放了。<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
