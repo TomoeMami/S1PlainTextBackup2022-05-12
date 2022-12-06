@@ -12378,3 +12378,29 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 真分组了求一求别跟土妹子分一组，我觉得那个声音唱歌是真的灾难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，前天Day2的时候乌托邦有一句在pay后面跟唱的听感简直是过山车。
 
+
+
+*****
+
+####  nufawneafg  
+##### 10034#       发表于 2022-12-6 16:33
+
+ 本帖最后由 nufawneafg 于 2022-12-6 16:34 编辑 
+
+还有人没到位呢，现在就展望分组
+还是不要过早下定论<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10035#       发表于 2022-12-6 16:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BD第二周磨了1000，真要先发不过万了
+
+*****
+
+####  starring  
+##### 10036#       发表于 2022-12-6 16:39
+
+让星的三叉戟分一组吧，充分展现这破企划想要的差距卖点<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
