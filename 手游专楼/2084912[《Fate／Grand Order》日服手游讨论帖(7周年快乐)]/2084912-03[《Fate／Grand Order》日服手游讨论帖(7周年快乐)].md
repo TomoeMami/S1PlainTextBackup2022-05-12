@@ -8602,3 +8602,12 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 
 圣诞复刻小太阳，那还是摸了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 3779#       发表于 2022-12-6 18:10
+
+福利多开个宝具本或者3技能强化一下吧，数值给的太低了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
