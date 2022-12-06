@@ -4718,3 +4718,14 @@ CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动
 
 （甚至怀疑自己是否更新了，确认自己的版本是3.0，似乎没毛病）
 
+
+
+*****
+
+####  霸王向小受  
+##### 1922#       发表于 2022-12-6 14:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58795014&amp;ptid=2025548" target="_blank">Kazepollar 发表于 2022-12-6 12:00</a>
+这游戏重复跑路是真麻烦，哪怕给一个返回骨片那样的东西也能好不少</blockquote>
+如果不给回城道具的理由也是不想中断一镜到底的话，那可真是魔怔了，不知所谓到了极点。
+
