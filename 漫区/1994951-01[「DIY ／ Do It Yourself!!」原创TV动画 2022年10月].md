@@ -7144,3 +7144,14 @@ self也算是高分低能的一种写照了<img src="https://static.saraba1st.co
 
 在这边学的再好也赶不上隔壁学习先进科技的精英学校，一场升学考试就决定了人生的轨迹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我特么吹爆  
+##### 537#       发表于 2022-12-6 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58801407&amp;ptid=1994951" target="_blank">很久就在那边l 发表于 2022-12-6 18:28</a>
+在这边学的再好也赶不上隔壁学习先进科技的精英学校，一场升学考试就决定了人生的轨迹 ...</blockquote>
+一考定终身嘛……
+

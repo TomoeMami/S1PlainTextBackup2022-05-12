@@ -12559,3 +12559,14 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 2022-12-6 18:26 上传
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 10047#       发表于 2022-12-6 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58799620&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-6 16:39</a>
+让星的三叉戟分一组吧，充分展现这破企划想要的差距卖点</blockquote>
+完全同意，青山鲤鱼pay子一组的话我可以不看其他组
+
