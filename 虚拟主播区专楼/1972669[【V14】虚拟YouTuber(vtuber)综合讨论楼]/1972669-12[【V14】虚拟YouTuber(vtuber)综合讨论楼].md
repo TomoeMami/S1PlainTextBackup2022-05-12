@@ -2609,3 +2609,18 @@ vta一是线下小团体气息浓厚，像未来丹发各种写真感觉就很�
 
 死心吧 田角为了财报不可能放弃偶像化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 17863#       发表于 2022-12-6 21:26
+
+ 本帖最后由 fastary 于 2022-12-6 21:27 编辑 
+
+说实话，这么看重财报那田角不如咬牙彻底搞偶像养成好了，放开vta的收益化(也可能已经放开了我没注意)，用直播窗sc狠狠斗虫
+
+半(一)年的sc累积Top就有大概率送去本社出道(但是不明说)<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+不过最重要的是除了杂谈也解禁点其他内容啊，嗯聊半年是个人也没货了吧
+
