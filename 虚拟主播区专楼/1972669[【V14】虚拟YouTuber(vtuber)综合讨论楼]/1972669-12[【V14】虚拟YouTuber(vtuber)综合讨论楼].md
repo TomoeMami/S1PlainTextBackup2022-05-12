@@ -2421,3 +2421,13 @@ roko呢，我roko这么大一个人去哪里了😭
 roko呢，我roko这么大一个人去哪里了😭</blockquote>
 Roko 我之前看到有人说已经创号了啊，只是现在是锁着的，组合名都有的估计是还在出道准备吧
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17848#       发表于 2022-12-6 14:50
+
+绿仙居然对联手这么积极的嘛……
+嘛，对巧克老师也是好事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

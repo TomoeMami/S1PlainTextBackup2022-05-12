@@ -12297,3 +12297,17 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  nufawneafg  
+##### 10027#       发表于 2022-12-6 14:52
+
+ 本帖最后由 nufawneafg 于 2022-12-6 14:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58795702&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-12-6 12:36</a>
+不知道这样说好不好···如果都可以接受二期生了，我觉得结那以及VN（只说人设和歌，不说后 ...</blockquote>
+现在企划属于进退失据的状态
+一个猜想，本来结那和三期可能要往后憋一憋，憋到第三季，第二季主要还是二期。然而因为前面对于二期唐突出场反应偏负面，这次就先提一个已经确定好人选的引子出来，把预先剧本改一改，没想明白的人物先塞进去，结果改成这b样彻底翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+现在你是前不着村后不着店啊，该
+
