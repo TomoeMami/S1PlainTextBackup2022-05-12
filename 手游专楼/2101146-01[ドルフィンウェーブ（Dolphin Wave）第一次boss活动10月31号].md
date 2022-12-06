@@ -202,3 +202,17 @@
 
 —— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kulanyee  
+##### 173#       发表于 2022-12-6 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58792202&amp;ptid=2101146" target="_blank">无念 发表于 2022-12-6 09:26</a>
+
+这次商店没二期就很奇怪，我最后一个素材已经溢出了，第一个商店还遥遥无期
+
+—— 来自 HONOR SDY-AN00, An ...</blockquote>
+滑板商店先搬完六星然后其他减半挺好出的
+
