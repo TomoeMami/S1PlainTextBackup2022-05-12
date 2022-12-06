@@ -3717,3 +3717,19 @@ twitch开台了
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  tesparu  
+##### 3347#       发表于 2022-12-6 22:25
+
+羡慕老贼
+
+*****
+
+####  神澈  
+##### 3348#       发表于 2022-12-6 22:25
+
+这BUG是100%的吗？还是只有少部分人有？
+
