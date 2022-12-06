@@ -8444,3 +8444,12 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 
 所以是2.6太烂烂掉了五分之一的玩家吗
 
+
+
+*****
+
+####  白金口袋  
+##### 3763#       发表于 2022-12-6 13:16
+
+2.7分四part,每part再掉五分之一，等终章就都掉没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
