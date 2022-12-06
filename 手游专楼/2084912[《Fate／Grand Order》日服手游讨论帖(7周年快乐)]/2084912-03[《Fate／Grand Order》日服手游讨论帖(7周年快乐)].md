@@ -8611,3 +8611,38 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 
 福利多开个宝具本或者3技能强化一下吧，数值给的太低了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ayanamilin  
+##### 3780#       发表于 2022-12-6 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58792077&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-12-6 09:17</a>
+
+你大概看了知乎还是哪里的假药了
+
+空境同期的小说是少阴、TB、银河英雄传说这些，不太可能因为篇幅有出版 ...</blockquote>
+我猜他指的是蘑菇投稿魔法使之夜时由于篇幅限制被拒绝；
+
+信源可以看这里，我认为有一定的可信度：
+[https://www.bilibili.com/video/B ... 0d40d0106669a&amp;t=355](https://www.bilibili.com/video/BV1iy4y1i7ms/?share_source=copy_web&amp;vd_source=546b360ceb5c9410b540d40d0106669a&amp;t=355)
+
+
+
+*****
+
+####  areklose  
+##### 3781#       发表于 2022-12-6 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">20箱。为啥要限制呢。除非有新圣诞
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3782#       发表于 2022-12-6 18:27
+
+复刻限制池子数不是常规操作了
+
+估计开完这个就长几天草开2.7
+

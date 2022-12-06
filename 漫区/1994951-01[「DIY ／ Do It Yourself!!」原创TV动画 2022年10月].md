@@ -7135,3 +7135,12 @@ self也算是高分低能的一种写照了<img src="https://static.saraba1st.co
 
 怎么最新一集截图这么沉重的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种萌豚动画不应该是齐心协力找回丢失的材料顺利解决危机吗
 
+
+
+*****
+
+####  很久就在那边l  
+##### 536#       发表于 2022-12-6 18:28
+
+在这边学的再好也赶不上隔壁学习先进科技的精英学校，一场升学考试就决定了人生的轨迹<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
