@@ -12369,3 +12369,12 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ViyViy  
+##### 10033#       发表于 2022-12-6 16:29
+
+真分组了求一求别跟土妹子分一组，我觉得那个声音唱歌是真的灾难<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，前天Day2的时候乌托邦有一句在pay后面跟唱的听感简直是过山车。
+

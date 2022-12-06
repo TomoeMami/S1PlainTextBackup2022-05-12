@@ -16678,3 +16678,19 @@ DX9改成11之后貌似OK了
 还有潜水通气管这技能怎么有 ...</blockquote>
 背包里看看是不是把后跳封印了
 
+
+
+*****
+
+####  Sannapolis  
+##### 2934#       发表于 2022-12-6 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58798976&amp;ptid=2098044" target="_blank">blueelf 发表于 2022-12-6 16:09</a>
+
+第四章快打完了，RB的后跳一直用不了是怎么回事？后跳不了雾隐这技能也没用了
+
+还有潜水通气管这技能怎么有 ...</blockquote>
+后跳的奥义卷轴在第一章最终boss房前一个房间的右上方，应该是之前没拿到吧
+
+潜水通气管是在水面下方一定深度的浅水区可以呼吸，水深超过一定程度就没用了。
+
