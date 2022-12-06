@@ -1363,3 +1363,15 @@ alc这个字母暗示的比较明显了
 说不准到时候就发现Alice其实退到高次元了所有有emission能力的女演员都有可能被顶号
 博士精神病归精神病，发病之余还真是个有研究成果的博士这点还是挺恐怖的
 
+
+
+*****
+
+####  lxh00770077  
+##### 122#       发表于 2022-12-6 10:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58786037&amp;ptid=2104259" target="_blank">江戸前ルナ 发表于 2022-12-5 22:02</a>
+
+不懂啊。从开头来看反水的怎么也是夜露那边（</blockquote>
+不用理会每次有新剧情时只会复读一句话的家伙<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+

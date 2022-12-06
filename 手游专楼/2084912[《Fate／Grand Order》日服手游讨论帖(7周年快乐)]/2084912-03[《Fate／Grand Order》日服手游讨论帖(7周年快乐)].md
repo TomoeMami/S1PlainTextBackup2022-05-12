@@ -8384,3 +8384,54 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 
 而且空境的两卷装单本比起同时期的轻小说根本不算长。空境的文本内容比起web连载时期也没有什么删节
 
+
+
+*****
+
+####  呆毛王赛高  
+##### 3758#       发表于 2022-12-6 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58792077&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-12-6 09:17</a>
+
+你大概看了知乎还是哪里的假药了
+
+空境同期的小说是少阴、TB、银河英雄传说这些，不太可能因为篇幅有出版 ...</blockquote>
+有点忘了，但记得蘑菇之前也是字数一不小心就控制不住来着
+
+
+
+*****
+
+####  UNISONIA  
+##### 3759#       发表于 2022-12-6 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58792743&amp;ptid=2084912" target="_blank">呆毛王赛高 发表于 2022-12-6 10:02</a>
+
+有点忘了，但记得蘑菇之前也是字数一不小心就控制不住来着</blockquote>
+以前字数写多了但是有相应的料，和现在的为了写长而写长是两回事
+
+*****
+
+####  呆毛王赛高  
+##### 3760#       发表于 2022-12-6 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58792998&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-12-6 10:17</a>
+
+以前字数写多了但是有相应的料，和现在的为了写长而写长是两回事</blockquote>
+还好吧，2.6就效应来看不是赢麻了嘛
+
+
+
+*****
+
+####  UNISONIA  
+##### 3761#       发表于 2022-12-6 10:36
+
+ 本帖最后由 UNISONIA 于 2022-12-6 10:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58793057&amp;ptid=2084912" target="_blank">呆毛王赛高 发表于 2022-12-6 10:20</a>
+
+还好吧，2.6就效应来看不是赢麻了嘛</blockquote>
+2.6开幕前（2021年5月）和2.6结束后（2021年9月）相比，废狗日活数据掉了19%，在2021年底扩大到了21%（换言之，2.6之后活动拉胯+通古斯剧情饱受抨击也只导致掉了2%的日活，跟2.6自身导致的算九牛一毛了）。巧合的是，2021年自然年整年收入较之2020自然年也掉了20%，这个效应无论从什么方面来说都算不上赢麻了，除非精神胜利法
+
+今年还在不惜资源重新再给2.6展开宣传也足以窥见一斑了，本月的rts2.6复刻所得利益可不见得能把这些投入收回来
+
