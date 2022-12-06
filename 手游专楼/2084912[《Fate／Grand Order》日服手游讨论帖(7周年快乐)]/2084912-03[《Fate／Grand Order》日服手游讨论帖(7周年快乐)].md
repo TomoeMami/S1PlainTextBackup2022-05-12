@@ -8398,3 +8398,25 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 空境同期的小说是少阴、TB、银河英雄传说这些，不太可能因为篇幅有出版 ...</blockquote>
 有点忘了，但记得蘑菇之前也是字数一不小心就控制不住来着
 
+
+
+*****
+
+####  UNISONIA  
+##### 3759#       发表于 2022-12-6 10:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58792743&amp;ptid=2084912" target="_blank">呆毛王赛高 发表于 2022-12-6 10:02</a>
+
+有点忘了，但记得蘑菇之前也是字数一不小心就控制不住来着</blockquote>
+以前字数写多了但是有相应的料，和现在的为了写长而写长是两回事
+
+*****
+
+####  呆毛王赛高  
+##### 3760#       发表于 2022-12-6 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58792998&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-12-6 10:17</a>
+
+以前字数写多了但是有相应的料，和现在的为了写长而写长是两回事</blockquote>
+还好吧，2.6就效应来看不是赢麻了嘛
+
