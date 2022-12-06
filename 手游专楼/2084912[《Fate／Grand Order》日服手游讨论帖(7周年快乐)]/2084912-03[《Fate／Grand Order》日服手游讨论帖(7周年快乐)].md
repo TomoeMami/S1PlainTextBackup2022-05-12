@@ -8658,3 +8658,26 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 自从有了90艹本，啥活动都是无限池
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 3784#       发表于 2022-12-6 18:53
+
+我圣诞小太阳之前活动忘记升级了，等了好几年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus NE2210, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  alucardcz  
+##### 3785#       发表于 2022-12-6 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58801785&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-12-6 18:53</a>
+
+我圣诞小太阳之前活动忘记升级了，等了好几年了
+
+—— 来自 OnePlus NE2210, Android 12上的 S1Next ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你刷几把狗粮本就能满了还特意等翻倍？ 不愧是你
+

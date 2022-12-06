@@ -4743,3 +4743,14 @@ CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动
  ...</blockquote>
 其实阿特柔斯回城那段已经有回城道具了，最后通关给个永久版本就能在叙事层面和一镜到底层面圆上，应该还是制作组没考虑到白金玩家通关后舔图的问题
 
+
+
+*****
+
+####  名字已被吃  
+##### 1924#       发表于 2022-12-6 18:55
+
+日版兑换码现在都不到200，我的美版收藏版才清关出来走国内快递寄过来，美版兑换码是不是也只能卖这个价了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
