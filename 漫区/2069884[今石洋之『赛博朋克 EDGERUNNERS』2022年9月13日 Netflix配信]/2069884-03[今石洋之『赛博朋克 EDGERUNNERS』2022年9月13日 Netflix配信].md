@@ -453,3 +453,14 @@ del
 剧本设定搞定之后开始制作不是2022年开始制作你看清我说的，18年开始讨论剧本扯了两年多， ...</blockquote>
 10集用了4年<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  山岚夜雨  
+##### 3184#       发表于 2022-12-6 20:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58802521&amp;ptid=2069884" target="_blank">韶华白首 发表于 2022-12-6 19:39</a>
+10集用了4年</blockquote>
+因为CDPR根本没做过动画，更没做过日本动画，他们给的剧本完全不能用，按扳机那边的说法是基本是按真人电影电视剧的路子给的剧本，然后CDPR有对他们自己故事的坚持，扳机也有对动画的坚持，于是为了搞出一个可行的日本动画脚本可不就扯皮了这么久，基本是整个推翻重写级别<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后还有前期主角之类的人设也要讨论，这些还都是靠日本CDPR作翻译当沟通中介，扯了两年剧本能拍了才开始正式制作，那时候游戏还没发售，CDPR还特地给了游戏的demo和资料，扳机还玩了游戏，很多美术背景都是从游戏直接取景
+

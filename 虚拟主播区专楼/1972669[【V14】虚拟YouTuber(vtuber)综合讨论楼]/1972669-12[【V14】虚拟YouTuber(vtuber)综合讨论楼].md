@@ -2570,3 +2570,21 @@ vta一是线下小团体气息浓厚，像未来丹发各种写真感觉就很�
 但我对vta时期的看法就是人造前世，看已出道成员粉丝偶尔嚎也是想念vta而不是真前世，我觉得虹对于金鱼的事真的很在意，在能控制住的时候先看好（指讲荤话被经纪人训两小时），唱跳也是，出道了谁还跟你每周一天训练，圣来那个就算是成功案例了，最终各种原因没出道的vta成员也是有的。再说，如果是在外部匿名进行训练，傲慢经纪人和同期情所带来的传信鸽与捆绑等恶心体验又怎么感受得到呢…
 而且低同接旧了真的会开始媚粉<img src="https://static.saraba1st.com/image/smiley/face2017/089.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 17860#       发表于 2022-12-6 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58800970&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-6 17:59</a>
+
+是同学情，虹加了同学情
+
+现在看透露出来的情况来看，每周都是有线下上课的，上课内容有演技和唱 ...</blockquote>
+不知道你对jr了解多少……
+
+听起来还蛮像的，平时一起学习唱歌跳舞然后定期轮流上节目临时组合进行表演，逐渐发展小团体和稳定人设，最后靠老总看上哪几个了就组合出道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（其他人就一年年当jr直到自己退出或者终于等来一个机会）
+
+说来杰尼斯卖点之一就是团爱j家爱（现在好像因为散的散退的退消退很多了）……<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
