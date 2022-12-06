@@ -27,3 +27,16 @@
 
 —— 来自 OnePlus LE2120, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  hlazd  
+##### 5560#       发表于 2022-12-6 23:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58805464&amp;ptid=1502023" target="_blank">星空天神 发表于 2022-12-6 22:59</a>
+杨的报告居然是英文 不应该是德文吗
+
+—— 来自 OnePlus LE2120, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+同盟是英语啊
+
