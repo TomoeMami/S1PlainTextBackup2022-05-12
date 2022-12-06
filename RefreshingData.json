@@ -757,7 +757,7 @@
     "newtitle": "[]",
     "lastedit": 1670210940,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "1998862": {
     "totalreply": 1801,
@@ -781,7 +781,7 @@
     "newtitle": "[]",
     "lastedit": 1670002860,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   "2096842": {
     "totalreply": 542,
@@ -2485,7 +2485,7 @@
     "newtitle": "[【Minato Aqua】湊あくあ 综合讨论楼]",
     "lastedit": 1669970040,
     "category": "虚拟主播区专楼",
-    "active": false
+    "active": true
   },
   "1800312": {
     "totalreply": 17033,
@@ -8287,14 +8287,6 @@
     "category": "漫区",
     "active": false
   },
-  "2108041": {
-    "totalreply": 147,
-    "title": "[共存开放，真的不是国内医药公司的阴谋吗？]",
-    "newtitle": "[]",
-    "lastedit": 1670249880,
-    "category": "外野",
-    "active": false
-  },
   "2108027": {
     "totalreply": 67,
     "title": "[“完全消灭中国是不可能的，所以我们要和中国共存”]",
@@ -8743,22 +8735,6 @@
     "category": "漫区",
     "active": true
   },
-  "2108316": {
-    "totalreply": 112,
-    "title": "[东北人民真幽默]",
-    "newtitle": "[]",
-    "lastedit": 1670212140,
-    "category": "外野",
-    "active": false
-  },
-  "2108315": {
-    "totalreply": 225,
-    "title": "[现在还有几个省会城市没跟进？]",
-    "newtitle": "[]",
-    "lastedit": 1670223540,
-    "category": "外野",
-    "active": false
-  },
   "2108065": {
     "totalreply": 80,
     "title": "[没有剧情的游戏真的会让人没有玩下去的欲望吗？]",
@@ -8783,14 +8759,6 @@
     "category": "漫区",
     "active": true
   },
-  "2108208": {
-    "totalreply": 82,
-    "title": "[疫情趣闻收集楼]",
-    "newtitle": "[]",
-    "lastedit": 1670205420,
-    "category": "外野",
-    "active": false
-  },
   "2107678": {
     "totalreply": 66,
     "title": "[为什么二手游戏机全面涨价了]",
@@ -8806,14 +8774,6 @@
     "lastedit": 1670237820,
     "category": "外野",
     "active": true
-  },
-  "2108359": {
-    "totalreply": 67,
-    "title": "[停止测核酸后社区群里的老人们开始抱怨了]",
-    "newtitle": "[]",
-    "lastedit": 1670204595,
-    "category": "外野",
-    "active": false
   },
   "2108346": {
     "totalreply": 153,
