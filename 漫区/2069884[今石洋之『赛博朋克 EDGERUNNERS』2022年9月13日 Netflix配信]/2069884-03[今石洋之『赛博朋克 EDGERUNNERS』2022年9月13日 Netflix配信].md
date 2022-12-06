@@ -441,3 +441,15 @@ del
 2022年开始制作的？</blockquote>
 剧本设定搞定之后开始制作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看清我说的，18年开始讨论剧本扯了两年多，然后制作到现在，那不就是20年左右正式开始作画制作吗，而且要看你把不把前期剧本当成制作的一部分了不然18年就能算开始了
 
+
+
+*****
+
+####  韶华白首  
+##### 3183#       发表于 2022-12-6 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58801487&amp;ptid=2069884" target="_blank">山岚夜雨 发表于 2022-12-6 18:32</a>
+
+剧本设定搞定之后开始制作不是2022年开始制作你看清我说的，18年开始讨论剧本扯了两年多， ...</blockquote>
+10集用了4年<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
