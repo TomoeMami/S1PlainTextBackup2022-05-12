@@ -2634,3 +2634,19 @@ vta一是线下小团体气息浓厚，像未来丹发各种写真感觉就很�
 反正anycolor已经跌了三天了。
 七期出道能救一救嘛？
 
+
+
+*****
+
+####  rzrbtk  
+##### 17865#       发表于 2022-12-6 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58803141&amp;ptid=1972669" target="_blank">fastary 发表于 2022-12-6 20:20</a>
+不知道你对jr了解多少……
+
+听起来还蛮像的，平时一起学习唱歌跳舞然后定期轮流上节目临时组合进行表演， ...</blockquote>
+j家的程度可不敢想啊，能吸点最近心碎的粉丝已经是大赚了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+就是不知道这个三期是什么个情况，皮感觉更像一期，授课选拔又是怎样的模式，虹本身对于vta的效果应该是满意的，不然三期人这么多的情况下这都开始招四期了。
+以前看46系的时候也很喜欢看showroom甄选，当时很看好的66和马思萌都能进我喜欢的团还蛮高兴的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
