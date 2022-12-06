@@ -12201,3 +12201,12 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唯一的变数就是最后一场是不是9人始空了，顺便想起来件事，去年跨年的ShootingVoice和Live with smile是不是也必有9版
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10018#       发表于 2022-12-6 11:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">分组...心情略微有点复杂
+
