@@ -722,3 +722,24 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 
 重下试试，不玩还微微有点瘾，更新后少炸几次估计就捏着鼻子继续玩了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  plok201  
+##### 179#       发表于 2022-12-6 15:49
+
+试了下5星的难度，1秒倒，加上这武器提升感觉是真的慢，一局游戏时间也长，游戏内容也少，ea0.1状态吧
+
+*****
+
+####  古代人皮克  
+##### 180#       发表于 2022-12-6 15:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58798640&amp;ptid=1951151" target="_blank">plok201 发表于 2022-12-6 15:49</a>
+
+试了下5星的难度，1秒倒，加上这武器提升感觉是真的慢，一局游戏时间也长，游戏内容也少，ea0.1状态吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提升慢是因为能让你提升快的（词条抽取合并，洗数字）都没发布这游戏就敢大摇大摆出来发正式版了
+
+目前打高难度算上额外的通关时间都是负收益，当然难3同一次所有任务还是值这个价格的
+
