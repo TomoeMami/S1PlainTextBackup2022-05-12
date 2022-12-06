@@ -2431,3 +2431,35 @@ Roko 我之前看到有人说已经创号了啊，只是现在是锁着的，组
 绿仙居然对联手这么积极的嘛……
 嘛，对巧克老师也是好事<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 17849#       发表于 2022-12-6 16:52
+
+惯例的那个 <blockquote>Doppio Dropscythe——seikyuu va，🇺🇸R18 ASMR专业人士，PH: [https://cn.**hub.com/model/seikyuu-va](https://cn.**hub.com/model/seikyuu-va), Bilibili也有账号
+
+Hex Haywire——kyrio cifer NSFW很多的Vtuber
+
+Zaion LanZa——sayu okami，铁血原p
+
+Kotoka Torahime——usami_vt，歌势Vtuber
+
+Meloco Kyoran——makoto misaki(??)
+
+Ver Vermillion——????</blockquote>
+
+感觉一般
+
+Syl，看到v综郡gachi和黑客推姐贵还在就会感觉很安心<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 17850#       发表于 2022-12-6 16:58
+
+<blockquote>Suny08 发表于 2022-12-6 14:40
+Roko 我之前看到有人说已经创号了啊，只是现在是锁着的，组合名都有的估计是还在出道准备吧 ...</blockquote>
+出道是不担心的，如果roko都出不了我觉得这个标准也太迷，只是花了好长时间（当社比），我一直以为万圣那段时间已经选好人做好皮完了通知，现在看来可能比较像选拔…
+

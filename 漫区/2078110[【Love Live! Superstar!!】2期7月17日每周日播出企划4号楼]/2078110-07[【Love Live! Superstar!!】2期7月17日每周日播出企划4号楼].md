@@ -12422,3 +12422,87 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 早说了烂动画什么buff都没法次周刷大数据的，还有大一千多的目标呢，加油努力哦。
 
+
+
+*****
+
+####  D麦林  
+##### 10039#       发表于 2022-12-6 16:52
+
+我不知道为什么有人会说结那别当三期生
+
+从角色角度讲VN要是不进团那就变成会走和SP一样的路子 三期光速退场变成小丑角色
+
+从中之人角度讲那有机会加入liella对曝光度也是只有好处没有坏处
+
+不知道说这种话的人是个什么脑回路我
+
+*****
+
+####  Kfly  
+##### 10040#       发表于 2022-12-6 16:53
+
+<img src="https://img.saraba1st.com/forum/202212/06/165334x9eq2az0wa33lh7q.jpg" referrerpolicy="no-referrer">
+
+<strong>FjRXxS_VUAEuk9R.jpg</strong> (248.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-6 16:53 上传
+
+<img src="https://img.saraba1st.com/forum/202212/06/165336ghknthmzccadyhnz.jpg" referrerpolicy="no-referrer">
+
+<strong>FjRXy-uVUAEId7a.jpg</strong> (140.36 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-6 16:53 上传
+
+<img src="https://img.saraba1st.com/forum/202212/06/165338ltfgvvvkfge7a5kz.jpg" referrerpolicy="no-referrer">
+
+<strong>FjRXzq8VIAMc8hf.jpg</strong> (225.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-6 16:53 上传
+
+*****
+
+####  nufawneafg  
+##### 10041#       发表于 2022-12-6 16:54
+
+ 本帖最后由 nufawneafg 于 2022-12-6 17:00 编辑 
+
+嫡系都出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+唉，这也是我不喜欢很多人团体的原因之一，难避免的畸轻畸重
+当初决定追liella相当的原因就是看中了小快灵的阵容，结果又把饼摊这么大<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+都什么时候了，翻翻年表日历吧
+
+*****
+
+####  Kfly  
+##### 10042#       发表于 2022-12-6 17:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58799862&amp;ptid=2078110" target="_blank">D麦林 发表于 2022-12-6 16:52</a>
+
+我不知道为什么有人会说结那别当三期生
+
+从角色角度讲VN要是不进团那就变成会走和SP一样的路子 三期光速退场 ...</blockquote>
+要我猜猜具体想法的话：
+
+角色方面，现有的九人也不乏小丑角色（其实我觉得小丑与否与入不入团关系不大，主要是想不想好好塑造）；
+
+中之人方面，能想到的大概就是现在经常看到的“结那现在的表演挺好的，进体制看不到也太可惜了吧”这样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 10043#       发表于 2022-12-6 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58800001&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-12-6 17:00</a>
+要我猜猜具体想法的话：
+
+角色方面，现有的九人也不乏小丑角色（其实我觉得小丑与否与入不入团关系不大， ...</blockquote>
+然而不进来更看不到了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
