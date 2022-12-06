@@ -2487,3 +2487,42 @@ ver我看到虚吧好多人觉得像赤虎chimon
 
 vta到底在干嘛？一期倒是正常出了7个，结果二期还一个没出就开始三期活动了，就算想仿偶像事务所搞练习生制度，又不像偶像可以学歌学舞有新货，每周半小时只能杂谈能搞出个啥来啊
 
+
+
+*****
+
+####  alcoholic1000  
+##### 17853#       发表于 2022-12-6 17:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58800280&amp;ptid=1972669" target="_blank">fastary 发表于 2022-12-6 17:17</a>
+
+ver我看到虚吧好多人觉得像赤虎chimon
+
+我自己是完全没印象了所以不能确定</blockquote>
+都叫ver百万了，不能是chimon吧！
+
+感觉冬臣家孩子最起码歌力过得去...
+
+*****
+
+####  rzrbtk  
+##### 17854#       发表于 2022-12-6 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58800533&amp;ptid=1972669" target="_blank">fastary 发表于 2022-12-6 17:32</a>
+vta到底在干嘛？一期倒是正常出了7个，结果二期还一个没出就开始三期活动了，就算想仿偶像事务所搞练习生制 ...</blockquote>
+是同学情，虹加了同学情<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+现在看透露出来的情况来看，每周都是有线下上课的，上课内容有演技和唱歌和跳舞等，但我觉得最大目的还是为了可发展型同期情和定制人设（比较好演）和对直播环境的适应（指给张纸片低同接播半年）。我个人在意的同期方面，一期人还比较少所以几乎是男一堆女一堆出道，但感觉二期人多以后就会根据人际关系来出道甚至男女混组了，就我个人看的几位，佐伯和🐔就大概率会一起出道，日下部这几个月先跟roko出去看电影住酒店，然后跟未来丹浅草温泉，前几天还四人组队夜游公园，vta二期生还没出道就全见过面而且感觉关系还行，比你虹二期独狼们高不知道（略）
+
+当然不管怎么说感情这种东西是没法预测的，真的肯定不如假的稳定，但我愿意去相信<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  psnsic8nag  
+##### 17855#       发表于 2022-12-6 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58800533&amp;ptid=1972669" target="_blank">fastary 发表于 2022-12-6 17:32</a>
+
+vta到底在干嘛？一期倒是正常出了7个，结果二期还一个没出就开始三期活动了，就算想仿偶像事务所搞练习生制 ...</blockquote>
+别急 可能和大小姐一样推迟出道
+

@@ -8586,3 +8586,19 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 
 其实以后可以出一个活动从者专属的通用硬币，能解决不少问题...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3777#       发表于 2022-12-6 17:57
+
+对这个圣诞复刻的唯一盼头就是看新的90++怎么恶心人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  保罗赫伯特  
+##### 3778#       发表于 2022-12-6 18:00
+
+圣诞复刻小太阳，那还是摸了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
