@@ -2358,3 +2358,19 @@ vspo最近打枪的确实不多，有比赛的话还可能会提前动一动，�
 看名字怎么感觉有好几个中国人……
 汉字用法很不日本人<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  psnsic8nag  
+##### 17842#       发表于 2022-12-6 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58791600&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-12-6 08:30</a>
+
+又出六个人，上一期明明也没多火
+
+三个女liver怎么也是汉字加假名。
+
+你们不是en嘛 ...</blockquote>
+东雪莲错在不进虹EN
+
