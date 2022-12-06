@@ -263,3 +263,18 @@ SD随时待机随时开机继续玩的体验薄纱win掌机。
 
 - 特殊时期，今天不会发布太多微博，有疑问请联系客服或看完本条微博后在此微博下评论
 
+
+
+*****
+
+####  霖岚_  
+##### 547#       发表于 2022-12-6 15:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58592108&amp;ptid=2086469" target="_blank">bypass 发表于 2022-11-24 16:41</a>
+
+我来补个链接。
+
+https://www.bilibili.com/video/BV1UP4y1R7gc</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">为啥掌机这种电量吃紧的玩意还搞灯啊……这种凡是游戏设备都上灯到底是哪里来的奇怪审美
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有它这内置的设置UI也太难看了，又绿又黑看着真的好怪……
+
