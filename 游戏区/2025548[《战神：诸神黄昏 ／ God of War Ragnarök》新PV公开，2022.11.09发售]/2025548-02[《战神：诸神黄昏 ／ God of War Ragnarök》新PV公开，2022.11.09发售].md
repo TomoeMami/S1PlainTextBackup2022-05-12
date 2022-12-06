@@ -4766,3 +4766,16 @@ CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动
 日版兑换码现在都不到200，我的美版收藏版才清关出来走国内快递寄过来，美版兑换码是不是也只能卖这个价了[ ...</blockquote>
 美版不可能，日版一个是因为汇率太夸张的原因，还有一个是因为日本是战神卖的最差的地区之一
 
+
+
+*****
+
+####  名字已被吃  
+##### 1926#       发表于 2022-12-6 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58802144&amp;ptid=2025548" target="_blank">查马丁魔术师 发表于 2022-12-6 19:15</a>
+美版不可能，日版一个是因为汇率太夸张的原因，还有一个是因为日本是战神卖的最差的地区之一 ...</blockquote>
+全区中文，日版说是没和谐，国内玩家要买兑换码，日版美版都一样玩
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
