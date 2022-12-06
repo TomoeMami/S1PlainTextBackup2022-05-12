@@ -8534,3 +8534,32 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 
 何时才復刻圣诞全角餐，旧角就没个人硬币吗...没人力资源像可以像上年，先来全復活旧角，再出新復活的做法吗
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3772#       发表于 2022-12-6 17:33
+
+居然加倍了，20箱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  alucardcz  
+##### 3773#       发表于 2022-12-6 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么情报延迟更新的 我5点看的时候明明无事发生
+
+*****
+
+####  eilot  
+##### 3774#       发表于 2022-12-6 17:41
+
+突然想到
+
+迦尔纳和狂周能否顺便开新的强化或幕间...
+
+不过还是要留石等到16号
+
