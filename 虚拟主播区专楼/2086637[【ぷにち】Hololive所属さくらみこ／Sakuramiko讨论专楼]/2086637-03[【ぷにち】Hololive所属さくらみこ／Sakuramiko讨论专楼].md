@@ -3754,3 +3754,15 @@ twitch开台了
 
 主要表现是同一个地区ROM改语言交换来的在图鉴里不会反映为海外语言的版本，也就是说系统不识别为海外的，而用这只做的孵化也就不被认为是国际孵化
 
+
+
+*****
+
+####  神澈  
+##### 3351#       发表于 2022-12-6 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58805195&amp;ptid=2086637" target="_blank">holoan 发表于 2022-12-6 22:41</a>
+
+主要表现是同一个地区ROM改语言交换来的在图鉴里不会反映为海外语言的版本，也就是说系统不识别为海外的， ...</blockquote>
+没玩宝可梦，不太懂，但记得35那只在图鉴里有显示ENG，所以是没事？
+
