@@ -12262,3 +12262,14 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那MC把人叫上来聊两句就下去了多少有点搞
 
+
+
+*****
+
+####  ruffian  
+##### 10024#       发表于 2022-12-6 13:49
+
+鱼不是都说了9人的liella之后还会持续很长时间么，感觉3期生活动可能得再等两年了，也不怪会有人幻想结那不是三期生，不然也晾太久了……我是已经无所谓了，今朝有酒今朝醉，想那么多也改变不了啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
