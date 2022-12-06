@@ -12144,3 +12144,16 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 站中间还不简单，找个个高的站背后不拍进画面不就好了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 10013#       发表于 2022-12-6 08:40
+
+怎么说呢，塑造的不好再怎么丢在正中心也不会有人把他当center的。还好sayu还能顶得住，至少只是看live不会激起ptsd，至于原片剪辑处刑那就w。
+
+————回到live
+
+我有点担心代孙会不会故意不转播的时候出yura，那我是无话可说了。
+
