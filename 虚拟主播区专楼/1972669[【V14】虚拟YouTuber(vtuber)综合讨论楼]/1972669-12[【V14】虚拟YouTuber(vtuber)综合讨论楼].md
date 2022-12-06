@@ -2345,3 +2345,16 @@ vspo最近打枪的确实不多，有比赛的话还可能会提前动一动，�
 
 去年不还特意分开的
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17841#       发表于 2022-12-6 08:30
+
+ 本帖最后由 渡鸦骑士 于 2022-12-6 08:36 编辑 
+
+又出六个人，上一期明明也没多火<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+看名字怎么感觉有好几个中国人……
+汉字用法很不日本人<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
