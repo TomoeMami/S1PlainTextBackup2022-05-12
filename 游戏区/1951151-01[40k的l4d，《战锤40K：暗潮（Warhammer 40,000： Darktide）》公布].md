@@ -839,3 +839,17 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 
 —— 来自 samsung SM-T860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  FLZB  
+##### 190#       发表于 2022-12-7 01:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58807329&amp;ptid=1951151" target="_blank">mirrorside 发表于 2022-12-7 00:49</a>
+
+另外问下啥时候才有能让我突突个爽的枪啊？我现在老兵9级，武器都要么是慢吞吞的半自动，要么就是准度差得 ...</blockquote>
+固定式自动枪，无ADS直接架在腰上乱射，精度随缘威力惊人，披甲单位最高能杀到用链锯斧的掠夺者（打身体）。
+
+激光枪有超强的XII，低射速高精度威力炸裂的DMR，专家精英收割机。还有射速更高弹量更多专攻枪兵的IV，以及泼水枪侦查（这个配地狱火词条能打罐头，虽然削过）。
+
