@@ -815,3 +815,27 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 
 本来还能勉强稳定帧数玩的，今天xgp更新后疯狂掉帧，寄了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mirrorside  
+##### 188#       发表于 2022-12-7 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58806368&amp;ptid=1951151" target="_blank">DLSDFY 发表于 2022-12-6 23:45</a>
+本来还能勉强稳定帧数玩的，今天xgp更新后疯狂掉帧，寄了。</blockquote>
+是开了光追么？我现在不开光追帧数比之前不开时涨了一二十帧，但是开了光追后的帧数比之前开时跌了起码二三十帧。。。
+
+所以我现在选择关了光追体验高帧竞技性了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-T860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  mirrorside  
+##### 189#       发表于 2022-12-7 00:49
+
+另外问下啥时候才有能让我突突个爽的枪啊？我现在老兵9级，武器都要么是慢吞吞的半自动，要么就是准度差得不行打护甲完全打不动的全自动，要么就是子弹奇少的霰弹，这游戏之后还有能让我爽下的枪么。。。现在打得好憋屈
+
+—— 来自 samsung SM-T860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

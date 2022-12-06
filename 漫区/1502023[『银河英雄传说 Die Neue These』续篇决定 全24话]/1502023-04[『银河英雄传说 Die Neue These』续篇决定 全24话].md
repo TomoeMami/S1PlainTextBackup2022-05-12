@@ -40,3 +40,15 @@
 —— 来自 OnePlus LE2120, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 同盟是英语啊
 
+
+
+*****
+
+####  二重梦境  
+##### 5561#       发表于 2022-12-7 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58772337&amp;ptid=1502023" target="_blank">charlespfan 发表于 2022-12-5 01:08</a>
+
+为什么网上的小说翻译会按照旧版动画把原作里挂坠里的头发改成照片啊？人家动画是改编作也就罢了，翻译好歹 ...</blockquote>
+可能为了不显得太给吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
