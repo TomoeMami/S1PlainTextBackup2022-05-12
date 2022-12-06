@@ -12178,3 +12178,17 @@ v2.5.4</blockquote>刚看完那个视频。他之前的维恩香音我还能认�
 
 至少要到5th，或者分组Live才有可能唱（也可能明年不等三期生直接开4th，然后5th三期生加入再跑一次动画歌单）
 
+
+
+*****
+
+####  ads147147  
+##### 10016#       发表于 2022-12-6 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58792298&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-6 09:32</a>
+
+看宫城这两场的歌单就知道3rd肯定不会唱yura，没有可以换这歌的位置
+
+至少要到5th，或者分组Live才有可能 ...</blockquote>
+感觉三期前还是会开4th的，星团的这个日程安排相当固定了。就是不懂fmt会不会。
+
