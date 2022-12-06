@@ -16703,3 +16703,16 @@ DX9改成11之后貌似OK了
 
 荒谬难度的竞技场群星有啥诀窍吗……被打到就直接秒，只能带狂暴，但我试了二十多次最好也就打死四个，然后被剩下的干掉，弹幕乱飞容错太低了……
 
+
+
+*****
+
+####  绕指流光  
+##### 2936#       发表于 2022-12-6 21:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58801521&amp;ptid=2098044" target="_blank">urvark 发表于 2022-12-6 18:35</a>
+荒谬难度的竞技场群星有啥诀窍吗……被打到就直接秒，只能带狂暴，但我试了二十多次最好也就打死四个，然后 ...</blockquote>
+带黑去打啊，竞技场能带伙伴的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

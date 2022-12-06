@@ -777,3 +777,21 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 
 怎么今天xgp要更新35个G？什么鬼。。查了查还就是个hotfix，我还以为DLC出了呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  lyc90716  
+##### 185#       发表于 2022-12-6 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58798769&amp;ptid=1951151" target="_blank">afer 发表于 2022-12-6 15:58</a>
+
+天天打混沌（打僵尸），要么就打虫子，特么别的异端就不能打打么，什么绿皮艾达黑艾达排骨钛帝国都 ...</blockquote>
+绿皮打过，蓝爸爸无双里
+
+虫子只有个死翼，完全不够看，还得看蓝爸爸无双2
+
+僵尸是非战锤玩家最好理解的游戏敌人了
+
+混沌倒是可以不用逮着纳垢来弄就是
+
