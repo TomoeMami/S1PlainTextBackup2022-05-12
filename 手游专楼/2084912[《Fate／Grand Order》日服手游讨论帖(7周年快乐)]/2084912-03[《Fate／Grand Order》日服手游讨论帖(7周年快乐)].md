@@ -8368,3 +8368,19 @@ nmd，阿菌怎么又在吹文本量了，脑壳疼
 
 不如明年这时候整个没炸成功，可能会惊喜不少<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 3757#       发表于 2022-12-6 09:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58782693&amp;ptid=2084912" target="_blank">呆毛王赛高 发表于 2022-12-5 17:55</a>
+
+这恐怕是菌类一直以来的作风，当年空境也是因为字数没法控制没法出版还是怎么样来着 ...</blockquote>
+你大概看了知乎还是哪里的假药了
+
+空境同期的小说是少阴、TB、银河英雄传说这些，不太可能因为篇幅有出版障碍
+
+而且空境的两卷装单本比起同时期的轻小说根本不算长。空境的文本内容比起web连载时期也没有什么删节
+
