@@ -58,3 +58,16 @@ FedEx基本上是必税的
 
 现在hk和日本买的到手价和时效大概都多少？
 
+
+
+*****
+
+####  nozomitech  
+##### 1969#       发表于 2022-12-8 05:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58739117&amp;ptid=2015700" target="_blank">eistla 发表于 2022-12-3 05:03</a>
+deck现在是不是还不能用创意工坊，以及为什么风扇老是狂转，都还没开游戏诶，吵死了 ...</blockquote>
+你是不是用的老风扇调度？老的感觉比较激进，APU五十几度就开始狂转，然后吹出来的是凉风。。。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

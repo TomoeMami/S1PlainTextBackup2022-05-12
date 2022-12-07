@@ -1529,3 +1529,45 @@ BETA残骸是一堆骨肉，很快会腐烂，以人类的技术无法回收；�
 
 那是不是让大尉在那反复开机关机开机关机人类就能这样收人头了啊
 
+
+
+*****
+
+####  jerryoq1  
+##### 2126#       发表于 2022-12-8 01:57
+
+是不是准备原创啥  我记得女武神撤离的时候没有堵退路阿<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hacisiki  
+##### 2127#       发表于 2022-12-8 01:58
+
+本来还以为这一话VTUBER能便当，看来要么把原作没怎么描述的最后突破拿来落幕要么苟到横滨防御战？
+
+*****
+
+####  jerryoq1  
+##### 2128#       发表于 2022-12-8 01:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58825123&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-12-8 01:37</a>
+
+3d部分是不错
+
+但是经不起推敲，太炫技了
+
+武那个机动虽然帅气，但是在空中翻滚躲预照射是纯粹浪费时间</blockquote>
+启动瞬间停下来好像是原作就有的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 演出就是停下来
+
+*****
+
+####  吕玲绮的十字戟  
+##### 2129#       发表于 2022-12-8 02:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58825231&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-12-8 01:59</a>
+
+启动瞬间停下来好像是原作就有的 演出就是停下来</blockquote>
+不是<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">原作毕竟是ADV，只能用立绘表现
+
+你这好不容易动画化了，搞成beta们在那左顾右盼或者调转方向都行，直接不动真的太蠢了
+
