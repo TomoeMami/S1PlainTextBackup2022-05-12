@@ -16803,3 +16803,17 @@ DX9改成11之后貌似OK了
 
 只能说市面上看上去光鲜亮丽的脑瘫游戏，尤其是 jrpg 都是什么臭鱼烂虾，爬爬爬爬爬
 
+
+
+*****
+
+####  urvark  
+##### 2944#       发表于 2022-12-7 16:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58807485&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-12-7 01:06</a>
+
+强化撑血量和格挡，血量1w4过的。
+
+曾经刚进新章就狂暴磨了一天，放弃。强化血量后能吃三四下，靠攻速破防 ...</blockquote>
+看来还是要刷，我也是刚进新章就打的
+
