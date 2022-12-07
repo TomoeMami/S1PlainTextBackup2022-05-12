@@ -2844,3 +2844,14 @@ syl，话说神椿这几个是月下七子？</blockquote>
 
 【【异世界情绪】神椿背后的创作故事 虚拟黑暗歌手消亡史】 [https://www.bilibili.com/video/B ... 6b036a84471bf6fd62a](https://www.bilibili.com/video/BV1MR4y1f7jw/?share_source=copy_web&amp;vd_source=0e4ce45cf254c6b036a84471bf6fd62a)
 
+
+
+*****
+
+####  盐盐盐盐盐  
+##### 17882#       发表于 2022-12-7 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58817464&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-12-7 17:02</a>
+ 全世界都喜欢rap，鬼知道为啥 连韩女团都得带一个能唱rap位的 </blockquote>
+因为有人唱歌更灾难只能发配去念经<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

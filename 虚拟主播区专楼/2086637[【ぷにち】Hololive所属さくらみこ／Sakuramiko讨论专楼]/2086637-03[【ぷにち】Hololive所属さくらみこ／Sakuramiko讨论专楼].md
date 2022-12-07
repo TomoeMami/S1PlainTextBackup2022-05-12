@@ -3827,3 +3827,20 @@ twitch开台了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来听的人有点少,估计下次直播还得再说一次这重要情报
 
+
+
+*****
+
+####  holoan  
+##### 3359#         楼主| 发表于 2022-12-7 17:26
+
+<img src="https://img.saraba1st.com/forum/202212/07/125740l52se4zwppsko4py.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (75.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-7 12:57 上传
+
+每次都爱转发这种跟直播内容无关意义不明但是点赞数又异常的多的虚无连体图
+

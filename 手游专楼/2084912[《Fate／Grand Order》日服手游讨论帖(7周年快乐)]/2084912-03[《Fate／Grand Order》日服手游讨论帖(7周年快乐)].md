@@ -8747,3 +8747,16 @@ https:/ ...</blockquote>
 
 —— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3791#       发表于 2022-12-7 17:26
+
+『Fate/strange Fake』原定12月31日播出的特别篇动画宣布延期、具体时间未定
+
+「Fate Project 年末特别节目」当中将改播本篇的最新映像 http://t.cn/A6Sk9Ojk ​​​
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
