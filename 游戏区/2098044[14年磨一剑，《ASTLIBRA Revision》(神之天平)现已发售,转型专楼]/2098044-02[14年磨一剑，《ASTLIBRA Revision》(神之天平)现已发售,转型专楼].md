@@ -16840,3 +16840,31 @@ DX9改成11之后貌似OK了
 
 那白龙口吐光球我第一轮都撑不过去，背景太亮判断光球的位置相当困难。。
 
+
+
+*****
+
+####  装甲兔  
+##### 2947#       发表于 2022-12-8 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58817460&amp;ptid=2098044" target="_blank">sliver1997 发表于 2022-12-7 17:02</a>
+
+这游戏可以 CE 改成困难难度，拿全成就的话，进最终战之前改个困难就行了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">哦槽？
+
+*****
+
+####  urvark  
+##### 2948#       发表于 2022-12-8 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58821654&amp;ptid=2098044" target="_blank">Reslayer 发表于 2022-12-7 21:03</a>
+
+懂哥们有没有什么正传最终boss的bd，荒谬难度
+
+那白龙口吐光球我第一轮都撑不过去，背景太亮判断光球的位置 ...</blockquote>
+你说的是一周目最后BOSS三连战变的那龙？
+
+开打吐光球的时候跑到最右侧版边举盾，等光球打到你第一下立刻后跳就能躲过去，记得装雾隐，当然荒谬难度你肯定也是带狂暴的
+
+剩下的就是无脑打了，记得用凭依和后跳躲技能就好，难度还不如前面的三台机甲战……
+
