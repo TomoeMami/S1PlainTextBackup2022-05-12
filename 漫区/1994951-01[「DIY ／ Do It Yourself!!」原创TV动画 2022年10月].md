@@ -7166,3 +7166,30 @@ self也算是高分低能的一种写照了<img src="https://static.saraba1st.co
 
 —— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  千恋万花  
+##### 539#       发表于 2022-12-7 23:26
+
+<blockquote>クラゲにも注意しましょうね！</blockquote>
+終活仲間还行，優しい世界
+
+治子老师果然也是 DIY 社的，回收第 2 集的台词
+<img src="https://p.sda1.dev/8/4c5aaf58b0ac7fea9682e54d90481e38/Arkxv2-1600508361967128578-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/29acc3405a8378e2681b39540144b5a8/Arkxv2-1600508361967128578-img3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/120f5037dcf3122e1485e6a11e6c9e65/shun9112-1600509582392152065-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/af1a1ada092659a487c68d1b3387d790/2022-12-07-2321_51.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/460a550261541e409f4d5e93e8910f2e/YukuBuraaaaaaaa-1600511554122035200-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2943fe5cff00d824c78dfd6922614e41/YukuBuraaaaaaaa-1600511554122035200-img3.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 540#         楼主| 发表于 2022-12-7 23:31
+
+<img src="https://p.sda1.dev/8/70f7b986c8a49c7d78e0a946002d839e/20221207_232848.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/7cb06b2feb6fbd266d2efe89e4468ae8/20221207_232850.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/f82bbb2a60223d8f6bc50cfee0be0dd3/20221207_232851.jpg" referrerpolicy="no-referrer">
+
