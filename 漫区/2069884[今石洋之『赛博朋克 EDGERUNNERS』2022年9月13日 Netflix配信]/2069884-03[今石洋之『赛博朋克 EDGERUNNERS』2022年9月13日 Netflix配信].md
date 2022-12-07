@@ -489,3 +489,18 @@ del
 
 —— 来自 Xiaomi 22021211RC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  mhss  
+##### 3187#       发表于 2022-12-7 15:35
+
+分两天补完全10集（一直在等好的字幕，终于等到最近喵萌出全了），虽然一眼就能看出是那种加速奔向毁灭的剧情路子，但看得意外还算舒服，第一集节奏挺快的，如果改成24集那种拍法拖戏估计要第一集集平淡日常讲述世界观；第二集加速展开突化矛盾；第三集才爆发结尾装上那套军用装备。
+
+悠木碧用的声线很少见（虽然能混杂出一点租借里的麻美味）而且演技可以说爆表（这么看来异世界舅舅那里果然是音监的锅更大），黑泽倒是能听出来是发癫版的九美子<img src="https://static.saraba1st.com/image/smiley/carton2017/117.png" referrerpolicy="no-referrer">
+
+ed很爱一集不漏，但是op确实不对胃口后面我都直接跳了。
+
+动画里时不时出现的DTR标识是KLK的梗还是游戏原梗？游戏我当时预购玩了不到3小时退款了，手感实在受不了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
