@@ -3853,3 +3853,33 @@ twitch开台了
 
 贴贴人就好这口
 
+
+
+*****
+
+####  rs5621  
+##### 3361#       发表于 2022-12-7 17:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她不是经常这样的嘛，多转发连体图，让刚入坑的新人去关注这个cp，目的就达成了
+
+话说她刚转发了一个小动画，弄得还不错
+
+*****
+
+####  holoan  
+##### 3362#         楼主| 发表于 2022-12-7 17:52
+
+miko也是贴贴人咯
+
+*****
+
+####  holoan  
+##### 3363#         楼主| 发表于 2022-12-7 17:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58818319&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-12-7 17:52</a>
+
+她不是经常这样的嘛，多转发连体图，让刚入坑的新人去关注这个cp，目的就达成了
+
+话说她刚转发了一个 ...</blockquote>
+按你这说法她为什么不转发八字母的图，不想让新人关注吗
+
