@@ -11992,3 +11992,14 @@ wb更了   太劲了
 
 这儿歌真不错
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2754#       发表于 2022-12-7 14:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卡姐配音把我麻入脑了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

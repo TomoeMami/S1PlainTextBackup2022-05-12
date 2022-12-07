@@ -1423,3 +1423,18 @@ aegis的换班填线炮灰，人和装 ...</blockquote>
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
 
+
+
+*****
+
+####  不灭的旋律  
+##### 127#       发表于 2022-12-7 14:51
+
+ 本帖最后由 不灭的旋律 于 2022-12-7 14:54 编辑 
+
+[https://twitter.com/alicegear_P/status/1039440427529658368](https://twitter.com/alicegear_P/status/1039440427529658368)
+
+HP为0叫“战斗不许可（system down ）”，护罩还在但是必须退到指定战斗区以外（就是游戏里的边界线）不得战斗。HP0还能再经受VICE最强的攻击，然后机甲才开始破损，启动保护机能（大概就是bailout）。紧急脱出（bailout）就是启动短距离空间跳跃（teleport drive）到AEGIS指定地点，可以手动操作。但是跳跃后机甲的核心emission core会破损导致机甲报废，所以这次所有人都在极力避免bailout。
+
+bailout failed应该是机甲严重破损直接威胁到女演员安全了，小说里的丽塔要不是ACE水平可能都挂了。
+
