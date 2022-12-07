@@ -4871,3 +4871,56 @@ CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  gary76  
+##### 1934#       发表于 2022-12-7 11:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58811939&amp;ptid=2025548" target="_blank">415452356 发表于 2022-12-7 11:20</a>
+
+对策也不变啊，我打了两周目大坑的boss浪人该怎么打还是怎么打，实在不行你就带个大盾在那边看他表演
+
+ ...</blockquote>
+我就是用石墙盾加毒套装顶啊
+
+我经常是顶1、2轮就有可能失手一次（我还是不知道元素爆发是什么
+
+*****
+
+####  415452356  
+##### 1935#       发表于 2022-12-7 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58812002&amp;ptid=2025548" target="_blank">gary76 发表于 2022-12-7 11:22</a>
+我就是用石墙盾加毒套装顶啊
+
+我经常是顶1、2轮就有可能失手一次（我还是不知道元素爆发是什么</blockquote>
+  就是状态槽左边的圆形槽打满（无伤+保持进攻）之后L1+三角，效果是攻击力增加+属性增强，等于就是小爆气
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  白猫MKII  
+##### 1936#       发表于 2022-12-7 11:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58812002&amp;ptid=2025548" target="_blank">gary76 发表于 2022-12-7 11:22</a>
+我就是用石墙盾加毒套装顶啊
+
+我经常是顶1、2轮就有可能失手一次（我还是不知道元素爆发是什么</blockquote>
+两种不同元素叠满就会有一个爆发伤害，普通难度同等级一个元素爆发差不多3/4到一格血左右。
+你这连回复都能看岔，我也能理解你试不试压根不看游戏提示
+
+*****
+
+####  415452356  
+##### 1937#       发表于 2022-12-7 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58812111&amp;ptid=2025548" target="_blank">白猫MKII 发表于 2022-12-7 11:28</a>
+两种不同元素叠满就会有一个爆发伤害，普通难度同等级一个元素爆发差不多3/4到一格血左右。
+你这连回复都 ...</blockquote>
+  所以我最爱的就是玛尼套，可以说就是对应这代系统改动做出来的菜刀套
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
