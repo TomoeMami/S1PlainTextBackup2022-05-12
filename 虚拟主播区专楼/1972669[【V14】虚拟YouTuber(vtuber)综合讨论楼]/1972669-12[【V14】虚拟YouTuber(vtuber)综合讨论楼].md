@@ -2730,3 +2730,26 @@ sc还没，感觉对非正式员工会涉及到利益分配这种应该挺麻烦
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到现在为止出道播的练习生都是非经验者，扩招的经验者向都没出道，也不知道给经验者要上什么课
 
+
+
+*****
+
+####  rzrbtk  
+##### 17872#       发表于 2022-12-7 15:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58806301&amp;ptid=1972669" target="_blank">fastary 发表于 2022-12-6 23:42</a>
+
+三期出之前我是觉得基本都会出道，但是这三期都出了，三个预计应该是要出道的妹子还没点消息更不用提其他 ...</blockquote>
+其实是两男一女<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，现在狂暴加人（顺便招四期）的意图我也不懂，只能猜是现在200~500的同接对于这些不知道出不出道的练习生还是太高了，需要再分散一些观众。从不管是退出还是出道都会删直播档看（不过出道组可以自愿解禁），人气投票/周边这种能给观众留下实物的内容我觉得跟enkr的方针是有违背的。打比方就是公司培训期间也会有内部评比但一般不会放去接客户那样...
+
+当然这个不透明出道是蛮折磨人的，虽然懂是为了弱化毕业这个概念但是还是觉得对粉丝不好，就是...好歹...给个盼头<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">，目前没改名的两女（上位势&amp;下位势）是应该能出道的，不过男人号（姑且算中位）就还是找不到这样...
+
+*****
+
+####  psnsic8nag  
+##### 17873#       发表于 2022-12-7 15:08
+
+学院机制就是大逃杀复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+运营没讲明罢了
+
