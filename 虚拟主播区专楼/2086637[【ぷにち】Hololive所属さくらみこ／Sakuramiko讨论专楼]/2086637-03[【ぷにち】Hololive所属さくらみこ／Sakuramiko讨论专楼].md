@@ -3975,3 +3975,17 @@ miko也是贴贴人咯
 
 所以还是命
 
+
+
+*****
+
+####  神澈  
+##### 3371#       发表于 2022-12-7 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58821281&amp;ptid=2086637" target="_blank">holoan 发表于 2022-12-7 20:43</a>
+
+但是也是一群人无视概率几十次就随便出了，推上的报告一堆
+
+所以还是命</blockquote>
+那群人是国际孵化吗？
+
