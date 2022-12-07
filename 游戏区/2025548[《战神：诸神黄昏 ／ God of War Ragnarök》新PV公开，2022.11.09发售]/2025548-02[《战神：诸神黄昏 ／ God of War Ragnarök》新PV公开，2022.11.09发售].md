@@ -4924,3 +4924,19 @@ CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  gary76  
+##### 1938#       发表于 2022-12-7 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58812111&amp;ptid=2025548" target="_blank">白猫MKII 发表于 2022-12-7 11:28</a>
+
+两种不同元素叠满就会有一个爆发伤害，普通难度同等级一个元素爆发差不多3/4到一格血左右。
+
+你这连回复都 ...</blockquote>
+那个啊，我就没试过在boss战能开元素爆发的，经常存到8成就被打中归零，倒是打小兵经常能满条<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+战神4时我记得也是没在boss战里能存满条<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

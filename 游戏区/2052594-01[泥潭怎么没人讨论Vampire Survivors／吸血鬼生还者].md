@@ -102,3 +102,26 @@ DLC来了，15号
 
 更新频率太牛逼了。顺带求埋骨地大肉球的打法。
 
+
+
+*****
+
+####  415452356  
+##### 459#       发表于 2022-12-7 12:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58812635&amp;ptid=2052594" target="_blank">菜菜菜菜 发表于 2022-12-7 11:55</a>
+更新频率太牛逼了。顺带求埋骨地大肉球的打法。</blockquote>
+  解锁任意一个隐藏角色自带超武，然后进游戏正常打个10分钟强度差不多了直接去杀
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  itsmyrailgun  
+##### 460#       发表于 2022-12-7 12:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58812635&amp;ptid=2052594" target="_blank">菜菜菜菜 发表于 2022-12-7 11:55</a>
+
+更新频率太牛逼了。顺带求埋骨地大肉球的打法。</blockquote>
+红色死神随便杀
+
