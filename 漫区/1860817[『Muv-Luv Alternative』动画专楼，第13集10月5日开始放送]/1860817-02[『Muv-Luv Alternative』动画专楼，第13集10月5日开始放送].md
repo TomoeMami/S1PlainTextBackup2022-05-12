@@ -1452,3 +1452,20 @@ BETA残骸是一堆骨肉，很快会腐烂，以人类的技术无法回收；�
 
 感觉奶黄包开炮后在场人们的反应还是差了口气<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yone0000  
+##### 2121#       发表于 2022-12-7 20:01
+
+看上去是驹木管人回了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/07/200153q79axx9a44g7gk51.png" referrerpolicy="no-referrer">
+
+<strong>}NNZUEFQI]_34_DBK34L7QA.png</strong> (26.06 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-7 20:01 上传
+

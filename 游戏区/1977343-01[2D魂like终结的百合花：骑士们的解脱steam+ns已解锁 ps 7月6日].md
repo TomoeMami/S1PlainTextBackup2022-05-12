@@ -45,3 +45,19 @@
 ----发送自 STAGE1 App for Android. ...</blockquote>
 终焉莉莉
 
+
+
+*****
+
+####  lovepenny  
+##### 612#       发表于 2022-12-7 20:07
+
+<blockquote>引用第610楼whzfjd于2022-12-07 19:41发表的  :
+
+引用:lovepenny 发表于 2022-12-7 17:07这游戏有啥别的名字不？我怎么咸鱼都没......</blockquote>
+@whzfjd
+
+多谢，这卡还不便宜啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
