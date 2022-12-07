@@ -12738,3 +12738,14 @@ Nako的新活，在12月1日起开服的【信长的野望 霸道】中饰演看
 
 草 滨田龙臣胖了这么多？还有佐克斯！
 
+
+
+*****
+
+####  lj205  
+##### 10060#       发表于 2022-12-8 01:46
+
+东爱本质不是个jb乱的故事吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">只不过电视剧美化太多
+
+话说回来，差点没认出来
+
