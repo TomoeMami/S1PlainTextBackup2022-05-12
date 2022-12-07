@@ -3952,3 +3952,12 @@ miko也是贴贴人咯
 
 这要是BUG，得抽到什么时候去？
 
+
+
+*****
+
+####  rs5621  
+##### 3369#       发表于 2022-12-7 20:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4000多呗，再熬一个星期
+

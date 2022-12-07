@@ -523,3 +523,14 @@ ns版本不行么，那还是慢慢等pc
 
 听说拍照模式内裤会变成黑洞，NS 版也是这样吗？
 
+
+
+*****
+
+####  415452356  
+##### 127#       发表于 2022-12-7 20:35
+
+  打了开头两关，还凑合吧，作为一个大家都是冲着真女童贴贴啵嘴的爽游来说是合格了，如果想动脑子的话就别买这游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，直接把御姐武戏z2和起源丢进愿望单等打折。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

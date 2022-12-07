@@ -1991,3 +1991,30 @@ ns上大把30帧不稳的游戏
 
 大概率是DLC，steamdb已经有个update6的分支了
 
+
+
+*****
+
+####  宛若青空  
+##### 6187#       发表于 2022-12-7 20:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58820562&amp;ptid=1860328" target="_blank">laoz 发表于 2022-12-7 20:07</a>
+
+大概率是DLC，steamdb已经有个update6的分支了</blockquote>
+
+说起来之前steamdb也有简体中文标识的事情？到现在都没正式发布…
+
+发售一年多了才出DLC难道是憋个大的资料片<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  laoz  
+##### 6188#       发表于 2022-12-7 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58821100&amp;ptid=1860328" target="_blank">宛若青空 发表于 2022-12-7 20:33</a>
+
+说起来之前steamdb也有简体中文标识的事情？到现在都没正式发布…
+
+发售一年多了才出DLC难道是憋个大的资 ...</blockquote>
+update5加了个简中包，但是没有发布，按照他们以前的玩法一年时间够他们复用素材出个续作的，这玩意是啥看TGA有没有消息吧
+
