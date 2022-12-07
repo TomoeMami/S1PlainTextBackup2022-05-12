@@ -52,3 +52,25 @@
 为什么网上的小说翻译会按照旧版动画把原作里挂坠里的头发改成照片啊？人家动画是改编作也就罢了，翻译好歹 ...</blockquote>
 可能为了不显得太给吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Toby_dak  
+##### 5562#       发表于 2022-12-7 09:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58805464&amp;ptid=1502023" target="_blank">星空天神 发表于 2022-12-6 23:59</a>
+
+杨的报告居然是英文 不应该是德文吗
+
+—— 来自 OnePlus LE2120, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+同盟的官方语言一直都是英语。
+
+<img src="https://img.saraba1st.com/forum/202212/07/100633c9k85926z76a5836.png" referrerpolicy="no-referrer">
+
+<strong>キャプチャ.PNG</strong> (278.93 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-7 09:06 上传
+
