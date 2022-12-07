@@ -49,3 +49,12 @@ FedEx基本上是必税的
 
 —— 来自 samsung SM-G9910, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  ky怪  
+##### 1968#       发表于 2022-12-8 01:12
+
+现在hk和日本买的到手价和时效大概都多少？
+
