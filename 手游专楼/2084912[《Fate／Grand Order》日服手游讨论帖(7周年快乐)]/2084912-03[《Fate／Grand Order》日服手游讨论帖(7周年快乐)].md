@@ -8760,3 +8760,18 @@ https:/ ...</blockquote>
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3792#       发表于 2022-12-7 18:07
+
+<blockquote>引用第3790楼不垃圾屌丝于2022-12-07 17:26发表的  :
+
+『Fate/strange Fake』原定12月31日播出的特别篇动画宣布延期、具体时间未定「Fat......</blockquote>
+真准备31号开2.7咯？
+妈的我要看FSF啊混蛋
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
