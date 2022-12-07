@@ -554,3 +554,14 @@ ns版本不行么，那还是慢慢等pc
 弃了，谦信怎么都打不过，手残就不应该玩动手的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 刚开始玩，哦哦割草嘛这个我会；接下来，怎么还要跳来跳去？果然跳了两下就掉下去了；然后，怎么还要在天上飞？虽然被大姐姐抱着很好啦但总是半路掉下去也挺难受的；怎么还有移动地板我最不擅长这个了，我跳——掉了下去回到起点。除此之外还有各种炸自己或队友。对了这游戏还没有地图，果不其然我就迷路了，到处乱跑不知道接下来该去哪。虽然才打到第一个boss但感觉已经玩了好久，然后打不过。关游戏关机躺下准备睡觉，拜拜了您内。
 
+
+
+*****
+
+####  牙狼GARO  
+##### 130#       发表于 2022-12-7 22:58
+
+看了b站的啵嘴合集，合着女主遇到胸比自己小的就想当1，遇到胸比自己大的就变0，有点意思啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

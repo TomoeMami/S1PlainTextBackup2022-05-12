@@ -1469,3 +1469,13 @@ BETA残骸是一堆骨肉，很快会腐烂，以人类的技术无法回收；�
 
 2022-12-7 20:01 上传
 
+
+
+*****
+
+####  jerryoq1  
+##### 2122#       发表于 2022-12-7 23:00
+
+为a01撤退挡抢的舰长是不是有个叫安倍？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+实属慢了十几年的地狱笑话
+
