@@ -12680,3 +12680,12 @@ Nako的新活，在12月1日起开服的【信长的野望 霸道】中饰演看
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  starring  
+##### 10055#       发表于 2022-12-7 09:13
+
+上次生放送鲤鱼憋不住的怪笑，在昨天的裂垃圾再次出现，你团的怪笑声再添一员<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
