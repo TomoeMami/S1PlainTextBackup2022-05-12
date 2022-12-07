@@ -49,3 +49,12 @@
 
 所以a队今年在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，设备采访的意思打这个线上赛是要拿卡托play-in的积分
 
+
+
+*****
+
+####  dev2ce  
+##### 2933#       发表于 2022-12-7 14:02
+
+a队该优化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，踢x9，mistr回青训，不然设备回来跟没回没什么区别，年纪到了该服老，杜状态也一般般，要不是玩机器是他铁粉，早跟p3一样成梗了
+
