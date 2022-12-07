@@ -70,3 +70,15 @@ a队该优化了<img src="https://static.saraba1st.com/image/smiley/face2017/067
 a队该优化了，踢x9，mistr回青训，不然设备回来跟没回没什么区别，年纪到了该服老，杜状态也一般般 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">输HEET输得多少有点匪夷所思，明年要再不买点好货补补火力那是没啥可打的了
 
+
+
+*****
+
+####  dev2ce  
+##### 2935#       发表于 2022-12-7 15:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58815486&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-12-7 15:13</a>
+输HEET输得多少有点匪夷所思，明年要再不买点好货补补火力那是没啥可打的了 ...</blockquote>
+之前6人阵容的时候就是x9和巴布司机玩轮换，谁能想到现在他位置这么稳，没记错老a队自由人应该是他，结果年纪大了反而要正面火力
+设备回来也有另外一个好消息，格雷武对队伍的领导力更强了，听玩机器说a队米垃圾是大壮指挥的，这人不能说不强，但死老六不补枪，经常特都特不明白，真的需要人告诫一下
+
