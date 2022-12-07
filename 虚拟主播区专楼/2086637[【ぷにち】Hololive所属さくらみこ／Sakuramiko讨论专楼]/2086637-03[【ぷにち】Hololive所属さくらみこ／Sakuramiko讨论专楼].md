@@ -3998,3 +3998,17 @@ miko也是贴贴人咯
 
 可怜,都在幻想要出了
 
+
+
+*****
+
+####  holoan  
+##### 3373#         楼主| 发表于 2022-12-7 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58821488&amp;ptid=2086637" target="_blank">神澈 发表于 2022-12-7 20:53</a>
+
+那群人是国际孵化吗？</blockquote>
+有的没有说，应该不会都是国际孵化
+
+最后还是看脸
+
