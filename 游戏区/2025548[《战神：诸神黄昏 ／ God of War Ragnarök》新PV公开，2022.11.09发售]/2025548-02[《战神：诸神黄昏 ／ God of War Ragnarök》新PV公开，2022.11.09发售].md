@@ -4844,3 +4844,30 @@ CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  gary76  
+##### 1932#       发表于 2022-12-7 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58811693&amp;ptid=2025548" target="_blank">415452356 发表于 2022-12-7 11:08</a>
+
+浪人比前作好打多了啊，链刃三角转刀无脑R1轻松堆炎舞槽+叠火属性，堆满就直接L1+三角元素爆发任意武器砍 ...</blockquote>
+路边浪人和boss浪人的难度不是一个等级的吧…………
+
+路边浪人我硬杀都能干掉，boss浪人没法短时间硬杀吧……
+
+*****
+
+####  415452356  
+##### 1933#       发表于 2022-12-7 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58811783&amp;ptid=2025548" target="_blank">gary76 发表于 2022-12-7 11:12</a>
+路边浪人和boss浪人的难度不是一个等级的吧…………
+
+路边浪人我硬杀都能干掉，boss浪人没法短时间硬杀吧 ...</blockquote>
+  对策也不变啊，我打了两周目大坑的boss浪人该怎么打还是怎么打，实在不行你就带个大盾在那边看他表演
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
