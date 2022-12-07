@@ -1479,3 +1479,17 @@ BETA残骸是一堆骨肉，很快会腐烂，以人类的技术无法回收；�
 为a01撤退挡抢的舰长是不是有个叫安倍？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
 实属慢了十几年的地狱笑话
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 2123#       发表于 2022-12-7 23:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58823431&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-12-7 23:00</a>
+
+为a01撤退挡抢的舰长是不是有个叫安倍？ 
+
+实属慢了十几年的地狱笑话</blockquote>
+别瞎说，这位可是异能生存体）
+
