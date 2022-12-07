@@ -22,3 +22,19 @@
 
 很长时间没打的百级NPC都在队伍全等级和装备提高后可以轻松打过。
 
+
+
+*****
+
+####  nukejoker  
+##### 663#       发表于 2022-12-7 10:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58788313&amp;ptid=1960821" target="_blank">sangzi 发表于 2022-12-6 00:07</a>
+
+问福利肯定是抠，隔壁沙加没玩过不知道……日服稳定每天10宝石，10/20/30日给30宝石，百天给100
+
+每月带8 ...</blockquote>
+感谢详细的解说。
+
+那目前情况来看我还是先等个一年半载等石头号有积累了再考虑要不要入坑吧。
+
