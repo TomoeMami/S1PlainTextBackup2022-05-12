@@ -12667,3 +12667,16 @@ Nako的新活，在12月1日起开服的【信长的野望 霸道】中饰演看
 完全同意，青山鲤鱼pay子一组的话我可以不看其他组</blockquote>
 正好这三人有一首HAPPY TO DO WA!要是哪天能在live上看到就好
 
+
+
+*****
+
+####  ads147147  
+##### 10054#       发表于 2022-12-7 08:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58804067&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-6 21:27</a>
+拜 人 者 终 被 拜</blockquote>
+笑了，什么轮回。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
