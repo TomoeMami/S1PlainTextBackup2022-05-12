@@ -12706,3 +12706,15 @@ Nako的新活，在12月1日起开服的【信长的野望 霸道】中饰演看
 
 鱼看了音乐剧
 
+
+
+*****
+
+####  player3960  
+##### 10057#       发表于 2022-12-7 23:50
+
+看这个音乐剧的官推，简介网址是HORIPRO stage，应该是事务所社内给的票吧。
+毕竟感觉东爱，鲤鱼这代人应该知道的不多，哪怕有重拍版，不过拍的也不怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
