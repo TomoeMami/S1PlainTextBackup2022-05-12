@@ -8721,3 +8721,18 @@ https:/ ...</blockquote>
 2.6不就是完美的证明了，给一个作者在创作上无限大的自由之后，他在进取心上能拉胯到什么程度</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是轨迹拉了，我建议竹入和奈须互换东家
 
+
+
+*****
+
+####  exiaexa  
+##### 3789#       发表于 2022-12-7 15:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58804484&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-12-6 21:56</a>
+但是轨迹拉了，我建议竹入和奈须互换东家</blockquote>
+近藤社长怎么能叫拉，人家这是精准pua
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+阿菌虽然躺但是怎么说也有点骨头在，近藤社长那是真的为了财报黑字躺平让你骂骂
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
