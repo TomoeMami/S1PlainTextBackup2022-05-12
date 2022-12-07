@@ -16817,3 +16817,15 @@ DX9改成11之后貌似OK了
 曾经刚进新章就狂暴磨了一天，放弃。强化血量后能吃三四下，靠攻速破防 ...</blockquote>
 看来还是要刷，我也是刚进新章就打的
 
+
+
+*****
+
+####  sliver1997  
+##### 2945#       发表于 2022-12-7 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58806537&amp;ptid=2098044" target="_blank">装甲兔 发表于 2022-12-6 23:52</a>
+
+全通关了，果然没有选困难玩是最大的失误，等哪天上ns或者买steam deck了考虑再打个困难难度拿全成就吧 ...</blockquote>
+这游戏可以 CE 改成困难难度，拿全成就的话，进最终战之前改个困难就行了
+

@@ -513,3 +513,15 @@ ed很爱一集不漏，但是op确实不对胃口后面我都直接跳了。
 
 cdpr想删萝莉可以理解，就2077那拉跨的捏人自由度确实做不出萝莉角色，怕真有看动画的信了。
 
+
+
+*****
+
+####  Schwarzess  
+##### 3189#       发表于 2022-12-7 17:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58815906&amp;ptid=2069884" target="_blank">mhss 发表于 2022-12-7 15:35</a>
+分两天补完全10集（一直在等好的字幕，终于等到最近喵萌出全了），虽然一眼就能看出是那种加速奔向毁灭的剧 ...</blockquote>
+原梗，全称是Decker Tanaka &amp; Rogers，是全美运输业巨头。
+凹酱这次确实厉害，听到她能把声音压得这么低还是头一次，鼻音还有点泽城味。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+

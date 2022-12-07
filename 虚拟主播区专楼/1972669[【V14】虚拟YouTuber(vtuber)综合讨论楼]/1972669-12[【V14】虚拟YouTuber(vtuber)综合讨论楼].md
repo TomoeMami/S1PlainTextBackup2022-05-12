@@ -2805,3 +2805,26 @@ rap就这么好吗我真的欣赏不来任何语言的rap，en7的出道曲好�
 出道rap不是因为rap很酷，而是因为出道rap可以让不明觉厉的粉丝觉得很酷。
 他们知道他们不酷<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  psnsic8nag  
+##### 17879#       发表于 2022-12-7 17:02
+
+ 本帖最后由 psnsic8nag 于 2022-12-7 17:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58817091&amp;ptid=1972669" target="_blank">fastary 发表于 2022-12-7 16:43</a>
+
+rap就这么好吗我真的欣赏不来任何语言的rap，en7的出道曲好难听……</blockquote>
+大概是想学隔壁吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17880#       发表于 2022-12-7 17:02
+
+全世界都喜欢rap，鬼知道为啥
+连韩女团都得带一个能唱rap位的
+
+—— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

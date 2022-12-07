@@ -20,3 +20,14 @@
 
 真要出续作啊…
 
+
+
+*****
+
+####  lovepenny  
+##### 610#       发表于 2022-12-7 17:07
+
+这游戏有啥别的名字不？我怎么咸鱼都没搜到。。。<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
