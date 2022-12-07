@@ -944,3 +944,17 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 
 虽然是个VR游戏
 
+
+
+*****
+
+####  EiTa  
+##### 198#       发表于 2022-12-7 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58808736&amp;ptid=1951151" target="_blank">415452356 发表于 2022-12-7 03:44</a>
+
+啥时候出个战斗修女为主角的act/arpg/tps啊
+
+—— 来自 S1Fun</blockquote>
+那个刷刷的40k战锤新出了个dlc就是战斗修女好像
+
