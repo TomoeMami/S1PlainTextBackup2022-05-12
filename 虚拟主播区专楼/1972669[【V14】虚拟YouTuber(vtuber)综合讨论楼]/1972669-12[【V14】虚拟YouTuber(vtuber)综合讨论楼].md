@@ -2793,3 +2793,15 @@ syl，话说神椿这几个是月下七子？
 
 rap就这么好吗我真的欣赏不来任何语言的rap，en7的出道曲好难听……
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17878#       发表于 2022-12-7 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58817091&amp;ptid=1972669" target="_blank">fastary 发表于 2022-12-7 16:43</a>
+rap就这么好吗我真的欣赏不来任何语言的rap，en7的出道曲好难听……</blockquote>
+出道rap不是因为rap很酷，而是因为出道rap可以让不明觉厉的粉丝觉得很酷。
+他们知道他们不酷<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

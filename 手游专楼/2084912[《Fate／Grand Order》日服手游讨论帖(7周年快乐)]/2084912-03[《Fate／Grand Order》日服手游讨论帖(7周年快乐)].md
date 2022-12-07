@@ -8736,3 +8736,14 @@ https:/ ...</blockquote>
 阿菌虽然躺但是怎么说也有点骨头在，近藤社长那是真的为了财报黑字躺平让你骂骂
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  1a不解释  
+##### 3790#       发表于 2022-12-7 16:55
+
+刚刚登了一下，发现居然有回归奖励，你游现在这么大方了吗？然后马上就被踢下线了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PENM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
