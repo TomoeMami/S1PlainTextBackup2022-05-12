@@ -3961,3 +3961,17 @@ miko也是贴贴人咯
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4000多呗，再熬一个星期
 
+
+
+*****
+
+####  holoan  
+##### 3370#         楼主| 发表于 2022-12-7 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58820916&amp;ptid=2086637" target="_blank">神澈 发表于 2022-12-7 20:23</a>
+
+这要是BUG，得抽到什么时候去？</blockquote>
+但是也是一群人无视概率几十次就随便出了，推上的报告一堆
+
+所以还是命
+
