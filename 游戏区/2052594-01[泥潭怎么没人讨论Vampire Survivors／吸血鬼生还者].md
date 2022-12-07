@@ -159,3 +159,21 @@ ios测试版可以玩了，不过好像是初版
 
 有没有能改金币的修改器呀、、
 
+
+
+*****
+
+####  otakun  
+##### 465#       发表于 2022-12-7 17:17
+
+上一次更新里已经加了一句Also, sorry for the extra achievements ruining your completion rate<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  女神アイギス  
+##### 466#       发表于 2022-12-7 17:19
+
+<blockquote>菜菜菜菜 发表于 2022-12-7 11:55
+更新频率太牛逼了。顺带求埋骨地大肉球的打法。</blockquote>
+我都是用狼人，带武器越少越强那个牌，开局直接下去杀就行了
+

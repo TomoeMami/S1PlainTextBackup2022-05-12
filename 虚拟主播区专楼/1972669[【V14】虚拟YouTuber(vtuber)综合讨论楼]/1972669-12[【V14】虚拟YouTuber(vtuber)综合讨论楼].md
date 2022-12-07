@@ -2828,3 +2828,19 @@ rap就这么好吗我真的欣赏不来任何语言的rap，en7的出道曲好�
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17881#       发表于 2022-12-7 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58815615&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-12-7 15:20</a>
+
+200-500这么多吗，已经比本社那些顶级小废物还高了
+
+syl，话说神椿这几个是月下七子？</blockquote>
+之前在这里有贴过春猿火制作人提及这事的文章，此外这个视频把能说的说完了
+
+【【异世界情绪】神椿背后的创作故事 虚拟黑暗歌手消亡史】 [https://www.bilibili.com/video/B ... 6b036a84471bf6fd62a](https://www.bilibili.com/video/BV1MR4y1f7jw/?share_source=copy_web&amp;vd_source=0e4ce45cf254c6b036a84471bf6fd62a)
+
