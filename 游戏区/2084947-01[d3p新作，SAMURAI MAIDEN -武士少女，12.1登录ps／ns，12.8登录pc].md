@@ -565,3 +565,12 @@ ns版本不行么，那还是慢慢等pc
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  B.K.  
+##### 131#       发表于 2022-12-8 00:10
+
+我就想问PC版的补丁能整快点不
+
