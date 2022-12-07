@@ -2855,3 +2855,22 @@ syl，话说神椿这几个是月下七子？</blockquote>
  全世界都喜欢rap，鬼知道为啥 连韩女团都得带一个能唱rap位的 </blockquote>
 因为有人唱歌更灾难只能发配去念经<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 17883#       发表于 2022-12-7 17:44
+
+<blockquote>渡鸦骑士 发表于 2022-12-7 16:50
+出道rap不是因为rap很酷，而是因为出道rap可以让不明觉厉的粉丝觉得很酷。
+
+他们知道他们不酷 ...</blockquote>
+觉得rap=酷的人品味都很低（大声）
+
+唱rap需要念字准又快还在调上，明明比正常唱歌难得多，念再好的rap超过三句我都会觉得在念经反而好点的ktv选手正常唱我都听着挺好的
+
+完全不能理解唱歌烂却能用rap糊弄的脑回路
+
+也许rap就赢在一手不明觉厉吧
+
