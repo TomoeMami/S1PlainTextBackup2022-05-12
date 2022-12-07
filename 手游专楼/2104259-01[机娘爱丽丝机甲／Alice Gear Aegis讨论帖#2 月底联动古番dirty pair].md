@@ -1408,3 +1408,18 @@ aegis的换班填线炮灰，人和装备看来大都是2星，还没练度，�
 
 还有就是，这谍报部也不知道在干嘛，看起来是有莫斯科方行动的情报，但就是啥也没做？
 
+
+
+*****
+
+####  灰色蔓延  
+##### 126#       发表于 2022-12-7 13:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58805323&amp;ptid=2104259" target="_blank">regular 发表于 2022-12-6 22:50</a>
+这bailout failed后果到底多严重？指挥部OP ABC也没见很大反应，就是集体 。
+
+aegis的换班填线炮灰，人和装 ...</blockquote>
+一般来说hp是gear耐受界限的一半。 低于一半就会执行弹射脱离(这里就是hp归零战斗不能)。但是如果被overkill收到伤害过大gear会启动紧急状态拼着gear损毁来强行弹射(这里是gear损毁)。这样还不行说明gear直接就被一击彻底损毁吧？。只能靠suit以及残存gear的维生设备漂浮了。深陷敌后这状况就很不乐观
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
