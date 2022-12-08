@@ -41,3 +41,12 @@ Snipaste_2022-12-08_22-38-41.png
 
 <img src="https://img.saraba1st.com/forum/202212/08/224028b3g9aequg613ty6z.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  星の守  
+##### 9288#       发表于 2022-12-8 22:43
+
+好像是音游联动的时候，邦邦那个吧
+
