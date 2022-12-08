@@ -1662,3 +1662,12 @@ muv里的两千次男<img src="https://static.saraba1st.com/image/smiley/face201
 新CV声线越来越靠近包子了。他喊“走开”那句真有基神的感觉，不会配到最后真的配成高仿了罢。 ...</blockquote>
 我在第二季pv的时候就有高仿的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，就那句“把人类还回来”
 
+
+
+*****
+
+####  zhwpjy  
+##### 2139#       发表于 2022-12-8 18:39
+
+管人会不知道能不做好 把自爆衬托好推向高潮
+

@@ -13050,3 +13050,20 @@ https://card.weibo.com/article/m/sho ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">结果带来这资源的中国人最后表现最少，好不好笑？
 
+
+
+*****
+
+####  nufawneafg  
+##### 10090#       发表于 2022-12-8 18:50
+
+不好说，主题活动的话可能会安排讲话
+不过这也不一定了
+
+*****
+
+####  稀勢のささ  
+##### 10091#       发表于 2022-12-8 18:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒也是，连首正儿八经的C曲都没吧
+
