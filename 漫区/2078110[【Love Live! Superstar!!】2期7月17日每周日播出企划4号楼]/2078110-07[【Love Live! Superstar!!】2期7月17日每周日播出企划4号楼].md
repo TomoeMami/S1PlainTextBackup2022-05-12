@@ -13041,3 +13041,12 @@ https://card.weibo.com/article/m/sho ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10089#       发表于 2022-12-8 18:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">结果带来这资源的中国人最后表现最少，好不好笑？
+
