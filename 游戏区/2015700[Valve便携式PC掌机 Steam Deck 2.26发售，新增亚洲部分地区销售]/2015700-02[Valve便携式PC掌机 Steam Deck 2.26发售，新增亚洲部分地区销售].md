@@ -71,3 +71,15 @@ deck现在是不是还不能用创意工坊，以及为什么风扇老是狂转�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  妄想中毒  
+##### 1970#       发表于 2022-12-8 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58824578&amp;ptid=2015700" target="_blank">世界的膀胱者 发表于 2022-12-8 00:36</a>
+FedEx基本上是必税的
+实在寄不到的话寄到其他省市的朋友家然后让他转寄给你？</blockquote>
+邮费加税快1000了，我这海淘本来就是图个便宜这么一搞反而更贵了，还不如换一家慢点就慢点吧
+
