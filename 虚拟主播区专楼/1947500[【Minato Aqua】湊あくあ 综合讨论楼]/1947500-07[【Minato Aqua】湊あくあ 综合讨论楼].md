@@ -23,3 +23,21 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cIrcler  
+##### 9287#       发表于 2022-12-8 22:39
+
+这两位有啥交集吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+Snipaste_2022-12-08_22-38-41.png
+(176.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 22:40 上传
+
+<img src="https://img.saraba1st.com/forum/202212/08/224028b3g9aequg613ty6z.png" referrerpolicy="no-referrer">
+
