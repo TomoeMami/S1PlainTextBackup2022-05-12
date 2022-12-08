@@ -227,3 +227,14 @@
 滑板商店先搬完六星然后其他减半挺好出的</blockquote>
 主要是日常任务里有30石头是必须刷够活动掉落才给，就看愿不愿意放弃这石头了
 
+
+
+*****
+
+####  kulanyee  
+##### 175#       发表于 2022-12-8 10:24
+
+EX的boss战扫荡一把给10W，已经比钱本多了，然后winter cup给40W，一天算下来一百多W
+
+然而活动觉醒素材才给那么点，现在想花钱却被卡素材<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
