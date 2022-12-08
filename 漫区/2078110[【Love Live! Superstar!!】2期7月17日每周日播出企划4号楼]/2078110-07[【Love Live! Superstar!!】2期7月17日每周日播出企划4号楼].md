@@ -13167,3 +13167,46 @@ SME一堆艺人，还不就是团里带了个中国人可以推然后顺便推�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候......到时候国内几个星星人的评论怕不是淹没在**大海里了
 
+
+
+*****
+
+####  仟音一心  
+##### 10102#       发表于 2022-12-8 19:14
+
+排面主要体现在一起上节目的都是哪些人
+
+*****
+
+####  懂你意思  
+##### 10103#       发表于 2022-12-8 19:14
+
+看不懂B评论区，这有什么惊吓的
+
+*****
+
+####  aoaoaodedede  
+##### 10104#       发表于 2022-12-8 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58835050&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-8 19:11</a>
+到时候......到时候国内几个星星人的评论怕不是淹没在**大海里了</blockquote>
+说小一点的嘛，至少咱们这几个讨论的地方或许会很热闹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Enakina  
+##### 10105#       发表于 2022-12-8 19:16
+
+<img src="https://p.sda1.dev/8/8b4f2cb82a57cedac4d4702f6c066a3c/IMG_CMP_34475406.jpeg" referrerpolicy="no-referrer">
+查了一下，国内也的确围绕这个主题做了一些活动，虽然是完全不同的路数，比如什么高校间的文化交流之类的
+
+*****
+
+####  nufawneafg  
+##### 10106#       发表于 2022-12-8 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58835121&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-12-8 19:16</a>
+查了一下，国内也的确围绕这个主题做了一些活动，虽然是完全不同的路数，比如什么高校间的文化交流之类的 ...</blockquote>
+前段时间新闻联播一直在说这个<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+不过是最高层之间的协调
+
