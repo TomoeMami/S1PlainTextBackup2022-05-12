@@ -1629,3 +1629,12 @@ muv里的两千次男<img src="https://static.saraba1st.com/image/smiley/face201
 
 新CV声线越来越靠近包子了。他喊“走开”那句真有基神的感觉，不会配到最后真的配成高仿了罢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  半分宅  
+##### 2136#       发表于 2022-12-8 15:32
+
+这种时候突然开始无限刷兵，在游戏里也属实是最膈应人的一档操作了。原作有没有提到佐渡岛哪来那么多BETA的？好像人类对BETA规模的估计每次都出错。
+
