@@ -525,3 +525,35 @@ cdpr想删萝莉可以理解，就2077那拉跨的捏人自由度确实做不出
 原梗，全称是Decker Tanaka &amp; Rogers，是全美运输业巨头。
 凹酱这次确实厉害，听到她能把声音压得这么低还是头一次，鼻音还有点泽城味。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  碳酸锂缓释片  
+##### 3190#       发表于 2022-12-8 21:39
+
+It’s almost here! Regardless of who wins Best Adaptation at @thegameawards, we couldn’t be prouder for having made the cut and being in such great company. Best of luck to all!
+
+NC legend and Zaun badass fighting side by side! Together, they're bound to create some epic chaos.
+<img src="http://tva2.sinaimg.cn/large/006ajUXPly1h8wq5q0aq8j31hc0u0hdv.jpg" referrerpolicy="no-referrer">
+
+Spiky hair, super speed, and a heart of gold — David Martinez and Sonic make an unstoppable duo!
+<img src="http://tva4.sinaimg.cn/large/006ajUXPly1h8wq6c2pm3j31hc0u0b2b.jpg" referrerpolicy="no-referrer">
+
+There's no stopping Nathan Drake and Maine from being at the show tonight. Will you be joining them?
+<img src="http://tvax3.sinaimg.cn/large/006ajUXPly1h8wq6txgcaj31hc0u0hdu.jpg" referrerpolicy="no-referrer">
+
+Make sure to raise your cups, mugs, and monowires high when the winner is announced!
+<img src="http://tvax2.sinaimg.cn/large/006ajUXPly1h8wq7ia69qj31hc0u0npe.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/edgerunners/status/1600792947934769152](https://twitter.com/edgerunners/status/1600792947934769152)
+
+之前几天发的竞选口号：
+<img src="http://tva1.sinaimg.cn/large/006ajUXPly1h8wqakyhyjj31hc0u0kjl.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/edgerunners/status/1597975049327509504](https://twitter.com/edgerunners/status/1597975049327509504)
+<img src="http://tva4.sinaimg.cn/large/006ajUXPly1h8wqazgwyqj31hc0u07wh.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/edgerunners/status/1598696990031740929](https://twitter.com/edgerunners/status/1598696990031740929)
+<img src="http://tvax4.sinaimg.cn/large/006ajUXPly1h8wqbe5kfyj31hc0u0ayp.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/edgerunners/status/1599055864983437317](https://twitter.com/edgerunners/status/1599055864983437317)
+<img src="http://tva3.sinaimg.cn/large/006ajUXPly1h8wqc00epsj31hc0u0tvp.jpg" referrerpolicy="no-referrer">
+[https://twitter.com/edgerunners/status/1599781434205822978](https://twitter.com/edgerunners/status/1599781434205822978)
+
