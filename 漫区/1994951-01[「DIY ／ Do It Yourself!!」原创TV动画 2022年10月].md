@@ -7278,3 +7278,38 @@ self：抱歉，刚在想hellshake bocchi的事
 这集让我有了「看动画的纯粹快乐」
 排除掉布丁女士的输赢问题，本集也是优秀的
 
+
+
+*****
+
+####  H2Ofrozen  
+##### 547#       发表于 2022-12-9 02:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58823875&amp;ptid=1994951" target="_blank">水莲寺流歌 发表于 2022-12-7 23:34</a>
+
+傲娇布丁难得坦率一次惨遭自闭的小已无视，见面就被青梅摸手小鹿乱撞结果对方递过来一个电钻，越来 ...</blockquote>
+从前几话总感觉有哪里不对劲，这话让我确信了。srf哪里什么是retard。。天天上课睡觉，考试年级前三，妥妥的高功能谱系人士<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+装走神暗中观察布丁反应，认知共情推理布丁心思，最后装完傻来个戳脸直接击沉恋爱脑，全部都是计划通。。。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Alicest| + 1|天才重女self养成傲娇忠犬布丁，可怕！.|
+
+查看全部评分
+
+*****
+
+####  伊地知星歌  
+##### 548#       发表于 2022-12-9 02:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58841306&amp;ptid=1994951" target="_blank">H2Ofrozen 发表于 2022-12-9 02:11</a>
+从前几话总感觉有哪里不对劲，这话让我确信了。srf哪里什么是retard。。天天上课睡觉，考试年级前三，妥 ...</blockquote>
+你是会想会磕的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
