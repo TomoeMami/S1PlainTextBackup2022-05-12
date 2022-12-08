@@ -1649,3 +1649,16 @@ muv里的两千次男<img src="https://static.saraba1st.com/image/smiley/face201
 这种时候突然开始无限刷兵，在游戏里也属实是最膈应人的一档操作了。原作有没有提到佐渡岛哪来那么多BETA的 ...</blockquote>
 忘了哪个官方资料有提，佐渡岛按构造物高度分类是Phase 4巢穴，但按Beta数量来看和Phase 5巢穴相当
 
+
+
+*****
+
+####  创始’’’天翔  
+##### 2138#       发表于 2022-12-8 16:44
+
+ 本帖最后由 创始’’’天翔 于 2022-12-8 16:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58831229&amp;ptid=1860817" target="_blank">灰谷真实 发表于 2022-12-8 15:09</a>
+
+新CV声线越来越靠近包子了。他喊“走开”那句真有基神的感觉，不会配到最后真的配成高仿了罢。 ...</blockquote>
+我在第二季pv的时候就有高仿的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，就那句“把人类还回来”
+

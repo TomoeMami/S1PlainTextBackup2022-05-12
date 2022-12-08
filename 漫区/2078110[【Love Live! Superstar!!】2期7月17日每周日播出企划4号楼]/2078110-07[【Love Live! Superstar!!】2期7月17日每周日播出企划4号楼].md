@@ -12838,3 +12838,12 @@ https://card.weibo.com/article/m/sho ...</blockquote>
 
 有点“打一巴掌给个甜枣”的味了
 
+
+
+*****
+
+####  市町村  
+##### 10069#       发表于 2022-12-8 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这直接在TV上面表现，不比花田整的那些嘴臭烂活好百倍
+
