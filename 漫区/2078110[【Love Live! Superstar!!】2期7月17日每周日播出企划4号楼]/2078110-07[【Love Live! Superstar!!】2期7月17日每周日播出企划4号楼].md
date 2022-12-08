@@ -13334,3 +13334,15 @@ animate明天晚上要上鲤鱼的中国版日历，订一套去<img src="https:
 
 2022-12-8 21:41 上传
 
+
+
+*****
+
+####  ruffian  
+##### 10118#       发表于 2022-12-8 22:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58836100&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-08 20:22:43</a>
+抄同人罢了，他们还得感想我官方的盖章肯定呢。</blockquote>而且这图里可正制作的像是第12集香音的打歌服，文字却是让堇穿上衣服在舞台上闪耀，也不知道是文案和画师日常打架还是这b企划经典既要又要<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
