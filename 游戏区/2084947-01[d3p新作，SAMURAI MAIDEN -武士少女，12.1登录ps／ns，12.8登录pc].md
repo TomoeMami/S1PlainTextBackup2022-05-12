@@ -688,3 +688,19 @@ https://mega</blockquote>
 
 —— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  iriyano  
+##### 142#       发表于 2022-12-8 21:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58837389&amp;ptid=2084947" target="_blank">报应啊报应 发表于 2022-12-8 22:31</a>
+
+画面分辨率设置，运行Launcher文件夹下的Launcher.exe，里面有设置
+
+—— 来自 Xiaomi M2007J3SC, Androi ...</blockquote>
+哦哦哦，专业
+
+没想到2022年了还有这样的游戏
+

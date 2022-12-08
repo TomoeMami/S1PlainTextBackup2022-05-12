@@ -13309,3 +13309,28 @@ animate明天晚上要上鲤鱼的中国版日历，订一套去<img src="https:
 明明就是一次挺好的露脸的机会，刚有点预告就开始阴谋论了，也不知道现在看个小偶像团体是图什么许的[f:004 ...</blockquote>
 阴谋的厕所发臭的一直都是那样，只要星有活动都要批判一番寻求自身存在价值<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 10117#       发表于 2022-12-8 21:41
+
+喜添新猛将一名<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/08/214125dbzoujotfdyuzztj.png" referrerpolicy="no-referrer">
+
+<strong>202212082115571.png</strong> (73.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 21:41 上传
+
+<img src="https://img.saraba1st.com/forum/202212/08/214132iyykjtebvbcukpyq.png" referrerpolicy="no-referrer">
+
+<strong>20221208211854.png</strong> (63.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 21:41 上传
+
