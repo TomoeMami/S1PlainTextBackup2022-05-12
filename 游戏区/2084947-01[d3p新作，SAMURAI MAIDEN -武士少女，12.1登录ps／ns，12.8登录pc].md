@@ -675,3 +675,16 @@ https://mega</blockquote>
 
 怎么没找到在哪调画面设置
 
+
+
+*****
+
+####  报应啊报应  
+##### 141#       发表于 2022-12-8 21:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58834905&amp;ptid=2084947" target="_blank">iriyano 发表于 2022-12-8 19:00</a>
+怎么没找到在哪调画面设置</blockquote>
+画面分辨率设置，运行Launcher文件夹下的Launcher.exe，里面有设置
+
+—— 来自 Xiaomi M2007J3SC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

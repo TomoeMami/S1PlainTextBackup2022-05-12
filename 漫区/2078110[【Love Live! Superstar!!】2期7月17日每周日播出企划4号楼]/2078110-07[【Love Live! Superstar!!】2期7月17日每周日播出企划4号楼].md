@@ -13297,3 +13297,15 @@ animate明天晚上要上鲤鱼的中国版日历，订一套去<img src="https:
 
 三巡那个布制的角色小袋子煤炉挂一万日元，认真的吗草。
 
+
+
+*****
+
+####  starring  
+##### 10116#       发表于 2022-12-8 21:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58836571&amp;ptid=2078110" target="_blank">老1.5 发表于 2022-12-8 20:49</a>
+
+明明就是一次挺好的露脸的机会，刚有点预告就开始阴谋论了，也不知道现在看个小偶像团体是图什么许的[f:004 ...</blockquote>
+阴谋的厕所发臭的一直都是那样，只要星有活动都要批判一番寻求自身存在价值<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
