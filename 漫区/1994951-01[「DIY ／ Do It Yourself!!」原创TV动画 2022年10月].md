@@ -7268,3 +7268,13 @@ self：抱歉，刚在想hellshake bocchi的事
 
 布丁女士是真的可爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  我特么吹爆  
+##### 546#       发表于 2022-12-8 23:40
+
+这集让我有了「看动画的纯粹快乐」
+排除掉布丁女士的输赢问题，本集也是优秀的
+
