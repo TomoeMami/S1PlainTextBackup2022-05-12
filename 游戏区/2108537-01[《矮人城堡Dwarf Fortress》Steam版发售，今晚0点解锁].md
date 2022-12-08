@@ -659,3 +659,12 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 但是什么历史记录矮人爱好传记描述之类的能搞吗，听说是用很复杂的方法生成的……很希望能看到这部分
 
+
+
+*****
+
+####  fireflies  
+##### 71#       发表于 2022-12-8 20:01
+
+看进度俄国人改成功了，估计要等他们发了，再看看中文能不能用的上了。
+
