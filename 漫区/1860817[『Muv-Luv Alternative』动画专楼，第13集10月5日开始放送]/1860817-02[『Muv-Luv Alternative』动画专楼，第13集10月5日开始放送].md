@@ -1620,3 +1620,12 @@ beta全部停机这么魔幻的场面我还以为要给管人加戏了，硅基�
 看上去是驹木管人回了</blockquote>
 muv里的两千次男<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  灰谷真实  
+##### 2135#       发表于 2022-12-8 15:09
+
+新CV声线越来越靠近包子了。他喊“走开”那句真有基神的感觉，不会配到最后真的配成高仿了罢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

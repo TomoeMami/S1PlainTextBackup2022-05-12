@@ -12795,3 +12795,12 @@ Nako的新活，在12月1日起开服的【信长的野望 霸道】中饰演看
 
 <img src="https://p.sda1.dev/8/5c0bfd1a4560fa2dd1e5e9ee37dbde68/CMP_20221208145254189.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 10066#       发表于 2022-12-8 15:04
+
+风怒得有点厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
