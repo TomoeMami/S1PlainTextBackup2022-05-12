@@ -12847,3 +12847,32 @@ https://card.weibo.com/article/m/sho ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这直接在TV上面表现，不比花田整的那些嘴臭烂活好百倍
 
+
+
+*****
+
+####  a92063256  
+##### 10070#       发表于 2022-12-8 16:53
+
+我得了看官方卖可堇就难受的病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 10071#       发表于 2022-12-8 17:00
+
+<img src="https://img.saraba1st.com/forum/202212/08/170012az994se9dyzsx2us.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221208_165627.jpg</strong> (163.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 17:00 上传
+
+*****
+
+####  优妮可  
+##### 10072#       发表于 2022-12-8 17:00
+
+可香可堇都被动画毁了不少，要不卖点可恋吧
+

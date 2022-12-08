@@ -596,3 +596,12 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 不是的，这是某个油管up视频的搬运授权
 矮人要塞相关的视频，但和游戏汉化没关系
 
+
+
+*****
+
+####  Ayre不发糖哟  
+##### 65#       发表于 2022-12-8 16:59
+
+更不了中文那现在就开啃？
+
