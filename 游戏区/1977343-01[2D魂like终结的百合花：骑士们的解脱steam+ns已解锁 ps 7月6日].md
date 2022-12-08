@@ -102,3 +102,21 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  thee  
+##### 617#       发表于 2022-12-8 20:12
+
+续作来的这么快？
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  whzfjd  
+##### 618#       发表于 2022-12-8 20:19
+
+只是同组新作吧
+
