@@ -12975,3 +12975,25 @@ https://card.weibo.com/article/m/sho ...</blockquote>
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ViyViy  
+##### 10082#       发表于 2022-12-8 18:08
+
+这好像是单边的，依然姐评论区有人说微博有独占直播但还没到公布时间；无双边或者双边不明显的话感觉只是名号响亮而已<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 10083#       发表于 2022-12-8 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58834198&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-8 18:08</a>
+
+这好像是单边的，依然姐评论区有人说微博有独占直播但还没到公布时间；无双边或者双边不明显的话感觉只是名 ...</blockquote>
+感觉和微博有点关系，下面这个应该是官网<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+[https://weibo-accountfestival.com/](https://weibo-accountfestival.com/)
+
+其实挺好奇这个活动的主办方是哪些
+

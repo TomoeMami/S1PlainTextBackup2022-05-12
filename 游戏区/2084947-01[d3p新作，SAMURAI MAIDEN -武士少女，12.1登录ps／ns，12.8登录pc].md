@@ -608,3 +608,31 @@ Steam 应该是 16 点解锁，但不知道为什么商店页面没了，重新�
 
 谁给讲讲流程长度怎么样，有反复刷的动力吗
 
+
+
+*****
+
+####  iriyano  
+##### 136#       发表于 2022-12-8 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58824325&amp;ptid=2084947" target="_blank">B.K. 发表于 2022-12-8 01:10</a>
+
+我就想问PC版的补丁能整快点不</blockquote>
+下游戏的时候看了眼讨论区发现已经有了<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+https://mega
+
+.nz/file/QlEChBTD#EykaYaiJrR_fRiVs2UOST04fJ8BE3MoM2UAzxzxfwkg
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| B.K.| + 1|世界上还是好人多|
+
+查看全部评分
+
