@@ -955,3 +955,24 @@ SE不会犹豫的
 
 原来还打算继续hd2d dq1和2啊，怎么感觉这hd2d的效率有点低
 
+
+
+*****
+
+####  渺小小  
+##### 115#       发表于 2022-12-8 15:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">玩DQ10没网伤到我了····play方面太不用心。
+
+但愿DQ3高清马赛克是个正正经经的大项目。
+
+*****
+
+####  医生狼多  
+##### 116#         楼主| 发表于 2022-12-8 15:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58831391&amp;ptid=2006392" target="_blank">何处分可 发表于 2022-12-8 15:19</a>
+原来还打算继续hd2d dq1和2啊，怎么感觉这hd2d的效率有点低</blockquote>
+1+2会hd2d最开始就说了的
+浅野组项目比较多吧，这几年都是年货产出
+
