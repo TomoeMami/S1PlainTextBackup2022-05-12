@@ -4289,3 +4289,14 @@ SAO曲来了
 
 青鸟<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rs5621  
+##### 3402#       发表于 2022-12-9 00:11
+
+这灵活的双手
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
