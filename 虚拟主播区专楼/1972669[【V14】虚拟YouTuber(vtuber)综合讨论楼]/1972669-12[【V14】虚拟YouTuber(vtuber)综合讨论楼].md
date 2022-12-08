@@ -2892,3 +2892,12 @@ syl，话说神椿这几个是月下七子？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">菜
 
+
+
+*****
+
+####  rzrbtk  
+##### 17886#       发表于 2022-12-8 15:11
+
+现在最看好vta新人是那个一眼张京华哥，声好且接话熟练，毫无疑问的经验者惹，感觉初始值太高反而有些不安
+
