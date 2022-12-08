@@ -13279,3 +13279,12 @@ animate明天晚上要上鲤鱼的中国版日历，订一套去<img src="https:
 
 明明就是一次挺好的露脸的机会，刚有点预告就开始阴谋论了，也不知道现在看个小偶像团体是图什么许的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10114#       发表于 2022-12-8 20:53
+
+我还买了fc版的，算了，多一套也没啥
+

@@ -2901,3 +2901,44 @@ syl，话说神椿这几个是月下七子？</blockquote>
 
 现在最看好vta新人是那个一眼张京华哥，声好且接话熟练，毫无疑问的经验者惹，感觉初始值太高反而有些不安
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17887#       发表于 2022-12-8 20:53
+
+哈弟箱新人，撞上了nijien7期[https://twitter.com/NeoPorte_info](https://twitter.com/NeoPorte_info)
+
+<img src="https://img.saraba1st.com/forum/202212/08/205211vzcnsszgxcnfscnn.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221208205142.png</strong> (269.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202212/08/205211ugx6bood6ozx55cv.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221208205139.png</strong> (257.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202212/08/205211fc47ck7xryg4x41p.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221208205136.png</strong> (249.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 20:52 上传
+
+<img src="https://img.saraba1st.com/forum/202212/08/205212oxh2vjicjz7is3st.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221208205130.png</strong> (257.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 20:52 上传
+
