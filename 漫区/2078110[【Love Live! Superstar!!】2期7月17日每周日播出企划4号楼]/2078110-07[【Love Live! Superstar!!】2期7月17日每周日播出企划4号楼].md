@@ -13210,3 +13210,40 @@ SME一堆艺人，还不就是团里带了个中国人可以推然后顺便推�
 前段时间新闻联播一直在说这个<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 不过是最高层之间的协调
 
+
+
+*****
+
+####  优妮可  
+##### 10107#       发表于 2022-12-8 19:21
+
+<blockquote>懂你意思 发表于 2022-12-8 19:14
+看不懂B评论区，这有什么惊吓的</blockquote>
+如果把第二季动画放出来介绍的话，确实吓人
+
+*****
+
+####  starring  
+##### 10108#       发表于 2022-12-8 19:23
+
+这么快就阴谋论，真没必要。不如奢望一下能蹭到新闻采访在这边的电视台播出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 10109#       发表于 2022-12-8 19:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58834985&amp;ptid=2078110" target="_blank">player3960 发表于 2022-12-8 19:07</a>
+
+我记得sme不是有中国艺人吗？是叫苏苪琪吧，真要塞自己人她应该可以啊
+
+  -- 来自 能搜索的 Stage1 ...</blockquote>
+百度了这位，也挺励志的啊，不过人好像在国内吧，虽然是签了索尼solo出道
+
+*****
+
+####  cybernetics31  
+##### 10110#       发表于 2022-12-8 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
