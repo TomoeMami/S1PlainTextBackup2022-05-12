@@ -13015,3 +13015,29 @@ https://card.weibo.com/article/m/sho ...</blockquote>
 不会有太多的政府团体介入
 属于新闻联播上听麻的“促进民间交流，夯实民意基础”
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10086#       发表于 2022-12-8 18:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58834362&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-12-8 18:18</a>
+
+虽然只认识几个，但应该都是三次元大头吧，这估计真的是蹭上来的了</blockquote>
+看5厕说是几个上了去年红白的 这肯定是蹭了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 10087#       发表于 2022-12-8 18:29
+
+突如其来的大活好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cybernetics31  
+##### 10088#       发表于 2022-12-8 18:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
