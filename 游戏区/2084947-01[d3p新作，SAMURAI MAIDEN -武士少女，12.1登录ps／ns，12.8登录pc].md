@@ -713,3 +713,22 @@ https://mega</blockquote>
 
 感觉 540p 的超宽屏还挺带感的，可惜 1650 反而吃力起来了
 
+
+
+*****
+
+####  whzfjd  
+##### 144#       发表于 2022-12-9 00:28
+
+原来 Steam 已经是立正挨打后的表现了，我说怎么感觉手感还挺顺的
+
+对动作类而言这更新项目真是伤筋动骨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/09/002716qlzfi5bbqyybrsg3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (132.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 00:27 上传
+
