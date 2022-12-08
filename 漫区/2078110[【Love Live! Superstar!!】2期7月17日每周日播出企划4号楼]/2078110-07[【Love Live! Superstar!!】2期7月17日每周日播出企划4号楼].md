@@ -13369,3 +13369,30 @@ animate明天晚上要上鲤鱼的中国版日历，订一套去<img src="https:
 喜添新猛将一名</blockquote>
 坏了，本以为是个憨憨，没想到其实是不适应地球文化的外星人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 10121#       发表于 2022-12-8 23:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58838123&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-8 22:10</a>
+
+而且这图里可正制作的像是第12集香音的打歌服，文字却是让堇穿上衣服在舞台上闪耀，也不知道是文案和画师日 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">企划已经放弃圆滑过渡硬掰了，拿了冠军想单独对堇说谢谢而不是香音，我满头问号。
+
+*****
+
+####  Kfly  
+##### 10122#       发表于 2022-12-8 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58833133&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-12-8 17:00</a></blockquote>
+
+<img src="https://img.saraba1st.com/forum/202212/08/230936ts8ii0idezu08olt.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 035 - Liyuu 在 Twitter_ _あいにゃさん🤤🤤🤤 ちょっと恥ずかしい.png</strong> (207.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 23:09 上传
+
