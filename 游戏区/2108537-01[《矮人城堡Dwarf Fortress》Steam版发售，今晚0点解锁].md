@@ -698,3 +698,21 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 上来就挖到河，卒。学习曲线还是孙子辈的友好一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  scikirbypoke  
+##### 75#       发表于 2022-12-9 01:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58835886&amp;ptid=2108537" target="_blank">nma 发表于 2022-12-8 20:10</a>
+语言不能剥离代码无法理解，难道有对应的游戏机制和自动生成有关？</blockquote>
+有大量随机生成的人名地名，其他固定的物品名应该还好
+
+*****
+
+####  Nanachi  
+##### 76#       发表于 2022-12-9 01:09
+
+这些倒也不用翻译吧，隔壁边缘世界也不翻译人名（有赞助者id）[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
