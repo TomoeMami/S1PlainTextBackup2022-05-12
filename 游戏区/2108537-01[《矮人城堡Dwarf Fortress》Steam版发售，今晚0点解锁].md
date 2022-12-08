@@ -583,3 +583,16 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 汉化组已经得到授权了，看他们怎么处理随机文本问题吧（至少在我看到的ASCii版里这个问题并没有被解决）。
 
+
+
+*****
+
+####  fireflies  
+##### 64#       发表于 2022-12-8 13:47
+
+ 本帖最后由 fireflies 于 2022-12-8 13:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58828791&amp;ptid=2108537" target="_blank">发条之心 发表于 2022-12-8 12:02</a>
+风怒</blockquote>
+不是的，这是某个油管up视频的搬运授权
+矮人要塞相关的视频，但和游戏汉化没关系
+
