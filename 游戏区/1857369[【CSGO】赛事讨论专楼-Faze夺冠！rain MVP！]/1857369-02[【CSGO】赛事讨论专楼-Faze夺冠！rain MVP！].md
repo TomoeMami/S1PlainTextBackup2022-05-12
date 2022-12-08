@@ -103,3 +103,12 @@ a队该优化了，踢x9，mistr回青训，不然设备回来跟没回没什么
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  haruhiismer  
+##### 2938#       发表于 2022-12-9 06:29
+
+若子好硬，虾好软
+
