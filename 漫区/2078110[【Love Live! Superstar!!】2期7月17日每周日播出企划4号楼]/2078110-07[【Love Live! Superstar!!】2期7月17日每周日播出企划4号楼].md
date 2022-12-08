@@ -12887,3 +12887,31 @@ https://card.weibo.com/article/m/sho ...</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Kfly  
+##### 10074#       发表于 2022-12-8 17:44
+
+ 本帖最后由 Kfly 于 2022-12-8 17:50 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/08/175017paobwwn04bdnzoao.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 034 - ラブライブ！シリーズ公式 在 Twitter_ _【💫イベント情報💫.png</strong> (146.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 17:50 上传
+
+*****
+
+####  csolfans  
+##### 10075#       发表于 2022-12-8 17:45
+
+ 本帖最后由 csolfans 于 2022-12-8 17:47 编辑 
+
+迫真大活动
+

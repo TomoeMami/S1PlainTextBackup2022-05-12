@@ -82,3 +82,12 @@
 
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  quanlix  
+##### 615#       发表于 2022-12-8 17:45
+
+只求别再整啥动态难度了
+
