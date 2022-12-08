@@ -689,3 +689,12 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 语言不能剥离代码无法理解，难道有对应的游戏机制和自动生成有关？</blockquote>
 人物的行动和属性需要读取人物传记内容来产生吧
 
+
+
+*****
+
+####  nma  
+##### 74#       发表于 2022-12-9 00:46
+
+上来就挖到河，卒。学习曲线还是孙子辈的友好一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
