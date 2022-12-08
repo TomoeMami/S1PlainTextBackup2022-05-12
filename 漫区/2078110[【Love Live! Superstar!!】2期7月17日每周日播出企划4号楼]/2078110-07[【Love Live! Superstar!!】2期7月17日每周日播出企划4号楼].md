@@ -12876,3 +12876,14 @@ https://card.weibo.com/article/m/sho ...</blockquote>
 
 可香可堇都被动画毁了不少，要不卖点可恋吧
 
+
+
+*****
+
+####  player3960  
+##### 10073#       发表于 2022-12-8 17:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58833133&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-12-08 17:00:13</a></blockquote>哈哈，爱喵，鲤鱼届到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

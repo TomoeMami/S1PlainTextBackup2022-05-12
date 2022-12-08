@@ -92,3 +92,14 @@ a队该优化了，踢x9，mistr回青训，不然设备回来跟没回没什么
 <img src="https://p.sda1.dev/8/11131c1d05e72bffa7946cb8879f52fc/IMG_CMP_68475602.jpeg" referrerpolicy="no-referrer">
 重生之我是特种兵
 
+
+
+*****
+
+####  Rainwedell  
+##### 2937#       发表于 2022-12-8 17:02
+
+除了stavn没想到以外，都很符合刻板印象。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
