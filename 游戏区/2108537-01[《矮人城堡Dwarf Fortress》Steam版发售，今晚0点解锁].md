@@ -648,3 +648,14 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">没中文感觉玩不了。
 
+
+
+*****
+
+####  白左  
+##### 70#       发表于 2022-12-8 19:06
+
+界面的话实在不行用BepInEx之类的实时翻译插件大概也行，反正没什么性能问题
+
+但是什么历史记录矮人爱好传记描述之类的能搞吗，听说是用很复杂的方法生成的……很希望能看到这部分
+

@@ -13130,3 +13130,40 @@ SME一堆艺人，还不就是团里带了个中国人可以推然后顺便推�
 阴谋论收一收
 微博主办找个有微博大v的团更加合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 10098#       发表于 2022-12-8 19:07
+
+我记得sme不是有中国艺人吗？是叫苏苪琪吧，真要塞自己人她应该可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 10099#       发表于 2022-12-8 19:07
+
+话说这企划真偏心smr啊，一单广播剧被可可吐槽“你根本没复习吧”，漫画里可恋说想开学习会后打喷嚏的堇变成“热爱学习”的人设了
+这下一期生只有香音是学渣了，惨 香音 惨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  aoaoaodedede  
+##### 10100#       发表于 2022-12-8 19:08
+
+也不知道sma在这企划里占多少分量，不过鱼的存在确实使得把星推上去看起来更合理了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正究竟是哪样的，不妨到时候看歌单和其他安排，当然在对企划基本上失望的前提下，我觉得到时候评论还是会很热闹的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10101#       发表于 2022-12-8 19:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">到时候......到时候国内几个星星人的评论怕不是淹没在**大海里了
+
