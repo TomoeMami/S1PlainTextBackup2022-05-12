@@ -12823,3 +12823,18 @@ Nako的新活，在12月1日起开服的【信长的野望 霸道】中饰演看
 
 [https://card.weibo.com/article/m ... 9404844209965498454](https://card.weibo.com/article/m/show/id/2309404844209965498454?id=2309404844209965498454)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 10068#       发表于 2022-12-8 16:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58832196&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-8 16:11</a>
+喵的，真就只配在杂志补完的角色。这增刊还又给可可安箭头，西八。
+
+https://card.weibo.com/article/m/sho ...</blockquote>
+杂志里的这种文章只可能更多，官推cp也肯定要卖的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有点“打一巴掌给个甜枣”的味了
+
