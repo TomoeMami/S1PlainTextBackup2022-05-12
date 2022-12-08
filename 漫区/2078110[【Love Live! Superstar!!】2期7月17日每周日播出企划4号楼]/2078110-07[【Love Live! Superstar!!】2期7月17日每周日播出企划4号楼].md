@@ -12804,3 +12804,22 @@ Nako的新活，在12月1日起开服的【信长的野望 霸道】中饰演看
 
 风怒得有点厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 10067#       发表于 2022-12-8 16:11
+
+喵的，真就只配在杂志补完的角色。这增刊还又给可可安箭头，西八。
+
+<img src="https://img.saraba1st.com/forum/202212/08/160924k5cc6ec7h25ee5ve.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221208155706 - 副本.jpg</strong> (227.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 16:09 上传
+
+[https://card.weibo.com/article/m ... 9404844209965498454](https://card.weibo.com/article/m/show/id/2309404844209965498454?id=2309404844209965498454)
+

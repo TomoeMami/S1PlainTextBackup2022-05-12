@@ -574,3 +574,19 @@ ns版本不行么，那还是慢慢等pc
 
 我就想问PC版的补丁能整快点不
 
+
+
+*****
+
+####  whzfjd  
+##### 132#       发表于 2022-12-8 16:08
+
+Steam 应该是 16 点解锁，但不知道为什么商店页面没了，重新登录 Steam 后讨论区也没了，普通版变成不存在的游戏咧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  半分幻的凶鳥  
+##### 133#       发表于 2022-12-8 16:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">挺想试试的不过有点贵，以后再说。
+
