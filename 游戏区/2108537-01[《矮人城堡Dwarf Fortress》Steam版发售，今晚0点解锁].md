@@ -639,3 +639,12 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 所以可能存在的汉化补丁也只能是图形覆盖型，那我建议还是直接生啃
 
+
+
+*****
+
+####  千千千千鸟  
+##### 69#       发表于 2022-12-8 18:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">没中文感觉玩不了。
+

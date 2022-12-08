@@ -636,3 +636,24 @@ https://mega
 
 查看全部评分
 
+
+
+*****
+
+####  B.K.  
+##### 137#       发表于 2022-12-8 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58834211&amp;ptid=2084947" target="_blank">iriyano 发表于 2022-12-8 18:09</a>
+
+下游戏的时候看了眼讨论区发现已经有了
+
+https://mega</blockquote>
+谢！谢！坛！友！<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+*****
+
+####  whzfjd  
+##### 138#       发表于 2022-12-8 18:16
+
+动作还挺一板一眼的，不知道是花心思还是动捕专业姿势直接用更省钱，就是没派生不够爽，但重击能二连扇形还是挺强的，不小心使出上挑倒是比较惊讶。看起来像是更注重姬友技能的样子，但B没啥存在感，忍具很乐但使用次数太少了。
+
