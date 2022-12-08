@@ -238,3 +238,16 @@ EX的boss战扫荡一把给10W，已经比钱本多了，然后winter cup给40W�
 
 然而活动觉醒素材才给那么点，现在想花钱却被卡素材<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  startea15  
+##### 176#       发表于 2022-12-8 14:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58827252&amp;ptid=2101146" target="_blank">kulanyee 发表于 2022-12-7 19:24</a>
+EX的boss战扫荡一把给10W，已经比钱本多了，然后winter cup给40W，一天算下来一百多W
+
+然而活动觉醒素材才给 ...</blockquote>
+买摩托强化摩托你会发现钱怎么都不够<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
