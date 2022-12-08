@@ -605,3 +605,17 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 更不了中文那现在就开啃？
 
+
+
+*****
+
+####  发条之心  
+##### 66#       发表于 2022-12-8 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58830106&amp;ptid=2108537" target="_blank">fireflies 发表于 2022-12-8 13:47</a>
+
+不是的，这是某个油管up视频的搬运授权
+
+矮人要塞相关的视频，但和游戏汉化没关系 ...</blockquote>
+原来如此，我还以为矮人要塞作者有在B站开账号的想法呢
+
