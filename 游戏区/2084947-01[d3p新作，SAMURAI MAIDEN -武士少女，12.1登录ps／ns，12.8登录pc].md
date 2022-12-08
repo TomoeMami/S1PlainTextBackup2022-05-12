@@ -590,3 +590,12 @@ Steam 应该是 16 点解锁，但不知道为什么商店页面没了，重新�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">挺想试试的不过有点贵，以后再说。
 
+
+
+*****
+
+####  whzfjd  
+##### 134#       发表于 2022-12-8 16:17
+
+好像是硬删库，从客服界面能看出来库里存留的项目仅仅是预购特典<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
