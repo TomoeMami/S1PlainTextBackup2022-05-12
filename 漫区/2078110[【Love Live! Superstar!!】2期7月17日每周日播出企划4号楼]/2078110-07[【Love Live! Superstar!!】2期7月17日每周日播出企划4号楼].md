@@ -12915,3 +12915,63 @@ https://card.weibo.com/article/m/sho ...</blockquote>
 
 迫真大活动
 
+
+
+*****
+
+####  甩不出去的黄牌  
+##### 10076#       发表于 2022-12-8 17:52
+
+还有这种活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 10077#       发表于 2022-12-8 17:53
+
+这算鲤鱼带来的好处吧，不然混不进去<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Enakina  
+##### 10078#       发表于 2022-12-8 17:53
+
+有别的嘉宾名单吗，我还挺好奇的
+
+*****
+
+####  优妮可  
+##### 10079#       发表于 2022-12-8 17:54
+
+大的吓人
+
+*****
+
+####  aoaoaodedede  
+##### 10080#       发表于 2022-12-8 17:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58833981&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-12-8 17:53</a>
+
+有别的嘉宾名单吗，我还挺好奇的</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202212/08/175535jbby80ape99tbzu8.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (107.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 17:55 上传
+
+
+
+*****
+
+####  player3960  
+##### 10081#       发表于 2022-12-8 18:04
+
+反正这活动蛮适合的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

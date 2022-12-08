@@ -619,3 +619,23 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 矮人要塞相关的视频，但和游戏汉化没关系 ...</blockquote>
 原来如此，我还以为矮人要塞作者有在B站开账号的想法呢
 
+
+
+*****
+
+####  omoito  
+##### 67#       发表于 2022-12-8 18:03
+
+矮人要塞中显示出的文本词汇同时也是代码，要汉化就是要改代码<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+所以可能存在的汉化补丁也只能是图形覆盖型，那我建议还是直接生啃
+
+*****
+
+####  omoito  
+##### 68#       发表于 2022-12-8 18:04
+
+矮人要塞中显示出的文本词汇同时也是代码，要汉化就是要改代码<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+所以可能存在的汉化补丁也只能是图形覆盖型，那我建议还是直接生啃
+
