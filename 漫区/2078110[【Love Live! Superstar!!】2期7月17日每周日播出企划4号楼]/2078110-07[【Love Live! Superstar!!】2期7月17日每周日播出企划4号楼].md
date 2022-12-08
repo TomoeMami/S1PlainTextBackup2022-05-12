@@ -13358,3 +13358,14 @@ animate明天晚上要上鲤鱼的中国版日历，订一套去<img src="https:
 阴谋的厕所发臭的一直都是那样，只要星有活动都要批判一番寻求自身存在价值 ...</blockquote>
 可别开地图炮了，上一页还有些几层稍微聊了聊的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 10120#       发表于 2022-12-8 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58837610&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-8 21:41</a>
+喜添新猛将一名</blockquote>
+坏了，本以为是个憨憨，没想到其实是不适应地球文化的外星人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
