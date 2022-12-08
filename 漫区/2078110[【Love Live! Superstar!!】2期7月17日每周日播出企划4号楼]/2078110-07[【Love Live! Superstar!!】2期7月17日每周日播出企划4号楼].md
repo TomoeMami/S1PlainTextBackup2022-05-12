@@ -13067,3 +13067,66 @@ https://card.weibo.com/article/m/sho ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">倒也是，连首正儿八经的C曲都没吧
 
+
+
+*****
+
+####  甘蓝巧克力  
+##### 10092#       发表于 2022-12-8 18:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">说起这个就恨呐，什么时候把可鲤c位曲和个人补全放出来
+
+*****
+
+####  ViyViy  
+##### 10093#       发表于 2022-12-8 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58834690&amp;ptid=2078110" target="_blank">lj205 发表于 2022-12-8 18:42</a>
+
+结果带来这资源的中国人最后表现最少，好不好笑？</blockquote>
+制作协力SME，鱼可能是起到的间接作用而非直接作用<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+半开玩笑的说谁知道是不是先想到自己家的人儿然后再了解到liella的性质的呢？
+
+*****
+
+####  愛さ実  
+##### 10094#       发表于 2022-12-8 18:54
+
+来首独唱媳妇满天空？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ruffian  
+##### 10095#       发表于 2022-12-8 18:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58832196&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-08 16:11:33</a>
+喵的，真就只配在杂志补完的角色。这增刊还又给可可安箭头，西八。
+
+ ...</blockquote>不说别的，我喜欢这个画风
+
+是我的错觉吗？虽然可堇早就开始卖了，但是二期之后卖的简直魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 10096#       发表于 2022-12-8 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58834798&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-8 18:54</a>
+制作协力SME，鱼可能是起到的间接作用而非直接作用
+
+半开玩笑的说谁知道是不是先想到自己家的人儿 ...</blockquote>
+SME一堆艺人，还不就是团里带了个中国人可以推然后顺便推自己艺人的C曲
+
+*****
+
+####  nufawneafg  
+##### 10097#       发表于 2022-12-8 19:01
+
+阴谋论收一收
+微博主办找个有微博大v的团更加合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
