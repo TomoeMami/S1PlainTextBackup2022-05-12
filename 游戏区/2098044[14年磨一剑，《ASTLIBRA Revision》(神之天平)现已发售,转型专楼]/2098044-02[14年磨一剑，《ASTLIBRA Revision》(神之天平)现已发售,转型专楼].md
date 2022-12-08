@@ -16959,3 +16959,58 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 为什么我的世界树之花每次用都显示失败？还有请教下三段跳和隐藏矿脉分别是哪两个武器技能？ ...</blockquote>
 只有在特定情况下才能使用世界树之花，一般是通关本章至开启下章之前，方便你四处刷东西。如果有特定触发剧情（例如该次回家会遇到人）的话也会临时禁用。三段跳是第五章龙皮靴饰品自带技能，挖挖汪汪是第三章钉锤的精通技能
 
+
+
+*****
+
+####  Quelaan  
+##### 2957#       发表于 2022-12-8 23:23
+
+这个固定道具是指啥啊，那些不需要钥匙的小木箱子？
+
+<img src="https://img.saraba1st.com/forum/202212/08/232240twmmseyy9v9myiis.png" referrerpolicy="no-referrer">
+
+<strong>V%WS8GJG)(7G0@UAA7742JC.png</strong> (74.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 23:22 上传
+
+*****
+
+####  瓦米里奥  
+##### 2958#       发表于 2022-12-8 23:25
+
+第七章开始后还有机会打战神等几个隐藏boss吗？
+
+*****
+
+####  urvark  
+##### 2959#       发表于 2022-12-8 23:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58839217&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-12-8 23:23</a>
+
+这个固定道具是指啥啊，那些不需要钥匙的小木箱子？</blockquote>
+就是怪的素材，上面那个加掉率的似乎只影响非怪物固定素材的掉落，比如食物啥的
+
+*****
+
+####  liyropen  
+##### 2960#       发表于 2022-12-8 23:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58839249&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-8 23:25</a>
+第七章开始后还有机会打战神等几个隐藏boss吗？</blockquote>
+打最后一个boss之前都有机会
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  BQlin  
+##### 2961#       发表于 2022-12-8 23:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58839217&amp;ptid=2098044" target="_blank">Quelaan 发表于 2022-12-8 23:23</a>
+
+这个固定道具是指啥啊，那些不需要钥匙的小木箱子？</blockquote>
+做装备用的那些素材
+
