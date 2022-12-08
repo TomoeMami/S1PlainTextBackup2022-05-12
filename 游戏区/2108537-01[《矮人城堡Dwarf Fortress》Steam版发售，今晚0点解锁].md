@@ -677,3 +677,15 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 语言不能剥离代码无法理解，难道有对应的游戏机制和自动生成有关？
 
+
+
+*****
+
+####  liekong  
+##### 73#       发表于 2022-12-8 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58835886&amp;ptid=2108537" target="_blank">nma 发表于 2022-12-8 20:10</a>
+
+语言不能剥离代码无法理解，难道有对应的游戏机制和自动生成有关？</blockquote>
+人物的行动和属性需要读取人物传记内容来产生吧
+

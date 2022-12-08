@@ -13258,3 +13258,15 @@ animate明天晚上要上鲤鱼的中国版日历，订一套去<img src="https:
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ViyViy  
+##### 10112#       发表于 2022-12-8 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58834865&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-8 18:58</a>
+
+不说别的，我喜欢这个画风</blockquote>
+抄同人罢了，他们还得感想我官方的盖章肯定呢。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
