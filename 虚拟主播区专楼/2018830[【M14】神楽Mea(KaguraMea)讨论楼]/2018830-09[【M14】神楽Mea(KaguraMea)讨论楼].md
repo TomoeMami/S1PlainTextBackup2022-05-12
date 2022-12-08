@@ -80,3 +80,22 @@
 
 麻图私我
 
+
+
+*****
+
+####  专业划水人员  
+##### 12923#       发表于 2022-12-8 22:15
+
+真有新麻图吗
+
+*****
+
+####  ashero  
+##### 12924#       发表于 2022-12-8 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58837912&amp;ptid=2018830" target="_blank">yywzjsw 发表于 2022-12-8 21:58</a>
+
+啥麻图？来点前提概要</blockquote>
+为了歌回多唱一首的歌说自己给海苔男发张图就可以再唱会了
+

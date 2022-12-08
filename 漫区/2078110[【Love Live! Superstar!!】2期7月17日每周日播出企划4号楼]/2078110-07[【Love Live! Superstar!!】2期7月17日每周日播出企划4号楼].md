@@ -13346,3 +13346,15 @@ animate明天晚上要上鲤鱼的中国版日历，订一套去<img src="https:
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 10119#       发表于 2022-12-8 22:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58837259&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-8 21:24</a>
+
+阴谋的厕所发臭的一直都是那样，只要星有活动都要批判一番寻求自身存在价值 ...</blockquote>
+可别开地图炮了，上一页还有些几层稍微聊了聊的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
