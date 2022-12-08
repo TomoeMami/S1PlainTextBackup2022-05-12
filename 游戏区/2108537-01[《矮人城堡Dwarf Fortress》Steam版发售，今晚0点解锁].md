@@ -668,3 +668,12 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 看进度俄国人改成功了，估计要等他们发了，再看看中文能不能用的上了。
 
+
+
+*****
+
+####  nma  
+##### 72#       发表于 2022-12-8 20:10
+
+语言不能剥离代码无法理解，难道有对应的游戏机制和自动生成有关？
+
