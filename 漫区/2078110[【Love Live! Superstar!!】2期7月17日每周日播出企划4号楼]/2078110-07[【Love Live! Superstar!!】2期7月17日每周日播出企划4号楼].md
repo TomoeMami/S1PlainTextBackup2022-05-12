@@ -12772,3 +12772,26 @@ Nako的新活，在12月1日起开服的【信长的野望 霸道】中饰演看
 
 话说现在动不动就是打电话，缺少当年跑电话亭还联系不上人的那种物理疏远感。
 
+
+
+*****
+
+####  仟音一心  
+##### 10063#       发表于 2022-12-8 14:53
+
+<img src="https://p.sda1.dev/8/5c0bfd1a4560fa2dd1e5e9ee37dbde68/CMP_20221208145254189.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 10064#       发表于 2022-12-8 14:53
+
+<img src="https://p.sda1.dev/8/5c0bfd1a4560fa2dd1e5e9ee37dbde68/CMP_20221208145254189.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 10065#       发表于 2022-12-8 14:53
+
+<img src="https://p.sda1.dev/8/5c0bfd1a4560fa2dd1e5e9ee37dbde68/CMP_20221208145254189.jpg" referrerpolicy="no-referrer">
+
