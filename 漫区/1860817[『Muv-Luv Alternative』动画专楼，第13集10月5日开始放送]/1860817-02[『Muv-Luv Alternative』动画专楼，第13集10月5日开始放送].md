@@ -1601,3 +1601,22 @@ beta全部停机这么魔幻的场面我还以为要给管人加戏了，硅基�
 
 管人部分加的还不错，描写了撤退的绝望感
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2133#       发表于 2022-12-8 14:57
+
+看样子得第三季才能做完剧情了
+
+*****
+
+####  再买自检星剁手  
+##### 2134#       发表于 2022-12-8 14:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58820462&amp;ptid=1860817" target="_blank">yone0000 发表于 2022-12-7 20:01</a>
+
+看上去是驹木管人回了</blockquote>
+muv里的两千次男<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
