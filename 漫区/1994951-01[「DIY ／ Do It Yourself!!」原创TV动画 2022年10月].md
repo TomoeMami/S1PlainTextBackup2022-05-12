@@ -7227,3 +7227,35 @@ self也算是高分低能的一种写照了<img src="https://static.saraba1st.co
 
 暑假即将来临——
 
+
+
+*****
+
+####  伊地知星歌  
+##### 543#       发表于 2022-12-8 13:28
+
+self：抱歉，刚在想hellshake bocchi的事
+
+<img src="https://img.saraba1st.com/forum/202212/08/132753j5untv4vh5w040b4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (120.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 13:27 上传
+
+*****
+
+####  伊地知星歌  
+##### 544#       发表于 2022-12-8 13:47
+
+直女特有的直球
+
+<img src="https://img.saraba1st.com/forum/202212/08/134717zpglfm993l33vmgx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (131.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-8 13:47 上传
+
