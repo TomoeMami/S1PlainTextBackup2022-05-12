@@ -967,3 +967,16 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这更新，真的就是打肿脸充胖子第一人
 
+
+
+*****
+
+####  415452356  
+##### 200#       发表于 2022-12-9 23:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58856703&amp;ptid=1951151" target="_blank">古代人皮克 发表于 2022-12-9 22:46</a>
+这更新，真的就是打肿脸充胖子第一人</blockquote>
+  都不知道这游戏延期到底干去了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
