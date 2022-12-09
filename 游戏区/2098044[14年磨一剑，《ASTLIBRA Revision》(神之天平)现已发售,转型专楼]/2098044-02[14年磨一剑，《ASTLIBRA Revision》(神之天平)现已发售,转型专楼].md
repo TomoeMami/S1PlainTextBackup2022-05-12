@@ -17057,3 +17057,12 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Reslayer  
+##### 2965#       发表于 2022-12-9 11:34
+
+有没扫帚真是两个游戏，扫帚和几个buff技能一开直接杀死游戏了
+
