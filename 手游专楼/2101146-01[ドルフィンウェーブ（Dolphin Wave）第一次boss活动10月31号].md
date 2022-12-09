@@ -251,3 +251,76 @@ EX的boss战扫荡一把给10W，已经比钱本多了，然后winter cup给40W�
 然而活动觉醒素材才给 ...</blockquote>
 买摩托强化摩托你会发现钱怎么都不够<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 177#         楼主| 发表于 2022-12-9 19:31
+
+[https://news-dolphin-wave.marv.jp/article/18105](https://news-dolphin-wave.marv.jp/article/18105)
+
+开发日志更新
+
+<img src="https://img.saraba1st.com/forum/202212/09/192929bdikieb7z7iw86fb.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-12-09 at 19-26-41 ◤ドルウェブ◢ 開発レポートvol.1.png</strong> (167.19 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 19:29 上传
+
+<img src="https://img.saraba1st.com/forum/202212/09/192929d6ulsdc48j892s98.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-12-09 at 19-27-23 ◤ドルウェブ◢ 開発レポートvol.1.png</strong> (88.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 19:29 上传
+
+巨大机械boss，凹分活动，应该是年后出
+
+<img src="https://img.saraba1st.com/forum/202212/09/193100zla826ca2ddpda3i.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-12-09 at 19-27-32 ◤ドルウェブ◢ 開発レポートvol.1.png</strong> (103.56 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 19:31 上传
+
+boss战继续追加高难
+
+<img src="https://img.saraba1st.com/forum/202212/09/193131ro97jc0r4g9tz0f2.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-12-09 at 19-28-53 ◤ドルウェブ◢ 開発レポートvol.1.png</strong> (64.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 19:31 上传
+
+<img src="https://img.saraba1st.com/forum/202212/09/193131powdc8mzm8mj0sdm.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-12-09 at 19-28-45 ◤ドルウェブ◢ 開発レポートvol.1.png</strong> (85.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 19:31 上传
+
+<img src="https://img.saraba1st.com/forum/202212/09/193131vuhkhmtksm690mb1.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-12-09 at 19-28-32 ◤ドルウェブ◢ 開発レポートvol.1.png</strong> (101.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 19:31 上传
+
+<img src="https://img.saraba1st.com/forum/202212/09/193132o327lu4777110l9m.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-12-09 at 19-28-17 ◤ドルウェブ◢ 開発レポートvol.1.png</strong> (124.27 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 19:31 上传
+
+冬活回忆卡和新角色预告
+

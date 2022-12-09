@@ -12022,3 +12022,15 @@ wb更了   太劲了
 
 听说q群又起风波，可惜我不加q群，但是想看厂长滑跪道歉
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2757#         楼主| 发表于 2022-12-9 19:41
+
+当时为了毛九夏表情包进的群
+
+这个吊qq频道，我从内测开始就是一个也进不去
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h8xsld59u0j20ck0hsdoa.jpg" referrerpolicy="no-referrer">
+

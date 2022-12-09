@@ -8813,3 +8813,12 @@ wow,真的是无限池连发
 
 最后一次更新本时多塞一个也是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  森兰丸  
+##### 3797#       发表于 2022-12-9 19:40
+
+大概100多抽妖兰2宝入手....晚了1年多总算弥补了怨念<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
