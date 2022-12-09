@@ -3272,3 +3272,38 @@ EN开始B限与JP（几年前有黑黑皇女葵等每周b限）与转正程序�
 虹开这个vta没说学员要是出道的话一定要进虹吧？ ...</blockquote>
 出道是进彩虹，但可以选择不出道离开
 
+
+
+*****
+
+####  ヒトニナル  
+##### 17917#       发表于 2022-12-9 18:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难得看到你楼如此活跃
+
+*****
+
+####  渡鸦骑士  
+##### 17918#       发表于 2022-12-9 18:33
+
+ 本帖最后由 渡鸦骑士 于 2022-12-9 18:38 编辑 
+
+那么学员要是打算在别处出道的话，是可以要求vta频道删除自己的直播录像吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+我不禁联想起了前几天的虹杏联手宣言。
+按最近一年多的例子，主播基本上都要依靠自己出道的公司来打针对皮的事情。用自己本人的权利来针对中之人的事情。
+那么针对前世的事情呢？现公司明显管不到，本人也没有前世皮的管辖权。如果体量相差比较大，也许能通过运作解决。
+从我了解到的，holo这边的情况，luna已经稳定下来了根本用不到这种事情。holo的V大多前世是个人势或者nico主。
+如果，我说如果，现在有个V在anycolor旗下呆过，那么如果她要在holo出道的话，有这样的协议，不是很方便嘛<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 17919#       发表于 2022-12-9 18:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58852914&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-9 18:21</a>
+
+一边是对Holo魔怔，一边是对猫雷魔怔
+
+Nga和V吧要不结拜吧</blockquote>
+政治入脑网右和相处方式只有虚拟扯辫子贴吧人，一个都被玩成meme了，很难认同
+
