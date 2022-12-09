@@ -4940,3 +4940,12 @@ CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动
 
 战神4时我记得也是没在boss战里能存满条<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 1939#         楼主| 发表于 2022-12-9 10:19
+
+【TGA 2022】最佳叙事
+
