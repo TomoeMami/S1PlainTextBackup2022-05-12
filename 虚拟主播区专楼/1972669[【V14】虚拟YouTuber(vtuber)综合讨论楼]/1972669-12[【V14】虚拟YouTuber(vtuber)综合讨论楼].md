@@ -3105,3 +3105,56 @@ Luxiem在B站爆火让田角陆尝到甜头了
 
 而这又跟一期九进八，人气王最后出道的转正顺序有什么关系呢？
 
+
+
+*****
+
+####  rzrbtk  
+##### 17904#       发表于 2022-12-9 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851976&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-9 17:15</a>
+
+Luxiem在B站爆火让田角陆尝到甜头了
+
+未来会更多和B站有关系的新人</blockquote>
+EN五期没一个会说中文的全男阵容爆火，田角陆未卜先知EN一四期就招两个cn高人气华裔，然后六期只放一个因为耽美才了解大量中华元素的给进来，又在vta里塞一个练歌练舞不知道愿不愿意出道的粉丝出名难搞的有前世女v，确实是搞不懂你心中田角陆的形象。
+
+*****
+
+####  rzrbtk  
+##### 17905#       发表于 2022-12-9 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58817459&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-7 17:02</a>
+
+大概是想学隔壁吧</blockquote>
+隔壁是哪个rap起源？隔壁刀也前辈是吗？
+
+<img src="https://img.saraba1st.com/forum/202212/09/173323ov71uvb1o5c3q35h.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 038 - (2) 剑持刀也 rap - YouTube - www.youtube.com.png</strong> (195.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 17:33 上传
+
+*****
+
+####  psnsic8nag  
+##### 17906#       发表于 2022-12-9 17:34
+
+看到有魔怔前世粉冲猫雷了，和当初私一样
+
+只是这次从Nga变成V吧
+
+*****
+
+####  rzrbtk  
+##### 17907#       发表于 2022-12-9 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58815396&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-7 15:08</a>
+
+学院机制就是大逃杀复刻
+
+运营没讲明罢了</blockquote><blockquote>发给每个学生地图、粮食、各种各样的武器，让他们自相残杀，直到只留下最后一个为止。</blockquote>
+是只剩一个不是只淘汰一个，还是你与脑内的先知田角陆一起预想到了vta遥远的未来？
+
