@@ -2473,3 +2473,13 @@ EA 与 光荣特库摩 合作的狩猎游戏《WILD HEARTS》将于 11月17日23
 
 看着像讨鬼极那个狼BOSS改改
 
+
+
+*****
+
+####  Piano-Forest  
+##### 289#         楼主| 发表于 2022-12-9 14:58
+
+【《WILD HEARTS》游戏大奖预告片：强大的怪兽 驯服狂野的世界！】 
+[https://m.bilibili.com/video/BV1p24y1Q7Hu](https://m.bilibili.com/video/BV1p24y1Q7Hu)
+
