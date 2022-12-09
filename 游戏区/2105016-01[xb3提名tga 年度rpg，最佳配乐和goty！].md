@@ -1913,3 +1913,16 @@ Fhmk8gkWQAAW9so_format=jpg&amp;amp;name=small.jpg
 — from OnePlus GM1917, Android 11 of S1 Next Goose v2.5.2-play ...</blockquote>
 等DLC4真<img src="https://static.saraba1st.com/image/smiley/carton2017/239.png" referrerpolicy="no-referrer">出来再比
 
+
+
+*****
+
+####  sin.yugi  
+##### 215#       发表于 2022-12-9 14:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58849117&amp;ptid=2105016" target="_blank">ZyLintheMax 发表于 2022-12-9 01:23</a>
+等DLC4真出来再比</blockquote>
+万一高桥gg来个都市六侠传呢？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
