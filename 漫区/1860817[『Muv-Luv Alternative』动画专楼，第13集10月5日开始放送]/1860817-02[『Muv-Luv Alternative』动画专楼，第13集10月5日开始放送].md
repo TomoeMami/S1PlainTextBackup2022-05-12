@@ -1726,3 +1726,12 @@ Blu-ray BOX III,IV特典
 <img src="https://p.sda1.dev/8/68c3b1b5db7733ff7fb550f3b0d22ca1/20221209_194149.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/ba61f7b7bda1a90b579494e5a9e39d2c/20221209_194150.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kamarus  
+##### 2145#       发表于 2022-12-9 20:14
+
+这奶黄包做的不错，有丝巾和神族母舰大炮那味道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

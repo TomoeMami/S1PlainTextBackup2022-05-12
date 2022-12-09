@@ -3435,3 +3435,21 @@ vspo维持了半年的上升势头，下半年也无以为继
 
 倒是met感觉全年都很强势，连休息都断不了节奏
 
+
+
+*****
+
+####  winda  
+##### 17931#       发表于 2022-12-9 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58854090&amp;ptid=1972669" target="_blank">Suny08 发表于 2022-12-9 19:49</a>
+没有迫切出道需求的话去vta 熬着确实还可以，相比正式编没有那么忙，可以上点课还能认识一帮人打游戏，也挺 ...</blockquote>
+强制性的每周20h时间占用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真的闲么
+
+*****
+
+####  渡鸦骑士  
+##### 17932#       发表于 2022-12-9 20:19
+
+感觉只有半打工才能满足这个同时生活<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
