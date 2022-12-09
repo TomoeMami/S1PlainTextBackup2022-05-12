@@ -1869,3 +1869,14 @@ Fhmk8gkWQAAW9so_format=jpg&amp;amp;name=small.jpg
 不如老头环就等于不如破晓吗？难道顶着年度游戏拿子类？去年破晓在鸡群里都没拿到年度提名。 ...</blockquote>
 懂了，XB3原来是硬实力冠军
 
+
+
+*****
+
+####  ACGN若翼  
+##### 211#       发表于 2022-12-9 12:49
+
+重新翻这贴真是喜感
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
