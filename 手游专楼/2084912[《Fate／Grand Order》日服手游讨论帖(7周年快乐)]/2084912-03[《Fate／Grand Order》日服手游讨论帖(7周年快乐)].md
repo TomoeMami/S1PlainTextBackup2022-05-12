@@ -8834,3 +8834,34 @@ wow,真的是无限池连发
 大概100多抽妖兰2宝入手....晚了1年多总算弥补了怨念</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到你的id还没点进去就知道是来晒的   真准
 
+
+
+*****
+
+####  森兰丸  
+##### 3799#       发表于 2022-12-9 20:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58854690&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-12-9 20:24</a>
+
+看到你的id还没点进去就知道是来晒的   真准</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">破游现在也没啥别的好说了啊
+
+话说妖兰3破的灵衣是不是用1破2破进战斗的话就没法能看到了
+
+*****
+
+####  areklose  
+##### 3800#       发表于 2022-12-9 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">上次70抽没事发生。这次50抽歪了孔明。。囧。最近运气不行
+
+*****
+
+####  alucardcz  
+##### 3801#       发表于 2022-12-9 20:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58854843&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-12-9 20:34</a>
+
+破游现在也没啥别的好说了啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你好 萌新没有妖兰
+
