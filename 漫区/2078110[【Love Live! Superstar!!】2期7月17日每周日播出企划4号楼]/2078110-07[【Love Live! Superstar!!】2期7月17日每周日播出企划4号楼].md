@@ -13440,3 +13440,18 @@ a店没搜到啊，有链接吗<img src="https://static.saraba1st.com/image/smil
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 10127#       发表于 2022-12-9 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58844841&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-12-9 10:48</a>
+Nako写真初动数据出来了，2870。她这本有fc同时开售吗？不知道有没有像鲤鱼那本一样录个像大概就知道总卖几 ...</blockquote>
+b站上有特典信息汇总
+[https://www.bilibili.com/read/cv19029748](https://www.bilibili.com/read/cv19029748)
+看起来貌似没有fc那种销售渠道
+
+话说当时鲤鱼写真集fc我记得是有直签来着，也不太清楚直签的竞争力和其他特典相比怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
