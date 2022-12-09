@@ -828,3 +828,34 @@ https://mega</blockquote>
 
 用来看动起来的jk感觉还行吧，战斗手感本身马马虎虎，只是伤害系统太耿直没爽点
 
+
+
+*****
+
+####  iriyano  
+##### 154#       发表于 2022-12-9 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+虽然这个价钱确实不值吧我玩的还是挺开心的
+
+果然还是要美少女
+
+*****
+
+####  qfqczr  
+##### 155#       发表于 2022-12-9 21:37
+
+看完你楼，默默的把愿望单删了，买了个海王星vs闪乱神乐（
+
+*****
+
+####  415452356  
+##### 156#       发表于 2022-12-9 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58855793&amp;ptid=2084947" target="_blank">qfqczr 发表于 2022-12-9 21:37</a>
+看完你楼，默默的把愿望单删了，买了个海王星vs闪乱神乐（</blockquote>
+  你这是从这个坑跳到了另一个坑
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
