@@ -17066,3 +17066,22 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 
 有没扫帚真是两个游戏，扫帚和几个buff技能一开直接杀死游戏了
 
+
+
+*****
+
+####  永远的访客  
+##### 2966#       发表于 2022-12-9 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58839249&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-8 23:25</a>
+
+第七章开始后还有机会打战神等几个隐藏boss吗？</blockquote>
+理论上通关后都会给你个进度让你继续全世界胡作非为<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  smileboom  
+##### 2967#       发表于 2022-12-9 11:58
+
+说一个不知道是bug还是机制的问题，按↓盾防住攻击之后短时间内接↓+平A盾击的奥义应该是有无敌状态不会受伤的，但是好像异常状态会照样吃，很多时候就满血整了个麻痹流血中毒出来
+
