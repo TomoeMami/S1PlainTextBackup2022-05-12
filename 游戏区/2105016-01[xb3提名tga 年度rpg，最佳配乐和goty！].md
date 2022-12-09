@@ -1799,3 +1799,62 @@ Fhmk8gkWQAAW9so_format=jpg&amp;amp;name=small.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这下是不是实锤不如破晓了
 
+
+
+*****
+
+####  武内P  
+##### 203#       发表于 2022-12-9 12:12
+
+恐成最大输家
+
+*****
+
+####  wjbdasd  
+##### 204#       发表于 2022-12-9 12:13
+
+<blockquote>アヘ顔 发表于 2022-12-9 12:10
+这下是不是实锤不如破晓了</blockquote>
+不如老头环就等于不如破晓吗？难道顶着年度游戏拿子类？去年破晓在鸡群里都没拿到年度提名。
+
+*****
+
+####  shiko  
+##### 205#       发表于 2022-12-9 12:13
+
+6个年度提名里3个全程陪跑，一点都不想端水的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  狸狸狐  
+##### 206#       发表于 2022-12-9 12:14
+
+年度陪跑！
+
+*****
+
+####  sin.yugi  
+##### 207#       发表于 2022-12-9 12:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58846922&amp;ptid=2105016" target="_blank">アヘ顔 发表于 2022-12-8 23:10</a>
+这下是不是实锤不如破晓了</blockquote>
+破晓有<img src="https://static.saraba1st.com/image/smiley/carton2017/239.png" referrerpolicy="no-referrer">，xb3怎么比？
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
+*****
+
+####  sanxgh571  
+##### 208#       发表于 2022-12-9 12:16
+
+虽然陪跑，必秒破晓！
+
+*****
+
+####  ラブハナ  
+##### 209#       发表于 2022-12-9 12:17
+
+去tm的野鸡奖，呜呜呜，xb3最高！！！
+
