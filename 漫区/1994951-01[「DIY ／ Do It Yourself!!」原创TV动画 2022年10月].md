@@ -7329,3 +7329,44 @@ self：抱歉，刚在想hellshake bocchi的事
 <img src="https://p.sda1.dev/8/8e92e8c4b7e6b695e625eacd623ec760/119.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/2e583a3f71e236952ce967a47477b7a5/120.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 550#       发表于 2022-12-9 12:57
+
+ 本帖最后由 千恋万花 于 2022-12-9 12:59 编辑 
+
+【1分で分かる】DIYのはじめ方！　オリジナルTVアニメ「Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐」コラボ[https://youtu.be/4lt3B5AIfPA](https://youtu.be/4lt3B5AIfPA)
+
+======================
+
+オリジナルTVアニメ「Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐」とのコラボレーション。
+
+作中に実際に登場するシーンを参考に、”DIYをはじめてみたい！"という方にオススメの道具をご紹介致します！
+
+======================
+
+◆登場する道具
+
+EARTH MAN　S-Link 14.4V充電式2スピードドリル&amp;ドライバー
+[https://amzn.asia/d/aJEdUZ5](https://amzn.asia/d/aJEdUZ5)
+
+EARTH MAN　S-Link 14.4V充電式コーナーサンダー
+[https://amzn.asia/d/cn1vqIF](https://amzn.asia/d/cn1vqIF)
+
+◆オリジナルTVアニメ「Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐」について
+
+テレビ東京 ／ BS11 ／ AT-X ／ NST新潟総合テレビ、Amazonプライム他 配信チャンネルにて放映中！(TV放映：2022年10～12月)
+
+＊株式会社髙儀は、オフィシャルパートナーです。
+
+株式会社髙儀　公式HP
+[https://www.takagi-plc.co.jp/](https://www.takagi-plc.co.jp/)
+
+髙儀 &amp;#xD7; オリジナルTVアニメ「Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐」スペシャルコンテンツ[https://www.takagi-plc.co.jp/do_it_yourself](https://www.takagi-plc.co.jp/do_it_yourself)
+
+オリジナルTVアニメ「Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐」公式HP
+[https://diy-anime.com/](https://diy-anime.com/)
+
