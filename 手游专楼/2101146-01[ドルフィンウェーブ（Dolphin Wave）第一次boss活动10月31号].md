@@ -342,3 +342,12 @@ boss战继续追加高难
 
 触手怪boss，能不能期待一下奇怪的演出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  S1快乐星期五  
+##### 180#       发表于 2022-12-9 22:36
+
+虽然是开服时候的情报了但没看见人说，10级好感之后在コミュ解锁胸和臀的触摸反应，20级追加高好感（雌堕）语音，光**语音就有5种以上
+
