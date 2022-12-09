@@ -750,3 +750,14 @@ https://mega</blockquote>
 
 为了迎合评级？露个胖次真不算什么吧。
 
+
+
+*****
+
+####  天剑流星  
+##### 147#       发表于 2022-12-9 08:40
+
+我是觉得哪怕是为了啵嘴都会有更好的选择吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
