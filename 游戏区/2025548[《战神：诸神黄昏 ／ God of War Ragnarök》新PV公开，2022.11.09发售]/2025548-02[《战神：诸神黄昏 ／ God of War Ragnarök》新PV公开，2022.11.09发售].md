@@ -4949,3 +4949,13 @@ CD还是正常的，只是取消后摇以及（脱手类的）一部分持续动
 
 【TGA 2022】最佳叙事
 
+
+
+*****
+
+####  碎镜子  
+##### 1940#       发表于 2022-12-9 18:28
+
+精力国那个附魔只能加一段攻击效果嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉好鸡肋
+

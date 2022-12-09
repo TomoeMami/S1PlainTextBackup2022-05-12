@@ -3212,3 +3212,63 @@ Luxiem在B站爆火也没什么好否认的，田角陆今年和B站的合作力
 合着核心喵喵露预告个半天彩虹结果就进个vta还要再熬一年，属于是11年进宫当太监了 ...</blockquote>
 经验者大概率不需要一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  psnsic8nag  
+##### 17913#       发表于 2022-12-9 18:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58852745&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-9 18:09</a>
+
+魔怔前世粉或是前世大都是魔怔粉只要看看tag/留言/毕业回弹幕就知道的事</blockquote>
+一边是对Holo魔怔，一边是对猫雷魔怔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Nga和V吧要不结拜吧
+
+*****
+
+####  rzrbtk  
+##### 17914#       发表于 2022-12-9 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58852812&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-9 18:13</a>
+
+不是，为何要扯到B限跟中华背景。
+
+Luxiem在B站爆火也没什么好否认的，田角陆今年和B站的合作力度加 ...</blockquote>
+“田角陆看到猫雷的B站热度只会加速转正顺便B限”，
+
+谁先提到b站和b限，
+
+“田角陆今年和B站的合作力度加大”，
+
+EN开始B限与JP（几年前有黑黑皇女葵等每周b限）与转正程序只能猜测的vta有什么关系，还以为会员购卖谷了，不还是淘宝店开团，
+
+“谁热度高上谁也很是正常的”，
+
+为什么来的不是鸟吴是maria，
+
+“至于猫雷是否转正要看她自己，因为能力和知名度已经有了”，
+
+转正标准在哪？能力是指什么能力？猫雷用live2d跳过舞？知名度这一条件对一二期根本不存在你又怎么猜出来的？
+
+*****
+
+####  渡鸦骑士  
+##### 17915#       发表于 2022-12-9 18:26
+
+话说回来我在想一件事情，想确认一下。
+虹开这个vta没说学员要是出道的话一定要进虹吧？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  psnsic8nag  
+##### 17916#       发表于 2022-12-9 18:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58852981&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-12-9 18:26</a>
+
+话说回来我在想一件事情，想确认一下。
+
+虹开这个vta没说学员要是出道的话一定要进虹吧？ ...</blockquote>
+出道是进彩虹，但可以选择不出道离开
+
