@@ -8896,3 +8896,15 @@ wow,真的是无限池连发
 
 不继续氪金的话只能凑出一个保底，太难了。
 
+
+
+*****
+
+####  angelooo  
+##### 3805#       发表于 2022-12-9 23:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58854843&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-12-9 20:34</a>
+
+破游现在也没啥别的好说了啊</blockquote>
+是的，费拉不堪，我只能等着赤热偏位出手办了
+
