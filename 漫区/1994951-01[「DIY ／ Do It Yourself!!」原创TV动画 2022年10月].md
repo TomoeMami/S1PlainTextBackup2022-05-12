@@ -7313,3 +7313,19 @@ self：抱歉，刚在想hellshake bocchi的事
 从前几话总感觉有哪里不对劲，这话让我确信了。srf哪里什么是retard。。天天上课睡觉，考试年级前三，妥 ...</blockquote>
 你是会想会磕的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 549#       发表于 2022-12-9 09:56
+
+アニメディア 2023年1月号 Do It Yourself!! 設定資料集
+<img src="https://p.sda1.dev/8/c13ec550278ec75c0bd6afa5834d0ba6/114.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2333ec58e2ed33bb86e8b9b347a082af/115.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0af4fd5c22f1933b3be5cf35fef2b98e/116.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0aa6d0148f8b61f5e8466d79f3784885/117.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/7d048445bc07fa94a9a6bc9d683a8bf5/118.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/8e92e8c4b7e6b695e625eacd623ec760/119.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2e583a3f71e236952ce967a47477b7a5/120.jpg" referrerpolicy="no-referrer">
+
