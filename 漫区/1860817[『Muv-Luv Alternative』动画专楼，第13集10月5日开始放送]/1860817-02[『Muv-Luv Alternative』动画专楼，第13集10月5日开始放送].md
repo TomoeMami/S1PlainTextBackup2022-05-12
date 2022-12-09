@@ -1699,3 +1699,14 @@ muv里的两千次男<img src="https://static.saraba1st.com/image/smiley/face201
 这种时候突然开始无限刷兵，在游戏里也属实是最膈应人的一档操作了。原作有没有提到佐渡岛哪来那么多BETA的 ...</blockquote>
 大家以为BETA是生殖系统，结果是流水线，平常的数量只是因为够用了，这时候的情况就是本地拉总动员开始爆兵。
 
+
+
+*****
+
+####  亚尔古水手  
+##### 2143#       发表于 2022-12-9 13:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58832303&amp;ptid=1860817" target="_blank">piofg 发表于 2022-12-8 16:18</a>
+忘了哪个官方资料有提，佐渡岛按构造物高度分类是Phase 4巢穴，但按Beta数量来看和Phase 5巢穴相当 ...</blockquote>
+地下茎构造也是阶段5级别的
+
