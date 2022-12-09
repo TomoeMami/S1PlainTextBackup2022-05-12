@@ -1889,3 +1889,14 @@ Fhmk8gkWQAAW9so_format=jpg&amp;amp;name=small.jpg
 
 野鸡奖不拿也罢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nyantype  
+##### 213#       发表于 2022-12-9 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58846966&amp;ptid=2105016" target="_blank">wjbdasd 发表于 2022-12-9 12:13</a>
+不如老头环就等于不如破晓吗？难道顶着年度游戏拿子类？去年破晓在鸡群里都没拿到年度提名。 ...</blockquote>
+那位属于是刻舟求剑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
