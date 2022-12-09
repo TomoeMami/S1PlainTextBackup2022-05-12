@@ -1926,3 +1926,16 @@ Fhmk8gkWQAAW9so_format=jpg&amp;amp;name=small.jpg
 
 — from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  ZyLintheMax  
+##### 216#       发表于 2022-12-9 15:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58849472&amp;ptid=2105016" target="_blank">sin.yugi 发表于 2022-12-9 14:48</a>
+万一高桥gg来个都市六侠传呢？
+
+— from OnePlus GM1917, Android 11 of S1 Next Goose v2.5.2-pl ...</blockquote>
+那XB3耗似呗还能怎样
+
