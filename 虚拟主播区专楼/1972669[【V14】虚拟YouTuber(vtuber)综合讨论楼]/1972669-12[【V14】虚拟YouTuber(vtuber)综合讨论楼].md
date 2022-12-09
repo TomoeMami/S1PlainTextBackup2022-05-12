@@ -3075,3 +3075,33 @@ V87那群魔怔人感觉感觉还有可能把她给再冲毕业了，毕竟Vta�
 田角陆看到猫雷的B站热度只会加速转正顺便B限</blockquote>
 楼友这几天输出的一些“我完全不看但不妨我懂完了”的言论是有点逗乐的
 
+
+
+*****
+
+####  psnsic8nag  
+##### 17902#       发表于 2022-12-9 17:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851833&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-9 17:06</a>
+
+楼友这几天输出的一些“我完全不看但不妨我懂完了”的言论是有点逗乐的 ...</blockquote>
+Luxiem在B站爆火让田角陆尝到甜头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+未来会更多和B站有关系的新人
+
+*****
+
+####  rzrbtk  
+##### 17903#       发表于 2022-12-9 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851976&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-9 17:15</a>
+
+Luxiem在B站爆火让田角陆尝到甜头了
+
+未来会更多和B站有关系的新人</blockquote>
+你是田角肚子里的蛔虫？杏也有b站出身的是不是yagoo要重返b站了？
+
+根据鸟和郡的证言你虹现在b限真的有强制力？
+
+而这又跟一期九进八，人气王最后出道的转正顺序有什么关系呢？
+
