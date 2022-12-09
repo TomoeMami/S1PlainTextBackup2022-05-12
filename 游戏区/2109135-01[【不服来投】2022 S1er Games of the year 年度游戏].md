@@ -749,3 +749,14 @@ xb3被藏到最底下还是第二<img src="https://static.saraba1st.com/image/sm
 
 列表上的就玩了热门那些，其他没玩就不投了，弃权看乐子
 
+
+
+*****
+
+####  脸宽  
+##### 72#       发表于 2022-12-9 21:59
+
+法环，xb3，喷喷。其实是想把喷喷换战神，但是还没时间玩。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
