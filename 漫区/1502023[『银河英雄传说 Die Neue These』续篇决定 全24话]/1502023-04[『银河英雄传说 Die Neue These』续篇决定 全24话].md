@@ -125,3 +125,22 @@
 为什么网上的小说翻译会按照旧版动画把原作里挂坠里的头发改成照片啊？人家动画是改编作也就罢了，翻译好歹 ...</blockquote>
 银挂坠改成金的怎么不说
 
+
+
+*****
+
+####  charlespfan  
+##### 5568#       发表于 2022-12-10 02:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58859075&amp;ptid=1502023" target="_blank">卡奥斯·克斯拉 发表于 2022-12-10 01:22</a>
+
+银挂坠改成金的怎么不说</blockquote>
+之前看出来不同了，不过材质是银的金的好像问题不大
+
+*****
+
+####  aptx8285144  
+##### 5569#       发表于 2022-12-10 03:54
+
+击剑让我想起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
