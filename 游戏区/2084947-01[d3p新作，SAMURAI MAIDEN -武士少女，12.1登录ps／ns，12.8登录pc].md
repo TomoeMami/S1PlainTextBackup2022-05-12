@@ -761,3 +761,23 @@ https://mega</blockquote>
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  lpzhg  
+##### 148#       发表于 2022-12-9 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58841315&amp;ptid=2084947" target="_blank">山岚夜雨 发表于 2022-12-9 02:13</a>
+搜了一圈b站实况好多骂的这游戏这么不堪吗</blockquote>
+我看的UP主说是不推荐给任何人
+
+*****
+
+####  lpzhg  
+##### 149#       发表于 2022-12-9 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58841315&amp;ptid=2084947" target="_blank">山岚夜雨 发表于 2022-12-9 02:13</a>
+搜了一圈b站实况好多骂的这游戏这么不堪吗</blockquote>
+我看的UP主说是不推荐给任何人
+
