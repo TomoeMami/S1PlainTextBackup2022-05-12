@@ -7370,3 +7370,37 @@ EARTH MAN　S-Link 14.4V充電式コーナーサンダー
 オリジナルTVアニメ「Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐」公式HP
 [https://diy-anime.com/](https://diy-anime.com/)
 
+
+
+*****
+
+####  伊地知星歌  
+##### 551#       发表于 2022-12-9 13:39
+
+self是真的很会钓
+
+<img src="https://img.saraba1st.com/forum/202212/09/133901obanbbgbxnpygb9d.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (175.94 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 13:39 上传
+
+*****
+
+####  千恋万花  
+##### 552#       发表于 2022-12-9 13:39
+
+ 本帖最后由 千恋万花 于 2022-12-9 13:41 编辑 
+
+由于反响超出预期，「Do It Yourself!!」Blu-ray 第 1 卷数量限定特装版决定增产，为准备所需木材和各种材料，发售日从原定的 2022 年 12 月 23 日延期至 2023 年 2 月 24 日。
+
+※通常版不受影响，还是 2022 年 12 月 23 日发售。 <blockquote>【Blu－ray発売延期のお知らせとお詫び】
+
+「Do It Yourself!! ‐どぅー・いっと・ゆあせるふ‐ 1 数量限定特装版」につきまして発売延期のお知らせがございます。
+
+詳細は以下をご覧ください。
+[https://diy-anime.com/news/detail.php?id=1104666](https://diy-anime.com/news/detail.php?id=1104666)</blockquote>
+<img src="https://p.sda1.dev/8/21de7bbf0ec26d49389a61b04ae92b8c/tabinidetaina-1601073984422150144-img1.jpg" referrerpolicy="no-referrer">
+

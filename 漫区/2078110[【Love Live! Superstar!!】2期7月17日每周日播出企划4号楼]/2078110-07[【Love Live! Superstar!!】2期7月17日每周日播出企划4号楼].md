@@ -13483,3 +13483,17 @@ b站上有特典信息汇总
 
 171.87 KB, 下载次数: 0
 
+
+
+*****
+
+####  靡宜  
+##### 10129#       发表于 2022-12-9 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58844904&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-12-9 10:50</a>
+
+@靡宜
+
+a店没搜到啊，有链接吗</blockquote>
+[「【预约】Liyuu Calendar 2023 台历 中国版 附animate特典](https://m.tb.cn/h.U8ofNEX?tk=eZXJdWpZKIV CZ3457 )<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+

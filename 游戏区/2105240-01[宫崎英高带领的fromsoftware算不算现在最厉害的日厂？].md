@@ -739,3 +739,29 @@ tga是野鸡奖，但观众体量大，我喜欢的游戏如果得奖了能够�
 
 笑死，吹卡表的小丑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  憧憬鲨  
+##### 84#       发表于 2022-12-9 13:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">AC新作来了
+
+*****
+
+####  Eric_方歌阙  
+##### 85#       发表于 2022-12-9 13:37
+
+钓鱼贴也挖啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，还能回收利用是咋的
+
+*****
+
+####  asergh0630rx  
+##### 86#       发表于 2022-12-9 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58462507&amp;ptid=2105240" target="_blank">はちたや 发表于 2022-11-16 15:42</a>
+
+法环是新ip，这种话说出来还要脸吗</blockquote>
+为什么不算新ip？今年arkane的死亡循环算不算新ip？
+
