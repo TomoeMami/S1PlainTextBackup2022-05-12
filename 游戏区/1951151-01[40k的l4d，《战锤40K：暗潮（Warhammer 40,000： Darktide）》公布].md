@@ -958,3 +958,12 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 —— 来自 S1Fun</blockquote>
 那个刷刷的40k战锤新出了个dlc就是战斗修女好像
 
+
+
+*****
+
+####  古代人皮克  
+##### 199#       发表于 2022-12-9 22:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这更新，真的就是打肿脸充胖子第一人
+
