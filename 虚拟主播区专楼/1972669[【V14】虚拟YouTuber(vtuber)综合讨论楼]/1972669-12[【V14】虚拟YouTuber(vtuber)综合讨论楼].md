@@ -2951,3 +2951,21 @@ syl，话说神椿这几个是月下七子？</blockquote>
 
 vta招游戏势不让打游戏憋一年是否有些抽象，打枪这些可以反复一直播的游戏露两手也不会怎么样吧
 
+
+
+*****
+
+####  rzrbtk  
+##### 17889#       发表于 2022-12-9 15:44
+
+疑似猫雷？虹要坐拥两个v吧公主了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  poipanchao  
+##### 17890#       发表于 2022-12-9 15:45
+
+ 本帖最后由 poipanchao 于 2022-12-9 15:49 编辑 
+
+以后bilibili就是虹杏指定青训了吧
+
