@@ -4309,3 +4309,21 @@ SAO曲来了
 
 [https://youtu.be/aZV2fF_hwwk](https://youtu.be/aZV2fF_hwwk)
 
+
+
+*****
+
+####  rs5621  
+##### 3404#       发表于 2022-12-9 13:02
+
+居然是早上的直播，起的好早
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3405#         楼主| 发表于 2022-12-9 13:08
+
+今天晚上到底是什么很奇怪,昨天晚上也没说,阿心下午还有直播,
+
