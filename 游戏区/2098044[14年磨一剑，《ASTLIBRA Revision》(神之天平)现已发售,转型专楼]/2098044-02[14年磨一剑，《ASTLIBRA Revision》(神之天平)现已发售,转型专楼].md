@@ -17110,3 +17110,15 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 说一个不知道是bug还是机制的问题，按↓盾防住攻击之后短时间内接↓+平A盾击的奥义应该是有无敌状态不会受 ...</blockquote>
 后面专门有个嘉隆技能是发动凭依期间不吃异常
 
+
+
+*****
+
+####  urvark  
+##### 2970#       发表于 2022-12-9 22:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58846620&amp;ptid=2098044" target="_blank">smileboom 发表于 2022-12-9 11:58</a>
+
+说一个不知道是bug还是机制的问题，按↓盾防住攻击之后短时间内接↓+平A盾击的奥义应该是有无敌状态不会受 ...</blockquote>
+请搭配神医使用
+

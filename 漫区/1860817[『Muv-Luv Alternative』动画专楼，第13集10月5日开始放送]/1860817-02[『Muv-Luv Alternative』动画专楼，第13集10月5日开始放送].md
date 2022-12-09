@@ -1735,3 +1735,24 @@ Blu-ray BOX III,IV特典
 
 这奶黄包做的不错，有丝巾和神族母舰大炮那味道了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yone0000  
+##### 2146#       发表于 2022-12-9 22:07
+
+最上这个味太冲了，还以为是舰C田中上身了
+
+武爷立体机动躲预备照射太夸张了，把光线级都看懵了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+管人回是要拖到下集了吗
+
+<img src="https://img.saraba1st.com/forum/202212/09/220628xwho5h5555qooc74.png" referrerpolicy="no-referrer">
+
+<strong>8_L%{IJWX56DCI0I5PIVAT8.png</strong> (60.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 22:06 上传
+
