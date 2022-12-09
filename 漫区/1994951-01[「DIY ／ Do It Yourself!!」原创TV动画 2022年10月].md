@@ -7404,3 +7404,13 @@ self是真的很会钓
 [https://diy-anime.com/news/detail.php?id=1104666](https://diy-anime.com/news/detail.php?id=1104666)</blockquote>
 <img src="https://p.sda1.dev/8/21de7bbf0ec26d49389a61b04ae92b8c/tabinidetaina-1601073984422150144-img1.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 553#       发表于 2022-12-9 17:00
+
+アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』主題歌CD発売記念インタビュー：稲垣好さん、市ノ瀬加那さん、佐倉綾音さん、和氣あず未さん、高橋花林さん、大森日雅さん：
+[https://www.animatetimes.com/news/details.php?id=1669969597](https://www.animatetimes.com/news/details.php?id=1669969597)
+
