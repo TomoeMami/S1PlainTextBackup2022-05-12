@@ -8908,3 +8908,17 @@ wow,真的是无限池连发
 破游现在也没啥别的好说了啊</blockquote>
 是的，费拉不堪，我只能等着赤热偏位出手办了
 
+
+
+*****
+
+####  森兰丸  
+##### 3806#       发表于 2022-12-10 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58857515&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-12-9 23:40</a>
+
+是的，费拉不堪，我只能等着赤热偏位出手办了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">与其弄3个简易灵衣还不如直接把1破或者2破和3破的灵衣都给绑定了
+
+运营再蠢也应该了解一般情况下根本不可能会上3破的妖兰吧
+
