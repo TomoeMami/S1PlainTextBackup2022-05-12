@@ -13497,3 +13497,16 @@ b站上有特典信息汇总
 a店没搜到啊，有链接吗</blockquote>
 [「【预约】Liyuu Calendar 2023 台历 中国版 附animate特典](https://m.tb.cn/h.U8ofNEX?tk=eZXJdWpZKIV CZ3457 )<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10130#       发表于 2022-12-9 14:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58845579&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-12-9 11:19</a>
+b站上有特典信息汇总
+https://www.bilibili.com/read/cv19029748
+看起来貌似没有fc那种销售渠道</blockquote>
+当然是直签吸引力大啊，毕竟吸了一半的销量
+
