@@ -3168,3 +3168,24 @@ EN五期没一个会说中文的全男阵容爆火，田角陆未卜先知EN一�
 我现在只想看你虹打算怎么处理这个情况。
 不管是养蛊还是锻炼，亦或者培养核心粉。现在的情况对vta环境的冲击都是毁灭性的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  OldGlory  
+##### 17909#       发表于 2022-12-9 18:08
+
+合着核心喵喵露预告个半天彩虹结果就进个vta还要再熬一年，属于是11年进宫当太监了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 17910#       发表于 2022-12-9 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58852277&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-9 17:34</a>
+
+看到有魔怔前世粉冲猫雷了，和当初私一样
+
+只是这次从Nga变成V吧</blockquote>
+魔怔前世粉或是前世大都是魔怔粉只要看看tag/留言/毕业回弹幕就知道的事
+
