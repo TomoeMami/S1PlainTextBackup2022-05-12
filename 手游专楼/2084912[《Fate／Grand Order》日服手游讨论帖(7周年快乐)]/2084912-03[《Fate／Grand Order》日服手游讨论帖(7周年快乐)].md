@@ -8874,3 +8874,16 @@ wow,真的是无限池连发
 
 妖兰的画师画的周边真好看，然而没有皮肤实装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3803#       发表于 2022-12-9 21:06
+
+<blockquote>森兰丸 发表于 2022-12-9 20:34
+破游现在也没啥别的好说了啊
+
+</blockquote>
+是的 最弱智的灵衣
+
