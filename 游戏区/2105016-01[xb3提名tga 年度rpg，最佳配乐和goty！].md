@@ -1858,3 +1858,14 @@ Fhmk8gkWQAAW9so_format=jpg&amp;amp;name=small.jpg
 
 去tm的野鸡奖，呜呜呜，xb3最高！！！
 
+
+
+*****
+
+####  大哀之君  
+##### 210#       发表于 2022-12-9 12:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58846966&amp;ptid=2105016" target="_blank">wjbdasd 发表于 2022-12-9 12:13</a>
+不如老头环就等于不如破晓吗？难道顶着年度游戏拿子类？去年破晓在鸡群里都没拿到年度提名。 ...</blockquote>
+懂了，XB3原来是硬实力冠军
+
