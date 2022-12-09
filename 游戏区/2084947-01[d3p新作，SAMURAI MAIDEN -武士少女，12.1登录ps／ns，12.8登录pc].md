@@ -781,3 +781,17 @@ https://mega</blockquote>
 搜了一圈b站实况好多骂的这游戏这么不堪吗</blockquote>
 我看的UP主说是不推荐给任何人
 
+
+
+*****
+
+####  病態極端  
+##### 150#       发表于 2022-12-9 10:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58842338&amp;ptid=2084947" target="_blank">天剑流星 发表于 2022-12-9 08:40</a>
+
+我是觉得哪怕是为了啵嘴都会有更好的选择吧
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next- ...</blockquote>
+來點推薦
+
