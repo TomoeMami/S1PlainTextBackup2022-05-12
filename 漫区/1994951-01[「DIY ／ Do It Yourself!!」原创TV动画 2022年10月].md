@@ -7414,3 +7414,14 @@ self是真的很会钓
 アニメ『Do It Yourself!!ｰどぅー・いっと・ゆあせるふｰ』主題歌CD発売記念インタビュー：稲垣好さん、市ノ瀬加那さん、佐倉綾音さん、和氣あず未さん、高橋花林さん、大森日雅さん：
 [https://www.animatetimes.com/news/details.php?id=1669969597](https://www.animatetimes.com/news/details.php?id=1669969597)
 
+
+
+*****
+
+####  RainbowSealife  
+##### 554#       发表于 2022-12-9 18:44
+
+<img src="https://tva1.sinaimg.cn/large/beb44592ly1h8xqx0goo5g20ev08bkjl.gif" referrerpolicy="no-referrer">
+
+self：听话，给我戳戳！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

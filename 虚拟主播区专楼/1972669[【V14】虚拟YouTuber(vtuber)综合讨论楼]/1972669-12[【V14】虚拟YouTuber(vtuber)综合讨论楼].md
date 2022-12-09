@@ -3307,3 +3307,22 @@ EN开始B限与JP（几年前有黑黑皇女葵等每周b限）与转正程序�
 Nga和V吧要不结拜吧</blockquote>
 政治入脑网右和相处方式只有虚拟扯辫子贴吧人，一个都被玩成meme了，很难认同
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17920#       发表于 2022-12-9 18:41
+
+ 本帖最后由 渡鸦骑士 于 2022-12-9 18:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58853073&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-12-9 18:33</a>
+那么学员要是打算在别处出道的话，是可以要求vta频道删除自己的直播录像吧
+我不禁联想起了前几天的 ...</blockquote>
+而且，如果vta的学员不光能彩虹出道，的话。
+vta的价值，应该也会得到提升吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+另外，虹杏联合宣言乍一看方便了两箱之间的联动。但是对于两箱间关系好的主播来说，不是必要的。
+但是对于一个如果即将以这样的身份出道的主播来说，必要性则极高地提升了。
+
+以上就是我的思路了
+
