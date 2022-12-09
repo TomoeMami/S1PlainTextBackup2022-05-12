@@ -1900,3 +1900,16 @@ Fhmk8gkWQAAW9so_format=jpg&amp;amp;name=small.jpg
 不如老头环就等于不如破晓吗？难道顶着年度游戏拿子类？去年破晓在鸡群里都没拿到年度提名。 ...</blockquote>
 那位属于是刻舟求剑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ZyLintheMax  
+##### 214#       发表于 2022-12-9 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58847030&amp;ptid=2105016" target="_blank">sin.yugi 发表于 2022-12-9 12:15</a>
+破晓有，xb3怎么比？
+
+— from OnePlus GM1917, Android 11 of S1 Next Goose v2.5.2-play ...</blockquote>
+等DLC4真<img src="https://static.saraba1st.com/image/smiley/carton2017/239.png" referrerpolicy="no-referrer">出来再比
+
