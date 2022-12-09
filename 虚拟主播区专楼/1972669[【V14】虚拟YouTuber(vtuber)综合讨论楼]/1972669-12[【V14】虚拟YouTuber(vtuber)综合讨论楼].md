@@ -3009,3 +3009,22 @@ vta招游戏势不让打游戏憋一年是否有些抽象，打枪这些可以�
 
 去了彩虹，然后再发配b站b限的话，那可太具有戏剧性了。保底也要熬一年吧。
 
+
+
+*****
+
+####  rzrbtk  
+##### 17896#       发表于 2022-12-9 16:22
+
+ 本帖最后由 rzrbtk 于 2022-12-9 16:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851053&amp;ptid=1972669" target="_blank">winda 发表于 2022-12-9 16:19</a>
+
+三期这帮经验者也没藏啊，以教学为名白嫖直播是吧
+
+哦对，扩招人员练课都没得上，高效压榨 ...</blockquote>
+有一说一课是要上的，二期应该是比较早就见过三期了，日下部说之前听到隔壁三期在练习唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+再附一个练习生日常，日下部约来丹日从晚十一点自主练舞练到早六点，跑去唯一开店的重油中华店吃饭然后去桑拿房昏睡，醒来再跑去上vta的课，
+
+不知是此女脑子不好还是
+
