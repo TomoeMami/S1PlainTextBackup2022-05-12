@@ -13415,3 +13415,28 @@ animate明天晚上要上鲤鱼的中国版日历，订一套去<img src="https:
 
 a店十号晚八点开300-40。日历今晚八点开售，总库存貌似400，有鸡肺蹭到吗🤥
 
+
+
+*****
+
+####  cat1230  
+##### 10125#       发表于 2022-12-9 10:48
+
+Nako写真初动数据出来了，2870。她这本有fc同时开售吗？不知道有没有像鲤鱼那本一样录个像大概就知道总卖几本了。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cat1230  
+##### 10126#       发表于 2022-12-9 10:50
+
+<blockquote>引用第10123楼靡宜于2022-12-09 10:38发表的  :
+
+a店十号晚八点开300-40。日历今晚八点开售，总库存貌似400，有鸡肺蹭到吗🤥</blockquote>
+@靡宜
+
+a店没搜到啊，有链接吗<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
