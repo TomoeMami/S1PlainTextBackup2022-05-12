@@ -1,0 +1,667 @@
+
+
+*****
+
+####  winggg  
+##### 1#       楼主       发表于 2022-12-9 16:23
+
+var max_obj = 3;
+
+var p = 0;
+
+<input name="formhash" type="hidden" value="66e5028a"/)
+
+<strong>多选投票</strong>: ( 最多可选 3 项 ) , 投票后结果可见, 共有 578 人参与投票
+
+距结束还有:
+
+<strong>
+
+89 天19 小时37 分钟
+
+</strong>
+
+1.  A Memoir Blue 蓝色回忆录
+
+2.  A Plague Tale: Requiem 瘟疫传说：安魂曲
+
+3.  As Dusk Falls 暮色降临
+
+4.  Bayonetta 3 蓓优妮塔3/猎天使魔女3
+
+5.  Call of Duty: Modern Warfare II 2022 使命召唤：现代战争II
+
+6.  Citizen Sleeper 公民沉睡者
+
+7.  Cult of the Lamb 进击羔羊传说
+
+8.  DNF Duel 地下城与勇士：决斗
+
+9.  Elden Ring 艾尔登法环
+
+10.  Endling: Extinction is Forever 终端：灭绝永恒
+
+11.  Fire Emblem Warriors: Three Hopes 火焰之纹章无双 风花雪月
+
+12.  God of War Ragnarök 战神：诸神黄昏
+
+13.  Gran Turismo 7 GT赛车7/跑车浪漫旅7
+
+14.  Horizon Forbidden West 地平线 西之绝境
+
+15.  Immortality 传世不朽
+
+16.  Kirby and the Forgotten Land 星之卡比 探索发现
+
+17.  Lego Star Wars: The Skywalker Saga 乐高星球大战：天行者传奇
+
+18.  Live A Live 时空勇士
+
+19.  Mario + Rabbids Sparks of Hope 马力欧+疯狂兔子王国之战
+
+20.  Metal: Hellsinger 重金属：地狱歌手
+
+21.  MultiVersus 华纳多重宇宙大乱斗
+
+22.  Neon White 霓虹白客
+
+23.  Norco 诺科
+
+24.  OlliOlli World 奥力奥力世界/欧利欧利世界
+
+25.  Overwatch 2 守望先锋2归来/斗阵特攻2
+
+26.  Pokémon Legends Arceus 宝可梦传说 阿尔宙斯
+
+27.  Pokémon Scarlet and Violet 宝可梦 朱／紫
+
+28.  Return to Monkey Island 重返猴岛
+
+29.  Scorn 蔑视
+
+30.  Sifu 师父
+
+31.  Sonic Frontiers 索尼克 未知边境
+
+32.  Soul Hackers 2 灵魂黑客2
+
+33.  Splatoon 3 斯普拉遁3/喷射战士3
+
+34.  Stray 浪猫
+
+35.  Tactics Ogre: Reborn 皇家骑士团2：重生
+
+36.  Teenage Mutant Ninja Turtles: Shredder's Revenge 忍者龟：许瑞德的复仇
+
+37.  The King of Fighters XV 拳皇XV
+
+38.  The Last of Us Part I 最后生还者 第I章
+
+39.  The Quarry 猎逃惊魂/采石场惊魂
+
+40.  TLoH: CRIMSON SiN 英雄传说 黎之轨迹II 绯红原罪
+
+41.  Total War: Warhammer III 全面战争：战锤3
+
+42.  Triangle Strategy 三角战略
+
+43.  Two Point Campus 双点校园
+
+44.  Tunic
+
+45.  Vampire Survivors 吸血鬼幸存者
+
+46.  Victoria 3 维多利亚3
+
+47.  Xenoblade Chronicles 3 异度神剑3
+
+48.  其他（希望回帖补充）
+
+49.  弃权看结果
+
+ 
+提交
+
+ 本帖最后由 winggg 于 2022-12-9 16:30 编辑 
+
+按理说应该作单选贴，
+
+但是为了提高不太知名而部分坛友会很喜欢的沧海遗珠小众游戏的热度，最后设定为每人最多投3项。
+
+*****
+
+####  winggg  
+##### 8#         楼主| 发表于 2022-12-9 16:35
+
+ 本帖最后由 winggg 于 2022-12-9 16:54 编辑 
+
+<strong>遗珠作品网友提名</strong>（本楼置顶，会在每日凌晨更新）
+
+因为主楼最多选3项，为公平起见，同一人提名超过3个游戏，会视为提名无效
+
+3人提名
+<strong>神之天平</strong>
+
+1人提名
+<strong>主播女孩重度依赖
+
+地球不屈</strong>
+
+*****
+
+####  lwlgy  
+##### 2#       发表于 2022-12-9 16:26
+
+神之天平呢？
+
+*****
+
+####  蒼銀  
+##### 3#       发表于 2022-12-9 16:28
+
+主播女孩重度依赖呢
+
+*****
+
+####  萼绿华  
+##### 4#       发表于 2022-12-9 16:29
+
+ 本帖最后由 萼绿华 于 2022-12-9 16:31 编辑 
+
+地球不屈，这个没有选项可以理解，毕竟细分市场小众作品
+
+不过选项里应该加个同期面世的太吾绘卷，虽然我没玩但是看在泥潭热度还挺高的
+
+*****
+
+####  yukinosarai  
+##### 5#       发表于 2022-12-9 16:30
+
+老头环在泥潭也是实至名归<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  省心  
+##### 6#       发表于 2022-12-9 16:32
+
+确实，少了个神之天平
+
+*****
+
+####  电磁炮233  
+##### 7#       发表于 2022-12-9 16:34
+
+ 本帖最后由 电磁炮233 于 2022-12-9 17:13 编辑 
+
+有天行者传奇、采石场惊魂、灵魂骇客2
+
+没有神之天平、tinykin、pentiment、熵：零2？
+
+苏菲2和黑白莫比乌斯都没有
+LAL就算了，皇骑重生？？？
+
+*****
+
+####  yangqizhi45  
+##### 9#       发表于 2022-12-9 16:38
+
+我都忘了sifu是今年的了，战神5和环这几个大游戏打到后面都挺不满的，那只能投sifu了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jjy376195855  
+##### 10#       发表于 2022-12-9 16:44
+
+老头环秒杀所有
+
+就算是洗版也是老头环第一，泥潭的谭游都比不上它一半
+
+*****
+
+####  winggg  
+##### 11#         楼主| 发表于 2022-12-9 16:46
+
+ 本帖最后由 winggg 于 2022-12-9 16:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851195&amp;ptid=2109135" target="_blank">萼绿华 发表于 2022-12-9 16:29</a>
+
+地球不屈，这个没有选项可以理解，毕竟细分市场小众作品
+
+不过选项里应该加个同期面世的太吾绘卷，虽然我没 ...</blockquote>
+太吾绘卷因为已ea 3-4年了，虽然今年有大更新，但算不算是2022作品，我得再想想。我倾向于不列入。
+
+大家其他的提名作品已列在置顶楼层，每日更新票数。
+
+*****
+
+####  percy1234  
+##### 12#       发表于 2022-12-9 16:47
+
+年初的环和sifu，年中的 ，年尾的战神，再加上一大堆别的，今年还是挺满足的
+
+*****
+
+####  霸王向小受  
+##### 13#       发表于 2022-12-9 16:47
+
+战神老头环这对天残地缺先一脚踢开，还得是我XB3
+
+*****
+
+####  恋妖壶  
+##### 14#       发表于 2022-12-9 16:48
+
+找了半天竟然真的没有神之天平，LZ感觉收这么全偏偏遗漏个最重要的，还是不投了
+
+*****
+
+####  destroyworlder  
+##### 15#       发表于 2022-12-9 16:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851272&amp;ptid=2109135" target="_blank">电磁炮233 发表于 2022-12-9 16:34</a>
+
+有天行者传奇、采石场惊魂、灵魂骇客2
+
+没有神之天平、tinykin、pentiment、熵：零2？
+
+苏菲2和黑白莫比乌斯 ...</blockquote>
+你这里有两个是烂作也要放进去吗？（指灵魂和黑白）<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winggg  
+##### 16#         楼主| 发表于 2022-12-9 16:52
+
+ 本帖最后由 winggg 于 2022-12-9 16:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851512&amp;ptid=2109135" target="_blank">恋妖壶 发表于 2022-12-9 16:48</a>
+
+找了半天竟然真的没有神之天平，LZ感觉收这么全偏偏遗漏个最重要的，还是不投了 ...</blockquote>
+挂一漏万。抱歉。
+
+本身没关注这游戏。我发帖之前拟了个草稿，再从TGA名单和metacritic评分两边交叉比对挑选，来列出游戏名单。神之天平好像真是刚巧两边都没有收入，因此就遗漏了。
+
+不过各位提名的作品我已列在置顶楼层，每日更新票数，聊作补救。
+
+*****
+
+####  电磁炮233  
+##### 17#       发表于 2022-12-9 16:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851536&amp;ptid=2109135" target="_blank">destroyworlder 发表于 2022-12-9 16:49</a>
+你这里有两个是烂作也要放进去吗？（指灵魂和黑白）</blockquote>
+黑白莫比乌斯再烂应该也比那三个在楼主名单里的强
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  destroyworlder  
+##### 18#       发表于 2022-12-9 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851607&amp;ptid=2109135" target="_blank">电磁炮233 发表于 2022-12-9 16:54</a>
+
+黑白莫比乌斯再烂应该也比那三个在楼主名单里的强
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Troywest  
+##### 19#       发表于 2022-12-9 16:57
+
+那当然得是陪伴我度过今年3个月隔离封控时光的怪物猎人gu啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  farland  
+##### 20#       发表于 2022-12-9 16:58
+
+投了法环和师父，一个综合最好，一个特色最鲜明。
+
+*****
+
+####  destroyworlder  
+##### 21#       发表于 2022-12-9 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851675&amp;ptid=2109135" target="_blank">Troywest 发表于 2022-12-9 16:57</a>
+
+那当然得是陪伴我度过今年3个月隔离封控时光的怪物猎人gu啦
+
+—— 来自 samsung SM-N ...</blockquote>
+老游戏不算，要今年发售的应该
+
+*****
+
+####  ACGN若翼  
+##### 22#       发表于 2022-12-9 17:08
+
+xb3硬实力冠军
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wgoenitz  
+##### 23#       发表于 2022-12-9 17:11
+
+战神甚至不如宝可梦朱紫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 任坛无误
+
+*****
+
+####  酒巻真希菜  
+##### 24#       发表于 2022-12-9 17:13
+
+建议加一个AI梦境档案2涅槃肇始
+
+虽然素质一般但很有乐子能开心几天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gxy  
+##### 25#       发表于 2022-12-9 17:14
+
+法环 tunic 神之天平
+
+*****
+
+####  JudgmentEye  
+##### 26#       发表于 2022-12-9 17:15
+
+有灵魂黑客2没星海6北妹3？虽然都挺烂
+
+*****
+
+####  TTAA  
+##### 27#       发表于 2022-12-9 17:18
+
+没有最终幻想起源？
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 电磁炮233| + 1||
+
+查看全部评分
+
+*****
+
+####  framita  
+##### 28#       发表于 2022-12-9 17:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851951&amp;ptid=2109135" target="_blank">酒巻真希菜 发表于 2022-12-9 17:13</a>
+建议加一个AI梦境档案2涅槃肇始
+
+虽然素质一般但很有乐子能开心几天</blockquote>
+新男主线体验很不错。进瑞希线后体验立马变差，顺带这个新男主也变得跟弱智一样。而且强行让每个人都走一遍梦境，有时真感觉是在狂拖时间。后半我挺失望的
+
+*****
+
+####  苏西踩到我了  
+##### 29#       发表于 2022-12-9 17:18
+
+没必要，老头环就是无可争议的goty
+
+倒是可以搞个德不配位的票选，我要投tunic，玩了四小时后退款失败，给客服写邮件骂了一通游戏后成功退款
+
+*****
+
+####  冰寒之月  
+##### 30#       发表于 2022-12-9 17:20
+
+可惜xb3结尾拉垮了 没拉我就选xb3了
+
+
+
+*****
+
+####  左梓喵右受兔  
+##### 31#       发表于 2022-12-9 17:21
+
+只投了俩 环和锤3 
+
+因为今年的新游戏只玩了这两个<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布里兰特  
+##### 32#       发表于 2022-12-9 17:28
+
+老头环是是无可置疑的第一，但我的私心是神之天平
+
+*****
+
+####  langleizhi  
+##### 33#       发表于 2022-12-9 17:34
+
+为什么不加炒冷饭的P5R多平台<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  threefa  
+##### 34#       发表于 2022-12-9 17:40
+
+神之天平 不过这种汇总比直接投票可吃亏太多了
+
+*****
+
+####  蕾咪莉亚  
+##### 35#       发表于 2022-12-9 17:45
+
+碾压局没什么好说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  h20020901  
+##### 36#       发表于 2022-12-9 17:47
+
+有两分游戏GT7没有F1 22？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nervpp  
+##### 37#       发表于 2022-12-9 17:47
+
+非常不客观的投了xb3，确实很多都比他好，但是我就是喜欢这一口。。。。。
+
+*****
+
+####  huoguoshan23  
+##### 38#       发表于 2022-12-9 17:49
+
+完了，泥潭也是野鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zgh406624  
+##### 39#       发表于 2022-12-9 17:51
+
+投了xb3和法环。虽然不太喜欢法环但硬实力还是有的。至于xb3就是各方面都很喜欢了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Booorunestud  
+##### 40#       发表于 2022-12-9 17:51
+
+ff起源确实是今年打得最爽的新游戏
+
+*****
+
+####  bbbuster  
+##### 41#       发表于 2022-12-9 17:53
+
+审判之逝呢！！！！！！！
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  佐伯香織  
+##### 42#       发表于 2022-12-9 17:55
+
+投票内容可以修改吧
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  斯特拉斯堡的雪  
+##### 43#       发表于 2022-12-9 17:55
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">无可置疑的环，凭借私心投了卡比，但最喜欢的卡比可能还是三重豪华
+
+*****
+
+####  hu794  
+##### 44#       发表于 2022-12-9 18:02
+
+老头环肯定是今年最佳，其他的话，两个宝可梦，xb3，贝姐3，卡比，sp3，吸血鬼幸存者也都不错。
+
+*****
+
+####  平昭·南宫司卿  
+##### 45#       发表于 2022-12-9 18:02
+
+ 本帖最后由 平昭·南宫司卿 于 2022-12-9 18:05 编辑 
+
+个人年度最佳毫无疑问，神之天平，秒杀这里面一堆臭鱼烂虾
+
+*****
+
+####  红魔馆的糖  
+##### 46#       发表于 2022-12-9 18:11
+
+战神投的还没**3多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qwwsong  
+##### 47#       发表于 2022-12-9 18:17
+
+今年没有一个能让我感觉到卧槽就是它的游戏
+
+*****
+
+####  saber2054  
+##### 48#       发表于 2022-12-9 18:24
+
+提名一个ffo和星海6
+
+*****
+
+####  clears  
+##### 49#       发表于 2022-12-9 18:27
+
+今年到目前我玩过的今年出的游戏有环、卡比、TUNIC、XB3、神之天平，客观说这几个游戏都很不错，但是GOTY并且个人最喜欢的那还是环。
+
+*****
+
+####  Tissuesea  
+##### 50#       发表于 2022-12-9 18:28
+
+今年玩的神之天平和皇骑都对于我的笔记本电脑非常友好
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  back57992  
+##### 51#       发表于 2022-12-9 18:32
+
+老头环别说在今年，17年往后感觉每年都是大概率第一吧。
+
+*****
+
+####  rayaxu  
+##### 52#       发表于 2022-12-9 19:25
+
+自从我晕3D之后一切3A都是臭鱼烂虾<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  依存香炉  
+##### 53#       发表于 2022-12-9 19:26
+
+xb3这么多票是何居心<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shiko  
+##### 54#       发表于 2022-12-9 19:32
+
+xb3被藏到最底下还是第二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Arisita  
+##### 55#       发表于 2022-12-9 19:35
+
+坛友对xb3还是太仁慈了
+
+*****
+
+####  Waldeinsamkeit  
+##### 56#       发表于 2022-12-9 19:40
+
+楼主按游戏英文首字母排序（这已经很公平了吧）而已，谈不上藏不藏吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+那不然呢，按拼音字母排序？按发售时间排序？按销量排序？按MC打分排序？
+
+除非按照个人喜好安排选项，不然根据以上列出的所有排序方法，XB3都排不到第一去吧？
+
+*****
+
+####  double8  
+##### 57#       发表于 2022-12-9 19:48
+
+老头环秒杀所有，所以我选神之天平<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">真有选项我肯定选后者，老头环后面差点玩不动，神之天平这50小时我刷的太满足了
+
+*****
+
+####  ky怪  
+##### 58#       发表于 2022-12-9 19:52
+
+到现在还不加神之天平你这投票已经没意义了
+
+*****
+
+####  Guildenstern  
+##### 59#       发表于 2022-12-9 19:54
+
+投了环，重返猴岛，Norco，希望加个Citizen Sleeper
+
+*****
+
+####  415452356  
+##### 60#       发表于 2022-12-9 20:13
+
+  本来我的年度游戏应该是ffo的，奈何se给的钱少让整个游戏的规模实在是寒酸，最后我觉得还是诸神黄昏、神之天平、吸血鬼幸存者最好，这两年商业游戏就这样了，明年上半年倒是无论是数量还是预计的质量我猜都能吊打21、22年
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+*****
+
+####  u2deack  
+##### 61#       发表于 2022-12-9 20:47
+
+今年好像真的没有最喜欢的游戏 xb3虽然也玩了超过一百小时但是觉得也很平淡 甚至没有阿尔宙斯玩得开心
+
+*****
+
+####  何处分可  
+##### 62#       发表于 2022-12-9 20:49
+
+既然能提三项，那肯定就有神之天平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

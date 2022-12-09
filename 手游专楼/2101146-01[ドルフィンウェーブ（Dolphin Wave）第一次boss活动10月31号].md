@@ -333,3 +333,12 @@ boss战继续追加高难
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">新卡好快，希望不要是限定
 
+
+
+*****
+
+####  羽出  
+##### 179#       发表于 2022-12-9 20:42
+
+触手怪boss，能不能期待一下奇怪的演出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

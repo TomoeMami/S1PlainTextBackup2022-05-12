@@ -225,3 +225,12 @@ ios测试版可以玩了，不过好像是初版
 
 好像xbox版成就系统修好了，可以正常获得成就了
 
+
+
+*****
+
+####  cherry__  
+##### 472#       发表于 2022-12-9 20:46
+
+然后今天又有问题了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">又获得不了成就了
+
