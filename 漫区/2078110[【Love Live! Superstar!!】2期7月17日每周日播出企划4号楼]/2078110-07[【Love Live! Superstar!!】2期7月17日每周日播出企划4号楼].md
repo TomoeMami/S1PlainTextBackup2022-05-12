@@ -13455,3 +13455,31 @@ b站上有特典信息汇总
 
 话说当时鲤鱼写真集fc我记得是有直签来着，也不太清楚直签的竞争力和其他特典相比怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10128#       发表于 2022-12-9 12:32
+
+ 本帖最后由 稀勢のささ 于 2022-12-9 12:34 编辑 
+
+<img src="https://img.saraba1st.com/forum/202212/09/123400lnuc4cff4n4vcgvg.jpg" referrerpolicy="no-referrer">
+
+<strong>65cb49a72d8c494b76c8838458761f6513434.jpg</strong> (303.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-9 12:34 上传
+
+装高冷是吧
+
+<img alt="" border="0" class="vm" src="https://static.saraba1st.com/image/filetype/unknown.gif" referrerpolicy="no-referrer">
+
+65cb49a72d8c494b76c8838458761f6513434.jpg@1036w.webp
+
+2022-12-9 12:30 上传
+点击文件名下载附件
+
+171.87 KB, 下载次数: 0
+

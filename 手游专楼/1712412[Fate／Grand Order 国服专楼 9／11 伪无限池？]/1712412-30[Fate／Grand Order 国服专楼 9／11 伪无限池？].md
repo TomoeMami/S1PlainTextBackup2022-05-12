@@ -32,3 +32,14 @@ CBA该有的都有了吧，其实真，没有也没事，CBA现在的权重也�
 
 像这种没人抽池子的活动要搬出商店礼装就麻烦不少
 
+
+
+*****
+
+####  6030sylar  
+##### 43800#       发表于 2022-12-9 12:31
+
+就算打绿卡都等明年rba了
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
