@@ -980,3 +980,28 @@ xgp红迪上都说更新了，这边照常报错但是没法像之前一样反�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  古代人皮克  
+##### 201#       发表于 2022-12-9 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58856924&amp;ptid=1951151" target="_blank">415452356 发表于 2022-12-9 23:01</a>
+
+都不知道这游戏延期到底干去了
+
+—— 来自 S1Fun</blockquote>
+40~50人小团体转型两百人大工作室的第一次作品，能理解吧，而且他们对做市场那个脑回路是真的不知道说什么
+
+*****
+
+####  415452356  
+##### 202#       发表于 2022-12-9 23:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58857014&amp;ptid=1951151" target="_blank">古代人皮克 发表于 2022-12-9 23:07</a>
+40~50人小团体转型两百人大工作室的第一次作品，能理解吧，而且他们对做市场那个脑回路是真的不知道说什 ...</blockquote>
+  这次我个人最不满意的还是关卡设计，推进起来感觉就没啥节奏可言，加上离谱的远程敌人让整个游戏玩起来就是怪怪的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
