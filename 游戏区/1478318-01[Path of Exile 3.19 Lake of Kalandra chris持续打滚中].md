@@ -13,3 +13,14 @@ GGPK预载已放出     还有半天就能开服了
 
 能否在POE2前让玩家死个明白 或至少让词缀在武器伤害占比上不会过高   拭目以待吧
 
+
+
+*****
+
+####  wcorvo  
+##### 1330#       发表于 2022-12-10 00:13
+
+看了下又是一堆砍？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+服了
+
