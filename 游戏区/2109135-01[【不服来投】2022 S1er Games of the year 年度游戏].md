@@ -802,3 +802,16 @@ xb3能有这么多票啊，哈哈了
 
 只玩过战神和师父，投不了别的。
 
+
+
+*****
+
+####  winggg  
+##### 77#         楼主| 发表于 2022-12-9 23:19
+
+投票贴最后一项“神之天平”是由版主佐伯香织添加。
+
+如果有人觉得这样不公平，请不要找我。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然埋下不公平的罪魁祸首是我啦XD
+
