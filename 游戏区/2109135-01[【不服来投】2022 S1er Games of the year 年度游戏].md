@@ -863,3 +863,14 @@ xb3能有这么多票啊，哈哈了
 
 不爱玩魂，诸神黄昏感觉不如4代，switch卖掉了，最后发现只有师傅能选
 
+
+
+*****
+
+####  EvenSharper  
+##### 84#       发表于 2022-12-10 07:14
+
+可以想见谭游在17年也是要被野炊吊打的
+
+期待和XB4同年的超大作！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
