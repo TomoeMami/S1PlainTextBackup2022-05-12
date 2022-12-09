@@ -324,3 +324,12 @@ boss战继续追加高难
 
 冬活回忆卡和新角色预告
 
+
+
+*****
+
+####  MEKA  
+##### 178#       发表于 2022-12-9 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">新卡好快，希望不要是限定
+
