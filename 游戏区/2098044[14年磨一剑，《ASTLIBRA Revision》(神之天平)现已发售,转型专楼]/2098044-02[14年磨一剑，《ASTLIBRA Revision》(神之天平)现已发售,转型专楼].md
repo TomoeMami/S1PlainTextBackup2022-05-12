@@ -17042,3 +17042,18 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 新章之前打boss都有挑战性，打伤害我大部分是用召唤</blockquote>
 去面包房可以知道怎么用
 
+
+
+*****
+
+####  Tissuesea  
+##### 2964#       发表于 2022-12-9 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58842512&amp;ptid=2098044" target="_blank">罐子 发表于 2022-12-9 08:55</a>
+终于通关了，整体都好，就是数值确实有点问题
+
+新章之前打boss都有挑战性，打伤害我大部分是用召唤</blockquote>
+你抽奖25次应该有炼金术配方书，上面有写合成配方，是买面包房神装必要的道具
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
