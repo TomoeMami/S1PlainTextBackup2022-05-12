@@ -17014,3 +17014,31 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 这个固定道具是指啥啊，那些不需要钥匙的小木箱子？</blockquote>
 做装备用的那些素材
 
+
+
+*****
+
+####  罐子  
+##### 2962#       发表于 2022-12-9 08:55
+
+终于通关了，整体都好，就是数值确实有点问题
+
+新章之前打boss都有挑战性，打伤害我大部分是用召唤
+新章之后就鬼畜平砍为主了，大部分boss都能轻松过了
+
+话说后面的几个武器精通给的几个颜色石头是有啥用的啊？
+
+—— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  urvark  
+##### 2963#       发表于 2022-12-9 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58842512&amp;ptid=2098044" target="_blank">罐子 发表于 2022-12-9 08:55</a>
+
+终于通关了，整体都好，就是数值确实有点问题
+
+新章之前打boss都有挑战性，打伤害我大部分是用召唤</blockquote>
+去面包房可以知道怎么用
+
