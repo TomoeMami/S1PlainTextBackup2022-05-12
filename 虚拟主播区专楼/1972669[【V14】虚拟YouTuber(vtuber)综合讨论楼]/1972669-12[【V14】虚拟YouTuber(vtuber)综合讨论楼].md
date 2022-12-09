@@ -3482,3 +3482,17 @@ hh翻唱了花谱的歌嘛？这是
 
 <img src="http://tva3.sinaimg.cn/large/7c16af6bly1h8xvk97v3hj20t50v8wi9.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smy20011  
+##### 17936#       发表于 2022-12-10 01:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58854107&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-12-9 19:50</a>
+其实vta出的那七个，有个别数字不难看的，勉强能混个2军。这不是抽到大小姐了吗，天佑田角
+话又说回来杏感 ...</blockquote>
+虽然但是，holo今年一共就抽了3个女的
+
+— from Google Pixel 7, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
