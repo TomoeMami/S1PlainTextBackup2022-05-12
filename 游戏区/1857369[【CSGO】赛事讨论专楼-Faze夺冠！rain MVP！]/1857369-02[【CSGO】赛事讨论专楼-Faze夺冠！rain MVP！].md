@@ -112,3 +112,12 @@ a队该优化了，踢x9，mistr回青训，不然设备回来跟没回没什么
 
 若子好硬，虾好软
 
+
+
+*****
+
+####  cwlo  
+##### 2939#       发表于 2022-12-9 08:16
+
+没想到虾哥居然是最吃ECO的那个<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
