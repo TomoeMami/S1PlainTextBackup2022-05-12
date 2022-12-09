@@ -1716,3 +1716,47 @@ Fhmk8gkWQAAW9so_format=jpg&amp;amp;name=small.jpg
 
 野鸡奖！
 
+
+
+*****
+
+####  医生狼多  
+##### 192#         楼主| 发表于 2022-12-9 11:28
+
+最佳rpg也没了
+
+*****
+
+####  shudushimo  
+##### 193#       发表于 2022-12-9 11:29
+
+寄
+
+*****
+
+####  脸宽  
+##### 194#       发表于 2022-12-9 11:30
+
+结束力
+
+*****
+
+####  langleizhi  
+##### 195#       发表于 2022-12-9 11:30
+
+这个从一开始就没戏的吧，坛友也太敢做梦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  戏言学者  
+##### 196#       发表于 2022-12-9 11:30
+
+剑指goty！！<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+*****
+
+####  布里兰特  
+##### 197#       发表于 2022-12-9 11:33
+
+颗粒无收，我的评价是不如OO
+
