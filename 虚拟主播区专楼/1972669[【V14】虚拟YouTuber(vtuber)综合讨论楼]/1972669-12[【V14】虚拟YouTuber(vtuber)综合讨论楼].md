@@ -3189,3 +3189,26 @@ EN五期没一个会说中文的全男阵容爆火，田角陆未卜先知EN一�
 只是这次从Nga变成V吧</blockquote>
 魔怔前世粉或是前世大都是魔怔粉只要看看tag/留言/毕业回弹幕就知道的事
 
+
+
+*****
+
+####  psnsic8nag  
+##### 17911#       发表于 2022-12-9 18:13
+
+不是，为何要扯到B限跟中华背景。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Luxiem在B站爆火也没什么好否认的，田角陆今年和B站的合作力度加大也是（B限 官号 联动及谷子）
+
+以彩虹的运营方针，谁热度高上谁也很是正常的。至于猫雷是否转正要看她自己，因为能力和知名度已经有了。
+
+*****
+
+####  psnsic8nag  
+##### 17912#       发表于 2022-12-9 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58852736&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-12-9 18:08</a>
+
+合着核心喵喵露预告个半天彩虹结果就进个vta还要再熬一年，属于是11年进宫当太监了 ...</blockquote>
+经验者大概率不需要一年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
