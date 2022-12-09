@@ -3326,3 +3326,22 @@ vta的价值，应该也会得到提升吧<img src="https://static.saraba1st.com
 
 以上就是我的思路了
 
+
+
+*****
+
+####  winda  
+##### 17921#       发表于 2022-12-9 18:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按凉宫飒的情况，滚蛋的人vta是一点痕迹都不会给你留的，还用得着头疼删档案的问题么
+
+*****
+
+####  winda  
+##### 17922#       发表于 2022-12-9 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58852837&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-9 18:15</a>
+
+经验者大概率不需要一年</blockquote>
+不上课的2期扩招经验者这批还差差不多3个月就期满一年了，猫雷跑去搞练习生直播那就只能大家排排坐等出道了，中间神隐掉几个竞争对手那就快点<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
