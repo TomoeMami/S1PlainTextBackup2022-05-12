@@ -8822,3 +8822,15 @@ wow,真的是无限池连发
 
 大概100多抽妖兰2宝入手....晚了1年多总算弥补了怨念<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3798#       发表于 2022-12-9 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58853956&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-12-9 19:40</a>
+
+大概100多抽妖兰2宝入手....晚了1年多总算弥补了怨念</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到你的id还没点进去就知道是来晒的   真准
+
