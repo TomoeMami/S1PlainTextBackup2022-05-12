@@ -7434,3 +7434,23 @@ self：听话，给我戳戳！<img src="https://static.saraba1st.com/image/smil
 
 <img src="https://p.sda1.dev/8/39cdb45c8bbc88c1ec1c7e8e7d2e3998/fin.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 556#         楼主| 发表于 2022-12-10 01:40
+
+[https://twitter.com/plus_plus09/status/1600512426025582592](https://twitter.com/plus_plus09/status/1600512426025582592)
+<img src="https://p.sda1.dev/8/eea0befc1bd39a8e703cf5c23cf5e8bf/20221210_013643.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/8/784a29e5420edae9fe05d7ef8d74c614/20221210_013655.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/55f4e7fd8783826e06936225c7a03931/20221210_013656.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/62a82125b2578a4681502ecee6d604f3/20221210_013657.jpg" referrerpolicy="no-referrer">
+
+すてっぷ１０より、作监修正をご绍介
+<img src="https://p.sda1.dev/8/c74b839e79253246547f85c6bcef728b/20221210_013702.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/c792cac44424f538e6eb0422bb2aea5e/20221210_013703.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/aca1ae68149e4118ba079d27cc0a9621/20221210_013704.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0d24c2fd7335f3d94a1d8c4fb4b4fc62/20221210_013706.jpg" referrerpolicy="no-referrer">
+
