@@ -35,3 +35,17 @@
 
 重装机兵风的好像就见过苍之瞳少女和这部了，热度还都一般，日本人是真不喜欢这套啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yisudream  
+##### 413#       发表于 2022-12-10 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=56519122&amp;ptid=1913585" target="_blank">HEERO.W 发表于 2022-7-4 14:05</a>
+
+看到主角杀了女扒手。
+
+胜也这弱智程度也太过了吧，都已经这种程度还护着女扒手，一大堆人都能看出来胜也性 ...</blockquote>
+老哥在那看到的web版可否给个地址，我也想看薄纱女扒手鸭<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
