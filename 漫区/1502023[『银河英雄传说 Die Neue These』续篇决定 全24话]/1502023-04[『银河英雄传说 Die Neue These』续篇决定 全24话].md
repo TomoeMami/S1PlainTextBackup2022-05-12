@@ -144,3 +144,18 @@
 
 击剑让我想起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  newise  
+##### 5570#       发表于 2022-12-10 08:30
+
+有被弱智到
+
+不得带剑上殿带铳上舰桥可以理解，毕竟帝国人真是古板呢
+
+你个刺杀的不会用投币道具，斩首行动是必须物理斩首吗？
+
+你也是帝国人？哦那没事了
+
