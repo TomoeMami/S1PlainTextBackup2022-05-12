@@ -874,3 +874,12 @@ xb3能有这么多票啊，哈哈了
 
 期待和XB4同年的超大作！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Nez  
+##### 85#       发表于 2022-12-10 09:44
+
+卡比必秒老头环！
+
