@@ -13642,3 +13642,38 @@ FC群的
 
 彩原来粉丝也这么强的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">真的没想到啊。二期生里深藏不露了属于是。
 
+
+
+*****
+
+####  梶原ひかり  
+##### 10143#       发表于 2022-12-10 17:20
+
+💫#Liella_3rd_爱知Day1💫
+
+おはようございます☀️
+
+本日より2日间
+
+ラブライブ！スーパースター!! Liella! 3rd LoveLive! Tour ～WE WILL!!～
+
+爱知公演を开催します🎉
+
+宫城の势いそのままに热い思い出をつくりましょう💪
+
+当日券も贩売！公演特设サイト↓
+[https://lovelive-anime.jp/yuigaoka/live/live_detail.php?p=3rdlive](https://lovelive-anime.jp/yuigaoka/live/live_detail.php?p=3rdlive)
+
+#lovelive #Liella
+
+[https://twitter.com/LoveLive_staff/status/1601367269053194241](https://twitter.com/LoveLive_staff/status/1601367269053194241)
+
+今天票也卖完了
+
+*****
+
+####  ViyViy  
+##### 10144#       发表于 2022-12-10 17:22
+
+等会，鱼另一个花篮居然是一个人单独送的，太强了。
+
