@@ -3677,3 +3677,19 @@ Ver Vermillion——Nuka，韩国以UT内容起家的游戏频道转生个人势
 
 刺猬白姨唱歌还蛮强的，就是不知道为啥去的en
 
+
+
+*****
+
+####  rzrbtk  
+##### 17953#       发表于 2022-12-11 01:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58867913&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-12-10 17:16</a>
+
+最近好热闹
+
+我反正一直觉得V因为中之人因素没法真正从同一起跑线开始是没办法的事，众人眼里爆红的 ...</blockquote>
+大家都在猜新人人选，我总觉得raika估计是走人了，本来想meltraika组男女cp再搭上roko稳了，现在roko得一带一估计要底的总觉得，难啊！
+
+syl，觉得melt主要是人就是普通一温柔姐姐，生态位上已经有修女了，不是说有黑料吼...
+

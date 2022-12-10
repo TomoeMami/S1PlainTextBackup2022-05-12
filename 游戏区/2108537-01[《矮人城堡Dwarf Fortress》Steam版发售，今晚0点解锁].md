@@ -767,3 +767,12 @@ losing is fun！觉得没救了就开退休，让小人自己解决然后顺便�
 
 矮人要塞适当砍一些内容, 然后套进类MC的方式来游玩感觉效果会很好.
 
+
+
+*****
+
+####  巴德那克  
+##### 82#       发表于 2022-12-11 01:44
+
+没中文的话我还是继续观望一段时间再说。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
