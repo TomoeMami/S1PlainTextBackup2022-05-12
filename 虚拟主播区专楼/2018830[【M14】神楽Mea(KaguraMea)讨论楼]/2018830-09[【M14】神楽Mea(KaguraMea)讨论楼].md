@@ -230,3 +230,14 @@ live临近了
 
 稍微补了一下和夕刻的联动，有点牛逼啊，互相推荐不存在的东西，两个人扯淡了一个小时，mea居然能现编不存在的曲子啊。
 
+
+
+*****
+
+####  往世雷书  
+##### 12938#       发表于 2022-12-10 07:58
+
+说不定她平时就胡思乱想这些不着调的东西<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
