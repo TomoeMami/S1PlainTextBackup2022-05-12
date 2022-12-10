@@ -13943,3 +13943,28 @@ EN03 Day1（9人Ver.）
 
 EN04 TO BE CONTINUED</blockquote>
 
+
+
+*****
+
+####  ViyViy  
+##### 10153#       发表于 2022-12-10 20:26
+
+好像和宫城day1一样？难道没转播的场就是复刻？
+
+*****
+
+####  csolfans  
+##### 10154#       发表于 2022-12-10 20:26
+
+ 本帖最后由 csolfans 于 2022-12-10 20:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听现地佬说今天sayu极为放肆，直接向鲤鱼邀吻，然后鲤鱼也受邀了进行了回吻
+
+*****
+
+####  优妮可  
+##### 10155#       发表于 2022-12-10 20:31
+
+没线上就玩很大
+
