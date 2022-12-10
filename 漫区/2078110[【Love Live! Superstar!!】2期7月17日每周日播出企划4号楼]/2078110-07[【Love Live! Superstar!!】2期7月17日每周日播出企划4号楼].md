@@ -13519,3 +13519,61 @@ https://www.bilibili.com/read/cv19029748
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一波给绘森彩整了8个花篮，有点生草
 
+
+
+*****
+
+####  愛さ実  
+##### 10132#       发表于 2022-12-10 13:33
+
+花篮情况：
+团体 4个；
+合鲤 1个；
+鱼 2个（包含中国鲤友1个）；
+nako 1个；
+nagi 1个；
+non 2个；
+yabu 2个；
+彩 8个；
+结那 2个。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  player3960  
+##### 10133#       发表于 2022-12-10 13:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58865369&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-12-10 13:33</a>
+
+花篮情况：
+
+团体 4个；
+
+合鲤 1个；</blockquote>
+合着打铁欧吉宫城一波流了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+加了个鲤鱼个人花篮群，计划送千叶day2和琦玉场，看看能不能成吧。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 10134#       发表于 2022-12-10 13:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58865426&amp;ptid=2078110" target="_blank">player3960 发表于 2022-12-10 13:39</a>
+合着打铁欧吉宫城一波流了
+
+加了个鲤鱼个人花篮群，计划送千叶day2和琦玉场，看看能不能成吧。[f: ...</blockquote>
+那个群是谁组织的？
+
+*****
+
+####  player3960  
+##### 10135#       发表于 2022-12-10 13:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58865435&amp;ptid=2078110" target="_blank">lj205 发表于 2022-12-10 13:40</a>
+
+那个群是谁组织的？</blockquote>
+私信你吧
+
