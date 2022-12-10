@@ -161,3 +161,15 @@ Screenshot_2022-12-10-17-21-50-91_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 别的不说，那个折纸怪兽好酷。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  游蜓  
+##### 812#       发表于 2022-12-10 22:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58874147&amp;ptid=2040765" target="_blank">hulaoda007 发表于 2022-12-10 21:51</a>
+
+别的不说，那个折纸怪兽好酷。</blockquote>
+希望圆谷能长点心眼直接公布教程<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
