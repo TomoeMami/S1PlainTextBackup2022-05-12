@@ -13993,3 +13993,28 @@ EN04 TO BE CONTINUED</blockquote>
 
 还好歌单没变，要是唱特典曲就是我急了
 
+
+
+*****
+
+####  cybernetics31  
+##### 10159#       发表于 2022-12-10 21:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">推上已经有人在喊鱼伟大的liyuu同志了
+
+*****
+
+####  稀勢のささ  
+##### 10160#       发表于 2022-12-10 21:08
+
+ 本帖最后由 稀勢のささ 于 2022-12-10 21:11 编辑 
+
+看推上的几个人发的总结下就是 鱼从背后抱着sayu→sayu拍鱼肩→指脸→从背后激しい的kiss<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  aoaoaodedede  
+##### 10161#       发表于 2022-12-10 21:08
+
+哇，羡慕了
+
