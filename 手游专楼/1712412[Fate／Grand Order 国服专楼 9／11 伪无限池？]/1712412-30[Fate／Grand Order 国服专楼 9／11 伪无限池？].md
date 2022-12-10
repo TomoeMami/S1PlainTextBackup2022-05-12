@@ -43,3 +43,14 @@ CBA该有的都有了吧，其实真，没有也没事，CBA现在的权重也�
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  shimotsuki14  
+##### 43801#       发表于 2022-12-10 15:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58845304&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2022-12-9 11:08</a>
+像这种没人抽池子的活动要搬出商店礼装就麻烦不少</blockquote>
+想了半天，今天中午抽了十几万友情出了张三星，然后扔了三十石，还好出了一张五星和两张四星
+
