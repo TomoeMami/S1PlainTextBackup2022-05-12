@@ -180,3 +180,15 @@
 击剑让我想起来了</blockquote>
 新监督继续吃书罢了
 
+
+
+*****
+
+####  bobob233  
+##### 5573#       发表于 2022-12-10 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58859061&amp;ptid=1502023" target="_blank">卡奥斯·克斯拉 发表于 2022-12-10 01:20</a>
+
+公布的时候就说了做完第四卷占领费沙啊。</blockquote>
+啊。。。我是真想看杨和黄毛对决前对菲列特利加的求婚啊，只能等下一季了么<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
