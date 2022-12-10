@@ -168,3 +168,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">帝国同盟两位名花对砍还是很好看的，这舰队战真壮观啊，视角转移到同盟内部高层就血压高了
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 5572#       发表于 2022-12-10 18:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58860717&amp;ptid=1502023" target="_blank">aptx8285144 发表于 2022-12-10 03:54</a>
+
+击剑让我想起来了</blockquote>
+新监督继续吃书罢了
+
