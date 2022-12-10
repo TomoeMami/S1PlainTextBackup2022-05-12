@@ -13677,3 +13677,15 @@ FC群的
 
 等会，鱼另一个花篮居然是一个人单独送的，太强了。
 
+
+
+*****
+
+####  Enakina  
+##### 10145#       发表于 2022-12-10 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58867999&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-10 17:22</a>
+等会，鱼另一个花篮居然是一个人单独送的，太强了。</blockquote>
+那个人好像这次送了一个彩和鱼的
+均衡教派
+
