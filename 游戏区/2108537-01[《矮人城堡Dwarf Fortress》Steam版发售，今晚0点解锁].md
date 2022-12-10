@@ -734,3 +734,15 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 这玩意官中肯定没戏了，只能等民间大神了。昨天看一位主播是窗口模式，挂了个有道来截图翻译着玩。
 
+
+
+*****
+
+####  古代人皮克  
+##### 79#       发表于 2022-12-10 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58840569&amp;ptid=2108537" target="_blank">nma 发表于 2022-12-9 00:46</a>
+
+上来就挖到河，卒。学习曲线还是孙子辈的友好一点</blockquote>
+losing is fun！觉得没救了就开退休，让小人自己解决然后顺便学习一下
+
