@@ -207,3 +207,17 @@ Screenshot_2022-12-10-17-21-50-91_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">这回和特拉菲扎一比，强壮德凯目前是完全不如强壮戴拿了，至少面板力量比不过，鸭脖人回奇迹表现太强了，只有奇迹能跟得上戴拿的三形态。
 
+
+
+*****
+
+####  深渊萃取  
+##### 816#       发表于 2022-12-10 23:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58875357&amp;ptid=2040765" target="_blank">上坂莲华 发表于 2022-12-10 22:51</a>
+
+新生代上来就直接出最终的也没几个啊
+
+银河艾克斯罗布都要初始垫，捷德泰迦这种能直接出的也都喜欢拿基础 ...</blockquote>
+就是必须垫初始这点意义不明，泽塔天天直接变德尔塔天爪，我没记错的话开心超人变真理是插闪耀那根U盘变的，但开心超人天天基础垫再变进阶，拖戏达人
+
