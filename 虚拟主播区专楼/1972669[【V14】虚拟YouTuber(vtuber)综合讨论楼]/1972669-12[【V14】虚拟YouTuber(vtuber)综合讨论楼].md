@@ -3628,3 +3628,15 @@ Ver Vermillion——Nuka，韩国以UT内容起家的游戏频道转生个人势
 
 首播看下来只对虎姬比较有好感<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer"> 
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17949#       发表于 2022-12-10 19:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58870300&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-12-10 19:12</a>
+首播看下来只对虎姬比较有好感</blockquote>
+凪白皮的那个刺猬<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">。
+这感觉反而是曲线加入虹本社了啊
+
