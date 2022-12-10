@@ -8950,3 +8950,15 @@ wow,真的是无限池连发
 其实画的还不错，就是选材怪怪的...另外马修这身衣服这个角度还挺色气。
 莫名有种要被送进哥布林杀手片场的既视感
 
+
+
+*****
+
+####  UNISONIA  
+##### 3808#       发表于 2022-12-10 20:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58869255&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-10 18:26</a>
+
+妖兰的画师CHOCO老师给2.6画了张纪念图...不过哥布林拐卖美少女的场面真的有纪念的必要吗</blockquote>
+这图版权信息写的他自己，也没刊在官方名义的东西上面，你就当CHOCO自己比较喜欢这一段吧【
+
