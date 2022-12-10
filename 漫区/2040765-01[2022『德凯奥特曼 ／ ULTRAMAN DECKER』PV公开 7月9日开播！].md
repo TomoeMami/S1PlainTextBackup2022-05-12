@@ -173,3 +173,14 @@ Screenshot_2022-12-10-17-21-50-91_a252b927494330cdc2c8ba3b3f952e5e.jpg
 别的不说，那个折纸怪兽好酷。</blockquote>
 希望圆谷能长点心眼直接公布教程<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  深渊萃取  
+##### 813#       发表于 2022-12-10 22:42
+
+ 本帖最后由 深渊萃取 于 2022-12-10 22:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">强劲卡是没有变身功能吗，每次都是要三基础前置才能变，变闪亮的部分感觉就是拖时间
+
