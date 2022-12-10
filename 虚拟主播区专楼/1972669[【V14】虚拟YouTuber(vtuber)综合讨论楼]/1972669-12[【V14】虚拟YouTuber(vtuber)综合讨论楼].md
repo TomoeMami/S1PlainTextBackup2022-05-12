@@ -3607,3 +3607,24 @@ ruri自我介绍的时候上来就放百合豚其实我有点那个，一是有�
 syl
 虽然不想让大家一开始就抱太高期待，但roko反正不是纯新人了，就希望enkr起点作用吧，好好设计新皮，好好打磨初配信。从我的视角看，roko是一张上限不比莎宝低的卡，虽然出道时机这种天时可能没那么好了；另外可能也没法高频率直播，但这种事现在也说不准。
 
+
+
+*****
+
+####  alcoholic1000  
+##### 17948#       发表于 2022-12-10 19:12
+
+<blockquote>Zaion Lanza——Sayu Okami，元个人势，现居加利福尼亚的日本人，铁血原批
+
+Doppio Dropscythe——Seikyuu VA，橙黑站R18 ASMR人，做v时期也在b站混过
+
+Meloco Kyoran——Shirahari Uni，元NeoRad所属vtuber（凪白皮那个），歌势，也在b站混过
+
+Hex Haywire——Kyrio Cifer，除了声音相似，也用了和个人势时期相同的美术资源
+
+Kotoka Torahime——？？？（hanamori的Usami已否认）
+
+Ver Vermillion——Nuka，韩国以UT内容起家的游戏频道转生个人势（原+崩三+游戏王），被发现在红迪r/lawschooladmissions发过贴，询问Vanderbilt vs Fordham For NYC Big Law，应该是在纽约的法学院学生</blockquote>
+
+首播看下来只对虎姬比较有好感<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer"> 
+
