@@ -159,3 +159,12 @@
 
 你也是帝国人？哦那没事了
 
+
+
+*****
+
+####  roxas.sora  
+##### 5571#       发表于 2022-12-10 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">帝国同盟两位名花对砍还是很好看的，这舰队战真壮观啊，视角转移到同盟内部高层就血压高了
+
