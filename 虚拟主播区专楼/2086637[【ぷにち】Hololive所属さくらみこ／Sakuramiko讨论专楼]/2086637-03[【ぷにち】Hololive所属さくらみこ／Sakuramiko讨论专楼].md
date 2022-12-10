@@ -4631,3 +4631,40 @@ miko：讲了10分钟直接开始歪题了
 
 这人买东西时候看到价钱不会不觉得不对吗？
 
+
+
+*****
+
+####  holoan  
+##### 3435#         楼主| 发表于 2022-12-10 23:15
+
+那就不知道了
+
+有钱人的世界，跟我们屁民不一样
+
+而且网购她又没信用卡不知道怎么付的
+
+*****
+
+####  holoan  
+##### 3436#         楼主| 发表于 2022-12-10 23:18
+
+<img src="https://img.saraba1st.com/forum/202212/10/231727bjv93l2vop9fdi2f.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-10 23:17 上传
+
+什么鬼，谁信啊
+
+不过去年联动咖啡厅的时候报告确实是女性率非常高，但是也不会真的就这么成了吧
+
+*****
+
+####  tesparu  
+##### 3437#       发表于 2022-12-10 23:20
+
+可恶啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
