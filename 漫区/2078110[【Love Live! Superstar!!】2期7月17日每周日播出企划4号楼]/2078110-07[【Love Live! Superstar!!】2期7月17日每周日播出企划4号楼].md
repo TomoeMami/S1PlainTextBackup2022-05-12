@@ -13577,3 +13577,30 @@ yabu 2个；
 那个群是谁组织的？</blockquote>
 私信你吧
 
+
+
+*****
+
+####  csolfans  
+##### 10136#       发表于 2022-12-10 13:47
+
+<blockquote>lj205 发表于 2022-12-10 13:40
+那个群是谁组织的？</blockquote>
+FC群的
+
+*****
+
+####  ruffian  
+##### 10137#       发表于 2022-12-10 13:48
+
+彩妹牛哇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kfly  
+##### 10138#       发表于 2022-12-10 13:48
+
+好家伙<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
