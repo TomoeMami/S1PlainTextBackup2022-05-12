@@ -892,3 +892,17 @@ xb3能有这么多票啊，哈哈了
 
 投了法环。但私心喜欢主播女孩重度依赖来自: iPhone客户端
 
+
+
+*****
+
+####  JudgmentEye  
+##### 87#       发表于 2022-12-10 12:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58855832&amp;ptid=2109135" target="_blank">skicerse 发表于 2022-12-9 21:40</a>
+
+想了下去年的投票然后
+
+你谭咋不开个2022德不配位奖投票呐</blockquote>
+估计北妹3会第一吧，第二可能是灵魂黑客2
+
