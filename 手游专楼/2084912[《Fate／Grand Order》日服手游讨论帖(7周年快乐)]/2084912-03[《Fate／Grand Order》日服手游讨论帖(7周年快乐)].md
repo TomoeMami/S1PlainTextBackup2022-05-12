@@ -8922,3 +8922,31 @@ wow,真的是无限池连发
 
 运营再蠢也应该了解一般情况下根本不可能会上3破的妖兰吧
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3807#       发表于 2022-12-10 18:26
+
+妖兰的画师CHOCO老师给2.6画了张纪念图...不过哥布林拐卖美少女的场面真的有纪念的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/10/181912dw4d41ecwpww0od1.jpg" referrerpolicy="no-referrer">
+
+<strong>1670667257245.jpg</strong> (162.34 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-10 18:19 上传
+
+<img src="https://img.saraba1st.com/forum/202212/10/181913lalm6lgo54uqviqy.png" referrerpolicy="no-referrer">
+
+<strong>1670667253760.png</strong> (399.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-10 18:19 上传
+
+其实画的还不错，就是选材怪怪的...另外马修这身衣服这个角度还挺色气。
+莫名有种要被送进哥布林杀手片场的既视感
+
