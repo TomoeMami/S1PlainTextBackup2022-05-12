@@ -221,3 +221,64 @@ Screenshot_2022-12-10-17-21-50-91_a252b927494330cdc2c8ba3b3f952e5e.jpg
 银河艾克斯罗布都要初始垫，捷德泰迦这种能直接出的也都喜欢拿基础 ...</blockquote>
 就是必须垫初始这点意义不明，泽塔天天直接变德尔塔天爪，我没记错的话开心超人变真理是插闪耀那根U盘变的，但开心超人天天基础垫再变进阶，拖戏达人
 
+
+
+*****
+
+####  athena_1982  
+##### 817#       发表于 2022-12-10 23:23
+
+奏大那不叫迷茫，明显就是CPU性能不够被忽悠的发热短路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+自己抽一巴掌告诫自己不要多想就绕回来了
+
+没有尸体登场好评，就算是圆谷为了中国市场特供了这个版本，也要称赞一下（不过还是想知道一下无删减版本的剧情，有文字也好啊
+
+另外折纸版的斯菲亚萨乌鲁斯，斯菲亚乔莫斯，纳斯蒂斯好可爱啊，等着出教程<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RainbowSealife  
+##### 818#       发表于 2022-12-10 23:29
+
+<img src="https://img.saraba1st.com/forum/202212/10/232437boypim4gysqyqgy6.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-10 23:24 上传
+
+怪兽折纸制作人staff表里有标
+[https://twitter.com/origami_maimai](https://twitter.com/origami_maimai)
+[https://www.youtube.com/channel/UC20zgCAHH7bfyQ-QNNwnQYQ](https://www.youtube.com/channel/UC20zgCAHH7bfyQ-QNNwnQYQ)
+
+出过一本折纸书 マイマイのユルかわ！最强折り纸  日亚上就有，应该能搜到电子书。
+
+<img src="https://img.saraba1st.com/forum/202212/10/232750z7u9x8p2x3ebjxbe.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (78.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-10 23:27 上传
+
+封面就有巴尔坦和哥莫拉
+
+*****
+
+####  我特么吹爆  
+##### 819#       发表于 2022-12-10 23:29
+
+和人聊了下，我终于意识到戴卡最大的问题在哪了
+在男主彼方的塑造上……
+彼方本身就是热血青年，同时有一定的觉悟
+但是
+只要有其他奥特曼（扳机，孙子，还有这集的戴拿）客串，他就一定会迷茫
+换言之，为了强行让其他奥特曼教他些什么东西，他的人设就不得不崩
+扳机和政委噩梦的几集不提，就说这集
+第一集：（拿到变身器）既然如此那就只能上了啊！（变身）
+这一集：（被阿佳慕斯嘴炮变不了身）我迷茫了吗？（抽自己两巴掌）但我更不应该就站在这里什么都不做！（变了）
+你这…？
+给我的感觉就是几个编剧不知道怎么让一个本就有战斗觉悟的热血青年有新的成长
+

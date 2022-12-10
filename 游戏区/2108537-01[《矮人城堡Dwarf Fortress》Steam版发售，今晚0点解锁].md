@@ -746,3 +746,13 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 上来就挖到河，卒。学习曲线还是孙子辈的友好一点</blockquote>
 losing is fun！觉得没救了就开退休，让小人自己解决然后顺便学习一下
 
+
+
+*****
+
+####  solmyrli  
+##### 80#       发表于 2022-12-10 23:26
+
+刚把教程通关了，然后就感觉啥也没教我，然后我就看到了那句losing is fun. 觉得有点怪，于是去看了实况直播录像，发现自己只会了砍树做床而已，贸易没等到，更不要说捏人，酿酒，工作，职业了。要学的还是太多了呀～
+好玩是挺好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
