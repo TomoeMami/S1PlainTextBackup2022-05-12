@@ -716,3 +716,12 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 这些倒也不用翻译吧，隔壁边缘世界也不翻译人名（有赞助者id）[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  solmyrli  
+##### 77#       发表于 2022-12-10 09:17
+
+什么时候出中文呀？看着满屏幕的字母压力好大
+
