@@ -29,3 +29,15 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，你咋知道他是戴拿的
 
+
+
+*****
+
+####  浅川雏羽  
+##### 801#       发表于 2022-12-10 14:44
+
+重制的初期变身特效挺好看的，整挺好
+就是这么沉默的戴拿好久没看过了，如果能有不在国内播的尸体配音特供版就好了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
