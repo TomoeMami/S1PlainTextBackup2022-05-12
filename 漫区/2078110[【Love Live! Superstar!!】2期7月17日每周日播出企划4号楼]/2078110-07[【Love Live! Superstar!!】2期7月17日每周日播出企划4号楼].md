@@ -14049,3 +14049,16 @@ EN04 TO BE CONTINUED</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">20岁了啊（意味深）
 
+
+
+*****
+
+####  ads147147  
+##### 10165#       发表于 2022-12-10 22:08
+
+所以鲤鱼说我被剪辑了果然被印证了是吧。
+
+之前鲤鱼就说sayu特放肆。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
