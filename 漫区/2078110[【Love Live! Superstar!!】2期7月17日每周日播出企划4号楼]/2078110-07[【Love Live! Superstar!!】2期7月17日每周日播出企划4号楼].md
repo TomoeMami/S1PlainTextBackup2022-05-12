@@ -14040,3 +14040,12 @@ EN04 TO BE CONTINUED</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  kata魂  
+##### 10164#       发表于 2022-12-10 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">20岁了啊（意味深）
+

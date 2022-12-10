@@ -9,3 +9,16 @@
 
 这对组合到底要到什么时候才能像个组合的样子（
 
+
+
+*****
+
+####  shadowof  
+##### 2683#         楼主| 发表于 2022-12-10 21:34
+
+虽然这个月的活动之前预告已经说明了ルカ的参与，
+
+官推还专门上了张图提醒
+
+<img src="https://i.imgur.com/oU5KbQz.jpg" referrerpolicy="no-referrer">
+
