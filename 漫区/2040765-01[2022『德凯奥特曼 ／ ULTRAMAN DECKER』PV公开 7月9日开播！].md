@@ -67,3 +67,29 @@
 
 这集前面的台词真的很内涵啊
 
+
+
+*****
+
+####  RainbowSealife  
+##### 805#       发表于 2022-12-10 16:15
+
+-自从遭到斯菲亚袭击以来，地球的发展就陷入了停滞。留给人类的道路只有两条，击败斯菲亚或者利用它们，与他们共存。-这道选择题的前提就有问题！
+
+-那我现在问你，精英胜利队现在是否有十足的把握去击败斯菲亚呢？
+
+-这个问题，我们正在往这个方向努力。。。
+
+结合时事，很难不让人有过多的联想，只不过现在摆在人类面前的难题难以被击败，也难以被利用，所以说只能选择共存了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+人类利用科学的力量挑战凶猛的自然，将其转化为自身的力量，一步步发展至今。道理是这个道理，但是面对人类未知的力量又有谁能拍着胸脯保证能完全能够控制并加以利用呢？又不是电能或核能，况且利用核能所产生的核废料如何处理也是一个难题。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+有一说一，像本集这种利用未知力量谋求进步和发展，好心办了坏事，结果最后玩脱了的套路在奥特曼里也太常见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  好面子的懒虫  
+##### 806#       发表于 2022-12-10 16:19
+
+这集迷茫得挺违和，奏大每次前辈回归就迷茫<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还不如普普通通地吃瘪让戴拿救场，为了不让某人出场算是尽力了，形态切换重做和丢⚾️致敬得还可以，下集应该就是揭露博士的过往然后穿越到未来德凯、戴拿奇迹型一起打博士
+

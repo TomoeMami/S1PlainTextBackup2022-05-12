@@ -13613,3 +13613,12 @@ FC群的
 
 怪不得敢搞10w的钻石套餐，粉丝强啊
 
+
+
+*****
+
+####  ViyViy  
+##### 10140#       发表于 2022-12-10 16:19
+
+这是场子太小了摆不下还是还没送到，花架一下子没了三个人的？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">上周看小科普，这东西费钱费力，果然fans再有钱也不能每场都搞啊。
+
