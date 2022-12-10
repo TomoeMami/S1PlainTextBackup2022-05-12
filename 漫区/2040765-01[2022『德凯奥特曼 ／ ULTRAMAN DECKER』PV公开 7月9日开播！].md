@@ -93,3 +93,28 @@
 
 这集迷茫得挺违和，奏大每次前辈回归就迷茫<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还不如普普通通地吃瘪让戴拿救场，为了不让某人出场算是尽力了，形态切换重做和丢⚾️致敬得还可以，下集应该就是揭露博士的过往然后穿越到未来德凯、戴拿奇迹型一起打博士
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 807#       发表于 2022-12-10 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58866756&amp;ptid=2040765" target="_blank">roxas.sora 发表于 2022-12-10 15:56:30</a>
+
+戴拿没让晦气的人间体出场好评</blockquote>
+某个魔怔人嘛……
+
+没回归不提鹤野不挺好的吗，鹤野推特上蹭这热度确实令人不爽，不过这魔怔人提出的“圆谷纵容鹤野的各种行为=默许了其反华行为”，这逻辑就……呃……
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+Screenshot_2022-12-10-17-21-50-91_a252b927494330cdc2c8ba3b3f952e5e.jpg
+(206.45 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-10 17:22 上传
+
+<img src="https://img.saraba1st.com/forum/202212/10/172252z5guq8qt0g6qk6u5.jpg" referrerpolicy="no-referrer">
+
