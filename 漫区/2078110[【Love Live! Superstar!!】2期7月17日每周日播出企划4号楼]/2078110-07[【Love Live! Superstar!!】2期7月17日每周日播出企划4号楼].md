@@ -13510,3 +13510,12 @@ https://www.bilibili.com/read/cv19029748
 看起来貌似没有fc那种销售渠道</blockquote>
 当然是直签吸引力大啊，毕竟吸了一半的销量
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10131#       发表于 2022-12-10 13:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一波给绘森彩整了8个花篮，有点生草
+
