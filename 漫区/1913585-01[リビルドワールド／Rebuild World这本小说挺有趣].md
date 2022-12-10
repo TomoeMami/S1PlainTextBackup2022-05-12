@@ -86,3 +86,20 @@
 女扒手也是个傻逼，这里人多还钱认错不就好了</blockquote>
 胜也电波给了她过度的安全感<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  redsouris  
+##### 416#       发表于 2022-12-10 20:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58863678&amp;ptid=1913585" target="_blank">kiralzb 发表于 2022-12-10 11:04</a>
+建国主义者讨伐戦の死闘を経てアキラはハンターとして新たな一歩を踏み出す。キバヤシの部下・ヒカルの勧め ...</blockquote>
+大流通运输车队护卫任务，
+有新人女角色出场下一个受害者，
+亮点之一是去了更东部的城市买了个能上天的摩托车，一般猎人都直接用飞行装置，这辆摩托车却是用“力场发生装置”实现在空中飙车的偏门商品。
+亮点之二是见识到东部的战斗场面，巨巢级的怪物和各种武装机动兵器大战，还有高空的旧世界兵器。
+亮点之三是第一位代表东部前线实力的超人登场。
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

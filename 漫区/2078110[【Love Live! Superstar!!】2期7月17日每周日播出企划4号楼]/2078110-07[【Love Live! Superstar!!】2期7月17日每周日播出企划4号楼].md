@@ -13886,3 +13886,60 @@ FC群的
 
 2022-12-10 19:33 上传
 
+
+
+*****
+
+####  Kfly  
+##### 10152#       发表于 2022-12-10 20:16
+
+<strong>歌单：</strong> <blockquote>01 WE WILL!!
+
+02 スター宣言
+
+03 Welcome to 仆らのセカイ
+
+04 Butterfly Wing
+
+05 Go!! リスタート
+
+06 パレードはいつも（芽衣・四季 Ver.）
+
+07 迷宫讃歌（恋・夏美 Ver.）
+
+08 Dreamer Coaster（香音・希奈子 Ver.）
+
+09 ビタミンSUMMER！
+
+10 POP TALKING
+
+11 ユートピアマジック
+
+12 Chance Day, Chance Way！
+
+13 揺らぐわ
+
+14 色づいて透明
+
+15 エーデルシュタイン
+
+16 Sing！Shine！Smile！
+
+17 名前呼びあうように
+
+18 私のSymphony（～WE WILL!! Ver.～ （オーケストラアレンジ・9人Ver.））
+
+19 未来の音が聴こえる
+
+20 追いかける梦の先で
+
+安可
+
+EN01 水しぶきのサイン
+
+EN02 Dancing Heart La-Pa-Pa-Pa!（9人Ver.）
+
+EN03 Day1（9人Ver.）
+
+EN04 TO BE CONTINUED</blockquote>
+
