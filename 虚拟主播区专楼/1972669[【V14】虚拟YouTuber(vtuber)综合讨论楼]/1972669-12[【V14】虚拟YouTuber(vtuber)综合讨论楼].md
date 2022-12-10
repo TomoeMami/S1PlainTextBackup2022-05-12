@@ -3640,3 +3640,22 @@ Ver Vermillion——Nuka，韩国以UT内容起家的游戏频道转生个人势
 凪白皮的那个刺猬<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">。
 这感觉反而是曲线加入虹本社了啊
 
+
+
+*****
+
+####  holoan  
+##### 17950#       发表于 2022-12-10 19:47
+
+前所未闻的离谱的错误
+
+这家公司除了做live直播之外什么都不行……
+
+<img src="https://img.saraba1st.com/forum/202212/10/194739q4x454l5r58e5zls.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (40.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-10 19:47 上传
+
