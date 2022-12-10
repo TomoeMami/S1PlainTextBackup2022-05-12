@@ -152,3 +152,12 @@ Screenshot_2022-12-10-17-21-50-91_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 戴拿是我第二喜欢的奥特曼作品，到德凯这戴拿成长为了为了其他宇宙奋不顾身一个真正有魅力的战士，没有其他描述真的可惜
 
+
+
+*****
+
+####  hulaoda007  
+##### 811#       发表于 2022-12-10 21:51
+
+别的不说，那个折纸怪兽好酷。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
