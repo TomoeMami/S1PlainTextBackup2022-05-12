@@ -725,3 +725,12 @@ No, sorry, it is extremely unfeasible due to the way the code handles language t
 
 什么时候出中文呀？看着满屏幕的字母压力好大
 
+
+
+*****
+
+####  zerg12345  
+##### 78#       发表于 2022-12-10 09:30
+
+这玩意官中肯定没戏了，只能等民间大神了。昨天看一位主播是窗口模式，挂了个有道来截图翻译着玩。
+
