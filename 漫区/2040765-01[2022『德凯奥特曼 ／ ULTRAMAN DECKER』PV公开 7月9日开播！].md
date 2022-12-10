@@ -41,3 +41,29 @@
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  roxas.sora  
+##### 802#       发表于 2022-12-10 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58865318&amp;ptid=2040765" target="_blank">禦厨三九二 发表于 2022-12-10 13:28</a>
+
+不是，你咋知道他是戴拿的</blockquote>
+不知道几代的孙子不是告诉他有戴拿么，可能在德凯的数据库里面看到了吧
+
+*****
+
+####  roxas.sora  
+##### 803#       发表于 2022-12-10 15:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">戴拿没让晦气的人间体出场好评
+
+*****
+
+####  roxas.sora  
+##### 804#       发表于 2022-12-10 15:56
+
+这集前面的台词真的很内涵啊
+
