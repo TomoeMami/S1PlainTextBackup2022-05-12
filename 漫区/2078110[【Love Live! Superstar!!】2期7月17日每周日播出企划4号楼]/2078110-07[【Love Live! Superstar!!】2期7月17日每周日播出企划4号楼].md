@@ -14062,3 +14062,30 @@ EN04 TO BE CONTINUED</blockquote>
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ruffian  
+##### 10166#       发表于 2022-12-10 22:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58874505&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-12-10 22:08:08</a>
+所以鲤鱼说我被剪辑了果然被印证了是吧。
+
+之前鲤鱼就说sayu特放肆。
+
+—— 来自 Xiaomi 2106118C, Android ...</blockquote>毕竟是被nagi和pay说喜欢摸人但“摸法不太健康”的sayu<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不知道还有没有人记得一巡花絮(忘了哪场)鱼突然回头露出威胁的表情冲sayu比了个拳头，好多人都在说鲤鱼王暴力，其实鱼拳sayu是因为sayu在鱼屁股上拍了一巴掌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 10167#       发表于 2022-12-10 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58874636&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-10 22:13:46</a>
+毕竟是被nagi和pay说喜欢摸人但“摸法不太健康”的sayu</blockquote>还是二巡？我失忆了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
