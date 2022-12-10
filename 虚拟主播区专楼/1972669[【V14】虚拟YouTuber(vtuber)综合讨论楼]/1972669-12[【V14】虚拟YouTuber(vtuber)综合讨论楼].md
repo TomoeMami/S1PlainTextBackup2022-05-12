@@ -3534,3 +3534,22 @@ hh翻唱了花谱的歌嘛？这是
 
 原来虹en也招不到人只能把会英语的日本人丢进去嘛<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  psnsic8nag  
+##### 17941#       发表于 2022-12-10 11:13
+
+ 本帖最后由 psnsic8nag 于 2022-12-10 11:14 编辑 
+
+少招欧美人是因为不好管理？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 17942#       发表于 2022-12-10 11:19
+
+感觉虹en里亚洲人比例是有点高。
+东南亚的，日本的。不过剩下的我也不熟<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
