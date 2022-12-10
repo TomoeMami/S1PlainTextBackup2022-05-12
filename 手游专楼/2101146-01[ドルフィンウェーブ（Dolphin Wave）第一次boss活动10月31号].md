@@ -360,3 +360,12 @@ boss战继续追加高难
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下期活动要sun属性卡，我一看我就俩，还是同一位置的，我就这表情
 
+
+
+*****
+
+####  kulanyee  
+##### 182#       发表于 2022-12-11 01:28
+
+エレン不是已经有个火属性SSR了么。。怎么看起来送的也是火<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
