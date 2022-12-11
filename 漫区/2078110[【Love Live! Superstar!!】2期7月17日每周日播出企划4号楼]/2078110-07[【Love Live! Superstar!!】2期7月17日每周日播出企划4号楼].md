@@ -14335,3 +14335,62 @@ yura版本跟不上要退环境了吗
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Kfly  
+##### 10182#       发表于 2022-12-11 18:34
+
+<strong>今日歌单</strong> <blockquote>01 《WE WILL!!》
+
+02 《スター宣言》
+
+03 《Welcome to 仆らのセカイ》
+
+04 《Butterfly Wing》
+
+05 《Go!! リスタート》
+
+06 《プライム・アドベンチャー》(メイ・四季・夏美 Ver.)
+
+07 《エンドレスサーキット》(可可・すみれ Ver.)
+
+08 《駆けるメリーゴーランド》(かのん・千砂都 Ver.)
+
+09 《ビタミンSUMMER！》
+
+10 《POP TALKING》
+
+11 《ユートピアマジック》
+
+12 《Chance Day, Chance Way！》
+
+13 《揺らぐわ》
+
+14 《色づいて透明》
+
+15 《エーデルシュタイン》
+
+16 《Sing！Shine！Smile！》
+
+17 《名前呼びあうように》
+
+18 《私のSymphony》(9人Ver.)
+
+19 《未来の音が聴こえる》
+
+20 《追いかける梦の先で》
+
+安可
+
+EN01 《水しぶきのサイン》
+
+EN02 《Dreaming Energy》(9人Ver.)
+
+EN03 《Day1》(9人Ver.)
+
+EN04 《TO BE CONTINUED》</blockquote>
+
+和宫城 Day2 一样
+
