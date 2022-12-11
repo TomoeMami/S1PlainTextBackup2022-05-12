@@ -14566,3 +14566,12 @@ live蓝光卖可香，动画bd卖可堇，又是经典既要又要<img src="http
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58894465&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-12-11 21:39</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">才想的，微博那个为啥要说裤袜
 
+
+
+*****
+
+####  s3081260  
+##### 10197#       发表于 2022-12-11 22:25
+
+话说sayu是团里粉丝gachi恋比率最高的，那鱼和nagi应该是最少的吧，鱼是中国人，个子比一些日男还高，说不定啥时候就回国发展；nagi一副精英长相，还特成熟干练
+
