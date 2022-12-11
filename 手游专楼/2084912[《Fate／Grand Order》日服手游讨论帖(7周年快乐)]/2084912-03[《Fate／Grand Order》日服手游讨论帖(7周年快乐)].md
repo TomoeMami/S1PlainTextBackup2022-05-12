@@ -8971,3 +8971,15 @@ wow,真的是无限池连发
 
 借地方问问，今年日服除了特斯拉祭，还有考古算是无限池，还有那些活动也算是无限池？
 
+
+
+*****
+
+####  areklose  
+##### 3810#       发表于 2022-12-11 12:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58883637&amp;ptid=2084912" target="_blank">龙星丸 发表于 2022-12-11 12:09</a>
+
+借地方问问，今年日服除了特斯拉祭，还有考古算是无限池，还有那些活动也算是无限池？ ...</blockquote>
+考古那都算。那梁山泊。。。但是梁山泊体感有点差。剩下就是纯正无限池子摩根祭
+
