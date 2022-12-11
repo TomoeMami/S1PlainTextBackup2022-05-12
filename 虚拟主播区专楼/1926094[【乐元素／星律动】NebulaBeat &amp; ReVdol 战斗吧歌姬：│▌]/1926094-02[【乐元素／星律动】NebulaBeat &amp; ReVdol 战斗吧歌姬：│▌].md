@@ -12070,3 +12070,15 @@ wb更了   太劲了
 
 听这意思k9应该是都在卡缇娅住处吧，也不知道9现在来上海是要干什么
 
+
+
+*****
+
+####  ladiesman802  
+##### 2762#       发表于 2022-12-11 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58890753&amp;ptid=1926094" target="_blank">mcmurdo 发表于 2022-12-11 18:54</a>
+
+听这意思k9应该是都在卡缇娅住处吧，也不知道9现在来上海是要干什么</blockquote>
+之前九夏不是说毕业后有很多相见的人么？估计去见kino了吧，而且南京去上海也不远吧
+
