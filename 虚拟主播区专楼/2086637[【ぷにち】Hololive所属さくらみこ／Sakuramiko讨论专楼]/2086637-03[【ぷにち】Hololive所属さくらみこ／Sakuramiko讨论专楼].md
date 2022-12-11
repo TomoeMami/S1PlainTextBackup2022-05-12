@@ -4743,3 +4743,22 @@ wwe线下联动吧。
 
 投票完就跑了吧,<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真搞线下就好玩了
 
+
+
+*****
+
+####  holoan  
+##### 3447#         楼主| 发表于 2022-12-11 11:55
+
+<img src="https://img.saraba1st.com/forum/202212/11/115344tt44yxf6ri1z4ity.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.51 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-11 11:53 上传
+
+又有新的理论了
+
+反正要是再一个月不出真的就挺有意思的了
+
