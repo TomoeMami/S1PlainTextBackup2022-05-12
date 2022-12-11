@@ -3747,3 +3747,12 @@ syl</blockquote>
 这两张卡是一张卡，卡面不同
 [https://img.nga.178.com/attachme ... ri9ZuT3cS16o-o0.jpg](https://img.nga.178.com/attachments/mon_202212/08/-4vc3nQjo1-4ri9ZuT3cS16o-o0.jpg)
 
+
+
+*****
+
+####  rzrbtk  
+##### 17957#       发表于 2022-12-11 21:30
+
+月之应该这两天？就能金盾了，感觉真的过了好长一段时间，难得开个纪念回就好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+

@@ -4210,3 +4210,22 @@ mb这还有不小的前作基础，就可劲毁<img src="https://static.saraba1s
 
 魔夜没法和新月姬对接，新月姬进度也荒着，旧月姬彻底斩断，这不就FGO化了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Marro  
+##### 427#       发表于 2022-12-11 21:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58893673&amp;ptid=2026924" target="_blank">医生狼多 发表于 2022-12-11 21:06</a>
+
+转向型月格斗也就算了，这是要转fgo格斗吗</blockquote>
+转型月格斗那不开心坏了
+
+*****
+
+####  黑上シグマ  
+##### 428#       发表于 2022-12-11 21:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有句讲句你上牛肉丸还不如上武藏，武藏可以说她是能力发作穿越过来的，牛肉丸是什么鬼啦
+
