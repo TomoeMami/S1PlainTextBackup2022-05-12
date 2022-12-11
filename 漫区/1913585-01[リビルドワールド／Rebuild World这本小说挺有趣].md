@@ -163,3 +163,17 @@
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kiralzb  
+##### 421#       发表于 2022-12-11 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58885286&amp;ptid=1913585" target="_blank">redsouris 发表于 2022-12-11 14:05</a>
+
+回复药效果有的，运输车队战就提到阿基拉的细胞在回复药作用下向超人发展。
+
+最重要的是椿给的那颗正品旧 ...</blockquote>
+记忆回来了，原理确实是这么个事，主要是主角进医院大修也没说身体有什么异常，反而是变得和中层人一样健康，当时就觉得没啥改造<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
