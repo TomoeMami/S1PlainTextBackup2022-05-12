@@ -3998,3 +3998,21 @@ neko-arc还行，我要的不是这个盾娘啊...
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这牛肉丸怎么还穿衣服的 丢人
 
+
+
+*****
+
+####  蓮華  
+##### 408#       发表于 2022-12-11 19:59
+
+还以为怎么都要轮到魔夜角色或者阿良句之类的了，呵呵
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
+*****
+
+####  雪儿  
+##### 409#       发表于 2022-12-11 20:02
+
+牛肉丸穿的太多了 是从大秦异闻带过去的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
