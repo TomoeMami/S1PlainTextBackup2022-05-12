@@ -4201,3 +4201,12 @@ mb这还有不小的前作基础，就可劲毁<img src="https://static.saraba1s
 
 牛若丸也算不上玩家喜欢吧，人气根本轮不到她
 
+
+
+*****
+
+####  小李子大脸猫  
+##### 426#       发表于 2022-12-11 21:25
+
+魔夜没法和新月姬对接，新月姬进度也荒着，旧月姬彻底斩断，这不就FGO化了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
