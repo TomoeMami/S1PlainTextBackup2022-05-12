@@ -14575,3 +14575,163 @@ live蓝光卖可香，动画bd卖可堇，又是经典既要又要<img src="http
 
 话说sayu是团里粉丝gachi恋比率最高的，那鱼和nagi应该是最少的吧，鱼是中国人，个子比一些日男还高，说不定啥时候就回国发展；nagi一副精英长相，还特成熟干练
 
+
+
+*****
+
+####  仟音一心  
+##### 10198#       发表于 2022-12-11 22:36
+
+<img src="https://img.saraba1st.com/forum/202212/11/223556vw7wz21wou55wkok.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>EFC5C3E8-143E-4C94-9DE3-D31118710260.jpeg</strong> (494.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223556lwuk1wwuu7uod1wo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>122C5A4D-6CDD-4DDE-99C6-6C38B9AC4FD9.jpeg</strong> (450.3 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223556iwww7umzfwu2ydu8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>4F1733FB-D5AA-4A99-9CE7-2C8AB230D923.jpeg</strong> (390.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223556ueoa929p6b2b11wz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9FC05C96-E0D9-4968-80F7-007D1BBF1EEA.jpeg</strong> (375.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:35 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223634qmuwxjimm7pa2xxw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>27E2F158-1D9C-46C2-8D46-A1E439847BE6.jpeg</strong> (182.82 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223634cs565fxh40hdq8q6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E57313E1-D6C8-41DD-AC02-E4807375CC48.jpeg</strong> (235.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223634dhiv88knkfdkdv48.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B3D94D67-A6E2-4872-9FBC-03DB85D14E58.jpeg</strong> (572.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223634j7ky5u7p5z8w4u4k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3307DD19-ABD2-41A1-A96F-8CAEBAB1F0B8.jpeg</strong> (684.11 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223634g60synysocbnn4bn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>DDADE86F-0363-4509-B4CE-5D750C945B79.jpeg</strong> (642.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223634x977hf1kje57flk9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6B85EB9C-B8FC-4670-965D-F7F58CE0F241.jpeg</strong> (433.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223635a1gw07141a40a4i3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3430660D-16F8-4607-BCE9-EBF0C2D7F14E.jpeg</strong> (482.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223635vwql8fxpmppwpssi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CFFC29E0-C6FA-477B-A467-321032D405D3.jpeg</strong> (182.7 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223635axe28e5j51eexjkw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CA462C1E-3879-4F69-9780-9C0FA730F744.jpeg</strong> (712.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223635giz6yneq6xniyyi6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>56994D6F-904E-4135-BB07-86D63EF241DD.jpeg</strong> (529.34 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223636n031rscyr031cbx9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B8D9BC4D-EA19-478E-B5EA-DA4463B3C1C6.jpeg</strong> (324.14 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223636gph2pfw6298rn4yh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>00BA9189-7499-4B7E-8BA4-187D81758FBE.jpeg</strong> (318.2 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/223636pzlkgixrfdfj295b.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>81FC8C02-4ED4-4C0F-A5FC-A511BD3A4E44.jpeg</strong> (330.25 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-11 22:36 上传
+

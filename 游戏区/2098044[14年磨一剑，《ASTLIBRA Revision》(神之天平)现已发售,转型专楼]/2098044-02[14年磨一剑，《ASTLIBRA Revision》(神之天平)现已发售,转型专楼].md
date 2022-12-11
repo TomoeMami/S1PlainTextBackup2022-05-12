@@ -17142,3 +17142,14 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 
 学会能量吸收和用上连射弩后整个流程实在简单太多了，话说弑神剑一周目就可以得到吗？
 
+
+
+*****
+
+####  otakun  
+##### 2973#       发表于 2022-12-11 22:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58895560&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-11 22:21</a>
+学会能量吸收和用上连射弩后整个流程实在简单太多了，话说弑神剑一周目就可以得到吗？ ...</blockquote>
+能的
+

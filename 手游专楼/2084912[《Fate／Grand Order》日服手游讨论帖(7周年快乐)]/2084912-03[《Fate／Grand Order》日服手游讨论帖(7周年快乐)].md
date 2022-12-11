@@ -9087,3 +9087,22 @@ CHOCO老师有点巨魔了<img src="https://static.saraba1st.com/image/smiley/fa
 
 FGO这帮妖魔鬼怪就属于什么时间段出场都不稀奇了...可能以后也会是DLC的主力军，慢慢来吧，希望不要太厚此薄彼...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3819#       发表于 2022-12-11 22:33
+
+ 本帖最后由 Jamaisvu 于 2022-12-11 22:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58894704&amp;ptid=2084912" target="_blank">sandro 发表于 2022-12-11 21:50</a>
+
+为啥是牛肉丸。。。</blockquote>
+牛肉丸估计是1.7魔兽战线动画里表现比较吸粉吧，又是日本从者，和秋叶线众人交流起来可能比较融洽？（回头和秋叶讨论一下作为惨遭背叛的悲剧女主角的感受<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">）
+
+伯爵则因为和罗亚在同一篇小说里同台竞技过，所以拉过来了，虽然不是一个世界观，小说里那个罗亚很菜，而且预告里罗亚并不认识伯爵。
+
+以后出人物应该也会考虑到角色之间台词互动的因素......都古和李书文啊，志贵和两仪式啊，学姐和麻婆啊，地球姬和达芬奇还有BB...之类的。
+
+突然有种这个游戏要成为幻想嘉年华精神续作的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
