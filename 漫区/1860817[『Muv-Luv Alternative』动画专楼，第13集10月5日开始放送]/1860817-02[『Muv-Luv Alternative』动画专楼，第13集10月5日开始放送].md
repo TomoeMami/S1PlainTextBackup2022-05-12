@@ -1861,3 +1861,18 @@ eh搜[âge] exogularity 01，有扫图，无汉化。
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  墨染樱@mt  
+##### 2156#       发表于 2022-12-11 16:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58886581&amp;ptid=1860817" target="_blank">墨染樱@mt 发表于 2022-12-11 15:59</a>
+我说的exogularity 01，不是cod，exogularity 01c91首发的。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上 ...</blockquote>
+更正一下，c92，涉及muv后续设定基本都在这本。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
