@@ -112,3 +112,17 @@
 
 女扒手那剧情有bug吧，现实里可以有科学方法验证那些钱有阿基拉的指纹在上面证明那些钱至少是他摸过的，科幻世界就无法验证了？
 
+
+
+*****
+
+####  redsouris  
+##### 418#       发表于 2022-12-11 08:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58879773&amp;ptid=1913585" target="_blank">性欲モンスター 发表于 2022-12-11 02:14</a>
+女扒手那剧情有bug吧，现实里可以有科学方法验证那些钱有阿基拉的指纹在上面证明那些钱至少是他摸过的，科 ...</blockquote>
+贫民窟出生的不懂 
+而且那是在无法地带，你回想一下开头打死抢钱都没人管，谁在乎如何证明钱是不是你的啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
