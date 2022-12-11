@@ -245,3 +245,16 @@ ios测试版可以玩了，不过好像是初版
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  这是闹球甚  
+##### 474#       发表于 2022-12-11 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58881594&amp;ptid=2052594" target="_blank">MiaoJi 发表于 2022-12-11 08:20</a>
+请问下这游戏只玩ios端有任何问题吗，感觉还是适合无聊的时候拿手机刷一把
+
+—— 来自 S1Fun ...</blockquote>
+能玩，不过手机端内容还不够多
+
