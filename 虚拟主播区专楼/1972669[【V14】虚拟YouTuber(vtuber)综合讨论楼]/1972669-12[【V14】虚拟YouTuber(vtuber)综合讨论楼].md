@@ -3721,3 +3721,29 @@ roko底了我也一点不奇怪就是了，有的人是事业狂，有的人已�
 syl
 冷静下来想想我已没有持续的精力搞卡牌游戏了，之前非常痴迷的mtga也早退坑了，不过联动卡可能会想着收一张。
 
+
+
+*****
+
+####  伊克路西安  
+##### 17956#       发表于 2022-12-11 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892059&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-12-11 20:06</a>
+
+roko底了我也一点不奇怪就是了，有的人是事业狂，有的人已经进入养老模式了
+
+syl</blockquote>
+联动卡有好几张
+
+主战者卡+所有联动卡
+[https://img.nga.178.com/attachme ... p5Z1aT3cS1hc-u0.jpg](https://img.nga.178.com/attachments/mon_202212/02/-4vc3nQ188-48p5Z1aT3cS1hc-u0.jpg)
+
+闪卡
+[https://img.nga.178.com/attachme ... nZ6dT3cS340-2c0.jpg](https://img.nga.178.com/attachments/mon_202212/02/-4vc3nQ188-5orrXnZ6dT3cS340-2c0.jpg)
+
+上次虹fes的入场特典
+[https://img.nga.178.com/attachme ... c1hZpT3cS176-oa.jpg](https://img.nga.178.com/attachments/mon_202209/19/-4vc3nQ8pdx-7c1hZpT3cS176-oa.jpg)
+
+这两张卡是一张卡，卡面不同
+[https://img.nga.178.com/attachme ... ri9ZuT3cS16o-o0.jpg](https://img.nga.178.com/attachments/mon_202212/08/-4vc3nQjo1-4ri9ZuT3cS16o-o0.jpg)
+

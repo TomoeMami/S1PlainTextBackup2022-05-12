@@ -14477,3 +14477,33 @@ EN04 《TO BE CONTINUED》</blockquote>
 看来运营脑回路奇怪的不止是拉拉，成员个人的也不遑多让啊，兔个人liveS席特典送报纸，给pay安排参 ...</blockquote>
 1万3千円的特典是当天的新闻报纸实属看不懂什么脑回路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都过于草台
 
+
+
+*****
+
+####  stygian  
+##### 10190#       发表于 2022-12-11 20:43
+
+pay子那个活动合作方一个大lo牌都没有，出席里面就一个正经做lo牌模特的其他都是各种地下偶像，看着就草台
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Enakina  
+##### 10191#       发表于 2022-12-11 20:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892904&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-11 20:39</a>
+1万3千円的特典是当天的新闻报纸实属看不懂什么脑回路洛丽塔摄影活动购买直签票的系统出bug，还有 ...</blockquote>
+S席还有个见送，可能那个比较值钱？
+
+*****
+
+####  ruffian  
+##### 10192#       发表于 2022-12-11 20:51
+
+live蓝光卖可香，动画bd卖可堇，又是经典既要又要<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+顺便斋藤是画着画着怠惰了吗？和前三卷简直不像一个人画的……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

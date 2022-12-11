@@ -4133,3 +4133,12 @@ neko-arc还行，我要的不是这个盾娘啊...
 
 就这么爱恶心月姬玩家？
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 420#       发表于 2022-12-11 20:44
+
+傻逼型月不会真觉得mb引流到了很多fgo玩家吧<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+

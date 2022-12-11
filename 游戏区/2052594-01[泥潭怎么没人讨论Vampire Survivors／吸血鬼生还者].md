@@ -296,3 +296,28 @@ ios测试版可以玩了，不过好像是初版
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  catabridge  
+##### 478#       发表于 2022-12-11 20:47
+
+<img src="https://img.saraba1st.com/forum/202212/11/204656ovvt3cxs39z0y2ot.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (311.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-11 20:46 上传
+
+<img src="https://img.saraba1st.com/forum/202212/11/204652wzzphcpjspny27gh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (463.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-11 20:46 上传
+
+求教，右边这个棺材怎么好像在墙外面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
