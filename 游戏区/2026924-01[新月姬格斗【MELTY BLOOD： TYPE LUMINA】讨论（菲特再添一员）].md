@@ -4016,3 +4016,16 @@ neko-arc还行，我要的不是这个盾娘啊...
 
 牛肉丸穿的太多了 是从大秦异闻带过去的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 410#       发表于 2022-12-11 20:04
+
+这牛若丸设计感觉还行？有点儿夜下女主的味道，有66取消。
+
+岩窟王感觉又是凑活角色，没啥特色
+
+这游戏的灵感是不是都在猫猫那里用完了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+

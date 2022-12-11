@@ -3707,3 +3707,17 @@ syl，觉得melt主要是人就是普通一温柔姐姐，生态位上已经有�
 
 —— 来自 motorola moto g(100), Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  CielChloe  
+##### 17955#       发表于 2022-12-11 20:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58879396&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-11 01:45</a>
+大家都在猜新人人选，我总觉得raika估计是走人了，本来想meltraika组男女cp再搭上roko稳了，现在roko得一 ...</blockquote>
+roko底了我也一点不奇怪就是了，有的人是事业狂，有的人已经进入养老模式了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl
+冷静下来想想我已没有持续的精力搞卡牌游戏了，之前非常痴迷的mtga也早退坑了，不过联动卡可能会想着收一张。
+
