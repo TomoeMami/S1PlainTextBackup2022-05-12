@@ -1814,3 +1814,50 @@ dxd指个路，那里有后续设定，看了下现在的游戏动画小说全�
 dxd指个路，那里有后续设定，看了下现在的游戏动画小说全是前传外传，我还听说过人类后面战翻了beta也接 ...</blockquote>
 谈到后续设定目前就是漫画最后，还有C100发的后续设定来着（跳跃非常大，什么拟态beta战术机，第7代战术机之类的），此外就是TSFIA（到2005年为止）
 
+
+
+*****
+
+####  墨染樱@mt  
+##### 2152#       发表于 2022-12-11 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58886282&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2022-12-11 15:36</a>
+谈到后续设定目前就是漫画最后，还有C100发的后续设定来着（跳跃非常大，什么拟态beta战术机，第7代战术 ...</blockquote>
+那本设定集首发是11年，21年出了通贩复刻而已
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  最后的法芙娜  
+##### 2153#       发表于 2022-12-11 15:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58886541&amp;ptid=1860817" target="_blank">墨染樱@mt 发表于 2022-12-11 15:57</a>
+
+那本设定集首发是11年，21年出了通贩复刻而已
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 S1Next-鹅版  ...</blockquote>
+不是那个codex，是后续又有了一些，而且那个codex在21年也加了些东西
+
+*****
+
+####  墨染樱@mt  
+##### 2154#       发表于 2022-12-11 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58883943&amp;ptid=1860817" target="_blank">牙狼GARO 发表于 2022-12-11 12:31</a>
+dxd指个路，那里有后续设定，看了下现在的游戏动画小说全是前传外传，我还听说过人类后面战翻了beta也接 ...</blockquote>
+eh搜[âge] exogularity 01，有扫图，无汉化。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  墨染樱@mt  
+##### 2155#       发表于 2022-12-11 15:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58886559&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2022-12-11 15:58</a>
+不是那个codex，是后续又有了一些，而且那个codex在21年也加了些东西</blockquote>
+我说的exogularity 01，不是cod，exogularity 01c91首发的。
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
