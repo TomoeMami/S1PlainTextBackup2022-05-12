@@ -4773,3 +4773,14 @@ wwe线下联动吧。
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 3449#         楼主| 发表于 2022-12-11 16:36
+
+完了，。今晚没有什么联动
+
+还是孵蛋，真就要转型宝可梦全职主播了
+
