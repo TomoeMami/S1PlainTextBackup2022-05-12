@@ -3975,3 +3975,26 @@ neko-arc还行，我要的不是这个盾娘啊...
 
 哪来的脸把这俩放封面上？类型月亮你死不死啊
 
+
+
+*****
+
+####  黑上シグマ  
+##### 405#       发表于 2022-12-11 19:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这牛肉丸还和谐了，穿了内衣
+
+*****
+
+####  Marro  
+##### 406#       发表于 2022-12-11 19:52
+
+为什么一开始不整一个fate格斗呢
+
+*****
+
+####  alucardcz  
+##### 407#       发表于 2022-12-11 19:52
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这牛肉丸怎么还穿衣服的 丢人
+
