@@ -9117,3 +9117,17 @@ FGO这帮妖魔鬼怪就属于什么时间段出场都不稀奇了...可能以�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">还不如翻过来是个枪给我来个小太阳刺激刺激呢
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3821#       发表于 2022-12-12 00:25
+
+<blockquote>引用第3819楼alucardcz于2022-12-11 23:28发表的  :
+
+萌新久违的单抽彩圈。。然后翻过来是tm的术。。后面也不用看了还不如翻过来是个枪给我来个小太阳刺激刺激......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧，羡慕
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
