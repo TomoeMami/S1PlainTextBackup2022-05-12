@@ -234,3 +234,14 @@ ios测试版可以玩了，不过好像是初版
 
 然后今天又有问题了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">又获得不了成就了
 
+
+
+*****
+
+####  MiaoJi  
+##### 473#       发表于 2022-12-11 08:20
+
+请问下这游戏只玩ios端有任何问题吗，感觉还是适合无聊的时候拿手机刷一把
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
