@@ -378,3 +378,24 @@ ios测试版可以玩了，不过好像是初版
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  不可避免  
+##### 484#       发表于 2022-12-11 21:53
+
+卡牌的复活和提拉米苏的复活还有自带的复活，用掉后都能叠属性吗？
+
+*****
+
+####  kuglv  
+##### 485#       发表于 2022-12-11 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58894602&amp;ptid=2052594" target="_blank">菜菜菜菜 发表于 2022-12-11 21:45</a>
+
+多谢！类似提拉米苏，这种如果消失了，如果有超 6 个的被动的话，多的被动会占位吗？还是又能多拿一个？
+
+ ...</blockquote>
+这个就不清楚了，我没有试过，不过我觉得是会自动占位
+
