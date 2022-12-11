@@ -4072,3 +4072,36 @@ neko-arc还行，我要的不是这个盾娘啊...
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  弁天  
+##### 415#       发表于 2022-12-11 20:30
+
+真忒么以为玩meltyblood的很爱樱井光拉的那坨屎呢？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 416#       发表于 2022-12-11 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892017&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2022-12-11 20:04</a>
+
+这牛若丸设计感觉还行？有点儿夜下女主的味道，有66取消。
+
+岩窟王感觉又是凑活角色，没啥特色</blockquote>
+岩窟王超杀这个不是宝具啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  gpx234mqx  
+##### 417#       发表于 2022-12-11 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892271&amp;ptid=2026924" target="_blank">八木沼了一 发表于 2022-12-11 20:13</a>
+
+好，我看看他还敢不敢再碰Roa对伯爵的剧情，到时候再炎上就好玩了
+
+看了下，原来pv里已经玩起来了， ...</blockquote>
+月姫罗亚又不认识伯爵，而且没仇啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
