@@ -4350,3 +4350,33 @@ mb这还有不小的前作基础，就可劲毁<img src="https://static.saraba1s
 
 看来真炎上了
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 438#       发表于 2022-12-12 00:13
+
+哈哈哈。幸好我没买。什么都他妈能被fgo污染
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  山岚夜雨  
+##### 439#       发表于 2022-12-12 00:19
+
+我倒是没意见啦，毕竟是免费更新，能不能把前作就有的两仪式给弄出来
+
+*****
+
+####  查马丁魔术师  
+##### 440#       发表于 2022-12-12 00:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58898333&amp;ptid=2026924" target="_blank">ParadiseMartyr 发表于 2022-12-12 00:13</a>
+
+哈哈哈。幸好我没买。什么都他妈能被fgo污染
+
+—— 来自 S1Fun</blockquote>
+这个纯属武内脑抽思维+1，两边都不讨好，只有被喷....
+
