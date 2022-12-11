@@ -258,3 +258,25 @@ ios测试版可以玩了，不过好像是初版
 —— 来自 S1Fun ...</blockquote>
 能玩，不过手机端内容还不够多
 
+
+
+*****
+
+####  菜菜菜菜  
+##### 475#       发表于 2022-12-11 18:44
+
+这游戏被动满了六个再捡被动会发生什么？
+
+—— 来自 deltainno DT2002C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  kuglv  
+##### 476#       发表于 2022-12-11 18:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58890594&amp;ptid=2052594" target="_blank">菜菜菜菜 发表于 2022-12-11 18:44</a>
+这游戏被动满了六个再捡被动会发生什么？
+
+—— 来自 deltainno DT2002C, Android 11上的 S1Next-鹅版 v2.5 ...</blockquote>
+突破上限变成7个被动，但是必须要你格子满了再捡才能突破上限，先捡了再升级拿被动是不行的
+
