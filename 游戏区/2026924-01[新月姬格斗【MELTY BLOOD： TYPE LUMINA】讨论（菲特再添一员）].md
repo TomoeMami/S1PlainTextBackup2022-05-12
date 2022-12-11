@@ -4603,3 +4603,23 @@ mb这还有不小的前作基础，就可劲毁<img src="https://static.saraba1s
 
 嘻嘻，求仁得仁咯
 
+
+
+*****
+
+####  Booorunestud  
+##### 447#       发表于 2022-12-12 03:24
+
+一员？三员！
+来点月姬格斗原作截图
+<img src="https://p.sda1.dev/8/2e378530ef8f99838e8ce0b892505907/CMP_20221212032445524.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zzp05402  
+##### 448#       发表于 2022-12-12 03:44
+
+引流不是问题但你至少给一个非fgo的角色啊，不要只有fgo啊，平衡一下嘛
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
