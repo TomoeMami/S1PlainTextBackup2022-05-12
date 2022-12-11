@@ -9106,3 +9106,14 @@ FGO这帮妖魔鬼怪就属于什么时间段出场都不稀奇了...可能以�
 
 突然有种这个游戏要成为幻想嘉年华精神续作的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 3820#       发表于 2022-12-11 23:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">萌新久违的单抽彩圈。。然后翻过来是tm的术。。后面也不用看了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">还不如翻过来是个枪给我来个小太阳刺激刺激呢
+

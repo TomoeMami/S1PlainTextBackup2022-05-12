@@ -369,3 +369,31 @@ boss战继续追加高难
 
 エレン不是已经有个火属性SSR了么。。怎么看起来送的也是火<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 183#         楼主| 发表于 2022-12-11 23:32
+
+<img src="https://img.saraba1st.com/forum/202212/11/233015s9l9tl5slnbu95fx.jpg" referrerpolicy="no-referrer">
+
+<strong>Fjh5isXVIAAlAqD.jpg</strong> (287.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-11 23:30 上传
+
+新卡预告。
+
+<img src="https://img.saraba1st.com/forum/202212/11/233202glnbyo8lbva6vba8.png" referrerpolicy="no-referrer">
+
+<strong>Screenshot 2022-12-11 at 23-31-09 (1) 【公式】ドルフィンウェーブ│好評配信中！ (.png</strong> (72.83 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-11 23:32 上传
+
+顺便官方还转推了机设画师
+[https://twitter.com/ishidaval](https://twitter.com/ishidaval)
+
