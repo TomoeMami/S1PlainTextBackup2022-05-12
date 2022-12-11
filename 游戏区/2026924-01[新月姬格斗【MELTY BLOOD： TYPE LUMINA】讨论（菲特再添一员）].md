@@ -4029,3 +4029,46 @@ neko-arc还行，我要的不是这个盾娘啊...
 
 这游戏的灵感是不是都在猫猫那里用完了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  八木沼了一  
+##### 411#       发表于 2022-12-11 20:13
+
+ 本帖最后由 八木沼了一 于 2022-12-11 20:20 编辑 
+
+好，我看看他还敢不敢再碰Roa对伯爵的剧情，到时候再炎上就好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+看了下，原来pv里已经玩起来了，嘻嘻
+
+*****
+
+####  茴香蚪的马甲  
+##### 412#       发表于 2022-12-11 20:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58891881&amp;ptid=2026924" target="_blank">蓮華 发表于 2022-12-11 19:59</a>
+
+还以为怎么都要轮到魔夜角色或者阿良句之类的了，呵呵
+
+论坛助手,iPhone</blockquote>
+阿良句估计得等月姬R里线先出？至于莲、白莲、希翁这些，我估计得MB新作才能有了。
+
+*****
+
+####  whzfjd  
+##### 413#       发表于 2022-12-11 20:19
+
+穿衣服就没意思了
+
+*****
+
+####  蓮華  
+##### 414#       发表于 2022-12-11 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892333&amp;ptid=2026924" target="_blank">茴香蚪的马甲 发表于 2022-12-11 20:17</a>
+阿良句估计得等月姬R里线先出？至于莲、白莲、希翁这些，我估计得MB新作才能有了。 ...</blockquote>
+妹妹在表线也没动武嘛，也不是出了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
