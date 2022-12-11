@@ -9074,3 +9074,16 @@ CHOCO老师有点巨魔了<img src="https://static.saraba1st.com/image/smiley/fa
 
 ...感觉有点牵强了，不过PV最后举起敌人爆发火柱那一招真的很像三神技之弍。
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3818#       发表于 2022-12-11 22:21
+
+其实我感觉恰逢12.8魔法使之夜NS版发售，MBTL的DLC有珠或者橙子就非常好<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+不过姑且考虑到蘑菇可能想把MBTL的剧情控制在一个具体的时间段内（所以紫苑利兹就没能出场），那么魔夜众登场的时候也得和青子保持统一年龄，那造型变化应该不小，说不定会触及到尚在虚数空间的魔夜2的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">不出也说得过去。
+
+FGO这帮妖魔鬼怪就属于什么时间段出场都不稀奇了...可能以后也会是DLC的主力军，慢慢来吧，希望不要太厚此薄彼...
+

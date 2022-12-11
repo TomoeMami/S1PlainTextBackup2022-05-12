@@ -4229,3 +4229,19 @@ mb这还有不小的前作基础，就可劲毁<img src="https://static.saraba1s
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有句讲句你上牛肉丸还不如上武藏，武藏可以说她是能力发作穿越过来的，牛肉丸是什么鬼啦
 
+
+
+*****
+
+####  gpx234mqx  
+##### 429#       发表于 2022-12-11 22:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58894348&amp;ptid=2026924" target="_blank">黑上シグマ 发表于 2022-12-11 21:34</a>
+
+有句讲句你上牛肉丸还不Y ...</blockquote>
+又是世界本身召唤呗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
+
+因为不是靠召唤术式，废狗谁都能来<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+牛肉丸莫名其妙，还不如上酒吞茨木这些鬼<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
