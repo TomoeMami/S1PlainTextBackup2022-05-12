@@ -3693,3 +3693,17 @@ Ver Vermillion——Nuka，韩国以UT内容起家的游戏频道转生个人势
 
 syl，觉得melt主要是人就是普通一温柔姐姐，生态位上已经有修女了，不是说有黑料吼...
 
+
+
+*****
+
+####  伊克路西安  
+##### 17954#       发表于 2022-12-11 18:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58867913&amp;ptid=1972669" target="_blank">CielChloe 发表于 2022-12-10 17:16</a>
+最近好热闹
+我反正一直觉得V因为中之人因素没法真正从同一起跑线开始是没办法的事，众人眼里爆红的 ...</blockquote>
+莎乐美联动的sve第三弹快发售了
+
+—— 来自 motorola moto g(100), Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
