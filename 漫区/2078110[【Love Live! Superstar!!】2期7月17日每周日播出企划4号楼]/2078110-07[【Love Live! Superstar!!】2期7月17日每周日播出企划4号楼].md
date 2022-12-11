@@ -14312,3 +14312,15 @@ yura版本跟不上要退环境了吗
 
 曲子不上没办法，只能看过年有没希望了
 
+
+
+*****
+
+####  starring  
+##### 10180#       发表于 2022-12-11 17:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58888229&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-12-11 16:52</a>
+
+曲子不上没办法，只能看过年有没希望了</blockquote>
+人多还有站位的原因，3rd看不到两人有多少互动
+
