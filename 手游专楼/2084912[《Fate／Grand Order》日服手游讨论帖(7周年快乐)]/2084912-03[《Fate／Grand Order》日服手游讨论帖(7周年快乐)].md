@@ -9030,3 +9030,14 @@ GBFVS的职业选手应该不会专程去玩GBF本体吧...
 妖兰的画师CHOCO老师给2.6画了张纪念图...不过哥布林拐卖美少女的场面真的有纪念的必要吗</blockquote>
 CHOCO老师有点巨魔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zooandtoo  
+##### 3815#       发表于 2022-12-11 21:12
+
+可牛若这动作跟手游差得有点远。。
+
+伯爵的动作倒是有种老素材利用感
+
