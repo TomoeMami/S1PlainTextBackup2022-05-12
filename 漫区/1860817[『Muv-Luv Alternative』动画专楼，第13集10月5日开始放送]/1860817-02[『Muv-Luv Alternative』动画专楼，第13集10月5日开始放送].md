@@ -1765,3 +1765,18 @@ Blu-ray BOX III,IV特典
 
 虽然但是，冬马！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  牙狼GARO  
+##### 2148#       发表于 2022-12-11 12:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58703610&amp;ptid=1860817" target="_blank">墨染樱@mt 发表于 2022-12-1 11:34</a>
+a01全员00单元候补，按后续设定00单元都成一个种族了
+
+—— 来自 HUAWEI HMA-AL00, Android 10上 ...</blockquote>
+dxd指个路，那里有后续设定，看了下现在的游戏动画小说全是前传外传，我还听说过人类后面战翻了beta也接触了硅基生物但完全打不过近乎被圈养的后续
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
