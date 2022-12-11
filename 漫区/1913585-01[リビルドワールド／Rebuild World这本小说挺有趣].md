@@ -126,3 +126,23 @@
 
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  kiralzb  
+##### 419#       发表于 2022-12-11 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58872062&amp;ptid=1913585" target="_blank">redsouris 发表于 2022-12-10 20:20</a>
+
+大流通运输车队护卫任务，
+
+有新人女角色出场下一个受害者，
+
+亮点之一是去了更东部的城市买了个能 ...</blockquote>
+进度挺快的，东部前线是除了AI外的纸面最强战力了，主角的成长本来就远超阿尔法的预测，这过不了多久就开始最终任务了啊
+
+而且主角好像不走强化改造流，之前以为会靠回复药飞升，结果都快吃药吃死了直接回厂复原
+
+现在跟多的是靠装备和技术在拼的感觉，这次看看真正的超人是什么水平
+
