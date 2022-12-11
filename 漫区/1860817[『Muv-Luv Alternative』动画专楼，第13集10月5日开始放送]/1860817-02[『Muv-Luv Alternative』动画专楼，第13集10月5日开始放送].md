@@ -1876,3 +1876,14 @@ eh搜[âge] exogularity 01，有扫图，无汉化。
 
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  牙狼GARO  
+##### 2157#       发表于 2022-12-11 16:14
+
+谢谢楼上各位了，我去搜搜看
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
