@@ -4282,3 +4282,12 @@ mb这还有不小的前作基础，就可劲毁<img src="https://static.saraba1s
 算了吧，别引流了，痴心妄想，真不是一路人</blockquote>
 确实，现在很多日本人也觉得是想给MBTL引流FGO的玩家，但这想法纯属武内蘑菇的又一次脑子有泡找喷，手游玩家大量不碰游戏机的....日本大量老任玩家都不碰PC和PS游戏的...引个鬼啊
 
+
+
+*****
+
+####  whzfjd  
+##### 434#       发表于 2022-12-11 23:11
+
+也别想得这么绝缘，FGO 街机不是挺滋润的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
