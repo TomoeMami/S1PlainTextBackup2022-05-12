@@ -4380,3 +4380,24 @@ mb这还有不小的前作基础，就可劲毁<img src="https://static.saraba1s
 —— 来自 S1Fun</blockquote>
 这个纯属武内脑抽思维+1，两边都不讨好，只有被喷....
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 441#       发表于 2022-12-12 00:33
+
+有没有楼友给点炎上句子我也去发
+
+*****
+
+####  Porsche  
+##### 442#       发表于 2022-12-12 00:41
+
+今天的大会是真的战得一个酣畅淋漓从开始高潮到结尾<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+然后惯例的结尾游戏更新消息环节现场和群里都已经把期待度提到最高了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+结果鸭音上来就提了一句是你们绝对没猜到的两个角色，群里还在往惊喜的方向去幻想<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+到了pv出来的时候，整个群都沉默了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+总结五个字，型月**
+
