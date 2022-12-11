@@ -282,3 +282,16 @@ Screenshot_2022-12-10-17-21-50-91_a252b927494330cdc2c8ba3b3f952e5e.jpg
 你这…？
 给我的感觉就是几个编剧不知道怎么让一个本就有战斗觉悟的热血青年有新的成长
 
+
+
+*****
+
+####  游蜓  
+##### 820#       发表于 2022-12-11 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58875714&amp;ptid=2040765" target="_blank">深渊萃取 发表于 2022-12-10 23:06</a>
+就是必须垫初始这点意义不明，泽塔天天直接变德尔塔天爪，我没记错的话开心超人变真理是插闪耀那根U盘变 ...</blockquote>
+开心超人的闪耀和盖亚至高一样，设定都是耗能大时间短，一般都是切出来一波带走的，先用基础摸对面实力和技能 然后开大秒掉
+
+—— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
