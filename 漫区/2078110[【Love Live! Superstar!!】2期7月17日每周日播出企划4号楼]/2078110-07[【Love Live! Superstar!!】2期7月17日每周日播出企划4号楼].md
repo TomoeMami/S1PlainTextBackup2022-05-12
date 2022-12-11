@@ -14455,3 +14455,25 @@ EN04 《TO BE CONTINUED》</blockquote>
 
 啊居然卖可香？
 
+
+
+*****
+
+####  ViyViy  
+##### 10188#       发表于 2022-12-11 20:37
+
+ 本帖最后由 ViyViy 于 2022-12-11 20:39 编辑 
+
+有repo说，鲤鱼今天给pay整理……裤袜？嗯？？？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  starring  
+##### 10189#       发表于 2022-12-11 20:39
+
+ 本帖最后由 starring 于 2022-12-11 20:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892238&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2022-12-11 20:12</a>
+
+看来运营脑回路奇怪的不止是拉拉，成员个人的也不遑多让啊，兔个人liveS席特典送报纸，给pay安排参 ...</blockquote>
+1万3千円的特典是当天的新闻报纸实属看不懂什么脑回路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都过于草台
+

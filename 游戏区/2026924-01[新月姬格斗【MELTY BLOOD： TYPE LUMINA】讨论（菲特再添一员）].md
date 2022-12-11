@@ -4105,3 +4105,31 @@ neko-arc还行，我要的不是这个盾娘啊...
 看了下，原来pv里已经玩起来了， ...</blockquote>
 月姫罗亚又不认识伯爵，而且没仇啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  茴香蚪的马甲  
+##### 418#       发表于 2022-12-11 20:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892492&amp;ptid=2026924" target="_blank">蓮華 发表于 2022-12-11 20:22</a>
+
+妹妹在表线也没动武嘛，也不是出了
+
+论坛助手,iPhone</blockquote>
+妹妹的底细毕竟很多粉丝早都知道了，但阿良句作为谜底尚未揭晓的重制版原创角色，肯定要捂得更严实一些。
+
+*****
+
+####  八木沼了一  
+##### 419#       发表于 2022-12-11 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892703&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-11 20:31</a>
+
+月姫罗亚又不认识伯爵，而且没仇啊</blockquote>
+呵呵，我看是忘记伯爵drama炎上那会急吼吼出来灭火彻底分开月姬和fate的丑态了
+
+在开场对话反复试探的样子真几把贱
+
+就这么爱恶心月姬玩家？
+

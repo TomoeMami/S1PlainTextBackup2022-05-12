@@ -8992,3 +8992,29 @@ wow,真的是无限池连发
 
 神TM牛肉丸和狛爵参战月姬格斗，武内绘
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3812#       发表于 2022-12-11 20:32
+
+型月正统在MB<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+毕竟型月旗下最知名的格斗游戏也就是melty blood系列了，在此拓展参战人物也很正常。
+
+月姬R出场的战斗能力已知的新人（马里奥，伏拉夫，诺艾尔。阿良句医生后面应该有戏份，游戏里做技能可能会剧透），和与世界观不冲突的MB系列老人（arc猫、青子、红摩、都古。教授生死不明，紫苑没开个人线，他们估计参战得等FGO这边登场吧），基本上都到齐了，之后再出新人物，要不像以前的MB一样加入原创新路线（等FGO告一段落，蘑菇可能有闲心会写几笔吧...），要不就只能从TM旗下其他IP的高人气角色里挑人，恰好FGO这边个个都是人气王，战斗模组基本上也是现成的，既能省事，还可引流，岂不美哉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+突然就感觉有盼头了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 3813#       发表于 2022-12-11 20:39
+
+不过FGO为了庆祝MBTL联动，竟然出了呆毛王和牛肉丸的PU池，这个我是真没想到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+好歹出个伯爵限定池啊，这TM啥？给刚入坑的MBTL新人抽吗？难不成指望FTG能给一个氪金手游引流？<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+GBFVS的职业选手应该不会专程去玩GBF本体吧...
+
