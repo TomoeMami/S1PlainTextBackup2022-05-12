@@ -295,3 +295,15 @@ Screenshot_2022-12-10-17-21-50-91_a252b927494330cdc2c8ba3b3f952e5e.jpg
 
 —— 来自 Xiaomi M2011K2C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  深渊萃取  
+##### 821#       发表于 2022-12-11 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58885435&amp;ptid=2040765" target="_blank">游蜓 发表于 2022-12-11 14:16</a>
+
+开心超人的闪耀和盖亚至高一样，设定都是耗能大时间短，一般都是切出来一波带走的，先用基础摸对面实力和 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">基础出场被揍到闪灯不是本末倒置了吗，开心超人大部分时间都是伤没养好下个怪到了，非要切基础挨揍
+
