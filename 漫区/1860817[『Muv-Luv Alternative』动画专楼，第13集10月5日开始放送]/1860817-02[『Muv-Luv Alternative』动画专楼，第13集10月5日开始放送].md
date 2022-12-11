@@ -1780,3 +1780,15 @@ dxd指个路，那里有后续设定，看了下现在的游戏动画小说全�
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  半分宅  
+##### 2149#       发表于 2022-12-11 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58883943&amp;ptid=1860817" target="_blank">牙狼GARO 发表于 2022-12-11 00:31</a>
+
+dxd指个路，那里有后续设定，看了下现在的游戏动画小说全是前传外传，我还听说过人类后面战翻了beta也接 ...</blockquote>
+漫画最终章是几十年后，人类清光了太阳系内的BETA，正准备折跃舰队去和造物主好好聊聊。被圈养的说法不知道是哪来的。
+
