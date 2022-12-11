@@ -100,3 +100,15 @@
 
 白色的数码宝贝，一定不是伽马兽吧😄
 
+
+
+*****
+
+####  天光逸  
+##### 401#       发表于 2022-12-12 00:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58896832&amp;ptid=2018235" target="_blank">新HGCG 发表于 2022-12-11 23:06</a>
+
+问题是主线啥时候推进啊</blockquote>
+就是单元剧动画了，虽然主线确实推得比q娃还慢233
+

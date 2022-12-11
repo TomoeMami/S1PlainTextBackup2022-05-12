@@ -4401,3 +4401,196 @@ mb这还有不小的前作基础，就可劲毁<img src="https://static.saraba1s
 
 总结五个字，型月**
 
+
+
+*****
+
+####  查马丁魔术师  
+##### 443#       发表于 2022-12-12 00:42
+
+这弹是最后一次免费更新，明年估计会有主线更新那种的大幅度更新吧，我估计三月日本EVO公布，付费DLC
+
+*****
+
+####  cuive  
+##### 444#       发表于 2022-12-12 00:44
+
+<img src="https://img.saraba1st.com/forum/202212/12/004325w6116vnje50ju35v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>A1B8DDA5-81FB-4014-A0CE-48DCE85B6353.jpeg</strong> (329.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004326gplinjd4zi2n1f2j.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E7CD23DF-B3B5-471E-8ACE-2FD798AAF549.jpeg</strong> (365.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004326uxcwezdbmszd030c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>27074219-2B16-4677-BE51-8533BC91EBBE.jpeg</strong> (418.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004328m2jrdi4nvuydxfyi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>7558A86C-7878-47EA-B551-E089A6BC6EEF.jpeg</strong> (384.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004329pibi4tiutodrodyn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>24CCC600-08ED-4452-9FB2-65120594B35B.jpeg</strong> (344.6 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004329afoi7zrcg61eioxf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>C8CF51F6-2257-4C85-B6F0-798FD4F7CC96.jpeg</strong> (95.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004330z168gx6xsf6qwmzr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>691CB536-0C72-46F5-8DEE-60A6C1DA8E79.jpeg</strong> (122.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004332wgl8d7arssry7gs4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>CB0BB123-84AB-4A33-9984-21423420B31A.jpeg</strong> (580.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004332bfzvfwqlfwnilnnn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>8D307093-4394-42D6-8B90-693369D7105B.jpeg</strong> (263.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004333mdem00jmv3xvjm9e.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>13332315-E2B9-4521-88C0-EB9FCDE80241.jpeg</strong> (110.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004334unoi8z4mxml8m4xm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>1340FE7B-0900-47B6-A8FB-43AC35E50C6A.jpeg</strong> (301.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004334w1980e8270kwwrzn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>74A7D9F7-E0F3-4ADD-841F-1F4937AFE935.jpeg</strong> (223.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004335lhjrrcwzh96q4hih.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>9032DF01-C488-4BA1-AB06-1E79525F47A3.jpeg</strong> (138.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004336fzozptpdvxoxdrd0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>83DC5F63-7332-4DAB-80BF-DDE86ED51892.jpeg</strong> (267.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004336s9u5ou0xm5na5dmu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>415F5194-7F2F-49EF-923A-E7510095F52C.jpeg</strong> (166.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004338ns1b10tzukrjaebb.png" referrerpolicy="no-referrer">
+
+<strong>F2C9B6A5-1EFB-4D6A-9ECB-8DFBD6F3156B.png</strong> (421.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004339fzvwjfek73ej2wwu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>2B3829A4-C26E-4C57-90D5-5CBF89EE8536.jpeg</strong> (391.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004339pxn2s2cq66ce1uux.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>08062185-3633-47A4-A1A9-61CFB5A6F5C8.jpeg</strong> (260.55 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004340zzcn7hx7g2gp0itx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>3A06E918-6D01-4E5C-A570-405040C68F37.jpeg</strong> (90.78 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004340od400gup0jj7kk03.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>E4D7D37C-37FF-44F5-9E5C-B6C1F5EFF124.jpeg</strong> (73.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/004341mslgu31oo19u59zx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>78296673-5B84-487F-A7CA-9656FC5FBEAF.jpeg</strong> (65.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 00:43 上传
+
+*****
+
+####  零壹贰叁  
+##### 445#       发表于 2022-12-12 00:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说型月真的脑子不好
+要出mb续作也应该等主线出完
+初版真的就是个半成品，剧情一坨屎
+然后慢慢做补了个剧透版更好一点的b路线
+虽然知道出fgo是为了拉人玩游戏，但是真的挺烂的，而且格斗游戏这东西寿命没这么长的，真的能熬到里线+新歌月然后达到mbaacc的剧情水平吗
+
