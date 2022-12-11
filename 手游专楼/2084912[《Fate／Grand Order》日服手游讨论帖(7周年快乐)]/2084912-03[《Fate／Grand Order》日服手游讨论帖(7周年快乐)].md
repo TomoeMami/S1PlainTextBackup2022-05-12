@@ -9018,3 +9018,15 @@ wow,真的是无限池连发
 
 GBFVS的职业选手应该不会专程去玩GBF本体吧...
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 3814#       发表于 2022-12-11 20:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58869255&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-10 18:26</a>
+
+妖兰的画师CHOCO老师给2.6画了张纪念图...不过哥布林拐卖美少女的场面真的有纪念的必要吗</blockquote>
+CHOCO老师有点巨魔了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
