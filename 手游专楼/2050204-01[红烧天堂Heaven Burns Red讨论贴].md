@@ -29,3 +29,24 @@
 
 —— 来自 OnePlus KB2000, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
+
+
+*****
+
+####  鸯凰麟翔子  
+##### 849#       发表于 2022-12-11 17:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58881901&amp;ptid=2050204" target="_blank">蕾丝 发表于 2022-12-11 09:22</a>
+
+日服能更中文就好了，我就下回来再玩一阵
+
+—— 来自 OnePlus KB2000, Android 12上的 S1Next-鹅 ...</blockquote>
+已经确定日服转国际服了，三语言同服
+
+*****
+
+####  alucardcz  
+##### 850#       发表于 2022-12-11 17:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有中文有啥区别 这游戏是不是摆烂了 每个月一次活动  每天几分钟解决 异时层也懒得打了 活动刷完就挂珠宝迷宫。。。。主线也不存在了
+
