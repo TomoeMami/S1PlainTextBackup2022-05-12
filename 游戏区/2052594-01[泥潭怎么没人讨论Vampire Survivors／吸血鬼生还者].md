@@ -353,3 +353,28 @@ ios测试版可以玩了，不过好像是初版
 求教，右边这个棺材怎么好像在墙外面</blockquote>
 贴着左面墙慢慢往下走，有个镜子传送进去
 
+
+
+*****
+
+####  菜菜菜菜  
+##### 482#       发表于 2022-12-11 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58890653&amp;ptid=2052594" target="_blank">kuglv 发表于 2022-12-11 18:48</a>
+突破上限变成7个被动，但是必须要你格子满了再捡才能突破上限，先捡了再升级拿被动是不行的 ...</blockquote>
+多谢！类似提拉米苏，这种如果消失了，如果有超 6 个的被动的话，多的被动会占位吗？还是又能多拿一个？
+
+—— 来自 deltainno DT2002C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  藤井紫  
+##### 483#       发表于 2022-12-11 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58894602&amp;ptid=2052594" target="_blank">菜菜菜菜 发表于 2022-12-11 21:45</a>
+多谢！类似提拉米苏，这种如果消失了，如果有超 6 个的被动的话，多的被动会占位吗？还是又能多拿一个？
+ ...</blockquote>
+占
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
