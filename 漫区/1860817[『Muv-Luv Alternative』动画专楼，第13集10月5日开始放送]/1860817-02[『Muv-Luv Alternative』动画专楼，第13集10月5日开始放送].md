@@ -1792,3 +1792,25 @@ dxd指个路，那里有后续设定，看了下现在的游戏动画小说全�
 dxd指个路，那里有后续设定，看了下现在的游戏动画小说全是前传外传，我还听说过人类后面战翻了beta也接 ...</blockquote>
 漫画最终章是几十年后，人类清光了太阳系内的BETA，正准备折跃舰队去和造物主好好聊聊。被圈养的说法不知道是哪来的。
 
+
+
+*****
+
+####  最后的法芙娜  
+##### 2150#       发表于 2022-12-11 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58883943&amp;ptid=1860817" target="_blank">牙狼GARO 发表于 2022-12-11 12:31</a>
+
+dxd指个路，那里有后续设定，看了下现在的游戏动画小说全是前传外传，我还听说过人类后面战翻了beta也接 ...</blockquote>
+这个大概是因为当初原作结尾渲染beta在宇宙里数量有多么多，还有夕乎评价最后一次作战“也就给人类几十年时间”。到了漫画连载到结尾，直接就钦定人类几十年就扫荡完太阳系里的beta,飞龙骑脸去beta主人老家。
+
+*****
+
+####  最后的法芙娜  
+##### 2151#       发表于 2022-12-11 15:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58883943&amp;ptid=1860817" target="_blank">牙狼GARO 发表于 2022-12-11 12:31</a>
+
+dxd指个路，那里有后续设定，看了下现在的游戏动画小说全是前传外传，我还听说过人类后面战翻了beta也接 ...</blockquote>
+谈到后续设定目前就是漫画最后，还有C100发的后续设定来着（跳跃非常大，什么拟态beta战术机，第7代战术机之类的），此外就是TSFIA（到2005年为止）
+
