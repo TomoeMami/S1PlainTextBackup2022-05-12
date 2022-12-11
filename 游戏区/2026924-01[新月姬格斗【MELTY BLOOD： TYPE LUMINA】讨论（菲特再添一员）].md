@@ -4142,3 +4142,31 @@ neko-arc还行，我要的不是这个盾娘啊...
 
 傻逼型月不会真觉得mb引流到了很多fgo玩家吧<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 421#       发表于 2022-12-11 21:06
+
+转向型月格斗也就算了，这是要转fgo格斗吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  医生狼多  
+##### 422#       发表于 2022-12-11 21:07
+
+《月姬格斗 TYPE LUMINA》12.15免费更新要点整理：
+
+· 新可用角色「牛若丸」与「岩窟王」参战，追加对应的角色剧情与对战场地
+
+· 单人模式“剧情”添加新Boss Rush内容，剧情由奈须蘑菇撰写，体量为系列最大规模
+
+· 加入《月姬格斗 Actress Again》重编版BGM（共10首）
+
+· 为所有角色加入4种全新配色
+
+· 新增加530种称号
+
+· 添加法文、西班牙文、巴西葡萄牙文字幕支持
+

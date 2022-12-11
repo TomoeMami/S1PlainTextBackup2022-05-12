@@ -330,3 +330,26 @@ ios测试版可以玩了，不过好像是初版
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我永远喜欢大蒜
 
+
+
+*****
+
+####  genki  
+##### 480#       发表于 2022-12-11 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58893073&amp;ptid=2052594" target="_blank">catabridge 发表于 2022-12-11 20:47</a>
+
+求教，右边这个棺材怎么好像在墙外面</blockquote>
+有个发光的镜子是传送门，应该是里面的那个
+
+
+
+*****
+
+####  otakun  
+##### 481#       发表于 2022-12-11 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58893073&amp;ptid=2052594" target="_blank">catabridge 发表于 2022-12-11 20:47</a>
+求教，右边这个棺材怎么好像在墙外面</blockquote>
+贴着左面墙慢慢往下走，有个镜子传送进去
+
