@@ -3756,3 +3756,26 @@ syl</blockquote>
 
 月之应该这两天？就能金盾了，感觉真的过了好长一段时间，难得开个纪念回就好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 17958#       发表于 2022-12-12 14:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这年头真的什么东西都可以动画化啊
+
+*****
+
+####  渡鸦骑士  
+##### 17959#       发表于 2022-12-12 14:19
+
+那个估计也就一个PV长度吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  渡鸦骑士  
+##### 17960#       发表于 2022-12-12 14:19
+
+风怒
+
