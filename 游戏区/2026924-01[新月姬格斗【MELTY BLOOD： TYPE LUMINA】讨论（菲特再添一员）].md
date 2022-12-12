@@ -4736,3 +4736,12 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 月姬re下部到时候出了难道还能不买<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zakki  
+##### 459#       发表于 2022-12-12 10:45
+
+说白了，你出一个呆毛大家都笑笑调侃下，出一个马修倒也能忍，出一个伯爵更是在炎上边缘试探，出牛若丸就是纯纯的找骂了
+

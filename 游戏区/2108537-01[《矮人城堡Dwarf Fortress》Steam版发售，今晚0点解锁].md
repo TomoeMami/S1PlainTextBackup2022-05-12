@@ -776,3 +776,12 @@ losing is fun！觉得没救了就开退休，让小人自己解决然后顺便�
 
 没中文的话我还是继续观望一段时间再说。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  luciffer  
+##### 83#       发表于 2022-12-12 10:44
+
+感觉最大的变化是草耐吃了。我十来头大动物吃了一年居然不需要换草场
+
