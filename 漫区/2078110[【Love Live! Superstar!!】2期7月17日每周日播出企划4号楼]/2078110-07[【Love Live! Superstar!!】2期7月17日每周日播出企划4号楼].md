@@ -15016,3 +15016,12 @@ mini专有新歌吗？</blockquote>
 
 札幌跟大阪talk都在live后一天，不愧是被鱼串盛赞的运营<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10223#       发表于 2022-12-12 20:13
+
+明年说不定可以安排第二次演唱会，放开的话应该可以去现场参加了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

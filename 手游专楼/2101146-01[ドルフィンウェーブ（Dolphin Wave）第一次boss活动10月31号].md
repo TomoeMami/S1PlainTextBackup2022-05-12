@@ -406,3 +406,15 @@ boss战继续追加高难
 
 我只买了两种其他的摩托，这个摩托每种差别很大吗？实在太贵了，买和升级
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 185#         楼主| 发表于 2022-12-12 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58900640&amp;ptid=2101146" target="_blank">心之光 发表于 2022-12-12 08:48</a>
+
+我只买了两种其他的摩托，这个摩托每种差别很大吗？实在太贵了，买和升级 ...</blockquote>
+应该没啥区别，可以先不管
+
