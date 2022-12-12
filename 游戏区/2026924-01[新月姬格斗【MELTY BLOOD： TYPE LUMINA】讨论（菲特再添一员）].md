@@ -4867,3 +4867,26 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 差评归来<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  电磁炮233  
+##### 470#       发表于 2022-12-12 14:03
+
+嫌魔夜冷饭卖的太好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  查马丁魔术师  
+##### 471#       发表于 2022-12-12 14:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904845&amp;ptid=2026924" target="_blank">电磁炮233 发表于 2022-12-12 14:03</a>
+
+嫌魔夜冷饭卖的太好了
+
+—— 来自 S1Fun</blockquote>
+魔夜肯定卖的没月姬R好....很可能差至少一倍....
+
