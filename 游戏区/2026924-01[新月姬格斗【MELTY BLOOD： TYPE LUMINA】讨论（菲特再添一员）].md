@@ -4754,3 +4754,24 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这烂活整的，哪怕从隔壁腋下搬个角色过来都比上fgo的强
 
+
+
+*****
+
+####  smdzh2  
+##### 461#       发表于 2022-12-12 11:14
+
+都是早见配音，腋下的Orie不比牛肉丸强114514倍？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  user_3399  
+##### 462#       发表于 2022-12-12 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58899820&amp;ptid=2026924" target="_blank">Booorunestud 发表于 2022-12-12 03:24</a>
+
+一员？三员！
+
+来点月姬格斗原作截图</blockquote>
+男神自己的公主呢？
+
