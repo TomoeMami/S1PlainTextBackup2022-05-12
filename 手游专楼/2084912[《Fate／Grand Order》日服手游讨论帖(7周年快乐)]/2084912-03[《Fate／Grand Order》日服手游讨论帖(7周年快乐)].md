@@ -9237,3 +9237,15 @@ FE以最高规格（指typemoon）重置还不够正经吗
 哪怕后来CCC+extelle+LINK都没让我缓过来
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 3830#       发表于 2022-12-12 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58907851&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-12 17:03</a>
+
+FE以最高规格（指typemoon）重置还不够正经吗</blockquote>
+我想看FE世界观后续啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">link那个写的什么捷豹玩意儿
+
