@@ -4902,3 +4902,24 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 魔夜肯定卖的没月姬R好....很可能差至少一倍....</blockquote>
 就加了个配音其他几乎零成本，能卖这么多还不够啊
 
+
+
+*****
+
+####  Caa  
+##### 473#       发表于 2022-12-12 14:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904955&amp;ptid=2026924" target="_blank">查马丁魔术师 发表于 2022-12-12 14:12</a>
+
+魔夜肯定卖的没月姬R好....很可能差至少一倍....</blockquote>
+四舍五入快十年的老游戏，就加了个配音，能贡献很大销量的官方中文还有点拉拉的，还要多少
+
+*****
+
+####  エーデルガルト  
+##### 474#       发表于 2022-12-12 14:31
+
+你叫fate格斗fgo格斗型月格斗随便你怎么搞，我看都不会看一眼
+
+不要用MeltyBlood这个名字骗我买完，再搞这种挂羊头卖狗肉的事情
+
