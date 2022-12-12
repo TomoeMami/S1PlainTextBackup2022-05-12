@@ -15025,3 +15025,12 @@ mini专有新歌吗？</blockquote>
 
 明年说不定可以安排第二次演唱会，放开的话应该可以去现场参加了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 10224#       发表于 2022-12-12 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这封面好看，能不能出个黑胶
+

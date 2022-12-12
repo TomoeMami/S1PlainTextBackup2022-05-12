@@ -794,3 +794,13 @@ losing is fun！觉得没救了就开退休，让小人自己解决然后顺便�
 
 我觉得能把UI教程菜单之类的汉化出来就行，角色心情角色需求啥的靠截图翻译就可以。现在比较担心UI菜单物品名字之类的都没办法汉化。
 
+
+
+*****
+
+####  qionglu735  
+##### 85#         楼主| 发表于 2022-12-12 20:31
+
+感觉人或者物品多起来后很容易崩
+默认自动存档是每半年一次，回几次档没耐心了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

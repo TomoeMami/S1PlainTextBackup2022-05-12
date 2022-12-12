@@ -418,3 +418,12 @@ boss战继续追加高难
 我只买了两种其他的摩托，这个摩托每种差别很大吗？实在太贵了，买和升级 ...</blockquote>
 应该没啥区别，可以先不管
 
+
+
+*****
+
+####  黑上シグマ  
+##### 186#       发表于 2022-12-12 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理所当然的歪了，这UR的PICK UP真的烂
+

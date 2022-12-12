@@ -5056,3 +5056,24 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 型月还是正式改名fatemoon好了，反正蘑菇现在月姬魔夜也写不好</blockquote>
 那得改叫type-fate啊，moon算个der，也配跟高贵的fate并列<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Gundamslave  
+##### 486#       发表于 2022-12-12 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58910328&amp;ptid=2026924" target="_blank">林无德 发表于 2022-12-12 20:04</a>
+那得改叫type-fate啊，moon算个der，也配跟高贵的fate并列</blockquote>
+那也是type/grand order啊，fsn是什么屎也配和go并列
+
+*****
+
+####  林无德  
+##### 487#       发表于 2022-12-12 20:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58910753&amp;ptid=2026924" target="_blank">Gundamslave 发表于 2022-12-12 20:36</a>
+
+那也是type/grand order啊，fsn是什么屎也配和go并列</blockquote>
+这fate也不是只代表fsn啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
