@@ -5044,3 +5044,15 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 **tm抱着你家废特活一辈子吧<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  林无德  
+##### 485#       发表于 2022-12-12 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58906069&amp;ptid=2026924" target="_blank">輝夜月 发表于 2022-12-12 15:25</a>
+
+型月还是正式改名fatemoon好了，反正蘑菇现在月姬魔夜也写不好</blockquote>
+那得改叫type-fate啊，moon算个der，也配跟高贵的fate并列<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

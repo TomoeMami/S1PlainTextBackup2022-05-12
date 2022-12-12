@@ -15007,3 +15007,12 @@ mini专有新歌吗？</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10222#       发表于 2022-12-12 20:00
+
+札幌跟大阪talk都在live后一天，不愧是被鱼串盛赞的运营<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
