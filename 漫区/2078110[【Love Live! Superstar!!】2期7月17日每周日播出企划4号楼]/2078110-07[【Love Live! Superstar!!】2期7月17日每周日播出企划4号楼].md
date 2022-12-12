@@ -14798,3 +14798,16 @@ pay已经开始逐渐进化成外星人了（进入LoveLive第2年）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波到底是大熊整活还是nagi整活，已经分不清了
 
+
+
+*****
+
+####  starring  
+##### 10206#       发表于 2022-12-12 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904669&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-12-12 13:53</a>
+https://twitter.com/aoyamanagisa/status/1602165361532862465?s=46&amp;t=t2an2-vRUvdEA2jUQiOzcw
+
+这 ...</blockquote>
+外星人的肉体被大熊夺舍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
