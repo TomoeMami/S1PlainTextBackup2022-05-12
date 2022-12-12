@@ -9177,3 +9177,45 @@ FGO啥样子大家都知道了，月姬R肯定不算烂活，但绝对属于一�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快点把月姬R下搞出来不就有新参战了。讲真虽然月姬R给我感觉不错。但我还是对分拆上下十分有意见。更不用说现在还没有下的消息。明年也很难玩得到。
 
+
+
+*****
+
+####  UNISONIA  
+##### 3826#       发表于 2022-12-12 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904328&amp;ptid=2084912" target="_blank">areklose 发表于 2022-12-12 13:37</a>
+
+快点把月姬R下搞出来不就有新参战了。讲真虽然月姬R给我感觉不错。但我还是对分拆上下十分有意见。 ...</blockquote>
+里篇要加角色估计也只有阿良句赤主秋叶Mio绷带男这四个是稳的，四季都不知道还是不是独立角色……明年是肯定不会发售的，最早约摸都要2024年了（不少士大夫都暗示过发售的时候废狗都不一定还在营运了）
+
+开个玩笑，拆上下其实算是回归初心，旧版月姬当时就是没做完先出了个半月版
+
+月R本身的剧本还是蛮挑战姨姥下限的，堪比2.6挑战圆桌厨和王厨的下限了
+
+*****
+
+####  UNISONIA  
+##### 3827#       发表于 2022-12-12 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904292&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-12 13:33</a>
+
+比起什么法特格斗这种烂梗我更想知道阿菌现在到底想写啥东西，以至于连自家格斗游戏角色都憋不出来
+
+FGO啥样 ...</blockquote>
+这次MBTL俩新加角色是东出樱井各分摊一个能反过来证明2.7的剧本跟2.6类似，直到现在都还在调内容了
+
+他还欠着一个去年许诺的Type-Moon品牌的20周年集大成作没怎么写，月姬R里篇没怎么动，魔夜2&amp;3和DDD3&amp;4估计是放弃了。废狗这边大概都还差个冬木和终章呢
+
+*****
+
+####  里村紅葉  
+##### 3828#       发表于 2022-12-12 16:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904292&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-12 13:33</a>
+
+比起什么法特格斗这种烂梗我更想知道阿菌现在到底想写啥东西，以至于连自家格斗游戏角色都憋不出来
+
+FGO啥样 ...</blockquote>
+FE是心头肉那怎么FEX以后就没正经作品了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
