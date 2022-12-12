@@ -427,3 +427,12 @@ boss战继续追加高难
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理所当然的歪了，这UR的PICK UP真的烂
 
+
+
+*****
+
+####  kulanyee  
+##### 187#       发表于 2022-12-12 23:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每个池子都双UP，要特定某个UR的话就是0.5%，很难不吃井
+
