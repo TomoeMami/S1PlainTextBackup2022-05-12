@@ -4775,3 +4775,25 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 来点月姬格斗原作截图</blockquote>
 男神自己的公主呢？
 
+
+
+*****
+
+####  hello0607  
+##### 463#       发表于 2022-12-12 11:42
+
+<blockquote>Booorunestud 发表于 2022-12-12 03:24
+一员？三员！
+
+来点月姬格斗原作截图</blockquote>
+草 想起这个了
+
+<img src="https://img.saraba1st.com/forum/202212/12/114249e4yk8nm8kr4f7i44.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>02F6D253-E68E-4BD2-9C3C-56CE6CD9A09B.jpeg</strong> (135.01 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-12 11:42 上传
+

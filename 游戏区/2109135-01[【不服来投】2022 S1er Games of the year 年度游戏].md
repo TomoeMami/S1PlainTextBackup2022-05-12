@@ -994,3 +994,12 @@ xb3这种团队冒险的设计我觉得还不错 一些剧情也很有意思 但
 
 回来看看，第一法环，第二xb3，第三朱紫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  新世界的派蒙  
+##### 96#       发表于 2022-12-12 11:48
+
+任坛？刃坛！<img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">说实话当初我就是因为听说异度2在这边票选第一来这边注册的号找乐子，不变初心也不错吧，说明还是同一批人
+
