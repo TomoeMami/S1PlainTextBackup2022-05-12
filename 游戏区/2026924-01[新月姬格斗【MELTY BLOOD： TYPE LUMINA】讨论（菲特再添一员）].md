@@ -4936,3 +4936,17 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  Caa  
+##### 476#       发表于 2022-12-12 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58905443&amp;ptid=2026924" target="_blank">ParadiseMartyr 发表于 2022-12-12 14:44</a>
+
+官中哪版好一点
+
+—— 来自 S1Fun</blockquote>
+简中非常直白，繁中的词句稍微做了点润色
+
