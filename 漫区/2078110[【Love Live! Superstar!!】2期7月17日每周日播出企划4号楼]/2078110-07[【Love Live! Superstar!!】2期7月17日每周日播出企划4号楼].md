@@ -14846,3 +14846,20 @@ https://twitter.com/aoyamanagisa/status/1602165361532862465?s=46&amp;t=t2an2-vRU
 
 难怪口罩样子变过 还以为是偷偷换了
 
+
+
+*****
+
+####  ViyViy  
+##### 10210#       发表于 2022-12-12 18:00
+
+连哪个座位都找出来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/12/175921bszzz1susqdaf0dy.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221212175418.jpg</strong> (98.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 17:59 上传
+
