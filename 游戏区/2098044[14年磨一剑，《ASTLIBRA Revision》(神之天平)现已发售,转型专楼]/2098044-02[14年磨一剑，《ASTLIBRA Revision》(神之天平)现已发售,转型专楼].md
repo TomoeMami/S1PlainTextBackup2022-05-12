@@ -17153,3 +17153,14 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 学会能量吸收和用上连射弩后整个流程实在简单太多了，话说弑神剑一周目就可以得到吗？ ...</blockquote>
 能的
 
+
+
+*****
+
+####  黄昏的轮回  
+##### 2974#       发表于 2022-12-12 09:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只差最终boss了还在刷指令拳需要的扫帚，但是空中擒抱这技能感觉从未见过，有老哥能截个图给我吗
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

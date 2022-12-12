@@ -4686,3 +4686,25 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 风怒
 
+
+
+*****
+
+####  MMIno  
+##### 455#       发表于 2022-12-12 09:16
+
+真的恶心吐了，型月能不能携手暴雪一起死啊
+
+*****
+
+####  蓮華  
+##### 456#       发表于 2022-12-12 09:17
+
+<img src="https://img.saraba1st.com/forum/202212/12/091754dzq8h51l1fff8565.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221212091746.png</strong> (17.9 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 09:17 上传
+
