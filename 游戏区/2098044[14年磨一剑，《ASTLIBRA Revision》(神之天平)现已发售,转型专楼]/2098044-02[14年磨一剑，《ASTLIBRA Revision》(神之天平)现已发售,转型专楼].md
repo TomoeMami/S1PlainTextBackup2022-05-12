@@ -17341,3 +17341,16 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
  ...</blockquote>
 是主角老家的天鹅绒铠甲开出来的
 
+
+
+*****
+
+####  gwchobit  
+##### 2986#       发表于 2022-12-12 19:15
+
+ 本帖最后由 gwchobit 于 2022-12-12 19:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58907764&amp;ptid=2098044" target="_blank">smileboom 发表于 2022-12-12 16:58</a>
+
+进第七章了，打了战神和画中世界，拿到的武器都几百重量，要花掉很多敏捷点数才挥得动，可能我没怎么刷晶体 ...</blockquote>
+加点的敏捷60-80可以覆盖全武器，除了加点还有成长，还有天平的减重属性优先级比较高
+
