@@ -15097,3 +15097,27 @@ ll这边人一多，鲤鱼供给是真少了，还得是个活好<img src="https
 
 12月26日岬鲤佩都有个人活动，没有live的日子个活多安排一些
 
+
+
+*****
+
+####  lj205  
+##### 10230#       发表于 2022-12-12 21:27
+
+既然没有跨年，今年打算去谁家<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  lj205  
+##### 10231#       发表于 2022-12-12 21:27
+
+<img src="https://img.saraba1st.com/forum/202212/12/212744ibdfg5u2mzjj4x03.png" referrerpolicy="no-referrer">
+
+<strong>6870DB17-5A3E-4583-B48B-A412746B3588.png</strong> (428.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 21:27 上传
+
