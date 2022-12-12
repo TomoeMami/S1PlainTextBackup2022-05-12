@@ -14901,3 +14901,88 @@ guilty kiss 2nd 熟肉出来了，爱香的表现真好啊<img src="https://stat
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  cat1230  
+##### 10215#       发表于 2022-12-12 19:36
+
+mini专有新歌吗？
+
+*****
+
+####  优妮可  
+##### 10216#       发表于 2022-12-12 19:36
+
+<img src="https://img.saraba1st.com/forum/202212/12/193637ia722x3evq3g5dew.jpg" referrerpolicy="no-referrer">
+
+<strong>20221212_193536.jpg</strong> (314.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 19:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/193638vwhjbv1xeyz9bxvr.jpg" referrerpolicy="no-referrer">
+
+<strong>20221212_193534.jpg</strong> (437.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 19:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/193638lvr8yekkeveeyizz.jpg" referrerpolicy="no-referrer">
+
+<strong>20221212_193531.jpg</strong> (418.73 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 19:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/193639ust8kk43smzbwsbn.jpg" referrerpolicy="no-referrer">
+
+<strong>20221212_193529.jpg</strong> (366.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 19:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/193639nh9a9c060lv9rcoc.jpg" referrerpolicy="no-referrer">
+
+<strong>20221212_193522.jpg</strong> (461.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 19:36 上传
+
+<img src="https://img.saraba1st.com/forum/202212/12/193640ybhsjjybiw05j1b3.jpg" referrerpolicy="no-referrer">
+
+<strong>20221212_193420.jpg</strong> (115.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 19:36 上传
+
+*****
+
+####  lj205  
+##### 10217#       发表于 2022-12-12 19:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58909892&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-12-12 19:36</a>
+mini专有新歌吗？</blockquote>
+5首都是新歌
+
+*****
+
+####  Enakina  
+##### 10218#       发表于 2022-12-12 19:39
+
+先不说歌怎么样，封面已经比三单强多了
+
+*****
+
+####  稀勢のささ  
+##### 10219#       发表于 2022-12-12 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么昭和偶像，过两天应该会有叔叔家直播吧
+
