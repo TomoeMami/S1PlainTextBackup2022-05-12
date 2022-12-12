@@ -4993,3 +4993,33 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 哎，天国的月2<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kisskick  
+##### 481#       发表于 2022-12-12 17:23
+
+想了想，出魔箱角色是好话还是坏活啊
+
+*****
+
+####  アルジュナ  
+##### 482#       发表于 2022-12-12 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58900614&amp;ptid=2026924" target="_blank">水野貴弘 发表于 2022-12-12 08:44</a>
+
+是是，买你那60刀初始人物十个出头的2021年像素格斗游戏的都是FGO民
+
+我就是那NS一份steam一份的贱逼 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202212/12/183038h4ilg11rl2lk1l7o.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221212182906.png</strong> (20.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 18:30 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这哥们和你一样
+
