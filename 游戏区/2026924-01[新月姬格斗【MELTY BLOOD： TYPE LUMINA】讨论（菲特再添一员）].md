@@ -4643,3 +4643,16 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  水野貴弘  
+##### 451#       发表于 2022-12-12 08:44
+
+是是，买你那60刀初始人物十个出头的2021年像素格斗游戏的都是FGO民
+
+我就是那NS一份steam一份的贱逼<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+我麻利地滚，steam上差评一个，以后不会再玩了
+
