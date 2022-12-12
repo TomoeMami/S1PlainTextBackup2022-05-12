@@ -17392,3 +17392,49 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 
 2022-12-12 21:15 上传
 
+
+
+*****
+
+####  meaninglessd  
+##### 2990#       发表于 2022-12-13 00:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58900836&amp;ptid=2098044" target="_blank">黄昏的轮回 发表于 2022-12-12 09:12</a>
+
+我只差最终boss了还在刷指令拳需要的扫帚，但是空中擒抱这技能感觉从未见过，有老哥能截个图给我吗
+
+ ...</blockquote>
+空中擒抱是天鹅绒这个铠甲的精通，应该是什么地方漏掉了
+
+空中.jpg
+(98.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-13 00:33 上传
+
+空中擒抱
+
+<img src="https://img.saraba1st.com/forum/202212/13/003314rqcj10ajcqa3cc3c.jpg" referrerpolicy="no-referrer">
+
+天鹅.jpg
+(143.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-13 00:33 上传
+
+精通的装备
+
+<img src="https://img.saraba1st.com/forum/202212/13/003318hoykvvow8o3oypyb.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  永远的访客  
+##### 2991#       发表于 2022-12-13 00:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58910622&amp;ptid=2098044" target="_blank">double8 发表于 2022-12-12 20:25</a>
+
+突然想到一个事，主角最后还带着天平吧？手机不方便反白不剧透了（应该猜到我要说啥）大结局没有对天平的处 ...</blockquote>
+作者说了还在准备DLC<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
