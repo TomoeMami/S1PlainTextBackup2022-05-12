@@ -5234,3 +5234,14 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 2022-12-12 21:45 上传
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 497#       发表于 2022-12-12 21:56
+
+只要菌皇更新日记，一切都会好起来的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
