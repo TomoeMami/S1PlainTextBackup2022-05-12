@@ -4982,3 +4982,14 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 型月还是正式改名fatemoon好了，反正蘑菇现在月姬魔夜也写不好
 
+
+
+*****
+
+####  astrayl  
+##### 480#       发表于 2022-12-12 15:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么烂活儿
+
+哎，天国的月2<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
