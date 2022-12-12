@@ -4950,3 +4950,35 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 —— 来自 S1Fun</blockquote>
 简中非常直白，繁中的词句稍微做了点润色
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 477#       发表于 2022-12-12 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58905963&amp;ptid=2026924" target="_blank">Caa 发表于 2022-12-12 15:20</a>
+简中非常直白，繁中的词句稍微做了点润色</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只学过标日初级的水平玩原版会有问题吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Caa  
+##### 478#       发表于 2022-12-12 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58906013&amp;ptid=2026924" target="_blank">ParadiseMartyr 发表于 2022-12-12 15:23</a>
+
+只学过标日初级的水平玩原版会有问题吗
+
+—— 来自 S1Fun</blockquote>
+如果像跟中文一样理解全文的话，N2都够呛，只是看懂在讲啥倒没问题……
+
+*****
+
+####  輝夜月  
+##### 479#       发表于 2022-12-12 15:25
+
+型月还是正式改名fatemoon好了，反正蘑菇现在月姬魔夜也写不好
+
