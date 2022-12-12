@@ -15054,3 +15054,46 @@ mini专有新歌吗？</blockquote>
 
 都是好事<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 10227#       发表于 2022-12-12 21:01
+
+ll这边人一多，鲤鱼供给是真少了，还得是个活好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 10228#       发表于 2022-12-12 21:01
+
+💫出演情报💫
+
+なんと明日12/13 
+
+「#めざましテレビ」
+
+ #めざましじゃんけん 1戦目は
+
+#Liella! が担当✊✌️🖐
+
+朝5时58分お忘れなくー！⏰
+
+いったい9人は何を出すのでしょーか🤔
+
+そしてLiella!が出演する
+
+12/14の #FNS歌謡祭 第2夜も
+
+よろしくお愿いします💕
+
+*****
+
+####  starring  
+##### 10229#       发表于 2022-12-12 21:05
+
+12月26日岬鲤佩都有个人活动，没有live的日子个活多安排一些
+

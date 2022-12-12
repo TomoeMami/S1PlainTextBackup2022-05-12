@@ -5117,3 +5117,30 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 格斗游戏寿命其实很长的
 
+
+
+*****
+
+####  佐伯香織  
+##### 491#       发表于 2022-12-12 21:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58911021&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-12 20:56</a>
+街霸5是2016，铁拳7是2015
+
+格斗游戏寿命其实很长的</blockquote>
+靠职业联赛撑着的，而且这两玩家数比月姬高太多了
+
+—— 来自 OnePlus GM1910, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  蓮華  
+##### 492#       发表于 2022-12-12 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58911021&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-12 20:56</a>
+
+街霸5是2016，铁拳7是2015
+
+格斗游戏寿命其实很长的</blockquote>
+撒泡尿照照镜子，MBTL是街霸和铁拳么
+
