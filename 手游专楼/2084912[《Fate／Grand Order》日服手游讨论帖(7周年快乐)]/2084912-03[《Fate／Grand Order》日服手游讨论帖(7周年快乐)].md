@@ -9219,3 +9219,21 @@ FGO啥样 ...</blockquote>
 FGO啥样 ...</blockquote>
 FE是心头肉那怎么FEX以后就没正经作品了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  exiaexa  
+##### 3829#       发表于 2022-12-12 17:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58907057&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-12-12 16:21</a>
+
+FE是心头肉那怎么FEX以后就没正经作品了</blockquote>
+FE以最高规格（指typemoon）重置还不够正经吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说真的作为一个当年拿着psp首发打完的，我真的不理解为什么会有fe厨这种东西
+
+哪怕后来CCC+extelle+LINK都没让我缓过来
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
