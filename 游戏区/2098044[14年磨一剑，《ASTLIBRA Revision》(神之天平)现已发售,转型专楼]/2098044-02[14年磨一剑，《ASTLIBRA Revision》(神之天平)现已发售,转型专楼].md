@@ -17461,3 +17461,16 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 这最终BOSS血量确定没有填错吗，我还是开的最低难度，23万血量而一刀只能打几十点。加上前面三连战打了十几 ...</blockquote>
 虽然血多防高但其实很好打，主要是这里挂了得重新打上一阶段比较烦
 
+
+
+*****
+
+####  M1NG  
+##### 2994#       发表于 2022-12-13 01:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58911305&amp;ptid=2098044" target="_blank">猫出没注意 发表于 2022-12-12 21:15</a>
+这最终BOSS血量确定没有填错吗，我还是开的最低难度，23万血量而一刀只能打几十点。加上前面三连战打了十几 ...</blockquote>
+最终boss简直就是专门设计出来给你空中擒抱+凭依技无限循环的，带上消弹和能量装甲，除了有点伤手和手柄应该没啥难度
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
