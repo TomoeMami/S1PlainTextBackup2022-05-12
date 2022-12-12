@@ -9140,3 +9140,17 @@ FGO这帮妖魔鬼怪就属于什么时间段出场都不稀奇了...可能以�
 
 看了欧凰的3T排热大公，才发现2破巴姐下面真的没穿，可以看到屁股<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 3823#       发表于 2022-12-12 13:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58892897&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-11 20:39</a>
+
+不过FGO为了庆祝MBTL联动，竟然出了呆毛王和牛肉丸的PU池，这个我是真没想到
+
+好歹出个伯爵限定池啊 ...</blockquote>
+伯爵11月刚复刻
+
