@@ -5144,3 +5144,21 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 格斗游戏寿命其实很长的</blockquote>
 撒泡尿照照镜子，MBTL是街霸和铁拳么
 
+
+
+*****
+
+####  rsgdn  
+##### 493#       发表于 2022-12-12 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  剣崎比留子  
+##### 494#       发表于 2022-12-12 21:19
+
+出个有珠和两仪式会是与现在截然相反的结果吧
+
+我看其实也不是不知道mb玩家想要什么，憋着卖有料dlc罢了
+

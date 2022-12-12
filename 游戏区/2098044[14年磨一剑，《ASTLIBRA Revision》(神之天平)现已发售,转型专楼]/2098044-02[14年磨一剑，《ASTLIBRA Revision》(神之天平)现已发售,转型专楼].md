@@ -17375,3 +17375,20 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 突然想到一个事，主角最后还带着天平吧？手机不方便反白不剧透了（应该猜到我要说啥）大结局没有对天平的处 ...</blockquote>
 你打完新章结局应该就能明白，天平使用是有条件的，想想条件还在不在……
 
+
+
+*****
+
+####  猫出没注意  
+##### 2989#       发表于 2022-12-12 21:15
+
+这最终BOSS血量确定没有填错吗，我还是开的最低难度，23万血量而一刀只能打几十点。加上前面三连战打了十几分钟，打得我怀疑人生，前面还有个NPC们的元气弹环节，是不是我漏了啥“只有风暴才能击倒大树”的秒BOSS道具啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/12/211538mobj9robkoiz7jbb.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-12-12_21-13-32.png</strong> (16.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-12 21:15 上传
+
