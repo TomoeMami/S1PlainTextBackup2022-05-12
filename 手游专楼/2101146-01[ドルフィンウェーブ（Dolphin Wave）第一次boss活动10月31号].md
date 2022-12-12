@@ -450,3 +450,12 @@ boss战继续追加高难
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  startea15  
+##### 189#       发表于 2022-12-13 01:47
+
+常驻的话我觉得还是学闪乱那样攒石等fes限吧，不过yysy这boss战ex没对策ur卡还真的挺难三星
+
