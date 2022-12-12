@@ -135,3 +135,14 @@ CBA没有补宝价值啊，该有的早有了
 
 30自充后伯爵总算可以6加成阳间本了？
 
+
+
+*****
+
+####  DET33  
+##### 43811#       发表于 2022-12-12 20:56
+
+就算不强化今年福袋也抽<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

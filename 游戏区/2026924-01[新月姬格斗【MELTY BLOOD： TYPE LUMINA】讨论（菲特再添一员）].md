@@ -5092,3 +5092,28 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 只能是FGO顶上，下次加鬼系角色吧
 
+
+
+*****
+
+####  蓮華  
+##### 489#       发表于 2022-12-12 20:52
+
+你月姬R下部几年出？4年，下个十年？你这个MeltyBlood寿命准备多久？steam上还有活人么
+
+本身就做得够垃圾了，还恶心这批死忠
+
+*****
+
+####  gpx234mqx  
+##### 490#       发表于 2022-12-12 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58910970&amp;ptid=2026924" target="_blank">蓮華 发表于 2022-12-12 20:52</a>
+
+你月姬R下部几年出？4年，下个十年？你这个MeltyBlood寿命准备多久？steam上还有活人么
+
+本身就做得够垃圾了 ...</blockquote>
+街霸5是2016，铁拳7是2015
+
+格斗游戏寿命其实很长的
+

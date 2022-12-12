@@ -15043,3 +15043,14 @@ mini专有新歌吗？</blockquote>
 
 两个月后就发售速度够快，mini live或者2nd live明年都该提上行程了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10226#       发表于 2022-12-12 20:57
+
+后面估计又要刷一堆广播，等埼玉完了没追加场的话应该有一段时间挺闲的了
+
+都是好事<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
