@@ -17314,3 +17314,16 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 
 问下用手柄是不是能好一些，我昨天打了4章觉得键盘摁的我好疼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第一次打游戏有这种感觉
 
+
+
+*****
+
+####  Tissuesea  
+##### 2984#       发表于 2022-12-12 17:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58907810&amp;ptid=2098044" target="_blank">clover293 发表于 2022-12-12 17:01</a>
+问下用手柄是不是能好一些，我昨天打了4章觉得键盘摁的我好疼第一次打游戏有这种感觉 ...</blockquote>
+是的，还好借了别人Xbox手柄玩，键盘那个键位我可能要用到无名指和中指，真的有点手指痛，手柄直接大拇指完事
+
+—— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
