@@ -985,3 +985,12 @@ xb3这种团队冒险的设计我觉得还不错 一些剧情也很有意思 但
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">炒冷饭也算的话那我就要提名MHRSB了，能打mod真是好文明
 
+
+
+*****
+
+####  wgoenitz  
+##### 95#       发表于 2022-12-12 10:00
+
+回来看看，第一法环，第二xb3，第三朱紫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
