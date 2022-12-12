@@ -9249,3 +9249,12 @@ FE以最高规格（指typemoon）重置还不够正经吗
 FE以最高规格（指typemoon）重置还不够正经吗</blockquote>
 我想看FE世界观后续啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">link那个写的什么捷豹玩意儿
 
+
+
+*****
+
+####  kidoo  
+##### 3831#       发表于 2022-12-12 19:22
+
+伯爵为什么过了卡池才强化，好想补一宝
+
