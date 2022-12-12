@@ -14787,3 +14787,14 @@ pay已经开始逐渐进化成外星人了（进入LoveLive第2年）
 
 支持反攻拿下鱼
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 10205#       发表于 2022-12-12 13:53
+
+[https://twitter.com/aoyamanagisa ... n2-vRUvdEA2jUQiOzcw](https://twitter.com/aoyamanagisa/status/1602165361532862465?s=46&amp;t=t2an2-vRUvdEA2jUQiOzcw)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波到底是大熊整活还是nagi整活，已经分不清了
+
