@@ -14771,3 +14771,19 @@ live蓝光卖可香，动画bd卖可堇，又是经典既要又要<img src="http
 
 跟最初对比自信了不少也没驼背，道歉的次数少了，而且整活的力度逐渐向外星人靠拢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 10203#       发表于 2022-12-12 10:17
+
+pay已经开始逐渐进化成外星人了（进入LoveLive第2年）
+
+*****
+
+####  优妮可  
+##### 10204#       发表于 2022-12-12 10:21
+
+支持反攻拿下鱼
+
