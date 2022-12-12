@@ -4797,3 +4797,23 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 由手机上传
 2022-12-12 11:42 上传
 
+
+
+*****
+
+####  Booorunestud  
+##### 464#       发表于 2022-12-12 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58902804&amp;ptid=2026924" target="_blank">user_3399 发表于 2022-12-12 11:19</a>
+男神自己的公主呢？</blockquote>
+公主在月姬格斗只是外人 必须support
+
+*****
+
+####  Booorunestud  
+##### 465#       发表于 2022-12-12 12:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58902804&amp;ptid=2026924" target="_blank">user_3399 发表于 2022-12-12 11:19</a>
+男神自己的公主呢？</blockquote>
+公主在月姬格斗只是外人 必须support
+
