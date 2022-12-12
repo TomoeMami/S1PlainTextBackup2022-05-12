@@ -9258,3 +9258,14 @@ FE以最高规格（指typemoon）重置还不够正经吗</blockquote>
 
 伯爵为什么过了卡池才强化，好想补一宝
 
+
+
+*****
+
+####  khxooo  
+##### 3832#       发表于 2022-12-12 19:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58908186&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-12-12 17:25</a>
+我想看FE世界观后续啊link那个写的什么捷豹玩意儿</blockquote>
+后续估计就是怼游星了，但是鉴于宇宙凛有疑似跟游星的恩怨，估计游星会死在咕哒手上。
+

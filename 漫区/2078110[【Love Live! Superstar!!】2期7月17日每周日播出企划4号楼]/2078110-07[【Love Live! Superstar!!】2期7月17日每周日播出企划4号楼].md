@@ -14986,3 +14986,12 @@ mini专有新歌吗？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么昭和偶像，过两天应该会有叔叔家直播吧
 
+
+
+*****
+
+####  cat1230  
+##### 10220#       发表于 2022-12-12 19:46
+
+买买买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个封面，爱了爱了，复古昭和，要是有首 citypop 就完美。
+

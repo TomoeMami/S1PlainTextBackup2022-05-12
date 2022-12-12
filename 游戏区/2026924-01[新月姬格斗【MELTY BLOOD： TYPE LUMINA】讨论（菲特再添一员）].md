@@ -5023,3 +5023,15 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这哥们和你一样
 
+
+
+*****
+
+####  user_3399  
+##### 483#       发表于 2022-12-12 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58903633&amp;ptid=2026924" target="_blank">Booorunestud 发表于 2022-12-12 12:35</a>
+
+公主在月姬格斗只是外人 必须support</blockquote>
+草
+
