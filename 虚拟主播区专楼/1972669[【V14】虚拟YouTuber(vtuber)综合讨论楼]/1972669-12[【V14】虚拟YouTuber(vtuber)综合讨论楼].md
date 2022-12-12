@@ -3832,3 +3832,13 @@ syl</blockquote>
 ……
 <img src="https://p.sda1.dev/8/aa68833a2f259d6cf652e6fcef88af59/CMP_20221212203925857.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17967#       发表于 2022-12-12 20:41
+
+一般而言会这么回社长嘛……
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+

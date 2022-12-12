@@ -5077,3 +5077,18 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 那也是type/grand order啊，fsn是什么屎也配和go并列</blockquote>
 这fate也不是只代表fsn啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 488#       发表于 2022-12-12 20:46
+
+ 本帖最后由 gpx234mqx 于 2022-12-12 20:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">月姫R另一半不出，红赤朱，五月啥的角色根本不会出啊
+
+没歌月十夜，白莲啥的更不会出了
+
+只能是FGO顶上，下次加鬼系角色吧
+

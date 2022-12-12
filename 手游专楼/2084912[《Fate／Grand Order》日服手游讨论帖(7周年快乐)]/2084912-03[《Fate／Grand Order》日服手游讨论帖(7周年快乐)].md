@@ -9269,3 +9269,15 @@ FE以最高规格（指typemoon）重置还不够正经吗</blockquote>
 我想看FE世界观后续啊link那个写的什么捷豹玩意儿</blockquote>
 后续估计就是怼游星了，但是鉴于宇宙凛有疑似跟游星的恩怨，估计游星会死在咕哒手上。
 
+
+
+*****
+
+####  里村紅葉  
+##### 3833#       发表于 2022-12-12 20:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58910051&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-12 19:45</a>
+
+后续估计就是怼游星了，但是鉴于宇宙凛有疑似跟游星的恩怨，估计游星会死在咕哒手上。 ...</blockquote>
+可是游星不是每个世界线都有的吗，咕哒这边真能干掉也影响不到FE世界线吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

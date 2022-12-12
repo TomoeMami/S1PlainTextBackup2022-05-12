@@ -15034,3 +15034,12 @@ mini专有新歌吗？</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">这封面好看，能不能出个黑胶
 
+
+
+*****
+
+####  starring  
+##### 10225#       发表于 2022-12-12 20:42
+
+两个月后就发售速度够快，mini live或者2nd live明年都该提上行程了
+
