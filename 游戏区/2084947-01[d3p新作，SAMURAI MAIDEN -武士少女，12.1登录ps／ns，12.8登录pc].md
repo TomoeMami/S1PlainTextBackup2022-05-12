@@ -913,3 +913,14 @@ https://mega</blockquote>
 
 fami通那里倒是加起来还没1万
 
+
+
+*****
+
+####  windhawind2  
+##### 162#       发表于 2022-12-12 15:05
+
+听了各种战斗不如无夜之国的评价 本来想为了kisscg入手的一点心情也没了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
