@@ -17438,3 +17438,15 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 突然想到一个事，主角最后还带着天平吧？手机不方便反白不剧透了（应该猜到我要说啥）大结局没有对天平的处 ...</blockquote>
 作者说了还在准备DLC<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gwchobit  
+##### 2992#       发表于 2022-12-13 01:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58911305&amp;ptid=2098044" target="_blank">猫出没注意 发表于 2022-12-12 21:15</a>
+
+这最终BOSS血量确定没有填错吗，我还是开的最低难度，23万血量而一刀只能打几十点。加上前面三连战打了十几 ...</blockquote>
+没什么不正常的血量。优化下BD
+

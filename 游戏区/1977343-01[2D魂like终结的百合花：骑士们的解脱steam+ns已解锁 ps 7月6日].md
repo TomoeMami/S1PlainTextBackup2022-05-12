@@ -76,3 +76,12 @@ Steam页面：[https://store.steampowered.com/app/2139300/Redemption_Reapers/](h
 
 ……这风格变得有点大
 
+
+
+*****
+
+####  Onelooker  
+##### 621#       发表于 2022-12-13 00:56
+
+这预告全是特写镜头，把我眼睛都要晃晕了
+
