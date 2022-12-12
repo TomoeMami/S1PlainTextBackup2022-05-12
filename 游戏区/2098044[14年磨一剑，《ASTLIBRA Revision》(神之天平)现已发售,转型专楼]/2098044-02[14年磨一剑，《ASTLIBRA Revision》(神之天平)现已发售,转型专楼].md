@@ -17248,3 +17248,33 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 
 今天回去就洗点全加血量去...
 
+
+
+*****
+
+####  gwchobit  
+##### 2979#       发表于 2022-12-12 13:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58901695&amp;ptid=2098044" target="_blank">woshenc 发表于 2022-12-12 10:14</a>
+
+10级干掉了第一个洞窟里的龙，困难难度
+
+听说要刷素材，前10级加点全加幸运了，感觉后续这样加点不行，有大 ...</blockquote>
+加点的前提是敏捷加够，让重量在80以下或者觉得手感舒服的重量。其他都可以随意。全幸运就是游戏魂系一些，单个怪物经验多一些。
+
+觉得boss刮可以考虑boss战前洗点成攻击魔法血量。重置药算是不要钱。
+
+至于成长里是门可以用钥匙开，锁定就是章节没到。
+
+*****
+
+####  woshenc  
+##### 2980#       发表于 2022-12-12 13:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904552&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-12-12 13:48</a>
+
+加点的前提是敏捷加够，让重量在80以下或者觉得手感舒服的重量。其他都可以随意。全幸运就是游戏魂系一些 ...</blockquote>
+重量这个词我都没关注过，武器有什么用什么，练出技能来了又换回树枝...
+
+树枝好难练啊
+
