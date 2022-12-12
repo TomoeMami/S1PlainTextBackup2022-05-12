@@ -17474,3 +17474,15 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  古留  
+##### 2995#       发表于 2022-12-13 02:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58904552&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-12-12 13:48</a>
+
+加点的前提是敏捷加够，让重量在80以下或者觉得手感舒服的重量。其他都可以随意。全幸运就是游戏魂系一些 ...</blockquote>
+没必要，有个嘉隆能力还是饰品的，可以让挥舞重武器不费力
+
