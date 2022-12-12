@@ -1003,3 +1003,30 @@ xb3这种团队冒险的设计我觉得还不错 一些剧情也很有意思 但
 
 任坛？刃坛！<img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">说实话当初我就是因为听说异度2在这边票选第一来这边注册的号找乐子，不变初心也不错吧，说明还是同一批人
 
+
+
+*****
+
+####  Troywest  
+##### 97#       发表于 2022-12-12 15:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58851696&amp;ptid=2109135" target="_blank">destroyworlder 发表于 2022-12-9 16:58</a>
+老游戏不算，要今年发售的应该</blockquote>
+今年发售的就玩过老头环，mhrsb和xb3，感觉都一般般
+
+—— 来自 samsung SM-N9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  wujae  
+##### 98#       发表于 2022-12-12 16:00
+
+符合我对泥潭的刻板印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Bernoulli  
+##### 99#       发表于 2022-12-12 16:02
+
+你们都玩了这么多的游戏啊？
+
