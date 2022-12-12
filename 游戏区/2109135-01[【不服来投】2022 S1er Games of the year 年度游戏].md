@@ -976,3 +976,12 @@ xb3这种团队冒险的设计我觉得还不错 一些剧情也很有意思 但
 
 卧槽只有我投了蔑视
 
+
+
+*****
+
+####  黑魔导始祖  
+##### 94#       发表于 2022-12-12 09:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">炒冷饭也算的话那我就要提名MHRSB了，能打mod真是好文明
+
