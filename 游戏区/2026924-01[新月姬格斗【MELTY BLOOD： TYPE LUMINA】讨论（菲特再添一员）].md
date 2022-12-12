@@ -4923,3 +4923,16 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 不要用MeltyBlood这个名字骗我买完，再搞这种挂羊头卖狗肉的事情
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 475#       发表于 2022-12-12 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58905168&amp;ptid=2026924" target="_blank">Caa 发表于 2022-12-12 14:27</a>
+四舍五入快十年的老游戏，就加了个配音，能贡献很大销量的官方中文还有点拉拉的，还要多少 ...</blockquote>
+官中哪版好一点
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
