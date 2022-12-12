@@ -14890,3 +14890,14 @@ guilty kiss 2nd 熟肉出来了，爱香的表现真好啊<img src="https://stat
 
 鱼迷你专
 
+
+
+*****
+
+####  player3960  
+##### 10214#       发表于 2022-12-12 19:02
+
+新专封面有点复古啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
