@@ -16,3 +16,12 @@
 
 这预告，FA可乐酱要抢跑了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不灭的旋律  
+##### 130#       发表于 2022-12-12 18:15
+
+冬comike主打学生会角色歌+周边，为了宣传必定有学生会活动没跑了。问题是月中加FA那么月末干什么？
+

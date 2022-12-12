@@ -17327,3 +17327,17 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 
 —— 来自 HONOR CHL-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  白軍浪  
+##### 2985#       发表于 2022-12-12 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58900836&amp;ptid=2098044" target="_blank">黄昏的轮回 发表于 2022-12-12 09:12</a>
+
+我只差最终boss了还在刷指令拳需要的扫帚，但是空中擒抱这技能感觉从未见过，有老哥能截个图给我吗
+
+ ...</blockquote>
+是主角老家的天鹅绒铠甲开出来的
+
