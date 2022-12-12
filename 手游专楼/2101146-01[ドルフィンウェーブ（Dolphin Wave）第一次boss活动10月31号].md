@@ -436,3 +436,17 @@ boss战继续追加高难
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每个池子都双UP，要特定某个UR的话就是0.5%，很难不吃井
 
+
+
+*****
+
+####  黑上シグマ  
+##### 188#       发表于 2022-12-12 23:53
+
+<blockquote>引用第186楼kulanyee于2022-12-12 23:44发表的  :
+
+每个池子都双UP，要特定某个UR的话就是0.5%，很难不吃井</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两个随便给我哪个都行啊，成天给我歪PU歪的就很难绷啊
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
