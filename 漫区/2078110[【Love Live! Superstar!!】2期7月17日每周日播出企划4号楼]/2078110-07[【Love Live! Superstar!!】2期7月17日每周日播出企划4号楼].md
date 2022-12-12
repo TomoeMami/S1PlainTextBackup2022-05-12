@@ -14995,3 +14995,15 @@ mini专有新歌吗？</blockquote>
 
 买买买<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个封面，爱了爱了，复古昭和，要是有首 citypop 就完美。
 
+
+
+*****
+
+####  player3960  
+##### 10221#       发表于 2022-12-12 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58910063&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-12-12 19:46:53</a>
+买买买这个封面，爱了爱了，复古昭和，要是有首 citypop 就完美。</blockquote>附议，citypop必须安排一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
