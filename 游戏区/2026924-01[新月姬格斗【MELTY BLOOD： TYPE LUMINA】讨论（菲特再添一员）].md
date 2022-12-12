@@ -4745,3 +4745,12 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 说白了，你出一个呆毛大家都笑笑调侃下，出一个马修倒也能忍，出一个伯爵更是在炎上边缘试探，出牛若丸就是纯纯的找骂了
 
+
+
+*****
+
+####  真实之影  
+##### 460#       发表于 2022-12-12 11:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这烂活整的，哪怕从隔壁腋下搬个角色过来都比上fgo的强
+
