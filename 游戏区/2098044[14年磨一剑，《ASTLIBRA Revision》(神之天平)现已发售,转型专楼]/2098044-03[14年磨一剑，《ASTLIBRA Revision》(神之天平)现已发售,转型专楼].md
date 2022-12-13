@@ -63,3 +63,16 @@
 荧光棒看上去是剑，但其实算法杖，你用法杖的思路来强化看看</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">竟然是法杖，不过我主要疑惑的是同一套指令拳配装，拳套伤害突然就低了这么多
 
+
+
+*****
+
+####  Rainwedell  
+##### 3006#       发表于 2022-12-13 19:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58919032&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-13 12:45</a>
+新章竞技场夫妻双打卡住了，有啥逃课攻略没？</blockquote>
+选个手长的大刀把攻速拉上，按着墙角一起打就可以无脑过了，除了极个别技能需要能量吸收硬吃以外基本摸不到你。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
