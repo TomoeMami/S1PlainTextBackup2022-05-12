@@ -133,3 +133,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还记得这个MV呢 大家都要忘了 这是去年LIVE上放的那个吧
 
+
+
+*****
+
+####  stedckk  
+##### 14460#       发表于 2022-12-13 21:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钥匙扣是随机的
+

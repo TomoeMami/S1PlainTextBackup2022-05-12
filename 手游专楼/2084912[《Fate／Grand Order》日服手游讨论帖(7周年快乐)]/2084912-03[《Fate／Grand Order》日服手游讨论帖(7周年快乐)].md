@@ -9422,3 +9422,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 反正格斗游戏现在也就那样，只希望到本篇的时候出个另一种类型的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 3845#       发表于 2022-12-13 21:30
+
+两年前的低难好朴素，公主双狐当周回打了
+
