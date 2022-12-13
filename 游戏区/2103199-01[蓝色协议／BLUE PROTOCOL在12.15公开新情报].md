@@ -1403,3 +1403,25 @@ BNE第一次做MMO，体谅一下<img src="https://static.saraba1st.com/image/sm
 
 万代南梦宫 MMORPG《蓝色协议》10分钟实机演示，2023年登陆PC/Xbox Seires X|S/PS5。 http://t.cn/A6K9jyOt ​​​
 
+
+
+*****
+
+####  風卷豹  
+##### 155#       发表于 2022-12-13 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58884853&amp;ptid=2103199" target="_blank">operatbig 发表于 2022-12-11 13:26</a>
+
+机动性也太高了，高难做不出啥难度，有翻滚的mmo是坏文明。</blockquote>
+太想当然了，无论是对副本设计还是玩家水平。鬼佬的激战2也好日本自己的PSO2也好，有翻滚打起来还是照样一片片的死<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  诚司  
+##### 156#       发表于 2022-12-13 11:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58884853&amp;ptid=2103199" target="_blank">operatbig 发表于 2022-12-11 13:26</a>
+
+机动性也太高了，高难做不出啥难度，有翻滚的mmo是坏文明。</blockquote>
+龙之谷当年的高难boss，中日韩合起来首杀都干了多久，还不够难呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

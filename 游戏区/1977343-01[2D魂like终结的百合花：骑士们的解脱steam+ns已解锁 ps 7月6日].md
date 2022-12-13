@@ -132,3 +132,12 @@ srpg好评！但是画面感觉不太行
 
 完全脱离原有的美术风格，感觉一眼暴死啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  onlv星骸  
+##### 627#       发表于 2022-12-13 11:33
+
+风格也变太大了，老实搞2d不好吗
+

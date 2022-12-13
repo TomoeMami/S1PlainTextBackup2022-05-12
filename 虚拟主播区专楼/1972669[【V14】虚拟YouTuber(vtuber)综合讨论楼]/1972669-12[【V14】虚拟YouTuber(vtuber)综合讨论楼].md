@@ -3884,3 +3884,18 @@ syl</blockquote>
 杏半年
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  woui003woui  
+##### 17972#       发表于 2022-12-13 11:30
+
+虽然昨天直播里祝过了还是再说一次 恭喜兔宝金盾
+
+昨天跟朋友说的时候朋友吐槽 感觉这件事18年发生过了
+
+确实金盾这天等了太久
+
+请继续不受束缚地做自己想做的企划吧
+
