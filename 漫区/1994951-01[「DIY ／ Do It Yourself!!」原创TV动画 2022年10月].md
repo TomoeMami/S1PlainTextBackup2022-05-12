@@ -7501,3 +7501,19 @@ self：听话，给我戳戳！<img src="https://static.saraba1st.com/image/smil
 <img src="https://p.sda1.dev/8/f6519adcb0335991092c55c79c4f3ede/43e1360b4583716cdf3d5c04eb0d7704.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/75f603ea5bdbc6b8ae2d9f9a05e9be92/acb972455c2e2c194fb06d42dcb38e03.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  wolf1997  
+##### 559#       发表于 2022-12-13 16:11
+
+即便布丁入了部，也不会计入DIY部的人数里，该废部还是得废，搞不好做完秘密基地部就无了。
+
+*****
+
+####  Yeaha123  
+##### 560#       发表于 2022-12-13 16:17
+
+强行搞个材料丢失小插曲，是要给布丁一个傲娇专场？
+
