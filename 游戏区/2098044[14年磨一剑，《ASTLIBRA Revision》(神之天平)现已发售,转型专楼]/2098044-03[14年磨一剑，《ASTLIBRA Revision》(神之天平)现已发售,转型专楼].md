@@ -76,3 +76,15 @@
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  swallow0808  
+##### 3007#       发表于 2022-12-13 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58919032&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-13 12:45</a>
+
+新章竞技场夫妻双打卡住了，有啥逃课攻略没？</blockquote>
+狂暴+恶魔右手+击退+完美防御。我是强撸过去的。
+
