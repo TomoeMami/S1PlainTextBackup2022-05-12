@@ -9505,3 +9505,41 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 比如绿卡最稳的是太公望+双RBA+平景清，不用补刀不用黑杯不用点20np，三宝90级可以爆杀赖光160w
 
+
+
+*****
+
+####  alucardcz  
+##### 3850#       发表于 2022-12-13 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58928008&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-13 22:53</a>
+
+怎么狂那都出来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1宝信师傅的确不用补刀 可惜要开被动+第1面1红 或者第1面至少2红
+
+*****
+
+####  exiaexa  
+##### 3851#       发表于 2022-12-13 23:37
+
+ 本帖最后由 exiaexa 于 2022-12-13 23:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58928524&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-12-13 23:34</a>
+
+1宝信师傅的确不用补刀 可惜要开被动+第1面1红 或者第1面至少2红</blockquote>
+所以说快来用绿卡，啥都不用额外点，极限情况只需要补刀第三面一只12w的小怪，抠着脚都能打掉
+
+200%的源氏特攻不服不行
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3852#       发表于 2022-12-13 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58928559&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-13 23:37</a>
+
+所以说快来用绿卡，啥都不用额外点，极限情况只需要补刀第三面一只12w的小怪，抠着脚都能打掉
+
+200%的源氏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新直接黑杯5加成了 动什么脑（
+
