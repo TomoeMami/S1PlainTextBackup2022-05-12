@@ -103,3 +103,12 @@ Steam页面：[https://store.steampowered.com/app/2139300/Redemption_Reapers/](h
 
 写实风格的啊，那没意思
 
+
+
+*****
+
+####  Bani82  
+##### 624#       发表于 2022-12-13 09:56
+
+srpg好评！但是画面感觉不太行
+
