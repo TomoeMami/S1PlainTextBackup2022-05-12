@@ -9543,3 +9543,17 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 200%的源氏 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新直接黑杯5加成了 动什么脑（
 
+
+
+*****
+
+####  alucardcz  
+##### 3853#       发表于 2022-12-14 00:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58928559&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-13 23:37</a>
+
+所以说快来用绿卡，啥都不用额外点，极限情况只需要补刀第三面一只12w的小怪，抠着脚都能打掉
+
+200%的源氏 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到隔壁2宝公主+圣诞太阳就能6加成  我试了 真可以 
+
