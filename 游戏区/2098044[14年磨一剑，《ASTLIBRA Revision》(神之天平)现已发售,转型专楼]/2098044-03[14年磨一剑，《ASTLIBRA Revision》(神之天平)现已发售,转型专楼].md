@@ -117,3 +117,46 @@
 
 打完第八章鸟哥让回去打诸神，没想到前面关卡的隐藏关我居然还疯狂受苦……
 
+
+
+*****
+
+####  藤井紫  
+##### 3011#       发表于 2022-12-14 00:03
+
+八章前的隐藏boss一共几个？
+火山宫殿，魔王城下水，大宅画，井，图书
+最终凭依也就这几位了吧？
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  A1LI  
+##### 3012#       发表于 2022-12-14 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58928830&amp;ptid=2098044" target="_blank">藤井紫 发表于 2022-12-14 00:03</a>
+
+八章前的隐藏boss一共几个？
+
+火山宫殿，魔王城下水，大宅画，井，图书
+
+最终凭依也就这几位了吧？</blockquote>
+刚进空中城市往左跳。
+
+*****
+
+####  瓦米里奥  
+##### 3013#       发表于 2022-12-14 00:05
+
+话说暗黑技能对于召唤和BUFF型凭依技都有加成吧？
+
+*****
+
+####  2082082012  
+##### 3014#       发表于 2022-12-14 00:08
+
+对了这是bug吗？弑神剑不是双持吗？<img src="https://p.sda1.dev/8/26602683a383d8c1b3701111c2ddd437/CMP_20221214000722044.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

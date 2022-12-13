@@ -15259,3 +15259,12 @@ twi：@_CelticWhite_
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">2年了，好快啊
 
+
+
+*****
+
+####  starring  
+##### 10245#       发表于 2022-12-14 00:09
+
+结成两年37场独立演唱会，这速度简直坐火箭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
