@@ -200,3 +200,12 @@ CBA没有补宝价值啊，该有的早有了
 
 7-3在个人空间回放也看不了，又出bug了
 
+
+
+*****
+
+####  DET33  
+##### 43818#       发表于 2022-12-13 19:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">难怪加载这么久，我以为我网不好，直接敲跳过了，不过这次活动实在是没兴趣看剧情，太水了……
+

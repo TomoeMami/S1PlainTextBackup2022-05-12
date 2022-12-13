@@ -9413,3 +9413,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 而且照前面dlc用一老 ...</blockquote>
 其实剧情受限不出角色也就是偷懒的借口罢了，真到FGO这边实装了分分钟安上一堆即食性设定...
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3844#       发表于 2022-12-13 19:27
+
+反正格斗游戏现在也就那样，只希望到本篇的时候出个另一种类型的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
