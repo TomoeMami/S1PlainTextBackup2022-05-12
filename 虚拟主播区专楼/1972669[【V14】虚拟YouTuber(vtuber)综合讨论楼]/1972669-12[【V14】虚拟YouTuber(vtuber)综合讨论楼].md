@@ -3952,3 +3952,14 @@ syl</blockquote>
 
 我郡真是硕大一个头…
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17978#       发表于 2022-12-14 00:48
+
+说起来哈弟箱新人出完了，目测没有axia
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
