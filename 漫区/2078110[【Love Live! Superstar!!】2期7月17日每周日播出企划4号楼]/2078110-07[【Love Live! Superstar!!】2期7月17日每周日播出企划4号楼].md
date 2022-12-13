@@ -15201,3 +15201,13 @@ pay还有相良昨天也去看了舞台剧，有可能是组团观看？
 
 sif九周年曲子
 
+
+
+*****
+
+####  ViyViy  
+##### 10240#       发表于 2022-12-13 17:50
+
+SIF2Liella的主题曲这就公布了，这游戏的开发进度是不是也没公布的时候想象的那么悲观。
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">曲名Miracle New Story,准备反向虹咲是吧。
+

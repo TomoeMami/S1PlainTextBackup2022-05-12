@@ -9334,3 +9334,15 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天是不是就有大家最喜欢的90艹了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3839#       发表于 2022-12-13 17:45
+
+132狂，第一波30万血大鬼，最后100万血奶光
+反正不是无限池，拿完奖励跑了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

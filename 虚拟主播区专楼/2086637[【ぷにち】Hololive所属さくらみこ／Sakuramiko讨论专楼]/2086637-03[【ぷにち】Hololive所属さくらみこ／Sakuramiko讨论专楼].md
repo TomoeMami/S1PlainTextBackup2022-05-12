@@ -5098,3 +5098,21 @@ yagoo噶吃势真是ybb<img src="https://static.saraba1st.com/image/smiley/face2
 
 mikorone没了……
 
+
+
+*****
+
+####  rs5621  
+##### 3478#       发表于 2022-12-13 17:46
+
+一年没一个组合<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3479#         楼主| 发表于 2022-12-13 17:50
+
+但是一年多一个组合啊
+
