@@ -3860,3 +3860,27 @@ syl</blockquote>
 
 我郡是雀豪！！！！两年了，这两年我是怎么过的😭😭😭…
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 17970#       发表于 2022-12-13 11:22
+
+774叕出新人啦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  psnsic8nag  
+##### 17971#       发表于 2022-12-13 11:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58917972&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-12-13 11:22</a>
+
+774叕出新人啦</blockquote>
+业界近期只剩Holo没出新人
+
+杏半年
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

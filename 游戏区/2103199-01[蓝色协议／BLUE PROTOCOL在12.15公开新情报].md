@@ -1394,3 +1394,12 @@ BNE第一次做MMO，体谅一下<img src="https://static.saraba1st.com/image/sm
 
 机动性也太高了，高难做不出啥难度，有翻滚的mmo是坏文明。
 
+
+
+*****
+
+####  医生狼多  
+##### 154#         楼主| 发表于 2022-12-13 11:26
+
+万代南梦宫 MMORPG《蓝色协议》10分钟实机演示，2023年登陆PC/Xbox Seires X|S/PS5。 http://t.cn/A6K9jyOt ​​​
+
