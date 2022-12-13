@@ -108,3 +108,12 @@
 
 打完了，剧情有个遗憾就是没有修罗场剧情<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  盐星  
+##### 3010#       发表于 2022-12-13 22:51
+
+打完第八章鸟哥让回去打诸神，没想到前面关卡的隐藏关我居然还疯狂受苦……
+
