@@ -88,3 +88,14 @@
 新章竞技场夫妻双打卡住了，有啥逃课攻略没？</blockquote>
 狂暴+恶魔右手+击退+完美防御。我是强撸过去的。
 
+
+
+*****
+
+####  2082082012  
+##### 3008#       发表于 2022-12-13 20:09
+
+打到矿石镇没嘉隆好难受啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
