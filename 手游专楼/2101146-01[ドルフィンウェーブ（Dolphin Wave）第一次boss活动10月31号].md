@@ -470,3 +470,24 @@ boss战继续追加高难
 
 运营再不想对策，就凭SSR常驻，总有一天大部队平铺满破16%每回合回血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 191#         楼主| 发表于 2022-12-13 13:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58917329&amp;ptid=2101146" target="_blank">kulanyee 发表于 2022-12-13 10:43</a>
+
+EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
+
+运营再不想对策，就凭SSR常驻，总有 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要难点还是输出不够，被对面打破盾就一回合带走了，回多少都没用
+
+*****
+
+####  小五的拖鞋  
+##### 192#         楼主| 发表于 2022-12-13 13:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跳两个池了，反正SSR也能混日子，等限定才出手
+
