@@ -9281,3 +9281,17 @@ FE以最高规格（指typemoon）重置还不够正经吗</blockquote>
 后续估计就是怼游星了，但是鉴于宇宙凛有疑似跟游星的恩怨，估计游星会死在咕哒手上。 ...</blockquote>
 可是游星不是每个世界线都有的吗，咕哒这边真能干掉也影响不到FE世界线吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 3834#       发表于 2022-12-13 09:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58910051&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-12 19:45</a>
+
+后续估计就是怼游星了，但是鉴于宇宙凛有疑似跟游星的恩怨，估计游星会死在咕哒手上。 ...</blockquote>
+五周年（2.5出之前）已经说了废狗不会正面涉及有关游星的内容了
+
+2.5把这部分当成设定一笔带过完全没展开也是例子
+

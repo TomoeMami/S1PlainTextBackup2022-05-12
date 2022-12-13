@@ -17512,3 +17512,14 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 这最终BOSS血量确定没有填错吗，我还是开的最低难度，23万血量而一刀只能打几十点。加上前面三连战打了十几 ...</blockquote>
 你没build好吧。。。大部分人都觉得新章的boss不够鲨的
 
+
+
+*****
+
+####  Kazepollar  
+##### 2998#       发表于 2022-12-13 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58915486&amp;ptid=2098044" target="_blank">黄昏的轮回 发表于 2022-12-13 08:04</a>
+ 草其实早就学会了但是眼瞎一直没看到。试了下确实回精很离谱。  然后我有个关于指令拳的问题。我 ...</blockquote>
+魔法扫帚的加成如果失效了，先用一个其他有伤害的技能来触发再开启
+
