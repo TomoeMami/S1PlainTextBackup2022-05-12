@@ -827,3 +827,16 @@ losing is fun！觉得没救了就开退休，让小人自己解决然后顺便�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  Nanachi  
+##### 88#       发表于 2022-12-13 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58915510&amp;ptid=2108537" target="_blank">2474089352 发表于 2022-12-13 08:11</a>
+还是字体问题，仅支持图形化字体而不支持ttf，要动这一块可能需要大规模的重构，但是这么多年开发的💩山可 ...</blockquote>
+这个版本才有gui，之前都是运行在终端里面的cli，倒不至于说是多年屎山
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
