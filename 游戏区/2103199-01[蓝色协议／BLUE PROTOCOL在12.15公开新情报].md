@@ -1446,3 +1446,14 @@ BNE第一次做MMO，体谅一下<img src="https://static.saraba1st.com/image/sm
 
 龙之谷的高难都很无厘头的，大量的秒杀团灭技能，然后每周门票卡得死死提高练习门槛，最后也就剩下土豪能玩下去了，后期一些高难本甚至连土豪都碾压不了。龙之谷凉得那么快不是没原因的。
 
+
+
+*****
+
+####  最强惠酱  
+##### 159#       发表于 2022-12-13 22:08
+
+这实机比之前好了不止一点半点啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
