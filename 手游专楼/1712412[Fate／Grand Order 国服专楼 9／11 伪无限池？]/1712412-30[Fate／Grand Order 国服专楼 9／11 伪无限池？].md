@@ -155,3 +155,12 @@ CBA没有补宝价值啊，该有的早有了
 
 本次剧情即使是在FGO的辣鸡剧情里，也算是最辣鸡的一档了。
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 43813#       发表于 2022-12-13 13:42
+
+两三年前就不看活动剧情了，虚数海战都skip了，不久后的通古斯还在犹豫要不要难得看一次，听说和主线挂钩不少？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
