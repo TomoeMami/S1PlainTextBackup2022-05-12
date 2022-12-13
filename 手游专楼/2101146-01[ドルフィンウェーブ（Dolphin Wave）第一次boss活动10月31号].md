@@ -505,3 +505,17 @@ EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
 
 我硬是破盾脸接风EX的一**招也能刚好三星过，一个大招掉8K血左右<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kulanyee  
+##### 194#       发表于 2022-12-13 17:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58922883&amp;ptid=2101146" target="_blank">kulanyee 发表于 2022-12-13 17:01</a>
+
+上四克制就行，哪怕上SR倍率摆在那输出也够
+
+我硬是破盾脸接风EX的一**招也能刚好三星过，一个大招掉8K血 ...</blockquote>
+一 波 大 招
+

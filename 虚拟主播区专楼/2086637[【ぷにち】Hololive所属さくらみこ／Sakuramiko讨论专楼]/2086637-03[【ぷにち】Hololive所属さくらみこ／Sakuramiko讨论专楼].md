@@ -5078,3 +5078,14 @@ yagoo噶吃势真是ybb<img src="https://static.saraba1st.com/image/smiley/face2
 
 充满了尴尬的空气
 
+
+
+*****
+
+####  rs5621  
+##### 3476#       发表于 2022-12-13 17:07
+
+漫才？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

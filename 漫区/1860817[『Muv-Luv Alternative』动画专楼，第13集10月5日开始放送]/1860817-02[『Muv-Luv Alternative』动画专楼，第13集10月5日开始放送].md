@@ -1899,3 +1899,17 @@ eh搜[âge] exogularity 01，有扫图，无汉化。
 
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  stevenzero  
+##### 2159#       发表于 2022-12-13 17:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58922736&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-12-13 16:53</a>
+
+管人又多活了一话……
+
+这460炮塔转速太快了，1000多吨还是轻飘飘的感觉。</blockquote>
+对，比高校舰队那4艘大和还魔幻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
