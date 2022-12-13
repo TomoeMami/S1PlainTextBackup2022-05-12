@@ -9488,3 +9488,20 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 红卡光炮有个6CD内的30NP自充和20被动就可以进队了（照这么说妖兰也可以穿灵衣带活动礼装刷本...），而狂信确实是这个本最优解<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">可惜我没有...
 
+
+
+*****
+
+####  exiaexa  
+##### 3849#       发表于 2022-12-13 23:30
+
+ 本帖最后由 exiaexa 于 2022-12-13 23:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58928244&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-13 23:13</a>
+
+其实我就是贪那点羁绊加成，所以想着尽可能不换人上活动从者...
+
+狂娜其实有缺点，因为源赖光被动 ...</blockquote>
+这次有效阵容多，而且都不怎么需要20np，就是吃仓库
+
+比如绿卡最稳的是太公望+双RBA+平景清，不用补刀不用黑杯不用点20np，三宝90级可以爆杀赖光160w
+
