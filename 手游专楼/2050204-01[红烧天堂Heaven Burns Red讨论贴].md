@@ -70,3 +70,12 @@
 看到要有中文了，想入坑。主要还是想品一品麻子写的百合。不氪金会不会推不动剧情啊？ ...</blockquote>
 不会，推不动可以等，总能等到削弱或者加强你（但是要肝）到能推的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  乙山法純  
+##### 853#       发表于 2022-12-13 21:20
+
+麻子主线更新频率向菌鸽鸽看齐，精力费在写歌上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
