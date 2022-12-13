@@ -804,3 +804,15 @@ losing is fun！觉得没救了就开退休，让小人自己解决然后顺便�
 感觉人或者物品多起来后很容易崩
 默认自动存档是每半年一次，回几次档没耐心了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  天妇罗  
+##### 86#       发表于 2022-12-13 07:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58862542&amp;ptid=2108537" target="_blank">zerg12345 发表于 2022-12-10 09:30</a>
+
+这玩意官中肯定没戏了，只能等民间大神了。昨天看一位主播是窗口模式，挂了个有道来截图翻译着玩。 ...</blockquote>
+创意工坊没有翻译接口开放的话，民间大神也难
+
