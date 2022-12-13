@@ -7465,3 +7465,39 @@ self：听话，给我戳戳！<img src="https://static.saraba1st.com/image/smil
 
 婆婆说的临终前清理下房间也太沉重了。。
 
+
+
+*****
+
+####  千恋万花  
+##### 558#       发表于 2022-12-13 16:03
+
+【すてっぷ⑪】ＤＩＹって、どぅー・いっと・ゆあせるふ！
+
+いよいよ『秘密基地』の着工！せるふはぷりんも一緒にやろうと誘う。
+
+実は、ぷりんはこれまでもジョブ子に手を貸したり、必要な資金を得るためのアクセサリーを作ったりと、せるふたちの知らないところで協力していたのだった。
+
+そう、ぷりんもＤＩＹ部の仲間だ。
+
+学校が違うから、ぷりんもしーも、正式な部員にはカウントされないけど、部としての存続云々は、今はもうどうでもいい。
+
+せるふ、ぷりん、くれい、たくみ、ジョブ子、しー、６人の仲間が、力を合わせて、目標へと進む。
+
+自分たちの手で作る！ それが何より、楽しく、嬉しいことなのだ。
+
+そして、せるふたちは力を合わせて作業を進める。
+
+雨の日も、晴れの日も。夏休みが目前に迫る――。
+
+脚本：筆安一幸
+
+絵コンテ・演出：佐竹秀幸
+
+作画監督：今岡律之 茂木海渡 住本悦子 山内 遼
+<img src="https://p.sda1.dev/8/cdb70f29d1012cb84538effd288b7cd2/a9e500c3564d1f41d7764b671362ca27.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/00888b224aca521733b45aa84f638e16/ae44b34e8c85f500939a0c9501570a7b.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/3cd170e2562df61f3e7be4099dd7d833/7d5386c303145441b73b626237362a2a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/f6519adcb0335991092c55c79c4f3ede/43e1360b4583716cdf3d5c04eb0d7704.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/75f603ea5bdbc6b8ae2d9f9a05e9be92/acb972455c2e2c194fb06d42dcb38e03.jpg" referrerpolicy="no-referrer">
+

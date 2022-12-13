@@ -50,3 +50,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有中文有啥区别 这游戏是不是摆烂了 每个月一次活动  每天几分钟解决 异时层也懒得打了 活动刷完就挂珠宝迷宫。。。。主线也不存在了
 
+
+
+*****
+
+####  无意义小号  
+##### 851#       发表于 2022-12-13 16:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到要有中文了，想入坑。主要还是想品一品麻子写的百合。不氪金会不会推不动剧情啊？
+
