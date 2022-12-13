@@ -1425,3 +1425,15 @@ BNE第一次做MMO，体谅一下<img src="https://static.saraba1st.com/image/sm
 机动性也太高了，高难做不出啥难度，有翻滚的mmo是坏文明。</blockquote>
 龙之谷当年的高难boss，中日韩合起来首杀都干了多久，还不够难呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  GuardHei  
+##### 157#       发表于 2022-12-13 18:27
+
+这新演示感觉手感提升显着
+就是那个坐骑动画非常鬼畜…
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
