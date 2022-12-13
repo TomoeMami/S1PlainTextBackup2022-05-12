@@ -5138,3 +5138,14 @@ mikorone没了……
 
 你自己的呢？等了一年了
 
+
+
+*****
+
+####  rs5621  
+##### 3482#       发表于 2022-12-13 20:39
+
+开心到发推了，下次还玩
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

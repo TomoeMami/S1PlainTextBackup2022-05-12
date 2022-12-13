@@ -117,3 +117,19 @@
 
 百鬼组外出套装齐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一仙  
+##### 14458#       发表于 2022-12-13 20:34
+
+草 拖了一整年的mv
+
+*****
+
+####  Fami水  
+##### 14459#       发表于 2022-12-13 20:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还记得这个MV呢 大家都要忘了 这是去年LIVE上放的那个吧
+
