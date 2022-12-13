@@ -5316,3 +5316,28 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 原有选人界面UI放大缩小，或者第二季开启重新设计就搞定了
 
+
+
+*****
+
+####  岸浪白野  
+##### 504#       发表于 2022-12-13 12:46
+
+<img src="https://img.saraba1st.com/forum/202212/13/124420qccdfpqvcdvvpeje.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221213124327.png</strong> (344.71 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-13 12:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/13/124439l62d9ops6t662tp0.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221213124334.png</strong> (141.21 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-13 12:44 上传
+
+不过看到欧美有这样说的，还有8个位置？
+
