@@ -9295,3 +9295,15 @@ FE以最高规格（指typemoon）重置还不够正经吗</blockquote>
 
 2.5把这部分当成设定一笔带过完全没展开也是例子
 
+
+
+*****
+
+####  UNISONIA  
+##### 3835#       发表于 2022-12-13 09:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58908186&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-12-12 17:25</a>
+
+我想看FE世界观后续啊link那个写的什么捷豹玩意儿</blockquote>
+Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还欠着两部呢（FER在marvelous那边估计只涉及发行，跟marvelous自己参与制作的extella第二部是平行制作的，不直接相关
+

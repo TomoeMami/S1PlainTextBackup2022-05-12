@@ -85,3 +85,21 @@ Steam页面：[https://store.steampowered.com/app/2139300/Redemption_Reapers/](h
 
 这预告全是特写镜头，把我眼睛都要晃晕了
 
+
+
+*****
+
+####  thee  
+##### 622#       发表于 2022-12-13 09:11
+
+还以为是莉莉续作，可惜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  schneehertz  
+##### 623#       发表于 2022-12-13 09:12
+
+写实风格的啊，那没意思
+
