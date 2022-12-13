@@ -459,3 +459,14 @@ boss战继续追加高难
 
 常驻的话我觉得还是学闪乱那样攒石等fes限吧，不过yysy这boss战ex没对策ur卡还真的挺难三星
 
+
+
+*****
+
+####  kulanyee  
+##### 190#       发表于 2022-12-13 10:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
+
+运营再不想对策，就凭SSR常驻，总有一天大部队平铺满破16%每回合回血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
