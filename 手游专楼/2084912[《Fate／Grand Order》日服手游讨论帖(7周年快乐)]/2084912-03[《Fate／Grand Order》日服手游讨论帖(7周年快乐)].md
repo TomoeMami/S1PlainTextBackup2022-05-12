@@ -9471,3 +9471,20 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 就是第一面得等一张红卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3848#       发表于 2022-12-13 23:13
+
+ 本帖最后由 Jamaisvu 于 2022-12-13 23:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58928008&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-13 22:53</a>
+
+怎么狂那都出来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">其实我就是贪那点羁绊加成，所以想着尽可能不换人上活动从者...
+
+狂娜其实有缺点，因为源赖光被动有对魔力D（耐性12.5%），所以哪怕是有奥伯龙的对人理D（弱体10%），也可能吃不到debuff触发不了特攻...
+
+红卡光炮有个6CD内的30NP自充和20被动就可以进队了（照这么说妖兰也可以穿灵衣带活动礼装刷本...），而狂信确实是这个本最优解<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">可惜我没有...
+
