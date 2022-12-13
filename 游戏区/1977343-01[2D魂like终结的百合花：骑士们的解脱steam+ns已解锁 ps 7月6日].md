@@ -152,3 +152,12 @@ md，我的冲国人特攻白毛loli呢
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Youszsh  
+##### 629#       发表于 2022-12-13 12:31
+
+莉莉最大的卖点2d美术和音乐全给抛弃了，一副烂大街的暴死相
+
