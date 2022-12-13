@@ -9346,3 +9346,21 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  岸浪白野  
+##### 3840#       发表于 2022-12-13 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58895910&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-11 22:33</a>
+
+牛肉丸估计是1.7魔兽战线动画里表现比较吸粉吧，又是日本从者，和秋叶线众人交流起来可能比较融洽？（回头 ...</blockquote>
+中日英大迷惑，现在推特上日英还在实时迷惑呢更别说只玩格斗的，特别是针对牛若丸。
+
+而且照前面dlc用一老人带一新人都不会像现在这样
+
+老人月姬那边被剧情受限很正常，七夜就算boss rush录音都录好还受限也没办法，但是214呢没理由啊？
+
+这波两从者已经是最后的免费dlc，猫arc还说是最后的召唤，至于是不是p话就不知道了
+
