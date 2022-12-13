@@ -17486,3 +17486,18 @@ S1 上图不方便，也可以直接百度搜 “神之天平 CE 难度”，贴
 加点的前提是敏捷加够，让重量在80以下或者觉得手感舒服的重量。其他都可以随意。全幸运就是游戏魂系一些 ...</blockquote>
 没必要，有个嘉隆能力还是饰品的，可以让挥舞重武器不费力
 
+
+
+*****
+
+####  黄昏的轮回  
+##### 2996#       发表于 2022-12-13 08:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58914096&amp;ptid=2098044" target="_blank">meaninglessd 发表于 2022-12-13 00:34</a>
+空中擒抱是天鹅绒这个铠甲的精通，应该是什么地方漏掉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草其实早就学会了但是眼瞎一直没看到。试了下确实回精很离谱。
+
+然后我有个关于指令拳的问题。我自己照着视频抄了一下指令拳的关键配装。凯撒，龙戒，魔法扫帚，风精灵，暗黑，麦克斯韦啥的，然后盖亚迷宫的小怪基本两三拳一个，看数字大概是六七千的追伤，不算高但是也挺爽的，毕竟装备盘没怎么刷。然后爱情刷满了之后去刷了一下荧光棒的精通，刷完回来之后发现追伤只有几百了，明明魔导力已经靠更新装备盘做到buff后2200多，但是很偶尔会打出一万多的追伤，想问一下是不是我的输出手法有问题？
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
