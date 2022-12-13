@@ -160,3 +160,19 @@
 
 —— 来自 samsung SM-G9860, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  urvark  
+##### 3015#       发表于 2022-12-14 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58928887&amp;ptid=2098044" target="_blank">2082082012 发表于 2022-12-14 00:08</a>
+
+对了这是bug吗？弑神剑不是双持吗？
+
+—— 来自 samsung SM-G9860, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+同时装备双手武器和盾牌的判定条件是必须有技能神之左手，但装备之后就不会再判定，所以可以先装备单手武器+隐藏BOSS的那个送神之左手技能的盾牌，再换成双手武器，然后换成其它盾牌
+
+因为在装备其它盾牌的瞬间，判定神之左手还是生效的，装上其它盾牌后神之左手无了，但只要你不切换装备，就不会再进行判定，所以可以一直用
+
