@@ -14,3 +14,17 @@
 
 后面竞技场还有更变态的，如果你觉得狗男女不好打，不妨先去刷一刷，反正也打不完……
 
+
+
+*****
+
+####  C男人  
+##### 3002#       发表于 2022-12-13 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58919032&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-13 12:45</a>
+
+新章竞技场夫妻双打卡住了，有啥逃课攻略没？</blockquote>
+推荐 “长按 ↑+攻击” 的挑空剑，
+
+这两人都是轻体型，可以无限挑飞，他俩的攻击就基本打不到玩家了。
+
