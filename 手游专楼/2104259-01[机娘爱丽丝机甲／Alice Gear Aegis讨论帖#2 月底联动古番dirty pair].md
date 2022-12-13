@@ -25,3 +25,33 @@
 
 冬comike主打学生会角色歌+周边，为了宣传必定有学生会活动没跑了。问题是月中加FA那么月末干什么？
 
+
+
+*****
+
+####  LEOKO~  
+##### 131#       发表于 2022-12-13 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58791215&amp;ptid=2104259" target="_blank">Rincewind 发表于 2022-12-6 05:57</a>
+
+说不准到时候就发现Alice其实退到高次元了所有有emission能力的女演员都有可能被顶号
+
+博士精神病归精神病， ...</blockquote>
+估计不是博士搞的
+
+现推断是美里江早就在事故里和父母一起死了，现在的美里江是顶替原美里江户口的生体人造人
+
+*****
+
+####  LEOKO~  
+##### 132#       发表于 2022-12-13 21:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58791215&amp;ptid=2104259" target="_blank">Rincewind 发表于 2022-12-6 05:57</a>
+
+说不准到时候就发现Alice其实退到高次元了所有有emission能力的女演员都有可能被顶号
+
+博士精神病归精神病， ...</blockquote>
+估计不是博士搞的
+
+现推断是美里江早就在事故里和父母一起死了，现在的美里江是顶替原美里江户口的生体人造人
+
