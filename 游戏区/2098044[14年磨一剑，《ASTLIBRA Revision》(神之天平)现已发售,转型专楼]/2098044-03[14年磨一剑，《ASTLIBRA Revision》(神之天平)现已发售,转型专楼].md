@@ -28,3 +28,17 @@
 
 这两人都是轻体型，可以无限挑飞，他俩的攻击就基本打不到玩家了。
 
+
+
+*****
+
+####  C男人  
+##### 3003#       发表于 2022-12-13 18:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58911305&amp;ptid=2098044" target="_blank">猫出没注意 发表于 2022-12-12 21:15</a>
+
+这最终BOSS血量确定没有填错吗，我还是开的最低难度，23万血量而一刀只能打几十点。加上前面三连战打了十几 ...</blockquote>
+最终BOSS是大体型，
+
+所以暗炎、独角兽那种光线炮可以从头洗到脚，伤害十分可观。
+
