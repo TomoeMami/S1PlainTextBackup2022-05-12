@@ -1457,3 +1457,21 @@ BNE第一次做MMO，体谅一下<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 samsung SM-G981N, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  emmer  
+##### 160#       发表于 2022-12-13 22:14
+
+看视频感觉不错，想玩
+
+但是这个坐骑癫痫一样的移动方式，组内真的没人发现有问题吗
+
+*****
+
+####  zzp05402  
+##### 161#       发表于 2022-12-13 22:19
+
+看框架底子好不好，坐骑这种都算小问题
+
