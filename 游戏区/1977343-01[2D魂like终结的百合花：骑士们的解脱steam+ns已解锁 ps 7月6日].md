@@ -123,3 +123,12 @@ srpg好评！但是画面感觉不太行
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  tansapple  
+##### 626#       发表于 2022-12-13 11:21
+
+完全脱离原有的美术风格，感觉一眼暴死啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
