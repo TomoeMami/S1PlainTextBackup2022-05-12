@@ -1887,3 +1887,15 @@ eh搜[âge] exogularity 01，有扫图，无汉化。
 
 —— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Toby_dak  
+##### 2158#       发表于 2022-12-13 16:53
+
+管人又多活了一话……
+这460炮塔转速太快了，1000多吨还是轻飘飘的感觉。
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+

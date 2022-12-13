@@ -59,3 +59,14 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到要有中文了，想入坑。主要还是想品一品麻子写的百合。不氪金会不会推不动剧情啊？
 
+
+
+*****
+
+####  poor  
+##### 852#       发表于 2022-12-13 16:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58921928&amp;ptid=2050204" target="_blank">无意义小号 发表于 2022-12-13 16:05</a>
+看到要有中文了，想入坑。主要还是想品一品麻子写的百合。不氪金会不会推不动剧情啊？ ...</blockquote>
+不会，推不动可以等，总能等到削弱或者加强你（但是要肝）到能推的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

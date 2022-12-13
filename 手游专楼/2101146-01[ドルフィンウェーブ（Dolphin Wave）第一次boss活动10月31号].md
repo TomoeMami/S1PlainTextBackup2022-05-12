@@ -491,3 +491,17 @@ EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">跳两个池了，反正SSR也能混日子，等限定才出手
 
+
+
+*****
+
+####  kulanyee  
+##### 193#       发表于 2022-12-13 17:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58919706&amp;ptid=2101146" target="_blank">小五的拖鞋 发表于 2022-12-13 13:34</a>
+
+主要难点还是输出不够，被对面打破盾就一回合带走了，回多少都没用 ...</blockquote>
+上四克制就行，哪怕上SR倍率摆在那输出也够
+
+我硬是破盾脸接风EX的一**招也能刚好三星过，一个大招掉8K血左右<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+

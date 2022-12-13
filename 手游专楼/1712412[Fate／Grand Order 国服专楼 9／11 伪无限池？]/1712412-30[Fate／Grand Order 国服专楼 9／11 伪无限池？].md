@@ -164,3 +164,12 @@ CBA没有补宝价值啊，该有的早有了
 
 两三年前就不看活动剧情了，虚数海战都skip了，不久后的通古斯还在犹豫要不要难得看一次，听说和主线挂钩不少？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimotsuki14  
+##### 43814#       发表于 2022-12-13 16:57
+
+这次活动这么短？感觉还没干个啥已经就剩三天了，这次估计搬不了商店了甚至
+
