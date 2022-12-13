@@ -15211,3 +15211,12 @@ sif九周年曲子
 SIF2Liella的主题曲这就公布了，这游戏的开发进度是不是也没公布的时候想象的那么悲观。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">曲名Miracle New Story,准备反向虹咲是吧。
 
+
+
+*****
+
+####  nufawneafg  
+##### 10241#       发表于 2022-12-13 18:19
+
+有点想知道包给谁做了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
