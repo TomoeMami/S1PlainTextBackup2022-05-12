@@ -182,3 +182,16 @@ md，我的冲国人特攻白毛loli呢
 
 渣渣
 
+
+
+*****
+
+####  whzfjd  
+##### 632#       发表于 2022-12-14 01:38
+
+终焉莉莉毕竟是买 deviantart 上的概念美术集看图说话做的
+
+白毛幼女是美术集作者的品味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这个组目前恐怕没有自我复制的能力
+

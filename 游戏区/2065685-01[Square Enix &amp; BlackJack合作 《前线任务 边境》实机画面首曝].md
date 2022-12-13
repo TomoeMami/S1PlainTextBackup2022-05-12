@@ -883,3 +883,14 @@ OCU与USN，2070年第一次哈夫曼战争爆发，2090年第二次哈夫曼战
 
 分成谈寄了呗，太正常了
 
+
+
+*****
+
+####  雷修特  
+##### 80#       发表于 2022-12-14 01:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">自从哈利波特后就没有不崩的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
