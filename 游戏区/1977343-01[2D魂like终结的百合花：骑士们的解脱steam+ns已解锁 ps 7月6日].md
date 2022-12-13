@@ -112,3 +112,14 @@ Steam页面：[https://store.steampowered.com/app/2139300/Redemption_Reapers/](h
 
 srpg好评！但是画面感觉不太行
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 625#       发表于 2022-12-13 10:04
+
+莉莉那世界观还怎么续啊，新作才对。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
