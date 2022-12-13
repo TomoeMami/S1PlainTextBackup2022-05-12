@@ -5245,3 +5245,18 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  gpx234mqx  
+##### 498#       发表于 2022-12-13 10:31
+
+<blockquote>剣崎比留子 发表于 2022-12-12 21:19
+出个有珠和两仪式会是与现在截然相反的结果吧
+
+我看其实也不是不知道mb玩家想要什么，憋着卖有料dlc罢了
+
+ ...</blockquote>
+无料dlc，那有啥好说的，又不收你钱
+
