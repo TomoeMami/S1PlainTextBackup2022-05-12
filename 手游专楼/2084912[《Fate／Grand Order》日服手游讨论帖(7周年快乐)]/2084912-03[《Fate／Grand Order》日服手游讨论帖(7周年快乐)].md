@@ -9568,3 +9568,44 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">丢个低配6加成录像  （4宝具警告
 
+
+
+*****
+
+####  exiaexa  
+##### 3855#       发表于 2022-12-14 02:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58928825&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-12-14 00:02</a>
+看到隔壁2宝公主+圣诞太阳就能6加成  我试了 真可以</blockquote>
+对我来说不存在的，剑迦尔纳不配吃结晶
+换成平景清拐还能换个更弱的蹭羁绊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 3856#       发表于 2022-12-14 03:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58929815&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-14 02:34</a>
+
+对我来说不存在的，剑迦尔纳不配吃结晶
+
+换成平景清拐还能换个更弱的蹭羁绊
+
+ ...</blockquote>
+然而 并不需要结晶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 3857#       发表于 2022-12-14 04:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">看你们说的都好复杂的样子....我都是1 2面妖兰....3面黑杯公主....带换人衣服和奥伯龙
+
+*****
+
+####  DARKGRAY  
+##### 3858#       发表于 2022-12-14 05:02
+
+先用茶壶，高配阵走起了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
