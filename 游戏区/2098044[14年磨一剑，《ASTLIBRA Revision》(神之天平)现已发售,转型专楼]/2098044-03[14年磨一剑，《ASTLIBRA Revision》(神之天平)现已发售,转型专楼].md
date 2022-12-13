@@ -51,3 +51,15 @@
 
 跳空剑正解，可以打得他们毫无还手之力
 
+
+
+*****
+
+####  黄昏的轮回  
+##### 3005#       发表于 2022-12-13 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58919579&amp;ptid=2098044" target="_blank">白軍浪 发表于 2022-12-13 13:25</a>
+
+荧光棒看上去是剑，但其实算法杖，你用法杖的思路来强化看看</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">竟然是法杖，不过我主要疑惑的是同一套指令拳配装，拳套伤害突然就低了这么多
+
