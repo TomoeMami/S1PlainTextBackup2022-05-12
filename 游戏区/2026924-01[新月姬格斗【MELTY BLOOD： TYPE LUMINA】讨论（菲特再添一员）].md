@@ -5278,3 +5278,15 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 那么月r加谁
 
+
+
+*****
+
+####  岸浪白野  
+##### 501#       发表于 2022-12-13 11:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58917124&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-13 10:32:07</a>
+只要不停出无料dlc角色，怕个屁啊</blockquote>已经结束喇，最后的免费DLC，后面付费DLC了
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
