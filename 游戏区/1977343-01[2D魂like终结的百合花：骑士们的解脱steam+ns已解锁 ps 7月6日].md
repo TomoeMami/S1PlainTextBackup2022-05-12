@@ -141,3 +141,14 @@ srpg好评！但是画面感觉不太行
 
 风格也变太大了，老实搞2d不好吗
 
+
+
+*****
+
+####  牙狼GARO  
+##### 628#       发表于 2022-12-13 12:07
+
+md，我的冲国人特攻白毛loli呢
+
+—— 来自 OnePlus LE2100, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
