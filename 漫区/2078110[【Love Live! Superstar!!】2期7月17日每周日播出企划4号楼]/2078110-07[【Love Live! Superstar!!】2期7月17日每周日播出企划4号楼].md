@@ -15268,3 +15268,20 @@ twi：@_CelticWhite_
 
 结成两年37场独立演唱会，这速度简直坐火箭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10246#       发表于 2022-12-14 00:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来yabu之前也干过偶像，官推关注数471的那种
+
+<img src="https://img.saraba1st.com/forum/202212/14/002928jxrxefqh95yqbub9.jpg" referrerpolicy="no-referrer">
+
+<strong>nPROKQZ.jpg</strong> (170.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-14 00:29 上传
+
