@@ -9452,3 +9452,22 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 其实红卡队最好使的还是狂娜双狐奥宝，枪迦尔纳如果三技能是30NP也适合这个本，可惜了。
 
+
+
+*****
+
+####  exiaexa  
+##### 3847#       发表于 2022-12-13 22:53
+
+ 本帖最后由 exiaexa 于 2022-12-13 22:55 编辑 
+
+怎么狂那都出来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+神性、天、狂
+
+这不是指名道姓让你用信长吗，全BUFF下去估计1宝信长都不用补刀的
+
+就是第一面得等一张红卡
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
