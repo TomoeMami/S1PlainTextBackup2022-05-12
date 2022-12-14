@@ -15823,3 +15823,27 @@ nako
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ads147147  
+##### 10289#       发表于 2022-12-15 00:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944120&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-14 23:02</a>
+哦对今天还公布了SIF2果皇的立绘，那立绘质量真的是2023+的游戏吗……</blockquote>
+姿势都是sif最早的那个（虽然重画了），总之一副便宜赛璐璐的味道，搞不懂上头人怎么想的。只能说这就是初始r卡让你垫的吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 10290#       发表于 2022-12-15 00:31
+
+虽然维他命这个歌确实不错，但是又是衔接在圣香音赚人入伙，又是宛如摆烂一样的3d出演，个人对这歌是喜欢不起来，三次元又没办法做出动画里那种led灯管的独特优势。
+
+为啥不选sss。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
