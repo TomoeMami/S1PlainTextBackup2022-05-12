@@ -15395,3 +15395,16 @@ BD3 631/10186
 —— 来自 S1Fun</blockquote>
 其实降板花田可能情况会变得更糟糕。。降板京极可能会好一点点点点。反正我想不出拯救12人的星3剧本，虹2的12人拍的好是因为虹1已经拍好了九个人。
 
+
+
+*****
+
+####  Kfly  
+##### 10256#       发表于 2022-12-14 17:03
+
+除非抛开第二季剧情重新设计（也就是平行世界），星三是真的不指望。
+
+要怎么用12集来拯救接近20集的崩坏啊？做不到的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+然而“平行世界”基本不可能，那么到时候第三季也就看个乐吧（已经不存在期待了<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">）
+
