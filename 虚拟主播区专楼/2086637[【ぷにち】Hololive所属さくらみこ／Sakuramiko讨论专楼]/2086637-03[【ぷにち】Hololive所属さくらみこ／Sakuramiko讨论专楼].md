@@ -5392,3 +5392,14 @@ mio:pekomiko……哈恰玛
 
 团体赛也这么强，中之人换了还是私下猛练？
 
+
+
+*****
+
+####  rs5621  
+##### 3504#       发表于 2022-12-14 21:54
+
+肯定是私下偷偷玩了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
