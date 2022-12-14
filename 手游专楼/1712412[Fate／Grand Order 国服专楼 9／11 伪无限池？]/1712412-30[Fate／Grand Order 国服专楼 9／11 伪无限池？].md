@@ -253,3 +253,17 @@ CBA没有补宝价值啊，该有的早有了
 
 慢着，这次圣诞只有10天？突然只剩3天
 
+
+
+*****
+
+####  dawning  
+##### 43823#       发表于 2022-12-14 14:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58935024&amp;ptid=1712412" target="_blank">6030sylar 发表于 2022-12-14 12:53</a>
+
+慢着，这次圣诞只有10天？突然只剩3天</blockquote>
+现在就剩两天了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，
+
+万众期待的通古斯也没几天<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">，
+
