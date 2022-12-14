@@ -537,3 +537,12 @@ EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">试了下风属性ex boss，一队满练SSR还是能打的，甚至破防一次血线还挺稳，可惜打了3次都运气不好只有2星，对面会封技能回血，送的SSR紫苑被完美针对了
 
+
+
+*****
+
+####  MEKA  
+##### 197#       发表于 2022-12-14 21:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">风EXBOSS的遮断还会封SP回复的卡，这BUFF一上2个暗属性防守UR就成小丑了
+
