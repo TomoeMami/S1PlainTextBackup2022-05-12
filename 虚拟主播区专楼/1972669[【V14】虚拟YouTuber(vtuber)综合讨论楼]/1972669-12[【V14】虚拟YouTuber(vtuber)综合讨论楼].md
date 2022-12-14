@@ -4112,3 +4112,19 @@ Up until today, numerous discussions have been held with Yugo Asuma on what it m
 难以想象被毕业是能干了什么</blockquote>
 当暗部有点特权很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fastary  
+##### 17993#       发表于 2022-12-14 17:41
+
+以非不明言大家也知道什么情况的理由开人，作为上市公司不应该控制下舆论吗。所以为什么不说清楚一点什么叫“对于liver活动的认识和直播内外的活动有些公司不容许的部分”啊？
+
+*****
+
+####  ヒトニナル  
+##### 17994#       发表于 2022-12-14 17:44
+
+这第三个吧，金鱼前面还有个雷速登呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
