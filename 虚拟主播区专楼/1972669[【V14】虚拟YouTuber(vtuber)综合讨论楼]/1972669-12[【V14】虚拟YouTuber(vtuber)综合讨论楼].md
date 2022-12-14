@@ -4094,3 +4094,21 @@ Up until today, numerous discussions have been held with Yugo Asuma on what it m
 
 本人同意那部分确实比金鱼好很多，估计不会给大伙儿搞个《2535的noa》的en版（重提到这茬还是会被她的幽默感乐到）
 
+
+
+*****
+
+####  poipanchao  
+##### 17991#       发表于 2022-12-14 17:30
+
+「四天王を喰い杀す」有什么问题！
+
+*****
+
+####  winda  
+##### 17992#       发表于 2022-12-14 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58939071&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-12-14 17:25</a>
+难以想象被毕业是能干了什么</blockquote>
+当暗部有点特权很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
