@@ -5463,3 +5463,20 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 再说了，mb也不过是月姬r的附赠品。
 真是升米恩斗米仇，喂不饱的狼。
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 516#       发表于 2022-12-14 18:41
+
+<img src="https://img.saraba1st.com/forum/202212/14/184049v2k242r422lk3lqt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-14 18:40 上传
+
+喜欢我fgo学园fgo格斗吗
+
