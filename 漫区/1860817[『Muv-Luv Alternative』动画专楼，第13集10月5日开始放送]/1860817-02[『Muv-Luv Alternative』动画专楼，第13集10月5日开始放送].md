@@ -1913,3 +1913,31 @@ eh搜[âge] exogularity 01，有扫图，无汉化。
 这460炮塔转速太快了，1000多吨还是轻飘飘的感觉。</blockquote>
 对，比高校舰队那4艘大和还魔幻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cloudliu  
+##### 2160#       发表于 2022-12-14 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58922958&amp;ptid=1860817" target="_blank">stevenzero 发表于 2022-12-13 17:05</a>
+
+对，比高校舰队那4艘大和还魔幻</blockquote>
+其实考虑有光线级 我觉得用大口径舰炮 不如用高射速的155或者125mm 这样更难拦截 beta也没太厚装甲
+
+而且也不明白为什么要在视距内打 可以地球曲率海平线外炮击 光线级就没办法了吧
+
+
+
+*****
+
+####  stevenzero  
+##### 2161#       发表于 2022-12-14 09:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58932052&amp;ptid=1860817" target="_blank">cloudliu 发表于 2022-12-14 09:53</a>
+
+其实考虑有光线级 我觉得用大口径舰炮 不如用高射速的155或者125mm 这样更难拦截 beta也没太厚装甲
+
+而且 ...</blockquote>
+平常就是曲率炮击的，这次算是自杀任务抵近射击，营救部队兼当诱饵。
+
