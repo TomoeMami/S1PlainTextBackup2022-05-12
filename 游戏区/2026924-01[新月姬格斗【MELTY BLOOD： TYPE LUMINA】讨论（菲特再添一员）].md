@@ -5386,3 +5386,23 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 牛若丸演示出了，看起来是强角色</blockquote>
 感觉还是大家都差不多……
 
+
+
+*****
+
+####  米澤穂信  
+##### 509#       发表于 2022-12-14 08:22
+
+每个角色都一样，用起来有什么差别
+
+*****
+
+####  狗屁不通  
+##### 510#       发表于 2022-12-14 08:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58917112&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-13 10:31</a>
+无料dlc，那有啥好说的，又不收你钱</blockquote>
+这傻逼游戏初始才几个角色啊，不出免费dlc好意思卖这游戏吗
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
