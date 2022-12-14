@@ -5374,3 +5374,15 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 不过看到欧美有这样说的，还有8个位置？</blockquote>
 根本不用这么纠结这个，直接加个滚动箭头完事了
 
+
+
+*****
+
+####  猫坤  
+##### 508#         楼主| 发表于 2022-12-14 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58926951&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2022-12-13 21:30</a>
+
+牛若丸演示出了，看起来是强角色</blockquote>
+感觉还是大家都差不多……
+
