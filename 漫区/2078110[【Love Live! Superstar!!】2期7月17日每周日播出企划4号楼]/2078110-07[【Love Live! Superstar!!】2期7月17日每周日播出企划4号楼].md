@@ -15316,3 +15316,14 @@ yabu也是前偶像啊，那就是有三个人干过偶像，不过pay和yabu笑
 
 还有点喜欢她有丶不情愿有不得不营业的样子，是我的问题。
 
+
+
+*****
+
+####  s3081260  
+##### 10250#       发表于 2022-12-14 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58933377&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-14 11:06</a>
+主要我觉得奇怪的是她这明明多少有点经验，生放上却跟个素人一样</blockquote>
+有可能她当年当偶像时也是这副不惯着你的人设
+
