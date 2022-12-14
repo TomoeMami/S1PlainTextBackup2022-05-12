@@ -5449,3 +5449,17 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 初始14个，女仆占三个，军刀占一个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Gundamslave  
+##### 515#       发表于 2022-12-14 12:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58933947&amp;ptid=2026924" target="_blank">狗屁不通 发表于 2022-12-14 11:38</a>
+这几个免费dlc角色坑位占的本来就该是首发就有的角色数量，现在首发做不完了后续才补更新我是还要感谢他 ...</blockquote>
+当然了，mb可是fgo老爷心善赏的。
+你有机会玩上mb都得好好感谢fgo老爷。
+再说了，mb也不过是月姬r的附赠品。
+真是升米恩斗米仇，喂不饱的狼。
+
