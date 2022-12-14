@@ -15367,3 +15367,17 @@ BD3 631/10186
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  starring  
+##### 10254#       发表于 2022-12-14 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58938148&amp;ptid=2078110" target="_blank">沙茶酱 发表于 2022-12-14 16:30</a>
+第三季有没有可能换田中仁他们过来
+
+—— 来自 S1Fun</blockquote>
+绝对没可能，田中仁明年还有推子和露营3。河村过来做一下演出之类还有点可能
+田中仁回去东大妈拯救一下Q娃都比掺和星3好<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+

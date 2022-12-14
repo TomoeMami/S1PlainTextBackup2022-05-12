@@ -3972,3 +3972,53 @@ syl</blockquote>
 
 我惊，en毕业第一人出现了，而且是金鱼那种被辞的
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17980#       发表于 2022-12-14 16:32
+
+ 本帖最后由 格林卡罗尔 于 2022-12-14 16:38 编辑 
+
+看来方向性不同还有被开了的意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是很可惜，希望以后不要再直播中喝酒了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Suny08  
+##### 17981#       发表于 2022-12-14 16:36
+
+来点盒中盒消息到底是因为啥被开的，记得那次暴言直播已经过好久了
+
+*****
+
+####  poipanchao  
+##### 17982#       发表于 2022-12-14 16:39
+
+金鱼的措辞不一样吧
+感觉是直播外的行为，比如私联，泄露信息啥的（没说她做了这些）
+
+*****
+
+####  rzrbtk  
+##### 17983#       发表于 2022-12-14 16:39
+
+<blockquote>格林卡罗尔 发表于 2022-12-14 16:32
+看来方向性不同还有被开了的意思
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1Next-鹅版 v2.5. ...</blockquote>
+已经不是方向性那种了，都直说行为社内不认同，虹以前就开过一个人，吓人啊…如果阿夏那种跑路的余震是粉丝互殴，金鱼那可是拉前辈自爆加历史封印了，不敢猜
+
+*****
+
+####  fastary  
+##### 17984#       发表于 2022-12-14 16:39
+
+肯定没axia啊，竞业协议再宽松也不可能允许光速企业势转生，而且这点时间就算他说要辞马上就去给哈弟投简历也不够<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+yugo除了以前有次好像醉酒直播说要是自己真是男人就好了以外没听说犯什么事啊，怎么直接被开了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+

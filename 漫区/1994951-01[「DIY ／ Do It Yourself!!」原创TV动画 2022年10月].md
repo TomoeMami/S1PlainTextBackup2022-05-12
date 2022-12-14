@@ -7517,3 +7517,24 @@ self：听话，给我戳戳！<img src="https://static.saraba1st.com/image/smil
 
 强行搞个材料丢失小插曲，是要给布丁一个傲娇专场？
 
+
+
+*****
+
+####  千恋万花  
+##### 561#       发表于 2022-12-14 16:38
+
+『Do It Yourself!! -どぅー・いっと・ゆあせるふ-』
+
+すてっぷ１１本日２４時～放送です&amp;#x1F528;
+
+残り２話！ということで、今まで登場した衣装を抜粋してご紹介！
+
+▼各動画サイトでも配信中！
+[https://diy-anime.com/onair/](https://diy-anime.com/onair/)
+
+<img src="https://p.sda1.dev/8/2430d19ca32d5598cce67bd1cbad3bb2/PINEJAM_info-1602943979753971714-img1.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/bbfb30170e22c70b670728872be588fd/PINEJAM_info-1602943979753971714-img2.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/2cc4680e5280a3df6367c36267756286/PINEJAM_info-1602943979753971714-img3.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/ace91bf9e147447c6fc6c704344e3e5c/PINEJAM_info-1602943979753971714-img4.png" referrerpolicy="no-referrer">
+
