@@ -34,3 +34,14 @@ VP直接选阿努比斯，有点意思
 陌生的g2太陌生了，这次什么时候回原型</blockquote>
 已经回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dev2ce  
+##### 2944#       发表于 2022-12-14 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58942734&amp;ptid=1857369" target="_blank">heseran 发表于 2022-12-14 21:28</a>
+已经回来了</blockquote>
+太典了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说你的，我玩我的，其实大表哥算是尼最好的指挥了，可惜17年打不过sk，18年年初major卡托都没把握住，悉尼赢了一次a后面压不住了
+

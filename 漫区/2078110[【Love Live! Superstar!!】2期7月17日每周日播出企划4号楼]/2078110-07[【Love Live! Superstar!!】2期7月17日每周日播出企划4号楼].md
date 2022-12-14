@@ -15496,3 +15496,27 @@ byd叔叔，昨天晚上刚下的单买个冬制服小趴趴今天做欧气宝�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是  香圣的实力区区拉拉大会夺冠的成绩完全不够看→顶尖学院发个留学offer→突然想起来liella不能给整解散了→取消不就好了
 
+
+
+*****
+
+####  愛さ実  
+##### 10266#       发表于 2022-12-14 21:34
+
+这个现场可以称为灾难吗（
+特别是前面有对比的情况下<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  懂你意思  
+##### 10267#       发表于 2022-12-14 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58942826&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-12-14 21:34</a>
+
+这个现场可以称为灾难吗（
+
+特别是前面有对比的情况下</blockquote>
+属于是各唱各的了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
