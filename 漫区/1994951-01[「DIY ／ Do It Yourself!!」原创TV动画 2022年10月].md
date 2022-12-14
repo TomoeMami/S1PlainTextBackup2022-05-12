@@ -7573,3 +7573,26 @@ self：听话，给我戳戳！<img src="https://static.saraba1st.com/image/smil
 <img src="https://p.sda1.dev/8/7b5d425dfe8ea6f3331ccaf9ef0db357/Draron2019-1603046504897204225-img1.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/7df9dabfdd3eca93b38668d9ca8d2ee9/Draron2019-1603046504897204225-img2.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 564#       发表于 2022-12-14 23:44
+
+第 12 集文字预告
+
+『秘密基地』终于建好了。
+
+第一学期结业典礼后，小己一行在刚建好的秘密基地里进行小小的庆祝。
+
+秘密基地的墙壁有些缝隙，地板有些倾斜，并不是十分完美，但这样也挺好的。
+
+伙伴们一起用自己的力量实现了梦想——这让大家充满满足感……
+
+然后，暑假来了。
+
+结束留学生活的 Job 子承诺会再过来见小己等人，回美国去了。
+
+布丁邀请小己去 DIY 社，说是秘密基地还缺少一个东西，于是两人一起开始作业……
+

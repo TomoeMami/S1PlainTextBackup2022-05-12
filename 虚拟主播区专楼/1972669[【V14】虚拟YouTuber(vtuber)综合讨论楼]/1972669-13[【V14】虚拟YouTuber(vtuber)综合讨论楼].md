@@ -160,3 +160,12 @@ Bsyl，海苔男家鬼灯わらべ毕业了
 
 不知不觉海苔男手底下也有十多人了
 
+
+
+*****
+
+####  rzrbtk  
+##### 18015#       发表于 2022-12-14 23:45
+
+在此忏悔，我支持猫雷vta复活确实有希望别的某人也借机复活的意思，虽然不可能<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
