@@ -5328,3 +5328,58 @@ radio，事前收录
 
 你也知道大家一直在等ASMR啊
 
+
+
+*****
+
+####  holoan  
+##### 3498#         楼主| 发表于 2022-12-14 21:23
+
+过了一年还是没变
+
+一如既往的
+
+戏 剧 性
+
+心脏随时受不了
+
+*****
+
+####  holoan  
+##### 3499#         楼主| 发表于 2022-12-14 21:27
+
+中之人换人了？
+
+*****
+
+####  qesto  
+##### 3500#       发表于 2022-12-14 21:27
+
+<img src="https://img.saraba1st.com/forum/202212/14/212708z1cpc5o1p72pee2n.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (82.38 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-14 21:27 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 3501#         楼主| 发表于 2022-12-14 21:28
+
+刚才的宝可梦直播自己诱导，同接不奇怪
+
+加上今天发挥不错
+
+*****
+
+####  rs5621  
+##### 3502#       发表于 2022-12-14 21:30
+
+mio:pekomiko……哈恰玛
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

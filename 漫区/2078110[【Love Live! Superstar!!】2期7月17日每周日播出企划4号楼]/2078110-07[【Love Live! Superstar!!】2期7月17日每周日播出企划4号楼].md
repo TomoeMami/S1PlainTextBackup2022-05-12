@@ -15487,3 +15487,12 @@ byd叔叔，昨天晚上刚下的单买个冬制服小趴趴今天做欧气宝�
 
 留学取消与其说是设计出来的，不如说还是“这样写会很有趣”的产物<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10265#       发表于 2022-12-14 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道不是  香圣的实力区区拉拉大会夺冠的成绩完全不够看→顶尖学院发个留学offer→突然想起来liella不能给整解散了→取消不就好了
+

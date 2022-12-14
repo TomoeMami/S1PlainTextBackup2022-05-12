@@ -23,3 +23,14 @@ VP直接选阿努比斯，有点意思
 
 陌生的g2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太陌生了，这次什么时候回原型
 
+
+
+*****
+
+####  heseran  
+##### 2943#       发表于 2022-12-14 21:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58940811&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-12-14 19:20</a>
+陌生的g2太陌生了，这次什么时候回原型</blockquote>
+已经回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
