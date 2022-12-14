@@ -1032,3 +1032,29 @@ OCU与USN，2070年第一次哈夫曼战争爆发，2090年第二次哈夫曼战
 
 楼上记歪了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/8/f42be42385c17b388872f29f6ba57ca4/CMP_20221214141521417.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  酷乐  
+##### 95#       发表于 2022-12-15 01:02
+
+ 本帖最后由 酷乐 于 2022-12-15 01:05 编辑 
+
+都上雅虎新闻了：
+
+<strong>シリーズ最新作『Front Mission: Borderscape』公式サイトと公式Twitterが消灭―今のところアナウンスはなし
+</strong>[https://news.yahoo.co.jp/article ... 825443a2c468bf8105a](https://news.yahoo.co.jp/articles/7156f54025bb3525bbd70825443a2c468bf8105a) <blockquote>12/14(水) 12:00配信
+
+スクウェア・エニックスの『Front Mission: Borderscape』について、公式サイトや公式Twitterアカウントにアクセスできなくなっていることが判明しています。
+
+[【画像 全2枚】急にサイトが消えてしまいましたが、今后は如何に](https://www.gamespark.jp/article/img/2022/12/14/125354/635865.html)
+
+2022年4月にはトレイラーも公开されており、そちらは他メディアによってアップロードされているため、今のところ视聴できます。ゲームの详细は明かされていませんでしたが、モバイル向けには事前登録が行われていました。
+
+なお、Game*Spark编集部ではこの件についてスクウェア・エニックスに问い合わせています。回答があり次第、追ってお知らせします。
+
+Game*Spark kaiware</blockquote>
+
+那边的人还跑去问SE，不知道会不会有答复？
+
