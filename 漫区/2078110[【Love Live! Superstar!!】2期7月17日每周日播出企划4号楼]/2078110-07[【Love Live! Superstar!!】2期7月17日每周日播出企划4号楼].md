@@ -15847,3 +15847,12 @@ nako
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  caicaistar  
+##### 10291#       发表于 2022-12-15 00:33
+
+pay的麦后面根本没收音，合唱部分开始鱼和小百合麦音量也奇低，第三段pay那爆了一小段，完全因为麦不收音急了，突然拉高音量，爆了
+
