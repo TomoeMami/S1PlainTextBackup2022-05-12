@@ -178,3 +178,15 @@ Bsyl，海苔男家鬼灯わらべ毕业了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这回yugo超高效清频道，同期集体噤声，连个哭丧直播都不给开，是不是和14号要发财报有点关系，先把毕业影响压到最小
 
+
+
+*****
+
+####  吃咸菜的  
+##### 18017#       发表于 2022-12-15 00:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944351&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-12-14 23:21</a>
+
+Bsyl，海苔男家鬼灯わらべ毕业了</blockquote>
+就算是内推制也只剩2/5了，这还是苔箱二期里混得最好的
+

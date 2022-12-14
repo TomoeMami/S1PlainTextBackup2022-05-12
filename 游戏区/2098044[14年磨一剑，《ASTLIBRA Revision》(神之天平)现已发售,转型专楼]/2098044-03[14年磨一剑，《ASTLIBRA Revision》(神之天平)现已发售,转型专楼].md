@@ -266,3 +266,12 @@
 
 —— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  bixinhaner  
+##### 3023#       发表于 2022-12-15 00:12
+
+装备盘武器会增重怎么破？还卸不下来，只能加敏捷减重了吗？这样人物性能不是反而倒退了吗？
+
