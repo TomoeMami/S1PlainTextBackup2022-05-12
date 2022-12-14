@@ -4022,3 +4022,28 @@ syl</blockquote>
 
 yugo除了以前有次好像醉酒直播说要是自己真是男人就好了以外没听说犯什么事啊，怎么直接被开了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 17985#       发表于 2022-12-14 16:40
+
+一些日本人的总结
+<img src="https://p.sda1.dev/8/3188c536b5659a10c8a4d73cba9c1edb/CMP_20221214163921486.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/232b03a7a41ffe6cfef29ce702db60af/CMP_20221214163921584.jpg" referrerpolicy="no-referrer">
+syl金鱼不是方向性不同，记得是泄漏机密
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  格林卡罗尔  
+##### 17986#       发表于 2022-12-14 16:43
+
+Up until today, numerous discussions have been held with Yugo Asuma on what it means to be a Liver affiliated with a company. However, despite our discussions many aspects of his activities and behavior as a Liver could not be accepted as a company, and after much deliberation between both parties, as a company who supports many Livers from NIJISANJI and NIJSIANJI EN, we have decided to have Yugo Asuma graduate.
+
+我看的英文公告，没注意到日语公告写得更严厉
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
