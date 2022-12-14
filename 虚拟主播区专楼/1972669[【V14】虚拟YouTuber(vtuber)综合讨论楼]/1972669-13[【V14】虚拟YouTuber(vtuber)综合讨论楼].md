@@ -94,3 +94,15 @@
 
 开会集体发love en我记得，平时大家庭营业太多下意识以为又开始日常团建安抚en粉了
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18010#       发表于 2022-12-14 20:04
+
+4chan的信息浓度令人疲倦，不过也算是对这句话有些讨论 <blockquote>ご本人の当社ライバーとしての活动に関わる认识、配信内外での行动について、多くのにじさんじ及びNIJISANJI ENライバーが所属する当社として容认できない点が多々あり</blockquote>
+认为是顶着yugo的名字干了不合适的事
+
+另外在这同期对毕业都保持克制的情况下，nina的吃相有点太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

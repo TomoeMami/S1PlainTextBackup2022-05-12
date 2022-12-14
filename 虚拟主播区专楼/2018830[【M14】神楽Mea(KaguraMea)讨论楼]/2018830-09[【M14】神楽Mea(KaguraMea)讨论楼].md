@@ -335,3 +335,29 @@ mea取关了如月和noe的推特，不知道是不是最近的事<img src="http
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  pei23333  
+##### 12948#       发表于 2022-12-14 19:52
+
+这联动的是六人组的人吗？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  路人庚  
+##### 12949#       发表于 2022-12-14 19:55
+
+<img src="https://img.saraba1st.com/forum/202212/14/195538fzotxqv6x5rlftzq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>44249E4A-DD1C-4231-A39E-3472CAF05CAC.jpeg</strong> (31.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-14 19:55 上传
+
+白毛天堂（）
+
