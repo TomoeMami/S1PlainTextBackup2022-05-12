@@ -967,3 +967,24 @@ OCU与USN，2070年第一次哈夫曼战争爆发，2090年第二次哈夫曼战
 
 躺棺材里的ip还能谈崩，多半是嫌分成少被，吃准紫龙是炒饭专业户是吧，但这又不是二次元，那堆萝卜对国内玩家有毛吸引力
 
+
+
+*****
+
+####  何处分可  
+##### 89#       发表于 2022-12-14 12:44
+
+换汤不换药，前线任务寄了，但是紫龙的萝卜战旗没寄
+
+*****
+
+####  放大镜  
+##### 90#       发表于 2022-12-14 12:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58933493&amp;ptid=2065685" target="_blank">螺旋的小夜曲 发表于 2022-12-14 11:12</a>
+
+这个钢岚到底是什么东西，这十年来一直断断续续有听到，先出漫画没出几话就腰斩，出动画就一个PV，现在还要 ...</blockquote>
+等等，听上去这个钢岚有原作而且还是国漫？
+
+啊……这……岚在汉语里可没有暴风雨的意思啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
