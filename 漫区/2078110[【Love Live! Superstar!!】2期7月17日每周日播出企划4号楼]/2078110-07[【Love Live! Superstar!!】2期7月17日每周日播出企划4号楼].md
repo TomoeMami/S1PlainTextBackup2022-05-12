@@ -15449,3 +15449,14 @@ BD3 631/10186
 如果不能解释清楚为什么留学取消，那可能会比水2开幕告诉你水水根本没出线，奖励圆珠笔一根还要恶心观众 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">NICO好评18%的含金量，估计这是Lovelive不可超越的低谷了吧感觉三期最低也不至于比这个还低了
 
+
+
+*****
+
+####  ViyViy  
+##### 10261#       发表于 2022-12-14 19:51
+
+都跟你开玩笑一样解决留学问题了还要啥解释，继续兄弟我开玩笑的不就行了，不接受打低分的都是X信和故意捣乱的！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+它这留学取消就已经把二期最后两集搞的跟小丑一样恶心过观众了。傻逼运营有功夫跟人原地转圈搁这搁这儿看不见队里某人至今没有些本该有的东西。
+

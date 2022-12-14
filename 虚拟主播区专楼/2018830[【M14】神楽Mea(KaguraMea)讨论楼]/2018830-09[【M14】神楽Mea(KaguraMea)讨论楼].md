@@ -322,3 +322,16 @@ mea取关了如月和noe的推特，不知道是不是最近的事<img src="http
 —— 来自 S1Fun</blockquote>
 细说细说<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 12947#       发表于 2022-12-14 19:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58941102&amp;ptid=2018830" target="_blank">hjcxiaowo 发表于 2022-12-14 19:38</a>
+细说细说</blockquote>
+这是个定型句式，我在瞎说<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

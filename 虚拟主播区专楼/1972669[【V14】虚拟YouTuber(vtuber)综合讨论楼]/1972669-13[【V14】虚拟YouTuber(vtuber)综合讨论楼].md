@@ -54,3 +54,43 @@
 
 同事滚蛋了，清一色发love nijisanji en是吧，这运营怎么想的
 
+
+
+*****
+
+####  rzrbtk  
+##### 18006#       发表于 2022-12-14 19:40
+
+<blockquote>psnsic8nag 发表于 2022-12-14 19:07
+说太明白会影响到股价
+
+虹jp和隔壁毕业还会出来直播说明，结果你en不仅没直播说明，同期liver还搞 ...</blockquote>
+本社说明什么了你给我讲讲，是“我同期犯错我很抱歉”还是“回顾直播跳过同期部份”，隔壁三期集体上来哭“我同期跟男人跑了”是吧，还是你又懂出什么事了，大家庭就要大肠小肠连一起？
+
+*****
+
+####  poipanchao  
+##### 18007#       发表于 2022-12-14 19:41
+
+因为这一堆love en就不是今天发的啊……
+
+楼友好歹有点分辨能力，太丢人了
+
+我不看en都记得大概是很久之前他们开了个什么会，完了一起发love en
+
+*****
+
+####  zzp05402  
+##### 18008#       发表于 2022-12-14 19:43
+
+艹，还以为是开除后发的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fastary  
+##### 18009#       发表于 2022-12-14 19:46
+
+没看推被钓了还<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+开会集体发love en我记得，平时大家庭营业太多下意识以为又开始日常团建安抚en粉了
+
