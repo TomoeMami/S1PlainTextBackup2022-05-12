@@ -210,3 +210,14 @@ Bsyl，海苔男家鬼灯わらべ毕业了</blockquote>
 
 永远年轻，永远相信逝者能言
 
+
+
+*****
+
+####  宅方泉  
+##### 18020#       发表于 2022-12-15 04:00
+
+想起当年voms的磁铁
+
+— from Google Pixel 4a (5G), Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
