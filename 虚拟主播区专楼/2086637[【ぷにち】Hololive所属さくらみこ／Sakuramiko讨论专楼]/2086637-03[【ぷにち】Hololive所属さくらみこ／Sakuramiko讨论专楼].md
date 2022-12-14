@@ -5383,3 +5383,12 @@ mio:pekomiko……哈恰玛
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  holoan  
+##### 3503#         楼主| 发表于 2022-12-14 21:47
+
+团体赛也这么强，中之人换了还是私下猛练？
+
