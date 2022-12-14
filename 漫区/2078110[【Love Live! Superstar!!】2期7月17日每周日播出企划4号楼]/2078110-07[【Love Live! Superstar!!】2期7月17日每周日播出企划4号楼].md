@@ -15672,3 +15672,22 @@ byd叔叔，昨天晚上刚下的单买个冬制服小趴趴今天做欧气宝�
 
 哦对今天还公布了SIF2果皇的立绘，那立绘质量真的是2023+的游戏吗……
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 10285#       发表于 2022-12-14 23:06
+
+paypay天赋好，可是一直都是不稳，想想一巡……还以为锻炼了一年好点了，这<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 10286#       发表于 2022-12-14 23:08
+
+ 本帖最后由 nufawneafg 于 2022-12-14 23:09 编辑 
+
+其实冷车启动有这样的表演效果倒还好
+就是合唱实在有点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

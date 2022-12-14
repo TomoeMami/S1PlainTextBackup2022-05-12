@@ -45,3 +45,14 @@ VP直接选阿努比斯，有点意思
 已经回来了</blockquote>
 太典了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说你的，我玩我的，其实大表哥算是尼最好的指挥了，可惜17年打不过sk，18年年初major卡托都没把握住，悉尼赢了一次a后面压不住了
 
+
+
+*****
+
+####  Rainwedell  
+##### 2945#       发表于 2022-12-14 23:04
+
+喷了，图二看完没看，再看被锤烂了
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

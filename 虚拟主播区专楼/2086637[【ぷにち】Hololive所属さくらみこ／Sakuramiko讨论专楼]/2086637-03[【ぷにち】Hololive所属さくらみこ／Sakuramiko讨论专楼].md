@@ -5573,3 +5573,32 @@ micomet  lovelove asmr
 
 今天娱乐赛已经把气氛完全预热到位了
 
+
+
+*****
+
+####  holoan  
+##### 3525#         楼主| 发表于 2022-12-14 23:05
+
+<img src="https://img.saraba1st.com/forum/202212/14/230517gd6pzeec7e67eidh.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (10.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-14 23:05 上传
+
+其实并不是全赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 神澈| + 1|欢乐多|
+
+查看全部评分
+
