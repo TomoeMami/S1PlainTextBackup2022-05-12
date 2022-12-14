@@ -15584,3 +15584,68 @@ byd叔叔，昨天晚上刚下的单买个冬制服小趴趴今天做欧气宝�
 
 听完了，这是设备问题还是别的？合唱的时候简直灾难，有几句尾音感觉没换好气硬顶上去的，而且pay感觉今天紧张的都挤嗓子了，这不可能吧。。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 10275#       发表于 2022-12-14 22:42
+
+真就伏牛山翻车祭，一到合唱部分全都唱不到调上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ruffian  
+##### 10276#       发表于 2022-12-14 22:42
+
+鱼和nagi依旧令人安心的稳定，但“三叉戟”之一的pay有句solo……吓我一跳，确认了好几遍那真是她发出的声音？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 10277#       发表于 2022-12-14 22:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这什么灾难级合唱（
+
+*****
+
+####  lj205  
+##### 10278#       发表于 2022-12-14 22:47
+
+鲤鱼的镜头都能多点
+
+*****
+
+####  ruffian  
+##### 10279#       发表于 2022-12-14 22:48
+
+只能说选曲一如既往的迷惑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过去年未来预报没翻车吧？小百合火力全开来着
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  starring  
+##### 10280#       发表于 2022-12-14 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58943830&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-14 22:42</a>
+
+鱼和nagi依旧令人安心的稳定，但“三叉戟”之一的pay有句solo……吓我一跳，确认了好几遍那真是她发出的声 ...</blockquote>
+渚鱼真的稳如泰山，打铁和pay合唱第一句就走调了，pay和铃原合唱那部分pay好像没出声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10281#       发表于 2022-12-14 22:49
+
+ 本帖最后由 稀勢のささ 于 2022-12-14 22:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58943923&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-14 22:48</a>
+
+只能说选曲一如既往的迷惑
+
+不过去年未来预报没翻车吧？小百合火力全开来着</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开头介绍的时候放了去年的油虾，对比起来多少有点难蚌。我看FNS的串都出现疑似五人原理在悄咪咪进行切割了
+
