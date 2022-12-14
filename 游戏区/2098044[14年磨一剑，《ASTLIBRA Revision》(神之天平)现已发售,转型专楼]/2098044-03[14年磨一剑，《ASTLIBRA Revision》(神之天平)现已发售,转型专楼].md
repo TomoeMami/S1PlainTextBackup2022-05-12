@@ -227,3 +227,12 @@
 打完了，剧情有个遗憾就是没有修罗场剧情</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你选了鸦哥之后的剧情就是修罗场，机娘炸毛后果严重
 
+
+
+*****
+
+####  otakun  
+##### 3020#       发表于 2022-12-14 09:47
+
+只有单恋一人（鸦鸦不是人×）的魔怔纯爱战神才能走进官方完美结局，其他路线都用文字给你展示过了
+
