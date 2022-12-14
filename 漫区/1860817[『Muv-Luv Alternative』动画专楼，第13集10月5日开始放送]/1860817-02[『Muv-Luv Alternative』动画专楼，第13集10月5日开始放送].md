@@ -2072,3 +2072,17 @@ eh搜[âge] exogularity 01，有扫图，无汉化。
 
 黄大河本体来遇到这种bug照射也不好使啊，得把CE的对光束涂层顺便一起顺过来才行<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  アーリィ  
+##### 2171#       发表于 2022-12-15 06:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944024&amp;ptid=1860817" target="_blank">Rhantolk 发表于 2022-12-14 22:54</a>
+
+这镭射级的瞄准速度有这么快的吗 ，居然左躲右躲的这瞄准还能一直钉身上。。。
+
+话说动画多长长度啊，这季 ...</blockquote>
+muv给对面开的挂全在光线级身上，你说呢
+
