@@ -9702,3 +9702,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6加成不是信仰吗 
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 3866#       发表于 2022-12-14 21:14
+
+才发现上格斗游戏的牛若丸上身套了件紧身黑色打底衫，原来的比基尼铠甲play变成奶盖了，这么改是觉得战斗的时候那两片胸甲动起来会漏吗，尊重物理学的的建模师<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
