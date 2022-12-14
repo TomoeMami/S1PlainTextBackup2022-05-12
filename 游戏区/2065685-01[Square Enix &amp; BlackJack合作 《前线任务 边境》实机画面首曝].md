@@ -988,3 +988,15 @@ OCU与USN，2070年第一次哈夫曼战争爆发，2090年第二次哈夫曼战
 
 啊……这……岚在汉语里可没有暴风雨的意思啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  闽明  
+##### 91#       发表于 2022-12-14 13:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58933493&amp;ptid=2065685" target="_blank">螺旋的小夜曲 发表于 2022-12-14 11:12</a>
+
+这个钢岚到底是什么东西，这十年来一直断断续续有听到，先出漫画没出几话就腰斩，出动画就一个PV，现在还要 ...</blockquote>
+和钢羽搞混了吧？
+

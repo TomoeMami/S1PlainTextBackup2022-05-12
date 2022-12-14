@@ -1941,3 +1941,15 @@ eh搜[âge] exogularity 01，有扫图，无汉化。
 而且 ...</blockquote>
 平常就是曲率炮击的，这次算是自杀任务抵近射击，营救部队兼当诱饵。
 
+
+
+*****
+
+####  cloudliu  
+##### 2162#       发表于 2022-12-14 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58932084&amp;ptid=1860817" target="_blank">stevenzero 发表于 2022-12-14 09:54</a>
+
+平常就是曲率炮击的，这次算是自杀任务抵近射击，营救部队兼当诱饵。</blockquote>
+是当MT 知道了
+

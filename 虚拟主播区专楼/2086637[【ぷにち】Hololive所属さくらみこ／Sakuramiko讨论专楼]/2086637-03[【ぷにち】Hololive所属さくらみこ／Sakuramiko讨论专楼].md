@@ -5206,3 +5206,12 @@ hololive presents ホロのRadio～私たちの歌をきけッ！的Twitter
 おふたりへのメッセージ・质问は</blockquote>
 今年是和mio妈过么
 
+
+
+*****
+
+####  holoan  
+##### 3487#         楼主| 发表于 2022-12-14 13:09
+
+radio，事前收录
+
