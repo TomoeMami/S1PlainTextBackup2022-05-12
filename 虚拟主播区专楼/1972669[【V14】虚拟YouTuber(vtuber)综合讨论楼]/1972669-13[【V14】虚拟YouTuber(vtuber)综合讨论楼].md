@@ -169,3 +169,12 @@ Bsyl，海苔男家鬼灯わらべ毕业了
 
 在此忏悔，我支持猫雷vta复活确实有希望别的某人也借机复活的意思，虽然不可能<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 18016#       发表于 2022-12-14 23:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这回yugo超高效清频道，同期集体噤声，连个哭丧直播都不给开，是不是和14号要发财报有点关系，先把毕业影响压到最小
+
