@@ -528,3 +528,12 @@ EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
 
 这次活动还只是前篇，不知道新年卡池会不会限定…
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 196#         楼主| 发表于 2022-12-14 20:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">试了下风属性ex boss，一队满练SSR还是能打的，甚至破防一次血线还挺稳，可惜打了3次都运气不好只有2星，对面会封技能回血，送的SSR紫苑被完美针对了
+
