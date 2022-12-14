@@ -361,3 +361,24 @@ mea取关了如月和noe的推特，不知道是不是最近的事<img src="http
 
 白毛天堂（）
 
+
+
+*****
+
+####  ashero  
+##### 12950#       发表于 2022-12-14 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58941293&amp;ptid=2018830" target="_blank">pei23333 发表于 2022-12-14 19:52</a>
+
+这联动的是六人组的人吗？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+varium有两个是 但是这次联动的并不是 
+
+*****
+
+####  掉头学姐  
+##### 12951#       发表于 2022-12-14 20:45
+
+不能直接转？是杏的？
+
