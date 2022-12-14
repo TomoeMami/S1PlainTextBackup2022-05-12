@@ -88,3 +88,12 @@
 要不你想想老相好还能找谁</blockquote>
 说不定到时去跟小鸟一组了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Cyau  
+##### 136#       发表于 2022-12-14 23:36
+
+可乐的声音听起来变得更幼齿了一点，感觉有点怪
+
