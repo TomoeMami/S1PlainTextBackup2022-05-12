@@ -9665,3 +9665,31 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 一老一新确实更合适 ...</blockquote>
 新版不一定有黑白莲了，我觉得设定集1提了下Mio的地方已经暗示的挺明显了……
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3864#       发表于 2022-12-14 11:06
+
+ 本帖最后由 Jamaisvu 于 2022-12-14 11:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58931332&amp;ptid=2084912" target="_blank">UNISONIA 发表于 2022-12-14 09:04</a>
+
+新版不一定有黑白莲了，我觉得设定集1提了下Mio的地方已经暗示的挺明显了…… ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202212/14/105738kux6xrrzmhmil6zx.jpg" referrerpolicy="no-referrer">
+
+<strong>0e624b36acaf2edded3d1102c81001e93b0193fc.jpg</strong> (676.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-14 10:57 上传
+
+我以前看过一个说法：斋木澪可能是七夜志贵的妹妹，兄妹二人作为灭门种分别被斋木和远野收留...
+
+不过天敌是黄理也很奇怪，感觉还是斋木家的人，目睹了七夜黄理刺杀斋木老人，于是怀恨在心...
+
+根据志贵偶遇mio后被伏拉夫干掉的BE来看（“保护主人的狗不在吗”），本体应该就是猫科使魔（总不能是作为志贵保镖培养的七夜家童养媳吧），里线应该会大放光彩吧（指抢戏）...
+
+（话说月姬R给所有人物都设定了阵营属性，看着好中二...）
+

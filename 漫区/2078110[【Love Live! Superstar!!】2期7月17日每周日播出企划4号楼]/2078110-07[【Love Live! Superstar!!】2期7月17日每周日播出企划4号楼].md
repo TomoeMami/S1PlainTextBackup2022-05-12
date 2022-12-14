@@ -15296,3 +15296,14 @@ twi：@_CelticWhite_
 原来yabu之前也干过偶像，官推关注数471的那种</blockquote>
 yabu也是前偶像啊，那就是有三个人干过偶像，不过pay和yabu笑的很甜，给人以发自内心很开心的感觉，彩就笑的不太好，笑的时候眼睛没啥笑意
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10248#       发表于 2022-12-14 11:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58932339&amp;ptid=2078110" target="_blank">s3081260 发表于 2022-12-14 10:07</a>
+yabu也是前偶像啊，那就是有三个人干过偶像，不过pay和yabu笑的很甜，给人以发自内心很开心的感觉，彩就 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要我觉得奇怪的是她这明明多少有点经验，生放上却跟个素人一样
+
