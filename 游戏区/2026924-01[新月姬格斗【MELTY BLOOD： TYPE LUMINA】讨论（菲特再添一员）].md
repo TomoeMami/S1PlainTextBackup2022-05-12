@@ -5427,3 +5427,16 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 —— 来自 Xiaomi 22041211AC, Android 12上 ...</blockquote>
 为啥不好意思卖？不喜欢月姬格斗的，谁会为几个dlc角色买游戏
 
+
+
+*****
+
+####  狗屁不通  
+##### 513#       发表于 2022-12-14 11:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58931188&amp;ptid=2026924" target="_blank">sk86 发表于 2022-12-14 08:50</a>
+为啥不好意思卖？不喜欢月姬格斗的，谁会为几个dlc角色买游戏</blockquote>
+这几个免费dlc角色坑位占的本来就该是首发就有的角色数量，现在首发做不完了后续才补更新我是还要感谢他法棍是吗
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
