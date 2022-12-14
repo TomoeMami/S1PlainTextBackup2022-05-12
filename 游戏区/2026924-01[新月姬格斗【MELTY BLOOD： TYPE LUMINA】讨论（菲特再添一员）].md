@@ -5440,3 +5440,12 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  米澤穂信  
+##### 514#       发表于 2022-12-14 11:42
+
+初始14个，女仆占三个，军刀占一个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
