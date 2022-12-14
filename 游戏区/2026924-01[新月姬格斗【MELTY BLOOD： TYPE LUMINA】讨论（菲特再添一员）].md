@@ -5406,3 +5406,24 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Porsche  
+##### 511#       发表于 2022-12-14 08:43
+
+这游戏如果一开始就叫什么型月大乱斗，又能继承点mb的系统和人物，说不定现在一片和平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sk86  
+##### 512#       发表于 2022-12-14 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58931005&amp;ptid=2026924" target="_blank">狗屁不通 发表于 2022-12-14 08:31</a>
+
+这傻逼游戏初始才几个角色啊，不出免费dlc好意思卖这游戏吗
+
+—— 来自 Xiaomi 22041211AC, Android 12上 ...</blockquote>
+为啥不好意思卖？不喜欢月姬格斗的，谁会为几个dlc角色买游戏
+

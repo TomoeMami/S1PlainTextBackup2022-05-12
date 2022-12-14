@@ -9609,3 +9609,36 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 先用茶壶，高配阵走起了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ddr  
+##### 3859#       发表于 2022-12-14 08:47
+
+这本就20池，有啥6加成的必要吗。。。。。。
+
+*****
+
+####  exiaexa  
+##### 3860#       发表于 2022-12-14 08:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58929916&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-12-14 03:08</a>
+
+然而 并不需要结晶</blockquote>
+想了下第三面是30+50+6/7+自充
+
+好像确实不需要
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  exiaexa  
+##### 3861#       发表于 2022-12-14 08:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58930465&amp;ptid=2084912" target="_blank">森兰丸 发表于 2022-12-14 04:57</a>
+
+看你们说的都好复杂的样子....我都是1 2面妖兰....3面黑杯公主....带换人衣服和奥伯龙 ...</blockquote>
+不复杂阿，这次奶光是大家最喜欢的神性狂，能翻出一堆特攻，上黑杯是真·大炮打蚊子
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
