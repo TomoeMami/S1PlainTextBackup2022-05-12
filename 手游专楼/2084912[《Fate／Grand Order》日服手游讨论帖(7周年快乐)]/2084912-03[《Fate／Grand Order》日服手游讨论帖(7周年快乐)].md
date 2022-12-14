@@ -9651,3 +9651,17 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">90++开了？那可以刷了
 
+
+
+*****
+
+####  UNISONIA  
+##### 3863#       发表于 2022-12-14 09:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58924601&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-13 18:50</a>
+
+牛若丸看新出的演示确实没啥意思...我甚至觉得她联动到侍魂也是两边不满意的结果。
+
+一老一新确实更合适 ...</blockquote>
+新版不一定有黑白莲了，我觉得设定集1提了下Mio的地方已经暗示的挺明显了……
+
