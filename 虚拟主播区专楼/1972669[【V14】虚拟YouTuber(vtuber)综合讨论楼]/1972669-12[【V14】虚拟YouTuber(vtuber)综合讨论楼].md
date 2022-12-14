@@ -4142,3 +4142,17 @@ Up until today, numerous discussions have been held with Yugo Asuma on what it m
 
 「多くのにじさんじ及びNIJISANJI ENライバーが所属する当社として」，虽然也觉得不应该含糊其辞，但就怕是没办法说明的程度
 
+
+
+*****
+
+####  winda  
+##### 17996#       发表于 2022-12-14 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58939610&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-12-14 17:58</a>
+这次肯定是突发事件了，没有提前停会员也没跟新人错开，光速删存档，再加上只有金鱼和真堂雷斗算得上
+
+「 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实还有个牟阿琳，不过541可以算编外，safe
+要是加上vr就更多了
+
