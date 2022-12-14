@@ -7538,3 +7538,19 @@ self：听话，给我戳戳！<img src="https://static.saraba1st.com/image/smil
 <img src="https://p.sda1.dev/8/2cc4680e5280a3df6367c36267756286/PINEJAM_info-1602943979753971714-img3.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/ace91bf9e147447c6fc6c704344e3e5c/PINEJAM_info-1602943979753971714-img4.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 562#       发表于 2022-12-14 17:26
+
+「Do It Yourself!! -どぅー・いっと・ゆあせるふ-」MAGNETガチャ発売決定！
+
+パジャマパーティーがテーマの新規描き下ろしイラスト&amp;#x1F31F;
+
+【2022年12月15日(木)PM12:00】より発売開始！
+
+サイトは明日の販売開始に合わせてオープン！販売開始に合わせてURLも解禁予定✨✨
+<img src="https://p.sda1.dev/8/a091f8b4b00a4c819d1f18179090cbf5/magnet_gacha-1602952724781228033-img1.jpg" referrerpolicy="no-referrer">
+

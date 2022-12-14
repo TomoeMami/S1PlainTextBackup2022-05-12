@@ -4047,3 +4047,50 @@ Up until today, numerous discussions have been held with Yugo Asuma on what it m
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  winda  
+##### 17987#       发表于 2022-12-14 17:22
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这回严是挺严，说到了不能容忍yugo作为虹liver的行为
+但措辞还是用的毕业，比金鱼契约解除轻多了
+
+*****
+
+####  alcoholic1000  
+##### 17988#       发表于 2022-12-14 17:25
+
+<blockquote>违法ダウンロード←セーフ
+
+出会い系のサクラ←セーフ
+
+差别発言←セーフ
+
+リスナーへ杀害予告←セーフ
+
+リスナーへ诽谤中伤←セーフ
+
+「四天王を喰い杀す」発言←セーフ
+
+音源盗用←セーフ
+
+个人情报収集←セーフ
+
+えにからはこんなに优しい会社だぞ</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难以想象被毕业是能干了什么
+
+*****
+
+####  zzp05402  
+##### 17989#       发表于 2022-12-14 17:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">hololive的EN3还是把把关再出吧，光速毕业遭不住啊
+
+*****
+
+####  rzrbtk  
+##### 17990#       发表于 2022-12-14 17:30
+
+本人同意那部分确实比金鱼好很多，估计不会给大伙儿搞个《2535的noa》的en版（重提到这茬还是会被她的幽默感乐到）
+
