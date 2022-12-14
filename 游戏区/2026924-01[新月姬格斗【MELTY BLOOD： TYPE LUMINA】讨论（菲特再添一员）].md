@@ -5494,3 +5494,42 @@ steam上也开始冲起来喽<img src="https://static.saraba1st.com/image/smiley
 
 原版MB不也才14个角色<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  蓮華  
+##### 518#       发表于 2022-12-14 19:53
+
+笑死，怎么不拿二十年前才6个角色的无印出来比，多长脸<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  狗屁不通  
+##### 519#       发表于 2022-12-14 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58940804&amp;ptid=2026924" target="_blank">gpx234mqx 发表于 2022-12-14 19:19</a>
+搞啥啊
+
+原版MB不也才14个角色，啥叫首发就有角色数量</blockquote>
+mb是tm的同人游戏，你个抱aniplex大腿的商业公司要跟同人格斗游戏比了？
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  红魔馆的糖  
+##### 520#       发表于 2022-12-14 20:00
+
+同人作可比这一作有特色多了，以这一作系统能把角色做到这么没意思应该反思一下别的部分了
+
+*****
+
+####  八木沼了一  
+##### 521#       发表于 2022-12-14 20:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58941411&amp;ptid=2026924" target="_blank">红魔馆的糖 发表于 2022-12-14 20:00</a>
+
+同人作可比这一作有特色多了，以这一作系统能把角色做到这么没意思应该反思一下别的部分了 ...</blockquote>
+能把所有人都做成一个感觉，大招血量都完全不变，老卵，平衡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
