@@ -9693,3 +9693,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 （话说月姬R给所有人物都设定了阵营属性，看着好中二...）
 
+
+
+*****
+
+####  alucardcz  
+##### 3865#       发表于 2022-12-14 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6加成不是信仰吗 
+
