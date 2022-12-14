@@ -382,3 +382,15 @@ varium有两个是 但是这次联动的并不是
 
 不能直接转？是杏的？
 
+
+
+*****
+
+####  ashero  
+##### 12952#       发表于 2022-12-14 20:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58942062&amp;ptid=2018830" target="_blank">掉头学姐 发表于 2022-12-14 20:45</a>
+
+不能直接转？是杏的？</blockquote>
+又不是你麻开台 怎么转
+
