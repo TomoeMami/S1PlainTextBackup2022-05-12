@@ -1975,3 +1975,23 @@ eh搜[âge] exogularity 01，有扫图，无汉化。
 
 话说动画多长长度啊，这季度完了还有吗，有点忘了
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 2165#       发表于 2022-12-15 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944024&amp;ptid=1860817" target="_blank">Rhantolk 发表于 2022-12-14 22:54</a>
+
+这镭射级的瞄准速度有这么快的吗 ，居然左躲右躲的这瞄准还能一直钉身上。。。
+
+话说动画多长长度啊，这季 ...</blockquote>
+自带必中的玩意，要躲大概需要VF那种级别的机动力<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+（说起来那边也是バルキリー）
+
+就算白银武开基拉的号也“躲”不了
+
+得找其他beta挡逼光线级取消攻击
+

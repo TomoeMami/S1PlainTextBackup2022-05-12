@@ -275,3 +275,65 @@
 
 装备盘武器会增重怎么破？还卸不下来，只能加敏捷减重了吗？这样人物性能不是反而倒退了吗？
 
+
+
+*****
+
+####  hyzh12  
+##### 3024#       发表于 2022-12-15 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944890&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-15 00:12</a>
+
+装备盘武器会增重怎么破？还卸不下来，只能加敏捷减重了吗？这样人物性能不是反而倒退了吗？ ...</blockquote>
+有新的就可以替换掉旧的了，另外装备盘不是有两层可以切嘛，你两层都是增重？
+
+*****
+
+####  hyzh12  
+##### 3025#       发表于 2022-12-15 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944890&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-15 00:12</a>
+
+装备盘武器会增重怎么破？还卸不下来，只能加敏捷减重了吗？这样人物性能不是反而倒退了吗？ ...</blockquote>
+有新的就可以替换掉旧的了，另外装备盘不是有两层可以切嘛，你两层都是增重？
+
+*****
+
+####  hyzh12  
+##### 3026#       发表于 2022-12-15 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944890&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-15 00:12</a>
+
+装备盘武器会增重怎么破？还卸不下来，只能加敏捷减重了吗？这样人物性能不是反而倒退了吗？ ...</blockquote>
+有新的就可以替换掉旧的了，另外装备盘不是有两层可以切嘛，你两层都是增重？
+
+*****
+
+####  hyzh12  
+##### 3027#       发表于 2022-12-15 01:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944890&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-15 00:12</a>
+
+装备盘武器会增重怎么破？还卸不下来，只能加敏捷减重了吗？这样人物性能不是反而倒退了吗？ ...</blockquote>
+有新的就可以替换掉旧的了，另外装备盘不是有两层可以切嘛，你两层都是增重？
+
+*****
+
+####  hyzh12  
+##### 3028#       发表于 2022-12-15 01:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944890&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-15 00:12</a>
+
+装备盘武器会增重怎么破？还卸不下来，只能加敏捷减重了吗？这样人物性能不是反而倒退了吗？ ...</blockquote>
+有新的就可以替换掉旧的了，另外装备盘不是有两层可以切嘛，你两层都是增重？
+
+*****
+
+####  hyzh12  
+##### 3029#       发表于 2022-12-15 01:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58911305&amp;ptid=2098044" target="_blank">猫出没注意 发表于 2022-12-12 21:15</a>
+
+这最终BOSS血量确定没有填错吗，我还是开的最低难度，23万血量而一刀只能打几十点。加上前面三连战打了十几 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 困难难度是200w哦，不过一个圆舞曲就20w了
+
