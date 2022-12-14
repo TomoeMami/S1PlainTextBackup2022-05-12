@@ -15307,3 +15307,12 @@ yabu也是前偶像啊，那就是有三个人干过偶像，不过pay和yabu笑
 yabu也是前偶像啊，那就是有三个人干过偶像，不过pay和yabu笑的很甜，给人以发自内心很开心的感觉，彩就 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要我觉得奇怪的是她这明明多少有点经验，生放上却跟个素人一样
 
+
+
+*****
+
+####  优妮可  
+##### 10249#       发表于 2022-12-14 11:27
+
+还有点喜欢她有丶不情愿有不得不营业的样子，是我的问题。
+
