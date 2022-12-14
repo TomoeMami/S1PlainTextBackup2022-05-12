@@ -215,3 +215,15 @@
 
 不过很可惜的是没人去代理，所以只有日英文
 
+
+
+*****
+
+####  adw667  
+##### 3019#       发表于 2022-12-14 09:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58927652&amp;ptid=2098044" target="_blank">虚无缥缈的光阴 发表于 2022-12-13 22:24</a>
+
+打完了，剧情有个遗憾就是没有修罗场剧情</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你选了鸦哥之后的剧情就是修罗场，机娘炸毛后果严重
+
