@@ -4128,3 +4128,17 @@ Up until today, numerous discussions have been held with Yugo Asuma on what it m
 
 这第三个吧，金鱼前面还有个雷速登呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 17995#       发表于 2022-12-14 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58939374&amp;ptid=1972669" target="_blank">fastary 发表于 2022-12-14 17:41</a>
+
+以非不明言大家也知道什么情况的理由开人，作为上市公司不应该控制下舆论吗。所以为什么不说清楚一点什么叫 ...</blockquote>
+这次肯定是突发事件了，没有提前停会员也没跟新人错开，光速删存档，再加上只有金鱼和真堂雷斗算得上
+
+「多くのにじさんじ及びNIJISANJI ENライバーが所属する当社として」，虽然也觉得不应该含糊其辞，但就怕是没办法说明的程度
+

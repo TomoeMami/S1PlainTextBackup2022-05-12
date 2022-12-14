@@ -5235,3 +5235,20 @@ radio，事前收录
 ≡≡　◎―◎ ⊃ ⊃"</blockquote>
 35发的这颜文字笑死我了
 
+
+
+*****
+
+####  holoan  
+##### 3489#         楼主| 发表于 2022-12-14 17:52
+
+<img src="https://img.saraba1st.com/forum/202212/14/175042y51laj2gffz1d5gy.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (5.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-14 17:50 上传
+
+这就是2台NS的有效活用了，刚好捡蛋间隔5分钟开一场马车，非常充实
+
