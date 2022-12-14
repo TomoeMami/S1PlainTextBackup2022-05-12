@@ -297,3 +297,14 @@ live临近了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  汇聚群光  
+##### 12945#       发表于 2022-12-14 14:05
+
+mea取关了如月和noe的推特，不知道是不是最近的事<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+但诡异的是她还关注着夜宵的推特，难道夜宵仍然有出道的可能性？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
