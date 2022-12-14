@@ -15342,3 +15342,28 @@ BD3 631/10186
 
 bd3磨过万了，sif的liella曲也确定是sif2的liella主题曲，可是这不是决定加人吗，后来的人怎么办，出12ver？
 
+
+
+*****
+
+####  梶原ひかり  
+##### 10252#       发表于 2022-12-14 16:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58937866&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-12-14 16:12</a>
+
+BD3 631/10186
+
+插3 136/18748
+
+薇恩 672/4984</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹咲经验 当然是再出12ver 虹咲还专门有个10ver的..都是轻车熟路的东西了..12ver歌以后还可以再炒一波
+
+*****
+
+####  沙茶酱  
+##### 10253#       发表于 2022-12-14 16:30
+
+第三季有没有可能换田中仁他们过来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
