@@ -5555,3 +5555,21 @@ micomet  lovelove asmr
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不错不错
 
+
+
+*****
+
+####  神澈  
+##### 3523#       发表于 2022-12-14 22:54
+
+决赛当日怕是超不过今天的节目效果。
+
+*****
+
+####  holoan  
+##### 3524#         楼主| 发表于 2022-12-14 23:00
+
+没事决赛怎么样都行了
+
+今天娱乐赛已经把气氛完全预热到位了
+

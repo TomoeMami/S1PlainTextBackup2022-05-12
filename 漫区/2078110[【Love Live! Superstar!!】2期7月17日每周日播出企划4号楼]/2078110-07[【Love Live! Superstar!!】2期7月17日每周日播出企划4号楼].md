@@ -15649,3 +15649,26 @@ byd叔叔，昨天晚上刚下的单买个冬制服小趴趴今天做欧气宝�
 不过去年未来预报没翻车吧？小百合火力全开来着</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开头介绍的时候放了去年的油虾，对比起来多少有点难蚌。我看FNS的串都出现疑似五人原理在悄咪咪进行切割了
 
+
+
+*****
+
+####  优妮可  
+##### 10282#       发表于 2022-12-14 23:00
+
+直播的时候注意运镜去了，现在看回放怎么唱成这样啊草。
+
+*****
+
+####  nufawneafg  
+##### 10283#       发表于 2022-12-14 23:01
+
+其实鲤鱼那个调调颇有一种凹角色音唱现场的遗风，一瞬间有点幻视怀旧了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 10284#       发表于 2022-12-14 23:02
+
+哦对今天还公布了SIF2果皇的立绘，那立绘质量真的是2023+的游戏吗……
+
