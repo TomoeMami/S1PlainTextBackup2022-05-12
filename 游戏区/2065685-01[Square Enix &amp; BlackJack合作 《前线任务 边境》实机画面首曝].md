@@ -1014,3 +1014,12 @@ OCU与USN，2070年第一次哈夫曼战争爆发，2090年第二次哈夫曼战
 啊……这……岚在汉语里可没有暴风雨的意思啊…… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">想起以前高中写作文的时候用过日语这个“岚”，被语文老师画了个问号在旁边
 
+
+
+*****
+
+####  gulant  
+##### 93#       发表于 2022-12-14 13:41
+
+一些老IP仗着知名度想躺着拿打钱吸血
+
