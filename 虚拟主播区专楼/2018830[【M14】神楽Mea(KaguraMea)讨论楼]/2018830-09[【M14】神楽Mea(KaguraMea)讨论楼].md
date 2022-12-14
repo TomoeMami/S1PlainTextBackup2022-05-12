@@ -394,3 +394,14 @@ varium有两个是 但是这次联动的并不是
 不能直接转？是杏的？</blockquote>
 又不是你麻开台 怎么转
 
+
+
+*****
+
+####  掉头学姐  
+##### 12953#       发表于 2022-12-15 06:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58942128&amp;ptid=2018830" target="_blank">ashero 发表于 2022-12-14 20:50</a>
+又不是你麻开台 怎么转</blockquote>
+理解错了，傻了
+
