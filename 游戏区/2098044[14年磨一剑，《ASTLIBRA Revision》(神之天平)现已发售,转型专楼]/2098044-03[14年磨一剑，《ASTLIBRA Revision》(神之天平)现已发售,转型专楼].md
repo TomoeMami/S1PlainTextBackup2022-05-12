@@ -251,3 +251,18 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  绕指流光  
+##### 3022#       发表于 2022-12-14 13:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58928830&amp;ptid=2098044" target="_blank">藤井紫 发表于 2022-12-14 00:03</a>
+八章前的隐藏boss一共几个？
+火山宫殿，魔王城下水，大宅画，井，图书
+最终凭依也就这几位了吧？</blockquote>
+当然每系一个啊，妖精女王漏了吧
+
+—— 来自 OPPO PEDM00, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
