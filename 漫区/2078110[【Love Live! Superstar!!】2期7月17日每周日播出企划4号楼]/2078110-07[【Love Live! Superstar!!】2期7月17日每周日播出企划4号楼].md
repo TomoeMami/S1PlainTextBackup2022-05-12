@@ -15424,3 +15424,28 @@ BD3 631/10186
 
 风怒
 
+
+
+*****
+
+####  ads147147  
+##### 10259#       发表于 2022-12-14 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58939000&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-14 17:21</a>
+星3那开幕雷击预定，怕不是上来就30往下的好评</blockquote>
+如果不能解释清楚为什么留学取消，那可能会比水2开幕告诉你水水根本没出线，奖励圆珠笔一根还要恶心观众。
+
+留学取消简直是二期最噩梦的设计。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  市町村  
+##### 10260#       发表于 2022-12-14 19:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58940906&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-12-14 19:25</a>
+
+如果不能解释清楚为什么留学取消，那可能会比水2开幕告诉你水水根本没出线，奖励圆珠笔一根还要恶心观众 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">NICO好评18%的含金量，估计这是Lovelive不可超越的低谷了吧感觉三期最低也不至于比这个还低了
+

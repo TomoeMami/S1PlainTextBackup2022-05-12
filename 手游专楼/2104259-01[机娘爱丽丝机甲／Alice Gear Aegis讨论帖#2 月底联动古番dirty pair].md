@@ -74,3 +74,17 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">会长肯定找老相好去组fa啦
 要不你想想老相好还能找谁
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 135#         楼主| 发表于 2022-12-14 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58937479&amp;ptid=2104259" target="_blank">アヘ顔 发表于 2022-12-14 15:49</a>
+
+会长肯定找老相好去组fa啦
+
+要不你想想老相好还能找谁</blockquote>
+说不定到时去跟小鸟一组了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
