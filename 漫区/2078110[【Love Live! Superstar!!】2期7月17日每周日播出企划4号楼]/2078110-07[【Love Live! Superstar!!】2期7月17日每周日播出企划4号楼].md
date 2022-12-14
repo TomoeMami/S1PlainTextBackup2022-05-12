@@ -15566,3 +15566,21 @@ byd叔叔，昨天晚上刚下的单买个冬制服小趴趴今天做欧气宝�
 去年伏牛山在吵未来预报选的不好，今年看这破歌还不如未来预报呢，歌不行就算了，衣服还拉。真要把这歌当成9人的代表曲了吗，要不咱在想想吧
 还翻车了吗？虽然我都不会去看
 
+
+
+*****
+
+####  player3960  
+##### 10273#       发表于 2022-12-14 22:34
+
+跟着直播间看了两遍，光找鱼看了，就记得鲤鱼的solo发挥很好，别人唱的啥压根没在意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ViyViy  
+##### 10274#       发表于 2022-12-14 22:35
+
+听完了，这是设备问题还是别的？合唱的时候简直灾难，有几句尾音感觉没换好气硬顶上去的，而且pay感觉今天紧张的都挤嗓子了，这不可能吧。。<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
