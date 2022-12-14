@@ -4165,3 +4165,38 @@ Up until today, numerous discussions have been held with Yugo Asuma on what it m
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">早该让虹en新粉经历下年轻人的第一次管人毕业了。
 
+
+
+*****
+
+####  zzp05402  
+##### 17998#       发表于 2022-12-14 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58940285&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-12-14 18:46</a>
+
+早该让虹en新粉经历下年轻人的第一次管人毕业了。</blockquote>
+出道时间太短了效果不大
+
+*****
+
+####  psnsic8nag  
+##### 17999#       发表于 2022-12-14 19:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58939374&amp;ptid=1972669" target="_blank">fastary 发表于 2022-12-14 17:41</a>
+
+以非不明言大家也知道什么情况的理由开人，作为上市公司不应该控制下舆论吗。所以为什么不说清楚一点什么叫 ...</blockquote>
+说太明白会影响到股价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虹jp和隔壁毕业还会出来直播说明，结果你en不仅没直播说明，同期liver还搞放假不直播。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以后en别搞”大家庭“了，同期出事只在蓝鸟发文，说不定还是运营代发呢，膈应。
+
+大家庭.png
+(195.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-14 19:02 上传
+
+<img src="https://img.saraba1st.com/forum/202212/14/190222e29b43a3ljaslsbs.png" referrerpolicy="no-referrer">
+

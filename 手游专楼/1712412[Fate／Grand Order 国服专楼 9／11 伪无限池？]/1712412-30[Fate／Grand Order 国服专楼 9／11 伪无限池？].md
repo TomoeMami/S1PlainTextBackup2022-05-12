@@ -278,3 +278,14 @@ CBA没有补宝价值啊，该有的早有了
 慢着，这次圣诞只有10天？突然只剩3天</blockquote>
 我按部就班甚至才抽了四池<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这次商店看来是不用搬了
 
+
+
+*****
+
+####  DET33  
+##### 43825#       发表于 2022-12-14 19:07
+
+今年礼装一直五缺一，刷了十一池还是想想不要跟体力过不去了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
