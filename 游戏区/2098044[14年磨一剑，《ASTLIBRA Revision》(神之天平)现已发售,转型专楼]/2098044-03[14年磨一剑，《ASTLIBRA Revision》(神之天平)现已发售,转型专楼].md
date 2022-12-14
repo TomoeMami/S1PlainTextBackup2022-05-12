@@ -236,3 +236,18 @@
 
 只有单恋一人（鸦鸦不是人×）的魔怔纯爱战神才能走进官方完美结局，其他路线都用文字给你展示过了
 
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 3021#       发表于 2022-12-14 10:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58931673&amp;ptid=2098044" target="_blank">adw667 发表于 2022-12-14 09:31</a>
+你选了鸦哥之后的剧情就是修罗场，机娘炸毛后果严重</blockquote>
+🌿，这个哪里算了，我想看的是美少女之间的修罗场啊
+
+我心中原本期望看到的是毒舌白魔女大战怨妇阿努莉斯<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

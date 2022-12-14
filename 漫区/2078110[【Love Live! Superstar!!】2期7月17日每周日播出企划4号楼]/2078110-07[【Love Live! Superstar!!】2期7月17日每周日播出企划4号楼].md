@@ -15285,3 +15285,14 @@ twi：@_CelticWhite_
 
 2022-12-14 00:29 上传
 
+
+
+*****
+
+####  s3081260  
+##### 10247#       发表于 2022-12-14 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58929119&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-14 00:32</a>
+原来yabu之前也干过偶像，官推关注数471的那种</blockquote>
+yabu也是前偶像啊，那就是有三个人干过偶像，不过pay和yabu笑的很甜，给人以发自内心很开心的感觉，彩就笑的不太好，笑的时候眼睛没啥笑意
+
