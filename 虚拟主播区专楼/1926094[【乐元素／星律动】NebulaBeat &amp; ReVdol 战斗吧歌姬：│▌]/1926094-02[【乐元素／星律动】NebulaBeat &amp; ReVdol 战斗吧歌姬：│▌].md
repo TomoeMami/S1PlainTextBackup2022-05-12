@@ -12120,3 +12120,19 @@ wb更了   太劲了
 
 这舰战礼物卡姐的10w粉白色套提前出来了
 
+
+
+*****
+
+####  ladiesman802  
+##### 2767#       发表于 2022-12-15 16:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58945015&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-12-15 00:23</a>
+
+想要多点歌切和投稿，最近女瞳整太多有点疲劳了。
+
+  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
+没吧，只是最近嗓子发炎少了歌切罢了
+
+昨晚鸭鸭还有dd歌回
+
