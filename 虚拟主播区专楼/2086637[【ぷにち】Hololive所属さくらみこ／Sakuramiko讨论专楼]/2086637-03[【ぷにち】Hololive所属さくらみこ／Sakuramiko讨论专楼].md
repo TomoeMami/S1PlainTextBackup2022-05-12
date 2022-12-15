@@ -5648,3 +5648,14 @@ micomet  lovelove asmr
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孵蛋不算在内
 
+
+
+*****
+
+####  rs5621  
+##### 3530#       发表于 2022-12-15 22:05
+
+35跑推特上和大脸猫互动了,获得一个被大脸猫附魔的强运饭团.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+下次该出异色了吧
+

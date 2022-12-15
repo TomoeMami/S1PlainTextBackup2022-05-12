@@ -2242,3 +2242,12 @@ VF级别可能也有困难。
 另外此战的BETA比预定多出4万以上，但 ...</blockquote>
 纯夏没出事最后也是只能炸掉吗？  记得页游好像是这样，用一堆S11把反应炉炸了？
 
+
+
+*****
+
+####  ardito  
+##### 2182#       发表于 2022-12-15 22:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在柏木之前被突击级撞死的那台是谁啊，怎么连个镜头都没有，队长的空机开自动模式？
+
