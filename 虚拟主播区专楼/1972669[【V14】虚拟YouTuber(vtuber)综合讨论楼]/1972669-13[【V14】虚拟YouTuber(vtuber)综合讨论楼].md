@@ -273,3 +273,12 @@ rosemi今天直播了11个小时片头曲<img src="https://static.saraba1st.com/
 
 vta两星期病倒三，你们线上上课好不好<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Suny08  
+##### 18026#       发表于 2022-12-15 16:00
+
+男女会员比已经32对68了，感觉明年就可以二八开了，感觉不管是虹男或者虹女都需要考虑一些女性向的直播内容了
+

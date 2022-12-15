@@ -5562,3 +5562,31 @@ aacc我苦练了不少连段，新版全部作废，有点沮丧就再没玩了�
 
 看了看，新教程很不错啊。还教摸奖。
 
+
+
+*****
+
+####  天妇罗  
+##### 525#       发表于 2022-12-15 15:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58934309&amp;ptid=2026924" target="_blank">Gundamslave 发表于 2022-12-14 12:01</a>
+
+当然了，mb可是fgo老爷心善赏的。
+
+你有机会玩上mb都得好好感谢fgo老爷。
+
+再说了，mb也不过是月姬r的附赠 ...</blockquote>
+就mbtl这屌样子，比aacc差远了，还真没人稀罕玩它
+
+*****
+
+####  TANA  
+##### 526#       发表于 2022-12-15 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58952053&amp;ptid=2026924" target="_blank">新屋 发表于 2022-12-15 15:23</a>
+
+aacc我苦练了不少连段，新版全部作废，有点沮丧就再没玩了。
+
+现在新版热度还好吗 ...</blockquote>
+凉，刚更新完都没什么人
+

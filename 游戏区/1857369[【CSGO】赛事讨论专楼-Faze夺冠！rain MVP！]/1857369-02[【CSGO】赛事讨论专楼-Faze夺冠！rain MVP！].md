@@ -126,3 +126,35 @@ g2图一马上要赢了，会演变成图一乐吗，拭目以待。
 
 孩！
 
+
+
+*****
+
+####  liva  
+##### 2954#       发表于 2022-12-15 15:51
+
+G2：什么MAJOR冠军？打的就是你
+
+*****
+
+####  heseran  
+##### 2955#       发表于 2022-12-15 15:51
+
+ 本帖最后由 heseran 于 2022-12-15 15:53 编辑 
+
+15比0，VP的心态出问题了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烟萝  
+##### 2956#       发表于 2022-12-15 15:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 2957#       发表于 2022-12-15 15:58
+
+vp用实力证明这个游戏major冠军也就那样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然连冠是不一样的
+
