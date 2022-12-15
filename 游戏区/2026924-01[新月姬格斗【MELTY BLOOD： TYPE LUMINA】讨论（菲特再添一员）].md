@@ -5603,3 +5603,65 @@ aacc我苦练了不少连段，新版全部作废，有点沮丧就再没玩了�
 现在新版热度还好吗 ...</blockquote>
 搜房的话零星有几个的程度吧
 
+
+
+*****
+
+####  岸浪白野  
+##### 528#       发表于 2022-12-15 17:43
+
+<img src="https://img.saraba1st.com/forum/202212/15/174017knkepzygogfim4k9.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221215173209.png</strong> (266.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202212/15/174025m4daq1vwyr4byod1.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221215173441.png</strong> (187.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:40 上传
+
+<img src="https://img.saraba1st.com/forum/202212/15/174119a5bi5x6bhwitwt5x.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221215173200.png</strong> (283 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202212/15/174134u9re66s04c6shlju.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221215173429.png</strong> (39.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202212/15/174150cw8y1hquj2wqpup8.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221215173642.png</strong> (28.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:41 上传
+
+<strong>BOSS RUSH4的最后出现了黑莲，</strong>有将歌月十夜在mb里做的可能性？不过首先明年付费dlc见了
+
+*****
+
+####  岸浪白野  
+##### 529#       发表于 2022-12-15 17:47
+
+<img src="https://img.saraba1st.com/forum/202212/15/174651xw8dkzj3vvyz9kjh.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ截图20221215174609.jpg</strong> (153.04 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 17:46 上传
+
