@@ -7774,3 +7774,22 @@ self：布丁的布丁，小小的，香香的
 
 拆东墙补西墙，staff还是太懂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hoyice  
+##### 577#       发表于 2022-12-15 22:40
+
+临时拆地板太好笑了
+
+布丁女士美丽侧颜
+
+<img src="https://img.saraba1st.com/forum/202212/15/223922v0h4njohb2w4ld21.png" referrerpolicy="no-referrer">
+
+<strong>Snipaste_2022-12-15_22-26-42.png</strong> (119.44 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 22:39 上传
+
