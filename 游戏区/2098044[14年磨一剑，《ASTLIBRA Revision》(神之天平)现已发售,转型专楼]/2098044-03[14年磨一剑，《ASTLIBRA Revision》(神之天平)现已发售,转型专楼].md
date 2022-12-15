@@ -474,3 +474,17 @@
 
 这幸运好像更加玄学，nga有人ce改到9999幸运刷了很久也是不出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gwchobit  
+##### 3043#       发表于 2022-12-15 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58955429&amp;ptid=2098044" target="_blank">smileboom 发表于 2022-12-15 19:20</a>
+
+这幸运好像更加玄学，nga有人ce改到9999幸运刷了很久也是不出</blockquote>
+的确玄学，就算是安慰剂也还好。2小时刷不完5个 我玩两次也没遇到过。
+
+只能说看运气。
+
