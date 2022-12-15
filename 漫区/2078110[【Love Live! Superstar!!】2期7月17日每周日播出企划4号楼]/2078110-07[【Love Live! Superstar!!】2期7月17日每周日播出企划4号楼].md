@@ -16048,3 +16048,27 @@ asmart的特典简直太戳我XP了，该下单了<img src="https://static.sarab
 角色多利于粉丝爆金币<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 至于live，五人的时候能开这个规模的场子，九人还是开这个规模的，上座率也没怎么提升，但企划大聪明肯定认为成员多了粉丝也会增加<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10309#       发表于 2022-12-15 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58949457&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-12-15 11:49</a>
+
+别说多塞属性了，目前星里的属性融合应该算是有的
+
+要说多塞属性，那么加的人越多，对新属性的需求越 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不是几个老东西占的太多了，早该拆拆了
+
+*****
+
+####  aoaoaodedede  
+##### 10310#       发表于 2022-12-15 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58949522&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-15 11:54</a>
+还不是几个老东西占的太多了，早该拆拆了</blockquote>
+乐，就让喜欢这样的喜欢去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+企划继续搞，争取让每一个特点/萌点都不是唯一的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
