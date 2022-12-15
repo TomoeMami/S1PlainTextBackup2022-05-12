@@ -176,3 +176,18 @@ vp用实力证明这个游戏major冠军也就那样<img src="https://static.sar
 
 我好想剪个apex花式纯送集锦啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2960#         楼主| 发表于 2022-12-16 01:22
+
+好，送输了终于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我上一个讨厌的指挥是刚加入Navi时的胖球，当时他指挥除了便秘啥都不会，输赢全靠磕枪，赢了的局里他拿不出什么功劳，输的里让他便秘输的占一半
+
+不过后面也成了个合格的指挥
+
+从小蜜蜂买了a队三件套，我开始看小蜜蜂比赛
+这apex，真的是一坨大便，我都不想敲什么个人决策队伍决策如何如何那些重复几遍的废话了，只能说纯粹的一坨大便
+
