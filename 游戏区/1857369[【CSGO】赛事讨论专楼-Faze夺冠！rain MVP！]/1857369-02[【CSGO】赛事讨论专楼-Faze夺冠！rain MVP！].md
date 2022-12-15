@@ -65,3 +65,12 @@ VP直接选阿努比斯，有点意思
 
 玩神不解说就没继续看了，结果🐝赢了navi可还行，米人终于不米了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">,不过navi去年年初6人阵容打总决夺冠了
 
+
+
+*****
+
+####  dev2ce  
+##### 2947#       发表于 2022-12-15 14:00
+
+极🐰今天再输又要变阵了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

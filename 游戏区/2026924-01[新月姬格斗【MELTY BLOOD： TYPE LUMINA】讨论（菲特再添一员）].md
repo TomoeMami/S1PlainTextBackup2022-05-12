@@ -5533,3 +5533,12 @@ mb是tm的同人游戏，你个抱aniplex大腿的商业公司要跟同人格斗
 同人作可比这一作有特色多了，以这一作系统能把角色做到这么没意思应该反思一下别的部分了 ...</blockquote>
 能把所有人都做成一个感觉，大招血量都完全不变，老卵，平衡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RiesbyfeAtlasia  
+##### 522#       发表于 2022-12-15 13:51
+
+有个莲的剪影，应该是付费dlc了
+
