@@ -398,3 +398,25 @@
 
 体感第六第七章的设计图一章比一章难出，目前进度第八章开始，可以回去旧章节时在第七章刷了快2个小时什么都没有
 
+
+
+*****
+
+####  gwchobit  
+##### 3036#       发表于 2022-12-15 15:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944890&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-15 00:12</a>
+
+装备盘武器会增重怎么破？还卸不下来，只能加敏捷减重了吗？这样人物性能不是反而倒退了吗？ ...</blockquote>
+虽然增重但装备盘增加额外属性或技能，人物等级起来了敏捷60-80配合天平成长足够覆盖新章，其他属性点数还有收益上限，装备盘还可以突破。不存在倒退
+
+*****
+
+####  gwchobit  
+##### 3037#       发表于 2022-12-15 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58951551&amp;ptid=2098044" target="_blank">smileboom 发表于 2022-12-15 14:48</a>
+
+体感第六第七章的设计图一章比一章难出，目前进度第八章开始，可以回去旧章节时在第七章刷了快2个小时什么 ...</blockquote>
+这完全全看运气，要不加点幸运。
+
