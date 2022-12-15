@@ -282,3 +282,12 @@ vta两星期病倒三，你们线上上课好不好<img src="https://static.sara
 
 男女会员比已经32对68了，感觉明年就可以二八开了，感觉不管是虹男或者虹女都需要考虑一些女性向的直播内容了
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 18027#       发表于 2022-12-15 16:04
+
+你虹现在主力观众群完完全全变成那6万女粉了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
