@@ -7820,3 +7820,12 @@ self：布丁的布丁，小小的，香香的
 
 什么拆东墙补西墙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  H2Ofrozen  
+##### 581#       发表于 2022-12-16 00:40
+
+bsyl话说貌似除了srf(以及jb子)其他人的名字公式上都是汉字啊，如果非要写成汉字我觉得瀬瑠芙就不错（虽然估计现实中大概本来也没有叫这名的
+

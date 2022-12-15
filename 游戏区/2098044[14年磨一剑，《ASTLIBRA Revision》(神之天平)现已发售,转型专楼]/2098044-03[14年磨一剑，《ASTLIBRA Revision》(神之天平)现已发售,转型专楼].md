@@ -513,3 +513,15 @@
 
 —— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  藤井紫  
+##### 3046#       发表于 2022-12-16 00:35
+
+这箱子刷起来也太过分了
+几个小时还没出<img src="https://p.sda1.dev/8/8b96a9c69606d2e0ec0211a9618bfa7e/CMP_20221216003453748.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
