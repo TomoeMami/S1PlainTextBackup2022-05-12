@@ -16072,3 +16072,30 @@ asmart的特典简直太戳我XP了，该下单了<img src="https://static.sarab
 乐，就让喜欢这样的喜欢去吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 企划继续搞，争取让每一个特点/萌点都不是唯一的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  靡宜  
+##### 10311#       发表于 2022-12-15 12:16
+
+<img src="https://img.saraba1st.com/forum/202212/15/121552luuffquuuz0893d0.jpg" referrerpolicy="no-referrer">
+
+<strong>11c4c6272f90df8b.jpg</strong> (226.08 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 12:15 上传
+
+转自微博@a_Hyperion
+
+*****
+
+####  nufawneafg  
+##### 10312#       发表于 2022-12-15 12:18
+
+ 本帖最后由 nufawneafg 于 2022-12-15 12:21 编辑 
+
+关于多人差距这个问题，我倒是对舞台上的人没啥意见。我对各种现场承受能力还是挺高的，何况这次又不是真事故只是不及预期而已，这次我能给3/5没问题
+我最恶心的还是企划“要展现差距”这个说法。不论这是真心这么想的，还是找补的说辞，我都觉得它在时时挑战我的道德容忍度。这句话属于越想越恶心那一类<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
