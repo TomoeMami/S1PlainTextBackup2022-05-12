@@ -15943,3 +15943,15 @@ pay的麦后面根本没收音，合唱部分开始鱼和小百合麦音量也�
 还在做出圈的美梦啊，上个伏牛山翻不翻车真没啥影响的，对粉丝来说自推不背锅就是胜利，这是运营自己要的实 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不粘锅归不粘锅，挨喷是一起的啊
 
+
+
+*****
+
+####  player3960  
+##### 10300#       发表于 2022-12-15 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58948565&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-15 10:52:30</a>
+不粘锅归不粘锅，挨喷是一起的啊</blockquote>虱子多了不咬，这团口碑本来就这样了，不差这次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

@@ -241,3 +241,17 @@ Bsyl，海苔男家鬼灯わらべ毕业了</blockquote>
 
 那麻将鬼也能活吧，黑皮同事算个事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 18023#       发表于 2022-12-15 11:20
+
+<blockquote>化け物に牙剥いたアクシア→事后报告卒业
+
+まんさんに嫌われたユーゴ→事后报告卒业
+
+嫌なところで姿势がブレないよなぁ</blockquote>
+先斩后奏式毕业或成得罪まんさん后的新处理方法
+
