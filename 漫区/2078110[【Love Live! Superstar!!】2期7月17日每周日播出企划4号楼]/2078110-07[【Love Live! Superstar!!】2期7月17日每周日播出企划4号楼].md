@@ -16530,3 +16530,17 @@ Liella_LoveLive
 这波大量繁殖可能是因为开头的那 ...</blockquote>
 快跑.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 10351#       发表于 2022-12-16 06:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58959096&amp;ptid=2078110" target="_blank">奥柏伦亲王 发表于 2022-12-15 23:37</a>
+
+Liella_LoveLive
+
+22-12-15 19:47</blockquote>
+我么装微博APP，是不是能在APP端看到发微博的手机型号的？看看是不是和鲤鱼一款手机，是就<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
