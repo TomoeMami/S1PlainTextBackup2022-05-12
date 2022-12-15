@@ -158,3 +158,12 @@ G2：什么MAJOR冠军？打的就是你
 
 vp用实力证明这个游戏major冠军也就那样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然连冠是不一样的
 
+
+
+*****
+
+####  六道仙鱼  
+##### 2958#       发表于 2022-12-15 20:36
+
+这踩火拆，太抽象了，x队啥情况啊
+
