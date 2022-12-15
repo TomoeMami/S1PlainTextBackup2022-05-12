@@ -2120,3 +2120,22 @@ VF级别可能也有困难。
 看来管人就是这种时不时刷存在感的定位了，不过应该不会影响重要剧情，虽然这样也很烦人。文戏部分还原的尚可，配上便宜画面就有点出戏了，最后吐槽下音监，几首bgm来回用不带换的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有大尉告别的时候还显示人名是怕动画党不记得谁是谁吗（
 最后一集大概讲纯夏？虽然只剩一集节奏上就不可能讲好，不过重点果然还是动画组怎么还原那段<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2174#       发表于 2022-12-15 10:34
+
+倒计时十分钟总是担心没时间把队员都过一遍。不过还算是把老部下都覆盖了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+只剩一集的话那就只能做《战后调整》《小队长任命》章节了。剩下的剧情明年10月第三季<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/15/103303h1xk5h3k1thk3n28.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (42.89 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 10:33 上传
+

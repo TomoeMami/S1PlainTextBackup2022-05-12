@@ -15911,3 +15911,14 @@ pay的麦后面根本没收音，合唱部分开始鱼和小百合麦音量也�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  player3960  
+##### 10297#       发表于 2022-12-15 10:36
+
+还在做出圈的美梦啊，上个伏牛山翻不翻车真没啥影响的，对粉丝来说自推不背锅就是胜利，这是运营自己要的实力差距，结局就是这样啊，该<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
