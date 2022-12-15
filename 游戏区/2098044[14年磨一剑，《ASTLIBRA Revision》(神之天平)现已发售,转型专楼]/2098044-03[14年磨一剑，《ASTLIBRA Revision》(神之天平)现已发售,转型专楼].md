@@ -438,3 +438,16 @@
 
 5900的评价国区占了5200，这游戏是不是90%都是国区买的
 
+
+
+*****
+
+####  藤井紫  
+##### 3040#       发表于 2022-12-15 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58951551&amp;ptid=2098044" target="_blank">smileboom 发表于 2022-12-15 14:48</a>
+体感第六第七章的设计图一章比一章难出，目前进度第八章开始，可以回去旧章节时在第七章刷了快2个小时什么 ...</blockquote>
+我第八章刷了9级了还差一个
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
