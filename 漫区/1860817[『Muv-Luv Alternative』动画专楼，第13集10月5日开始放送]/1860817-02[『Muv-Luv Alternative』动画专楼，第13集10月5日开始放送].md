@@ -2251,3 +2251,15 @@ VF级别可能也有困难。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在柏木之前被突击级撞死的那台是谁啊，怎么连个镜头都没有，队长的空机开自动模式？
 
+
+
+*****
+
+####  jerryoq1  
+##### 2183#       发表于 2022-12-15 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58957963&amp;ptid=1860817" target="_blank">ardito 发表于 2022-12-15 22:08</a>
+
+在柏木之前被突击级撞死的那台是谁啊，怎么连个镜头都没有，队长的空机开自动模式？ ...</blockquote>
+柏木自己的自动模式机体吧  她开的是上尉的
+
