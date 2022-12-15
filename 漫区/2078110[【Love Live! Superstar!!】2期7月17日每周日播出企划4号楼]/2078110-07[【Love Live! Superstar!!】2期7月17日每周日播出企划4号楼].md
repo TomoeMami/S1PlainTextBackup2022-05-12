@@ -16099,3 +16099,12 @@ asmart的特典简直太戳我XP了，该下单了<img src="https://static.sarab
 关于多人差距这个问题，我倒是对舞台上的人没啥意见。我对各种现场承受能力还是挺高的，何况这次又不是真事故只是不及预期而已，这次我能给3/5没问题
 我最恶心的还是企划“要展现差距”这个说法。不论这是真心这么想的，还是找补的说辞，我都觉得它在时时挑战我的道德容忍度。这句话属于越想越恶心那一类<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 10313#       发表于 2022-12-15 12:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还属性呢，某人别说被二期生重组排列了，连同年级的都来抢了。多补偿你一个协助千训练有什么用，大伙还是默认训练主哨是千；某人就不一样了，分掉了就是送人多一个优点和长处了。
+
