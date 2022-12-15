@@ -525,3 +525,35 @@
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  hyzh12  
+##### 3047#       发表于 2022-12-16 00:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58959779&amp;ptid=2098044" target="_blank">藤井紫 发表于 2022/12/16周五 上午12:35:18</a>
+这箱子刷起来也太过分了
+几个小时还没出
+
+—— 来自 Xiaomi MI 8, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
+好像是说怪同时只会掉一个东西，掉素材了就不会掉宝箱了，要把那几个家素材掉率的关了
+
+*****
+
+####  hyzh12  
+##### 3048#       发表于 2022-12-16 00:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58957093&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022/12/15周四 下午9:13:34</a>
+第27枚小徽章是必须进终章才能得到吧，就差一个盾牌了</blockquote>
+看下宝物图鉴呗，当前所有能获得的小徽章和图纸图鉴上都有显示的，如果你是怕进了终章出不来，那不用担心，可以离开的
+
+*****
+
+####  hyzh12  
+##### 3049#       发表于 2022-12-16 00:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58951551&amp;ptid=2098044" target="_blank">smileboom 发表于 2022/12/15周四 下午2:48:22</a>
+体感第六第七章的设计图一章比一章难出，目前进度第八章开始，可以回去旧章节时在第七章刷了快2个小时什么都没有</blockquote>
+好像是怪物同时只会掉一个东西，掉了素材就不掉宝箱了，要把那几个加素材掉率的关了再刷
+
