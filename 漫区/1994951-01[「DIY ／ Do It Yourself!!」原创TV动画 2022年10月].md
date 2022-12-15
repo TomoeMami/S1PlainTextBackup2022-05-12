@@ -7612,3 +7612,13 @@ self：听话，给我戳戳！<img src="https://static.saraba1st.com/image/smil
 
 self，我的傲娇重女养成大师
 
+
+
+*****
+
+####  Trumpet  
+##### 567#       发表于 2022-12-15 18:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58953398&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-12-15 16:54</a></blockquote>
+这个关窗拉帘子的速度有种还想和喜欢的人聊天不舍得睡觉的感觉，太赞了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
