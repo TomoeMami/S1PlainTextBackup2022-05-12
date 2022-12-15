@@ -12145,3 +12145,12 @@ wb更了   太劲了
 
 卡姐扬言十万粉纪念回直播干他十几碗面
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2769#       发表于 2022-12-15 20:20
+
+叶子本来就不咋爱唱，最近嗓子还废了至今不好，纸姐也是养嗓中，卡卡嘛多数时候唱歌也就是个节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

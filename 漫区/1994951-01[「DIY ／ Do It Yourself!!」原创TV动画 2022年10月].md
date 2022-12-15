@@ -7676,3 +7676,12 @@ The end，For auld lang syne, my dear. 废部什么的已经不重要了<img src
 
 job子回国，布丁觉得少了点什么，拉着小己去秘密基地两人一起作业......我越想越觉得不对劲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  バーチャルS1er  
+##### 571#       发表于 2022-12-15 20:18
+
+大概估算了一下修树屋主要结构的木材费起码也要2-3w人民币了，真捡别人不要的哪来这么多这么长的好木材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
