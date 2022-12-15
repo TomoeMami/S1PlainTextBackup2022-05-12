@@ -7622,3 +7622,48 @@ self，我的傲娇重女养成大师
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58953398&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-12-15 16:54</a></blockquote>
 这个关窗拉帘子的速度有种还想和喜欢的人聊天不舍得睡觉的感觉，太赞了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RainbowSealife  
+##### 568#       发表于 2022-12-15 18:55
+
+<img src="https://img.saraba1st.com/forum/202212/15/181144cp4ojd3pjetth3od.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (216.32 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 18:11 上传
+
+self：漂亮滴狠呐！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://tva3.sinaimg.cn/large/beb44592ly1h94oan0jrcg20dc07ikjm.gif" referrerpolicy="no-referrer">
+<img src="https://tvax2.sinaimg.cn/large/beb44592ly1h94o2dwibkg20dc07ix6s.gif" referrerpolicy="no-referrer">
+<img src="https://tva1.sinaimg.cn/large/beb44592ly1h94oj9zftvg20dc07ib2c.gif" referrerpolicy="no-referrer">
+
+布丁女士在DIY片场有傲娇的资本，再怎么傲也是双箭头，也没有第三者插足，几乎就是稳赢。放到水星魔女片场直接就追妻火葬场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+米米：请多指教，我的新郎！<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">
+
+布丁：我出手只是为了教训那个嚣张的挑染，谁要做你的新郎啊？自作多情！（实则内心狂喜中）<img src="https://static.saraba1st.com/image/smiley/face2017/261.png" referrerpolicy="no-referrer">
+
+米米：？！BYD爱当不当，想娶姐们的排队能绕水星两圈！不识抬举，我再也不想看见你！走了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+布丁：米米。...米米。...我...我...我...我真是好很爱你的，为何你要这样对我呀？呜哇呀——呜—哇——米米...米米呀......呱——吔——哇—呀——<img src="https://static.saraba1st.com/image/smiley/face2017/267.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RainbowSealife  
+##### 569#       发表于 2022-12-15 19:01
+
+<img src="https://img.saraba1st.com/forum/202212/15/185919con9xwxn6zna9j9c.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (495.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 18:59 上传
+
+The end，For auld lang syne, my dear. 废部什么的已经不重要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
