@@ -16455,3 +16455,15 @@ Liella_LoveLive
 
 那个微博群英会有往年的视频，流程应该差不多，走红毯签名拍照，好像还有带货？
 
+
+
+*****
+
+####  愛さ実  
+##### 10345#       发表于 2022-12-16 00:17
+
+看了下日本除了些国际影展真不兴红毯。
+微博玩法内娱味太浓，已经预想到时会很尬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
