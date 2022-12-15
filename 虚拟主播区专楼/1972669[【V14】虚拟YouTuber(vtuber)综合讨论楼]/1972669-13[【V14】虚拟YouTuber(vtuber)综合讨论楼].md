@@ -264,3 +264,12 @@ Bsyl，海苔男家鬼灯わらべ毕业了</blockquote>
 
 rosemi今天直播了11个小时片头曲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 18025#       发表于 2022-12-15 14:50
+
+vta两星期病倒三，你们线上上课好不好<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
