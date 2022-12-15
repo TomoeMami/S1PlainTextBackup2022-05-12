@@ -16345,3 +16345,20 @@ WEIBO Account Festival
 夹总那有号了，官方你开个叔叔家号不难的吧(，反正迟早要上bml sp的 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔家LL官号屁用没有不如不开，AAO补档三十二次了愣是没个官方稿，哪怕发在AS那个号上也好啊
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 10335#       发表于 2022-12-15 22:18
+
+官号啥的没有啥可期待性，其实就从近几个月来看，没看出企划对多中国市场有多少诚意
+
+要说之前一段时间最接近官方的应该是B站那个LVJ_Official，刚出来那会倒是“未来可期”，但是之后转播频率只能说有点迷，最近的还是7月份炒冷饭的一个重新转播，也不知道搞转播的是咋回事，是收益达不到预期还是压根不想搞，也不清楚这种转播的难度到底是个什么水平，成本怎么样，个人感觉现场设备应该可复用吧，不太清楚往国内转播成本如何<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+然后星这边，别的不说，就可可那剧情，诚意就免谈了……
+
+菜鱼节目俩期后也没下文了……
+
+说实话，个人觉得官方如果想要把动画效应发挥得最好还得是一期动画前三集，现在来怕不是给大家当出气筒的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，个人也没觉得官方会好好运营微博账号
+
