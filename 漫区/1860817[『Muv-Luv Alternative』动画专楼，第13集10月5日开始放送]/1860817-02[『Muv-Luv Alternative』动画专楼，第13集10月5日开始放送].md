@@ -2206,3 +2206,17 @@ VF级别可能也有困难。
 
 另外此战的BETA比预定多出4万以上，但是真正意料外的是凄乃皇的故障，而不是降下兵或者地面部队的失利
 
+
+
+*****
+
+####  乙山法純  
+##### 2179#       发表于 2022-12-15 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58944024&amp;ptid=1860817" target="_blank">Rhantolk 发表于 2022-12-14 22:54</a>
+
+这镭射级的瞄准速度有这么快的吗 ，居然左躲右躲的这瞄准还能一直钉身上。。。
+
+话说动画多长长度啊，这季 ...</blockquote>
+所以之后放弃堆闪避搞G元素发生器，7代TSF人手一个小型化卢瑟立场
+
