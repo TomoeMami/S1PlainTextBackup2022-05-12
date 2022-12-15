@@ -336,3 +336,12 @@ V最协又要来了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 抱歉！不针对任何人但是overdose的人声切片没做好确实会有点像青蛙！
 
+
+
+*****
+
+####  OldGlory  
+##### 18033#       发表于 2022-12-15 23:25
+
+叔叔抛的这么及时是不是提前看到财报了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

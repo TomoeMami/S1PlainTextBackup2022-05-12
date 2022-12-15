@@ -16380,3 +16380,16 @@ WEIBO Account Festival
 12月20日(火)に开催される「WEIBO Account Festival 2022」に、「ラブライブ！スーパースター!!」Liella!の ...</blockquote>
 看了下，说是20号走红毯，21号节目
 
+
+
+*****
+
+####  愛さ実  
+##### 10338#       发表于 2022-12-15 23:26
+
+草，还走地毯。
+就是一个节目吧，之前的那个【ASIA EMOTIONAL MUSIC FES 2022】的活动网址就是https://weibo-accountfestival.com<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+微博花样太多，想出一份出场费搞两个活动是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
