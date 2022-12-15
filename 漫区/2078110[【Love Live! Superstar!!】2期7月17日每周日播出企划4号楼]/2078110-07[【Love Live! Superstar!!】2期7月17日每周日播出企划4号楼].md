@@ -16504,3 +16504,17 @@ Liella_LoveLive
 
 太尬了求求别玩了谢谢
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10349#       发表于 2022-12-16 01:42
+
+ 本帖最后由 稀勢のささ 于 2022-12-16 01:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58959695&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-12-16 00:26</a>
+在不久的将来，是否会有九人原理
+只能说</blockquote>
+那串里的大家已经商量好啦，不会有9人原理的请3期生放心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这波大量繁殖可能是因为开头的那位写手去了现场发现味道不对想删推跑路，引发了一些人的共鸣吧，基本都是些自推露面机会减少对二期生兴趣又只是附带的程度，各方面整体水平都多少有所降低，虽然可以理解但突然出现这么多不见棺材不落泪的多少有点难绷
+
