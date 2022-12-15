@@ -5590,3 +5590,16 @@ aacc我苦练了不少连段，新版全部作废，有点沮丧就再没玩了�
 现在新版热度还好吗 ...</blockquote>
 凉，刚更新完都没什么人
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 527#       发表于 2022-12-15 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58952053&amp;ptid=2026924" target="_blank">新屋 发表于 2022-12-15 15:23</a>
+aacc我苦练了不少连段，新版全部作废，有点沮丧就再没玩了。
+
+现在新版热度还好吗 ...</blockquote>
+搜房的话零星有几个的程度吧
+
