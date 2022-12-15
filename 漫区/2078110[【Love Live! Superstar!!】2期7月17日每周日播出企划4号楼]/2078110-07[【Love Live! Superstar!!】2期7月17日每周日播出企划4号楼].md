@@ -16362,3 +16362,21 @@ WEIBO Account Festival
 
 说实话，个人觉得官方如果想要把动画效应发挥得最好还得是一期动画前三集，现在来怕不是给大家当出气筒的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，个人也没觉得官方会好好运营微博账号
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10336#       发表于 2022-12-15 23:03
+
+有歌就听两首没有就算了，想别的也没啥用<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 10337#       发表于 2022-12-15 23:08
+
+<blockquote>稀勢のささ 发表于 2022-12-15 18:47
+12月20日(火)に开催される「WEIBO Account Festival 2022」に、「ラブライブ！スーパースター!!」Liella!の ...</blockquote>
+看了下，说是20号走红毯，21号节目
+
