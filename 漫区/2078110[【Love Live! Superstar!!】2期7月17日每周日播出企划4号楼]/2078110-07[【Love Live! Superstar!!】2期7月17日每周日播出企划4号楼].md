@@ -16467,3 +16467,31 @@ Liella_LoveLive
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  nufawneafg  
+##### 10346#       发表于 2022-12-16 00:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58959479&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-16 00:07</a>
+五厕这清算了一天怎么最后变成了五人原理发颠</blockquote>
+在不久的将来，是否会有九人原理<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  愛さ実  
+##### 10347#       发表于 2022-12-16 00:29
+
+<img src="https://img.saraba1st.com/forum/202212/16/002926snwvb37ozih3bhq3.png" referrerpolicy="no-referrer">
+
+<strong>IMG_4846.PNG</strong> (160.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-16 00:29 上传
+
+认真的吗日本人<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
