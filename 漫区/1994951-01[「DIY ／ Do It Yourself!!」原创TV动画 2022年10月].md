@@ -7685,3 +7685,24 @@ job子回国，布丁觉得少了点什么，拉着小己去秘密基地两人�
 
 大概估算了一下修树屋主要结构的木材费起码也要2-3w人民币了，真捡别人不要的哪来这么多这么长的好木材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zfy666  
+##### 572#       发表于 2022-12-15 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58955638&amp;ptid=1994951" target="_blank">水莲寺流歌 发表于 2022-12-15 19:33</a>
+
+job子回国，布丁觉得少了点什么，拉着小己去秘密基地两人一起作业......我越想越觉得不对劲啊 ...</blockquote>
+快进到下一集布丁和self在树屋里开impact<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊地知星歌  
+##### 573#       发表于 2022-12-15 20:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58955638&amp;ptid=1994951" target="_blank">水莲寺流歌 发表于 2022-12-15 19:33</a>
+job子回国，布丁觉得少了点什么，拉着小己去秘密基地两人一起作业......我越想越觉得不对劲啊 ...</blockquote>
+答案是布丁一边抓self&amp;miku的牌子一边叫self妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

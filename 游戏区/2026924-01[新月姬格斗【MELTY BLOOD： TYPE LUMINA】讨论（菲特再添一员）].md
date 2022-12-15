@@ -5665,3 +5665,18 @@ aacc我苦练了不少连段，新版全部作废，有点沮丧就再没玩了�
 
 2022-12-15 17:46 上传
 
+
+
+*****
+
+####  gpx234mqx  
+##### 530#       发表于 2022-12-15 20:27
+
+ 本帖最后由 gpx234mqx 于 2022-12-15 20:30 编辑 
+
+哦哦。希耶尔认出伯爵的黑炎是第八秘迹会的净化之炎了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+果然是教会藏起来的神迹嘛
+
+伯爵也认出希耶尔的武装了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
