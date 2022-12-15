@@ -16421,3 +16421,21 @@ Liella_LoveLive
 
 微博不愧是微博，看到几个恶心的东西了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10341#       发表于 2022-12-15 23:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">神tm红毯，玩尬的是吧
+
+*****
+
+####  nufawneafg  
+##### 10342#       发表于 2022-12-15 23:59
+
+面向国内可能还是多个相关方统一不了口径只能打打游击的问题
+
+另外，不得不说微博的打法欣赏不来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
