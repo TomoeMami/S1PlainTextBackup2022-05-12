@@ -7667,3 +7667,12 @@ self：漂亮滴狠呐！<img src="https://static.saraba1st.com/image/smiley/fac
 
 The end，For auld lang syne, my dear. 废部什么的已经不重要了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  水莲寺流歌  
+##### 570#       发表于 2022-12-15 19:33
+
+job子回国，布丁觉得少了点什么，拉着小己去秘密基地两人一起作业......我越想越觉得不对劲啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
