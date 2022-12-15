@@ -16108,3 +16108,30 @@ asmart的特典简直太戳我XP了，该下单了<img src="https://static.sarab
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还属性呢，某人别说被二期生重组排列了，连同年级的都来抢了。多补偿你一个协助千训练有什么用，大伙还是默认训练主哨是千；某人就不一样了，分掉了就是送人多一个优点和长处了。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10314#       发表于 2022-12-15 13:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58950294&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-15 12:59</a>
+还属性呢，某人别说被二期生重组排列了，连同年级的都来抢了。多补偿你一个协助千训练有什么用，大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以说星2连这都没做好啊，不过一坨O你也没办法要求他什么
+
+*****
+
+####  aoaoaodedede  
+##### 10315#       发表于 2022-12-15 13:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58950294&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-15 12:59</a>
+还属性呢，某人别说被二期生重组排列了，连同年级的都来抢了。多补偿你一个协助千训练有什么用，大 ...</blockquote>
+星2开始我就担心特点/萌点再分配的问题，果不其然，星2做到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Kfly  
+##### 10316#       发表于 2022-12-15 13:10
+
+现在看来当时担心的事情几乎都发生了，某种意义上的符合期待（?）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

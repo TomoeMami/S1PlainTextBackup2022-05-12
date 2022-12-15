@@ -255,3 +255,12 @@ Bsyl，海苔男家鬼灯わらべ毕业了</blockquote>
 嫌なところで姿势がブレないよなぁ</blockquote>
 先斩后奏式毕业或成得罪まんさん后的新处理方法
 
+
+
+*****
+
+####  宅方泉  
+##### 18024#       发表于 2022-12-15 13:04
+
+rosemi今天直播了11个小时片头曲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
