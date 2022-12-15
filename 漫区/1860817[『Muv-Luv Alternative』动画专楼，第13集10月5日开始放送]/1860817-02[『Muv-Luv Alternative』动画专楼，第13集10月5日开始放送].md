@@ -2220,3 +2220,25 @@ VF级别可能也有困难。
 话说动画多长长度啊，这季 ...</blockquote>
 所以之后放弃堆闪避搞G元素发生器，7代TSF人手一个小型化卢瑟立场
 
+
+
+*****
+
+####  azbhg1  
+##### 2180#       发表于 2022-12-15 21:05
+
+标个角色名不就挺好，为啥要把CV也写上去啊，太出戏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jerryoq1  
+##### 2181#       发表于 2022-12-15 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58954417&amp;ptid=1860817" target="_blank">吕玲绮的十字戟 发表于 2022-12-15 18:08</a>
+因为那个地面设施就是个外壳
+
+所有的陷阱，出兵点，动力炉全在底下
+
+另外此战的BETA比预定多出4万以上，但 ...</blockquote>
+纯夏没出事最后也是只能炸掉吗？  记得页游好像是这样，用一堆S11把反应炉炸了？
+
