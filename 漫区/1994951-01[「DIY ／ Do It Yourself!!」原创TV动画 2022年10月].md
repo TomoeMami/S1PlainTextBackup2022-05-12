@@ -7706,3 +7706,15 @@ job子回国，布丁觉得少了点什么，拉着小己去秘密基地两人�
 job子回国，布丁觉得少了点什么，拉着小己去秘密基地两人一起作业......我越想越觉得不对劲啊 ...</blockquote>
 答案是布丁一边抓self&amp;miku的牌子一边叫self妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  刻刻怪  
+##### 574#       发表于 2022-12-15 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58955055&amp;ptid=1994951" target="_blank">RainbowSealife 发表于 2022-12-15 18:55</a>
+
+self：漂亮滴狠呐！</blockquote>
+论傲娇还得米米，人家布丁都软了，米米第一季快结束了还没娇<img src="https://static.saraba1st.com/image/smiley/carton2017/382.png" referrerpolicy="no-referrer">米米是看过剧本，知道有第二季的是吧
+
