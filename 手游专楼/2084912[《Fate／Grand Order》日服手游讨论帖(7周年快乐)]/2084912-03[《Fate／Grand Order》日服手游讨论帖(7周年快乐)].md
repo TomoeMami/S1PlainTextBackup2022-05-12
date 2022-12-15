@@ -9724,3 +9724,26 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 无限池540箱刷的种火基本清空<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">从90到120，2倍经验，qp消费在1e5+？好像不止但是忘记截图了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3868#       发表于 2022-12-15 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58942544&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-12-14 21:14</a>
+
+才发现上格斗游戏的牛若丸上身套了件紧身黑色打底衫，原来的比基尼铠甲play变成奶盖了，这么改是觉得战斗的 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202212/15/093344r6obnob28ymozhue.png" referrerpolicy="no-referrer">
+
+<strong>300px-英灵巡游：牛若丸.png</strong> (50.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 09:33 上传
+
+其实六周年的英灵巡游礼装里面牛肉丸就有加了连体打底衣，可能是觉得真空有伤风化？
+
+不过关注度更高的第七章动画都没改，搞不懂为啥游戏里先和谐了...
+
