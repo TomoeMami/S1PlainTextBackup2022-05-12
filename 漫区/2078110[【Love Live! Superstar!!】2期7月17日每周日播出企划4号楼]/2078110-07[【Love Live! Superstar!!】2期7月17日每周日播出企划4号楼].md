@@ -16333,3 +16333,15 @@ WEIBO Account Festival
 
 这杂志是所有人都会上？
 
+
+
+*****
+
+####  adw667  
+##### 10334#       发表于 2022-12-15 21:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58952349&amp;ptid=2078110" target="_blank">cybernetics31 发表于 2022-12-15 15:42</a>
+
+夹总那有号了，官方你开个叔叔家号不难的吧(，反正迟早要上bml sp的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔家LL官号屁用没有不如不开，AAO补档三十二次了愣是没个官方稿，哪怕发在AS那个号上也好啊
+
