@@ -7596,3 +7596,19 @@ self：听话，给我戳戳！<img src="https://static.saraba1st.com/image/smil
 
 布丁邀请小己去 DIY 社，说是秘密基地还缺少一个东西，于是两人一起开始作业……
 
+
+
+*****
+
+####  千恋万花  
+##### 565#       发表于 2022-12-15 16:54
+
+<img src="https://p.sda1.dev/8/be5c18de099166b0a2ab08627371271a/DIY.webp" referrerpolicy="no-referrer">
+
+*****
+
+####  伊地知星歌  
+##### 566#       发表于 2022-12-15 16:56
+
+self，我的傲娇重女养成大师
+
