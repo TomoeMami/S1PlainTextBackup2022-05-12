@@ -15931,3 +15931,15 @@ pay的麦后面根本没收音，合唱部分开始鱼和小百合麦音量也�
 
 一期有很多不合传统LL饭胃口的歌和现场，我看也没耽误卖票，偶像素质过硬是关键，二期属于是新人和动画编剧同步拉了，目前我没听到过有和一期同水平的现场，反正总有人掉链子
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10299#       发表于 2022-12-15 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58948310&amp;ptid=2078110" target="_blank">player3960 发表于 2022-12-15 10:36</a>
+
+还在做出圈的美梦啊，上个伏牛山翻不翻车真没啥影响的，对粉丝来说自推不背锅就是胜利，这是运营自己要的实 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不粘锅归不粘锅，挨喷是一起的啊
+
