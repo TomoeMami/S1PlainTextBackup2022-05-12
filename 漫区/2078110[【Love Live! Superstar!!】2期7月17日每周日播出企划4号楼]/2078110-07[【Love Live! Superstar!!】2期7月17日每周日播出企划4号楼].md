@@ -16135,3 +16135,22 @@ asmart的特典简直太戳我XP了，该下单了<img src="https://static.sarab
 
 现在看来当时担心的事情几乎都发生了，某种意义上的符合期待（?）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 10317#       发表于 2022-12-15 13:13
+
+已经，没有什么好担心的了<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  ViyViy  
+##### 10318#       发表于 2022-12-15 13:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58950428&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-12-15 13:08</a>
+
+星2开始我就担心特点/萌点再分配的问题，果不其然，星2做到了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要说最有节目效果的还是因为工期问题省事搬分镜，大多还是唐小姐相关的，喜感度巨魔度暴增
+
