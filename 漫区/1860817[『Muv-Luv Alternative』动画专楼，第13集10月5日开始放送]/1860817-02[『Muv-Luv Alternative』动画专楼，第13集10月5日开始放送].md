@@ -2139,3 +2139,21 @@ VF级别可能也有困难。
 
 2022-12-15 10:33 上传
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 2175#       发表于 2022-12-15 14:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58946548&amp;ptid=1860817" target="_blank">半分宅 发表于 2022-12-15 07:15</a>
+
+VF级别可能也有困难。
+
+目前游戏本体、外传小说和战棋游戏中主要有3种躲法：</blockquote>
+其实VF就接近你说的3了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+当然其实因为打beta是军队战，你被锁定的时候就需要仰仗自己友军帮忙清掉照射体，这种情况也是多见的
+
+像小麻那种被友军推开捡了一条命其实已经算非常破格了
+

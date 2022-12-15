@@ -16198,3 +16198,18 @@ asmart的特典简直太戳我XP了，该下单了<img src="https://static.sarab
 
 感觉这场nako也很稳，nako一开口就感觉到了一二期生的差距，这样真的好吗()
 
+
+
+*****
+
+####  nufawneafg  
+##### 10323#       发表于 2022-12-15 14:18
+
+ 本帖最后由 nufawneafg 于 2022-12-15 14:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58950918&amp;ptid=2078110" target="_blank">ads147147 发表于 2022-12-15 13:57</a>
+至少，目前，桀骜不驯这个属性不太可能有人和vn抢了，虽然恋恋早期也有这种暗示，但是很快就谐星了。
+
+说起 ...</blockquote>
+了转反陪读还不够谐啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+桀骜不驯已经是过去时了
+
