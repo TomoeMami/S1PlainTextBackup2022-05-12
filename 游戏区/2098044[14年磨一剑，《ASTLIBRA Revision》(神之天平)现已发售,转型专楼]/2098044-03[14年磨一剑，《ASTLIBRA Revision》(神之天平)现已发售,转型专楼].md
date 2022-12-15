@@ -346,3 +346,17 @@
 
 说起来通关那么久突然想到个问题，因为看大家讨论都没提到，狗去救老夫妇那里正常来讲是不是先触发剧情再解的机关？我这边的情况是解完机关后才触发剧情狗冲进去了，感觉是bug，按照我这情况应该会有不少人吐槽这段剧情才对。
 
+
+
+*****
+
+####  yueyut  
+##### 3031#       发表于 2022-12-15 08:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58925770&amp;ptid=2098044" target="_blank">2082082012 发表于 2022-12-13 20:09</a>
+
+打到矿石镇没嘉隆好难受啊
+
+—— 来自 samsung SM-G9860, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+鸟哥没了之后才能发现第二个爹——弩箭。弩清图实在是太安逸了。。
+
