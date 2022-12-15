@@ -112,3 +112,20 @@ FA风纪出了。
 
 结论：性能上虽然是三合一但没什么特别的，还是得开摩托，飙车还是最劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  江戸前ルナ  
+##### 138#         楼主| 发表于 2022-12-15 16:20
+
+FA风纪的新剧情看了，要素真的是太齐全了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+第一幕：早上想念着文嘉，晚上想念着文嘉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+第二幕：可乐酱和风纪原来是青梅竹马。风纪一直因为可乐酱是“我的东西”，直到……（天降会长打败青梅竹马赢得可乐酱芳心
+
+第三幕：被情敌邀请进学生会，一问原来是因为可乐酱的推荐，而且还被会长撩了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+至于后来会长的旧情人阿蒂加入战场，则是另外的故事了，真是太XX乱了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
