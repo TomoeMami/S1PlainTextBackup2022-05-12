@@ -15988,3 +15988,63 @@ pay的麦后面根本没收音，合唱部分开始鱼和小百合麦音量也�
 
 人数优势这种东西又不大打架。表演的好一个人也能hold住场。
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10304#       发表于 2022-12-15 11:43
+
+人多方便塞属性，虽然星2连这个也没做好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 10305#       发表于 2022-12-15 11:46
+
+asmart的特典简直太戳我XP了，该下单了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+20221215_114341.jpg
+(211.18 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 11:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/15/114458pcesu1q5tpsp1u2t.jpg" referrerpolicy="no-referrer">
+
+20221215_114345.jpg
+(200.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-15 11:45 上传
+
+<img src="https://img.saraba1st.com/forum/202212/15/114502rmsdsrwr7dt5t0m2.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 10306#       发表于 2022-12-15 11:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58949361&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2022-12-15 11:43</a>
+人多方便塞属性，虽然星2连这个也没做好</blockquote>
+塞属性是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+快快请AIGC大仙
+
+*****
+
+####  aoaoaodedede  
+##### 10307#       发表于 2022-12-15 11:49
+
+别说多塞属性了，目前星里的属性融合应该算是有的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+要说多塞属性，那么加的人越多，对新属性的需求越大，要是拿不出新的，那就只得融合旧属性，然后就可能尴尬地出现“共享萌点”的问题，角色的特点这不还是削弱了
+
+*****
+
+####  starring  
+##### 10308#       发表于 2022-12-15 11:51
+
+角色多利于粉丝爆金币<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+至于live，五人的时候能开这个规模的场子，九人还是开这个规模的，上座率也没怎么提升，但企划大聪明肯定认为成员多了粉丝也会增加<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
