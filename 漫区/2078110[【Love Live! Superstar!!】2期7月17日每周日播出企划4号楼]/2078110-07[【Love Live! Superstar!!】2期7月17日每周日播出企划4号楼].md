@@ -16246,3 +16246,22 @@ asmart的特典简直太戳我XP了，该下单了<img src="https://static.sarab
 
 演出需要
 
+
+
+*****
+
+####  cybernetics31  
+##### 10326#       发表于 2022-12-15 15:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官方你开个叔叔家号不难的吧(，反正迟早要上bml sp的
+
+*****
+
+####  ruffian  
+##### 10327#       发表于 2022-12-15 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58950294&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-15 12:59:02</a>
+还属性呢，某人别说被二期生重组排列了，连同年级的都来抢了。多补偿你一个协助千训练有什么用，大伙还是默 ...</blockquote>说起这个我就乐了，作曲都有香恋芽三个人分了，但是吧，第10集最后成曲的还是香哥哥，恋芽弹半天钢琴到底写出来了个啥没人关心。某人就不一样了，设计被同期抢了就等于没有了，制作被三巨头抢了就等于没有了，怎么能这么双标呢，不就是想官方解构完再跟着踩一脚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
