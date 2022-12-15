@@ -2284,3 +2284,15 @@ VF级别可能也有困难。
 
 具体楼里有说明，你往前翻几页
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 2186#       发表于 2022-12-15 23:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58957098&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-12-15 21:14</a>
+
+纯夏没出事最后也是只能炸掉吗？  记得页游好像是这样，用一堆S11把反应炉炸了？ ...</blockquote>
+至少反应炉是必须炸掉否则beta们止不住（横滨算是敌人故意留给人类的）
+

@@ -497,3 +497,19 @@
 
 第27枚小徽章是必须进终章才能得到吧，就差一个盾牌了
 
+
+
+*****
+
+####  2082082012  
+##### 3045#       发表于 2022-12-15 23:42
+
+通关了，说说感想：纯粹的感动，重拾旧时的美好
+首先还要感谢之前再泥潭发帖骂这个游戏的，要不是发帖我就会错过这个游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+先吐槽一下新章就如大家说的真的不够打，后面就是拿了真空刃的月下，没多少意思
+但这几十小时下说真的是“不虚此行”很满足，好几处给了我当年玩天地创造中羚羊救人的感动了。打完之后在想如今jrpg在得到酷炫特效，又失去那些
+细腻的刻画，鲜活的人物一直是我喜欢jrpg的原因但现如今很难打动我了。正值cc重逢发售云了几段当年很是喜欢的几个桥段，重看时却是无感。当年肉眼可见的多变形却让人眼泪直打转。越是抽象的东西越能触及心灵。
+一直喜欢重玩老游戏，新游戏碰的少。唉，自己还是吃这套。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

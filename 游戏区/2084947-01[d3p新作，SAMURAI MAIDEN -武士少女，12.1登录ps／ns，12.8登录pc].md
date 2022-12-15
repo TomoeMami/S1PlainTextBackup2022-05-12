@@ -18,3 +18,15 @@ pc版真就暴力移植啊，进去键位设置都没有，打半天我还没提
  看完你楼，默默的把愿望单删了，买了个海王星vs闪乱神乐（</blockquote>
 另一种不可回收垃圾（我的地雷社粉丝朋友如是评价
 
+
+
+*****
+
+####  DawnGuardian  
+##### 165#       发表于 2022-12-15 23:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58957764&amp;ptid=2084947" target="_blank">suttv 发表于 2022-12-15 21:56</a>
+
+pc版真就暴力移植啊，进去键位设置都没有，打半天我还没提示上的手柄键位对应上，视角移动还乱飘，喜欢用键 ...</blockquote>
+键位设置有吧，只是默认显示手柄操作，可以改，不过依然是依托答辩
+
