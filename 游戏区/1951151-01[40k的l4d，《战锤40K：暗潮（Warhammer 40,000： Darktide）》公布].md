@@ -30,3 +30,19 @@
 
 等了一周结果最后又跳票一天的更新，说好的新武器和新图通通没有，除了挤牙膏开放的洗专长功能大概就剩一个（再次）削弱动力剑了，我现在是真的觉得肥鲨这游戏是做来整蛊的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  夜莺0093  
+##### 207#       发表于 2022-12-16 01:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58808736&amp;ptid=1951151" target="_blank">415452356 发表于 2022-12-7 03:44</a>
+
+啥时候出个战斗修女为主角的act/arpg/tps啊
+
+—— 来自 S1Fun</blockquote>
+ARPG的审判官殉道的战斗修女DLC出了半个月了，武器和机制挺花，玩家信仰值满了直接一键Henshin活圣人用各种专属技能成片的往桌子下面扫人。
+
+然后战棋的BattleSector和4X的Gladius都要出战斗修女的DLC。
+
