@@ -327,3 +327,12 @@ vta两星期病倒三，你们线上上课好不好<img src="https://static.sara
 
 V最协又要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 18032#       发表于 2022-12-15 17:58
+
+抱歉！不针对任何人但是overdose的人声切片没做好确实会有点像青蛙！
+
