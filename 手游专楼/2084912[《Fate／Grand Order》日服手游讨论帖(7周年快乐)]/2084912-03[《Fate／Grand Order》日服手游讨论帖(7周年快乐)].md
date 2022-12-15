@@ -9756,3 +9756,17 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 种火二十张一喂太蠢了，我到现在只给莉莉丝升了120。芭娜娜117就懒得动了。
 
+
+
+*****
+
+####  DARKGRAY  
+##### 3870#       发表于 2022-12-15 11:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58947547&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-15 09:41</a>
+
+其实六周年的英灵巡游礼装里面牛肉丸就有加了连体打底衣，可能是觉得真空有伤风化？
+
+不过关注度更高的 ...</blockquote>
+也许有平台不加过不了审<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
