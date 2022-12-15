@@ -451,3 +451,17 @@
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  gwchobit  
+##### 3041#       发表于 2022-12-15 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58953117&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-15 16:36</a>
+
+请问纳格灵具体在天赋树的哪个方位啊，实在懒得刷晶体了</blockquote>
+[https://w.atwiki.jp/astlibra/sp/pages/36.html](https://w.atwiki.jp/astlibra/sp/pages/36.html)
+
+エリア4
+
