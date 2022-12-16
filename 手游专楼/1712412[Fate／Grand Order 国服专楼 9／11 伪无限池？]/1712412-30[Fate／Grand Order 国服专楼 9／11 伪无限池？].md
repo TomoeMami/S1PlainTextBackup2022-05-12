@@ -386,3 +386,21 @@ CBA没有补宝价值啊，该有的早有了
 换圣诞玛尔达的交换券要刷几池才有啊，十池以上？</blockquote>
 第五池可以抽出来，之后就是结晶和金芙芙
 
+
+
+*****
+
+####  qixinno2  
+##### 43834#       发表于 2022-12-16 17:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">帕西瓦尔+1 女武神+1 宝石+1 其他毛都没有 石头归0了
+
+*****
+
+####  dawning  
+##### 43835#       发表于 2022-12-16 17:58
+
+不是快出900石保底了吗，
+
+暗狐就能抽出来啦，看了下石头，艹，才300多，再见<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

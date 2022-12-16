@@ -16782,3 +16782,15 @@ liella应该会唱星1的曲子吧？
 这B运营就折磨恋是吧，强迫要求接受学生会长的这新属性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 唐小姐这是解绑的信号吗，希望月初的特刊是最后看见唐小姐绑神社大女儿的操作了。反正水水都听过民调换过官推，星换换有什么关系。
 
+
+
+*****
+
+####  愛さ実  
+##### 10377#       发表于 2022-12-16 17:58
+
+草，这压力也太大了吧，其他（除liella）都是红白歌手。这可不是bml能比的
+希望鱼能在大舞台上表现好吧<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
