@@ -16871,3 +16871,14 @@ liella应该会唱星1的曲子吧？
 只要别反手来个，四季给芽衣准备的吐真药俩 ...</blockquote>
 看这封面图可可这笑到眼泪都出来的样子这吐真剂应该是失败了，变含笑半步癫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ads147147  
+##### 10384#       发表于 2022-12-16 20:28
+
+其实我觉得恋恋打游戏没什么，怕就怕恋恋玩个网游连网游都交不到就笑死了。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
