@@ -16670,3 +16670,56 @@ bml可没这个厉害
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">オープニングアクト  怕不是压力直接拉满，但确实回避了没C曲的尴尬
 
+
+
+*****
+
+####  优妮可  
+##### 10364#       发表于 2022-12-16 15:33
+
+所以鱼要唱哪首？买点国内版权的歌来唱？
+
+*****
+
+####  nufawneafg  
+##### 10365#       发表于 2022-12-16 15:35
+
+ 本帖最后由 nufawneafg 于 2022-12-16 15:38 编辑 
+
+拼盘不太好搞翻唱吧
+
+*****
+
+####  cybernetics31  
+##### 10366#       发表于 2022-12-16 15:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没啥的，这个本质还是music fes，唱个柠檬气泡呗
+
+*****
+
+####  aoaoaodedede  
+##### 10367#       发表于 2022-12-16 15:37
+
+离谱
+
+*****
+
+####  优妮可  
+##### 10368#       发表于 2022-12-16 15:38
+
+我的意思就是唱中文歌还是日文歌咯
+
+*****
+
+####  nufawneafg  
+##### 10369#       发表于 2022-12-16 15:38
+
+还是编号单曲里挑可能性大些
+
+*****
+
+####  稀勢のささ  
+##### 10370#       发表于 2022-12-16 15:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">往好了想指不定不止一首呢，什么bluerose Ambition都可以唱嘛
+
