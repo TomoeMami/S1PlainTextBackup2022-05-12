@@ -1475,3 +1475,14 @@ BNE第一次做MMO，体谅一下<img src="https://static.saraba1st.com/image/sm
 
 看框架底子好不好，坐骑这种都算小问题
 
+
+
+*****
+
+####  t09mmc  
+##### 162#       发表于 2022-12-16 08:17
+
+12月15新情报是不是写错了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
+
