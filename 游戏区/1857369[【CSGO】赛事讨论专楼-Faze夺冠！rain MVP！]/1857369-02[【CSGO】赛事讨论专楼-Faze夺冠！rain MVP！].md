@@ -305,3 +305,12 @@ nuke，大厦，阿努比斯，预言极🐰两图带走🐝</blockquote>
 
 G2的nuke进攻确实有点东西，小孩儿这手感保持得挺好
 
+
+
+*****
+
+####  Niyah  
+##### 2973#       发表于 2022-12-17 00:23
+
+let's go G2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
