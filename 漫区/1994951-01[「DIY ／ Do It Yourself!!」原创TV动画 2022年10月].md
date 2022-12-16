@@ -7829,3 +7829,84 @@ self：布丁的布丁，小小的，香香的
 
 bsyl话说貌似除了srf(以及jb子)其他人的名字公式上都是汉字啊，如果非要写成汉字我觉得瀬瑠芙就不错（虽然估计现实中大概本来也没有叫这名的
 
+
+
+*****
+
+####  Piano-Forest  
+##### 582#         楼主| 发表于 2022-12-16 10:41
+
+[https://twitter.com/VintageSwaro109/status/1603198090676416513](https://twitter.com/VintageSwaro109/status/1603198090676416513)
+
+#アニメDIY
+
+すてっぷ⑪で登场した
+
+ ツリーハウスの础
+
+骨组みビームと土台床のラフデザインを公开
+
+とうとう次回で最终回です
+
+せるふ达とお别れなんて悲しすぎる
+<img src="https://p.sda1.dev/8/a9feb4557a7ddabdc58c572c281f936d/20221216_103851.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/f0aabeebcf582cb87c3f398090a8d9ed/20221216_103854.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/6ae1016b27f2653aec5d7fbd1dca29ee/20221216_103856.jpg" referrerpolicy="no-referrer">
+
+『Do It Yourself!! -どぅー・いっと・ゆあせるふ-』
+
+ツリーハウス作成の様子を
+
+本日はダイジェストでご绍介
+
+#スワロ 先生全面バックアップ！
+
+せるふたちのこだわりが诘まったツリーハウスを
+
+少し小さめ、ちょこっと简易に再现しました！
+
+ぜひご覧ください！
+<img src="https://p.sda1.dev/8/27b76dc2740cb80dadddb65aaefff3e2/20221216_103918.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/4c01705e4f477db0d7d448537bf83063/20221216_103920.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/3b2320471a0f870dc1a99297cdfd9048/20221216_103922.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/39a3a45861005a123da3c8177ac55fe7/20221216_103924.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 583#         楼主| 发表于 2022-12-16 10:45
+
+[https://twitter.com/plus_plus09/status/1603048950155444224](https://twitter.com/plus_plus09/status/1603048950155444224)
+
+11话1カットだけ动画描きました！
+
+これは本编に関係ないぷりんママとくらげ
+<img src="https://p.sda1.dev/8/cf90dc99c8397b2e630dfa7db49c903c/20221216_104151.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/izumochi01/status/1603049447101181952](https://twitter.com/izumochi01/status/1603049447101181952)
+
+DIY#11作监お手伝いさせていただきました
+
+原画マンの方々こんな上手い人たちで固められる班初めてでした神
+
+本当にうますぎた神
+
+これはただ単にらくがきせるふちゃん
+<img src="https://p.sda1.dev/8/5c0932d16963bc17f723297ab59dbe9e/20221216_104154.jpg" referrerpolicy="no-referrer">
+
+すてっぷ１１より、作监修正
+<img src="https://p.sda1.dev/8/9935e817c775b07b04b6a7d2fc51b23b/20221216_104212.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/3922665bcf7ab126cf3a68e18202f122/20221216_104214.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/d4e1b0a49ae72d832b275a288b4be9fc/20221216_104216.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/9d0c40afc4154263787cb71e8c688ee9/20221216_104217.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/8/f72d66d000e9f98bed5343098a45a326/20221216_104221.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/1408a990e9d7d751fd55973151ba536e/20221216_104223.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/6e8923abd760a85d9e0ad65996a6b922/20221216_104226.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/c300d75d1b0085cdaf95136d3920b57a/20221216_104227.jpg" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/8/181b5b3b0ad74c970a045621f45a0df2/20221216_104232.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/4ed0c1e57d43e9eb96ba76e4d8b195ac/20221216_104234.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/63e442e1adf1a3576545e2b78018bd3e/20221216_104236.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/da50f3452d5d5132076174dbf9d70d2d/20221216_104238.jpg" referrerpolicy="no-referrer">
+
