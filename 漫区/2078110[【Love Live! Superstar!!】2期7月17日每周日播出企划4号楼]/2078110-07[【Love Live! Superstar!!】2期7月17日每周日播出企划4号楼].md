@@ -16794,3 +16794,27 @@ liella应该会唱星1的曲子吧？
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10378#       发表于 2022-12-16 18:03
+
+ 本帖最后由 稀勢のささ 于 2022-12-16 18:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58967834&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-16 17:47</a>
+
+这B运营就折磨恋是吧，强迫要求接受学生会长的这新属性
+
+唐小姐这是解绑的信号吗，希望月初的特刊是 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按之前的介绍，大概只是因为根本没啥戏份罢了，那介绍里我记得连提都没提
+
+*****
+
+####  cat1230  
+##### 10379#       发表于 2022-12-16 18:07
+
+可惜3单这曲子真不行，或者可能唱新歌？毕竟迷你专要发售了，新歌肯定收录1，2手了吧。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+

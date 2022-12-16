@@ -404,3 +404,14 @@ CBA没有补宝价值啊，该有的早有了
 
 暗狐就能抽出来啦，看了下石头，艹，才300多，再见<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 43836#       发表于 2022-12-16 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58964150&amp;ptid=1712412" target="_blank">廖化 发表于 2022-12-16 13:28</a>
+换圣诞玛尔达的交换券要刷几池才有啊，十池以上？</blockquote>
+第五池，然后去商店换。
+
