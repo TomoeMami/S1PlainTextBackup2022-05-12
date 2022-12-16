@@ -1486,3 +1486,25 @@ BNE第一次做MMO，体谅一下<img src="https://static.saraba1st.com/image/sm
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2
 
+
+
+*****
+
+####  Hammer28  
+##### 163#       发表于 2022-12-16 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58961084&amp;ptid=2103199" target="_blank">t09mmc 发表于 2022-12-16 08:17</a>
+
+12月15新情报是不是写错了
+
+—— 来自 Xiaomi 22041216C, Android 12上的 S1Next-鹅版 v2.5.2 ...</blockquote>
+没，昨天确实开了直播  [回放](https://www.youtube.com/watch?v=sH2B1ncdEWM)
+
+介绍的新功能感觉都是mmo基本要素就不说了，重点是后面的收费这块
+
+是f2p 道具课金制运营 有季票 有gacha
+
+课金内容主要是时装坐骑和省时护肝服务之类的 ，不卖影响角色强度的道具
+
+一期季票持续50·60天，打追加任务攒点数升级，多的点数也可以换东西，有续杯机制
+
