@@ -16584,3 +16584,15 @@ Liella_LoveLive
 
 次周3575
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10355#       发表于 2022-12-16 10:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58960908&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-16 07:34</a>
+
+能发个地址吗，想去观摩一下</blockquote>
+[https://fate.5ch.net/test/read.cgi/lovelive/1671110762/l50](https://fate.5ch.net/test/read.cgi/lovelive/1671110762/l50)
+
