@@ -434,3 +434,15 @@ CBA没有补宝价值啊，该有的早有了
 
 这茶壶能留到通古斯吗
 
+
+
+*****
+
+####  Blackson  
+##### 43839#       发表于 2022-12-16 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58969032&amp;ptid=1712412" target="_blank">azccc52 发表于 2022-12-16 19:10</a>
+
+这茶壶能留到通古斯吗</blockquote>
+应该可以
+
