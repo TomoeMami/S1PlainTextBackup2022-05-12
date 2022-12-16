@@ -16647,3 +16647,26 @@ Liella_LoveLive
 
 “BML失去的，这次要一定夺回来”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 10361#       发表于 2022-12-16 15:27
+
+bml可没这个厉害
+
+*****
+
+####  nufawneafg  
+##### 10362#       发表于 2022-12-16 15:30
+
+还是开场表演啊，给压力了[f:222]
+
+*****
+
+####  稀勢のささ  
+##### 10363#       发表于 2022-12-16 15:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">オープニングアクト  怕不是压力直接拉满，但确实回避了没C曲的尴尬
+

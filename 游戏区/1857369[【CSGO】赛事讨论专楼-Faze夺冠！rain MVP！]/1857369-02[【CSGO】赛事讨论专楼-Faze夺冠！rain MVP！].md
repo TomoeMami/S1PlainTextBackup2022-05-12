@@ -244,3 +244,15 @@ ZwyoO自己选的法国坐牢路，含泪也得走下去咯<img src="https://sta
 
 熟悉的憨豆，熟悉的米人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近两个大赛冠军已经回家了，之后就是epl的🐝
 
+
+
+*****
+
+####  dev2ce  
+##### 2967#       发表于 2022-12-16 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58960170&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-12-16 01:22</a>
+好，送输了终于
+我上一个讨厌的指挥是刚加入Navi时的胖球，当时他指挥除了便秘啥都不会，输赢全靠磕 ...</blockquote>
+憨豆不会真是大番薯保的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">shox之前在g2就是指挥好像，🐝踢法国老将也没手软过，happy，nbk等等
+
