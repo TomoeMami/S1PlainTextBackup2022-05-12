@@ -226,3 +226,12 @@ ZwyoO自己选的法国坐牢路，含泪也得走下去咯<img src="https://sta
 
 想到apex可能真要混到巴黎major就恐怖，别到时候上半年载物不发力直接复刻g2rmr都出不去，那真成笑话了。
 
+
+
+*****
+
+####  烟萝  
+##### 2965#       发表于 2022-12-16 09:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天11点看g2救赎
+
