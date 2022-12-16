@@ -354,3 +354,15 @@ V最协又要来了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 大小姐工商不断啊
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 18035#       发表于 2022-12-16 09:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58958930&amp;ptid=1972669" target="_blank">OldGlory 发表于 2022-12-15 23:25</a>
+叔叔抛的这么及时是不是提前看到财报了</blockquote>
+财报不是赚的挺多嘛。
+也就是en增长乏力
+
