@@ -16857,3 +16857,17 @@ liella应该会唱星1的曲子吧？
 
 哎哟，没把那个角色画成vn实在是感激涕零啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 10383#       发表于 2022-12-16 19:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58968389&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-16 18:22</a>
+
+估计就打个酱油，之前给的剧情简介跟她半毛钱关系都没有
+
+只要别反手来个，四季给芽衣准备的吐真药俩 ...</blockquote>
+看这封面图可可这笑到眼泪都出来的样子这吐真剂应该是失败了，变含笑半步癫了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
