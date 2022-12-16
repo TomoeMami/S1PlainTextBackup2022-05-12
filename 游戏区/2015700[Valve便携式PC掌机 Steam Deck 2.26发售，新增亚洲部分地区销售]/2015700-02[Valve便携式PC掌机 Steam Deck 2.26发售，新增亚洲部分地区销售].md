@@ -34,3 +34,16 @@ Komodo没发，系统上也是显示处理中，是佐川的 smartclub先发了�
 
 顺便我也是2号付的尾款，订单编号104xx
 
+
+
+*****
+
+####  nnnnick22  
+##### 1974#       发表于 2022-12-17 05:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58970412&amp;ptid=2015700" target="_blank">roxassix 发表于 2022-12-16 20:49</a>
+Komodo没发，系统上也是显示处理中，是佐川的 smartclub先发了配送预定邮件
+
+顺便我也是2号付的尾 ...</blockquote>
+感谢 昨晚收到邮件了 也是佐川预定今天配达 希望一切顺利
+

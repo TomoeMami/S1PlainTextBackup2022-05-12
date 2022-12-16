@@ -2335,3 +2335,54 @@ VF级别可能也有困难。
 
 muv世界的一大绝望感就是真实系我方对阵超级系敌人
 
+
+
+*****
+
+####  midautumn  
+##### 2190#       发表于 2022-12-17 02:04
+
+五天前推完了muv的三个故事篇章，然后开始一边补动画一边爬楼，终于赶上动画的最新进度了，但楼里的好多发言我还是看不懂，这系列也太庞大了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+
+
+*****
+
+####  ReginaldMorgan  
+##### 2191#       发表于 2022-12-17 02:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58948267&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-12-15 10:34</a>
+
+倒计时十分钟总是担心没时间把队员都过一遍。不过还算是把老部下都覆盖了
+
+只剩一集的话那就只能做 ...</blockquote>
+我其实一直以为这季度结尾会以树下接吻做结的，没想到比我预料得慢不少
+
+总之看看怎么解决吧
+
+*****
+
+####  Toby_dak  
+##### 2192#       发表于 2022-12-17 05:29
+
+<blockquote>引用第2163楼Rhantolk于2022-12-14 22:54发表的  :
+
+这镭射级的瞄准速度有这么快的吗 ，居然左躲右躲的这瞄准还能一直钉身上。。。话说动画多长长度啊，这季度......</blockquote>
+光线级和重光线级，拥有视野内出现无障碍物的话即时锁定的能力。简单的说，一旦离开地平线，都已经成为它们的射击目标。
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  Toby_dak  
+##### 2193#       发表于 2022-12-17 05:32
+
+<blockquote>引用第2176楼blood_iron于2022-12-15 17:02发表的  :
+
+这个甲21号作战看似安排得妥妥当当，但怎么还是没预测出巢穴里面真的的BETA数量啊？最可惜的宇宙空投......</blockquote>
+在00 Unit之前，人类对Hive里BETA数量从来没预测正确过，不然就不会几十年都没法用常规兵力打下任何Hive。
+
+----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
+

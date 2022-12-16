@@ -353,3 +353,59 @@ Osee：这种狙是真实存在的吗<img src="https://static.saraba1st.com/imag
 
 直接上筋膜枪给小孩按摩肩部<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是大哥的待遇吗
 
+
+
+*****
+
+####  Rainwedell  
+##### 2979#       发表于 2022-12-17 01:59
+
+绷不住了，太对了，就是这个味
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  雨中曲  
+##### 2980#       发表于 2022-12-17 02:01
+
+小蜜蜂真垃圾，次次都得靠Zwyoo天命发挥拯救<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  曼陀罗肥  
+##### 2981#       发表于 2022-12-17 02:02
+
+果然是抽象队对决，连比赛都打得跟有剧本一样
+
+*****
+
+####  YujsD  
+##### 2982#       发表于 2022-12-17 02:06
+
+这时间这味道太正宗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  浅仓透透  
+##### 2983#       发表于 2022-12-17 03:21
+
+信任！
+谁才是真正的团队领袖，崩溃的边缘把队伍抗住
+
+*****
+
+####  YujsD  
+##### 2984#       发表于 2022-12-17 03:23
+
+世界线从呼吸四杀开始改变
+
+*****
+
+####  Rainwedell  
+##### 2985#       发表于 2022-12-17 03:24
+
+后面已经打成fpl了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

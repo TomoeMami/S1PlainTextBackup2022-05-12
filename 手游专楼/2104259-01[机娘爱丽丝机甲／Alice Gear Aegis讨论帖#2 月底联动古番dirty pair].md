@@ -141,3 +141,16 @@ FA风纪的新剧情看了，要素真的是太齐全了<img src="https://static
 提醒一下DMM活动又开始了服袋+一票
 [https://games.dmm.com/cp/festival/winter/](https://games.dmm.com/cp/festival/winter/)
 
+
+
+*****
+
+####  Rincewind  
+##### 140#       发表于 2022-12-17 02:53
+
+笑死
+地卫理: 什么叫女同兵王啊(战术后仰)
+
+不过会长这见一个收一个对队长也毫不手软
+是真的很有人格魅力(？)
+
