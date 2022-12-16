@@ -5740,3 +5740,16 @@ https://m.youtube.com/watch?v=CwO4E0KpykU
 
 2019年的miko……
 
+
+
+*****
+
+####  rs5621  
+##### 3538#       发表于 2022-12-16 22:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58971705&amp;ptid=2086637" target="_blank">holoan 发表于 2022-12-16 22:25</a>
+你看了吗，里面是鼠标垫</blockquote>
+鼠标垫拼胸部
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
