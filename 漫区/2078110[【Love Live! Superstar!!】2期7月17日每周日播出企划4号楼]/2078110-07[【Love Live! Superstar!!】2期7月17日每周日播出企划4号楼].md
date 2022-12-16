@@ -16556,3 +16556,14 @@ Liella_LoveLive
 这波大量繁殖可能是因为开头的那 ...</blockquote>
 能发个地址吗，想去观摩一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  奥柏伦亲王  
+##### 10353#       发表于 2022-12-16 08:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58960806&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-12-16 06:49</a>
+我么装微博APP，是不是能在APP端看到发微博的手机型号的？看看是不是和鲤鱼一款手机，是就 ...</blockquote>
+我复制的原文啊，写着发送自iphone 13 promax<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
