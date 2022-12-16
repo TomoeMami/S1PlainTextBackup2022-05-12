@@ -652,3 +652,15 @@
 
 最后盖亚迷宫每层的boss不能存档吗？输了就要从头开始刷小怪
 
+
+
+*****
+
+####  gwchobit  
+##### 3056#       发表于 2022-12-17 00:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58972196&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-16 23:03</a>
+
+最后盖亚迷宫每层的boss不能存档吗？输了就要从头开始刷小怪</blockquote>
+猪那有卖复活卡，买几张容错
+

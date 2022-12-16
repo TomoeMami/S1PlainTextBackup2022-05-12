@@ -9808,3 +9808,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到有新回复就知道又是抽卡（
 
+
+
+*****
+
+####  rooarr  
+##### 3875#       发表于 2022-12-17 00:38
+
+70抽才出1张，新年可以睡了，没石头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

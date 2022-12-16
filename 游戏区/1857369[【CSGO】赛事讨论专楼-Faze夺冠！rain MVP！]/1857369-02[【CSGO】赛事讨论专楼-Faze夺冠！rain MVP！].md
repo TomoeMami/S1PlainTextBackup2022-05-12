@@ -314,3 +314,19 @@ G2的nuke进攻确实有点东西，小孩儿这手感保持得挺好
 
 let's go G2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2974#         楼主| 发表于 2022-12-17 00:32
+
+爆宰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 2975#       发表于 2022-12-17 00:34
+
+Osee：这种狙是真实存在的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
