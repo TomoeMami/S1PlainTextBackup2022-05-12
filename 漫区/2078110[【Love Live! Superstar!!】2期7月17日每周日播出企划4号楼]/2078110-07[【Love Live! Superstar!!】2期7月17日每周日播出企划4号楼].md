@@ -16596,3 +16596,19 @@ Liella_LoveLive
 能发个地址吗，想去观摩一下</blockquote>
 [https://fate.5ch.net/test/read.cgi/lovelive/1671110762/l50](https://fate.5ch.net/test/read.cgi/lovelive/1671110762/l50)
 
+
+
+*****
+
+####  cybernetics31  
+##### 10356#       发表于 2022-12-16 11:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手机型号一样呢，真巧啊
+
+*****
+
+####  lj205  
+##### 10357#       发表于 2022-12-16 11:19
+
+鲤鱼三单可能6000卡9……
+
