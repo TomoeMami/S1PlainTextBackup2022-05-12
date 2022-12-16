@@ -129,3 +129,15 @@ FA风纪的新剧情看了，要素真的是太齐全了<img src="https://static
 
 至于后来会长的旧情人阿蒂加入战场，则是另外的故事了，真是太XX乱了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  不灭的旋律  
+##### 139#       发表于 2022-12-16 16:43
+
+下旬女神装置复刻是不是说明今年就没货了？最多再复刻个圣诞活动
+
+提醒一下DMM活动又开始了服袋+一票
+[https://games.dmm.com/cp/festival/winter/](https://games.dmm.com/cp/festival/winter/)
+
