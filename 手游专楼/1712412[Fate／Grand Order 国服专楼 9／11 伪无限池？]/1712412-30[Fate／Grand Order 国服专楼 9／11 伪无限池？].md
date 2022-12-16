@@ -476,3 +476,14 @@ CBA没有补宝价值啊，该有的早有了
 
 先重感冒再阳性，我已无力刷本，不记得自己刷了几池。也不知道能不能拿但活动从者了
 
+
+
+*****
+
+####  shimotsuki14  
+##### 43843#       发表于 2022-12-17 07:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58974443&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-12-17 07:29</a>
+先重感冒再阳性，我已无力刷本，不记得自己刷了几池。也不知道能不能拿但活动从者了 ...</blockquote>
+五池就行，祝早日康复
+
