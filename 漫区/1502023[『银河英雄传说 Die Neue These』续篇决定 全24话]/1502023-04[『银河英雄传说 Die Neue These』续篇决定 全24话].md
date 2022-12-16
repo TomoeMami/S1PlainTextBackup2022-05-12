@@ -25,3 +25,14 @@
 
 就等着求婚呢
 
+
+
+*****
+
+####  stevenzero  
+##### 5578#       发表于 2022-12-16 23:07
+
+我记得小说是穿甲的先叔巧遇正在着甲的罗帅，过了三招就被双方部下隔开。
+新版改成动力甲了还这么打不合理才改成袭击舰桥了吧。
+算了，浪漫就好<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
