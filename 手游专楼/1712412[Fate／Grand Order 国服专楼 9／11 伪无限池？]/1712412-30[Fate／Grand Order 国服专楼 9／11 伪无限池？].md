@@ -340,3 +340,49 @@ CBA没有补宝价值啊，该有的早有了
 
 就等着这活动让老人们爆一波金币
 
+
+
+*****
+
+####  廖化  
+##### 43831#       发表于 2022-12-16 13:28
+
+换圣诞玛尔达的交换券要刷几池才有啊，十池以上？
+
+*****
+
+####  kyonkoism二号机  
+##### 43832#       发表于 2022-12-16 17:35
+
+<img src="https://img.saraba1st.com/forum/202212/16/173416uvsulv6orgo3loa3.jpg" referrerpolicy="no-referrer">
+
+<strong>EC4I[8UTR]S0W2Z~E}6L_TL.jpg</strong> (367.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-16 17:34 上传
+
+本来想追个3宝，抽了十几个帕西瓦尔，然后直接出仨妖兰，五宝了，FGO第一个五宝的5星<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| dawning| + 2|草|
+
+查看全部评分
+
+*****
+
+####  dawning  
+##### 43833#       发表于 2022-12-16 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58964150&amp;ptid=1712412" target="_blank">廖化 发表于 2022-12-16 13:28</a>
+
+换圣诞玛尔达的交换券要刷几池才有啊，十池以上？</blockquote>
+第五池可以抽出来，之后就是结晶和金芙芙
+

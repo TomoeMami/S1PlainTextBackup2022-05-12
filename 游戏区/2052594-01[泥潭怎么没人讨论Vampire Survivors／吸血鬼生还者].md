@@ -36,3 +36,14 @@ XBOX版怎么没搜到DLC，要去哪里买？
 
 steam deck玩这游戏帧数能到个位数<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  415452356  
+##### 490#       发表于 2022-12-16 17:32
+
+  dlc地图这个地形识别度真的有点差，经常跑着跑着发现进死胡同了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
