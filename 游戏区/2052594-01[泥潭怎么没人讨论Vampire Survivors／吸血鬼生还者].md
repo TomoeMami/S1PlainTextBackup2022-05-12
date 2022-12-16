@@ -27,3 +27,12 @@
 
 XBOX版怎么没搜到DLC，要去哪里买？
 
+
+
+*****
+
+####  zero4166  
+##### 489#       发表于 2022-12-16 14:12
+
+steam deck玩这游戏帧数能到个位数<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+

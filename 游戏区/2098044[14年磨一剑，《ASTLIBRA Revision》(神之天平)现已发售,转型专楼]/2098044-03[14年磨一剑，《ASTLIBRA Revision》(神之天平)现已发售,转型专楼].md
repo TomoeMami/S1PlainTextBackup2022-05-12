@@ -579,3 +579,16 @@
 
 这个要求方式而言倒的确是太王道JRPG了……
 
+
+
+*****
+
+####  霖岚_  
+##### 3051#       发表于 2022-12-16 14:17
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">几天晚上刷到12点才睡，到第八章真的累得不行，把难度调轻度就想看看剧情了，结果特么还有个新章……社畜没空打游戏真是遭不住
+
+第七章第八章的怪物伤害是不是跨度有点大……我开的中等难度明明前六章体感都还是稳步上升的，一到这两章就感觉人物升级难晶体升级也慢，对金币要求也越来越多，明明常驻掠夺技能都还是不够用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，一开始觉得武器熟练度这刷着还挺上头，现在只觉得太折磨人了
+
+而且最后实在打的有点烦，解密翻攻略才发现自己错过不少东西，重头玩一遍又太花时间<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，难受……
+
