@@ -16840,3 +16840,20 @@ liella应该会唱星1的曲子吧？
 
 即使卡农出场两次，红蓝跟可一组都要排恋吗
 
+
+
+*****
+
+####  kata魂  
+##### 10382#       发表于 2022-12-16 18:48
+
+ 本帖最后由 kata魂 于 2022-12-16 18:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你画个和恋一起打游戏也行啊
+
+宁愿卖幼驯染和你那个香希两次都不想编排可可一次是吧，是不是他们真觉得自己cp卖的挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过也说不定画完了才发现少一个人
+
+哎哟，没把那个角色画成vn实在是感激涕零啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
