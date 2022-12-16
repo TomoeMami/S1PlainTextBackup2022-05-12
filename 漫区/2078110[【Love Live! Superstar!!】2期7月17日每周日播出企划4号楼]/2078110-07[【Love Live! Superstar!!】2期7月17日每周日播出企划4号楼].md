@@ -16612,3 +16612,29 @@ Liella_LoveLive
 
 鲤鱼三单可能6000卡9……
 
+
+
+*****
+
+####  cybernetics31  
+##### 10358#       发表于 2022-12-16 15:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鱼又要和Liella同台了呢
+
+*****
+
+####  Kfly  
+##### 10359#       发表于 2022-12-16 15:08
+
+才发现，鱼还要以个人身份出演啊
+
+这不就是另一个bml？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/16/150821gc22o3362k2pcc3x.png" referrerpolicy="no-referrer">
+
+<strong>个人出演.png</strong> (114.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-16 15:08 上传
+
