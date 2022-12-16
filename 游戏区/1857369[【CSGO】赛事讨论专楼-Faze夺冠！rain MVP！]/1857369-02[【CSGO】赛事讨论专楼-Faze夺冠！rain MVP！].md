@@ -256,3 +256,12 @@ ZwyoO自己选的法国坐牢路，含泪也得走下去咯<img src="https://sta
 我上一个讨厌的指挥是刚加入Navi时的胖球，当时他指挥除了便秘啥都不会，输赢全靠磕 ...</blockquote>
 憨豆不会真是大番薯保的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">shox之前在g2就是指挥好像，🐝踢法国老将也没手软过，happy，nbk等等
 
+
+
+*****
+
+####  dev2ce  
+##### 2968#       发表于 2022-12-16 19:24
+
+就算🐝今天被极🐰送回家，也不太可能变阵，巴黎办major连不打快两年的k宝都找队复出了，憨豆换估计要打完
+
