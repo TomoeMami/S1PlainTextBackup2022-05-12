@@ -5688,3 +5688,46 @@ mikoyo的漫才也开卖了
 
 比上次晒得时候翻倍了
 
+
+
+*****
+
+####  rs5621  
+##### 3534#       发表于 2022-12-16 22:22
+
+<img src="https://p.sda1.dev/8/d721587f8e4e0f5a06185d23714ac157/CMP_20221216222058950.jpg" referrerpolicy="no-referrer">https://m.youtube.com/watch?v=CwO4E0KpykU
+有35               
+
+的立绘
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  holoan  
+##### 3535#         楼主| 发表于 2022-12-16 22:25
+
+<img src="https://img.saraba1st.com/forum/202212/16/222449zvcbc61wvccetbec.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (28.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-16 22:24 上传
+
+你有病要不……
+
+哦，病好了啊
+
+*****
+
+####  holoan  
+##### 3536#         楼主| 发表于 2022-12-16 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58971662&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-12-16 22:22</a>
+
+https://m.youtube.com/watch?v=CwO4E0KpykU
+
+有35               </blockquote>
+你看了吗，里面是鼠标垫
+
