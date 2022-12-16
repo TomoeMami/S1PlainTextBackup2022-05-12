@@ -607,3 +607,18 @@
 
 嘉隆说得好：你至今欠一个对不起呢
 
+
+
+*****
+
+####  虚无缥缈的光阴  
+##### 3053#       发表于 2022-12-16 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58964750&amp;ptid=2098044" target="_blank">tree7666 发表于 2022-12-16 14:23</a>
+你觉得为了青梅竹马弑神屠魔的男主会正眼看一个曾经要杀自己的半路人魔女吗。
+
+嘉隆说得好：你至今欠一个 ...</blockquote>
+修罗场和男主痴不痴情没关系吧，很多其他作品里专一的男主也有修罗场，主要是和女性态度有关
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
