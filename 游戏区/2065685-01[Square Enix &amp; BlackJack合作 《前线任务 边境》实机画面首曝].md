@@ -1071,3 +1071,18 @@ Game*Spark kaiware</blockquote>
 
 这次好像还真是找《钢羽》作者LAS搞的机设
 
+
+
+*****
+
+####  闽明  
+##### 97#       发表于 2022-12-16 21:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58970880&amp;ptid=2065685" target="_blank">酷乐 发表于 2022-12-16 21:25</a>
+https://b23.tv/Y1tchUe
+
+这次好像还真是找《钢羽》作者LAS搞的机设</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这下更没啥好期待的了
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
