@@ -16818,3 +16818,16 @@ liella应该会唱星1的曲子吧？
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  ruffian  
+##### 10380#       发表于 2022-12-16 18:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58967834&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-16 17:47:05</a>
+这B运营就折磨恋是吧，强迫要求接受学生会长的这新属性</blockquote>估计就打个酱油，之前给的剧情简介跟她半毛钱关系都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+只要别反手来个，四季给芽衣准备的吐真药俩人拉扯半天最后不小心灌唐女士嘴里，然后说出点只有天雷可堇的人受伤的东西这种咯噔展开就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

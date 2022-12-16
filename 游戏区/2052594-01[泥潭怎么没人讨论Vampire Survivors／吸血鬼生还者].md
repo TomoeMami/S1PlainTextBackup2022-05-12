@@ -63,3 +63,21 @@ steam deck玩这游戏帧数能到个位数<img src="https://static.saraba1st.co
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  otakun  
+##### 492#       发表于 2022-12-16 18:22
+
+看了下成就，一局10W击杀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，这要升满戒指箭头然后诅咒拉满加宝藏吧
+
+*****
+
+####  kyl2001  
+##### 493#       发表于 2022-12-16 18:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58968384&amp;ptid=2052594" target="_blank">otakun 发表于 2022-12-16 18:22</a>
+看了下成就，一局10W击杀，这要升满戒指箭头然后诅咒拉满加宝藏吧</blockquote>
+开无限模式挂会机就行了
+
