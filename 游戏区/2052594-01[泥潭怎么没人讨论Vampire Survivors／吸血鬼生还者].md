@@ -47,3 +47,19 @@ steam deck玩这游戏帧数能到个位数<img src="https://static.saraba1st.co
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  不见不散  
+##### 491#       发表于 2022-12-16 17:44
+
+<blockquote>引用第489楼415452356于2022-12-16 17:32发表的  :
+
+  dlc地图这个地形识别度真的有点差，经常跑着跑着发现进死胡同了—— 来自 S1Fun</blockquote>
+@415452356
+
+拿到棺材就行了，剩下的用卡牌吸…
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+

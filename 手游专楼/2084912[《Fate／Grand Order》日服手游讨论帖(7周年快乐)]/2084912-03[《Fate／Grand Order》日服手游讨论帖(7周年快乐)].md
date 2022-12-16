@@ -9799,3 +9799,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 150沉了，就这样吧
 
+
+
+*****
+
+####  alucardcz  
+##### 3874#       发表于 2022-12-16 17:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到有新回复就知道又是抽卡（
+
