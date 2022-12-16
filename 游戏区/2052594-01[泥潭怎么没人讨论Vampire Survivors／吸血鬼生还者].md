@@ -93,3 +93,19 @@ steam deck玩这游戏帧数能到个位数<img src="https://static.saraba1st.co
 趁dlc发售一并入手，刚解锁超武的合成列表，扫了一眼发现有些公式的武器替换成了dlc的新武器，那原本相同公 ...</blockquote>
 没有把，DLC不就是在合成表后面续了半页么，可能你拿以前特别老的版本表对比了吧
 
+
+
+*****
+
+####  史莱姆KING  
+##### 495#       发表于 2022-12-16 21:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58968384&amp;ptid=2052594" target="_blank">otakun 发表于 2022-12-16 18:22</a>
+
+看了下成就，一局10W击杀，这要升满戒指箭头然后诅咒拉满加宝藏吧</blockquote>
+我是去树林子，拿两把小枪
+
+以防万一还是开无限模式比较踏实。。
+
+基本上刚过15分钟，不到16分钟就10W
+
