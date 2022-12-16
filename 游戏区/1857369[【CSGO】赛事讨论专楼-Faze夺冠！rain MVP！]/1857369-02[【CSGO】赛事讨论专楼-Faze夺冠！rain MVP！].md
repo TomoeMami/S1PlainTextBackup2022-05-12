@@ -286,3 +286,22 @@ ZwyoO自己选的法国坐牢路，含泪也得走下去咯<img src="https://sta
 
 nuke，大厦，阿努比斯，预言极🐰两图带走🐝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2971#         楼主| 发表于 2022-12-16 23:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58972724&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-12-16 23:46</a>
+
+nuke，大厦，阿努比斯，预言极🐰两图带走🐝</blockquote>
+还用看选图吗，我说打什么图都是一个带走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 2972#       发表于 2022-12-17 00:15
+
+G2的nuke进攻确实有点东西，小孩儿这手感保持得挺好
+
