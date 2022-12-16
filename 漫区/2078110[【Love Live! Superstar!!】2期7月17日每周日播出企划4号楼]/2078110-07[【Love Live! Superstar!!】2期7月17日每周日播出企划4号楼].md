@@ -16732,3 +16732,25 @@ bml可没这个厉害
 
 liella应该会唱星1的曲子吧？
 
+
+
+*****
+
+####  starring  
+##### 10372#       发表于 2022-12-16 16:08
+
+盲猜：op2，拍手歌9人ver，维他命，day1/交响曲9人ver，sss/tbc，按照以往拼盘唱五首猜的话这几首可能性最大
+
+*****
+
+####  优妮可  
+##### 10373#       发表于 2022-12-16 16:09
+
+<img src="https://img.saraba1st.com/forum/202212/16/160901piiciinz5vyyf3ii.jpg" referrerpolicy="no-referrer">
+
+<strong>20221216_160734.jpg</strong> (858.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-16 16:09 上传
+
