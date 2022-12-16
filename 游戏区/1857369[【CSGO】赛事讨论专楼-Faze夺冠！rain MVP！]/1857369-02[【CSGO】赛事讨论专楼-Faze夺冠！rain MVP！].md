@@ -277,3 +277,12 @@ ZwyoO自己选的法国坐牢路，含泪也得走下去咯<img src="https://sta
 
 液体这下半场打的真是狗屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说choke真choke啊
 
+
+
+*****
+
+####  dev2ce  
+##### 2970#       发表于 2022-12-16 23:46
+
+nuke，大厦，阿努比斯，预言极🐰两图带走🐝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
