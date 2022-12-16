@@ -1058,3 +1058,16 @@ Game*Spark kaiware</blockquote>
 
 那边的人还跑去问SE，不知道会不会有答复？
 
+
+
+*****
+
+####  酷乐  
+##### 96#       发表于 2022-12-16 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58935225&amp;ptid=2065685" target="_blank">闽明 发表于 2022-12-14 13:10</a>
+和钢羽搞混了吧？</blockquote>
+[https://b23.tv/Y1tchUe](https://b23.tv/Y1tchUe)
+
+这次好像还真是找《钢羽》作者LAS搞的机设
+
