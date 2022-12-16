@@ -81,3 +81,15 @@ steam deck玩这游戏帧数能到个位数<img src="https://static.saraba1st.co
 看了下成就，一局10W击杀，这要升满戒指箭头然后诅咒拉满加宝藏吧</blockquote>
 开无限模式挂会机就行了
 
+
+
+*****
+
+####  genki  
+##### 494#       发表于 2022-12-16 18:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58960771&amp;ptid=2052594" target="_blank">kitano 发表于 2022-12-16 06:22</a>
+
+趁dlc发售一并入手，刚解锁超武的合成列表，扫了一眼发现有些公式的武器替换成了dlc的新武器，那原本相同公 ...</blockquote>
+没有把，DLC不就是在合成表后面续了半页么，可能你拿以前特别老的版本表对比了吧
+
