@@ -118,3 +118,14 @@ steam deck玩这游戏帧数能到个位数<img src="https://static.saraba1st.co
 
 DLC的河童是在新地图哪里找的？第一把拿西格玛拿棺材和武器结果打完31分钟连河童图鉴都没解开..
 
+
+
+*****
+
+####  otakun  
+##### 497#       发表于 2022-12-16 23:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58972500&amp;ptid=2052594" target="_blank">三角瑛一 发表于 2022-12-16 23:24</a>
+DLC的河童是在新地图哪里找的？第一把拿西格玛拿棺材和武器结果打完31分钟连河童图鉴都没解开.. ...</blockquote>
+左上角，拿磁力那里附近
+
