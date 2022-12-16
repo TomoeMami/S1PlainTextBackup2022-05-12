@@ -1594,3 +1594,17 @@ bp氪金抽的东西如果是不喜欢的，不能卖，想要的东西没抽到
 
 体验上差太多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zzp05402  
+##### 171#       发表于 2022-12-16 16:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58965811&amp;ptid=2103199" target="_blank">Plasmagica 发表于 2022-12-16 15:50:38</a>
+收费时装不能交易那跟pso2差距就已经非常大了。
+
+且不说pso2完全不氪金也可以靠肝游戏币和送的开店卖东西 ...</blockquote>氪金手游体验，非常进步了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
