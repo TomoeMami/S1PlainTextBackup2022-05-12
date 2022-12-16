@@ -622,3 +622,24 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  asdfg  
+##### 3054#       发表于 2022-12-16 22:39
+
+ 本帖最后由 asdfg 于 2022-12-16 09:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58964750&amp;ptid=2098044" target="_blank">tree7666 发表于 2022-12-16 01:23</a>
+
+你觉得为了青梅竹马弑神屠魔的男主会正眼看一个曾经要杀自己的半路人魔女吗。
+
+嘉隆说得好：你至今欠一个 ...</blockquote>
+白姑且不论（而且后边也说了是因为被恶意蒙骗+误会才要杀他），我们黑可是没问题的啊！！追章都对主角直球表白“如果可能希望我们永远在一起”了啊！！
+
+要不是阿努莉丝这种天降青梅加命中注定的绝对无敌的设定，但凡换个普通作品黑都该赢了……
+
+当然对于阿努莉丝能赢这事也没什么意见就是了……只是单纯觉得应该把黑白一起收下就好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+---虽然该知道的大概都知道了但还是反白剧透好了
+
