@@ -265,3 +265,15 @@ ZwyoO自己选的法国坐牢路，含泪也得走下去咯<img src="https://sta
 
 就算🐝今天被极🐰送回家，也不太可能变阵，巴黎办major连不打快两年的k宝都找队复出了，憨豆换估计要打完
 
+
+
+*****
+
+####  朔方原的星  
+##### 2969#         楼主| 发表于 2022-12-16 22:09
+
+本来看Navi都被打晕了全员都在梦游
+遗迹上半场当t11-4这都能被翻
+
+液体这下半场打的真是狗屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说choke真choke啊
+
