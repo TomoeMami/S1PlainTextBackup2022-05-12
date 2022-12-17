@@ -511,3 +511,12 @@ CBA没有补宝价值啊，该有的早有了
 脚本解千愁
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET33  
+##### 43846#       发表于 2022-12-17 14:05
+
+没想到最后一天出了两个礼装，最后半小时冲了一下，最后刷了27池<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
