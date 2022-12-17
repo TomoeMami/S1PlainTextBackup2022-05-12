@@ -1664,3 +1664,19 @@ bp氪金抽的东西如果是不喜欢的，不能卖，想要的东西没抽到
 
 —— 来自 Xiaomi 22081212C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  Ousia  
+##### 178#       发表于 2022-12-17 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58974595&amp;ptid=2103199" target="_blank">ルティナ 发表于 2022-12-17 08:22</a>
+
+啥时出抽选名单呀
+
+等了好久了</blockquote>
+直播的时候说尽可能年内出，出了意外也可能1月。
+
+估摸着就是30号左右
+
