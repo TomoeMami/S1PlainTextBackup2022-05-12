@@ -50,3 +50,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迁怒地球一开始猜到了，意料之中。不过这样一来也没啥爆点了。
 
+
+
+*****
+
+####  scorbian  
+##### 828#       发表于 2022-12-18 00:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来漏油都在等更深层的理由吗，我还以为之前从朝影第一次回忆老婆的时候都知道了
+
