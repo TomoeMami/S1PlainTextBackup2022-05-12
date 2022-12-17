@@ -5762,3 +5762,32 @@ https://m.youtube.com/watch?v=CwO4E0KpykU
 
 今日孵蛋指标完成
 
+
+
+*****
+
+####  holoan  
+##### 3540#         楼主| 发表于 2022-12-17 19:26
+
+来了来了
+
+
+
+*****
+
+####  rs5621  
+##### 3541#       发表于 2022-12-17 19:29
+
+好快
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  rs5621  
+##### 3542#       发表于 2022-12-17 19:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又跑了
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

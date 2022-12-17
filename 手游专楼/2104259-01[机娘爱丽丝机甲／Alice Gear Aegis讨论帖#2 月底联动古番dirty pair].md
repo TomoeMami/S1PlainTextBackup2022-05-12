@@ -154,3 +154,14 @@ FA风纪的新剧情看了，要素真的是太齐全了<img src="https://static
 不过会长这见一个收一个对队长也毫不手软
 是真的很有人格魅力(？)
 
+
+
+*****
+
+####  不灭的旋律  
+##### 141#       发表于 2022-12-17 19:23
+
+恭喜你游终于可以艹男人了
+
+FA风纪会祝贺怜和绫香的生日，FA可乐却不会（明明是同校也有交集）。是不是可以造点假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
