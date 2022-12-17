@@ -94,3 +94,14 @@ sd2出来sd估计就彻底降价了
 
 valve的硬件有出过二代么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  bulechaos  
+##### 1980#       发表于 2022-12-17 20:10
+
+算了下自己美金卡自订+国际运费+关税也要3100+了，图方便直接淘宝或者PDD买3288的预定或者3488的现货好像也不是很亏？
+
+有坛友推荐靠谱的店家吗，在B站看到某家叫小纯电玩爆出要你临时加钱的瓜<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
