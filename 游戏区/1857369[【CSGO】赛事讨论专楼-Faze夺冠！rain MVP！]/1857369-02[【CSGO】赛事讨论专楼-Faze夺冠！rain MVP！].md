@@ -427,3 +427,12 @@ Osee：这种狙是真实存在的吗<img src="https://static.saraba1st.com/imag
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这两队又要打nuke了，faze再输这张图，就生生把自己绝活打成心魔了
 
+
+
+*****
+
+####  dev2ce  
+##### 2988#       发表于 2022-12-17 18:50
+
+🐝今年成绩差强人意吧，总归还是有个大赛冠军的，今年应该是职业化以来大赛最少的一年，去年至少还有两届blast总决，到巴黎major之前应该不会换人，换位置倒可以试试，老年阿杜和憨豆打突破也太画美不看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

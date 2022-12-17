@@ -796,3 +796,12 @@
 至少困难以上的难度我都推荐把已解锁的成长盘刷完再去打BOSS，而在这个过程基本也能把武器护甲刷 ...</blockquote>
 倒数第二个难度，稀里糊涂就去了，看到这么多血以为是剧情杀，结果居然是要打死的，还好有个洗点道具把属性都洗成魔攻过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3068#       发表于 2022-12-17 18:50
+
+看了看攻略，武器精通技能有点眼花缭乱，有哪些是必要刷的？先记一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
