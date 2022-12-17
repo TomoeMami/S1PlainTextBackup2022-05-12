@@ -2386,3 +2386,48 @@ muv世界的一大绝望感就是真实系我方对阵超级系敌人
 
 ----发送自 [Sony J9110,Android 11](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  半分宅  
+##### 2194#       发表于 2022-12-17 09:52
+
+ 本帖最后由 半分宅 于 2022-12-16 21:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58974301&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-12-16 17:32</a>
+
+在00 Unit之前，人类对Hive里BETA数量从来没预测正确过，不然就不会几十年都没法用常规兵力打下任何Hive。 ...</blockquote>
+甲21号作战之前有记载的一共4次尝试：
+
+红旗作战（1973）：喀什Hive，初见杀。
+
+帕莱奥格洛斯作战（1976）：明斯克Hive，初次成功突入Hive地下构造。
+
+Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨道空降部队，突入Hive地下511米深度。之后负责通信中继的地面部队被BETA摧毁，与突入部队失去联络。
+
+明星作战（1999）：横滨Hive，号称帕莱奥格洛斯作战之后人类方规模最大的攻势。美军投下2发G弹，初次成功攻陷Hive。
+
+说实话看到这种战果我都快变成A5派了，毕竟正常来说也没人能预测到TDA那种惨状。帕莱奥格洛斯作战投入了100万常规兵力也只是勉强突入Hive，明星作战和（对外公开的）甲21号作战都是靠G弹将Hive整个轰掉完事。
+
+*****
+
+####  cloudliu  
+##### 2195#       发表于 2022-12-17 09:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58974299&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-12-17 05:29</a>
+
+光线级和重光线级，拥有视野内出现无障碍物的话即时锁定的能力。简单的说，一旦离开地平线，都已经成为它 ...</blockquote>
+这个还是有火力通道数量限制的
+
+我觉得用大量的 125 155这样口径的舰炮 地平线外攻击 光线级应该没什么办法
+
+*****
+
+####  最后的法芙娜  
+##### 2196#       发表于 2022-12-17 09:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58963230&amp;ptid=1860817" target="_blank">zhwpjy 发表于 2022-12-16 11:50</a>
+
+安倍没死 我记得游戏里第二舰队不是死完了吗</blockquote>
+没完吧，我看漫画和游戏都是安倍表示要战斗到底，没给挂掉的镜头
+
