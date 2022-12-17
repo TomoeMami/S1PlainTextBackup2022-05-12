@@ -232,3 +232,19 @@ DLC的河童是在新地图哪里找的？第一把拿西格玛拿棺材和武�
 
 是需要解锁么
 
+
+
+*****
+
+####  tpsg  
+##### 506#       发表于 2022-12-17 15:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58978711&amp;ptid=2052594" target="_blank">弯弓射山猪 发表于 2022-12-17 14:25</a>
+
+有人用XGP完的么
+
+直接买了DLC结果玩本体没见到新东西
+
+是需要解锁么</blockquote>
+PC可以啊，打新图解锁人物
+
