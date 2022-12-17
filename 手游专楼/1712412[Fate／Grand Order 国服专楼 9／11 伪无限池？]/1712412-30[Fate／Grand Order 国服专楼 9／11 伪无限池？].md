@@ -520,3 +520,14 @@ CBA没有补宝价值啊，该有的早有了
 
 没想到最后一天出了两个礼装，最后半小时冲了一下，最后刷了27池<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  6030sylar  
+##### 43847#       发表于 2022-12-17 14:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">16池刚好搬完商店收工
+
+—— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
