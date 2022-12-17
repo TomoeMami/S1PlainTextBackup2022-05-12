@@ -842,3 +842,12 @@
 看了看攻略，武器精通技能有点眼花缭乱，有哪些是必要刷的？先记一下</blockquote>
 困难及以上建议全刷，因为还要晶体点成长，困难以下就随便了，可以等第七第八章学到加怪物素材掉率的技能以后再来刷
 
+
+
+*****
+
+####  double8  
+##### 3072#       发表于 2022-12-18 02:46
+
+玩了两天作者的三消手游MAGICUS，直接地狱难度开局，然后……不想玩下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

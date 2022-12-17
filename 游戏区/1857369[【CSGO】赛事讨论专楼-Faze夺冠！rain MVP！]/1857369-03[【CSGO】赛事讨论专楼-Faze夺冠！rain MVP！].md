@@ -35,3 +35,98 @@ rain太逆天了吧，jks让了他五枪还误触滚轮了都补不上。</block
 
 niko这纪律性。。
 
+
+
+*****
+
+####  dddyghr  
+##### 3005#       发表于 2022-12-18 01:54
+
+piko注意进厂时机
+
+*****
+
+####  烟萝  
+##### 3006#       发表于 2022-12-18 01:57
+
+稀碎，图三吧
+
+*****
+
+####  奈纪亚美  
+##### 3007#       发表于 2022-12-18 02:37
+
+大T图，再别说了
+
+*****
+
+####  那由  
+##### 3008#       发表于 2022-12-18 02:37
+
+ihoo集合！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  烟萝  
+##### 3009#       发表于 2022-12-18 02:38
+
+我不管，我先开香槟了
+
+*****
+
+####  烟萝  
+##### 3010#       发表于 2022-12-18 02:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58987081&amp;ptid=1857369" target="_blank">烟萝 发表于 2022-12-18 01:57</a>
+稀碎，图三吧</blockquote>
+我道歉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我不该质疑神
+
+*****
+
+####  andychen  
+##### 3011#       发表于 2022-12-18 02:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58983512&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-12-17 21:02</a>
+
+就杜和憨豆两个老头，魔法爷爷24，米人和番薯同龄</blockquote>
+不知道为啥总有魔男年纪很大的印象，大概是面相问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  米德  
+##### 3012#       发表于 2022-12-18 02:39
+
+4分够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  andychen  
+##### 3013#       发表于 2022-12-18 02:40
+
+感觉faze这大满贯没了啊
+
+今年最强势的时候连续被C9狙击，现在大家都不好惹了。液体和G2变阵后都变强了不少
+
+*****
+
+####  雨中曲  
+##### 3014#       发表于 2022-12-18 02:43
+
+这支G2上限确实高，可是兜不住经常下限太辣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  YujsD  
+##### 3015#       发表于 2022-12-18 02:47
+
+卡托之后终于又能在最后一天见到G2了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  三千珈蓝  
+##### 3016#       发表于 2022-12-18 02:53
+
+心理医生起作用了呀来自: iPhone客户端
+
