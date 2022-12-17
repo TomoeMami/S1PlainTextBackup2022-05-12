@@ -45,3 +45,14 @@
 
 还以为罗严塔尔会无甲pk动力甲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  机吉斯卡  
+##### 5580#       发表于 2022-12-17 11:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拍了三四年了终于大舰队入场场面和其他游戏接轨了
+
+不过比老版入侵费沙差了不少了，同盟会馆无能领导少了不少
+
