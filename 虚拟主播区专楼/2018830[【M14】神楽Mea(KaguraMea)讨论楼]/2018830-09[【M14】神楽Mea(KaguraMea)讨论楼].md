@@ -468,3 +468,14 @@ live这种东西再多也不嫌多
 
 今天的live之后还有买票上船看回顾的机会吗，有事错过了<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 12961#       发表于 2022-12-17 23:09
+
+票卖完了吧，有录播，还有之后成员回顾可以一起看
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
