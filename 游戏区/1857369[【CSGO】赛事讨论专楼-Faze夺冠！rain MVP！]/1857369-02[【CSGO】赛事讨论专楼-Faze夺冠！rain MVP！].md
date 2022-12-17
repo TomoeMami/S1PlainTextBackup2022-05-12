@@ -418,3 +418,12 @@ Osee：这种狙是真实存在的吗<img src="https://static.saraba1st.com/imag
 
 难道尼和极🐰要拿到久违的冠军了？
 
+
+
+*****
+
+####  烟萝  
+##### 2987#       发表于 2022-12-17 11:56
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天这两队又要打nuke了，faze再输这张图，就生生把自己绝活打成心魔了
+

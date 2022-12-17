@@ -499,3 +499,15 @@ CBA没有补宝价值啊，该有的早有了
 五池就行，祝早日康复</blockquote>
 谢谢，刷了6池，休息了，后面的金芙芙就只有放生了
 
+
+
+*****
+
+####  朝仓和美  
+##### 43845#       发表于 2022-12-17 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58974443&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-12-17 07:29</a>
+先重感冒再阳性，我已无力刷本，不记得自己刷了几池。也不知道能不能拿但活动从者了 ...</blockquote>
+脚本解千愁
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
