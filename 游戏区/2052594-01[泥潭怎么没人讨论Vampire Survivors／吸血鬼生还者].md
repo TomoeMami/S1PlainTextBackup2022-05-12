@@ -210,3 +210,12 @@ DLC的河童是在新地图哪里找的？第一把拿西格玛拿棺材和武�
 迷惑了</blockquote>
 游戏里玩一把烟花啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  best32167  
+##### 504#       发表于 2022-12-17 13:09
+
+哈哈是的，一进去选了武器就退出并没解锁，正常一轮游戏升满级后出来就有了
+
