@@ -17173,3 +17173,33 @@ BV1Ue411P7Dn 这里还有一个单曲榜，虽然老说星2的歌怎么不行，
 
 急需提高处理器线程数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 10407#       发表于 2022-12-17 20:14
+
+夹总真会用啊草，鱼鳞都要给薅没了
+
+*****
+
+####  兔姬姬姬姬姬  
+##### 10408#       发表于 2022-12-17 20:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">有台本照着念没事吧，大概
+
+*****
+
+####  Kfly  
+##### 10409#       发表于 2022-12-17 20:20
+
+助理主持要负责什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 10410#       发表于 2022-12-17 20:21
+
+微博这边有赞助的，估计要翻译什么，或者出了什么差错要鱼纠正
+
