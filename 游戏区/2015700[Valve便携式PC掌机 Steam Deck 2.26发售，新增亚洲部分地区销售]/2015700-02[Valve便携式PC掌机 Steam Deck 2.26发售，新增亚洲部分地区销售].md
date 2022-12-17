@@ -56,3 +56,12 @@ Komodo没发，系统上也是显示处理中，是佐川的 smartclub先发了�
 
 昨天更新系统后用指令的装的火狐不见了，重新运行指令安装也不行，有谭友知道解决方法吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  h122h  
+##### 1976#       发表于 2022-12-17 17:25
+
+今天亚洲地区都开始发货了，是不是等一等网上价格就会下来点？
+

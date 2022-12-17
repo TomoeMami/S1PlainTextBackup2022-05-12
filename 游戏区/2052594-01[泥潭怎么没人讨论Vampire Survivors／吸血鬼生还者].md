@@ -277,3 +277,16 @@ DLC武器我觉得好shi啊，四季升超武前近身有一片盲区；血刀�
 
 手机版啥时候更新DLC啊 已经完全无法接受坐电脑前玩这游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  弯弓射山猪  
+##### 510#       发表于 2022-12-17 17:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58979249&amp;ptid=2052594" target="_blank">tpsg 发表于 2022-12-17 15:24</a>
+PC可以啊，打新图解锁人物</blockquote>
+进去游戏没有新图。。。。xbox进去有
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
