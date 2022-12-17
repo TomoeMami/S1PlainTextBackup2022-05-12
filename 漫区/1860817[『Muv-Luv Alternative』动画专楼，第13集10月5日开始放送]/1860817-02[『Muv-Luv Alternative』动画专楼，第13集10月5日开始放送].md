@@ -2519,3 +2519,15 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 标个角色名不就挺好，为啥要把CV也写上去啊，太出戏了</blockquote>
 因为是直接当staff表用，没发现ED时候这几个角色的CV没写吗？
 
+
+
+*****
+
+####  azbhg1  
+##### 2202#       发表于 2022-12-17 23:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58985927&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-12-17 23:39</a>
+
+因为是直接当staff表用，没发现ED时候这几个角色的CV没写吗？</blockquote>
+完全没必要这样啊，那还不如干脆全不写，和其他扔一起表ED<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这效果太垃圾了
+
