@@ -763,3 +763,25 @@
 新章主城催眠那个守卫后到达地点提示一般人过不去，这个是随章节解锁吗？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不解锁了，哪怕最后你是天地大救星，力大秒众神，但城门说不给你进就不给你进。不过在理论上你曾经已经进去过某个小地方了（牢里）
 
+
+
+*****
+
+####  adw667  
+##### 3065#       发表于 2022-12-17 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58980768&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2022-12-17 17:26</a>
+
+刚开始玩。。。打完天平洞窟之后就不能回来了么。。要不要读档先把东西刷完再打boss. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至少困难以上的难度我都推荐把已解锁的成长盘刷完再去打BOSS，而在这个过程基本也能把武器护甲刷得七七八八了
+
+*****
+
+####  adw667  
+##### 3066#       发表于 2022-12-17 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58964665&amp;ptid=2098044" target="_blank">霖岚_ 发表于 2022-12-16 14:17</a>
+
+几天晚上刷到12点才睡，到第八章真的累得不行，把难度调轻度就想看看剧情了，结果特么还有个新章… ...</blockquote>
+除了剧情以外不存在错过了就没法补的东西，打最终BOSS之前都可以回去拿
+

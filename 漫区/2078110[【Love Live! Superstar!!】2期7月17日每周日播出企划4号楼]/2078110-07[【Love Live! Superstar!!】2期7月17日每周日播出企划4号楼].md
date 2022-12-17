@@ -17114,3 +17114,17 @@ BV1Ue411P7Dn 这里还有一个单曲榜，虽然老说星2的歌怎么不行，
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  nufawneafg  
+##### 10402#       发表于 2022-12-17 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58981148&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-12-17 18:01</a>
+@nufawneafg
+
+坛友也发我下，好奇心起来了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就一篇软文没必要整的跟越货似的
+就是说你不健全，声优不要干爱抖露爱抖露也别来我们声优这行扰乱市场秩序
+
