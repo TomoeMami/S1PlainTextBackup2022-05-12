@@ -78,3 +78,19 @@ steam掌机价格跟哪里发售没大关系，跟steam充值卡比例强关系�
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  医生狼多  
+##### 1978#       发表于 2022-12-17 19:52
+
+sd2出来sd估计就彻底降价了
+
+*****
+
+####  Litccc  
+##### 1979#       发表于 2022-12-17 19:54
+
+valve的硬件有出过二代么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
