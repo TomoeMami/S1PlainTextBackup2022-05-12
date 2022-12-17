@@ -555,3 +555,12 @@ EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
 
 就差暗ex和火ex没过了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  MEKA  
+##### 199#       发表于 2022-12-17 18:19
+
+风EX锁回血SP三星不了，水EX没练角色打不过...VH三把≈EX一把，过不去可太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">。
+
