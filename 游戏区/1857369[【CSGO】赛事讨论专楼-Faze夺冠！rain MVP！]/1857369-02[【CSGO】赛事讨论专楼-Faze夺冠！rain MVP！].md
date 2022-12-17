@@ -436,3 +436,25 @@ Osee：这种狙是真实存在的吗<img src="https://static.saraba1st.com/imag
 
 🐝今年成绩差强人意吧，总归还是有个大赛冠军的，今年应该是职业化以来大赛最少的一年，去年至少还有两届blast总决，到巴黎major之前应该不会换人，换位置倒可以试试，老年阿杜和憨豆打突破也太画美不看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  andychen  
+##### 2989#       发表于 2022-12-17 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58976896&amp;ptid=1857369" target="_blank">烟萝 发表于 2022-12-17 11:56</a>
+
+今天这两队又要打nuke了，faze再输这张图，就生生把自己绝活打成心魔了 ...</blockquote>
+G2现在nuke有点强的，真不好说
+
+*****
+
+####  andychen  
+##### 2990#       发表于 2022-12-17 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58981786&amp;ptid=1857369" target="_blank">dev2ce 发表于 2022-12-17 18:50</a>
+
+🐝今年成绩差强人意吧，总归还是有个大赛冠军的，今年应该是职业化以来大赛最少的一年，去年至少还有两届bl ...</blockquote>
+小蜜蜂现在老年人太多了，说实话当初和A队进行交易的时候我就不看好
+
