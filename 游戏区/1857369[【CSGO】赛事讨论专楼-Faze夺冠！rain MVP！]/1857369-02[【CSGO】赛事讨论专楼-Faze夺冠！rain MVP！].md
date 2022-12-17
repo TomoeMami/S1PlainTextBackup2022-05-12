@@ -509,3 +509,12 @@ G2现在nuke有点强的，真不好说
 小蜜蜂现在老年人太多了，说实话当初和A队进行交易的时候我就不看好</blockquote>
 就杜和憨豆两个老头，魔法爷爷24，米人和番薯同龄
 
+
+
+*****
+
+####  heseran  
+##### 2996#       发表于 2022-12-18 00:19
+
+JKS开始犯罪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">G2难咯
+
