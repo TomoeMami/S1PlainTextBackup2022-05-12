@@ -2431,3 +2431,31 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 安倍没死 我记得游戏里第二舰队不是死完了吗</blockquote>
 没完吧，我看漫画和游戏都是安倍表示要战斗到底，没给挂掉的镜头
 
+
+
+*****
+
+####  最后的法芙娜  
+##### 2197#       发表于 2022-12-17 10:03
+
+马上完结纪念一下，图里是F-14AN3
+
+微信图片_20221217100223.jpg
+(1013.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-17 10:02 上传
+
+<img src="https://img.saraba1st.com/forum/202212/17/100243y61m9zyx6pkrkpvr.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  アーリィ  
+##### 2198#       发表于 2022-12-17 10:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58975349&amp;ptid=1860817" target="_blank">最后的法芙娜 发表于 2022-12-17 10:03</a>
+
+马上完结纪念一下，图里是F-14AN3</blockquote>
+底座出戏，战术机是我第一次买寿屋的拼装，感觉比b社难做很多
+
