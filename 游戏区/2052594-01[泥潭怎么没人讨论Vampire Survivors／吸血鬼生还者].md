@@ -257,3 +257,14 @@ PC可以啊，打新图解锁人物
 
 dlc图被动好多，捡完道具栏都4栏了，特效晃得眼都要瞎了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  三角瑛一  
+##### 508#       发表于 2022-12-17 16:01
+
+DLC武器我觉得好shi啊，四季升超武前近身有一片盲区；血刀低配武器不说，升超武还会自己掉血，差点流血而死；牙和念珠前期有点微妙，后期还不错；和服要走走停停，判定很迷；河童泡泡更是要吐惹
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

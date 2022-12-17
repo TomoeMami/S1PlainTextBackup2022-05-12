@@ -17024,3 +17024,17 @@ BV1Ue411P7Dn 这里还有一个单曲榜，虽然老说星2的歌怎么不行，
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  nufawneafg  
+##### 10395#       发表于 2022-12-17 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58979590&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-17 15:57</a>
+有链接吗？我看热闹不嫌事大
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+毫无理论，感觉不如吹比网友，就不当二道贩子了，私你了
+不说后现代这把黄油刀了，哪怕看点涂尔干呢，也不至于还搞匠人这一套
+
