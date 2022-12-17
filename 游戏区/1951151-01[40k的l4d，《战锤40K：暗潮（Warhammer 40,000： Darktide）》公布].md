@@ -96,3 +96,17 @@ ARPG的审判官殉道的战斗修女DLC出了半个月了，武器和机制挺�
 
 其他枪10看手感可以点另外两个 25点2 30有车队点2没有还是点1
 
+
+
+*****
+
+####  Paradox7  
+##### 213#       发表于 2022-12-17 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58979196&amp;ptid=1951151" target="_blank">boxloli 发表于 2022-12-17 15:18</a>
+
+如果是走爆弹枪的话天赋121331
+
+其他枪10看手感可以点另外两个 25点2 30有车队点2没有还是点1 ...</blockquote>
+好的谢谢，我这一直刷不出动力剑和爆弹枪，都30级了合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
