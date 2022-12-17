@@ -165,3 +165,36 @@ DLC的河童是在新地图哪里找的？第一把拿西格玛拿棺材和武�
 
 奶精灵打完3000只会解锁个角色，打一把就能拿到轮子
 
+
+
+*****
+
+####  best32167  
+##### 501#       发表于 2022-12-17 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58977355&amp;ptid=2052594" target="_blank">天辉一绝 发表于 2022-12-17 12:25</a>
+
+应该是车轮没拿吧 
+
+奶精灵打完3000只会解锁个角色，打一把就能拿到轮子</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202212/17/124559d3f96sh0svvf9hen.png" referrerpolicy="no-referrer">
+
+<strong>无标题1.png</strong> (211.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-17 12:45 上传
+
+迷惑了
+
+*****
+
+####  三角瑛一  
+##### 502#       发表于 2022-12-17 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58977600&amp;ptid=2052594" target="_blank">best32167 发表于 2022-12-17 12:46</a>
+
+迷惑了</blockquote>
+有的武器开图鉴要开一局并且选到才行，糖果盒开局选一次试试
+
