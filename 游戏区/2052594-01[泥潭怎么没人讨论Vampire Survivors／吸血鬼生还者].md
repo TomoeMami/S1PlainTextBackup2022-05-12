@@ -149,3 +149,19 @@ DLC的河童是在新地图哪里找的？第一把拿西格玛拿棺材和武�
 
 新武器和新角色都比较一般，强的还是老的武器....
 
+
+
+*****
+
+####  天辉一绝  
+##### 500#       发表于 2022-12-17 12:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58977059&amp;ptid=2052594" target="_blank">best32167 发表于 2022-12-17 12:06</a>
+
+奇怪，为什么我打死最终boss，steam烟花成就都跳出来了，我收藏还是缺一个
+
+我看图标就是那个烟花啊 ...</blockquote>
+应该是车轮没拿吧 
+
+奶精灵打完3000只会解锁个角色，打一把就能拿到轮子
+
