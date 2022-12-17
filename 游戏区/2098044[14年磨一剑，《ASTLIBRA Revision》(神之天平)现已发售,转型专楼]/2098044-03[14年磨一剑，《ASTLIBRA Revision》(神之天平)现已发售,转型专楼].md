@@ -805,3 +805,15 @@
 
 看了看攻略，武器精通技能有点眼花缭乱，有哪些是必要刷的？先记一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 3069#       发表于 2022-12-17 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58981783&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2022-12-17 18:50</a>
+
+看了看攻略，武器精通技能有点眼花缭乱，有哪些是必要刷的？先记一下 ...</blockquote>
+基本上全都要刷，因为你刷晶体的过程很容易就把武器防具精通刷满了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
