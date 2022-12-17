@@ -726,3 +726,28 @@
 
 刚开始玩。。。打完天平洞窟之后就不能回来了么。。要不要读档先把东西刷完再打boss.
 
+
+
+*****
+
+####  2082082012  
+##### 3063#       发表于 2022-12-17 17:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58980768&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2022-12-17 17:26</a>
+刚开始玩。。。打完天平洞窟之后就不能回来了么。。要不要读档先把东西刷完再打boss. ...</blockquote>
+后面可以回来的
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+﹍﹍﹍
+
+评分
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 红魔馆的糖| + 1|好评加鹅|
+
+查看全部评分
+

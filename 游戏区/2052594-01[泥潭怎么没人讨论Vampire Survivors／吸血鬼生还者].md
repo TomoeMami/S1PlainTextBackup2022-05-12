@@ -290,3 +290,12 @@ PC可以啊，打新图解锁人物</blockquote>
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  socoollike  
+##### 511#       发表于 2022-12-17 17:36
+
+iOS免费无广告，太牛了
+
