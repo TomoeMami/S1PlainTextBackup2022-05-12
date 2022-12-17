@@ -546,3 +546,12 @@ EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">风EXBOSS的遮断还会封SP回复的卡，这BUFF一上2个暗属性防守UR就成小丑了
 
+
+
+*****
+
+####  startea15  
+##### 198#       发表于 2022-12-17 07:53
+
+就差暗ex和火ex没过了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
