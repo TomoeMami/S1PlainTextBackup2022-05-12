@@ -2482,3 +2482,28 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 
 明年第三季播完，muv luv alternative 续作起码能公布个pv了，猜测2024年末发售，说不定还能上ps4和ns<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Toby_dak  
+##### 2200#       发表于 2022-12-17 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58973920&amp;ptid=1860817" target="_blank">midautumn 发表于 2022-12-17 03:04</a>
+
+五天前推完了muv的三个故事篇章，然后开始一边补动画一边爬楼，终于赶上动画的最新进度了，但楼里的好多发 ...</blockquote>
+正传游戏不过是迈向大坑的第一步<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">楼里的发言还涉及大量设定集、外传和模型等等的内容。
+
+<img src="https://img.saraba1st.com/forum/202212/17/220835feyu8zby7ut27r70.jpg" referrerpolicy="no-referrer">
+
+<strong>82f2a336gw1e9vjxte985j21kw0w0n9y.jpg</strong> (444.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-17 21:08 上传
+
+比如这张图是我2013年的存档，当时收集还不完全。
+[https://weibo.com/2196939574/Afp647ZDt](https://weibo.com/2196939574/Afp647ZDt)
+
+想想都快10年前，ALT2还在绝赞跳票中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
