@@ -751,3 +751,15 @@
 
 查看全部评分
 
+
+
+*****
+
+####  M1NG  
+##### 3064#       发表于 2022-12-17 17:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58980262&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-17 16:49</a>
+
+新章主城催眠那个守卫后到达地点提示一般人过不去，这个是随章节解锁吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不解锁了，哪怕最后你是天地大救星，力大秒众神，但城门说不给你进就不给你进。不过在理论上你曾经已经进去过某个小地方了（牢里）
+
