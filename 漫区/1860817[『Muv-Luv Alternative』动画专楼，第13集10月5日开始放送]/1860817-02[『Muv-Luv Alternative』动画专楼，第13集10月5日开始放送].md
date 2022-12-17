@@ -2459,3 +2459,26 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 马上完结纪念一下，图里是F-14AN3</blockquote>
 底座出戏，战术机是我第一次买寿屋的拼装，感觉比b社难做很多
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2199#       发表于 2022-12-17 16:22
+
+ 本帖最后由 再买自检星剁手 于 2022-12-17 16:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58973995&amp;ptid=1860817" target="_blank">ReginaldMorgan 发表于 2022-12-17 02:20</a>
+
+我其实一直以为这季度结尾会以树下接吻做结的，没想到比我预料得慢不少
+
+总之看看怎么解决吧 ...</blockquote>
+看了一下漫画，发现其实很简单，做69和70话的内容就行。
+
+69话：回到基地，展现被炸没的原佐渡岛地区，司令重新任命队长（截至这部分漫画也没几页），（君季收死亡通知情节动画肯定会砍了），大婶出场送悼念饭，小茜和白银聊天（这部分也可能砍掉）
+
+70话：显示00unit拿到的情报，宣布下一次将打下母巢，207小队成员悼念逝人（感觉动画不塞爆，做到这里就是极限了），漫画接下来就是白银和香月推理并揭示00unit死机的原因，占了本话大概6成篇幅。
+
+剩下30.5话砍掉一些大概能做第三季<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+明年第三季播完，muv luv alternative 续作起码能公布个pv了，猜测2024年末发售，说不定还能上ps4和ns<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
