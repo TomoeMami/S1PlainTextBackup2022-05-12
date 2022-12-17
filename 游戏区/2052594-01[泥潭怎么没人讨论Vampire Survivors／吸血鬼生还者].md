@@ -248,3 +248,12 @@ DLC的河童是在新地图哪里找的？第一把拿西格玛拿棺材和武�
 是需要解锁么</blockquote>
 PC可以啊，打新图解锁人物
 
+
+
+*****
+
+####  tpsg  
+##### 507#       发表于 2022-12-17 15:35
+
+dlc图被动好多，捡完道具栏都4栏了，特效晃得眼都要瞎了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
