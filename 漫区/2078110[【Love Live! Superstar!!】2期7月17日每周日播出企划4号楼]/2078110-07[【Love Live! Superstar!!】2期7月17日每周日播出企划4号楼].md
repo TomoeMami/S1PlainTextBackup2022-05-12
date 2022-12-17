@@ -17275,3 +17275,15 @@ BV1Ue411P7Dn 这里还有一个单曲榜，虽然老说星2的歌怎么不行，
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  愛さ実  
+##### 10419#       发表于 2022-12-17 21:37
+
+翻译吗，鱼翻译自己的话都整不利索<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不过是个好机会，希望能挑战一下
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
