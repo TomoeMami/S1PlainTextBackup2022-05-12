@@ -47,3 +47,12 @@ Komodo没发，系统上也是显示处理中，是佐川的 smartclub先发了�
 顺便我也是2号付的尾 ...</blockquote>
 感谢 昨晚收到邮件了 也是佐川预定今天配达 希望一切顺利
 
+
+
+*****
+
+####  kalavinka  
+##### 1975#       发表于 2022-12-17 14:36
+
+昨天更新系统后用指令的装的火狐不见了，重新运行指令安装也不行，有谭友知道解决方法吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

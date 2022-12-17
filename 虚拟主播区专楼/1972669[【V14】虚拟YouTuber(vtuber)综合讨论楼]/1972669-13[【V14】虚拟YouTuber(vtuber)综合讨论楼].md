@@ -384,3 +384,14 @@ V最协又要来了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 哦牛批，原来田角也抛了，那是真的牛批
 
+
+
+*****
+
+####  smy20011  
+##### 18038#       发表于 2022-12-17 14:36
+
+只上市5%流通股有一种庄家控盘割韭菜的感觉
+
+— from Google Pixel 7, Android 13 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
+
