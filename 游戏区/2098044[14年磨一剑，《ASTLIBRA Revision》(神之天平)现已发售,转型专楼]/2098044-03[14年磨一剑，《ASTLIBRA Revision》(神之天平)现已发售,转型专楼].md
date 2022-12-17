@@ -664,3 +664,47 @@
 最后盖亚迷宫每层的boss不能存档吗？输了就要从头开始刷小怪</blockquote>
 猪那有卖复活卡，买几张容错
 
+
+
+*****
+
+####  瓦米里奥  
+##### 3057#       发表于 2022-12-17 11:32
+
+求教，异界通知下面那个技能是啥，明明装备我已经都练满了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+还有剑气要是武器正常命中的话是不是也有额外伤害？
+
+*****
+
+####  farland  
+##### 3058#       发表于 2022-12-17 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58972196&amp;ptid=2098044" target="_blank">bixinhaner 发表于 2022-12-16 23:03</a>
+
+最后盖亚迷宫每层的boss不能存档吗？输了就要从头开始刷小怪</blockquote>
+打完每5层的boss有个球让你回城啊。
+
+*****
+
+####  tsubaki  
+##### 3059#       发表于 2022-12-17 11:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58976571&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-17 11:32</a>
+
+求教，异界通知下面那个技能是啥，明明装备我已经都练满了啊
+
+还有剑气要是武器正常命中的话是不是也 ...</blockquote>
+五章魔王城门口的存档点，左下有个被挡掉的洞口，进去有段剧情（NETA恶魔城），获得副武器技能
+
+*****
+
+####  hello0607  
+##### 3060#       发表于 2022-12-17 11:40
+
+<blockquote>瓦米里奥 发表于 2022-12-17 11:32
+求教，异界通知下面那个技能是啥，明明装备我已经都练满了啊
+
+还有剑气要是武器正常命中的话是不是也 ...</blockquote>
+那个不是武器的 魔王城前好像有猪那张图小山下面树挡着的地方能进去 有个彩蛋学的
+
