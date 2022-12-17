@@ -268,3 +268,12 @@ DLC武器我觉得好shi啊，四季升超武前近身有一片盲区；血刀�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  萱时令  
+##### 509#       发表于 2022-12-17 17:13
+
+手机版啥时候更新DLC啊 已经完全无法接受坐电脑前玩这游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
