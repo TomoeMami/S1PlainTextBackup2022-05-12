@@ -785,3 +785,14 @@
 几天晚上刷到12点才睡，到第八章真的累得不行，把难度调轻度就想看看剧情了，结果特么还有个新章… ...</blockquote>
 除了剧情以外不存在错过了就没法补的东西，打最终BOSS之前都可以回去拿
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3067#       发表于 2022-12-17 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58981195&amp;ptid=2098044" target="_blank">adw667 发表于 2022-12-17 18:06</a>
+至少困难以上的难度我都推荐把已解锁的成长盘刷完再去打BOSS，而在这个过程基本也能把武器护甲刷 ...</blockquote>
+倒数第二个难度，稀里糊涂就去了，看到这么多血以为是剧情杀，结果居然是要打死的，还好有个洗点道具把属性都洗成魔攻过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

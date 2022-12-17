@@ -531,3 +531,12 @@ CBA没有补宝价值啊，该有的早有了
 
 —— 来自 Realme RMX1851, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  dawning  
+##### 43848#       发表于 2022-12-17 18:36
+
+随便抽了下，博二宝失败，抽到了只大鹅<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
