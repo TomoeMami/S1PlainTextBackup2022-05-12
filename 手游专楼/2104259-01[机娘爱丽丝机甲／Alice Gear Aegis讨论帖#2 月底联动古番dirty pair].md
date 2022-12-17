@@ -165,3 +165,14 @@ FA风纪的新剧情看了，要素真的是太齐全了<img src="https://static
 
 FA风纪会祝贺怜和绫香的生日，FA可乐却不会（明明是同校也有交集）。是不是可以造点假药<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  杂灰  
+##### 142#       发表于 2022-12-17 22:09
+
+可乐弟hso，阿金我要看可乐弟穿色色战斗服
+
+—— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
