@@ -2507,3 +2507,15 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 
 想想都快10年前，ALT2还在绝赞跳票中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Toby_dak  
+##### 2201#       发表于 2022-12-17 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58956979&amp;ptid=1860817" target="_blank">azbhg1 发表于 2022-12-15 22:05</a>
+
+标个角色名不就挺好，为啥要把CV也写上去啊，太出戏了</blockquote>
+因为是直接当staff表用，没发现ED时候这几个角色的CV没写吗？
+
