@@ -518,3 +518,36 @@ G2现在nuke有点强的，真不好说
 
 JKS开始犯罪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">G2难咯
 
+
+
+*****
+
+####  烟萝  
+##### 2997#       发表于 2022-12-18 01:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58986360&amp;ptid=1857369" target="_blank">heseran 发表于 2022-12-18 00:19</a>
+
+JKS开始犯罪了G2难咯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">你再说一遍！
+
+*****
+
+####  雨中曲  
+##### 2998#       发表于 2022-12-18 01:11
+
+JKS这发挥不把A4价格拉爆<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  拉萨乌姆  
+##### 2999#       发表于 2022-12-18 01:11
+
+看笑了
+
+*****
+
+####  曼陀罗肥  
+##### 3000#       发表于 2022-12-18 01:12
+
+rain太逆天了吧，jks让了他五枪还误触滚轮了都补不上。
+

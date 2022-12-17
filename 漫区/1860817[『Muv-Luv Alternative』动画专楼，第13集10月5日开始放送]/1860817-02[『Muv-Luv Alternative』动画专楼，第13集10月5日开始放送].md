@@ -2531,3 +2531,18 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 因为是直接当staff表用，没发现ED时候这几个角色的CV没写吗？</blockquote>
 完全没必要这样啊，那还不如干脆全不写，和其他扔一起表ED<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这效果太垃圾了
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2203#       发表于 2022-12-18 01:13
+
+ 本帖最后由 再买自检星剁手 于 2022-12-18 01:16 编辑 
+
+<img src="https://p.sda1.dev/8/5b3b95c3ba407f30e17a2fa721febe06/CMP_20221218011237833.jpg" referrerpolicy="no-referrer">
+
+（画白银贺图的画师人设不够齐备，因为鸡枞自己看不上PS，虽然游戏当年还是出了ps3和vita版）
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
