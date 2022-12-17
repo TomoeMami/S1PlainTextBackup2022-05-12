@@ -9826,3 +9826,21 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 270石1宝，今年结束了
 
+
+
+*****
+
+####  areklose  
+##### 3877#       发表于 2022-12-17 09:39
+
+ 本帖最后由 areklose 于 2022-12-17 09:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">摸鱼几天终于打90++，太简单了。主要公主技能能给绘里世充30，宝具充20.绘里世能放2次宝具。。
+
+*****
+
+####  雀雀  
+##### 3878#       发表于 2022-12-17 09:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">又一年了啊
+
