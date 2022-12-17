@@ -198,3 +198,15 @@ DLC的河童是在新地图哪里找的？第一把拿西格玛拿棺材和武�
 迷惑了</blockquote>
 有的武器开图鉴要开一局并且选到才行，糖果盒开局选一次试试
 
+
+
+*****
+
+####  天辉一绝  
+##### 503#       发表于 2022-12-17 12:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58977600&amp;ptid=2052594" target="_blank">best32167 发表于 2022-12-17 12:46</a>
+
+迷惑了</blockquote>
+游戏里玩一把烟花啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
