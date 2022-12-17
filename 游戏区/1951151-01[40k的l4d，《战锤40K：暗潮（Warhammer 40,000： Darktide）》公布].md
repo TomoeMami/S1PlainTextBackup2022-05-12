@@ -147,3 +147,15 @@ ARPG的审判官殉道的战斗修女DLC出了半个月了，武器和机制挺�
 
 我见过最离谱的是队友在对枪，附近没有任何小怪，bot莫名其妙跑过去一刀砍爆队友旁边的桶，当时还以为是进了个傻卵在整活，但仔细一看是bot，我不知道怎么评价<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Paradox7  
+##### 217#       发表于 2022-12-17 21:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58983043&amp;ptid=1951151" target="_blank">FLZB 发表于 2022-12-17 20:32</a>
+
+这个更新直接把bot改成弱智，之前打潮不行但好歹会跟着玩家提供掩护，现在要么站着不走要么突然远离玩家 ...</blockquote>
+我现在都不和bot打了 队内有bot的时候最怕bot引到恶魔
+

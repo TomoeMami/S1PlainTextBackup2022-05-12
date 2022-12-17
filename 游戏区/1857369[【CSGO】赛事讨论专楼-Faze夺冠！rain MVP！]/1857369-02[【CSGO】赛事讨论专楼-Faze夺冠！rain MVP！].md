@@ -489,3 +489,23 @@ G2现在nuke有点强的，真不好说
 很他妈离谱的是小蜜蜂粉丝里还有相当大一群刻舟求剑爱好者，成天搁那念叨不如全法班时候有成绩balabala，你妈不看看当时其他队伍什么样现在其他队伍什么样。把那几个二线都打不明白的选手拉回来载物就变回超人时的状态了？
 只能说，啊，最近学到了刻舟求剑原来不是纯属虚构的故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dev2ce  
+##### 2994#       发表于 2022-12-17 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58983377&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-12-17 20:56</a>
+很他妈离谱的是小蜜蜂粉丝里还有相当大一群刻舟求剑爱好者，成天搁那念叨不如全法班时候有成绩balabala， ...</blockquote>
+去年全法班不就一冠一亚吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">跟今年成绩一样
+
+*****
+
+####  dev2ce  
+##### 2995#       发表于 2022-12-17 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58982004&amp;ptid=1857369" target="_blank">andychen 发表于 2022-12-17 19:06</a>
+小蜜蜂现在老年人太多了，说实话当初和A队进行交易的时候我就不看好</blockquote>
+就杜和憨豆两个老头，魔法爷爷24，米人和番薯同龄
+
