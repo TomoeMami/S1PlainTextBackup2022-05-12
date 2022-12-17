@@ -82,3 +82,17 @@ ARPG的审判官殉道的战斗修女DLC出了半个月了，武器和机制挺�
 
 鼠疫2打高难度抽箱子的系统怎么也比现在刷商店满眼各种型号的自动抢要好吧，现在上线就为了打个周常<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  boxloli  
+##### 212#       发表于 2022-12-17 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58978972&amp;ptid=1951151" target="_blank">Paradox7 发表于 2022-12-17 14:57</a>
+
+老兵毕业装备和天赋应该是什么样的有没有攻略啊，我一搜全是正式发售前的攻略 ...</blockquote>
+如果是走爆弹枪的话天赋121331
+
+其他枪10看手感可以点另外两个 25点2 30有车队点2没有还是点1
+
