@@ -65,3 +65,16 @@ Komodo没发，系统上也是显示处理中，是佐川的 smartclub先发了�
 
 今天亚洲地区都开始发货了，是不是等一等网上价格就会下来点？
 
+
+
+*****
+
+####  雨中曲  
+##### 1977#       发表于 2022-12-17 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58980751&amp;ptid=2015700" target="_blank">h122h 发表于 2022-12-17 17:25</a>
+今天亚洲地区都开始发货了，是不是等一等网上价格就会下来点？</blockquote>
+steam掌机价格跟哪里发售没大关系，跟steam充值卡比例强关系。得看秋促前那批卡是否真得被用去美区扫货(红锁新高峰)，又有多少货能安全到岸
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
