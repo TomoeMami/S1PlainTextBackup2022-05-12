@@ -817,3 +817,17 @@
 看了看攻略，武器精通技能有点眼花缭乱，有哪些是必要刷的？先记一下 ...</blockquote>
 基本上全都要刷，因为你刷晶体的过程很容易就把武器防具精通刷满了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asdfg  
+##### 3070#       发表于 2022-12-17 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58981783&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2022-12-17 05:50</a>
+
+看了看攻略，武器精通技能有点眼花缭乱，有哪些是必要刷的？先记一下 ...</blockquote>
+没有必须的，基本上你把本章节的新武器做出来然后杀到本章boss的过程中应该就练满了。
+
+然后装备练满是看你穿/拿着期间得到多少经验值的。所以大后期再去练最初的武器会练的特别快，可能跑两三个地图就能满一个。
+

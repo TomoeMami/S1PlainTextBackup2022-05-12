@@ -17203,3 +17203,39 @@ BV1Ue411P7Dn 这里还有一个单曲榜，虽然老说星2的歌怎么不行，
 
 微博这边有赞助的，估计要翻译什么，或者出了什么差错要鱼纠正
 
+
+
+*****
+
+####  nufawneafg  
+##### 10411#       发表于 2022-12-17 20:22
+
+ 本帖最后由 nufawneafg 于 2022-12-17 20:23 编辑 
+
+翻译？这场有转播嘛？
+搞特别串场互动的？
+我现在在想现场估计可能还真会有一些相关人士了
+
+*****
+
+####  奥柏伦亲王  
+##### 10412#       发表于 2022-12-17 20:25
+
+好耶可以看鱼多出点镜了
+
+*****
+
+####  player3960  
+##### 10413#       发表于 2022-12-17 20:29
+
+鲤鱼也不是专业翻译啊，希望安排好点，鲤鱼的MC能力还是有点担心啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  csolfans  
+##### 10414#       发表于 2022-12-17 20:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要负责的事前所未有的多啊，加油
+

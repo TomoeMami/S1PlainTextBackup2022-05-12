@@ -26,3 +26,13 @@
 
 真搞不懂，明明这两张卡不换发色也很好看啊，能不能别惦记你那发色了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  花开安菲路  
+##### 7042#       发表于 2022-12-17 20:26
+
+活动曲感觉不是很抓我耳<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+蓝色的活动服比白色的好看一点点，打个9w换装券拿完就溜。
+
