@@ -17010,3 +17010,17 @@ BV1Ue411P7Dn 这里还有一个单曲榜，虽然老说星2的歌怎么不行，
 
 以前我对中日拼盘微博搞这阵仗持保留态度，现在看来属于是欠缺这一点小小的中国震撼了，可以让谄上骄下入脑的日本人体验一下异域风情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 10394#       发表于 2022-12-17 15:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58979424&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-12-17 15:42:13</a>
+拉板看到乘着这波清算风把liella当枪使的软文
+
+以前我对中日拼盘微博搞这阵仗持保留态度，现在看来属于是欠 ...</blockquote>有链接吗？我看热闹不嫌事大<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
