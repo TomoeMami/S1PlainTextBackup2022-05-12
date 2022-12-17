@@ -477,3 +477,15 @@ G2现在nuke有点强的，真不好说
 主要是明年主场major了结果队里都只有一个法国人了面子真没法搁吧，虽然唯一的法国人当四个人在用
 法国后生一个能打的都没有那咋办呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 2993#         楼主| 发表于 2022-12-17 20:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58982290&amp;ptid=1857369" target="_blank">曼陀罗肥 发表于 2022-12-17 19:31</a>
+以前shox在时apex指挥还可以，现在丹麦人来后指挥越来越脑淤血。交流问题从年初就开始说，到现在一年了还是 ...</blockquote>
+很他妈离谱的是小蜜蜂粉丝里还有相当大一群刻舟求剑爱好者，成天搁那念叨不如全法班时候有成绩balabala，你妈不看看当时其他队伍什么样现在其他队伍什么样。把那几个二线都打不明白的选手拉回来载物就变回超人时的状态了？
+只能说，啊，最近学到了刻舟求剑原来不是纯属虚构的故事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
