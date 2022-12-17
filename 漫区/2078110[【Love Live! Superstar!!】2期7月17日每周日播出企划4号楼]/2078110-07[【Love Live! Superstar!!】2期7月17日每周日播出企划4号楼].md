@@ -17287,3 +17287,14 @@ BV1Ue411P7Dn 这里还有一个单曲榜，虽然老说星2的歌怎么不行，
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  saya1892  
+##### 10420#       发表于 2022-12-17 21:49
+
+千砂都「この中に虹信がいます」8人「！？」[https://fate.5ch.net/test/read.cgi/lovelive/1671253094](https://fate.5ch.net/test/read.cgi/lovelive/1671253094)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到标题已经开始笑了
+
