@@ -125,3 +125,15 @@ valve的硬件有出过二代么<img src="https://static.saraba1st.com/image/smi
 valve的硬件有出过二代么</blockquote>
 g胖一般不会数3，所以2代板上钉钉妥妥的
 
+
+
+*****
+
+####  菜菜菜菜  
+##### 1983#       发表于 2022-12-18 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58987821&amp;ptid=2015700" target="_blank">nnnnick22 发表于 2022-12-18 08:47</a>
+
+日区总算到了 直接买了吸血鬼生还者在玩 老婆看到接近花十万日元的东西竟然拿来玩貌似二十年前的游戏直接崩 ...</blockquote>
+话说我当时买也是为了这个，可以跑老头环给你老婆看看。
+

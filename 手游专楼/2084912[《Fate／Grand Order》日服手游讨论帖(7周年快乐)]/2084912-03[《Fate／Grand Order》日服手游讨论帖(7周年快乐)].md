@@ -9877,3 +9877,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 下次有机会就不知道猴年马月了<img src="https://static.saraba1st.com/image/smiley/face2017/088.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  onemoment  
+##### 3882#       发表于 2022-12-18 10:41
+
+感染了奥师傅，1200石奥师傅也5宝了，今年也就这样了，等2.7
+
