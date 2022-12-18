@@ -220,3 +220,12 @@ g2打液体，不过决赛不好说的，epl都说决赛打液体随便宰宰，
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58988916&amp;ptid=1857369" target="_blank"> heseran 发表于 2022-12-18 11:26</a> 引用:doublehit 发表于 2022-12-18 10:57 🦐哥都放两次狠话了，这次决赛不拿下心理治疗师得加班到圣诞了另外blast跟G2被场外一堆妖魔鬼怪给炎 ... 不是裹裹在推特带节奏吗？大肥猪的嘴脸丑陋得像他的那颗猪头一样，想知道电子哥和p元帅的心理状态 </blockquote>
 森破这发言属实是委屈，怎么连哄着点我都做不到，对尼公子跟小孩black了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  dev2ce  
+##### 3026#       发表于 2022-12-18 13:34
+
+全乌班刚好sdy不用走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">踢了电子哥和perfecto，换sdy和npl
+
