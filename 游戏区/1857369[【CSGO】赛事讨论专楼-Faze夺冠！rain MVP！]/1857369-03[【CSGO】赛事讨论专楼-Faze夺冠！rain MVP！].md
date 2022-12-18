@@ -325,3 +325,19 @@ niko这个人肉闪光弹……怎么打起来Hoxi刚来的位置了<img src="ht
 
 这液体都不会玩了都，过板子没闪，最后一局7000块保枪，人都晕了吧都
 
+
+
+*****
+
+####  YujsD  
+##### 3038#       发表于 2022-12-18 19:10
+
+质疑！
+
+*****
+
+####  downfall  
+##### 3039#       发表于 2022-12-18 19:12
+
+会是图一碾压，图二被翻盘，图三被碾压的经典老番吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
