@@ -9,3 +9,19 @@
 
 草，从来没见哪个游戏不玩游戏的玩家像df一样多的，能吹上八百字但是不会搓肥皂。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  欠损  
+##### 92#       发表于 2022-12-18 11:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58877769&amp;ptid=2108537" target="_blank">lb19931118 发表于 2022-12-11 00:36</a>
+
+等一个steam冒险模式玩.
+
+矮人要塞适当砍一些内容, 然后套进类MC的方式来游玩感觉效果会很好. ...</blockquote>
+可以从矮人要塞的兄弟里找找看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+vgaminer也不光df一个儿子，miner游戏的分支还是挺多的。
+
