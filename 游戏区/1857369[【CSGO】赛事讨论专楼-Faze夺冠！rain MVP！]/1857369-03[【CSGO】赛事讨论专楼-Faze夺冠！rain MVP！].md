@@ -157,3 +157,14 @@ g2打液体，不过决赛不好说的，epl都说决赛打液体随便宰宰，
 
 以尼要是再亚军真大满亚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">blast春决/秋决/总决体系确定之后尼没拿过这个亚军
 
+
+
+*****
+
+####  朔方原的星  
+##### 3020#         楼主| 发表于 2022-12-18 08:56
+
+肯定是g2赢面大，小孩能把osee脑壳狙烂
+
+但我还是想看g2输因为那样更有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
