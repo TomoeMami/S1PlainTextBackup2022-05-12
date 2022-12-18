@@ -341,3 +341,21 @@ niko这个人肉闪光弹……怎么打起来Hoxi刚来的位置了<img src="ht
 
 会是图一碾压，图二被翻盘，图三被碾压的经典老番吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烟萝  
+##### 3040#       发表于 2022-12-18 19:20
+
+图二味道已经对了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烟萝  
+##### 3041#       发表于 2022-12-18 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这大狙对位完全处刑了……
+
+JKS更是硬的离谱
+

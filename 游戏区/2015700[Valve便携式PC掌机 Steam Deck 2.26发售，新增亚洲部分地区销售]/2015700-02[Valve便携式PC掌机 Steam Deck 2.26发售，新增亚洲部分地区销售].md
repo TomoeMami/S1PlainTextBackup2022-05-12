@@ -168,3 +168,42 @@ g胖一般不会数3，所以2代板上钉钉妥妥的
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">推上看到有鬼子买SD来玩DOAXVV，好眼馋
 
+
+
+*****
+
+####  Sue  
+##### 1987#       发表于 2022-12-18 19:27
+
+笑死，刚刚想起来昨天发售，看了一下邮件啥通知都没
+
+然后去看了一下推，在炎上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202212/18/192625r758xax8z6xvbvh5.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20221218_192552.jpg</strong> (731.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-18 19:26 上传
+
+<img src="https://img.saraba1st.com/forum/202212/18/192625zn2xxnvq28xrtn32.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20221218_192608.jpg</strong> (577.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-18 19:26 上传
+
+然后看了一下日本那边，也是一片欢声笑语<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202212/18/192654z77llbn7r5jebtze.jpg" referrerpolicy="no-referrer">
+
+<strong>IMG_20221218_191910.jpg</strong> (770.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-18 19:26 上传
+
+安心了，继续慢慢等
+

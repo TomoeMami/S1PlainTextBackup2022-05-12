@@ -17550,3 +17550,29 @@ pay
 草，我一直是用玩“的”开心的
 文盲的事暴露了
 
+
+
+*****
+
+####  nufawneafg  
+##### 10440#       发表于 2022-12-18 19:24
+
+是传统的“的地得”环节呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  稀勢のささ  
+##### 10441#       发表于 2022-12-18 19:29
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我咋记得老早就有类似的规定了，那时候皮套人搞B限直播还得报备还是啥的
+
+*****
+
+####  Kfly  
+##### 10442#       发表于 2022-12-18 19:30
+
+我也是不太在意“的地得”的，觉得输入法打字没必要计较那么多
+鱼可能也是电子设备用多了罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
