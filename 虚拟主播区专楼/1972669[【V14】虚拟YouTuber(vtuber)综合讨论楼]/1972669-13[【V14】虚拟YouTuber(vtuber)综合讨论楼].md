@@ -616,3 +616,19 @@ king在ベビパ开局就2连星，这个运真服气...（虽然最后11名）<
 
 说起来你虹早就计划了在韩国的布局，结果人家本土女有이세계 아이돌，男现在也有레볼루션 하트，等着入场的3d势2d势不计其数，suha这种老臣还要靠en棒子带，女v影响力没有一个能与Council正面抗衡，时也命也，马齿徒增
 
+
+
+*****
+
+####  poipanchao  
+##### 18058#       发表于 2022-12-19 01:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59001205&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-12-19 01:03</a>
+
+什么奇形怪状的saff，放尊重一点，人家可是twitch的韩国xqc釈迦
+
+说起来你虹早就计划了在韩国的布 ...</blockquote>
+云异世界女团直播的第一印象就是，很B限
+
+感觉直播内容常常是在她们自己的论坛里看二创啥的聊一晚上
+
