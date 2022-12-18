@@ -17576,3 +17576,16 @@ pay
 我也是不太在意“的地得”的，觉得输入法打字没必要计较那么多
 鱼可能也是电子设备用多了罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 10443#       发表于 2022-12-18 19:36
+
+ 本帖最后由 nufawneafg 于 2022-12-18 19:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58994922&amp;ptid=2078110" target="_blank">稀势のささ 发表于 2022-12-18 19:29</a>
+我咋记得老早就有类似的规定了，那时候皮套人搞B限直播还得报备还是啥的，指不定这波是个啥草台事件 ...</blockquote>
+这就不太清楚了，20、21年网信办倒是牵头搞了网络直播规范文件
+这个是文旅部牵头主要面向网络演出的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
