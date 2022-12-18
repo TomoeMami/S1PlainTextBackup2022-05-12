@@ -17616,3 +17616,12 @@ pay
 补一个emo，大概几个人一起去玩吧</blockquote>
 大几率9人全去了，我看伽黎说昨晚8点还没签名，8点40分就9人全签了
 
+
+
+*****
+
+####  cybernetics31  
+##### 10446#       发表于 2022-12-18 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">garnidelia巡回，写了好几个国内城市，感觉快了，明年见到鱼就是胜利！
+

@@ -851,3 +851,16 @@
 
 玩了两天作者的三消手游MAGICUS，直接地狱难度开局，然后……不想玩下去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  最终兵器狂战  
+##### 3073#       发表于 2022-12-18 22:37
+
+30小时打完了一周目后还在琢磨这游戏就是挺不错的同人游戏那个感觉。还有点纳闷怎么通刷的都表示要60小时的。结果才发现。。
+
+这tm怎么还有个大菠萝开了冒险模式还附带全程剧情的。看着装备强化-装备盘-天平强化一大堆提示蹦出来简直感觉肝在颤。。。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+另外加时赛竞技场第九关这是不是多刷刷再来打比较好。我现在进去唯一的想法就是”我是谁，我在哪，我怎么死了？“<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
