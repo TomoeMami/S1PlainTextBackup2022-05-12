@@ -12261,3 +12261,12 @@ wb更了   太劲了
 
 —— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  ladiesman802  
+##### 2781#       发表于 2022-12-18 13:11
+
+刚问了一下考虑索尼最新的产品吗？厂长说等上架会购入
+
