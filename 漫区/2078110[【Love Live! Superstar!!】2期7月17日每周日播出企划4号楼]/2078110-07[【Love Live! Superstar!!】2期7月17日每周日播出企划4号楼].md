@@ -17349,3 +17349,15 @@ BV1Ue411P7Dn 这里还有一个单曲榜，虽然老说星2的歌怎么不行，
 </blockquote>
 甚至很多都是鲤鱼的熟人(
 
+
+
+*****
+
+####  cat1230  
+##### 10424#       发表于 2022-12-18 15:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58991586&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-12-18 15:16</a>
+
+甚至很多都是鲤鱼的熟人(</blockquote>
+鱼熟人是指coser那些人马？
+
