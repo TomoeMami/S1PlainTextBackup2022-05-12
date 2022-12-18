@@ -17323,3 +17323,15 @@ BV1Ue411P7Dn 这里还有一个单曲榜，虽然老说星2的歌怎么不行，
 
 2022-12-18 13:31 上传
 
+
+
+*****
+
+####  愛さ実  
+##### 10422#       发表于 2022-12-18 15:06
+
+微博叫了一堆在日微博红人去捧场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+美有姬老师也在。太有微博味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

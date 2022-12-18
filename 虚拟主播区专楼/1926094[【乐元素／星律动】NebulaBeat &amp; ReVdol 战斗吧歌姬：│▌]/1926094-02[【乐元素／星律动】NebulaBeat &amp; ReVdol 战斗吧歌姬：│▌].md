@@ -12322,3 +12322,14 @@ wb更了   太劲了
 
 圣 擂 台！
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2787#       发表于 2022-12-18 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">赛马娘坏事做尽
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

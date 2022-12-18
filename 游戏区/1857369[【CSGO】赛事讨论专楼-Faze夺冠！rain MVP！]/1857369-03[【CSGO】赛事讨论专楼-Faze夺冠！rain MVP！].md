@@ -238,3 +238,12 @@ g2打液体，不过决赛不好说的，epl都说决赛打液体随便宰宰，
 
 navi搞了个慈善赛，飞柱、番薯、设备在一队，只能说是懂流量的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烟萝  
+##### 3028#       发表于 2022-12-18 15:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">今天打的这么早
+
