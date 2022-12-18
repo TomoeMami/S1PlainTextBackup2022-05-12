@@ -600,3 +600,19 @@ king在ベビパ开局就2连星，这个运真服气...（虽然最后11名）<
 这个异世界女团就这6个人加一堆奇形怪状的staff吧 ...</blockquote>
 哦哦那可能是那个，因为主题也是异世界，模型也很僵...
 
+
+
+*****
+
+####  alcoholic1000  
+##### 18057#       发表于 2022-12-19 01:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58999937&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-12-19 00:09</a>
+
+你说的是不是前些日子出来的虚拟选秀？
+
+这个异世界女团就这6个人加一堆奇形怪状的staff吧 ...</blockquote>
+什么奇形怪状的saff，放尊重一点，人家可是twitch的韩国xqc釈迦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说起来你虹早就计划了在韩国的布局，结果人家本土女有이세계 아이돌，男现在也有레볼루션 하트，等着入场的3d势2d势不计其数，suha这种老臣还要靠en棒子带，女v影响力没有一个能与Council正面抗衡，时也命也，马齿徒增
+
