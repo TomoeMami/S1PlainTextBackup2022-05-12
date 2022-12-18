@@ -148,3 +148,12 @@ ihoo集合！
 
 g2打液体，不过决赛不好说的，epl都说决赛打液体随便宰宰，结果要不是大番薯和🐔哥🐴中🐴，🐝今年一个冠军没有
 
+
+
+*****
+
+####  dev2ce  
+##### 3019#       发表于 2022-12-18 08:31
+
+以尼要是再亚军真大满亚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">blast春决/秋决/总决体系确定之后尼没拿过这个亚军
+
