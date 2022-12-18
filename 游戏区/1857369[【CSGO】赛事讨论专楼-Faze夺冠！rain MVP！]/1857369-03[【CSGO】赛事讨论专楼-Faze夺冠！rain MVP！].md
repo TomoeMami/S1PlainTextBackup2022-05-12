@@ -631,3 +631,24 @@ Jks今年赚麻了！冷面杀手颠沛流离的一年，收获满满啊<img src
 
 但是进决赛的路上是真不轻松。好多次悬崖边缘的犯错和救赎
 
+
+
+*****
+
+####  heseran  
+##### 3076#       发表于 2022-12-18 21:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58996229&amp;ptid=1857369" target="_blank">CharlieZ- 发表于 2022-12-18 20:58</a>
+中国粉丝这么暖的吗，呼吸居然特别提到了</blockquote>
+有人私信和评论网暴呼吸，呼吸说：不过也有一直支持我的人，比如中国的粉丝们。大概是这个意思吧
+
+*****
+
+####  stplum  
+##### 3077#       发表于 2022-12-18 21:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58996269&amp;ptid=1857369" target="_blank">heseran 发表于 2022-12-18 21:01</a>
+
+有人私信和评论网暴呼吸，呼吸说：不过也有一直支持我的人，比如中国的粉丝们。大概是这个意思吧 ...</blockquote>
+是指尼公子转的那些吊图吗
+
