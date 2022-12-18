@@ -500,3 +500,74 @@ G2年,今年属于G2<img src="https://static.saraba1st.com/image/smiley/face2017
 这下小蜜蜂成唯一指定荣队了
 apex那个屌样子明年也是一个寄，我也不看了，回头看看a队能不能买人好好搞搞吧
 
+
+
+*****
+
+####  dev2ce  
+##### 3060#       发表于 2022-12-18 20:21
+
+不得不说尼之前真的错过太多机会了，这次总决冠军无论从奖池还是含金量都能排在他生涯冠军的前几位
+
+
+
+*****
+
+####  andychen  
+##### 3061#       发表于 2022-12-18 20:22
+
+G2不再是nico的one man army了，也终于夺冠了
+
+*****
+
+####  heseran  
+##### 3062#       发表于 2022-12-18 20:23
+
+太猛了，最后几个回合稳得不像G2<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zpl123  
+##### 3063#       发表于 2022-12-18 20:23
+
+小孩17岁就mvp了
+
+*****
+
+####  YujsD  
+##### 3064#       发表于 2022-12-18 20:23
+
+2022的句号圆满了
+
+*****
+
+####  烟萝  
+##### 3065#       发表于 2022-12-18 20:23
+
+唯一遗憾就是faze和g2打的不是决赛……<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3066#       发表于 2022-12-18 20:26
+
+尼之前11个冠军里奖池最高的是17年的eleague premier(一百万刀)，含金量最高个人感觉是18悉尼，决赛3-0已经从马赛扬帆起航的a队，这么一看这次总决冠军含金量确实高
+
+*****
+
+####  YujsD  
+##### 3067#       发表于 2022-12-18 20:27
+
+一首一尾两个大赛冠军，今年原来是JKS年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3068#       发表于 2022-12-18 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58995567&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-12-18 20:20</a>
+坏了，没乐子看了
+这下小蜜蜂成唯一指定荣队了
+apex那个屌样子明年也是一个寄，我也不看了，回头看 ...</blockquote>
+a队21年跟x9续到了25年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明年也是个摆子，躺着吃丹麦流量
+

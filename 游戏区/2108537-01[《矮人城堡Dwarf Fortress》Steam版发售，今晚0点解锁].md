@@ -86,3 +86,32 @@ B站上做这游戏视频的UP一个都看不进去
 
 怎么退款退了一周多了还没退掉
 
+
+
+*****
+
+####  人性的灯塔  
+##### 99#       发表于 2022-12-18 20:29
+
+ 本帖最后由 人性的灯塔 于 2022-12-18 20:30 编辑 
+
+看了下简中翻译进度有68%了，是不是下个月左右就能玩上中文了
+
+<img src="https://img.saraba1st.com/forum/202212/18/202839wlpp3m7mrinemmii.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (45.75 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-18 20:28 上传
+
+*****
+
+####  creymorgan  
+##### 100#       发表于 2022-12-18 20:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58995752&amp;ptid=2108537" target="_blank">人性的灯塔 发表于 2022-12-18 20:29</a>
+
+看了下简中翻译进度有68%了，是不是下个月左右就能玩上中文了</blockquote>
+文本进度68%，技术进度0%
+

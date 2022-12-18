@@ -479,3 +479,24 @@ V最协又要来了<img src="https://static.saraba1st.com/image/smiley/face2017/
 问，明明都是一起练的，为什么king老是看起来如有神助，能助一下我推吗？</blockquote>
 king在ベビパ开局就2连星，这个运真服气...（虽然最后11名）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alcoholic1000  
+##### 18048#       发表于 2022-12-18 20:23
+
+<img src="https://img.saraba1st.com/forum/202212/18/202334zh5vqhp2phn96hd9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>マリカおわったら、ARKだよなぁ！！！ .jpeg</strong> (683.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-18 20:23 上传
+
+ <blockquote>本间ひまわり🌻@honmahimawari
+
+マリカおわったら、ARKだよなぁ！！！
+
+明日详细话しまするーーー。</blockquote>
+
