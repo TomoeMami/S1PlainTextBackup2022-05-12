@@ -105,3 +105,26 @@
 
 建议武居以后就负责打架得了，这一套搞下来还不如久弥呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  RainbowSealife  
+##### 833#       发表于 2022-12-19 00:21
+
+<strong>
+
+<img src="https://img.saraba1st.com/forum/202212/19/001100i7rdjazycyf9crd3.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (89.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-19 00:11 上传
+
+</strong>爱就是这样自私，爱就是这样不可理喻，所以爱才是世上最可怕的力量！
+
+闹了半天，没有隐情，就是因为媳妇没了才迁怒于地球。即使巴孜特星球被斯菲亚包围，只要媳妇还在，日子该咋过咋过；媳妇没了，我一定要毁灭地球，创造出没有被斯菲亚攻击的巴孜特！——你们这群没有感受过真爱的incel又怎么能理解的了？！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+只可惜朝影还不够癫，没能把那种生无可恋的劲儿完美呈现出来，遭受重大打击后丧失理智，迷失自我的人应该比这更疯批，德凯里的人物塑造还是节制了一点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
