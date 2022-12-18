@@ -553,3 +553,12 @@ CBA没有补宝价值啊，该有的早有了
 
 大白鹅肯定是来照顾生病的我的！
 
+
+
+*****
+
+####  霄度天  
+##### 43850#       发表于 2022-12-18 10:28
+
+脚本摸了70池跑路了，最高本开太晚了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，虽然千里眼后面就是砍柱子
+
