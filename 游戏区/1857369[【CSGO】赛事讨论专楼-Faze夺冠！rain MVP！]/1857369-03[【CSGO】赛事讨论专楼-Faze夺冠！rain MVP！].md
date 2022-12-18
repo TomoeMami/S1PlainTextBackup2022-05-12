@@ -168,3 +168,16 @@ g2打液体，不过决赛不好说的，epl都说决赛打液体随便宰宰，
 
 但我还是想看g2输因为那样更有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dev2ce  
+##### 3021#       发表于 2022-12-18 09:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58987862&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-12-18 08:56</a>
+肯定是g2赢面大，小孩能把osee脑壳狙烂
+
+但我还是想看g2输因为那样更有意思 ...</blockquote>
+那🦐这个头衔到退役都别想甩掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年已经下滑
+
