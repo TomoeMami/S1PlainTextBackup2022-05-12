@@ -586,3 +586,17 @@ king在ベビパ开局就2连星，这个运真服气...（虽然最后11名）<
 
 这个异世界女团就这6个人加一堆奇形怪状的staff吧
 
+
+
+*****
+
+####  rzrbtk  
+##### 18056#       发表于 2022-12-19 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58999937&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-12-19 00:09</a>
+
+你说的是不是前些日子出来的虚拟选秀？
+
+这个异世界女团就这6个人加一堆奇形怪状的staff吧 ...</blockquote>
+哦哦那可能是那个，因为主题也是异世界，模型也很僵...
+
