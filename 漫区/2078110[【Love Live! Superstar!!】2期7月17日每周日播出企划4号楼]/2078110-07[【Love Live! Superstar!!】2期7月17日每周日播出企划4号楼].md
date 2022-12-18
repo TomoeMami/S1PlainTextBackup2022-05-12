@@ -17465,3 +17465,21 @@ pay
 
 谨慎一点不是坏事
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10433#       发表于 2022-12-18 18:39
+
+导演剪辑版？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  player3960  
+##### 10434#       发表于 2022-12-18 18:41
+
+平稳过渡吧，重点还是后面的巡演吧
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
