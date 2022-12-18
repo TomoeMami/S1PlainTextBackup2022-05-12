@@ -17372,3 +17372,55 @@ BV1Ue411P7Dn 这里还有一个单曲榜，虽然老说星2的歌怎么不行，
 鱼熟人是指coser那些人马？</blockquote>
 认识的朋友
 
+
+
+*****
+
+####  优妮可  
+##### 10426#       发表于 2022-12-18 17:55
+
+鱼推特视频背景女声是谁啊？是pay吗？
+
+*****
+
+####  Kfly  
+##### 10427#       发表于 2022-12-18 17:57
+
+我听着也好像啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+鱼
+
+<img src="https://img.saraba1st.com/forum/202212/18/175604u78077ua7wa9imm8.jpg" referrerpolicy="no-referrer">
+
+<strong>b02f6544gy1h983ubl4h7j21o0280b29.jpg</strong> (948.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-18 17:56 上传
+
+<img src="https://img.saraba1st.com/forum/202212/18/175632ouo4vh2xwpiivdrp.jpg" referrerpolicy="no-referrer">
+
+<strong>FkQEVbvagAEcOFp.jpg</strong> (329.26 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-18 17:56 上传
+
+pay
+
+<img src="https://img.saraba1st.com/forum/202212/18/175615isuvi9tt7q9wis7s.jpg" referrerpolicy="no-referrer">
+
+<strong>FkOQB3daMAAxXZD.jpg</strong> (467.92 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-18 17:56 上传
+
+<img src="https://img.saraba1st.com/forum/202212/18/175611bgfet2ofxyfodflo.jpg" referrerpolicy="no-referrer">
+
+<strong>FkOQB3WagAADSp7.jpg</strong> (442.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-18 17:56 上传
+
