@@ -176,3 +176,12 @@ FA风纪会祝贺怜和绫香的生日，FA可乐却不会（明明是同校也�
 
 —— 来自 Xiaomi M2006J10C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  regular  
+##### 143#       发表于 2022-12-18 10:56
+
+我都没发现那是弟弟啊<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+

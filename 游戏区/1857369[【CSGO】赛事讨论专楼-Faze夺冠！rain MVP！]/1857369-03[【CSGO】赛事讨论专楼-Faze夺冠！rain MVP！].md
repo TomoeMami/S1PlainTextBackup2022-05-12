@@ -190,3 +190,12 @@ g2打液体，不过决赛不好说的，epl都说决赛打液体随便宰宰，
 
 看完小镇上半场就睡了，真没想到图二就能拿下啊
 
+
+
+*****
+
+####  doublehit  
+##### 3023#       发表于 2022-12-18 10:57
+
+🦐哥都放两次狠话了，这次决赛不拿下心理治疗师得加班到圣诞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
