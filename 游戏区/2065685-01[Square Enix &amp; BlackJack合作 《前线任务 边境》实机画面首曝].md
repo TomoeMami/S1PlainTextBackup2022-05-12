@@ -1120,3 +1120,12 @@ SE还真回复了，虽然可能是个固定模板：
 
 看B站预告上一堆喊“老婆”的瞬间不想玩了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  缺德猫  
+##### 100#       发表于 2022-12-18 14:08
+
+对这IP没情怀，幻水谈崩了才难受，太想要紫龙搞的幻水手游了。
+

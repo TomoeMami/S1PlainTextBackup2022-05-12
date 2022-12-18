@@ -66,3 +66,14 @@ vgaminer也不光df一个儿子，miner游戏的分支还是挺多的。
 
 —— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  偶像程序员POI  
+##### 97#       发表于 2022-12-18 14:06
+
+B站上做这游戏视频的UP一个都看不进去
+
+玩得好的不会做视频，会做视频的不会玩这游戏<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
