@@ -39,3 +39,15 @@ pc版真就暴力移植啊，进去键位设置都没有，打半天我还没提
 
 不过这游戏人物建模的头发是真的舒服，希望日厂的卡通渲染游戏们都快点普及一下，门板头发真过时了
 
+
+
+*****
+
+####  oyss  
+##### 167#       发表于 2022-12-18 13:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58958457&amp;ptid=2084947" target="_blank">Bruce33 发表于 2022-12-15 22:46</a>
+
+另一种不可回收垃圾（我的地雷社粉丝朋友如是评价</blockquote>
+这作比以前的海王星动作游戏可好多了
+
