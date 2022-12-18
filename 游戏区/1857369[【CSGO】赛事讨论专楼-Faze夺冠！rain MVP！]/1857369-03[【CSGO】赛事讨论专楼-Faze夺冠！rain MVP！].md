@@ -316,3 +316,12 @@ nitro和naf拉裤，oc已经开始猛放炮了，这比赛真不用看了吧</bl
 
 niko这个人肉闪光弹……怎么打起来Hoxi刚来的位置了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朔方原的星  
+##### 3037#         楼主| 发表于 2022-12-18 18:56
+
+这液体都不会玩了都，过板子没闪，最后一局7000块保枪，人都晕了吧都
+
