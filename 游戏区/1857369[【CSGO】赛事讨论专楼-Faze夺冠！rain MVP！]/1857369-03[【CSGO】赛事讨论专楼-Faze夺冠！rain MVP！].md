@@ -265,3 +265,38 @@ navi搞了个慈善赛，飞柱、番薯、设备在一队，只能说是懂流�
 
 狂哥有点哈人
 
+
+
+*****
+
+####  烟萝  
+##### 3031#       发表于 2022-12-18 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">强起犯病以后整个陌生了
+
+*****
+
+####  朔方原的星  
+##### 3032#         楼主| 发表于 2022-12-18 18:26
+
+nitro和naf拉裤，oc已经开始猛放炮了，这比赛真不用看了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  那由  
+##### 3033#       发表于 2022-12-18 18:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58994219&amp;ptid=1857369" target="_blank">朔方原的星 发表于 2022-12-18 18:26</a>
+
+nitro和naf拉裤，oc已经开始猛放炮了，这比赛真不用看了吧</blockquote>
+先质疑，再质疑<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  烟萝  
+##### 3034#       发表于 2022-12-18 18:28
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我已经道歉了两天了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
