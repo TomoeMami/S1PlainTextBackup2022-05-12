@@ -17604,3 +17604,15 @@ pay
 补一个emo，大概几个人一起去玩吧
 <img src="https://p.sda1.dev/8/96f194c52409a5d7415d327a840c15a6/FkLug0dagAEjFIR.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 10445#       发表于 2022-12-18 21:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58995186&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-18 19:49</a>
+
+补一个emo，大概几个人一起去玩吧</blockquote>
+大几率9人全去了，我看伽黎说昨晚8点还没签名，8点40分就9人全签了
+
