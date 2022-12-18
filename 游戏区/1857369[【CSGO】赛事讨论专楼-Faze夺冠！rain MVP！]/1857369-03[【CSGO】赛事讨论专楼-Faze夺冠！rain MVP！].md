@@ -691,3 +691,15 @@ Jks今年赚麻了！冷面杀手颠沛流离的一年，收获满满啊<img src
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Eric_方歌阙  
+##### 3081#       发表于 2022-12-18 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58996684&amp;ptid=1857369" target="_blank">heseran 发表于 2022-12-18 21:29</a>
+
+优质偶像</blockquote>
+草，这是下了场就找助理发微博了，真行啊
+

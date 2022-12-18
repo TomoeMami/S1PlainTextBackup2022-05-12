@@ -5943,3 +5943,40 @@ ALcot的staff，昨天点赞了一条推，虽然感觉没什么特别的含义
 
 没新服了，这辈子都没了（第二次）。
 
+
+
+*****
+
+####  rs5621  
+##### 3556#       发表于 2022-12-18 21:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新的连体人服装
+
+*****
+
+####  rs5621  
+##### 3557#       发表于 2022-12-18 21:39
+
+出了!!!
+
+*****
+
+####  神澈  
+##### 3558#       发表于 2022-12-18 21:40
+
+终于出了！我靠！
+
+*****
+
+####  ZQXY2002  
+##### 3559#       发表于 2022-12-18 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">终于来了，地狱结束了
+
+*****
+
+####  rs5621  
+##### 3560#       发表于 2022-12-18 21:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孵蛋地狱终于结束了
+
