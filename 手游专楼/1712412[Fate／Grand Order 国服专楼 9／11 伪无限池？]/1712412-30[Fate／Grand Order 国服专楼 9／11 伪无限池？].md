@@ -580,3 +580,22 @@ CBA没有补宝价值啊，该有的早有了
 
 通古斯20号开，前一批卡面的和谐版也都放出来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kazemitoya  
+##### 43853#       发表于 2022-12-18 18:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58993395&amp;ptid=1712412" target="_blank">武者小路紫苑 发表于 2022-12-18 17:17</a>
+
+通古斯20号开，前一批卡面的和谐版也都放出来了</blockquote>
+丸子和其他几个UP提前说过20号开，所以不是很惊讶了
+
+*****
+
+####  待宵  
+##### 43854#       发表于 2022-12-18 18:50
+
+但是黑杯卡面还没恢复
+

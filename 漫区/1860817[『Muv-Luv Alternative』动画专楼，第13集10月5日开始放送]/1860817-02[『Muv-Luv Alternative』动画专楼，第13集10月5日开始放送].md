@@ -2546,3 +2546,14 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  freyja_wion  
+##### 2204#       发表于 2022-12-18 18:43
+
+感觉看完电锯人和三体的动画之后可以与抹布和解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2211133C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
