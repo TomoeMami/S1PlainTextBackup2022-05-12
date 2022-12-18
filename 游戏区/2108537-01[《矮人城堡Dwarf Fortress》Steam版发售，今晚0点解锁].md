@@ -46,3 +46,12 @@ vgaminer也不光df一个儿子，miner游戏的分支还是挺多的。
 
 文本量太大了。之前很多弟弟版，环世界都还没怎么玩。 先天坑，万一以后有中文呢
 
+
+
+*****
+
+####  白左  
+##### 95#       发表于 2022-12-18 13:05
+
+虽然买了但是应该是要等到出中文然后心情非常好不怕麻烦的时候才会玩把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
