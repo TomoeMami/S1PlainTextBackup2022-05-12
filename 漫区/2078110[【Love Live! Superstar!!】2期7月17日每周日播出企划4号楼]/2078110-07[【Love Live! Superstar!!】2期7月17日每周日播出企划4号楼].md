@@ -17625,3 +17625,14 @@ pay
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">garnidelia巡回，写了好几个国内城市，感觉快了，明年见到鱼就是胜利！
 
+
+
+*****
+
+####  愛さ実  
+##### 10447#       发表于 2022-12-18 22:46
+
+微博这弄的，又要了世界独播权，国内又直播不了。[f:213][f:213][f:213]
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
