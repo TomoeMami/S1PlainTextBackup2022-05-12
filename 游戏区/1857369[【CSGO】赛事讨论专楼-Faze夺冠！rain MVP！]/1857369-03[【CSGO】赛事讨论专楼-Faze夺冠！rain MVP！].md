@@ -672,3 +672,22 @@ Jks今年赚麻了！冷面杀手颠沛流离的一年，收获满满啊<img src
 是指尼公子转的那些吊图吗</blockquote>
 肯定不是那些，应该就是说一些言语上的攻击。B站那个小盟哥采访过他和他聊诸葛呼吸之类的梗图，他笑得挺开心的。今天赛后说的是“希望一些人懂得怎么在网上和他人交流，知道你在写什么”然后还提到了bad message。然后说但是我还有一些疯狂的中国粉丝，ihoo fans（笑）。是的ihoo fans是hooxi自己边笑边说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  heseran  
+##### 3080#       发表于 2022-12-18 21:29
+
+优质偶像
+
+<img src="https://img.saraba1st.com/forum/202212/18/212850jhyqgf8z8886bkgq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>FFA0BB79-D13B-4C1E-A9A6-8194FDCC543C.jpeg</strong> (299.66 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-18 21:28 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
