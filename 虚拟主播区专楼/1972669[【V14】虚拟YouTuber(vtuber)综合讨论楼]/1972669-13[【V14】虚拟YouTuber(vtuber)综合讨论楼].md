@@ -556,3 +556,33 @@ king在ベビパ开局就2连星，这个运真服气...（虽然最后11名）<
 
 都是站桩慢歌，中途应该是事故了摆了半天（听不懂不知道是不是中场休息）
 
+
+
+*****
+
+####  rzrbtk  
+##### 18054#       发表于 2022-12-19 00:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58999085&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-12-18 23:32</a>
+
+无意中被推了当初楼里聊过的那个韩国异世界女团的3DLIVE直播
+
+感觉这个技术力……还不如2年前的虹杏
+
+都是站 ...</blockquote>
+不止这些，这个节目在拐了大量2.5线女团成员播了几次唱了主题曲甚至打投了几轮之后，突然被爆出多个模型的违规使用，例如拿了可以私下用但不能商用的模型，最后直接道歉后清空社交媒体烂尾了，我推队友也被骗惹..
+
+韩国当红虚拟偶像目前是aespa，虽然也是为了骗投资和nft
+
+*****
+
+####  poipanchao  
+##### 18055#       发表于 2022-12-19 00:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58999798&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-19 00:01</a>
+
+不止这些，这个节目在拐了大量2.5线女团成员播了几次唱了主题曲甚至打投了几轮之后，突然被爆出多个模型 ...</blockquote>
+你说的是不是前些日子出来的虚拟选秀？
+
+这个异世界女团就这6个人加一堆奇形怪状的staff吧
+
