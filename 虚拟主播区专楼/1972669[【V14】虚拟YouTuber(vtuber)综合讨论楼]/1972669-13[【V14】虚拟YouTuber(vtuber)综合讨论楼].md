@@ -529,3 +529,17 @@ king在ベビパ开局就2连星，这个运真服气...（虽然最后11名）<
 
 好丑陋的机器人，阿花还是cult魂不死啊<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18052#       发表于 2022-12-18 23:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58996294&amp;ptid=1972669" target="_blank">woui003woui 发表于 2022-12-18 21:03</a>
+
+虽然个人也觉得葛叶游戏力很强，但是感觉只有他夺冠的时候议论声浪特别的大，这是错觉吗
+
+搞不清“葛 ...</blockquote>
+葛叶给我的印象是对胜利不知疲倦，但凡参加的大会都是认真的在卷
+
