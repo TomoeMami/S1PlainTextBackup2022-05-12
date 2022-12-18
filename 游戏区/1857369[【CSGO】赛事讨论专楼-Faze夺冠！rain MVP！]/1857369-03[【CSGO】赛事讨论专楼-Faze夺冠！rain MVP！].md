@@ -130,3 +130,21 @@ ihoo集合！
 
 心理医生起作用了呀来自: iPhone客户端
 
+
+
+*****
+
+####  heseran  
+##### 3017#       发表于 2022-12-18 08:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58986812&amp;ptid=1857369" target="_blank">烟萝 发表于 2022-12-18 01:11</a>
+你再说一遍！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">我操G2赢了，昨天nuke看到一半受不了了就去睡了，一觉醒来2:0，jks对不起
+
+*****
+
+####  dev2ce  
+##### 3018#       发表于 2022-12-18 08:29
+
+g2打液体，不过决赛不好说的，epl都说决赛打液体随便宰宰，结果要不是大番薯和🐔哥🐴中🐴，🐝今年一个冠军没有
+
