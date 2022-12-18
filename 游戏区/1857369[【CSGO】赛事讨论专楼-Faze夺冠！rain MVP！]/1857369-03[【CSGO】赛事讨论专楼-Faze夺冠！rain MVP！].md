@@ -652,3 +652,23 @@ Jks今年赚麻了！冷面杀手颠沛流离的一年，收获满满啊<img src
 有人私信和评论网暴呼吸，呼吸说：不过也有一直支持我的人，比如中国的粉丝们。大概是这个意思吧 ...</blockquote>
 是指尼公子转的那些吊图吗
 
+
+
+*****
+
+####  朔方原的星  
+##### 3078#         楼主| 发表于 2022-12-18 21:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58996346&amp;ptid=1857369" target="_blank">stplum 发表于 2022-12-18 21:06</a>
+是指尼公子转的那些吊图吗</blockquote>
+有不少人去推特给呼吸他们发私信的，我看还有人晒图被呼吸点赞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这方面整得还是挺正能量的
+
+*****
+
+####  heseran  
+##### 3079#       发表于 2022-12-18 21:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58996346&amp;ptid=1857369" target="_blank">stplum 发表于 2022-12-18 21:06</a>
+是指尼公子转的那些吊图吗</blockquote>
+肯定不是那些，应该就是说一些言语上的攻击。B站那个小盟哥采访过他和他聊诸葛呼吸之类的梗图，他笑得挺开心的。今天赛后说的是“希望一些人懂得怎么在网上和他人交流，知道你在写什么”然后还提到了bad message。然后说但是我还有一些疯狂的中国粉丝，ihoo fans（笑）。是的ihoo fans是hooxi自己边笑边说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -470,3 +470,26 @@ dlc武器感觉四季和牙成型之后无脑全屏好爽啊，但是我是开�
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  astrayl  
+##### 528#       发表于 2022-12-18 21:17
+
+爆肝几天把移动端的全收集了，内容还是有些单薄
+
+不过这免费放出来，薄纱那些国产山寨货<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  沙发果冻  
+##### 529#       发表于 2022-12-18 21:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58995399&amp;ptid=2052594" target="_blank">captoon 发表于 2022-12-18 20:08</a>
+
+破碎死神能吃金蛋，女王不能吃
+
+破碎死神吃了金蛋以后，能提升基底的</blockquote>
+算上吃金蛋的话，所有角色都比女王强，只要金蛋刷得够多
+
