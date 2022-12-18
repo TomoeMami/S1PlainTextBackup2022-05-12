@@ -445,3 +445,17 @@ dlc武器感觉四季和牙成型之后无脑全屏好爽啊，但是我是开�
 破碎死神比女王强</blockquote>
 等你刷出个能用的，女王一局都打完了
 
+
+
+*****
+
+####  captoon  
+##### 526#       发表于 2022-12-18 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58995167&amp;ptid=2052594" target="_blank">不见不散 发表于 2022-12-18 19:48</a>
+
+等你刷出个能用的，女王一局都打完了</blockquote>
+破碎死神能吃金蛋，女王不能吃
+
+破碎死神吃了金蛋以后，能提升基底的
+

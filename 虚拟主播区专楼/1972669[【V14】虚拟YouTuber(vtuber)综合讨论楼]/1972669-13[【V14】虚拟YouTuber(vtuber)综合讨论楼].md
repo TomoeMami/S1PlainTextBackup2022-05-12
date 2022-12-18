@@ -460,3 +460,22 @@ V最协又要来了<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 什么叫King啊
 
+
+
+*****
+
+####  白金口袋  
+##### 18046#       发表于 2022-12-18 20:02
+
+下届谢林接手感觉可以啊
+
+*****
+
+####  alcoholic1000  
+##### 18047#       发表于 2022-12-18 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58995307&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-18 19:59</a>
+
+问，明明都是一起练的，为什么king老是看起来如有神助，能助一下我推吗？</blockquote>
+king在ベビパ开局就2连星，这个运真服气...（虽然最后11名）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
