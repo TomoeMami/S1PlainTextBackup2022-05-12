@@ -423,3 +423,80 @@ JKS更是硬的离谱
 
 质疑？相信！
 
+
+
+*****
+
+####  烟萝  
+##### 3050#       发表于 2022-12-18 20:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">不容易，两个关键回合，一回合靠指挥拿下，一回合靠niko铁血突破
+
+*****
+
+####  Robakey  
+##### 3051#       发表于 2022-12-18 20:11
+
+Let s Go G2！！！
+
+*****
+
+####  Eric_方歌阙  
+##### 3052#       发表于 2022-12-18 20:13
+
+G2决赛打得太稳了，配赢好吧。新冠症状都看缓解了
+
+*****
+
+####  烟萝  
+##### 3053#       发表于 2022-12-18 20:14
+
+表哥直接跳起来把呼吸抱住了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Niyah  
+##### 3054#       发表于 2022-12-18 20:15
+
+这个冠军对呼吸的意义挺大吧，真不容易<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3055#       发表于 2022-12-18 20:16
+
+恭喜🐔🐰，今年就faze最大赢家，其他强队人均一个冠军，不知道明年会如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  奈纪亚美  
+##### 3056#       发表于 2022-12-18 20:16
+
+以父之名！
+
+*****
+
+####  Robakey  
+##### 3057#       发表于 2022-12-18 20:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58995464&amp;ptid=1857369" target="_blank">Eric_方歌阙 发表于 2022-12-18 20:13</a>
+
+G2决赛打得太稳了，配赢好吧。新冠症状都看缓解了</blockquote>
+确实 看的我都发汗了 环节了不少
+
+*****
+
+####  doublehit  
+##### 3058#       发表于 2022-12-18 20:17
+
+G2年,今年属于G2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+*****
+
+####  朔方原的星  
+##### 3059#         楼主| 发表于 2022-12-18 20:20
+
+坏了，没乐子看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这下小蜜蜂成唯一指定荣队了
+apex那个屌样子明年也是一个寄，我也不看了，回头看看a队能不能买人好好搞搞吧
+
