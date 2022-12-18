@@ -12270,3 +12270,13 @@ wb更了   太劲了
 
 刚问了一下考虑索尼最新的产品吗？厂长说等上架会购入
 
+
+
+*****
+
+####  喜闻乐见  
+##### 2782#         楼主| 发表于 2022-12-18 13:29
+
+变了 又没变<img src="http://tva1.sinaimg.cn/large/732205bcgy1h97wfrvutjj20gz0ob7dy.jpg" referrerpolicy="no-referrer">
+<img src="http://tva1.sinaimg.cn/large/732205bcgy1h97wg8nkl1j20ah07v0tf.jpg" referrerpolicy="no-referrer">
+
