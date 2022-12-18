@@ -571,3 +571,27 @@ G2不再是nico的one man army了，也终于夺冠了
 apex那个屌样子明年也是一个寄，我也不看了，回头看 ...</blockquote>
 a队21年跟x9续到了25年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明年也是个摆子，躺着吃丹麦流量
 
+
+
+*****
+
+####  雨中曲  
+##### 3069#       发表于 2022-12-18 20:32
+
+Jks今年赚麻了！冷面杀手颠沛流离的一年，收获满满啊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+*****
+
+####  那由  
+##### 3070#       发表于 2022-12-18 20:32
+
+我是ihoo我好有面子啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dev2ce  
+##### 3071#       发表于 2022-12-18 20:34
+
+孩最后还是兑现天赋了，明年还是很精彩的
+飞柱今年还是top1吧，八九成
+
