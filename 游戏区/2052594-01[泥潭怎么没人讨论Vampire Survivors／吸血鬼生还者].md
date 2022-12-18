@@ -398,3 +398,17 @@ dlc武器感觉四季和牙成型之后无脑全屏好爽啊，但是我是开�
 
 —— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  captoon  
+##### 522#       发表于 2022-12-18 17:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58990663&amp;ptid=2052594" target="_blank">不见不散 发表于 2022-12-18 13:54</a>
+
+一圈玩下来，最强的角色依旧是女王，开局就挂机还有谁
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+破碎死神比女王强
+
