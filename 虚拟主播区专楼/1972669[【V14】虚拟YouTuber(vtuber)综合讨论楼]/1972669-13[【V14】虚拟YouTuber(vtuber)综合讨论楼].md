@@ -520,3 +520,12 @@ king在ベビパ开局就2连星，这个运真服气...（虽然最后11名）<
 
 阿葵我哭死，2022年了还记着ark战国
 
+
+
+*****
+
+####  rzrbtk  
+##### 18051#       发表于 2022-12-18 22:54
+
+好丑陋的机器人，阿花还是cult魂不死啊<img src="https://static.saraba1st.com/image/smiley/face2017/164.png" referrerpolicy="no-referrer">
+
