@@ -105,3 +105,12 @@ valve的硬件有出过二代么<img src="https://static.saraba1st.com/image/smi
 
 有坛友推荐靠谱的店家吗，在B站看到某家叫小纯电玩爆出要你临时加钱的瓜<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nnnnick22  
+##### 1981#       发表于 2022-12-18 08:47
+
+日区总算到了 直接买了吸血鬼生还者在玩 老婆看到接近花十万日元的东西竟然拿来玩貌似二十年前的游戏直接崩溃
+
