@@ -385,3 +385,16 @@ dlc武器感觉四季和牙成型之后无脑全屏好爽啊，但是我是开�
 
 手机端操作有点难顶
 
+
+
+*****
+
+####  水边井  
+##### 521#       发表于 2022-12-18 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58992480&amp;ptid=2052594" target="_blank">紫沙狐 发表于 2022-12-18 16:12</a>
+死神怎么打  就冰冻刀+月桂能抗一下 分身出来就死</blockquote>
+分身能出来说明你杀得不够快，用圣歌女，拿圣水，叠持续范围冷却和力量，再拿冰刀月桂超武，你就可以挂机了
+
+—— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

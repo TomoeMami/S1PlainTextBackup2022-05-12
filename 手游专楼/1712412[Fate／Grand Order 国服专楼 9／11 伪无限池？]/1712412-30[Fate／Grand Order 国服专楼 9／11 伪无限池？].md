@@ -571,3 +571,12 @@ CBA没有补宝价值啊，该有的早有了
 
 瞌睡龙2宝够用了吗
 
+
+
+*****
+
+####  武者小路紫苑  
+##### 43852#       发表于 2022-12-18 17:17
+
+通古斯20号开，前一批卡面的和谐版也都放出来了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

@@ -159,3 +159,12 @@ g胖一般不会数3，所以2代板上钉钉妥妥的
 
 吸血鬼幸存者如果终局帧数会到个位数，记得在游戏设置里把性能模式打开，这样可以把终局帧数提到30-40
 
+
+
+*****
+
+####  Ryuji1145  
+##### 1986#       发表于 2022-12-18 17:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">推上看到有鬼子买SD来玩DOAXVV，好眼馋
+
