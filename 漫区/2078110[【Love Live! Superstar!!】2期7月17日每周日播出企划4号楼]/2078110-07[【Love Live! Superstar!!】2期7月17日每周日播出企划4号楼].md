@@ -17589,3 +17589,18 @@ pay
 这就不太清楚了，20、21年网信办倒是牵头搞了网络直播规范文件
 这个是文旅部牵头主要面向网络演出的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 10444#       发表于 2022-12-18 19:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58993856&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-12-18 17:57</a>
+
+我听着也好像啊
+
+鱼</blockquote>
+补一个emo，大概几个人一起去玩吧
+<img src="https://p.sda1.dev/8/96f194c52409a5d7415d327a840c15a6/FkLug0dagAEjFIR.jpg" referrerpolicy="no-referrer">
+

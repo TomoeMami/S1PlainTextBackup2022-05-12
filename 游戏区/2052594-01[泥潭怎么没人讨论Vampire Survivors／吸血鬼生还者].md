@@ -434,3 +434,14 @@ dlc武器感觉四季和牙成型之后无脑全屏好爽啊，但是我是开�
 
 现在解锁隐藏角色可以直接输入咒语确实人性化多了
 
+
+
+*****
+
+####  不见不散  
+##### 525#       发表于 2022-12-18 19:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58993697&amp;ptid=2052594" target="_blank">captoon 发表于 2022-12-18 17:42</a>
+破碎死神比女王强</blockquote>
+等你刷出个能用的，女王一局都打完了
+

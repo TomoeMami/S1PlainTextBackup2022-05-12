@@ -599,3 +599,15 @@ CBA没有补宝价值啊，该有的早有了
 
 但是黑杯卡面还没恢复
 
+
+
+*****
+
+####  kazemitoya  
+##### 43855#       发表于 2022-12-18 19:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58994546&amp;ptid=1712412" target="_blank">待宵 发表于 2022-12-18 18:50</a>
+
+但是黑杯卡面还没恢复</blockquote>
+但是，黑杯变大头娃娃后，在茫茫礼装中，反而变得更容易被找到了<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
+
