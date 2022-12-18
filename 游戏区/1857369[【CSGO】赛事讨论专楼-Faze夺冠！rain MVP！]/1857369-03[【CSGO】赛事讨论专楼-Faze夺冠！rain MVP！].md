@@ -199,3 +199,14 @@ g2打液体，不过决赛不好说的，epl都说决赛打液体随便宰宰，
 
 🦐哥都放两次狠话了，这次决赛不拿下心理治疗师得加班到圣诞了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
+
+
+*****
+
+####  heseran  
+##### 3024#       发表于 2022-12-18 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58988623&amp;ptid=1857369" target="_blank">doublehit 发表于 2022-12-18 10:57</a>
+🦐哥都放两次狠话了，这次决赛不拿下心理治疗师得加班到圣诞了另外blast跟G2被场外一堆妖魔鬼怪给炎 ...</blockquote>
+不是裹裹在推特带节奏吗？大肥猪的嘴脸丑陋得像他的那颗猪头一样，想知道电子哥和p元帅的心理状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

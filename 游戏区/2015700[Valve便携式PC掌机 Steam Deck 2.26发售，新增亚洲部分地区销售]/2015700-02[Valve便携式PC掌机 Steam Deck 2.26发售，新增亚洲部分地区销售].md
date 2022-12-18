@@ -137,3 +137,16 @@ g胖一般不会数3，所以2代板上钉钉妥妥的
 日区总算到了 直接买了吸血鬼生还者在玩 老婆看到接近花十万日元的东西竟然拿来玩貌似二十年前的游戏直接崩 ...</blockquote>
 话说我当时买也是为了这个，可以跑老头环给你老婆看看。
 
+
+
+*****
+
+####  李小狼  
+##### 1984#       发表于 2022-12-18 11:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58987821&amp;ptid=2015700" target="_blank">nnnnick22 发表于 2022-12-18 08:47</a>
+日区总算到了 直接买了吸血鬼生还者在玩 老婆看到接近花十万日元的东西竟然拿来玩貌似二十年前的游戏直接崩 ...</blockquote>
+一样，刷了掌机快一百小时了，我老婆问我这种小游戏为啥不用手机玩
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
