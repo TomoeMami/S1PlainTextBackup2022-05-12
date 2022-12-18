@@ -55,3 +55,14 @@ vgaminer也不光df一个儿子，miner游戏的分支还是挺多的。
 
 虽然买了但是应该是要等到出中文然后心情非常好不怕麻烦的时候才会玩把<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sepcorvus  
+##### 96#       发表于 2022-12-18 13:58
+
+好玩，有了这个，Farthest Frontier是一点也不想打开了。
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
