@@ -181,3 +181,12 @@ g2打液体，不过决赛不好说的，epl都说决赛打液体随便宰宰，
 但我还是想看g2输因为那样更有意思 ...</blockquote>
 那🦐这个头衔到退役都别想甩掉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年已经下滑
 
+
+
+*****
+
+####  Niyah  
+##### 3022#       发表于 2022-12-18 09:55
+
+看完小镇上半场就睡了，真没想到图二就能拿下啊
+
