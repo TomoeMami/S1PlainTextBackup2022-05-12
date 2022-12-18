@@ -5989,3 +5989,14 @@ ALcot的staff，昨天点赞了一条推，虽然感觉没什么特别的含义
 
 接下来该异色啥了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 3562#         楼主| 发表于 2022-12-18 22:24
+
+不过3000来说概率还好，当抽SSR了
+
+而且还是母的，还算运气不错
+
