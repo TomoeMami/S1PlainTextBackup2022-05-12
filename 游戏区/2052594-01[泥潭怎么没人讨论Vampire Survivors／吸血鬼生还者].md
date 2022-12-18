@@ -412,3 +412,16 @@ dlc武器感觉四季和牙成型之后无脑全屏好爽啊，但是我是开�
 ----发送自 STAGE1 App for Android. ...</blockquote>
 破碎死神比女王强
 
+
+
+*****
+
+####  三角瑛一  
+##### 523#       发表于 2022-12-18 18:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58992480&amp;ptid=2052594" target="_blank">紫沙狐 发表于 2022-12-18 16:12</a>
+死神怎么打  就冰冻刀+月桂能抗一下 分身出来就死</blockquote>
+是不是你其他武器伤害不够，正常堆满强力超武配合月桂和时钟刀超武都能杀死的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
