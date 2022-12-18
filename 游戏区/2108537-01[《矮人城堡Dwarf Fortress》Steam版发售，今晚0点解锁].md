@@ -115,3 +115,15 @@ B站上做这游戏视频的UP一个都看不进去
 看了下简中翻译进度有68%了，是不是下个月左右就能玩上中文了</blockquote>
 文本进度68%，技术进度0%
 
+
+
+*****
+
+####  scikirbypoke  
+##### 101#       发表于 2022-12-18 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58995752&amp;ptid=2108537" target="_blank">人性的灯塔 发表于 2022-12-18 20:29</a>
+
+看了下简中翻译进度有68%了，是不是下个月左右就能玩上中文了</blockquote>
+看贴吧说现在字体是作者手搓的像素图，毛子还在研究怎么塞TTF（进度0
+
