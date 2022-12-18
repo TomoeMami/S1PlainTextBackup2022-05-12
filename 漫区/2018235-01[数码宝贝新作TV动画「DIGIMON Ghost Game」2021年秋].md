@@ -64,3 +64,14 @@
 
 — from Sony 901SO, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.2-play
 
+
+
+*****
+
+####  月夜凝雪  
+##### 405#       发表于 2022-12-18 11:44
+
+究极体来了？
+
+—— 来自 Xiaomi M2006J10C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

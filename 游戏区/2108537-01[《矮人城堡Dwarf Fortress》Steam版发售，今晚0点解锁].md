@@ -25,3 +25,15 @@
 
 vgaminer也不光df一个儿子，miner游戏的分支还是挺多的。
 
+
+
+*****
+
+####  不会武术  
+##### 93#       发表于 2022-12-18 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58840838&amp;ptid=2108537" target="_blank">Nanachi 发表于 2022-12-9 01:09</a>
+
+这些倒也不用翻译吧，隔壁边缘世界也不翻译人名（有赞助者id）论坛助手,iPhone ...</blockquote>
+边缘世界的人物背景故事什么的是纯随机乱写的，，df好像是反过来的吧
+
