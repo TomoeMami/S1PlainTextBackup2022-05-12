@@ -24,3 +24,15 @@ gj的亲签很好抢啊，起码三分钟内都是买的到的</blockquote>
 
 顺便求一下六八九十月份壁纸。。。交论文毕业找工作又忘了存。。。需要啥自证都可以 救救
 
+
+
+*****
+
+####  andeloz  
+##### 9292#       发表于 2022-12-18 16:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58990984&amp;ptid=1947500" target="_blank">镶金好人卡 发表于 2022-12-18 14:20</a>
+
+顺便求一下六八九十月份壁纸。。。交论文毕业找工作又忘了存。。。需要啥自证都可以 救救 ...</blockquote>
+看下私信
+

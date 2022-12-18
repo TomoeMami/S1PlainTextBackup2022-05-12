@@ -369,3 +369,19 @@ dlc武器感觉四季和牙成型之后无脑全屏好爽啊，但是我是开�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  紫沙狐  
+##### 519#       发表于 2022-12-18 16:12
+
+死神怎么打  就冰冻刀+月桂能抗一下 分身出来就死<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+*****
+
+####  先生空气  
+##### 520#       发表于 2022-12-18 16:14
+
+手机端操作有点难顶
+
