@@ -17867,3 +17867,12 @@ NiiDORO677901
 
 整挺好，到明年一月前这个巡演小空档安排得不错<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cat1230  
+##### 10468#       发表于 2022-12-19 23:13
+
+明天那个有日本那边的转播吗？
+
