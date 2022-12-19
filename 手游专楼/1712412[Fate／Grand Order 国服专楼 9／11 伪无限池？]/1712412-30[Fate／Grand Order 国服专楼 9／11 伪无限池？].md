@@ -620,3 +620,15 @@ CBA没有补宝价值啊，该有的早有了
 
 通古斯相当于是主线剧情吗？
 
+
+
+*****
+
+####  UNISONIA  
+##### 43857#       发表于 2022-12-19 11:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59005764&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2022-12-19 11:06</a>
+
+通古斯相当于是主线剧情吗？</blockquote>
+是，虽然一开始藏着掖着试图不算主线，但是后面不但一结束就加入了Main Interlude，而且现在成了打2.7的必须要求了
+
