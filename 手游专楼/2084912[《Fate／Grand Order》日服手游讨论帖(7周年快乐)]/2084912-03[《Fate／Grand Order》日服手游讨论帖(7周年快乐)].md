@@ -9972,3 +9972,17 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 何况屁屁枪二代已经说了是今年最后的新Servant了吧，新圣诞之前再落魄都有新配布角色的
 
+
+
+*****
+
+####  刹海之绊  
+##### 3891#       发表于 2022-12-19 16:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59006190&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-19 11:44</a>
+
+哦，最近那边也是妖兰复刻，以为你发错楼了</blockquote>
+哈哈哈，确实 两边一起复刻了。
+
+我有点期待新年从者，希望继续是打手，可以接着省石头了
+
