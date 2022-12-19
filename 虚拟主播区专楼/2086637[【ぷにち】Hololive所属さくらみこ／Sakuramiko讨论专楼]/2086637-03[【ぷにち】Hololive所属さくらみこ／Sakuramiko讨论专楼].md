@@ -6143,3 +6143,14 @@ miko：世界杯是我赢了！
 
 色违结束了数字也不错， 是吸到宝P了吗？
 
+
+
+*****
+
+####  rs5621  
+##### 3575#       发表于 2022-12-19 20:25
+
+啊tkb！
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
