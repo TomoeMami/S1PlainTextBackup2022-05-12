@@ -56,3 +56,12 @@
 对，而且好像是刚好发到我这个月就停下来了。运气还不错</blockquote>
 感觉我的512要和oxp2比谁发的慢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  信长的呕吐  
+##### 554#       发表于 2022-12-19 19:17
+
+昨天收到了neo2 16+1黑 只不过阳性发烧到现在刚感觉好一点才拆 漂亮是真的漂亮 ayaspace是真的难用 
+
