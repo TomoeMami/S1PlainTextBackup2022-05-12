@@ -643,3 +643,14 @@ vta三期十人跟一二班一样也是分开上课，不过活动时间大概�
 
 不过既然大家都放了下期直播预告，估计处女航组今年内是不会出道了，吧
 
+
+
+*****
+
+####  kenqqex  
+##### 18060#       发表于 2022-12-19 20:56
+
+[https://www.bilibili.com/video/BV1R24y1D74D/](https://www.bilibili.com/video/BV1R24y1D74D/)
+
+【粤语TVB】星期日档案：Vtuber，“皮”下之“人”
+

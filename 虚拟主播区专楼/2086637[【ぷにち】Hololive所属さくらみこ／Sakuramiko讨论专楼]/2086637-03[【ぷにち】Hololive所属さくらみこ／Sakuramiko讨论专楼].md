@@ -6154,3 +6154,36 @@ miko：世界杯是我赢了！
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 3576#       发表于 2022-12-19 20:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钛晶不用么
+
+*****
+
+####  神澈  
+##### 3577#       发表于 2022-12-19 20:56
+
+打到对面没PP了，草。
+
+*****
+
+####  rs5621  
+##### 3578#       发表于 2022-12-19 20:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/19/205800r3zya5kdkzkdgngo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (29.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-19 20:58 上传
+
+出bug了
+
