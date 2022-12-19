@@ -17799,3 +17799,34 @@ pay
 
 当时广播一周年活动就是这家转播的
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10463#       发表于 2022-12-19 22:06
+
+<blockquote>#Liella!出演决定🎉
+
+12⽉31⽇（⼟）
+
+TBS深夜23时45分から⽣放送！
+
+#CDTVライブライブ
+
+年越しスペシャル ！2022→2023
+
+＼
+
+⚡️年越しもLiella!の応援
+
+よろしくお愿いいたします⚡️
+[https://tbs.co.jp/cdtv_livelive/](https://tbs.co.jp/cdtv_livelive/)
+
+Liella!の今までの楽曲は
+
+コチラから🙋‍♀️
+[https://lnk.to/liella](https://lnk.to/liella)
+
+#lovelive</blockquote>
+
