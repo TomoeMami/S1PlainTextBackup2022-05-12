@@ -888,3 +888,15 @@
 
 开荒荒谬，推到第七章被回乡路上的虫子打吐了，太离谱了
 
+
+
+*****
+
+####  adw667  
+##### 3076#       发表于 2022-12-19 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58997987&amp;ptid=2098044" target="_blank">最终兵器狂战 发表于 2022-12-18 22:37</a>
+
+30小时打完了一周目后还在琢磨这游戏就是挺不错的同人游戏那个感觉。还有点纳闷怎么通刷的都表示要60小时的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是缺少一个类似大秘境这样怪物数值无限膨胀的机制，装备盘和强化我基本没做，88小时全成就甚至打了两遍（因为第一遍选了低难度不得不一路SKIP打了第二遍）
+
