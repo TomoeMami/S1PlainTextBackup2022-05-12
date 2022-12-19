@@ -17781,3 +17781,12 @@ pay
 
 一直很疑惑为什么日谷亚克力很多都是在背面暴力表面UV，裸露涂层也不多给层保护。关键是两种打印法在价格上也没差多少，还不乏很多用途认定为挂件的，您自己看看背面那”光滑“的涂层，谁敢经常挂着出门？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 10461#       发表于 2022-12-19 19:02
+
+之前佐贺的live国内好像也是这家 贼便宜<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
+

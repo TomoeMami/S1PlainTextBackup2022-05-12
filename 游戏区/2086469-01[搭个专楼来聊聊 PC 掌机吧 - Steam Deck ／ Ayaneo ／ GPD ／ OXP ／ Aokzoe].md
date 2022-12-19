@@ -45,3 +45,14 @@
 你是16＋1t吗</blockquote>
 对，而且好像是刚好发到我这个月就停下来了。运气还不错<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  医生狼多  
+##### 553#       发表于 2022-12-19 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59010309&amp;ptid=2086469" target="_blank">Mzi 发表于 2022-12-19 18:08</a>
+对，而且好像是刚好发到我这个月就停下来了。运气还不错</blockquote>
+感觉我的512要和oxp2比谁发的慢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
