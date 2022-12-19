@@ -1188,3 +1188,17 @@ SE已经病入膏肓了。看看今年的外包破烂，该砍的不砍，不该
 紫龙搞这玩意，至少看起来 ...</blockquote>
 人设不能忍
 
+
+
+*****
+
+####  劳动改造归来  
+##### 106#       发表于 2022-12-19 12:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59006181&amp;ptid=2065685" target="_blank">卡奥斯·克斯拉 发表于 2022-12-19 11:44</a>
+
+人设不能忍</blockquote>
+人设的话，女性还好，男性就差了一点。
+
+这人设的风格，感觉就是7，8年前的那些弹窗广告里的那种，日式假欧美风
+
