@@ -17770,3 +17770,14 @@ pay
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ViyViy  
+##### 10460#       发表于 2022-12-19 18:21
+
+感谢祭立牌居然是柯式印刷，在日谷的亚克力里简直是珍稀物种。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一期OP和wishsong的那套Q版挂件也是。
+
+一直很疑惑为什么日谷亚克力很多都是在背面暴力表面UV，裸露涂层也不多给层保护。关键是两种打印法在价格上也没差多少，还不乏很多用途认定为挂件的，您自己看看背面那”光滑“的涂层，谁敢经常挂着出门？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
