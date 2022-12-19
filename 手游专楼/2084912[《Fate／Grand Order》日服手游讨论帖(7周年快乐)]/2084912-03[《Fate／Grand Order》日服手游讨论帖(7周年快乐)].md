@@ -10117,3 +10117,14 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 看到光狐狸又出来骗钱，想了下22年的新卡，好像就公主上场比较多，其他都是仓管，尤其是两个Berserker[f:06 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">还行啊，水伊吹在我这里上班。只是低宝飞骚太刮了。不对你说千利休？
 
+
+
+*****
+
+####  rooarr  
+##### 3905#       发表于 2022-12-19 22:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59012446&amp;ptid=2084912" target="_blank">areklose 发表于 2022-12-19 21:40</a>
+ 还行啊，水伊吹在我这里上班。只是低宝飞骚太刮了。不对你说千利休？22年新卡泳装3期我用得挺多得 ...</blockquote>
+想了下，可能是因为水依吹和千利休两个都是1宝，上了也是伤害不足所以感觉是仓管<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
