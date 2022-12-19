@@ -566,3 +566,19 @@ dlc武器感觉四季和牙成型之后无脑全屏好爽啊，但是我是开�
 刷金蛋也太垃圾时间了，我是做完成就能解锁的人物道具都解锁完就当毕业了，真要去刷金蛋提面板就感觉是为了 ...</blockquote>
 有了无限之后刷金太简单了，找个机子不用的时间女皇挂一盘商人挂一盘就金蛋自由了，体验一下超级属性的感觉再删游戏嘛
 
+
+
+*****
+
+####  afer  
+##### 536#       发表于 2022-12-20 01:17
+
+ 本帖最后由 afer 于 2022-12-20 01:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58996072&amp;ptid=2052594" target="_blank">crosz1985 发表于 2022-12-18 20:49</a>
+这手机版也太良心了
+
+论坛助手,iPhone</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">手机进度反超电脑，因为有广告复活轻松过死神，就等DLC了
+
+DLC这几个武器也是挂机玩意
+
