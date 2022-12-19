@@ -2570,3 +2570,15 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 —— 来自 Xiaomi 2211133C, Android 13上的 S1N ...</blockquote>
 原作者有没有下功夫亲自抓作品还是一眼就能看出来的
 
+
+
+*****
+
+####  midautumn  
+##### 2206#       发表于 2022-12-19 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58983671&amp;ptid=1860817" target="_blank">Toby_dak 发表于 2022-12-17 21:12</a>
+
+正传游戏不过是迈向大坑的第一步楼里的发言还涉及大量设定集、外传和模型等等的内容。</blockquote>
+慢慢补吧，下一部先补黑之宣告<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
