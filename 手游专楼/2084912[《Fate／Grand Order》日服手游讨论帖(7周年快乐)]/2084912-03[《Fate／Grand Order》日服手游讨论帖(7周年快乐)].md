@@ -10073,3 +10073,26 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上中下 终上终中终下  最终章上中下
 
+
+
+*****
+
+####  eilot  
+##### 3901#       发表于 2022-12-19 20:03
+
+25才来2.7，所以这星期会出狩猎本吗...
+
+*****
+
+####  eilot  
+##### 3902#       发表于 2022-12-19 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59010157&amp;ptid=2084912" target="_blank">areklose 发表于 2022-12-19 17:54</a>
+
+拆成几天能忍，别拆成3个月就行</blockquote>
+分拆3个月都要看质和量，首月只得象征性十多简单关卡，第2个月质和量都有，但就是最后还未完，最后难度是有但数量也不足
+
+只是这6月11到8月4除了主线外，还有没其他活动就...只得6月尾到7月初的尼录祭???
+
+狩猎本真是拖时间用万能手段
+
