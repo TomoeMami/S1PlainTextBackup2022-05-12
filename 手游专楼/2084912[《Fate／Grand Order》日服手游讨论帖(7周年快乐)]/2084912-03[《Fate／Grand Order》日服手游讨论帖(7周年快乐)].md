@@ -9915,3 +9915,27 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 终于把妖兰补5宝了，安安心心等明年新从者咯</blockquote>
 你来错地方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  刹海之绊  
+##### 3886#       发表于 2022-12-19 11:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59005123&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-19 10:15</a>
+
+你来错地方</blockquote>
+没来错啊 前几天不是妖兰复刻吗
+
+*****
+
+####  UNISONIA  
+##### 3887#       发表于 2022-12-19 11:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58933372&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-14 11:06</a>
+
+我以前看过一个说法：斋木澪可能是七夜志贵的妹妹，兄妹二人作为灭门种分别被斋木和远野收留...
+
+不过天 ...</blockquote>
+然而这个应该是黑莲吧【是镜子而不是冰】，而且黑莲的设定应该是可以跨世界观的（也就是老月姬世界存在、但是月R世界不存在的也可以参战MBTL）
+
