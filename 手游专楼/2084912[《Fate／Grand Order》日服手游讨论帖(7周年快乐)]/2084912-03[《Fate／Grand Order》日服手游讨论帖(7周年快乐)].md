@@ -9904,3 +9904,14 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">终于把妖兰补5宝了，安安心心等明年新从者咯
 
+
+
+*****
+
+####  khxooo  
+##### 3885#       发表于 2022-12-19 10:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59004844&amp;ptid=2084912" target="_blank">刹海之绊 发表于 2022-12-19 09:43</a>
+终于把妖兰补5宝了，安安心心等明年新从者咯</blockquote>
+你来错地方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
