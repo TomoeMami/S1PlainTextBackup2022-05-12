@@ -721,3 +721,12 @@ ihoo们干啥了，怎么这么有面子<img src="https://static.saraba1st.com/i
 
 看了个视频。。jks faze那场滚轮跳误触了3次。。一个关键残局，两次关键连杀。。
 
+
+
+*****
+
+####  朔方原的星  
+##### 3084#         楼主| 发表于 2022-12-20 00:38
+
+a队最终还是又去抽奖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">让人不禁想问真的有中奖的可能吗
+
