@@ -6118,3 +6118,19 @@ miko：世界杯是我赢了！
 
 一开播就兴致高涨啊，出了粉鳄就是不一样
 
+
+
+*****
+
+####  holoan  
+##### 3573#         楼主| 发表于 2022-12-19 19:31
+
+<blockquote>ソフマップにぺこみこ信者いるだろ
+
+前回のCD特典もぺこみこだったし</blockquote>
+
+[https://twitter.com/animegainfo/status/1377913808828559360](https://twitter.com/animegainfo/status/1377913808828559360)
+<img src="https://pbs.twimg.com/media/Ex9VMstUcAEAshW.jpg" referrerpolicy="no-referrer"> 
+
+草，真的，上次八字母特典也是softmap
+

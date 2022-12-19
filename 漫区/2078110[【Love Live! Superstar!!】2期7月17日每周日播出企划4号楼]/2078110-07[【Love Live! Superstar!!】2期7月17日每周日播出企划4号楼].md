@@ -17790,3 +17790,12 @@ pay
 
 之前佐贺的live国内好像也是这家 贼便宜<img src="https://cdn.jsdelivr.net/gh/master-of-forums/master-of-forums/public/images/patch.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10462#       发表于 2022-12-19 19:27
+
+当时广播一周年活动就是这家转播的
+
