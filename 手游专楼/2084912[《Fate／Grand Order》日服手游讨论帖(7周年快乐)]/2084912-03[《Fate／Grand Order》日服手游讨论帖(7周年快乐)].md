@@ -9895,3 +9895,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 啊，嫖错礼装了。20箱打完兑换都没毕业。应该嫖氪金礼装。。算了。摸了
 
+
+
+*****
+
+####  刹海之绊  
+##### 3884#       发表于 2022-12-19 09:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">终于把妖兰补5宝了，安安心心等明年新从者咯
+
