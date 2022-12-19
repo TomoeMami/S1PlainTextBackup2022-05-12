@@ -1230,3 +1230,14 @@ SE已经病入膏肓了。看看今年的外包破烂，该砍的不砍，不该
 啊……这……岚在汉语里可没有暴风雨的意思啊…… ...</blockquote>
 人家根本没想装，英文名直接叫Mecharashi
 
+
+
+*****
+
+####  vviosonia  
+##### 109#       发表于 2022-12-19 17:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">B测玩家可以自动获得本次测试资格，然而上次测试感觉并不是很好……
+
+—— 来自 samsung SM-S9080, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
