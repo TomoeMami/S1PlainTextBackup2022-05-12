@@ -1174,3 +1174,17 @@ SE已经病入膏肓了。看看今年的外包破烂，该砍的不砍，不该
 
 紫龙搞这玩意，至少看起来比那个原地跺脚的1R好多了。还给砍了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  卡奥斯·克斯拉  
+##### 105#       发表于 2022-12-19 11:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59005328&amp;ptid=2065685" target="_blank">christiny 发表于 2022-12-19 10:35</a>
+
+SE已经病入膏肓了。看看今年的外包破烂，该砍的不砍，不该砍的砍了。吃枣药丸。
+
+紫龙搞这玩意，至少看起来 ...</blockquote>
+人设不能忍
+
