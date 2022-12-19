@@ -10096,3 +10096,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 狩猎本真是拖时间用万能手段
 
+
+
+*****
+
+####  rooarr  
+##### 3903#       发表于 2022-12-19 21:26
+
+看到光狐狸又出来骗钱，想了下22年的新卡，好像就公主上场比较多，其他都是仓管，尤其是两个Berserker<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

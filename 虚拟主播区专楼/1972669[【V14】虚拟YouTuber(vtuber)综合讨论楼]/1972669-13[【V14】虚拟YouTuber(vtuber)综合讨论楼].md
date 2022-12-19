@@ -654,3 +654,17 @@ vta三期十人跟一二班一样也是分开上课，不过活动时间大概�
 
 【粤语TVB】星期日档案：Vtuber，“皮”下之“人”
 
+
+
+*****
+
+####  幻肢痛  
+##### 18061#       发表于 2022-12-19 21:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59012044&amp;ptid=1972669" target="_blank">kenqqex 发表于 2022-12-19 20:56</a>
+
+https://www.bilibili.com/video/BV1R24y1D74D/
+
+【粤语TVB】星期日档案：Vtuber，“皮”下之“人” ...</blockquote>
+什么杏奴的录影带
+
