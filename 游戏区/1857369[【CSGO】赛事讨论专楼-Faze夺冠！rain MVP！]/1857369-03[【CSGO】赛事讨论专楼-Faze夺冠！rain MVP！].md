@@ -739,3 +739,15 @@ a队最终还是又去抽奖了<img src="https://static.saraba1st.com/image/smil
 
 诸葛呼吸确实挺多乐子人狂热粉的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，改图太搞笑了，我也不讨厌好吧
 
+
+
+*****
+
+####  laputah  
+##### 3086#       发表于 2022-12-20 02:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59012589&amp;ptid=1857369" target="_blank">烟萝 发表于 2022-12-19 21:54</a>
+
+看了个视频。。jks faze那场滚轮跳误触了3次。。一个关键残局，两次关键连杀。。 ...</blockquote>
+弃用zowie的钢铁滚轮选择更泛用但是无线的鼠标的代价 
+
