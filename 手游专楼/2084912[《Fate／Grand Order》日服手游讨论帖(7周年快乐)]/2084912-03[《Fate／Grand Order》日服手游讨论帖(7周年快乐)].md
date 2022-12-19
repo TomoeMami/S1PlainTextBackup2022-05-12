@@ -9986,3 +9986,37 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 我有点期待新年从者，希望继续是打手，可以接着省石头了
 
+
+
+*****
+
+####  不垃圾屌丝  
+##### 3892#       发表于 2022-12-19 17:04
+
+杀狐UP
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  氤墨  
+##### 3893#       发表于 2022-12-19 17:04
+
+这限定池一个个开一副要关服的fu
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  alucardcz  
+##### 3894#       发表于 2022-12-19 17:06
+
+这卡池也开的太多了。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzxa  
+##### 3895#       发表于 2022-12-19 17:09
+
+圣诞节开2.7
+
