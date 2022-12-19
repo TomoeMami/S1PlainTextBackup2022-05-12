@@ -932,3 +932,15 @@
 群星吧。可以黑跟随的时候降低点难度，其他就靠血量和bd，莽的话狂暴流也可以，稳点血量到1w多能吃三下加 ...</blockquote>
 已经在慢慢刷了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前面夫妻双打倒是感觉还不算难，可以墙角升龙连到死。但是我主角现在血量才四千不到。虽然只是困难难度但还是进去随便中俩不明aoe人就当场没了。
 
+
+
+*****
+
+####  adw667  
+##### 3080#       发表于 2022-12-19 15:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59007848&amp;ptid=2098044" target="_blank">最终兵器狂战 发表于 2022-12-19 14:30</a>
+
+已经在慢慢刷了。前面夫妻双打倒是感觉还不算难，可以墙角升龙连到死。但是我主角现在血量才四千 ...</blockquote>
+四千不到确实低了点，强化一下宝石堆到七八千吧，或者把防堆到3200
+
