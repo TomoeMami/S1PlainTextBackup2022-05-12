@@ -1216,3 +1216,17 @@ SE已经病入膏肓了。看看今年的外包破烂，该砍的不砍，不该
 这人设的风格，感觉就是7，8年前的那些弹窗广告里的那种，日式假 ...</blockquote>
 棒子系
 
+
+
+*****
+
+####  赤井稻妻  
+##### 108#       发表于 2022-12-19 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58934927&amp;ptid=2065685" target="_blank">放大镜 发表于 2022-12-14 12:45</a>
+
+等等，听上去这个钢岚有原作而且还是国漫？
+
+啊……这……岚在汉语里可没有暴风雨的意思啊…… ...</blockquote>
+人家根本没想装，英文名直接叫Mecharashi
+
