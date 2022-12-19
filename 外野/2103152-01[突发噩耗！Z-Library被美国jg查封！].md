@@ -2507,3 +2507,16 @@ https://www.ahhhhfs.com/33104/
 搞个lib币，你们炒币我只看书就行了</blockquote>
 反了,区块链是学的bt电驴还差不多.
 
+
+
+*****
+
+####  Flyfish233  
+##### 278#       发表于 2022-12-19 08:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58267872&amp;ptid=2103152" target="_blank">Jet.Black 发表于 2022-11-4 11:05</a>
+区块链这么火，可以放书么
+
+搞个lib币，你们炒币我只看书就行了</blockquote>
+我用某区块链做网盘，泥潭群友推荐的，舒服
+
