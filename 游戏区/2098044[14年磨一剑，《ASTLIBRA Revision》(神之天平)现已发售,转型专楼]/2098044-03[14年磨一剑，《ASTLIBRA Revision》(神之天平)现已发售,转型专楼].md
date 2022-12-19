@@ -921,3 +921,14 @@
 30小时打完了一周目后还在琢磨这游戏就是挺不错的同人游戏那个感觉。还有点纳闷怎么通刷的都表示要60小时的 ...</blockquote>
 群星吧。可以黑跟随的时候降低点难度，其他就靠血量和bd，莽的话狂暴流也可以，稳点血量到1w多能吃三下加金蝉脱壳免伤。靠高攻速卡肉时停，空剑空抱加精甩技能回血。优先四小强的修女，光头红发，弓箭。夫妻双打都过了应该熟悉招式了。最后法师狂暴干
 
+
+
+*****
+
+####  最终兵器狂战  
+##### 3079#       发表于 2022-12-19 14:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59007624&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-12-19 14:07</a>
+群星吧。可以黑跟随的时候降低点难度，其他就靠血量和bd，莽的话狂暴流也可以，稳点血量到1w多能吃三下加 ...</blockquote>
+已经在慢慢刷了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前面夫妻双打倒是感觉还不算难，可以墙角升龙连到死。但是我主角现在血量才四千不到。虽然只是困难难度但还是进去随便中俩不明aoe人就当场没了。
+
