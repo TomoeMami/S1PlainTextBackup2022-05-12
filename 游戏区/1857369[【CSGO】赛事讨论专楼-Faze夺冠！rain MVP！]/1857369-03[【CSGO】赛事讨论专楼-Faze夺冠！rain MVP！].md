@@ -712,3 +712,12 @@ Jks今年赚麻了！冷面杀手颠沛流离的一年，收获满满啊<img src
 
 ihoo们干啥了，怎么这么有面子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  烟萝  
+##### 3083#       发表于 2022-12-19 21:54
+
+看了个视频。。jks faze那场滚轮跳误触了3次。。一个关键残局，两次关键连杀。。
+
