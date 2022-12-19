@@ -33,3 +33,15 @@
 
 我的16+1t黑色，是第一批发货的，但是赶上顺丰大规模延迟，正常今天应该能到，结果现在看轨迹是到所在城市就停了……
 
+
+
+*****
+
+####  Mzi  
+##### 552#       发表于 2022-12-19 18:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59009645&amp;ptid=2086469" target="_blank">医生狼多 发表于 2022-12-19 17:13</a>
+
+你是16＋1t吗</blockquote>
+对，而且好像是刚好发到我这个月就停下来了。运气还不错<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
