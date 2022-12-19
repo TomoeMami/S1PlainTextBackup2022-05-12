@@ -17848,3 +17848,22 @@ Liella!の今までの楽曲は
 
 跨年啦。。。所以
 
+
+
+*****
+
+####  仟音一心  
+##### 10466#       发表于 2022-12-19 23:05
+
+NiiDORO677901
+<img src="https://p.sda1.dev/8/c4d5db1ff7863a8e399003eb2f4bda93/CMP_20221219230512308.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  nufawneafg  
+##### 10467#       发表于 2022-12-19 23:07
+
+ 本帖最后由 nufawneafg 于 2022-12-19 23:09 编辑 
+
+整挺好，到明年一月前这个巡演小空档安排得不错<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
