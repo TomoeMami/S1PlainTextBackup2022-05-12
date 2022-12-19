@@ -80,3 +80,12 @@
 
 今年最满意的电子玩具
 
+
+
+*****
+
+####  Mzi  
+##### 556#       发表于 2022-12-19 20:16
+
+刚刚试了下声音震动功能...意外的很有趣。这东西比起精准的震动，体验上更像是握住了一个音箱的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">但是为什么只有使用喇叭的时候才有效果
+
