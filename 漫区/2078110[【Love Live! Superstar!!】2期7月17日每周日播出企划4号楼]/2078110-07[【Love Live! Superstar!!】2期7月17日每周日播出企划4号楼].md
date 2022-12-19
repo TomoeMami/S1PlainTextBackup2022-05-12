@@ -17658,3 +17658,17 @@ pay
 
 ----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  ads147147  
+##### 10450#       发表于 2022-12-19 08:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58994934&amp;ptid=2078110" target="_blank">Kfly 发表于 2022-12-18 19:30</a>
+我也是不太在意“的地得”的，觉得输入法打字没必要计较那么多
+鱼可能也是电子设备用多了罢 ...</blockquote>
+一般来说不写地和得只是因为笔画多太多了。。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
