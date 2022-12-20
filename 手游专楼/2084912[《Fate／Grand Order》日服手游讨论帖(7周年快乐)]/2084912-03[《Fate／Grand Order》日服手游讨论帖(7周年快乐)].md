@@ -10179,3 +10179,17 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕大佬们 我全是各种1宝只能仓库吃灰
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3911#       发表于 2022-12-20 09:59
+
+<blockquote>引用第3908楼khxooo于2022-12-20 09:07发表的  :
+
+引用:黑上シグマ 发表于 2022-12-20 08:48我这边公主也是常勤，因为C呆15绊退休了，......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活动外打本全带加绊礼装，NP礼装不存在的
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
