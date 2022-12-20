@@ -747,3 +747,25 @@ CBA没有补宝价值啊，该有的早有了
 礼装几张？</blockquote>
 五星1张，4星6张，凑合这用<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  苍蓝之枪  
+##### 43868#       发表于 2022-12-20 20:01
+
+最近上头，石头数量少了一半，结果也没抽出个所以然来，出货率还比平均水平稍低一点
+
+唯一欣慰的是出了第四张黑杯....
+
+通古斯又少了90
+
+有点虚了....
+
+*****
+
+####  DET33  
+##### 43869#       发表于 2022-12-20 20:02
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">本来抽友情池都非得不行，想想算了，结果没忍住又来了几发，还好出礼装了
+
