@@ -318,3 +318,15 @@
 
 明天的演出有转播吗，有鱼单独的开场，想看
 
+
+
+*****
+
+####  csolfans  
+##### 10527#       发表于 2022-12-20 21:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59024215&amp;ptid=2078110" target="_blank">caicaistar 发表于 2022-12-20 20:16</a>
+
+明天的演出有转播吗，有鱼单独的开场，想看</blockquote>
+9成没有
+

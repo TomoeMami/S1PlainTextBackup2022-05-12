@@ -585,3 +585,12 @@ EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
 看新剪影像是由芽，不会再来个二号位火的吧，真就是怎么恶心怎么来</blockquote>
 怎么看出是由芽的，按一般思路，活动上半卡池是俩骑手，下半应该是补齐同阵营俩枪手吧，我看有点像那个彩色头发的设计师姐姐，活动boss应该算剧透吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  MEKA  
+##### 202#       发表于 2022-12-20 21:11
+
+后篇卡池估计双火骑手+活动枪手了吧。卡池估计同组剩下2人，活动剪影那个马尾或者帽子看不出来是谁…盲猜个炎上子<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+

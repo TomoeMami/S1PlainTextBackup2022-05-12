@@ -826,3 +826,12 @@ CBA没有补宝价值啊，该有的早有了
 
 奥宝：要吐了
 
+
+
+*****
+
+####  sosgame67  
+##### 43874#       发表于 2022-12-20 21:02
+
+千石0五星，嘛，反正国服脸黑也习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
