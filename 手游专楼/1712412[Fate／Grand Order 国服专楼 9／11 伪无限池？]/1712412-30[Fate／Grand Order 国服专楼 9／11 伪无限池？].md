@@ -641,3 +641,15 @@ CBA没有补宝价值啊，该有的早有了
 
 那是不是得看看剧情了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 43859#       发表于 2022-12-20 18:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59006484&amp;ptid=1712412" target="_blank">AbigailWilliams 发表于 2022-12-19 12:20</a>
+
+那是不是得看看剧情了啊</blockquote>
+建议看看剧情再根据自己的实际感受去判断吧。起码我上一年的感受就是太公望对妲己没有那方面的感觉，至于太公望说妲己美的事情，对漂亮的人事物承认她的美有问题吗。当然这只是我个人的感受，无视就可以了。
+
