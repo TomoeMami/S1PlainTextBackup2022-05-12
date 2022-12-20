@@ -10140,3 +10140,22 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 想了下，可能是因为水依吹和千利休两个都是1宝，上了也是伤害不足所以感觉是仓管 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3宝水伊吹没下班过
 
+
+
+*****
+
+####  exiaexa  
+##### 3907#       发表于 2022-12-20 08:45
+
+我这边公主仓管到死，上场率还不如查理曼呼延灼和妖精骑士
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 3908#       发表于 2022-12-20 08:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我这边公主也是常勤，因为C呆15绊退休了，现在全靠公主打第一面，后面两面靠好友的C呆和水伊吹
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
