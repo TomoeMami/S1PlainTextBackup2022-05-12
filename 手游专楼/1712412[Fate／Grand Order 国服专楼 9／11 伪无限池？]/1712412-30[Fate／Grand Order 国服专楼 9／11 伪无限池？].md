@@ -848,3 +848,16 @@ CBA没有补宝价值啊，该有的早有了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  khxooo  
+##### 43876#       发表于 2022-12-20 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59025469&amp;ptid=1712412" target="_blank">dawning 发表于 2022-12-20 21:51</a>
+我在干什么，攒的石头竟然抽完了，
+结果五星礼装满破一张，太公望二宝，
+要好好刷活动了，不 ...</blockquote>
+典型上头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
