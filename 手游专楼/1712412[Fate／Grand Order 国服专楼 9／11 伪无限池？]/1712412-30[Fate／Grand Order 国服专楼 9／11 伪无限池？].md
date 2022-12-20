@@ -725,3 +725,25 @@ CBA没有补宝价值啊，该有的早有了
 
 四星歪了金转头，五星太公望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kazemitoya  
+##### 43866#       发表于 2022-12-20 19:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59023499&amp;ptid=1712412" target="_blank">dawning 发表于 2022-12-20 19:24</a>
+
+四星歪了金转头，五星太公望</blockquote>
+礼装几张？
+
+*****
+
+####  dawning  
+##### 43867#       发表于 2022-12-20 19:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59023658&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-12-20 19:33</a>
+
+礼装几张？</blockquote>
+五星1张，4星6张，凑合这用<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
