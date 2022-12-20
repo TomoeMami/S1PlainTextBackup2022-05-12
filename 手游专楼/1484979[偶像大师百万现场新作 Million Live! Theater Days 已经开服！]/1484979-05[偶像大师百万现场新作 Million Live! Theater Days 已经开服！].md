@@ -36,3 +36,14 @@
 活动曲感觉不是很抓我耳<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 蓝色的活动服比白色的好看一点点，打个9w换装券拿完就溜。
 
+
+
+*****
+
+####  moonmagian  
+##### 7043#       发表于 2022-12-20 15:17
+
+感觉25回活动live比9w麻烦，即使全打工也要吃不少体力药
+
+上次打够25回已经10w多了，真希望之后活动能稍微缓和一点改成20回<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
