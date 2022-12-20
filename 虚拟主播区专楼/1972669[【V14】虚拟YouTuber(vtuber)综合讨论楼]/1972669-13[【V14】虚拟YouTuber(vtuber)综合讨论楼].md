@@ -787,3 +787,29 @@ ankr早看圭利不爽了，好似
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次因为观众连麦直接开播阴阳运营都没啥事，这次直接连你工商都掀了，ankr下手变狠了呢
 
+
+
+*****
+
+####  psnsic8nag  
+##### 18074#       发表于 2022-12-20 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59024362&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-20 20:25</a>
+
+不至于吧，前几年圭利搞那么多事都没重罚，现在蹭了兔皇就自肃有点，不会是碍着什么活了吧 ...</blockquote>
+拿兔子黑粉做的曲子整活 也没经过兔子同意
+
+不是好似是什么？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 18075#       发表于 2022-12-20 20:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59024623&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-20 20:40</a>
+
+拿兔子黑粉做的曲子整活 也没经过兔子同意
+
+不是好似是什么？</blockquote>
+你这个阅读理解能力...我这句话的意思在于讨论圭利的受罚程度的轻重吗？问的是运营这种特殊行动的意味
+
