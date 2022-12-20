@@ -10159,3 +10159,23 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  khxooo  
+##### 3909#       发表于 2022-12-20 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59015223&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-12-20 08:48</a>
+我这边公主也是常勤，因为C呆15绊退休了，现在全靠公主打第一面，后面两面靠好友的C呆和水伊吹
+
+--- ...</blockquote>
+我个人是水伊吹带NP礼装，好友C呆加徐福/医神，除非打狂，否则回收都够的
+
+*****
+
+####  qixinno2  
+##### 3910#       发表于 2022-12-20 09:07
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕大佬们 我全是各种1宝只能仓库吃灰
+
