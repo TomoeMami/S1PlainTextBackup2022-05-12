@@ -17912,3 +17912,21 @@ NiiDORO677901
 
 灯光问题，鱼旁边主持人没做工科啊，被微博的人骂了念错名字，鱼怕是在憋了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10472#       发表于 2022-12-20 10:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怕不是困了
+
+*****
+
+####  iuhehc  
+##### 10473#       发表于 2022-12-20 10:51
+
+这个有转播？！
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

@@ -7988,3 +7988,18 @@ DIY#11作监お手伝いさせていただきました
 
 布丁女士转娇之后真是够甜。而且既然提出来了最后一集应该会解释一下布丁外号的来源吧，虽然片外看是谐音但片内这样就有点强行了，感觉是不是还有糖在里面。
 
+
+
+*****
+
+####  千恋万花  
+##### 592#       发表于 2022-12-20 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59014834&amp;ptid=1994951" target="_blank">堆雪若叶 发表于 2022-12-20 06:53</a>
+
+布丁女士转娇之后真是够甜。而且既然提出来了最后一集应该会解释一下布丁外号的来源吧，虽然片外看是谐音但 ...</blockquote>
+第 2 集稍微提了一下，但是没直接点破，人物简介里倒是直接说了，就是源自生气时鼓起的脸颊像布丁（怒るとぷーっとほっぺたを膨らませる癖から『ぷりん』とあだ名がついた。）。
+<img src="https://p.sda1.dev/8/0288108db95df67c272dae33e7116111/2022-12-20-1042_57.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/c9ccd4b7c7fa820f273312d4306cbcbb/2022-12-20-1043_13.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/6b8c7ec2e3ea71dc55f685769c34da82/2022-12-20-1043_30.jpg" referrerpolicy="no-referrer">
+
