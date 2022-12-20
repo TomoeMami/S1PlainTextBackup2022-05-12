@@ -78,3 +78,13 @@ R1的符文取消比R2的用着舒服太多了。
 第一段平A窗口不好用，闪避取消第二段也还行。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还有ps5手柄R2键程好长，按着难受。
 
+
+
+*****
+
+####  碎镜子  
+##### 1954#       发表于 2022-12-20 16:48
+
+光辉套这面板真看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+还把魔男时间调这么短真难受。
+
