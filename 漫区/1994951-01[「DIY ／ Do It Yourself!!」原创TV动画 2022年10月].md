@@ -8012,3 +8012,40 @@ DIY#11作监お手伝いさせていただきました
 
 self果然是故意养成布丁的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 594#       发表于 2022-12-20 16:03
+
+【すてっぷ⑫】ＤＩＹって、どんなときも・いつまでも・ゆうじょう！
+
+ついに『秘密基地』が完成した。
+
+せるふたちは、１学期の終業式の後、完成したばかりの秘密基地で、ささやかなお祝いをする。
+
+壁には隙間が空いていたり、床は少し傾いていたりと、出来は完璧ではない。それでもいい。
+
+仲間たちで、自分たちの力で、夢を作り上げたことに、皆、深い満足感に満ちている……。
+
+そして、夏休み。留学期間を終えたジョブ子は、せるふたちとの再会を誓い、アメリカに帰っていく。
+
+ぷりんはせるふを、ＤＩＹ部へと誘う。
+
+ぷりんは、秘密基地にはまだ足りないものがあるといい、せるふとふたりだけで作業を始める……。
+
+脚本：筆安一幸
+
+絵コンテ：米田和弘
+
+演出：中込健人
+
+作画監督：上原史之 福永智子 吉田南 加藤けえ
+
+<img src="https://p.sda1.dev/8/4b92f9f7a6a8f5ca569b271679c21dc6/5f7857c919a8684b0da241cac3b9e6cc.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0f9a2a934a2e60a527a53456cce690a7/caf5d385d7cf631696cbbfd28ae8000e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/06f9acea226947bbda2659fa14d0f7b3/dca2b9dd474faae5826130d7367a5610.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/6b804002f71cf098c0070be054660989/2ec8baef3504c5f59516ab2df1f09166.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/8/0bf650095151f7303b3f37337c1c23a2/6310f8dc3161ff609fb2c3dbcb4d92b4.jpg" referrerpolicy="no-referrer">
+
