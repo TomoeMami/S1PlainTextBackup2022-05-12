@@ -44,3 +44,19 @@
 这场松冈在的话怕不是又是别的画风了</blockquote>
 松岗没来，所以现在三个人都很开心，这不是一件好事吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 6810#       发表于 2022-12-20 17:03
+
+【表纸初公开】
+
+ラブライブ！シリーズの最新情报をお届けするLoveLive!Days 2023年2月号は12月28日（水）発売！
+
+表纸を饰るのは『ラブライブ！虹ヶ咲学园スクールアイドル同好会』R3BIRTHの三船栞子、ミア・テイラー、钟 岚珠！
+
+伊能津氏の描き下ろしイラストで表纸に登场です♪
+<img src="https://p.sda1.dev/8/5afe1670abe7bd0aa1bfb67b0a3f01b4/20221220_170222.jpg" referrerpolicy="no-referrer">
+
