@@ -3916,3 +3916,14 @@ IGN7分<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" ref
 
 观感太差，还不如把TV版BLACK剧情重新整理一下更好。
 
+
+
+*****
+
+####  7sevenseven  
+##### 384#       发表于 2022-12-20 16:59
+
+什么玩意
+
+我有多少年没见过这种节奏慢的要死，信息量过少的片了
+
