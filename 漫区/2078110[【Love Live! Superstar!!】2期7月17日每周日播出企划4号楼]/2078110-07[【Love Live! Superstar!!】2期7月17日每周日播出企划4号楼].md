@@ -18046,3 +18046,62 @@ QQ图片20221220121827.jpg
 
 <img src="https://img.saraba1st.com/forum/202212/20/121907kb00fe380f886rpf.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cybernetics31  
+##### 10484#       发表于 2022-12-20 12:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真有直播的话也是很无聊了估计
+
+*****
+
+####  nufawneafg  
+##### 10485#       发表于 2022-12-20 12:26
+
+这种红毯活动肯定无聊啊，就叫人露露面，又不是什么能随便整活的天王巨星，都是该干啥干啥状态<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10486#       发表于 2022-12-20 12:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">想让白鹏给我创一下
+
+*****
+
+####  奥柏伦亲王  
+##### 10487#       发表于 2022-12-20 12:31
+
+嘛，商务活动，刷刷脸罢了，无聊是可以预见的，上班是这样的呀（
+
+继续转点微博上的图
+
+1.jpg
+(37.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-20 12:31 上传
+
+<img src="https://img.saraba1st.com/forum/202212/20/123125adlz2odxzmzzyjqe.jpg" referrerpolicy="no-referrer">
+
+2.jpg
+(101.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-20 12:31 上传
+
+<img src="https://img.saraba1st.com/forum/202212/20/123125i9xxx4bbxppx9ixp.jpg" referrerpolicy="no-referrer">
+
+3.jpg
+(130.81 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-20 12:31 上传
+
+<img src="https://img.saraba1st.com/forum/202212/20/123125rqkirsdi5jigsppi.jpg" referrerpolicy="no-referrer">
+
