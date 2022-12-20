@@ -697,3 +697,22 @@ https://www.bilibili.com/video/BV1R24y1D74D/
 
 就是不知道开不开放版权让直播，别跟弹丸论破似的只给直播第一章
 
+
+
+*****
+
+####  winda  
+##### 18065#       发表于 2022-12-20 19:29
+
+没想到圭利这就吃自肃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+唱个佩桑neta曲就要被抓去暗部审讯了么
+
+*****
+
+####  poipanchao  
+##### 18066#       发表于 2022-12-20 19:29
+
+vspo这次年会偷偷开，完全没有事先暗示
+结束了连回顾都没多少信息
+红了以后确实要注意一下线下被搞了
+

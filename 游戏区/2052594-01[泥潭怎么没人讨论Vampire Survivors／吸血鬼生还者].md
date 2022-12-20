@@ -582,3 +582,12 @@ dlc武器感觉四季和牙成型之后无脑全屏好爽啊，但是我是开�
 
 DLC这几个武器也是挂机玩意
 
+
+
+*****
+
+####  芷雅居  
+##### 537#       发表于 2022-12-20 19:26
+
+好爽，这就是年度爽游了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
