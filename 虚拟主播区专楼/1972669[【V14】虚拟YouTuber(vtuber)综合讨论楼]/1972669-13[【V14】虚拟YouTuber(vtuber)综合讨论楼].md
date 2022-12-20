@@ -778,3 +778,12 @@ ankr早看圭利不爽了，好似
 
 不至于吧，前几年圭利搞那么多事都没重罚，现在蹭了兔皇就自肃有点，不会是碍着什么活了吧
 
+
+
+*****
+
+####  winda  
+##### 18073#       发表于 2022-12-20 20:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次因为观众连麦直接开播阴阳运营都没啥事，这次直接连你工商都掀了，ankr下手变狠了呢
+
