@@ -8003,3 +8003,12 @@ DIY#11作监お手伝いさせていただきました
 <img src="https://p.sda1.dev/8/c9ccd4b7c7fa820f273312d4306cbcbb/2022-12-20-1043_13.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/6b8c7ec2e3ea71dc55f685769c34da82/2022-12-20-1043_30.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  伊地知星歌  
+##### 593#       发表于 2022-12-20 11:22
+
+self果然是故意养成布丁的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
