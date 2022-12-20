@@ -18180,3 +18180,39 @@ Nako甚至还在推特工商<img src="https://static.saraba1st.com/image/smiley/
 
 微博这几个奖连名字都不能好好编一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 10497#       发表于 2022-12-20 14:52
+
+虚拟又不完全虚拟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+45105.jpg
+(27.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-20 14:52 上传
+
+<img src="https://img.saraba1st.com/forum/202212/20/145233ozid9w1aoescccag.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  cat1230  
+##### 10498#       发表于 2022-12-20 14:56
+
+咧啦成管人了？
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  cat1230  
+##### 10499#       发表于 2022-12-20 14:59
+
+想了想，2.5次元偶像在中文语境下有比较正式的分类吗？虚拟偶像不对直接叫2.5也正式，直接叫偶像前面一堆正牌3次元偶像又碾压你。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
