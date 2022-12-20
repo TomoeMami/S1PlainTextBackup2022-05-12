@@ -6303,3 +6303,36 @@ miko：世界杯是我赢了！
 
 之前完全没有任何预告或者提示
 
+
+
+*****
+
+####  神澈  
+##### 3591#       发表于 2022-12-20 22:53
+
+前天直播时候说“没新衣了，这辈子都没了”，跟上次出新衣时候说的一模一样，猜就是新衣了。
+
+*****
+
+####  holoan  
+##### 3592#         楼主| 发表于 2022-12-20 22:56
+
+那个啊，不是她主动提的只是刚好从其他话题引出来刚好观众又说了一嘴才回应的，要说那个是的话很牵强
+
+*****
+
+####  rs5621  
+##### 3593#       发表于 2022-12-20 22:57
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/20/225737viw2ate8wgo0oe5r.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (7.59 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-20 22:57 上传
+
+看困你就去睡觉
+
