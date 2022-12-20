@@ -207,3 +207,14 @@ g胖一般不会数3，所以2代板上钉钉妥妥的
 
 安心了，继续慢慢等
 
+
+
+*****
+
+####  褪色的雪花  
+##### 1988#       发表于 2022-12-20 22:22
+
+底座买哪个好
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

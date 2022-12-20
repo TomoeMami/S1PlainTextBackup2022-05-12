@@ -339,3 +339,12 @@
 
 FMT那五首特典solo，BD版都修音了。跟直播源对比，香堇两首修得好明显
 
+
+
+*****
+
+####  cqc1021  
+##### 10529#       发表于 2022-12-20 22:20
+
+话说，你鲤鱼姐作为曾经的叔叔旗下艺人，去主持夹总搞的活动，这算不算一种NTR<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
