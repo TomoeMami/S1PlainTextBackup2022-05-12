@@ -673,3 +673,44 @@ CBA没有补宝价值啊，该有的早有了
 
 出乎意料的欧，120石1护符2宝太公望
 
+
+
+*****
+
+####  电波系腑海林  
+##### 43862#       发表于 2022-12-20 19:12
+
+15发呼符每样各来一个，二宝等歪了，全力备战明年巴姐和公主。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  Ousia  
+##### 43863#       发表于 2022-12-20 19:13
+
+ 本帖最后由 Ousia 于 2022-12-20 19:16 编辑 
+
+原计划太公望就是抽到2宝为止，结果又狗了，5星礼装就1张<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+反正之前打算把妖兰刷到12绊就好，前几天莫名其妙狗了通古斯也不用怎么刷<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+呼符忘了抽，结果3宝了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kazemitoya  
+##### 43864#       发表于 2022-12-20 19:14
+
+90石头，4个白毛，1个呆毛，1张五星礼装，  其中最后一下回本。我知足了，不算空军
+
+你们懂连续3次心脏骤停的感觉吗
+
+<img src="https://img.saraba1st.com/forum/202212/20/191325mylz0hg0kkrdelvd.jpg" referrerpolicy="no-referrer">
+
+<strong>微信图片_20221220191257.jpg</strong> (571.03 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-20 19:13 上传
+
