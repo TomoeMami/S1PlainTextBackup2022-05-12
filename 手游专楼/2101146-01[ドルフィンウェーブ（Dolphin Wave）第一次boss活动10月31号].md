@@ -573,3 +573,15 @@ EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
 
 看新剪影像是由芽，不会再来个二号位火的吧，真就是怎么恶心怎么来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 201#         楼主| 发表于 2022-12-20 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59021868&amp;ptid=2101146" target="_blank">kulanyee 发表于 2022-12-20 17:43</a>
+
+看新剪影像是由芽，不会再来个二号位火的吧，真就是怎么恶心怎么来</blockquote>
+怎么看出是由芽的，按一般思路，活动上半卡池是俩骑手，下半应该是补齐同阵营俩枪手吧，我看有点像那个彩色头发的设计师姐姐，活动boss应该算剧透吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
