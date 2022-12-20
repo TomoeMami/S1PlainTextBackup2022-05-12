@@ -23,3 +23,24 @@
 【中字】前田鬼头相继吃瘪、明里yada连呼、前田泪目——いせれべ特番综艺环节 UP主: 黄狗A梦 https://www.b ...</blockquote>
 有..但是灯的角色不是主角 没去生放
 
+
+
+*****
+
+####  稀勢のささ  
+##### 6808#       发表于 2022-12-20 11:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59015476&amp;ptid=1959558" target="_blank">ads147147 发表于 2022-12-20 09:19</a>
+【中字】前田鬼头相继吃瘪、明里yada连呼、前田泪目——いせれべ特番综艺环节 UP主: 黄狗A梦 https://www.b ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这场松冈在的话怕不是又是别的画风了
+
+*****
+
+####  ads147147  
+##### 6809#       发表于 2022-12-20 11:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59016987&amp;ptid=1959558" target="_blank">稀勢のささ 发表于 2022-12-20 11:12</a>
+
+这场松冈在的话怕不是又是别的画风了</blockquote>
+松岗没来，所以现在三个人都很开心，这不是一件好事吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
