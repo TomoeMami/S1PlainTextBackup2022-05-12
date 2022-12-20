@@ -813,3 +813,33 @@ ankr早看圭利不爽了，好似
 不是好似是什么？</blockquote>
 你这个阅读理解能力...我这句话的意思在于讨论圭利的受罚程度的轻重吗？问的是运营这种特殊行动的意味
 
+
+
+*****
+
+####  alcoholic1000  
+##### 18076#       发表于 2022-12-20 20:55
+
+你虹最近血流漂杵，要给股东们看到什么决心吗
+
+*****
+
+####  渡鸦骑士  
+##### 18077#       发表于 2022-12-20 20:58
+
+不知道，但是这几天股票还在跌<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 18078#       发表于 2022-12-20 20:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59024623&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-20 20:40</a>
+
+拿兔子黑粉做的曲子整活 也没经过兔子同意
+
+不是好似是什么？</blockquote>
+还“经过兔子同意”，经过人同意唱anti歌吗<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">，又不是魔乃，
+
+如果圭利补一句：我跟pkr认识，歌是真的，那确实就是好似<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
