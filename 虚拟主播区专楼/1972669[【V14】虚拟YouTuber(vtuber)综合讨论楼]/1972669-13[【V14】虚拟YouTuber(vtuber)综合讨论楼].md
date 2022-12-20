@@ -889,3 +889,16 @@ ankr早看圭利不爽了，好似
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不说圭利简介栏写的那句话真是精妙，日语博大精深啊
 
+
+
+*****
+
+####  Suny08  
+##### 18084#       发表于 2022-12-20 22:09
+
+<blockquote>winda 发表于 2022-12-20 19:29
+没想到圭利这就吃自肃了
+
+唱个佩桑neta曲就要被抓去暗部审讯了么</blockquote>
+被暗部审讯？直接被暗部录取了！巨魔liver巨魔观众，这样的社区简直太棒了
+
