@@ -873,3 +873,19 @@ ankr早看圭利不爽了，好似
 
 我觉得这种程度的话是不是liver本人/代理去要说法了
 
+
+
+*****
+
+####  dybang  
+##### 18082#       发表于 2022-12-20 21:37
+
+就是瞎蹭了个大的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">路人也能一人一口唾沫淹死你，当然要早点止损
+
+*****
+
+####  ヒトニナル  
+##### 18083#       发表于 2022-12-20 21:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不说圭利简介栏写的那句话真是精妙，日语博大精深啊
+
