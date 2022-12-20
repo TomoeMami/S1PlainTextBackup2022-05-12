@@ -348,3 +348,24 @@ FMT那五首特典solo，BD版都修音了。跟直播源对比，香堇两首�
 
 话说，你鲤鱼姐作为曾经的叔叔旗下艺人，去主持夹总搞的活动，这算不算一种NTR<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  nufawneafg  
+##### 10530#       发表于 2022-12-20 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59025944&amp;ptid=2078110" target="_blank">cqc1021 发表于 2022-12-20 22:20</a>
+话说，你鲤鱼姐作为曾经的叔叔旗下艺人，去主持夹总搞的活动，这算不算一种NTR ...</blockquote>
+这就不太懂了，没有竞业限制协议的话，跳个槽也是正常现象吧
+何况连跳槽都不算主持个活动而已，想象力不错，你是懂牛头人的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  aoaoaodedede  
+##### 10531#       发表于 2022-12-20 22:31
+
+鲤鱼啥时候不是B站的艺人了啊，有看过鱼的碟片staff表就应该能看到B站的人
+
