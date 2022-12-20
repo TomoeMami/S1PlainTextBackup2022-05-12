@@ -591,3 +591,26 @@ DLC这几个武器也是挂机玩意
 
 好爽，这就是年度爽游了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 538#       发表于 2022-12-20 19:56
+
+ 本帖最后由 哈迪斯兜帽 于 2022-12-20 19:59 编辑 
+
+彩虹鸟确实彳亍
+
+昨天没钱强化，也不知道能组合武器
+
+今天终于打爽了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/20/195447ri4mgiyztijwziav.jpg" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221220195416.jpg</strong> (308.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-20 19:54 上传
+
