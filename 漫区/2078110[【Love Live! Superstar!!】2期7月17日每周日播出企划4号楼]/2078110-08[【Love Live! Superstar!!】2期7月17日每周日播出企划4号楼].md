@@ -100,3 +100,43 @@
 
 2022-12-20 15:29 上传
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10510#       发表于 2022-12-20 15:34
+
+[https://www.youtube.com/watch?v=Z-PB3gudC5Y&amp;t=187s](https://www.youtube.com/watch?v=Z-PB3gudC5Y&amp;t=187s) liella部分的视频
+
+*****
+
+####  奥柏伦亲王  
+##### 10511#       发表于 2022-12-20 15:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那个话筒一拿上来一期生全都绷不住了
+
+*****
+
+####  愛さ実  
+##### 10512#       发表于 2022-12-20 15:40
+
+<img src="https://img.saraba1st.com/forum/202212/20/154028b1b3aewka11y3bp8.jpg" referrerpolicy="no-referrer">
+
+<strong>E568A566-DEF0-42D5-B629-42FA1F592971.jpg</strong> (684.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-20 15:40 上传
+
+日文是写的ip偶像奖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  优妮可  
+##### 10513#       发表于 2022-12-20 15:40
+
+鱼伸手想帮忙的，鲨鱼自己往下掰了
+

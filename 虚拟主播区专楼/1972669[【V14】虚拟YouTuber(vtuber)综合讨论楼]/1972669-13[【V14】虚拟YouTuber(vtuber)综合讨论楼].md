@@ -686,3 +686,14 @@ https://www.bilibili.com/video/BV1R24y1D74D/
 
 别别别，海猫这画放现在有几个新观众能受得了，真不敢玩，放过莎吧<img src="https://static.saraba1st.com/image/smiley/face2017/104.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  高等黑暗  
+##### 18064#       发表于 2022-12-20 15:33
+
+如果愿意的话可以玩PS4版 画面全是重新画的，还有cv配音
+
+就是不知道开不开放版权让直播，别跟弹丸论破似的只给直播第一章
+
