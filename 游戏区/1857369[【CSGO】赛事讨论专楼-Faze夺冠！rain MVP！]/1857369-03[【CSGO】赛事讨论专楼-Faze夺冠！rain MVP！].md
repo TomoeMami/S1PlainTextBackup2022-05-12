@@ -751,3 +751,12 @@ a队最终还是又去抽奖了<img src="https://static.saraba1st.com/image/smil
 看了个视频。。jks faze那场滚轮跳误触了3次。。一个关键残局，两次关键连杀。。 ...</blockquote>
 弃用zowie的钢铁滚轮选择更泛用但是无线的鼠标的代价 
 
+
+
+*****
+
+####  dev2ce  
+##### 3087#       发表于 2022-12-20 13:01
+
+现在一线队里最多两个老人，a队都几个了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大壮还日常bait，没啥戏
+
