@@ -253,3 +253,25 @@
 这个有人切片吗</blockquote>
 【Liella! 微博群英会 颁奖式-哔哩哔哩】 [https://b23.tv/abKncmF](https://b23.tv/abKncmF)
 
+
+
+*****
+
+####  adw667  
+##### 10522#       发表于 2022-12-20 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59019769&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-12-20 14:59</a>
+
+想了想，2.5次元偶像在中文语境下有比较正式的分类吗？虚拟偶像不对直接叫2.5也正式，直接叫偶像前面一堆正 ...</blockquote>
+多媒体偶像
+
+*****
+
+####  ruffian  
+##### 10523#       发表于 2022-12-20 17:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59020538&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-20 16:00:47</a>
+集邮成功（每次都是你</blockquote>表情逐渐平和(）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
