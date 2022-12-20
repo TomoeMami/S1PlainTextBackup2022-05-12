@@ -111,3 +111,14 @@
 
 天狼星兽没有手看着怪怪的，后续伽马兽再进化应该就是轩辕十四兽→大角星兽了，最后应该还会进化成比邻星兽。看预告下集莉莉丝兽要登场，又有涩涩的数码宝贝看了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Mc凉月奏酱  
+##### 409#       发表于 2022-12-21 02:34
+
+主角团周围这几个同学多少有点倒霉吧 跟柯南的同学有一拼了
+
+而且这批人还反复遭受记忆操作 怎么想都很不妙吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+

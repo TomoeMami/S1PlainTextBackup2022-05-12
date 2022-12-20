@@ -949,3 +949,14 @@ it's ark time
 
 不过最近确实辞了一个，走了一个，肃了一个。
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18089#       发表于 2022-12-21 03:53
+
+有种圭利没事就婊运营，这下终于被运营抓住小辫子来了记狠的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
