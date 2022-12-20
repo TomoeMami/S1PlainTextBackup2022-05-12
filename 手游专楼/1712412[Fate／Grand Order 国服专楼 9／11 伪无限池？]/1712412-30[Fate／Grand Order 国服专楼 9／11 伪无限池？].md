@@ -835,3 +835,16 @@ CBA没有补宝价值啊，该有的早有了
 
 千石0五星，嘛，反正国服脸黑也习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dawning  
+##### 43875#       发表于 2022-12-20 21:51
+
+我在干什么，攒的石头竟然抽完了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+结果五星礼装满破一张，太公望二宝<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">，
+要好好刷活动了，不然就亏大了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
