@@ -140,3 +140,21 @@
 
 鱼伸手想帮忙的，鲨鱼自己往下掰了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10514#       发表于 2022-12-20 15:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">pay没笑，只是差点没憋住
+
+*****
+
+####  ruffian  
+##### 10515#       发表于 2022-12-20 15:50
+
+话筒刚拿上来一期生就笑出来了，pay憋得很努力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
