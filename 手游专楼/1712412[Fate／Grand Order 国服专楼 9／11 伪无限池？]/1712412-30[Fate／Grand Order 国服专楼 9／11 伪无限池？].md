@@ -769,3 +769,30 @@ CBA没有补宝价值啊，该有的早有了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">本来抽友情池都非得不行，想想算了，结果没忍住又来了几发，还好出礼装了
 
+
+
+*****
+
+####  kuarwbwe  
+##### 43870#       发表于 2022-12-20 20:15
+
+<img src="https://img.saraba1st.com/forum/202212/20/201423d0xzeksks4297s2z.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221220_194437.jpg</strong> (793.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-20 20:14 上传
+
+第一个十连就出了，双黄，抽完发现忘了给太公望留芙芙了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kazemitoya  
+##### 43871#       发表于 2022-12-20 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59024205&amp;ptid=1712412" target="_blank">kuarwbwe 发表于 2022-12-20 20:15</a>
+
+第一个十连就出了，双黄，抽完发现忘了给太公望留芙芙了。</blockquote>
+狠狠吸一口仙气！！！！！！
+

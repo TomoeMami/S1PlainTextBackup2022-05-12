@@ -749,3 +749,14 @@ vspo这次年会偷偷开，完全没有事先暗示
 
 这种一般不是粉丝负责炎上嘛，居然是运营出手，难得啊！
 
+
+
+*****
+
+####  真飞鸟i  
+##### 18070#       发表于 2022-12-20 20:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前肯定无所谓啊，但是你这刚签了虹杏亲善合约，就搞这一出多少有点把自己家的脸也打了。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
