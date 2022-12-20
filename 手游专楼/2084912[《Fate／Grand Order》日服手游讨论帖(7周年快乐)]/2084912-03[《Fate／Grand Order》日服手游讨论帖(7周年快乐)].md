@@ -10193,3 +10193,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  khxooo  
+##### 3912#       发表于 2022-12-20 12:07
+
+还是向现实低头了，3单，歪奥德休斯、小太阳才抽到<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">，这次来了几个金骑，蛋糕，马达和毛子猫
+
