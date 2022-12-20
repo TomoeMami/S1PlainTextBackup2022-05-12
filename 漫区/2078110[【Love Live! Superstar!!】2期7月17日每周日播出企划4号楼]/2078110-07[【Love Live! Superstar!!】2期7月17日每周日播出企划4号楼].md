@@ -17903,3 +17903,12 @@ NiiDORO677901
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咋愁眉了
 
+
+
+*****
+
+####  优妮可  
+##### 10471#       发表于 2022-12-20 10:40
+
+灯光问题，鱼旁边主持人没做工科啊，被微博的人骂了念错名字，鱼怕是在憋了
+
