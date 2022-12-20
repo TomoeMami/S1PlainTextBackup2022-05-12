@@ -760,3 +760,21 @@ vspo这次年会偷偷开，完全没有事先暗示
 
 —— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  aritaatsu  
+##### 18071#       发表于 2022-12-20 20:20
+
+ankr早看圭利不爽了，好似
+
+不破这阵子不悯过头了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">但他走了还不知道有没有夜王国
+
+*****
+
+####  rzrbtk  
+##### 18072#       发表于 2022-12-20 20:25
+
+不至于吧，前几年圭利搞那么多事都没重罚，现在蹭了兔皇就自肃有点，不会是碍着什么活了吧
+
