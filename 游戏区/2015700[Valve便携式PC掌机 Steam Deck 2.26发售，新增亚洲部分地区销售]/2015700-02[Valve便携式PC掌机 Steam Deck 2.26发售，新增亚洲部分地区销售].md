@@ -218,3 +218,12 @@ g胖一般不会数3，所以2代板上钉钉妥妥的
 
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  聚散浮云  
+##### 1989#       发表于 2022-12-21 08:37
+
+底座这玩意没啥技术含量随便买个第三方就行吧
+
