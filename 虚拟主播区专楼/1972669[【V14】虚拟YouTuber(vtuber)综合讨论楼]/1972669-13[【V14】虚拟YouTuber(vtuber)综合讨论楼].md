@@ -979,3 +979,12 @@ it's ark time
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞个bakudan，木风公子这样的炎上系怎么了嘛，毕竟“十人十色”，虹滴量产liver水平low点很正常
 现在这样秘密处罚就显得很玩不起了，要养求不得，要管第一名
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 18092#       发表于 2022-12-21 13:51
+
+怎么都跌破6千了。不过看样子短时间内应该不会再跌了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
