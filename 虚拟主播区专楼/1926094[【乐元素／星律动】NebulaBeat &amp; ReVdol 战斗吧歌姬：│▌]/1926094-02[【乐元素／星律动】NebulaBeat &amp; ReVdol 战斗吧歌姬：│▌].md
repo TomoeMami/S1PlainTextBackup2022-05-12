@@ -12427,3 +12427,14 @@ wb更了   太劲了
 
 小纸羊了，厂长羊了，卡姐室友羊了，看来叶子反而最安全？
 
+
+
+*****
+
+####  ladiesman802  
+##### 2798#       发表于 2022-12-21 18:49
+
+[https://www.bilibili.com/video/BV18G411N7Rr?share_source=copy_web](https://www.bilibili.com/video/BV18G411N7Rr?share_source=copy_web)
+
+小火驴唱的这首歌意外的合适
+
