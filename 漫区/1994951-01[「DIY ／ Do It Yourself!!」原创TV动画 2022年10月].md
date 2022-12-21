@@ -8049,3 +8049,32 @@ self果然是故意养成布丁的吧<img src="https://static.saraba1st.com/imag
 <img src="https://p.sda1.dev/8/6b804002f71cf098c0070be054660989/2ec8baef3504c5f59516ab2df1f09166.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/8/0bf650095151f7303b3f37337c1c23a2/6310f8dc3161ff609fb2c3dbcb4d92b4.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 595#       发表于 2022-12-21 23:26
+
+<blockquote>じゃあぷりんと 2 人で！</blockquote><blockquote>な… なんでそうなるのよ！</blockquote><blockquote>これが布教ってやつなのね</blockquote><blockquote>すてきです　すてきです　すてきです</blockquote><blockquote>素直にしゃべりすぎちゃった！</blockquote>
+水母终于如愿以偿把操作系统升级到最新版了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+摩天楼顶上的午餐（Lunch atop a Skyscraper）
+
+海边捡到的海玻璃派上用场了
+
+看最后放 OP，还以为会没有 ED「続く話」，结果还是有，希望动画也有「続く話」
+<img src="https://files.catbox.moe/6zoaw8.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/mbkhpv.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/kc7hpg.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/7132d5.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/uwnni7.jpg" referrerpolicy="no-referrer">
+<img src="https://files.catbox.moe/kzfyk8.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  wolf1997  
+##### 596#       发表于 2022-12-21 23:28
+
+最后的二人世界，就像GAL共通线走完了之后进入布丁单线一样
+
