@@ -2591,3 +2591,14 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 
 好奇能不能续<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  菱0零  
+##### 2208#       发表于 2022-12-22 00:56
+
+安稳的文戏回，除了安定的作画崩坏没啥槽点
+整季下来姑且重点部分没崩，机战也可圈可点，管人戏份勉强可以忍受，综合情怀给个+1吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+要是能有第三季或者剧场版就彻底跟动画版和解了，这么多年了能做完还要啥自行车<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
