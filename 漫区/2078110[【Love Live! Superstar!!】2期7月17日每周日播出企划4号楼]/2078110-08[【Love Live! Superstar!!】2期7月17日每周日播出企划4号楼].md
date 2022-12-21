@@ -477,3 +477,12 @@ QQ图片20221221203919.png
 话说其实可以访问域名看看，不觉得这网站很有问题吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那我编辑了
 
+
+
+*****
+
+####  lj205  
+##### 10540#       发表于 2022-12-21 20:52
+
+蓝色分组真是太好了！非常好！
+
