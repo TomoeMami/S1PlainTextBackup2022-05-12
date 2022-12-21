@@ -8078,3 +8078,30 @@ self果然是故意养成布丁的吧<img src="https://static.saraba1st.com/imag
 
 最后的二人世界，就像GAL共通线走完了之后进入布丁单线一样
 
+
+
+*****
+
+####  千恋万花  
+##### 597#       发表于 2022-12-21 23:50
+
+／
+
+&amp;#x1F4E2;2023/1/27(金)発売
+
+Blu－ray第2巻 ジャケット公開&amp;#x1F528;✨
+
+＼
+
+イラストは今回もキャラクターデザイン #松尾祐輔 さんの描き下ろしです!!
+
+第2巻の表紙を飾るのは､DIY部の中でもとびきり個性派なしーとジョブ子の2人&amp;#x1F408;&amp;#x1F44D;
+
+<img src="https://img.saraba1st.com/forum/202212/21/235011pt7gtb5loz1eygrb.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (132.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-21 23:50 上传
+

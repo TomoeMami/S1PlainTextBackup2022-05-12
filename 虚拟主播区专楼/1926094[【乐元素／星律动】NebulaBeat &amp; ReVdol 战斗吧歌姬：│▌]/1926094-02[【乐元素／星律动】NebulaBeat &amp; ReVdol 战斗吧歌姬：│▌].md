@@ -12447,3 +12447,15 @@ wb更了   太劲了
 
 之前就想说，小火驴唱功是很可以，但日语咬字怪怪的，清辅音送气太强，可以说是典型的汉语口音了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">真别说还挺上头的
 
+
+
+*****
+
+####  ladiesman802  
+##### 2800#       发表于 2022-12-21 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59038237&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-12-21 20:06</a>
+
+之前就想说，小火驴唱功是很可以，但日语咬字怪怪的，清辅音送气太强，可以说是典型的汉语口音了真 ...</blockquote>
+不知道来日本多长时间了，论大佐化还不如咱叶桑
+
