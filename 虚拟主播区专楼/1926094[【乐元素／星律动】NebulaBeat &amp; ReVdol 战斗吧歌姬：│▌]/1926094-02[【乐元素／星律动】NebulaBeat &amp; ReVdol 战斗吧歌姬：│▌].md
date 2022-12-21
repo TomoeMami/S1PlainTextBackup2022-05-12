@@ -12438,3 +12438,12 @@ wb更了   太劲了
 
 小火驴唱的这首歌意外的合适
 
+
+
+*****
+
+####  MaxFOrder  
+##### 2799#       发表于 2022-12-21 20:06
+
+之前就想说，小火驴唱功是很可以，但日语咬字怪怪的，清辅音送气太强，可以说是典型的汉语口音了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">真别说还挺上头的
+

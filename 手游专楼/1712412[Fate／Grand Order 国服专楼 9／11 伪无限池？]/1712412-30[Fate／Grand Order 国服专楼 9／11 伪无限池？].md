@@ -1026,3 +1026,12 @@ iOS求个一宝土方+五星礼装
 
 友情点抽光了都没出礼装，105%加成用完茶壶就跑路了，什么垃圾活动
 
+
+
+*****
+
+####  dawning  
+##### 43893#       发表于 2022-12-21 20:07
+
+茶壶用完就不想打了，毕竟落差太大了，从10000到4000<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
