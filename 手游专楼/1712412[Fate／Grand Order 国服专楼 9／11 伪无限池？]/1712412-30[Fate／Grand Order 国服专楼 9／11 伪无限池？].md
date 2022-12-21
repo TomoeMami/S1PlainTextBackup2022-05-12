@@ -893,3 +893,12 @@ b服安卓100,130,108,557
 
 —— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  DET33  
+##### 43880#       发表于 2022-12-21 13:24
+
+BGO校对依旧拉，从者就说起了家乡话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
