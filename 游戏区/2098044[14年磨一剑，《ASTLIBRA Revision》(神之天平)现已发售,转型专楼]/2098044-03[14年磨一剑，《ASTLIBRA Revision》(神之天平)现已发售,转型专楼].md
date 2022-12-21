@@ -1032,3 +1032,29 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  M1NG  
+##### 3090#       发表于 2022-12-21 23:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59040726&amp;ptid=2098044" target="_blank">415452356 发表于 2022-12-21 23:08</a>
+
+到了最终迷宫开始刷爱情了，这玩意除了喂给阿努莉丝还能干啥
+
+—— 来自 S1Fun ...</blockquote>
+做成巧克力放在天平上，没其他用处了
+
+
+
+*****
+
+####  415452356  
+##### 3091#       发表于 2022-12-21 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59040789&amp;ptid=2098044" target="_blank">M1NG 发表于 2022-12-21 23:13</a>
+
+做成巧克力放在天平上，没其他用处了</blockquote>
+  搜了下这玩意合出来的蛋糕可以看同伴个人结局？
+
