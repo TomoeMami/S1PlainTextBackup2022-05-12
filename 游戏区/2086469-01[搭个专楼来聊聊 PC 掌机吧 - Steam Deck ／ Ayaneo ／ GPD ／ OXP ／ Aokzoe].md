@@ -89,3 +89,15 @@
 
 刚刚试了下声音震动功能...意外的很有趣。这东西比起精准的震动，体验上更像是握住了一个音箱的感觉。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">但是为什么只有使用喇叭的时候才有效果
 
+
+
+*****
+
+####  bypass  
+##### 557#         楼主| 发表于 2022-12-21 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59009378&amp;ptid=2086469" target="_blank">Mzi 发表于 2022-12-19 16:52</a>
+
+过了四个月总算收到机子了，是ayaneo2黑色。总体外观的确没话说，整体圆润的手感加一块玻璃的确是把外观拉 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我本来对那个马达预期还挺高的，没想到这么拉胯吗
+
