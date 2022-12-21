@@ -101,3 +101,14 @@
 过了四个月总算收到机子了，是ayaneo2黑色。总体外观的确没话说，整体圆润的手感加一块玻璃的确是把外观拉 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我本来对那个马达预期还挺高的，没想到这么拉胯吗
 
+
+
+*****
+
+####  lucifer0607  
+##### 558#       发表于 2022-12-21 18:03
+
+最近用steam deck玩模拟器感觉还是需要热键多一点，很多功能次次都要进菜单真的有点烦
+
+思来想去最符合自己要求的可能还是gpd win max2，有点讽刺，早知道早买了
+
