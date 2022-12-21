@@ -916,3 +916,27 @@ BGO校对依旧拉，从者就说起了家乡话<img src="https://static.saraba1
 b服安卓100,130,108,557</blockquote>
 已加，
 
+
+
+*****
+
+####  15262040068  
+##### 43882#       发表于 2022-12-21 14:11
+
+iOS求个一宝土方+五星礼装
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  15262040068  
+##### 43883#       发表于 2022-12-21 14:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59033403&amp;ptid=1712412" target="_blank">15262040068 发表于 2022-12-21 14:11</a>
+iOS求个一宝土方+五星礼装
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 S1Next-鹅版 v2.5.3 ...</blockquote>
+满黒杯也可以求求
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
