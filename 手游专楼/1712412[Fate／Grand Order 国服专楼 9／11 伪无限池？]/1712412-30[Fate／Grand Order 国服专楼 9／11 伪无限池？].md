@@ -940,3 +940,21 @@ iOS求个一宝土方+五星礼装
 
 —— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  gearbox  
+##### 43884#       发表于 2022-12-21 14:55
+
+30护肤，5十连，一宝钓鱼佬跑路，永不空军！
+
+—— 来自 vivo V2055A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kazemitoya  
+##### 43885#       发表于 2022-12-21 14:57
+
+我才发现我的土方2、3技能都没满。算了，我就不追求不换人了。
+
