@@ -486,3 +486,23 @@ QQ图片20221221203919.png
 
 蓝色分组真是太好了！非常好！
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10541#       发表于 2022-12-21 21:13
+
+TVアニメ『ラブライブ！スーパースター!!』2期OP主题歌「WE WILL!!」TVアニメ2期ED主题歌 「追いかける梦の先で」に加え、9月に开催されたOP&amp;ED主题歌连动リリースイベントでも披露した9人で歌う「私のSymphony」、新曲「Second Sparkle」、そして各メンバーが歌うソロ曲9曲の计13曲を収録予定。
+
+有异物
+
+*****
+
+####  player3960  
+##### 10542#       发表于 2022-12-21 21:23
+
+居然还收录一坨翔的私のSymphony9人版，pass<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
