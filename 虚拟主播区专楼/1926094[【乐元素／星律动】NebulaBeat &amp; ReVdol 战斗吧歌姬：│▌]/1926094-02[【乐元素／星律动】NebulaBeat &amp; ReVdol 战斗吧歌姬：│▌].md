@@ -12471,3 +12471,17 @@ wb更了   太劲了
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
+
+
+*****
+
+####  ladiesman802  
+##### 2802#       发表于 2022-12-22 00:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59041240&amp;ptid=1926094" target="_blank">黄金鸡屁屁 发表于 2022-12-21 23:55</a>
+
+据自己说高中之后就去了日本
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端</blockquote>
+那时间比叶子还长啊，叶子是读完大学再去的
+
