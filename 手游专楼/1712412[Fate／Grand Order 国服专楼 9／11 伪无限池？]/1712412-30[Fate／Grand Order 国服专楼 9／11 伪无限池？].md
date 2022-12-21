@@ -967,3 +967,15 @@ iOS求个一宝土方+五星礼装
 
 茶壶是现在就用，还是等第四兽再用？
 
+
+
+*****
+
+####  DET33  
+##### 43887#       发表于 2022-12-21 17:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59035988&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2022-12-21 17:18</a>
+
+茶壶是现在就用，还是等第四兽再用？</blockquote>
+羁绊都是一样的
+
