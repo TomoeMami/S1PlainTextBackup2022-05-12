@@ -451,3 +451,29 @@ QQ图片20221221203919.png
 
 没有solo不买了，有solo就mora单独买
 
+
+
+*****
+
+####  aoaoaodedede  
+##### 10538#       发表于 2022-12-21 20:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59038493&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-21 20:24</a>
+
+好像有直播源，可惜我看不了 https://japanonlinetv.live/asia-emotional-music-fes-2022-live/ ...</blockquote>
+听说是假的
+
+话说其实可以访问域名看看，不觉得这网站很有问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10539#       发表于 2022-12-21 20:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59038710&amp;ptid=2078110" target="_blank">aoaoaodedede 发表于 2022-12-21 20:43</a>
+
+听说是假的
+
+话说其实可以访问域名看看，不觉得这网站很有问题吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那我编辑了
+
