@@ -737,3 +737,14 @@ DLC这几个武器也是挂机玩意
 
 2倍速升满一般不会剩下足够的带箱子怪了
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 548#       发表于 2022-12-21 23:06
+
+ios有bug
+
+打完那个合体死神福音书会卡住<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+

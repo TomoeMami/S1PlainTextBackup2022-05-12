@@ -1101,3 +1101,14 @@ iOS求个一宝土方+五星礼装
 
 —— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  电波系腑海林  
+##### 43902#       发表于 2022-12-21 23:07
+
+最后那个柱子能活多久？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
