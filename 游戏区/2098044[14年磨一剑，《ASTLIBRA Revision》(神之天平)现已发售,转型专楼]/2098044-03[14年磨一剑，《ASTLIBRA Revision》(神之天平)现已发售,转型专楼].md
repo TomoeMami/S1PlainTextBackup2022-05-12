@@ -993,3 +993,31 @@
 
 第四章的屠村剧情有点微妙。。为了幻术这瓶醋搞的饺子味道怪怪的
 
+
+
+*****
+
+####  415452356  
+##### 3086#       发表于 2022-12-21 18:54
+
+  新章快打完了，问一下装备盘是每个武器都有固定的盘子有装备上限还是说盘子的属性就是随机的？
+
+*****
+
+####  otakun  
+##### 3087#       发表于 2022-12-21 18:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59037231&amp;ptid=2098044" target="_blank">415452356 发表于 2022-12-21 18:54</a>
+新章快打完了，问一下装备盘是每个武器都有固定的盘子有装备上限还是说盘子的属性就是随机的？ ...</blockquote>
+属性随机，品质随机，每个装备最多装3个盘
+
+*****
+
+####  415452356  
+##### 3088#       发表于 2022-12-21 19:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59037290&amp;ptid=2098044" target="_blank">otakun 发表于 2022-12-21 18:59</a>
+
+属性随机，品质随机，每个装备最多装3个盘</blockquote>
+  感谢
+
