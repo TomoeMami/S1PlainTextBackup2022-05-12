@@ -881,3 +881,15 @@ CBA没有补宝价值啊，该有的早有了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  linmoux  
+##### 43879#       发表于 2022-12-21 11:52
+
+660石头没太公。求几位有2宝太公的好友刷第四兽<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+b服安卓100,130,108,557
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
