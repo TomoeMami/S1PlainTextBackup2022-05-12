@@ -1017,3 +1017,12 @@ iOS求个一宝土方+五星礼装
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">刷着刷着抬头一看，雷帝怕是活不过今晚
 
+
+
+*****
+
+####  苍蓝之枪  
+##### 43892#       发表于 2022-12-21 19:58
+
+友情点抽光了都没出礼装，105%加成用完茶壶就跑路了，什么垃圾活动
+
