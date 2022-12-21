@@ -406,3 +406,48 @@ FMT那五首特典solo，BD版都修音了。跟直播源对比，香堇两首�
 好像有直播源，可惜我看不了</blockquote>
 没有直播
 
+
+
+*****
+
+####  csolfans  
+##### 10536#       发表于 2022-12-21 20:37
+
+ 本帖最后由 csolfans 于 2022-12-21 20:39 编辑 
+
+二专来了
+
+QQ图片20221221203910.png
+(33.42 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-21 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202212/21/203931jij4cnpjd2ie5jie.png" referrerpolicy="no-referrer">
+
+QQ图片20221221203916.png
+(44.99 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-21 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202212/21/203934iaf898v9kj8kbvba.png" referrerpolicy="no-referrer">
+
+QQ图片20221221203919.png
+(103.97 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-21 20:39 上传
+
+<img src="https://img.saraba1st.com/forum/202212/21/203936i9fsn5t58yy58fnj.png" referrerpolicy="no-referrer">
+
+*****
+
+####  lj205  
+##### 10537#       发表于 2022-12-21 20:41
+
+没有solo不买了，有solo就mora单独买
+
