@@ -722,3 +722,14 @@ https://www.cdc.gov/nchs/nvss/vsrr/covid19/excess_deaths.htm
 
 至于放开后会不会在大量培养皿下变异出难防御又高致病乃至致死的毒株，这个就只能看天了。（真出来了再封？）
 
+
+
+*****
+
+####  Map-2  
+##### 62#       发表于 2022-12-21 22:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59018155&amp;ptid=2110919" target="_blank">天辉一绝 发表于 2022-12-20 12:40</a>
+我记得以前的细菌研究里，所谓不怕抗生素的超级细菌放到常规环境下会被那些高敏感度的细菌卷死 ...</blockquote>
+按照这个理论是不是耐药菌的感染可以通过移植非耐药菌来治疗啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
