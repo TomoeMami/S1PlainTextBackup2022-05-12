@@ -697,3 +697,43 @@ DLC这几个武器也是挂机玩意
 今天终于打爽了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么你这字体这么舒服...ipad版？
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 545#       发表于 2022-12-21 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59039563&amp;ptid=2052594" target="_blank">alucardcz 发表于 2022-12-21 21:42</a>
+
+为什么你这字体这么舒服...ipad版？</blockquote>
+是的
+
+*****
+
+####  哈迪斯兜帽  
+##### 546#       发表于 2022-12-21 21:56
+
+ 本帖最后由 哈迪斯兜帽 于 2022-12-21 21:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59039310&amp;ptid=2052594" target="_blank">女神アイギス 发表于 2022-12-21 21:24</a>
+
+哪有这种东西，硬要说的话最序盘弹球姐(哥？)比较强，中盘丢骨头之类的那几个怪物因为自带投射物增加比较 ...</blockquote>
+关了倍速打了一把，最后左右箭头齐了但是没箱子
+
+最后只合出来了无尽回廊，不过打过去了，现在我也有死神了。[f:243]
+
+这死神跑（飘）的好快<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  女神アイギス  
+##### 547#       发表于 2022-12-21 21:59
+
+<blockquote>哈迪斯兜帽 发表于 2022-12-21 21:56
+关了倍速打了一把，最后左右箭头齐了但是没箱子
+
+最后只合出来了无尽回廊，不过打过去了，现在我也有死神 ...</blockquote>
+忘了说了要记得留箱子(
+
+2倍速升满一般不会剩下足够的带箱子怪了
+
