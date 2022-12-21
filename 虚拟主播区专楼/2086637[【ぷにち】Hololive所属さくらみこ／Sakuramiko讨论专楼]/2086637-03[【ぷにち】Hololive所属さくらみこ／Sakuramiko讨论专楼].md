@@ -6455,3 +6455,14 @@ miko：世界杯是我赢了！
 
 这么多火鳄还留着啊
 
+
+
+*****
+
+####  rs5621  
+##### 3607#       发表于 2022-12-21 21:34
+
+你也喜欢这绿毛？
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
