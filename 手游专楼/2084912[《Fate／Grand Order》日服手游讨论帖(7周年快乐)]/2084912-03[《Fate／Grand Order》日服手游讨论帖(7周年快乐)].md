@@ -10212,3 +10212,26 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 我觉得今年可以设一个奖，叫“丢人，就你没被UP”
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3914#       发表于 2022-12-21 17:23
+
+<blockquote>引用第3912楼exiaexa于2022-12-21 17:17发表的  :
+
+我觉得今年可以设一个奖，叫“丢人，就你没被UP”</blockquote>
+五星好像就红阎魔没UP
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+*****
+
+####  不垃圾屌丝  
+##### 3915#       发表于 2022-12-21 17:24
+
+一看更了100多兆我还以为有什么大新闻呢，就这
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
