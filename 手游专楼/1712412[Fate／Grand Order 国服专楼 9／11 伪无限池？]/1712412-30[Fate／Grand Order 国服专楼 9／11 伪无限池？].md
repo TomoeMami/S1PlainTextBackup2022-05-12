@@ -1088,3 +1088,16 @@ iOS求个一宝土方+五星礼装
 
 还在刷助战呢，一转头就没了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  linmoux  
+##### 43901#       发表于 2022-12-21 21:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59033368&amp;ptid=1712412" target="_blank">dawning 发表于 2022-12-21 14:08</a>
+已加，</blockquote>
+感谢大佬，感恩<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

@@ -681,3 +681,19 @@ DLC这几个武器也是挂机玩意
 有角色强度表吗</blockquote>
 哪有这种东西，硬要说的话最序盘弹球姐(哥？)比较强，中盘丢骨头之类的那几个怪物因为自带投射物增加比较强，收集成就阶段狼人和红死神独一档，但这时候你反正也要玩其他角色，所以也就是打一些比较苛刻条件时候用。到最后打钱就是没蛋女皇有蛋商人
 
+
+
+*****
+
+####  alucardcz  
+##### 544#       发表于 2022-12-21 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59023961&amp;ptid=2052594" target="_blank">哈迪斯兜帽 发表于 2022-12-20 19:56</a>
+
+彩虹鸟确实彳亍
+
+昨天没钱强化，也不知道能组合武器
+
+今天终于打爽了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么你这字体这么舒服...ipad版？
+
