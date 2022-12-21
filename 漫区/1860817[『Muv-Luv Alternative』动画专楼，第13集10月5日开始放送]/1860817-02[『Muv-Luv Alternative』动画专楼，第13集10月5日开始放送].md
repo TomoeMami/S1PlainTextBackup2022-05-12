@@ -2582,3 +2582,12 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 正传游戏不过是迈向大坑的第一步楼里的发言还涉及大量设定集、外传和模型等等的内容。</blockquote>
 慢慢补吧，下一部先补黑之宣告<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  jerryoq1  
+##### 2207#       发表于 2022-12-22 00:50
+
+好奇能不能续<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
