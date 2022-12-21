@@ -770,3 +770,33 @@ ios有bug
 是的</blockquote>
 顺便问下 iphone和ipad存档能互通吗
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 551#       发表于 2022-12-22 00:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59041387&amp;ptid=2052594" target="_blank">alucardcz 发表于 2022-12-22 00:08</a>
+
+顺便问下 iphone和ipad存档能互通吗</blockquote>
+这个我还真不知道
+
+我手机用的安卓<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+搜了一下好像没有云同步
+
+*****
+
+####  alucardcz  
+##### 552#       发表于 2022-12-22 00:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59041550&amp;ptid=2052594" target="_blank">哈迪斯兜帽 发表于 2022-12-22 00:21</a>
+
+这个我还真不知道
+
+我手机用的安卓
+
+搜了一下好像没有云同步</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那只能删掉一个了 不然太蛋疼了
+
