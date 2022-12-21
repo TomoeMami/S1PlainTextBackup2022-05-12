@@ -979,3 +979,23 @@ iOS求个一宝土方+五星礼装
 茶壶是现在就用，还是等第四兽再用？</blockquote>
 羁绊都是一样的
 
+
+
+*****
+
+####  linmoux  
+##### 43888#       发表于 2022-12-21 17:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59035988&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2022-12-21 17:18</a>
+茶壶是现在就用，还是等第四兽再用？</blockquote>
+雷帝，苏鲁特，第四兽的羁绊底子都是1830，茶壶现在就能用了。
+
+—— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  艾尔特翔  
+##### 43889#       发表于 2022-12-21 17:48
+
+感谢2位，开刷了
+

@@ -594,3 +594,14 @@ EX战debuff不影响memory每回合回血，这又抬高了这几张卡的地位
 
 后篇卡池估计双火骑手+活动枪手了吧。卡池估计同组剩下2人，活动剪影那个马尾或者帽子看不出来是谁…盲猜个炎上子<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  MEKA  
+##### 203#       发表于 2022-12-21 17:51
+
+<img src="https://pbs.twimg.com/media/Fked9D9VQAAo-t_?format=jpg&amp;name=small" id="aimg_zv6fV" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+贴个图，Number2老师的原画真的拉开建模一大截...
+
