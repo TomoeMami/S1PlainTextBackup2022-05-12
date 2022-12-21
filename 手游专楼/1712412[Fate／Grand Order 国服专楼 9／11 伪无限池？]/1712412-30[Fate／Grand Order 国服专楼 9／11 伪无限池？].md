@@ -1035,3 +1035,19 @@ iOS求个一宝土方+五星礼装
 
 茶壶用完就不想打了，毕竟落差太大了，从10000到4000<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Yason  
+##### 43894#       发表于 2022-12-21 20:16
+
+说好的bgo没人玩了呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我到家一看就剩100w根了
+
+*****
+
+####  待宵  
+##### 43895#       发表于 2022-12-21 20:18
+
+用迦摩刷了，还行
+
