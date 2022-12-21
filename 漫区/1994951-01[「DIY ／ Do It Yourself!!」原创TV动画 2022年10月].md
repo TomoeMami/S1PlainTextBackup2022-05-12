@@ -8153,3 +8153,19 @@ Music Collectionジャケット公開&amp;#x1F528;✨
 
 2022-12-22 00:29 上传
 
+
+
+*****
+
+####  Piano-Forest  
+##### 600#         楼主| 发表于 2022-12-22 02:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59041193&amp;ptid=1994951" target="_blank">千恋万花 发表于 2022-12-21 23:52</a>
+
+／
+
+&amp;#x1F4E2;2023/2/15発売
+
+Music Collectionジャケット ...</blockquote>
+大佬，现在不用插件转换应该也能正常显示？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

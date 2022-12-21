@@ -2602,3 +2602,124 @@ Swaraj作战（1992）：博帕尔Hive，A3计划的一部分。初次使用轨�
 整季下来姑且重点部分没崩，机战也可圈可点，管人戏份勉强可以忍受，综合情怀给个+1吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 要是能有第三季或者剧场版就彻底跟动画版和解了，这么多年了能做完还要啥自行车<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吕玲绮的十字戟  
+##### 2209#       发表于 2022-12-22 01:55
+
+看到继承的剧情做的半吊子就气到不行了，，精华全砍了的再现剧情有毛意义啊
+
+——————————————
+
+本来还以为这集结尾会是beta来袭，暗示横滨基地防御战的
+
+居然没有，，
+
+*****
+
+####  jerryoq1  
+##### 2210#       发表于 2022-12-22 02:09
+
+风间秀了一手小提琴 怕是没第三季 把剩下的经费都用这了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hlazd  
+##### 2211#       发表于 2022-12-22 02:24
+
+终于完结了，实属不易
+
+这两个季度都做得这么难，我看这第三季怕是是没有了
+
+*****
+
+####  轮太  
+##### 2212#       发表于 2022-12-22 02:53
+
+想到一个缺德问题
+
+既然某人被当作训练事故死了
+
+那是不是战死升两级的抚慰也被黑了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  再买自检星剁手  
+##### 2213#       发表于 2022-12-22 02:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59042624&amp;ptid=1860817" target="_blank">轮太 发表于 2022-12-22 02:53</a>
+
+想到一个缺德问题
+
+既然某人被当作训练事故死了
+
+那是不是战死升两级的抚慰也被黑了啊 ...</blockquote>
+a01部队本身的存在是不能公开的，既然当做意外，那自然不能升两级
+
+*****
+
+####  再买自检星剁手  
+##### 2214#       发表于 2022-12-22 03:01
+
+神奇地把漫画69-70话剧情都塞进去了，不过白银和香月的推理省略了很多台词。
+
+感觉系构处理得不错，个人已经满足了
+
+没有公布后续可能就是做不下去了。
+
+*****
+
+####  KOPKOM  
+##### 2215#         楼主| 发表于 2022-12-22 03:20
+
+平稳落地，的确有时候瞎做不如不做，留得青山在嘛，反例就是强行上马的全金属狂潮，不仅差评一片最后还是没能做到结局
+
+*****
+
+####  hacisiki  
+##### 2216#       发表于 2022-12-22 03:46
+
+你们说要是因为大人的原因最后一季做出来了但是佐渡子那边不合作咋办hhhhh开局杀么？
+
+*****
+
+####  再买自检星剁手  
+##### 2217#       发表于 2022-12-22 04:33
+
+ 本帖最后由 再买自检星剁手 于 2022-12-22 05:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59042683&amp;ptid=1860817" target="_blank">hacisiki 发表于 2022-12-22 03:46</a>
+
+你们说要是因为大人的原因最后一季做出来了但是佐渡子那边不合作咋办hhhhh开局杀么？ ...</blockquote>
+指的是不能把管人写死吗？那就凄乃皇加一个座位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+或者改成白银武开战术机护卫，管人操作凄乃皇，牌面拉满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（手游就是改成了白银开战术机）
+
+（原作好像没有解释冥夜是怎么在闸门关闭后进来的）
+
+*****
+
+####  再买自检星剁手  
+##### 2218#       发表于 2022-12-22 04:33
+
+[第二季投票贴](https://bbs.saraba1st.com/2b/thread-2111251-1-1.html)来了
+
+*****
+
+####  轮太  
+##### 2219#       发表于 2022-12-22 04:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59042634&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-12-22 02:58</a>
+a01部队本身的存在是不能公开的，既然当做意外，那自然不能升两级</blockquote>
+其实现实里这种应该是会给她们找一个名义上的挂靠部队的吧，总不能啥事都打马赛克
+
+*****
+
+####  再买自检星剁手  
+##### 2220#       发表于 2022-12-22 05:21
+
+[3d公司发推表示抹布拉布项目结束了](https://twitter.com/graphinica/status/1605603481829593089)
+
+那种事情不要啊[f:267]
+
