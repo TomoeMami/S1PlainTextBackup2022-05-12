@@ -387,3 +387,22 @@ FMT那五首特典solo，BD版都修音了。跟直播源对比，香堇两首�
 
 没直播就贴贴
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10534#       发表于 2022-12-21 20:24
+
+好像有直播源，可惜我看不了 [https://japanonlinetv.live/asia-emotional-music-fes-2022-live/](https://japanonlinetv.live/asia-emotional-music-fes-2022-live/)
+
+*****
+
+####  csolfans  
+##### 10535#       发表于 2022-12-21 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59038493&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-21 20:24</a>
+
+好像有直播源，可惜我看不了</blockquote>
+没有直播
+
