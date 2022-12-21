@@ -661,3 +661,12 @@ DLC这几个武器也是挂机玩意
 强势角色带吸道具仍然是可以轻松做冰杖月桂的 ...</blockquote>
 有角色强度表吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  这是闹球甚  
+##### 542#       发表于 2022-12-21 21:04
+
+怪越多就越卡怎么回事呢...还没手机流畅呢...
+
