@@ -758,3 +758,15 @@ ios有bug
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这玩意太容易一下时间就过去了
 午睡不睡晚上迟睡
 
+
+
+*****
+
+####  alucardcz  
+##### 550#       发表于 2022-12-22 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59039702&amp;ptid=2052594" target="_blank">哈迪斯兜帽 发表于 2022-12-21 21:54</a>
+
+是的</blockquote>
+顺便问下 iphone和ipad存档能互通吗
+

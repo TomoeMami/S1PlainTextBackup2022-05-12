@@ -760,3 +760,12 @@ a队最终还是又去抽奖了<img src="https://static.saraba1st.com/image/smil
 
 现在一线队里最多两个老人，a队都几个了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大壮还日常bait，没啥戏
 
+
+
+*****
+
+####  dev2ce  
+##### 3088#       发表于 2022-12-22 00:01
+
+p3被下放了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nip要找正经狙了吧，另外a队连卡托play-in的资格都没有也太搞了
+
