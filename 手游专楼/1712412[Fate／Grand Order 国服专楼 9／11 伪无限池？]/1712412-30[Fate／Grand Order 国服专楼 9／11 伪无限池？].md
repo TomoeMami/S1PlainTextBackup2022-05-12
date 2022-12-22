@@ -1292,3 +1292,14 @@ iOS求个一宝土方+五星礼装
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  DET33  
+##### 43922#       发表于 2022-12-22 22:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我打的也是这个数，130把还好吧，就1t随便刷刷
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

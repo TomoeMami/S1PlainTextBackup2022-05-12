@@ -1315,3 +1315,24 @@ syl，兔皇被蹭了怎么不能管了，觉得心里难受跟马内甲说一�
 还特意写了个对佩桑的敬意来误导观众已经取得佩桑许可，这是明知故犯啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 要讲法律的话这已经有问题了就是了。
 
+
+
+*****
+
+####  rzrbtk  
+##### 18119#       发表于 2022-12-22 22:20
+
+<blockquote>winda 发表于 2022-12-22 21:27
+还特意写了个对佩桑的敬意来误导观众已经取得佩桑许可，这是明知故犯啊 ...</blockquote>
+明知故犯还是真觉得兔皇已经免罪过所以能唱我不好说，谢罪休止文已经咬定自己无恶意了又能怎么办呢
+
+*****
+
+####  ror  
+##### 18120#       发表于 2022-12-22 22:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59051551&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-12-22 20:55</a>
+才看到舞元因为喉咙状态不行退掉了犬山那里的企划。
+有什么原因吗？能让嗓子消耗成这样？ ...</blockquote>
+因为世界杯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
