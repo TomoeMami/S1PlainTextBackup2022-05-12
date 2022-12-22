@@ -1217,3 +1217,12 @@ iOS求个一宝土方+五星礼装
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这几天阳了这么多楼友啊，大伙一定要注意防护注意休息啊
 
+
+
+*****
+
+####  Yason  
+##### 43914#       发表于 2022-12-22 20:01
+
+为什么今天又这么慢了，八点了还剩400w，昨天八点100w<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
