@@ -1208,3 +1208,12 @@ iOS求个一宝土方+五星礼装
 
 现在身边陆陆续续的有人阳了，办公楼十几个人，也有一半阳了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET33  
+##### 43913#       发表于 2022-12-22 19:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这几天阳了这么多楼友啊，大伙一定要注意防护注意休息啊
+

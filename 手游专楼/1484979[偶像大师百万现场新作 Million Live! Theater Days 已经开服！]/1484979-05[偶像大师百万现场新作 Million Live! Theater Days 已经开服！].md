@@ -47,3 +47,16 @@
 
 上次打够25回已经10w多了，真希望之后活动能稍微缓和一点改成20回<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  花开安菲路  
+##### 7044#       发表于 2022-12-22 19:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59020002&amp;ptid=1484979" target="_blank">moonmagian 发表于 2022-12-20 15:17</a>
+感觉25回活动live比9w麻烦，即使全打工也要吃不少体力药
+
+上次打够25回已经10w多了，真希望之后活动能稍微缓 ...</blockquote>
+确实有点不合理了，今天打了9.3w任务还差三次，之前都没注意到<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+

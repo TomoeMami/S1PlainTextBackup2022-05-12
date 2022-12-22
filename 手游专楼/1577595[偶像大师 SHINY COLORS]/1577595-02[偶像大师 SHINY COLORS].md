@@ -7,3 +7,14 @@
 
 这个累计粉丝2000亿的活动就是字面意思的2000亿吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"> 现在的总数要怎么看呀
 
+
+
+*****
+
+####  shadowof  
+##### 2689#         楼主| 发表于 2022-12-22 19:35
+
+刷人数的活动官推会有定期报告。
+
+不过不用特别期待，以前失败过好几次了。
+
