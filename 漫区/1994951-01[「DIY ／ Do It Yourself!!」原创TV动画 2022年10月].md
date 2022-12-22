@@ -8620,3 +8620,12 @@ DIY!!12話参加せて頂いてました。1話からDIY部のみんなたくさ
 <img src="https://p.sda1.dev/9/6dfd85c9c0a085599a99861da6b7e95c/20221223_001352.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/f7c807c89aeadf952a21a84935867e50/20221223_001212.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  流连成双  
+##### 624#       发表于 2022-12-23 00:54
+
+女主这段位太高了，布丁女士被吃得死死的hhh风铃伏笔也好好回收了，真好啊。就是有点担心部室经过这么反反复复的拆是不是要变危房了hhh
+
