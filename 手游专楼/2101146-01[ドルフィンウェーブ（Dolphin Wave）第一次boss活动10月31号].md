@@ -643,3 +643,12 @@ SR由芽，我UR的SUN由芽又没法带了，这帮家伙出卡都不考虑属�
 
 建模真是一坨,现在看板能换2d立绘了嘛?
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 208#         楼主| 发表于 2022-12-22 18:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然功能位重复是迟早的事，但真重复了还是很不爽
+
