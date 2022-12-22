@@ -1022,3 +1022,27 @@ it's ark time
 
 真不知道这歌曲的目的，怎还会在翻唱视频下感谢族长的”包容“？
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 18096#       发表于 2022-12-22 09:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59043754&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-22 09:27</a>
+认为这只是单纯的“纯爱歌曲”所以才翻唱
+
+骗谁呢？
+
+真不知道这歌曲的目的，怎还会在翻唱视频下感谢族长的 ...</blockquote>
+你和我说什么b话。
+这种事需要你给我指出来？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+能不能有点自己的思考
+
+*****
+
+####  _Ra1nMaker  
+##### 18097#       发表于 2022-12-22 09:38
+
+啧啧，这种也能叫道歉，虹运营到底行不行啊，还是说虹人就这种素质水准了
+
