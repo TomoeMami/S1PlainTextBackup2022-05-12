@@ -123,3 +123,14 @@
 
 感觉空间太小装不了几个游戏，能插机器上的sd卡有啥推荐么？什么规格的插进机器读盘能快点？
 
+
+
+*****
+
+####  psvsd  
+##### 560#       发表于 2022-12-22 11:54
+
+microSD都差不多，半斤八两。发热降速也是逃不过的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+正经卡读速都不会差，deck好像还有读取速度限制。
+现在缩水关键点在写速。不敢写写速的知道大概怎么回事就行
+
