@@ -748,3 +748,26 @@ pay真的好主动
   ...</blockquote>
 评论区有个人是不是经常来带节奏的
 
+
+
+*****
+
+####  ruffian  
+##### 10562#       发表于 2022-12-22 21:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59052002&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-12-22 21:26:08</a>
+评论区有个人是不是经常来带节奏的</blockquote>哪一个？
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 10563#       发表于 2022-12-22 21:51
+
+<blockquote>ruffian 发表于 2022-12-22 21:45
+哪一个？
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+id青叶真司的
+

@@ -1303,3 +1303,15 @@ syl，兔皇被蹭了怎么不能管了，觉得心里难受跟马内甲说一�
 （已经删稿了所以图来 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还特意写了个对佩桑的敬意来误导观众已经取得佩桑许可，这是明知故犯啊
 
+
+
+*****
+
+####  空集  
+##### 18118#       发表于 2022-12-22 21:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59052027&amp;ptid=1972669" target="_blank">winda 发表于 2022-12-22 21:27</a>
+
+还特意写了个对佩桑的敬意来误导观众已经取得佩桑许可，这是明知故犯啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 要讲法律的话这已经有问题了就是了。
+
