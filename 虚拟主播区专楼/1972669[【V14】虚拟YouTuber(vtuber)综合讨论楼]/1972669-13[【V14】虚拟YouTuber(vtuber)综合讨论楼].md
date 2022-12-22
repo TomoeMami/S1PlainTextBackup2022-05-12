@@ -1113,3 +1113,22 @@ it's ark time
 
 syl，兔皇被蹭了怎么不能管了，觉得心里难受跟马内甲说一声测试一下虹杏联合条约也挺正常的吧
 
+
+
+*****
+
+####  winda  
+##### 18103#       发表于 2022-12-22 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59047724&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-22 15:34</a>
+其实我一直觉得郡道这个谁都没骂到，算了一笔账说每天要投两万持续三年，被评论说这么有钱得是杏了吧，回 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">观众群体的名声不叫名声是吗？郡道那次和评论吵到顺带劈了刀剧团四季，那是真的强者
+
+*****
+
+####  渡鸦骑士  
+##### 18104#       发表于 2022-12-22 16:05
+
+照郡gachi的说法你虹好卑微啊<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+“大人，我们anycolor是一心与您交好的，都是下面的人不懂，我已经把他关起来道歉了。”
+
