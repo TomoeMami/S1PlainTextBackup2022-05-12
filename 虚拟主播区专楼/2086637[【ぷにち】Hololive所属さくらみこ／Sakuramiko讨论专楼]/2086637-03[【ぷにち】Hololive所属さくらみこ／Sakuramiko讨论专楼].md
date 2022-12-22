@@ -6552,3 +6552,14 @@ miko：世界杯是我赢了！
 
 一次白天的短时间直播，晚上的20分钟歌回，可能还有一个会限ASMR
 
+
+
+*****
+
+####  rs5621  
+##### 3615#       发表于 2022-12-23 00:11
+
+好
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

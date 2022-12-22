@@ -8508,3 +8508,14 @@ job子走了，有续作的概率约等于零？还是希望能有，这动画�
 
 网抑云也有OP的资源了，推荐听听funk mix版的。
 
+
+
+*****
+
+####  伊地知星歌  
+##### 619#       发表于 2022-12-23 00:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59054007&amp;ptid=1994951" target="_blank">RainbowSealife 发表于 2022-12-22 23:50</a>
+原以为布丁是个想做1但又做不成1而心有不忿的0，傲娇只是不想堕落为0的手段罢了；结果现在成了想做青梅身 ...</blockquote>
+op的哒～****和ed的温柔前奏都是记忆点～
+
