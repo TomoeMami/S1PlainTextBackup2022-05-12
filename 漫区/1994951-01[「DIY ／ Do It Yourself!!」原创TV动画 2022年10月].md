@@ -8576,3 +8576,47 @@ DIY!! 1话4话
 <img src="https://p.sda1.dev/9/b137c13180576affdcc3a766883efa35/20221223_001525.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/d6927290c9f6d3978bc416995e41c15b/20221223_001528.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 623#         楼主| 发表于 2022-12-23 00:23
+
+[https://twitter.com/AbSm_r/status/1605750112135045121](https://twitter.com/AbSm_r/status/1605750112135045121)
+<img src="https://p.sda1.dev/9/80e7a2e46f53fe6b6ac3056f95aa84b7/20221223_000741.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/izumochi01/status/1605588416233709629](https://twitter.com/izumochi01/status/1605588416233709629)
+
+今日放送だった！
+
+慌てて描いた
+
+是非見てね！！
+<img src="https://p.sda1.dev/9/272edf807b78b43eb1d56b4e8bfbef2c/20221223_001221.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/plus_plus09/status/1605586292560998401](https://twitter.com/plus_plus09/status/1605586292560998401)
+
+12話動画参加しました！
+
+初参加がこの作品で良かったなと心から思います…
+<img src="https://p.sda1.dev/9/49801b184257e1014f19b9e9d53f20ce/20221223_000709.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/hamha_s/status/1605751836077854721](https://twitter.com/hamha_s/status/1605751836077854721)
+
+１２話も原画で参加させていただきました.　最後までよかったでした
+<img src="https://p.sda1.dev/9/85df4a2b6a381a93a49c23b45a5cfdb9/20221223_001256.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/_aniihs_/status/1605602895189069831](https://twitter.com/_aniihs_/status/1605602895189069831)
+
+DIY12話ほんの少しだけ二原やってました！　超かわいい最高アニメに少しでも携われてとても嬉しかったです！ありがとうございました
+<img src="https://p.sda1.dev/9/abc97b5a2d5a94968dd168e9f5407bdd/20221223_001105.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/k_ekaki/status/1605587206579490817](https://twitter.com/k_ekaki/status/1605587206579490817)
+
+DIY!!12話参加せて頂いてました。1話からDIY部のみんなたくさん描けて幸せでした☺️ありがとうございました！
+<img src="https://p.sda1.dev/9/843e25a3a96c79b746ed2ebeeb4aa847/20221223_001349.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/65663d759794ea58572bd268026b882d/20221223_001351.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/6dfd85c9c0a085599a99861da6b7e95c/20221223_001352.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/f7c807c89aeadf952a21a84935867e50/20221223_001212.jpg" referrerpolicy="no-referrer">
+
