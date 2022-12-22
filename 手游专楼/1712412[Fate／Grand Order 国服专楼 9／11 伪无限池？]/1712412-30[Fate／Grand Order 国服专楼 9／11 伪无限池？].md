@@ -1121,3 +1121,14 @@ iOS求个一宝土方+五星礼装
 
 艹，我就只打了一轮
 
+
+
+*****
+
+####  Kon-El  
+##### 43904#       发表于 2022-12-22 14:47
+
+凑了30石，太公望 尼基季奇 礼装都有了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
