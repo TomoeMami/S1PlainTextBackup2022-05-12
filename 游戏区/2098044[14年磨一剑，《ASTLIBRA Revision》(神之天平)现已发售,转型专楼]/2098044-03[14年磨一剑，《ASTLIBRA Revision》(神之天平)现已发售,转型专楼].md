@@ -1110,3 +1110,12 @@
 这个游戏就是个不断修补旧遗憾但是很不幸就继 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我打到最终章了也觉得第四章很微妙……
 
+
+
+*****
+
+####  菟原手兒奈  
+##### 3096#       发表于 2022-12-23 01:25
+
+第四章那段突然来一下是挺难接受的，换成别的日系游戏，主角得PTSD个几十年
+
