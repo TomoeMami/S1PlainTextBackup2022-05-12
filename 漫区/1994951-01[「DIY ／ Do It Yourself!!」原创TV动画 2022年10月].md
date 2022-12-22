@@ -8252,3 +8252,35 @@ Music Collectionジャケット ...</blockquote>
 
 呜呜，这部动画太舒服了，无论是画风还是音乐都是我心里的顶级，这12集下来除了看diy就是布you的感情发展，两位真的是太甜了，两个人的一举一动都为对方着想，双向奔赴yyds！已经下单了第一卷bd，希望能有二期啊
 
+
+
+*****
+
+####  伊地知星歌  
+##### 608#       发表于 2022-12-22 20:56
+
+self真的很会养成
+
+<img src="https://img.saraba1st.com/forum/202212/22/205533qa813u1f43bb3fq1.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (186.15 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 20:55 上传
+
+*****
+
+####  伊地知星歌  
+##### 609#       发表于 2022-12-22 21:00
+
+以后学妹要在上面打野炮怎么办[f:244]
+
+<img src="https://img.saraba1st.com/forum/202212/22/205942pjsoljswsbljiiiu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (146.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 20:59 上传
+

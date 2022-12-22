@@ -1244,3 +1244,22 @@ iOS求个一宝土方+五星礼装
 
 随便打打了，不是热衷于刷羁绊，不如刷素材那么给人动力，况且我缺的素材也不是这次掉的
 
+
+
+*****
+
+####  DET33  
+##### 43917#       发表于 2022-12-22 20:55
+
+速度倒是跟昨晚的柱子差不多，九点五百多万左右，看来BGO就那么多人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kazemitoya  
+##### 43918#       发表于 2022-12-22 21:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59050100&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2022-12-22 19:07</a>
+
+中招了，现在只能躺了</blockquote>
+我圣诞只刷了6池，也是阳了不舒服
+
