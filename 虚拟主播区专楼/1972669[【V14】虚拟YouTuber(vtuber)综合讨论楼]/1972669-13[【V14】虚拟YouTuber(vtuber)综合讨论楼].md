@@ -1046,3 +1046,13 @@ it's ark time
 
 啧啧，这种也能叫道歉，虹运营到底行不行啊，还是说虹人就这种素质水准了
 
+
+
+*****
+
+####  winda  
+##### 18098#       发表于 2022-12-22 11:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把anti串内容形容成厕所涂鸦，把sc曲当纯爱歌，这是在装傻嘲讽吧
+那手账一定是对king的爱称了，这就是虹的水平么
+

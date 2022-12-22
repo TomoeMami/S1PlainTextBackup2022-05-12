@@ -1002,3 +1002,14 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 
 🐏了，不能第一时间奖励了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  azccc52  
+##### 102#       发表于 2022-12-22 11:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59045298&amp;ptid=2094442" target="_blank">huoguoshan23 发表于 2022-12-22 11:41</a>
+🐏了，不能第一时间被太太们奖励了</blockquote>
+＋1实在是不凑巧<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+

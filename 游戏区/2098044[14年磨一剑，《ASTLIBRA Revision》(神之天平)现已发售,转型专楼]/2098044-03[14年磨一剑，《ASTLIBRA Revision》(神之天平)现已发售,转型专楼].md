@@ -1097,3 +1097,16 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  笔の海  
+##### 3095#       发表于 2022-12-22 11:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59044657&amp;ptid=2098044" target="_blank">asdfg 发表于 2022-12-22 10:51</a>
+别着急，都不用远了，第五章打完你就会对此有全新的认识……
+
+这个游戏就是个不断修补旧遗憾但是很不幸就继 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我打到最终章了也觉得第四章很微妙……
+
