@@ -649,3 +649,16 @@ pay真的好主动
 为什么一到鲤p老有小搓搓在那说人真人泼冷水败观感和切割论，可堇作为全IP写的最烂的couple真的有底 ...</blockquote>
 借口罢了，双N各种花式营业，动画千恋基本毫无交集。碍着谁了？
 
+
+
+*****
+
+####  nufawneafg  
+##### 10554#       发表于 2022-12-22 11:24
+
+ 本帖最后由 nufawneafg 于 2022-12-22 11:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59044900&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-22 11:12</a>
+为什么一到鲤p老有小搓搓在那说人真人泼冷水败观感和切割论，可堇作为全IP写的最烂的couple真的有底 ...</blockquote>
+真切割了，这种言论你就不会见到第二次了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+这就是现实傲娇的含金量吧大概
+
