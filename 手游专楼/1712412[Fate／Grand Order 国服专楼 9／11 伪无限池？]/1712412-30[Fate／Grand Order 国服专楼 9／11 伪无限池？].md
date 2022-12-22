@@ -1179,3 +1179,12 @@ iOS求个一宝土方+五星礼装
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  艾尔特翔  
+##### 43910#       发表于 2022-12-22 19:07
+
+中招了，现在只能躺了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

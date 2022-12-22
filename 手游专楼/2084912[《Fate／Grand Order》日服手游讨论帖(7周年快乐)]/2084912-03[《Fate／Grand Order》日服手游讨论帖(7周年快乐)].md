@@ -10269,3 +10269,12 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  廖化  
+##### 3919#       发表于 2022-12-22 19:10
+
+2.7我是铁定打不过了……千万不要影响到后续的活动啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
