@@ -10278,3 +10278,15 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 2.7我是铁定打不过了……千万不要影响到后续的活动啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  xiongxingyu  
+##### 3920#       发表于 2022-12-22 20:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59050135&amp;ptid=2084912" target="_blank">廖化 发表于 2022-12-22 19:10</a>
+
+2.7我是铁定打不过了……千万不要影响到后续的活动啊</blockquote>
+上回的摩根祭不是已经开先例了吗，活动主线锁主线进度，free本可以直接刷。估计以后有后期主线要求的都会走这个模式，主线推得慢的无非是少拿点奖励，不至于直接吃闭门羹。
+
