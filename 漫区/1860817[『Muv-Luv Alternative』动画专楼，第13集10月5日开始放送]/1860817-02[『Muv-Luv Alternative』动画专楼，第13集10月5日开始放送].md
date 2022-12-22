@@ -2741,3 +2741,42 @@ a01部队本身的存在是不能公开的，既然当做意外，那自然不�
 
 话说 女武神要保密到这种程度吗 连阵亡都要修改成意外
 
+
+
+*****
+
+####  KOPKOM  
+##### 2223#         楼主| 发表于 2022-12-22 15:10
+
+ 本帖最后由 KOPKOM 于 2022-12-22 15:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59045162&amp;ptid=1860817" target="_blank">zhwpjy 发表于 2022-12-22 11:31</a>
+
+话说 女武神要保密到这种程度吗 连阵亡都要修改成意外</blockquote>
+
+不止是AL5派，还有某中二红毛都是一天到晚想要渗透横滨基地的，连最关键的脊髓都差点被人销毁掉，不严防死守的话结局肯定比育空事件都要惨
+
+*****
+
+####  hacisiki  
+##### 2224#       发表于 2022-12-22 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59042743&amp;ptid=1860817" target="_blank">再买自检星剁手 发表于 2022-12-22 04:33</a>
+
+指的是不能把管人写死吗？那就凄乃皇加一个座位
+
+或者改成白银武开战术机护卫，管人操作凄乃皇，牌 ...</blockquote>
+指的是换资方hhhhh
+
+*****
+
+####  再买自检星剁手  
+##### 2225#       发表于 2022-12-22 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59047463&amp;ptid=1860817" target="_blank">hacisiki 发表于 2022-12-22 15:10</a>
+指的是换资方hhhhh</blockquote>
+没看明白，啥是佐渡子
+
+如果指的是管人罢演，再找个声优开两三集工资也花不了多少钱
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
