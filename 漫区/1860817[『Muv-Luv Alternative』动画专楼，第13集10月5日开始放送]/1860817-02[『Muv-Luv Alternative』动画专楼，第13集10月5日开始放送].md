@@ -2798,3 +2798,21 @@ a01部队本身的存在是不能公开的，既然当做意外，那自然不�
 
 都已经忘了，tv最后还要保密防AL5派，游戏最后怎么人类就投入全部兵力去AL4的？
 
+
+
+*****
+
+####  wz1001  
+##### 2228#       发表于 2022-12-23 01:58
+
+[https://music.163.com/song?id=2007034527](https://music.163.com/song?id=2007034527)
+
+管人这个ed还是不错的
+
+*****
+
+####  smdzh2  
+##### 2229#       发表于 2022-12-23 03:36
+
+ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

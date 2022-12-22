@@ -6563,3 +6563,14 @@ miko：世界杯是我赢了！
 
 —— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  rs5621  
+##### 3616#       发表于 2022-12-23 01:58
+
+<img src="https://p.sda1.dev/9/3deba08f3e41f135d4ea3ed1c27bf95e/22678a5b66b455f3.jpg" referrerpolicy="no-referrer">真好
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
