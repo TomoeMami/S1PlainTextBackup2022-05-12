@@ -662,3 +662,15 @@ pay真的好主动
 真切割了，这种言论你就不会见到第二次了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 这就是现实傲娇的含金量吧大概
 
+
+
+*****
+
+####  ruffian  
+##### 10555#       发表于 2022-12-22 12:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59044900&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-22 11:12:29</a>
+为什么一到鲤p老有小搓搓在那说人真人泼冷水败观感和切割论，可堇作为全IP写的最烂的couple真的有底气说这 ...</blockquote>就这可堇推还特喜欢跳脸拉踩，可香先不说，可恋三分钟的yura都爆杀你那破官推几个小时的辣鸡塑造<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
