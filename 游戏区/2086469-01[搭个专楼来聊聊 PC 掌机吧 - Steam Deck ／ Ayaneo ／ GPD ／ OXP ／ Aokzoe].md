@@ -112,3 +112,14 @@
 
 思来想去最符合自己要求的可能还是gpd win max2，有点讽刺，早知道早买了
 
+
+
+*****
+
+####  barry.allen  
+##### 559#       发表于 2022-12-22 10:41
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">64gb的steam deck到手了
+
+感觉空间太小装不了几个游戏，能插机器上的sd卡有啥推荐么？什么规格的插进机器读盘能快点？
+
