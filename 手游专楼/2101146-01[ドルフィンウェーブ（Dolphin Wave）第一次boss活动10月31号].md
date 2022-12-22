@@ -634,3 +634,12 @@ SR由芽，我UR的SUN由芽又没法带了，这帮家伙出卡都不考虑属�
 
 这次建模倒是挺惊喜的，ヘリー裙子和セレナ上衣搭配的通用性很强，设计上既不像泳装一样单调又没上期卡池那么厚实<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  CrayS1  
+##### 207#       发表于 2022-12-22 18:16
+
+建模真是一坨,现在看板能换2d立绘了嘛?
+
