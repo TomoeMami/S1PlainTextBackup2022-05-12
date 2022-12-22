@@ -1006,3 +1006,19 @@ it's ark time
 
 这下道歉了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  psnsic8nag  
+##### 18095#       发表于 2022-12-22 09:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59043659&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-12-22 09:14</a>
+
+这下道歉了</blockquote>
+认为这只是单纯的“纯爱歌曲”所以才翻唱
+
+骗谁呢？
+
+真不知道这歌曲的目的，怎还会在翻唱视频下感谢族长的”包容“？
+
