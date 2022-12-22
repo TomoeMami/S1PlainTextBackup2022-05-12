@@ -1188,3 +1188,23 @@ iOS求个一宝土方+五星礼装
 
 中招了，现在只能躺了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimotsuki14  
+##### 43911#       发表于 2022-12-22 19:24
+
+中招刚烧完，完全没心力刷…
+
+*****
+
+####  dawning  
+##### 43912#       发表于 2022-12-22 19:27
+
+刚才体温上升，以为自己中招了，然后喝了几杯水，上了几次厕所，又感觉满血复活了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，
+
+明明我做的防护形同虚设<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+
+现在身边陆陆续续的有人阳了，办公楼十几个人，也有一半阳了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
