@@ -793,3 +793,26 @@ id青叶真司的</blockquote>这人拱火有一手的，我都眼熟他了…�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ruffian  
+##### 10566#       发表于 2022-12-22 22:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59052705&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-22 22:11:05</a>
+这货老厕所人早就屏蔽了，凡是有鲤鱼和pay的视频都要在评论嘴臭几句</blockquote>感觉这人比起嘴臭更烦人的是要么一本正经的胡说八道，要么就带上个特欠揍的吃瓜/嗑瓜子表情拱火，还话特多哪都能看见他<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  优妮可  
+##### 10567#       发表于 2022-12-22 22:22
+
+<blockquote>ruffian 发表于 2022-12-22 22:11
+这人拱火有一手的，我都眼熟他了……又出啥暴言了吗？
+
+  -- 来自 有消息提醒的 Stage1官方 Android ...</blockquote>
+差不多，13号那天跟着厕所人带节奏，今天鲤p又是在胡说。
+

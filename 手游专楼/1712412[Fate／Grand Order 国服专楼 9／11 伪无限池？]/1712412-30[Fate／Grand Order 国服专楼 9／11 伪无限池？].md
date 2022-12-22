@@ -1281,3 +1281,14 @@ iOS求个一宝土方+五星礼装
 
 阳了，刷得头疼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kon-El  
+##### 43921#       发表于 2022-12-22 22:22
+
+有个朋友刷苏鲁特刷了130把，自愧不如
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
