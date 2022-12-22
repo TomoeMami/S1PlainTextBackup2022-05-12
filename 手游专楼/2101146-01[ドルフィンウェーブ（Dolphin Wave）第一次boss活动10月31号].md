@@ -616,3 +616,21 @@ SR由芽，我UR的SUN由芽又没法带了，这帮家伙出卡都不考虑属�
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  kulanyee  
+##### 205#       发表于 2022-12-22 16:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  MEKA  
+##### 206#       发表于 2022-12-22 17:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">毕竟总是要重复的，出来占个位置让你去抽UR紫苑。
+
+这次建模倒是挺惊喜的，ヘリー裙子和セレナ上衣搭配的通用性很强，设计上既不像泳装一样单调又没上期卡池那么厚实<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
