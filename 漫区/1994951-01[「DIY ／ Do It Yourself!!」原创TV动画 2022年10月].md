@@ -8207,3 +8207,18 @@ Music Collectionジャケット ...</blockquote>
 大佬，现在不用插件转换应该也能正常显示？</blockquote>
 去麻烦了一下插件作者，现在 emoji 能正常显示啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 604#       发表于 2022-12-22 17:08
+
+『Do It Yourself!! -どぅー・いっと・ゆあせるふ-』
+
+最後までご視聴くださり、ありがとうございました①
+
+監督の米田和弘さんより、直筆コメントいただきました🔨
+
+<img src="https://p.sda1.dev/9/c1fda65099ffbb6a6b70d0a560d59ed3/PINEJAM_info-1605586389923516421-img1.png" referrerpolicy="no-referrer">
+
