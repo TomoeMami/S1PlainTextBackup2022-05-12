@@ -8419,3 +8419,28 @@ bsyl你这个戏服也太ooc了。。怎么感觉在哪都能见到</blockquote>
 
 十月番里感觉最舒服的作品，没有原创剧情暴走，也没有音监发病，画面演出也一直在线
 
+
+
+*****
+
+####  RainbowSealife  
+##### 615#       发表于 2022-12-22 23:27
+
+<img src="https://img.saraba1st.com/forum/202212/22/230920sttc46a9elu6ul9z.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (336.14 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 23:09 上传
+
+<img src="https://img.saraba1st.com/forum/202212/22/232345q4ganj3w4xphjeex.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (150.11 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 23:23 上传
+
+过场插图疑似neta老照片1931年修建帝国大厦的工人们（用谷歌搜了一下蹦出个19th century construction worker，给我整不会了，不清楚这个黑白照片的真正出处）
+
