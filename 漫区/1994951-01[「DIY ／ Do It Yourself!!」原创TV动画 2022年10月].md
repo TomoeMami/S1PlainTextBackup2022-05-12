@@ -8388,3 +8388,34 @@ self真的很会养成
 
 2022-12-22 22:36 上传
 
+
+
+*****
+
+####  H2Ofrozen  
+##### 612#       发表于 2022-12-22 22:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59051706&amp;ptid=1994951" target="_blank">伊地知星歌 发表于 2022-12-22 21:04</a>
+
+我要告诉你的…是更远的事(&amp;#x ...</blockquote>
+bsyl你这个戏服也太ooc了。。怎么感觉在哪都能见到<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+*****
+
+####  伊地知星歌  
+##### 613#       发表于 2022-12-22 22:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59053297&amp;ptid=1994951" target="_blank">H2Ofrozen 发表于 2022-12-22 22:52</a>
+
+bsyl你这个戏服也太ooc了。。怎么感觉在哪都能见到</blockquote>
+等我泷奈戏服待机好就换了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  バーチャルS1er  
+##### 614#       发表于 2022-12-22 22:55
+
+完结了
+
+十月番里感觉最舒服的作品，没有原创剧情暴走，也没有音监发病，画面演出也一直在线
+
