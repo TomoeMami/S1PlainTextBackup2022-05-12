@@ -1074,3 +1074,26 @@ it's ark time
 
 当年剑持king对成濑，圭利对哈海王，运营哪出过手，冲掉集体工商不已经是牢皇犯法待遇了。看兔皇会不会回应了，不过当年哈海王直接放话原谅，圭利还被骂了个把月，是不是要看到杏仁力量了
 
+
+
+*****
+
+####  winda  
+##### 18101#       发表于 2022-12-22 15:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59046204&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-22 13:02</a>
+
+当年剑持king对成濑，圭利对哈海王，运营哪出过手，冲掉集体工商不已经是牢皇犯法待遇了。看兔皇会不会回应 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202212/22/151943b5151oonsoezddhq.png" referrerpolicy="no-referrer">
+
+<strong>gungun.png</strong> (77.62 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 15:19 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前老师这事什么都没管，圭利送个休止套餐已经很给面子了
+
+倒是兔皇为啥要管圭利这事，自顾自蹭上来又自顾自自肃，关兔皇毛事
+
