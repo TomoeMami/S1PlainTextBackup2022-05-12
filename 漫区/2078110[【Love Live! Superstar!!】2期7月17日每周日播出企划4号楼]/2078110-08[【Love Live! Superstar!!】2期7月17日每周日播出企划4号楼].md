@@ -627,3 +627,14 @@ yura能端上来吗？
 
 pay真的好主动
 
+
+
+*****
+
+####  ViyViy  
+##### 10552#       发表于 2022-12-22 11:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么一到鲤p老有小搓搓在那说人真人泼冷水败观感和切割论，可堇作为全IP写的最烂的couple真的有底气说这种话？
+
+搞的好像写的很优秀结果中之人使小心眼子故意不营业一样。。
+
