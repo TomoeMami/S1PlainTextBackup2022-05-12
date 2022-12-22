@@ -8444,3 +8444,17 @@ bsyl你这个戏服也太ooc了。。怎么感觉在哪都能见到</blockquote>
 
 过场插图疑似neta老照片1931年修建帝国大厦的工人们（用谷歌搜了一下蹦出个19th century construction worker，给我整不会了，不清楚这个黑白照片的真正出处）
 
+
+
+*****
+
+####  千恋万花  
+##### 616#       发表于 2022-12-22 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59053734&amp;ptid=1994951" target="_blank">RainbowSealife 发表于 2022-12-22 23:27</a>
+
+过场插图疑似neta老照片1931年修建帝国大厦的工人们（用谷歌搜了一下蹦出个19th century construction wo ...</blockquote>
+595 楼我也提了一嘴是 neta「摩天楼顶上的午餐（Lunch atop a Skyscraper）」
+
+查了下，应该是被证实是宣传噱头了：[https://www.dailymail.co.uk/news ... ublicity-stunt.html](https://www.dailymail.co.uk/news/article-2206050/The-picture-proves-iconic-photograph-workers-eating-lunch-Rockefeller-beam-publicity-stunt.html)
+

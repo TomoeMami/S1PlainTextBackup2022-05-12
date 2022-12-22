@@ -1762,3 +1762,12 @@ Xdev的高级制作人Jason Stewart也在推特上表示对此次合作十分激
 PSN页面上了：
 [https://store.playstation.com/zh-hant-hk/concept/10003386/](https://store.playstation.com/zh-hant-hk/concept/10003386/)
 
+
+
+*****
+
+####  宛若青空  
+##### 204#       发表于 2022-12-22 23:36
+
+港服SIE发行？
+
