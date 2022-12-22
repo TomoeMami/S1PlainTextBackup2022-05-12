@@ -1333,3 +1333,17 @@ iOS求个一宝土方+五星礼装
 
 最后的伤害实际上在0.9-1.1之间有一个完全随机的取值
 
+
+
+*****
+
+####  hsheep  
+##### 43926#       发表于 2022-12-22 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59053836&amp;ptid=1712412" target="_blank">日蚀之阳 发表于 2022-12-22 23:34</a>
+
+因为随机数（）
+
+最后的伤害实际上在0.9-1.1之间有一个完全随机的取值</blockquote>
+原来如此，谢谢。平时太咸鱼都没关心这种事，像圣诞的无限池关底也只有40W血可以随便凑合，这种快100W的boss终于体现出高宝高练的重要性了。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

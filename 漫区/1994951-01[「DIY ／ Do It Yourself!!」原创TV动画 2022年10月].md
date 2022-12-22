@@ -8458,3 +8458,53 @@ bsyl你这个戏服也太ooc了。。怎么感觉在哪都能见到</blockquote>
 
 查了下，应该是被证实是宣传噱头了：[https://www.dailymail.co.uk/news ... ublicity-stunt.html](https://www.dailymail.co.uk/news/article-2206050/The-picture-proves-iconic-photograph-workers-eating-lunch-Rockefeller-beam-publicity-stunt.html)
 
+
+
+*****
+
+####  CharlieZ-  
+##### 617#       发表于 2022-12-22 23:45
+
+job子走了，有续作的概率约等于零？还是希望能有，这动画的观看体验真的超级舒服
+
+希望销量能高一点吧<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+*****
+
+####  RainbowSealife  
+##### 618#       发表于 2022-12-22 23:50
+
+<img src="https://img.saraba1st.com/forum/202212/22/232954b2h6ylbfkrb65kb9.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (260.61 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 23:29 上传
+
+原以为布丁是个想做1但又做不成1而心有不忿的0，傲娇只是不想堕落为0的手段罢了；结果现在成了想做青梅身边无微不至的妈系女友却又做不成之后愤而化身死傲娇的重女罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/22/233329b22iwi2phzah6t62.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (184 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 23:33 上传
+
+做什么这么开心啊？（狸猫：当然是和米米同学做*非常的塔诺西！）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://tvax1.sinaimg.cn/large/beb44592ly1h9d0qj9bqqg20dc07ib2b.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/22/234644tymhsytepfueplyt.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (268.33 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 23:46 上传
+
+没想到这季度看的最开心是这部DIY，一集不拉，也没开倍速播放，鉴定为个人季度最佳<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+[どきどきアイデアをよろしく! Funk Mix](https://music.163.com/#/song?id=1997487640)
+
+网抑云也有OP的资源了，推荐听听funk mix版的。
+

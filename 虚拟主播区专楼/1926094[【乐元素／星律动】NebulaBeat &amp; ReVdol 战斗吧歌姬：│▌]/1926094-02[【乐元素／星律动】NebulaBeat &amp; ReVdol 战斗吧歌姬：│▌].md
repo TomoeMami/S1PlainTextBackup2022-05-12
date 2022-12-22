@@ -12508,3 +12508,15 @@ wb更了   太劲了
 参考今天厂长转发的切片中的招募海报，小火驴说自己至少17年5月地球防卫偶像团招募的时候就在日本。已知她 ...</blockquote>
 叶子也是24岁，最多25，已公开的秘密了
 
+
+
+*****
+
+####  十神白夜神月  
+##### 2805#       发表于 2022-12-22 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59042487&amp;ptid=1926094" target="_blank">ladiesman802 发表于 2022-12-22 02:15</a>
+
+叶子也是24岁，最多25，已公开的秘密了</blockquote>
+叶子今年26了，她大学应该一半在国内一半在日本读的，她日语好主要她是学日语专业的
+
