@@ -1238,3 +1238,24 @@ syl，兔皇被蹭了怎么不能管了，觉得心里难受跟马内甲说一�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这玩意作词是holo匿名版诶，别人拿来编曲而已
 个人势还好，企业势也这么玩么
 
+
+
+*****
+
+####  rzrbtk  
+##### 18113#       发表于 2022-12-22 18:40
+
+ 本帖最后由 rzrbtk 于 2022-12-22 18:41 编辑 
+
+<img src="https://img.saraba1st.com/forum/202212/22/183731i0fyxxrx9rfw3jr2.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 042 - 【人気Vtuberグウェルが「ぺこーらに、告白しようと思ってる.png</strong> (48.13 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 18:37 上传
+
+我也很意外这种胡逼事居然会真的去拿作曲者许可，可能圭利跟lr上同一个着作权课吧
+
+（已经删稿了所以图来源：[【人気Vtuberグウェルが「ぺこーらに、告白しようと思ってる。」を歌い炎上→非公开に】がやばすぎたので详しく解説 - YouTube](https://www.youtube.com/watch?v=6ONE8ne92II&amp;t=47s)）
+

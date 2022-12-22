@@ -1168,3 +1168,14 @@ iOS求个一宝土方+五星礼装
 
 全五星礼装加成，可以安心打剑饼干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kon-El  
+##### 43909#       发表于 2022-12-22 18:45
+
+一口气把孔明15绊刷上了，谢谢你孔明
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
