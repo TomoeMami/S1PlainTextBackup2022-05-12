@@ -1022,3 +1022,14 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全luo待鸡中
 
+
+
+*****
+
+####  名字已被吃  
+##### 104#       发表于 2022-12-22 12:35
+
+这几天才知道krkr模拟器，原来手机也能模拟器玩，然后试了一下能玩第三部魅魔，不知道最新这部行不，我看123都是同一个引擎<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

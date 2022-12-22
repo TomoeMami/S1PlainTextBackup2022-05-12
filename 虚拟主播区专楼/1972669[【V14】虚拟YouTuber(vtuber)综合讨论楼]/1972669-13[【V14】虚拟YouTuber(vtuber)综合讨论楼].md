@@ -1056,3 +1056,12 @@ it's ark time
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">把anti串内容形容成厕所涂鸦，把sc曲当纯爱歌，这是在装傻嘲讽吧
 那手账一定是对king的爱称了，这就是虹的水平么
 
+
+
+*****
+
+####  hulaoda007  
+##### 18099#       发表于 2022-12-22 12:35
+
+虹运营其实对旗下主播的管理到底是多少？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">两个理念不合走了，塔磨利这倒是道歉也不干脆。
+
