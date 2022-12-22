@@ -1172,3 +1172,19 @@ syl，兔皇被蹭了怎么不能管了，觉得心里难受跟马内甲说一�
 
 这算不算顶风作案<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 18108#       发表于 2022-12-22 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59048118&amp;ptid=1972669" target="_blank">psnsic8nag 发表于 2022-12-22 16:11</a>
+
+回应就上当了
+
+去年的冷炸鸡节奏，族长也是冷处理
+
+这种事交给运营处理就好</blockquote>
+说真的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">...我那句话的意思是无所谓回不回应只要杏仁生气圭利还是被骂，拿哈海王选择原谅做例子了都，而且兔皇不回就不会“上当”吗，去年就说过“不在意这首歌”结果现在圭利休止了不还是被联合an搅混水
+
