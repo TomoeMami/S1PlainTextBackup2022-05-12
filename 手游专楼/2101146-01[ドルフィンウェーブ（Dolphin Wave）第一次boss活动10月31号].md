@@ -671,3 +671,12 @@ SR由芽，我UR的SUN由芽又没法带了，这帮家伙出卡都不考虑属�
 
 缺石头的别忘了去打新主线
 
+
+
+*****
+
+####  MEKA  
+##### 210#       发表于 2022-12-22 22:32
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们怎么穿这么厚的
+

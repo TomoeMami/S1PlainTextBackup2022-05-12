@@ -1336,3 +1336,15 @@ syl，兔皇被蹭了怎么不能管了，觉得心里难受跟马内甲说一�
 有什么原因吗？能让嗓子消耗成这样？ ...</blockquote>
 因为世界杯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布莱士·西伯利  
+##### 18121#       发表于 2022-12-22 22:32
+
+舞元看世界杯看了个爽啊。
+
+SYL，阿社和皇女对谈还蛮有趣的。
+[https://www.bilibili.com/video/BV1Bd4y1Y7UJ](https://www.bilibili.com/video/BV1Bd4y1Y7UJ)
+
