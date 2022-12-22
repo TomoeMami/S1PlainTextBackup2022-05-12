@@ -1058,3 +1058,29 @@
 做成巧克力放在天平上，没其他用处了</blockquote>
   搜了下这玩意合出来的蛋糕可以看同伴个人结局？
 
+
+
+*****
+
+####  M1NG  
+##### 3092#       发表于 2022-12-22 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59040884&amp;ptid=2098044" target="_blank">415452356 发表于 2022-12-21 23:20</a>
+
+搜了下这玩意合出来的蛋糕可以看同伴个人结局？</blockquote>
+我印象里没这个剧情，去wiki确认了下应该是没有这个用法的。
+
+*****
+
+####  asdfg  
+##### 3093#       发表于 2022-12-22 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59035584&amp;ptid=2098044" target="_blank">红魔馆的糖 发表于 2022-12-21 03:43</a>
+
+第四章的屠村剧情有点微妙。。为了幻术这瓶醋搞的饺子味道怪怪的</blockquote>
+别着急，都不用远了，第五章打完你就会对此有全新的认识……
+
+这个游戏就是个不断修补旧遗憾但是很不幸就继续产生了新遗憾最后干脆就****然后最后发现我了个去*******的不断反转剧情……慢慢看吧。
+
+可以说的是追章剧情真的太帅了，整体都太帅了。
+
