@@ -1289,3 +1289,17 @@ syl，兔皇被蹭了怎么不能管了，觉得心里难受跟马内甲说一�
 才看到舞元因为喉咙状态不行退掉了犬山那里的企划。
 有什么原因吗？能让嗓子消耗成这样？
 
+
+
+*****
+
+####  winda  
+##### 18117#       发表于 2022-12-22 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59049769&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-22 18:40</a>
+
+我也很意外这种胡逼事居然会真的去拿作曲者许可，可能圭利跟lr上同一个着作权课吧
+
+（已经删稿了所以图来 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还特意写了个对佩桑的敬意来误导观众已经取得佩桑许可，这是明知故犯啊
+

@@ -134,3 +134,15 @@ microSD都差不多，半斤八两。发热降速也是逃不过的<img src="htt
 正经卡读速都不会差，deck好像还有读取速度限制。
 现在缩水关键点在写速。不敢写写速的知道大概怎么回事就行
 
+
+
+*****
+
+####  luffyzhou  
+##### 561#       发表于 2022-12-22 21:25
+
+终于收到Aya neo2了，黑色1t的，最早预定的，在顺丰本地中转躺了2天，在派送点躺了1天，估计是第一批羊的康复了这两天开始正常些了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/6f5262c22afcc10d94a90e2ed0635d2b/CMP_20221222212300973.jpg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-F9360, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
