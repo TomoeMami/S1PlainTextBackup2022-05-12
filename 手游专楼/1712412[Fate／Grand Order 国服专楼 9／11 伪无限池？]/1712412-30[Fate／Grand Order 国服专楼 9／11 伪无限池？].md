@@ -1347,3 +1347,14 @@ iOS求个一宝土方+五星礼装
 最后的伤害实际上在0.9-1.1之间有一个完全随机的取值</blockquote>
 原来如此，谢谢。平时太咸鱼都没关心这种事，像圣诞的无限池关底也只有40W血可以随便凑合，这种快100W的boss终于体现出高宝高练的重要性了。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  朝仓和美  
+##### 43927#       发表于 2022-12-23 00:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59053606&amp;ptid=1712412" target="_blank">hsheep 发表于 2022-12-22 23:16</a>
+这巨人好恶心，红蓝卡要前置两张，绿卡cba降不了防，感觉怎么都有点难受。而且同一个打手，大部分时候都能 ...</blockquote>
+可以尝试带个呆毛开2技能
+

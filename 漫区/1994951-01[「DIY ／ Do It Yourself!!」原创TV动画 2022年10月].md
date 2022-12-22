@@ -8519,3 +8519,60 @@ job子走了，有续作的概率约等于零？还是希望能有，这动画�
 原以为布丁是个想做1但又做不成1而心有不忿的0，傲娇只是不想堕落为0的手段罢了；结果现在成了想做青梅身 ...</blockquote>
 op的哒～****和ed的温柔前奏都是记忆点～
 
+
+
+*****
+
+####  Piano-Forest  
+##### 620#         楼主| 发表于 2022-12-23 00:16
+
+『Do It Yourself!!』
+
+すてっぷ１２より、背景美術&amp;美術スタッフのコメントをご紹介
+
+背景に関しては水彩感を出す、画面の中に抜き表現を入れる等楽しめた部分もあり、また多難でした。
+
+その中、スタッフ一同楽しみつつ頑張ることができ、達成感と満足感を得ることが出来ました。
+<img src="https://p.sda1.dev/9/286f57196220e0914637cb42e9959f5a/20221223_000803.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/2ca4cc9650f0f8c667a8bdaf3dfc62cb/20221223_000805.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/ee6c92c2189d6c01452cfc5572763252/20221223_000806.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/ce13f723293ba75eda196384ac122b10/20221223_000807.jpg" referrerpolicy="no-referrer">
+
+DIY!! 1话4话
+[https://twitter.com/youjohan_me/status/1605881281627033601](https://twitter.com/youjohan_me/status/1605881281627033601)
+<img src="https://p.sda1.dev/9/68f55805a43d8c6217d3728ac8d0bea2/20221223_000830.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/17b9965103247a16aefefdd72fc224a1/20221223_000833.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/7730cebe25d7e7d8addec822b34bca60/20221223_000836.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/15fd149bf8f35154b29b84b6fdb36e43/20221223_000838.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/youjohan_me/status/1605881356084563968](https://twitter.com/youjohan_me/status/1605881356084563968)
+<img src="https://p.sda1.dev/9/5d421a88b830415e11dc70923db3e193/20221223_000843.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/98129b2dc5f2ca66fbe598bbcf845bbf/20221223_000845.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/5f051b5a27139dcb16d14f696b916acf/20221223_000847.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/4754ea2c0c063e63a3f21bc624308cf2/20221223_000848.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  aiyouo  
+##### 621#       发表于 2022-12-23 00:18
+
+太好看辣 ，可惜大概看不到第二季了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Piano-Forest  
+##### 622#         楼主| 发表于 2022-12-23 00:19
+
+『Do It Yourself!! -どぅー・いっと・ゆあせるふ-』
+
+最後までご視聴いただき、ありがとうございました
+
+すてっぷ１２より、作監修正
+<img src="https://p.sda1.dev/9/f379095184bc2e6714f76e76ecf31219/20221223_001458.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/6a8709ffc1e65e6e16b7f780f59e17bc/20221223_001502.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/57b3c5f62a58dc595ac1e357dafd8a7c/20221223_001505.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/e9b66947461e6f20268295269171b1cf/20221223_001516.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/4d63a90fd230e78b6dd8c53c586a2065/20221223_001522.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/b137c13180576affdcc3a766883efa35/20221223_001525.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/d6927290c9f6d3978bc416995e41c15b/20221223_001528.jpg" referrerpolicy="no-referrer">
+
