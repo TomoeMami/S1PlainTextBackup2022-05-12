@@ -1084,3 +1084,16 @@
 
 可以说的是追章剧情真的太帅了，整体都太帅了。
 
+
+
+*****
+
+####  415452356  
+##### 3094#       发表于 2022-12-22 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59044656&amp;ptid=2098044" target="_blank">M1NG 发表于 2022-12-22 10:51</a>
+我印象里没这个剧情，去wiki确认了下应该是没有这个用法的。</blockquote>
+  刚刚喂完爱心看完大结局了，感谢回答了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
