@@ -1132,3 +1132,20 @@ syl，兔皇被蹭了怎么不能管了，觉得心里难受跟马内甲说一�
 照郡gachi的说法你虹好卑微啊<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 “大人，我们anycolor是一心与您交好的，都是下面的人不懂，我已经把他关起来道歉了。”
 
+
+
+*****
+
+####  psnsic8nag  
+##### 18105#       发表于 2022-12-22 16:11
+
+ 本帖最后由 psnsic8nag 于 2022-12-22 16:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59046204&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-22 13:02</a>
+
+当年剑持king对成濑，圭利对哈海王，运营哪出过手，冲掉集体工商不已经是牢皇犯法待遇了。看兔皇会不会回应 ...</blockquote>
+回应就上当了
+
+去年的冷炸鸡节奏，族长也是冷处理
+
+这种事交给运营处理就好
+
