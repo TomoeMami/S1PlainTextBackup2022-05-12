@@ -239,3 +239,14 @@ g胖一般不会数3，所以2代板上钉钉妥妥的
 还有一部分游戏卡在正在分配空间下载不下来
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  安广多惠子  
+##### 1991#       发表于 2022-12-22 17:39
+
+今天终于收到了，在公司第一时间下了个杀戮尖塔试试，好爽<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

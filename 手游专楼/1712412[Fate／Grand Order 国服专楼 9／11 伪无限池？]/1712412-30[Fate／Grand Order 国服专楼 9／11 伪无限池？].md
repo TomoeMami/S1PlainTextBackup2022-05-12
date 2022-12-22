@@ -1145,3 +1145,26 @@ iOS求个一宝土方+五星礼装
 
 开启仓鼠模式，明年一整年我都没有抽卡计划了。
 
+
+
+*****
+
+####  待宵  
+##### 43906#       发表于 2022-12-22 17:37
+
+五 块 石 头
+
+*****
+
+####  DET33  
+##### 43907#       发表于 2022-12-22 17:38
+
+特攻真爽<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  dawning  
+##### 43908#       发表于 2022-12-22 17:39
+
+全五星礼装加成，可以安心打剑饼干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

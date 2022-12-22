@@ -6504,3 +6504,26 @@ miko：世界杯是我赢了！
 
 但是也不可能25号一整天只直播那个20分钟歌回，怕不是被观众喷死
 
+
+
+*****
+
+####  qesto  
+##### 3612#       发表于 2022-12-22 17:41
+
+<img src="https://img.saraba1st.com/forum/202212/22/174140vyrvo6y4zvfdcoyt.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (301.68 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 17:41 上传
+
+<img src="https://img.saraba1st.com/forum/202212/22/174122a7dd5wdrraypdaa7.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (54.88 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-22 17:41 上传
+
