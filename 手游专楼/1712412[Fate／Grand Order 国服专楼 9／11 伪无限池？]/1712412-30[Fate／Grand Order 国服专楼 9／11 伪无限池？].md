@@ -1370,3 +1370,15 @@ iOS求个一宝土方+五星礼装
 这巨人好恶心，红蓝卡要前置两张，绿卡cba降不了防，感觉怎么都有点难受。而且同一个打手，大部分时候都能 ...</blockquote>
 我懒得算，直接黑杯大卫+宝石翁杀狐+奥伯龙+姑姑，buff都砸大卫身上后奥伯龙换姑姑出来宝具三连，一发最低都170w
 
+
+
+*****
+
+####  dawning  
+##### 43929#       发表于 2022-12-23 06:33
+
+131，打到中间都快睡着了，
+一看qp12亿，赶紧把五星的追加技能升了，直接用掉8亿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
