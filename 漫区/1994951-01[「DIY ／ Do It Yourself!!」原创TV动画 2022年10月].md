@@ -8195,3 +8195,15 @@ Music Collectionジャケット ...</blockquote>
 干隆的着作</blockquote>
 好像还是不行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 603#       发表于 2022-12-22 14:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59042442&amp;ptid=1994951" target="_blank">Piano-Forest 发表于 2022-12-22 02:06</a>
+
+大佬，现在不用插件转换应该也能正常显示？</blockquote>
+去麻烦了一下插件作者，现在 emoji 能正常显示啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
