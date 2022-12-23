@@ -2221,3 +2221,35 @@ DLC没买，来资瓷一下碰下运气
 
  凑热闹
 
+
+
+*****
+
+####  indtability  
+##### 281#       发表于 2022-12-23 18:55
+
+凑热闹
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  はちたや  
+##### 282#       发表于 2022-12-23 18:58
+
+xbox上玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">steam版的一直在购物车里
+
+*****
+
+####  芷雅居  
+##### 283#       发表于 2022-12-23 18:58
+
+虽然全平台都买了，但是帮好朋友roll一份<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  mashav  
+##### 284#       发表于 2022-12-23 18:59
+
+凑个热闹
+
