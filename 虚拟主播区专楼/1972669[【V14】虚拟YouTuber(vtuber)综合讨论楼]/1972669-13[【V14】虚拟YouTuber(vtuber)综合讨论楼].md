@@ -1730,3 +1730,22 @@ v综好久没这么热闹了，谢谢enkr谢谢圭利
 
 等尼哥哪天被人堵家门口浇汽油希望你们也别提上门的anti素质不行而是和我一样多点些好吃的庆祝
 
+
+
+*****
+
+####  _Ra1nMaker  
+##### 18155#       发表于 2022-12-23 17:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59059284&amp;ptid=1972669" target="_blank">gogomw 发表于 2022-12-23 15:03</a>
+
+虹运营看起来是要牌坊的,但是贵物主播和虹太监确实是恬不知耻不要脸 ...</blockquote>
+好骂
+
+*****
+
+####  _Ra1nMaker  
+##### 18156#       发表于 2022-12-23 17:30
+
+黑人到底怎么样我不好说，楼上那个发癫的楼友真是纯纯的htj+小丑，泥哥潭都没你这么能赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
