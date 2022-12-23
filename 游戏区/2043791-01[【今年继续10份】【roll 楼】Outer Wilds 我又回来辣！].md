@@ -2429,3 +2429,21 @@ xbox上玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.pn
 
 Dlc+1
 
+
+
+*****
+
+####  张叔夜  
+##### 305#       发表于 2022-12-23 22:37
+
+好耶好耶
+
+—— 来自 HUAWEI NOH-AN01, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  umbasa  
+##### 306#       发表于 2022-12-23 22:38
+
+分子来了
+

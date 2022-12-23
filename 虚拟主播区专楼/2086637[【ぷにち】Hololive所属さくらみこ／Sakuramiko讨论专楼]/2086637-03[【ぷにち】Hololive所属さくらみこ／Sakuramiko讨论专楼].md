@@ -6731,3 +6731,12 @@ miko的tkb哒
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝贝粉鳄当然是能不用就不用啊,就一个npc踩到粉鳄,她都要界限化了.让她拿出去挨打很难的啦
 
+
+
+*****
+
+####  神澈  
+##### 3630#       发表于 2022-12-23 22:35
+
+那干脆别带着啊。
+
