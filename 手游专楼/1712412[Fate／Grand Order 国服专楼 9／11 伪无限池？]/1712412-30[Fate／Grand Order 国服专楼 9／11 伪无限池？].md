@@ -1441,3 +1441,18 @@ iOS求个一宝土方+五星礼装
 
 为都没人用大卫……满破黑杯或者五星礼装大卫加奥博龙呆毛极地服除了脸黑没呆毛卡和红卡外很稳的
 
+
+
+*****
+
+####  电波系腑海林  
+##### 43936#       发表于 2022-12-23 12:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=39999995&amp;ptid=1712412" target="_blank">ＢＢ 发表于 2018-6-15 15:24</a>
+2# 常用链接    3# 参考资料    4# 待复刻活动礼装
+
+国服专楼标题芸从2022/06/30开始暂停，何时恢复看心情</blockquote>
+今天掉下四饼干，B4拿不出稳定3T阵容不打了，专注今天。狼王加太公直接杀穿<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
