@@ -1317,3 +1317,28 @@ nyaa.si，然后点上面的fap有百度盘会员还是用贴吧的资源吧，n
 
 贴吧有资源了
 
+
+
+*****
+
+####  g54088  
+##### 133#       发表于 2022-12-23 23:16
+
+单看cg有点期待落空，老妈组的动图张数比女儿组少太多了。然后多p的动图也只有一个了，老妈组没有。
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Toby_dak  
+##### 134#       发表于 2022-12-23 23:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59064795&amp;ptid=2094442" target="_blank">modedd 发表于 2022-12-23 23:50</a>
+
+nyaa的最新网址是啥，求
+
+  -- 来自 能看大图的 Stage1官方 Android客户端</blockquote>
+里界资源要这个。
+
+sukebei.nyaa.si/
+
