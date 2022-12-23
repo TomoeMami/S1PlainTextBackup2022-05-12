@@ -1704,3 +1704,16 @@ iOS求个一宝土方+五星礼装
 
 光看羁绊了，没想到QP爆仓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ousia  
+##### 43956#       发表于 2022-12-24 00:10
+
+晚上基本没什么停顿40秒一把全速前进，和好友奥宝的亲密度比和自己的高多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+全吃彩苹果最后比吃前还多，梦火就剩俩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+唯一后悔的是周年刷什么qp<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
