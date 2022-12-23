@@ -2343,3 +2343,23 @@ xbox上玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.pn
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  狗命啊  
+##### 295#       发表于 2022-12-23 21:35
+
+来了，支持支持
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  狗命啊  
+##### 296#       发表于 2022-12-23 21:35
+
+来了，支持支持
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
