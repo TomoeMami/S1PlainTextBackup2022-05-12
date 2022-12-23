@@ -8674,3 +8674,21 @@ DIY!!12話参加せて頂いてました。1話からDIY部のみんなたくさ
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">很多妈系重女都会有控制欲过强的毛病，但布丁在初中的时候就听了小己的话放手让她自己成长，真好啊
 
+
+
+*****
+
+####  Yeaha123  
+##### 629#       发表于 2022-12-23 13:34
+
+太平淡了，对女主和布丁关系不感冒的话好像也没啥好看了
+
+*****
+
+####  伊地知星歌  
+##### 630#       发表于 2022-12-23 13:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59058198&amp;ptid=1994951" target="_blank">pzk 发表于 2022-12-23 13:15</a>
+很多妈系重女都会有控制欲过强的毛病，但布丁在初中的时候就听了小己的话放手让她自己成长，真好啊 ...</blockquote>
+要她放手才从母系变成傲娇重女妈妈了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

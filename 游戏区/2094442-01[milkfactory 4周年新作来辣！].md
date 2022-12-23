@@ -1122,3 +1122,21 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 
 这作只卖实体版放流是不是要很久<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  elven119  
+##### 114#       发表于 2022-12-23 13:35
+
+只卖实体版，起码一周以后，我禁欲3个月了，就为了等它。结果只卖实体版
+
+*****
+
+####  g54088  
+##### 115#       发表于 2022-12-23 13:38
+
+难怪网贩平台没看到，只卖实体版是怎么想的？想先冲一波实体销量？还是电子版等steam一起上？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

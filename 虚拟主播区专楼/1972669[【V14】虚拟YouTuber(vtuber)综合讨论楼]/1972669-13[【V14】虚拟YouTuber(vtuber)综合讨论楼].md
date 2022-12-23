@@ -1508,3 +1508,18 @@ syl，感觉跟我推天涯共此时了
 
 不过都说了，这难道不能展示虹杏联合条例的诚意嘛<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  rzrbtk  
+##### 18133#       发表于 2022-12-23 13:33
+
+ 本帖最后由 rzrbtk 于 2022-12-23 13:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59058305&amp;ptid=1972669" target="_blank">winda 发表于 2022-12-23 13:24</a>
+
+不是，你这也没正面回应啊，我指的是阿裁以前那次讲郡道旅游推疑似造假那个视频，当时阿裁还以说 ...</blockquote>
+也直播的时候回应了啊，当时先是承认自己当时在日本（哪个县忘了）内因为出道早期怕特定不敢说出真实地址，然后推特发了早年去意大利旅游的照片证明自己去过，说自己之后改变了通知方式直接搞失踪，还是突出一个觉得自己没有错所以随便回啊
+
+圭利确实出道以来一直会耍小手段啊，从塞广告片段到现在，就是这种人（无褒义）
+
