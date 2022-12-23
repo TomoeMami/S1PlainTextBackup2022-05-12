@@ -680,3 +680,20 @@ SR由芽，我UR的SUN由芽又没法带了，这帮家伙出卡都不考虑属�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们怎么穿这么厚的
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 211#         楼主| 发表于 2022-12-23 11:47
+
+<img src="https://img.saraba1st.com/forum/202212/23/114604nsxe87b27ixbl6le.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221223114532.png</strong> (92.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 11:46 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这运营太搞了，竟然还整出个不能暴击的bug，怪不得更新完打个主线都这么刮
+
