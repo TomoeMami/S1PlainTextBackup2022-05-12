@@ -2816,3 +2816,12 @@ a01部队本身的存在是不能公开的，既然当做意外，那自然不�
 
 ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不可能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  sauron.j  
+##### 2230#       发表于 2022-12-23 14:31
+
+后面的内容太难做了，场景和战斗刻画难度比佐渡岛高一个级别，还是第二季水平的预算妥妥做崩
+

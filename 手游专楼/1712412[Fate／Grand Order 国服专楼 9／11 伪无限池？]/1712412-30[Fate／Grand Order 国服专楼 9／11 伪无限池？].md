@@ -1512,3 +1512,14 @@ iOS求个一宝土方+五星礼装
 
 没有红卡大卫技能全交等第二回合呗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宵十一狼  
+##### 43942#       发表于 2022-12-23 14:38
+
+有洗牌服有呆毛技能，真万一了就等二回合，没有翻车点的呐~事实上昨晚刷110次一次都没翻车过，连要等二回合都没有。
+
+唯一有一次是我刷的脑子不清醒了把奥伯龙技能给呆毛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
