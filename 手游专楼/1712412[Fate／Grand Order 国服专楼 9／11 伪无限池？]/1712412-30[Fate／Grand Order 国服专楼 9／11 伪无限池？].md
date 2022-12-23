@@ -1717,3 +1717,15 @@ iOS求个一宝土方+五星礼装
 
 唯一后悔的是周年刷什么qp<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  blackjeo1  
+##### 43957#       发表于 2022-12-24 00:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59062451&amp;ptid=1712412" target="_blank">kyonkoism 发表于 2022-12-23 20:17</a>
+
+樱井大妈你杀了我得了，这写的是你妈臭逼</blockquote>
+    不过在国内的网文里姜子牙和妲己有一腿貌似也不是稀罕的设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
