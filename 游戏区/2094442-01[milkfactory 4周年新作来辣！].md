@@ -1094,3 +1094,22 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 ----发送自 STAGE1 App for Android.</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">看上面时间看错了，白 等 了
 
+
+
+*****
+
+####  nihilxp  
+##### 111#       发表于 2022-12-23 12:43
+
+有人玩到了吗
+
+*****
+
+####  leina0602  
+##### 112#       发表于 2022-12-23 12:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59057902&amp;ptid=2094442" target="_blank">nihilxp 发表于 2022-12-23 12:43</a>
+
+有人玩到了吗</blockquote>
+还没有放流，看了一眼4chan，鬼佬们也急得不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
