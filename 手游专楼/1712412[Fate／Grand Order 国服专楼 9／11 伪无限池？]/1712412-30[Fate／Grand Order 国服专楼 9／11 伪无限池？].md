@@ -1595,3 +1595,12 @@ iOS求个一宝土方+五星礼装
 有保底那也要990石头吧</blockquote>
 一年攒到990有没有搞头？忍不忍的住另说<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  待宵  
+##### 43951#       发表于 2022-12-23 19:32
+
+因为满破了五星礼装于是一堆人来加好友这件事<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
