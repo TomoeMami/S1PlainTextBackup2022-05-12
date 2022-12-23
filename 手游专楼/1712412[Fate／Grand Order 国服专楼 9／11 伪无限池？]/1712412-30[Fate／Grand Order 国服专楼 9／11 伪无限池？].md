@@ -1423,3 +1423,21 @@ iOS求个一宝土方+五星礼装
 
 百级满芙芙2宝bx+百级黑杯+奥宝bba和极地服，下限刚好能打死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  azccc52  
+##### 43934#       发表于 2022-12-23 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59056150&amp;ptid=1712412" target="_blank">kyonkoism 发表于 2022-12-23 09:42</a>
+苏鲁特应该就没开阴兵了，或者是刷起来不确定性有点多，我是因为抽妖兰所以有个5宝妖崔，加自己的黑杯CBA奥 ...</blockquote>
+因为苏鲁特数量比雷帝多了一倍<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+*****
+
+####  azccc52  
+##### 43935#       发表于 2022-12-23 10:26
+
+为都没人用大卫……满破黑杯或者五星礼装大卫加奥博龙呆毛极地服除了脸黑没呆毛卡和红卡外很稳的
+
