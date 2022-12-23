@@ -697,3 +697,12 @@ SR由芽，我UR的SUN由芽又没法带了，这帮家伙出卡都不考虑属�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这运营太搞了，竟然还整出个不能暴击的bug，怪不得更新完打个主线都这么刮
 
+
+
+*****
+
+####  kulanyee  
+##### 212#       发表于 2022-12-23 16:14
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多来点bug，我下个井有点远
+
