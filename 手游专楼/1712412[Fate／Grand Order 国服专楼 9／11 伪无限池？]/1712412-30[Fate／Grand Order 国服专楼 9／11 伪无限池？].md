@@ -1503,3 +1503,12 @@ iOS求个一宝土方+五星礼装
 
 洗牌服啊，实在不行先等一回合，大卫开一二技能
 
+
+
+*****
+
+####  azccc52  
+##### 43941#       发表于 2022-12-23 14:23
+
+没有红卡大卫技能全交等第二回合呗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
