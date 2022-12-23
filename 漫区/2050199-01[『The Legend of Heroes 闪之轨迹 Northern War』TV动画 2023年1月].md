@@ -17,3 +17,14 @@ USERJOY JAPAN正式公开手游《英雄传说 闪之轨迹 北方战役》相�
 
 除原作剧情外，还将描绘一段手游专有的原创剧情与全新角色，原作中曾登场的战术导力器「ARCUS II」系统也会在手游中实装。在这款手游中，玩家可以随着剧情发展探索世界，通过各种冒险体验《闪之轨迹》系列令人感动的剧情与爽快感满载的战斗
 
+
+
+*****
+
+####  Piano-Forest  
+##### 107#         楼主| 发表于 2022-12-23 18:11
+
+【《闪之轨迹NW》特别视频解禁】 
+[https://m.bilibili.com/video/BV1bM411m7DP](https://m.bilibili.com/video/BV1bM411m7DP)
+[https://youtu.be/6hNjYJaiC6Y](https://youtu.be/6hNjYJaiC6Y)
+
