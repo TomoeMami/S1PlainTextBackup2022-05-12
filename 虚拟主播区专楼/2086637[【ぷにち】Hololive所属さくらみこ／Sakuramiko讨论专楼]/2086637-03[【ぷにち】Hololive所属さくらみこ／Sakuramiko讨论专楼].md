@@ -6678,3 +6678,20 @@ miko：世界杯是我赢了！
 
 火建VS王
 
+
+
+*****
+
+####  rs5621  
+##### 3625#       发表于 2022-12-23 20:06
+
+<img src="https://img.saraba1st.com/forum/202212/23/200548l3tupj3199ph9e3e.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (223.22 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 20:05 上传
+
+[推特](https://twitter.com/tomozu100/status/1606257329564852224?s=20&amp;t=dLqXEInCwXbUqQTumQrFng)久违的八字母同人
+

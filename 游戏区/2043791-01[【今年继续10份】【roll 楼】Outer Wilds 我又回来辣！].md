@@ -2289,3 +2289,21 @@ xbox上玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.pn
 
 —— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  天气姐姐  
+##### 289#       发表于 2022-12-23 20:05
+
+我没玩过，抽我一个
+
+—— 来自 vivo V1981A, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  museqsou  
+##### 290#       发表于 2022-12-23 20:10
+
+凑个分子
+
