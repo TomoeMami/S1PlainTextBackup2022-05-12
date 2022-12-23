@@ -1113,3 +1113,12 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 有人玩到了吗</blockquote>
 还没有放流，看了一眼4chan，鬼佬们也急得不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  纱布光环  
+##### 113#       发表于 2022-12-23 13:18
+
+这作只卖实体版放流是不是要很久<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

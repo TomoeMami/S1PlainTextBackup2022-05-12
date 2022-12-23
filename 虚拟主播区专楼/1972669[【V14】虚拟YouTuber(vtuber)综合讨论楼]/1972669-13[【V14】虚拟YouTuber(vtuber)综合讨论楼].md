@@ -1445,3 +1445,38 @@ syl，感觉跟我推天涯共此时了
 
 风怒
 
+
+
+*****
+
+####  真飞鸟i  
+##### 18128#       发表于 2022-12-23 13:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以责任全在兔皇这个受害者打圆场不愿明确自己真实的心情罢了！
+不过倪哥终究还是被干烂了，结合以上逻辑，可能确实是因为读不懂虹杏之间的空气才死于非命的吧。
+
+—— 来自 Xiaomi 22041211AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  _Ra1nMaker  
+##### 18129#       发表于 2022-12-23 13:18
+
+没毛病，就是以后要是碰到有其他人“无恶意”口嗨虹人希望htj们下手能轻点 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rzrbtk  
+##### 18130#       发表于 2022-12-23 13:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59058115&amp;ptid=1972669" target="_blank">winda 发表于 2022-12-23 13:07</a>
+
+虹这便所の落书一般的玩意就不要说的那么高尚了
+
+顺便要兔皇回应的，我看阿裁拿郡道做文章郡道也没回应啊 ...</blockquote>
+还是那句话，我有说过oj辛普森无罪吗？
+
+“看兔皇回不回应”是说形势变化会与兔皇回不回应有关，跟“要兔皇回应”又不是一个意思，没觉得必须回哈！
+
+而且说实话郡道有回应的，V嫌榜说拿第二很牛明年争第一，拿她做热点的视频说反正视频点击量变高了有何不可，总的来说就是完全不觉得自己错所以爱怎么说怎么说。
+

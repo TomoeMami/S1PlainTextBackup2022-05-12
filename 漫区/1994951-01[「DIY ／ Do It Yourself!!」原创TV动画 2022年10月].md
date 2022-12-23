@@ -8665,3 +8665,12 @@ DIY!!12話参加せて頂いてました。1話からDIY部のみんなたくさ
 完结了啊…
 惆怅…
 
+
+
+*****
+
+####  pzk  
+##### 628#       发表于 2022-12-23 13:15
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">很多妈系重女都会有控制欲过强的毛病，但布丁在初中的时候就听了小己的话放手让她自己成长，真好啊
+
