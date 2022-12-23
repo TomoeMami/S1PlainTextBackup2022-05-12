@@ -844,3 +844,12 @@ https://m.weibo.cn/2947384160/4849621061338127
 
 ぜひチェックしてくださいね</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 10570#       发表于 2022-12-23 13:48
+
+【【中字·完整版】Hoshizora Monologue（星空独白）-Liella!1期生《LoveLive!Superstar!!》第二季BD4特典曲-哔哩哔哩】 [https://b23.tv/s4ERXwZ](https://b23.tv/s4ERXwZ)
+
