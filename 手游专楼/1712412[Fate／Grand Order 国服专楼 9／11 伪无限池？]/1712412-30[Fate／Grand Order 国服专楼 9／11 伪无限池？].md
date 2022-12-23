@@ -1484,3 +1484,22 @@ iOS求个一宝土方+五星礼装
 
 昨天我打了一百多次遇到的情况<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">，
 
+
+
+*****
+
+####  朝仓和美  
+##### 43939#       发表于 2022-12-23 14:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59056351&amp;ptid=1712412" target="_blank">宵十一狼 发表于 2022-12-23 10:04</a>
+呆毛黑杯大卫奥伯龙不换人1t完全没有翻车的可能~</blockquote>
+翻车过两次，凑不够三红
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  猿飞佐助  
+##### 43940#       发表于 2022-12-23 14:08
+
+洗牌服啊，实在不行先等一回合，大卫开一二技能
+
