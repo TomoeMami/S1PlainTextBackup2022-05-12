@@ -78,3 +78,72 @@ pc版真就暴力移植啊，进去键位设置都没有，打半天我还没提
 补丁来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 确实感觉boss战有时候会被连死
 
+
+
+*****
+
+####  Skyline_R  
+##### 170#       发表于 2022-12-23 22:46
+
+ 本帖最后由 Skyline_R 于 2022-12-23 22:48 编辑 
+
+黑长直有点好看，但是游戏看着真不咋地，等骨折
+
+银毛有点像隔壁《红烧天堂》的女主CP（银毛/绿瞳/长侧发/巨乳/虎牙/复杂的发带发饰）
+
+<img src="https://img.saraba1st.com/forum/202212/23/224458nt44ffhadhd9v4f0.png" referrerpolicy="no-referrer">
+
+<strong>Still_005.png</strong> (260.17 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 22:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/23/224458jrdkzxcdd0no9z0d.png" referrerpolicy="no-referrer">
+
+<strong>Still_001.png</strong> (264.85 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 22:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/23/224458hsrr7huddvoouww7.png" referrerpolicy="no-referrer">
+
+<strong>Still_003.png</strong> (199.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 22:44 上传
+
+<img src="https://img.saraba1st.com/forum/202212/23/224527ly3injxwavjpi66t.png" referrerpolicy="no-referrer">
+
+<strong>Still_006.png</strong> (360.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 22:45 上传
+
+<img src="https://img.saraba1st.com/forum/202212/23/224526j52la3z1yyla0nax.png" referrerpolicy="no-referrer">
+
+<strong>Still_004.png</strong> (295.3 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 22:45 上传
+
+<img src="https://img.saraba1st.com/forum/202212/23/224527olq66ebto4beddc0.png" referrerpolicy="no-referrer">
+
+<strong>Still_000.png</strong> (297.72 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 22:45 上传
+
+<img src="https://img.saraba1st.com/forum/202212/23/224527bbbojbccuu5m5mmz.png" referrerpolicy="no-referrer">
+
+<strong>Still_002.png</strong> (291.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 22:45 上传
+

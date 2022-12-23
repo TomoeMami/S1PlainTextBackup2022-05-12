@@ -6740,3 +6740,22 @@ miko的tkb哒
 
 那干脆别带着啊。
 
+
+
+*****
+
+####  rs5621  
+##### 3631#       发表于 2022-12-23 22:47
+
+好像是出了粉鳄后,她这配置位就锁死这对母女鳄了,剩下4个自由调整.
+
+<img src="https://img.saraba1st.com/forum/202212/23/224632m08ac3fz2lxfxv0u.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (27.95 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 22:46 上传
+
+喷了,为什么主力的等级低这么多
+
