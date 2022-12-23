@@ -1377,3 +1377,24 @@ SYL，阿社和皇女对谈还蛮有趣的。
 
 玩黑梗这个行为当然可以用包括身段柔软的各种方式玩，兔皇私下就算会限哭（假设）那也是明面上“承认”了这首歌“没什么”，用了“兔皇勉强认同”的讨巧说法就是身段柔软怎么说不得了？
 
+
+
+*****
+
+####  psnsic8nag  
+##### 18124#       发表于 2022-12-23 12:04
+
+ 本帖最后由 psnsic8nag 于 2022-12-23 12:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59056955&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-23 11:09</a>
+
+我说了那么多次“圭利有错”你觉得我在洗，讨论措辞和规避手法跟认同行为是对等？那按你的逻辑说oj辛普森 ...</blockquote>
+不要说的像是圭利误会了，他知道这是嘲笑族长跟观众的曲子的情况下，还装傻说这是纯爱的歌曲
+
+没经过当事人“允许”玩黑梗不叫”身段柔软“
+
+也别拿族长安慰观众的话拿来硬洗是族长让人误会可以玩黑梗
+
+兔皇可没说过“允许”别人这黑梗这种事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+平时提一下田角陆就认为别人在黑，怎到这就不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
