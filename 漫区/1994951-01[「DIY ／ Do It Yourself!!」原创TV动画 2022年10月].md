@@ -8751,3 +8751,22 @@ DIY部キャスト陣
 随便写了点感想
 https://bgm.tv/blog/315691
 
+
+
+*****
+
+####  Piano-Forest  
+##### 636#         楼主| 发表于 2022-12-24 00:50
+
+[https://twitter.com/noiee01234/status/1600354489247989760](https://twitter.com/noiee01234/status/1600354489247989760)
+<img src="https://p.sda1.dev/9/8115398fb3a39276cbbdb79d458330b2/20221224_004920.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/dai_gazacy/status/1605438142865354752](https://twitter.com/dai_gazacy/status/1605438142865354752)
+<img src="https://p.sda1.dev/9/32f0d39191937f940477adeb8a1054da/20221224_004924.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/takesinobu/status/1605864760901513216](https://twitter.com/takesinobu/status/1605864760901513216)
+<img src="https://p.sda1.dev/9/821db92da940eeb9686ae621d6f19067/20221224_004929.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/NKNlak/status/1605907812617359360](https://twitter.com/NKNlak/status/1605907812617359360)
+<img src="https://p.sda1.dev/9/94c66e68dcfb8b698cd6c905cfce3f75/20221224_004935.jpg" referrerpolicy="no-referrer">
+
