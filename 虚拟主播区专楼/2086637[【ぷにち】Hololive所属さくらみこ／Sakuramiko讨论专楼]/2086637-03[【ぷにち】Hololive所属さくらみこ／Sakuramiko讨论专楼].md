@@ -6722,3 +6722,12 @@ miko的tkb哒
 
 呆火鳄非要带两只，还就是不用那只色违的，搞不懂这人，前面铺垫这么多干嘛的。
 
+
+
+*****
+
+####  rs5621  
+##### 3629#       发表于 2022-12-23 22:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝贝粉鳄当然是能不用就不用啊,就一个npc踩到粉鳄,她都要界限化了.让她拿出去挨打很难的啦
+
