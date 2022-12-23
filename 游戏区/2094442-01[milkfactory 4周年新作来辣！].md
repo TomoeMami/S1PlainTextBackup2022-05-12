@@ -1214,3 +1214,14 @@ CNM为什么我今天阳了<img src="https://static.saraba1st.com/image/smiley/f
 
 — from samsung SM-G9700, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
 
+
+
+*****
+
+####  名字已被吃  
+##### 123#       发表于 2022-12-23 18:46
+
+我看第三部好像也是半年后才上dl版的样子
+
+—— 来自 Xiaomi 2203121C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

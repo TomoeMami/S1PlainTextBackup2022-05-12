@@ -1583,3 +1583,15 @@ iOS求个一宝土方+五星礼装
 青眼白龙总是挺着一对雪球说着豪言壮语，违和感爆炸
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无事忙  
+##### 43950#       发表于 2022-12-23 18:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59060455&amp;ptid=1712412" target="_blank">AbigailWilliams 发表于 2022-12-23 17:05</a>
+
+有保底那也要990石头吧</blockquote>
+一年攒到990有没有搞头？忍不忍的住另说<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
