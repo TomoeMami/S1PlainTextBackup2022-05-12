@@ -1348,3 +1348,16 @@ syl，兔皇被蹭了怎么不能管了，觉得心里难受跟马内甲说一�
 SYL，阿社和皇女对谈还蛮有趣的。
 [https://www.bilibili.com/video/BV1Bd4y1Y7UJ](https://www.bilibili.com/video/BV1Bd4y1Y7UJ)
 
+
+
+*****
+
+####  psnsic8nag  
+##### 18122#       发表于 2022-12-23 08:14
+
+ 本帖最后由 psnsic8nag 于 2022-12-23 08:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59052870&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-22 22:20</a>
+
+明知故犯（指意识到自己要休止）还是真觉得兔皇已经免罪过所以能唱我不好说，谢罪休止文已经咬定自己无恶 ...</blockquote>
+玩黑梗也能说成身段柔软无恶意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
