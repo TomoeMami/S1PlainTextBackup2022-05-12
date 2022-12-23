@@ -1588,3 +1588,20 @@ syl，感觉跟我推天涯共此时了
 明面上说这没问题的前提不是刷的要么是流窜的anti要么就是干不动的yyut这种，实在管不到没办法了只能安慰 ...</blockquote>
 是啊，你提出圭利有蠢的选项那就是他的措辞的目的了。被联合条例干休止了就是他出界的地方了。
 
+
+
+*****
+
+####  gogomw  
+##### 18140#       发表于 2022-12-23 15:03
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  bluebaby  
+##### 18141#       发表于 2022-12-23 15:07
+
+都被橄榄了就别在这搞得好像这事整的很聪明赢麻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+人野地里的anti找不到管不了，你个虹直播员是觉得别人找不到你还是怎么着，而且最搞笑的我看玩死自己连黑流量都没吃到多少，杏仁到现在估计都一堆你jb谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

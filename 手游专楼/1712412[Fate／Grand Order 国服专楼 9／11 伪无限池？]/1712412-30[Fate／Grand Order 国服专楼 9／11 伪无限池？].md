@@ -1523,3 +1523,12 @@ iOS求个一宝土方+五星礼装
 
 唯一有一次是我刷的脑子不清醒了把奥伯龙技能给呆毛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dawning  
+##### 43943#       发表于 2022-12-23 15:04
+
+点错技能不得不尝，毕竟重复劳动，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
