@@ -920,3 +920,15 @@ https://m.weibo.cn/2947384160/4849621061338127
 
 大桥啊，昨天还刷到那个她自己说两年试镜50多次全落的视频，看来horipro在声优这块是真拿不到什么资源，怪不得马池口跑路了呢
 
+
+
+*****
+
+####  任天索尼子  
+##### 10576#       发表于 2022-12-23 19:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59061539&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-12-23 18:57</a>
+
+大桥啊，昨天还刷到那个她自己说两年试镜50多次全落的视频，看来horipro在声优这块是真拿不到什么资源，怪 ...</blockquote>
+马池口其他资源也比不上桥儿啊 
+

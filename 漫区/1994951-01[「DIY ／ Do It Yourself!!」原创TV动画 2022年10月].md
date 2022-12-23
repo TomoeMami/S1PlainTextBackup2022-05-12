@@ -8741,3 +8741,13 @@ DIY部キャスト陣
 
 [https://www.animatetimes.com/news/details.php?id=1671775574](https://www.animatetimes.com/news/details.php?id=1671775574)
 
+
+
+*****
+
+####  三尖酸努努  
+##### 635#       发表于 2022-12-23 19:14
+
+随便写了点感想
+https://bgm.tv/blog/315691
+
