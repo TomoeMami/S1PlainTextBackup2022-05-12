@@ -1800,3 +1800,14 @@ PSN页面上了：
 
 要是这游戏还没出仁王累计破500w就搞笑了
 
+
+
+*****
+
+####  duraa  
+##### 208#       发表于 2022-12-23 08:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59055473&amp;ptid=2092342" target="_blank">哈罗 发表于 2022-12-23 07:18</a>
+要是这游戏还没出仁王累计破500w就搞笑了</blockquote>
+仁王系列已经破700w了
+
