@@ -1155,3 +1155,18 @@
 
 这最终boss有病吧，74级3000的防，被风割一下1000多血，打一会就发个十字射线外接终结技，躲都躲不掉，这后面到底搞的什么设计
 
+
+
+*****
+
+####  菟原手兒奈  
+##### 3100#       发表于 2022-12-24 01:17
+
+通关了，怅然若失<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+能玩到这么棒的游戏实在太幸福了，年头的老头环，年尾的神之天平，今年虽然没发生什么好事，但是回忆起来一头一尾都沉浸在好游戏里
+
+明天再花点时间查漏补缺，顺便把爱情刷满看看真结局
+
+话说看真结局不会再打一次最终BOSS吧？手都搓痛了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
