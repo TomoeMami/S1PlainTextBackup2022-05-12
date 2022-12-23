@@ -12569,3 +12569,15 @@ wb更了   太劲了
 
 第一次长时间听小火驴直播，她是不是不受nb的藏话禁止规定的约束啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉隔一会儿就爆一句我艹，md，这要放正式成员那边得玩半天的扣钱梗
 
+
+
+*****
+
+####  ladiesman802  
+##### 2811#       发表于 2022-12-23 23:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59065205&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-12-23 23:23</a>
+
+第一次长时间听小火驴直播，她是不是不受nb的藏话禁止规定的约束啊感觉隔一会儿就爆一句我艹，md， ...</blockquote>
+问题不大，感情到位了说几句没问题。叶子可是更素质的话都说了
+
