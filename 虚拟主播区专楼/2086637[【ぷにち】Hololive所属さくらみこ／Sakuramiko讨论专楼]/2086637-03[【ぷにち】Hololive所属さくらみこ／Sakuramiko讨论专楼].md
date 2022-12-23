@@ -6661,3 +6661,20 @@ miko：世界杯是我赢了！
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还挺像的
 
+
+
+*****
+
+####  qesto  
+##### 3624#       发表于 2022-12-23 19:05
+
+<img src="https://img.saraba1st.com/forum/202212/23/190508x5uafof5feoo9ddt.png" referrerpolicy="no-referrer">
+
+<strong>图片.png</strong> (36.07 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-23 19:05 上传
+
+火建VS王
+
