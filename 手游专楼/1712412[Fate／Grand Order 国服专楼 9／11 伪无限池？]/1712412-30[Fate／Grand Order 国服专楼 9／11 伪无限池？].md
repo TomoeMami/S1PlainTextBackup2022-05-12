@@ -1405,3 +1405,12 @@ iOS求个一宝土方+五星礼装
 可以尝试带个呆毛开2技能</blockquote>
 那伤害就不够了，我是双奥博龙加梅林才能稳定过100W。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  宵十一狼  
+##### 43932#       发表于 2022-12-23 10:04
+
+呆毛黑杯大卫奥伯龙不换人1t完全没有翻车的可能~
+
