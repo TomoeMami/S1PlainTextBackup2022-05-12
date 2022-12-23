@@ -893,3 +893,12 @@ DLC够爽够劲爆吗，移动端的DLC大概啥时候能出。<img src="https:/
 
 dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都不搭，但是真的好听，一边挂机一边放特别带劲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  cuiluzhu  
+##### 561#       发表于 2022-12-23 20:32
+
+玩了一下午了，有没有武器的强度排行啊
+
