@@ -971,3 +971,15 @@ https://m.weibo.cn/2947384160/4849621061338127
 
 要是有啥美少女动画真需要中文，鲤鱼也许有点机会
 
+
+
+*****
+
+####  csolfans  
+##### 10581#       发表于 2022-12-23 21:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59062702&amp;ptid=2078110" target="_blank">cat1230 发表于 2022-12-23 20:35</a>
+
+要是有啥美少女动画真需要中文，鲤鱼也许有点机会</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她目前工作计划排得挺满的；除了唐可可，当cv或许更多友情客串
+
