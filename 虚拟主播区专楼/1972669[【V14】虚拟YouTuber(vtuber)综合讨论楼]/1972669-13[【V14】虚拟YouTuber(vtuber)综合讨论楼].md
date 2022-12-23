@@ -1605,3 +1605,54 @@ syl，感觉跟我推天涯共此时了
 都被橄榄了就别在这搞得好像这事整的很聪明赢麻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 人野地里的anti找不到管不了，你个虹直播员是觉得别人找不到你还是怎么着，而且最搞笑的我看玩死自己连黑流量都没吃到多少，杏仁到现在估计都一堆你jb谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 18142#       发表于 2022-12-23 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59059162&amp;ptid=1972669" target="_blank">盐盐盐盐盐 发表于 2022-12-23 14:52</a>
+本来就是玩炎上艺的，追着要说虹人没素质，人家也没要这个有素质的牌坊啊meme就是嘲讽那种恶心gachi ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ankr:别，ppt里可没写不要素质了
+
+*****
+
+####  盐盐盐盐盐  
+##### 18143#       发表于 2022-12-23 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59059327&amp;ptid=1972669" target="_blank">bluebaby 发表于 2022-12-23 15:07</a>
+ 都被橄榄了就别在这搞得好像这事整的很聪明赢麻了吧 人野地里的anti找不到管不了，你个虹直播员是觉 ...</blockquote>
+宅宅发疯人家普通人也一样觉得你们都jb谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要说橄榄谁了哪怕圭利就这么搞退役了除了让一群gachi高呼胜利自我gc三分钟又赚到啥了
+人家玩炎上艺被骂那是活该，宅宅装的人五人六的非要上升什么道德层面是真滑稽，除了两个同期倒霉少了个工商外这事这的是小的不能再小，也就坐地打滚喊冤的想着闹得越大越好，可惜这一封道歉直接画上句号，年底了，人家回去老婆孩子过年了，再滚也没人搭理咯
+
+*****
+
+####  盐盐盐盐盐  
+##### 18144#       发表于 2022-12-23 15:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59059327&amp;ptid=1972669" target="_blank">bluebaby 发表于 2022-12-23 15:07</a>
+ 都被橄榄了就别在这搞得好像这事整的很聪明赢麻了吧 人野地里的anti找不到管不了，你个虹直播员是觉 ...</blockquote>
+宅宅发疯人家普通人也一样觉得你们都jb谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要说橄榄谁了哪怕圭利就这么搞退役了除了让一群gachi高呼胜利自我gc三分钟又赚到啥了
+人家玩炎上艺被骂那是活该，宅宅装的人五人六的非要上升什么道德层面是真滑稽，除了两个同期倒霉少了个工商外这事这的是小的不能再小，也就坐地打滚喊冤的想着闹得越大越好，可惜这一封道歉直接画上句号，年底了，人家回去老婆孩子过年了，再滚也没人搭理咯
+
+*****
+
+####  盐盐盐盐盐  
+##### 18145#       发表于 2022-12-23 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59059327&amp;ptid=1972669" target="_blank">bluebaby 发表于 2022-12-23 15:07</a>
+ 都被橄榄了就别在这搞得好像这事整的很聪明赢麻了吧 人野地里的anti找不到管不了，你个虹直播员是觉 ...</blockquote>
+宅宅发疯人家普通人也一样觉得你们都jb谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要说橄榄谁了哪怕圭利就这么搞退役了除了让一群gachi高呼胜利自我gc三分钟又赚到啥了
+人家玩炎上艺被骂那是活该，宅宅装的人五人六的非要上升什么道德层面是真滑稽，除了两个同期倒霉少了个工商外这事这的是小的不能再小，也就坐地打滚喊冤的想着闹得越大越好，可惜这一封道歉直接画上句号，年底了，人家回去老婆孩子过年了，再滚也没人搭理咯
+
+*****
+
+####  盐盐盐盐盐  
+##### 18146#       发表于 2022-12-23 15:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59059327&amp;ptid=1972669" target="_blank">bluebaby 发表于 2022-12-23 15:07</a>
+ 都被橄榄了就别在这搞得好像这事整的很聪明赢麻了吧 人野地里的anti找不到管不了，你个虹直播员是觉 ...</blockquote>
+宅宅发疯人家普通人也一样觉得你们都jb谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要说橄榄谁了哪怕圭利就这么搞退役了除了让一群gachi高呼胜利自我gc三分钟又赚到啥了
+人家玩炎上艺被骂那是活该，宅宅装的人五人六的非要上升什么道德层面是真滑稽，除了两个同期倒霉少了个工商外这事这的是小的不能再小，也就坐地打滚喊冤的想着闹得越大越好，可惜这一封道歉直接画上句号，年底了，人家回去老婆孩子过年了，再滚也没人搭理咯
+
