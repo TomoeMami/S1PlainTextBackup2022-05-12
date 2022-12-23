@@ -1382,3 +1382,14 @@ iOS求个一宝土方+五星礼装
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  kyonkoism  
+##### 43930#       发表于 2022-12-23 09:42
+
+苏鲁特应该就没开阴兵了，或者是刷起来不确定性有点多，我是因为抽妖兰所以有个5宝妖崔，加自己的黑杯CBA奥宝再换个加宝威的，刚好100w打死，弓职蓝卡多的需要AA宝，对模拟器录制1T杀脚本及其之不友好
+
+我感觉也是苏鲁特噶的比较慢的原因之一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
