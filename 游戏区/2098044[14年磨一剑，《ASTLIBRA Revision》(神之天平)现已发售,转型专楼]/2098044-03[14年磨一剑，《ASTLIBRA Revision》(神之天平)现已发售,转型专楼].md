@@ -1170,3 +1170,18 @@
 
 话说看真结局不会再打一次最终BOSS吧？手都搓痛了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  pf67  
+##### 3101#       发表于 2022-12-24 01:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59066119&amp;ptid=2098044" target="_blank">菟原手兒奈 发表于 2022-12-24 01:17</a>
+通关了，怅然若失
+
+能玩到这么棒的游戏实在太幸福了，年头的老头环，年尾的神之天平，今年虽然没发生 ...</blockquote>
+等你把爱情刷满，打最终boss砍瓜切菜一般的程度
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
