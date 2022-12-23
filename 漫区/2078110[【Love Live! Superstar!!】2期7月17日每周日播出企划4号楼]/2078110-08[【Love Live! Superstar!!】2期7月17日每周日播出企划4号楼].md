@@ -994,3 +994,15 @@ https://m.weibo.cn/2947384160/4849621061338127
 老哥叠了几张？</blockquote>
 就一份啊，我觉得这张可能数字一般，这一波波的，就是单推钱包也有点遭不住啊，还好还有年终奖
 
+
+
+*****
+
+####  csolfans  
+##### 10583#       发表于 2022-12-24 01:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59064034&amp;ptid=2078110" target="_blank">lj205 发表于 2022-12-23 21:59</a>
+
+就一份啊，我觉得这张可能数字一般，这一波波的，就是单推钱包也有点遭不住啊，还好还有年终奖 ...</blockquote>
+运气挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一份就中了。我找的代购，也不知道中没中。不过有一说一钱包的确顶不住了，想想明年真回国举办活动，钱包又是大出血
+
