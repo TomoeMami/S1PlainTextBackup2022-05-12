@@ -1194,3 +1194,14 @@
 
 加隆其实就是那条龙吧，然后为啥加隆要帮男主和男主一起去旅行啊？
 
+
+
+*****
+
+####  otakun  
+##### 3103#       发表于 2022-12-24 07:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59066454&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-12-24 02:05</a>
+加隆其实就是那条龙吧，然后为啥加隆要帮男主和男主一起去旅行啊？</blockquote>
+开头不是说了吗，失忆加寂寞，看到男主执意要离开，就跟上了。等知道身份的时候都已经一起生活八年有多了。
+
