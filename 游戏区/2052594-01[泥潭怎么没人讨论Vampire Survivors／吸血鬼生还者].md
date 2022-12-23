@@ -811,3 +811,27 @@ ios有bug
 
 [https://store.steampowered.com/b ... s_Game__DLC_Bundle/](https://store.steampowered.com/bundle/29537/Vampire_Survivors_Game__DLC_Bundle/)
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 554#       发表于 2022-12-23 11:55
+
+把西格玛刷出来了
+
+有种强度的美<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+就是特效全开这画面人类不太能接受了
+
+这游戏用别的角色打到后面比雨中冒险好一点，用西格玛和雨中冒险不相上下。
+
+DLC够爽够劲爆吗，移动端的DLC大概啥时候能出。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 555#       发表于 2022-12-23 11:58
+
+刚开始玩，感觉10分钟以后升级好慢啊，伤害跟不上只能等死，必须要攒金币把强化升了才能爽么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
