@@ -1532,3 +1532,19 @@ iOS求个一宝土方+五星礼装
 
 点错技能不得不尝，毕竟重复劳动，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无事忙  
+##### 43944#       发表于 2022-12-23 17:00
+
+守着那可怜的两三百石头想all in妖兰，又想忍一年，一年后有保底抽起来放心点，怎么办
+
+*****
+
+####  AbigailWilliams  
+##### 43945#       发表于 2022-12-23 17:05
+
+有保底那也要990石头吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
