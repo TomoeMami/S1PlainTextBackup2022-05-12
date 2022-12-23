@@ -1189,3 +1189,17 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  慕容断月  
+##### 121#       发表于 2022-12-23 17:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59058455&amp;ptid=2094442" target="_blank">g54088 发表于 2022-12-23 13:38</a>
+
+难怪网贩平台没看到，只卖实体版是怎么想的？想先冲一波实体销量？还是电子版等steam一起上？
+
+—— 来自 H ...</blockquote>
+steam目前为止就第一作，后面天知道啥时候
+
