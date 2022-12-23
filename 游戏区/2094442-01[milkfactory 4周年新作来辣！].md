@@ -1151,3 +1151,12 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  prayto7f  
+##### 117#       发表于 2022-12-23 16:37
+
+今天还有黑兽外传<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">不过坛友都喜欢那么大的嘛
+
