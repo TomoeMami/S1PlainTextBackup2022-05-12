@@ -1656,3 +1656,12 @@ syl，感觉跟我推天涯共此时了
 宅宅发疯人家普通人也一样觉得你们都jb谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要说橄榄谁了哪怕圭利就这么搞退役了除了让一群gachi高呼胜利自我gc三分钟又赚到啥了
 人家玩炎上艺被骂那是活该，宅宅装的人五人六的非要上升什么道德层面是真滑稽，除了两个同期倒霉少了个工商外这事这的是小的不能再小，也就坐地打滚喊冤的想着闹得越大越好，可惜这一封道歉直接画上句号，年底了，人家回去老婆孩子过年了，再滚也没人搭理咯
 
+
+
+*****
+
+####  gogomw  
+##### 18147#       发表于 2022-12-23 15:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这能点到风怒4连是多急啊,太监别急再急圭利giegie也已经被橄榄休止了
+
