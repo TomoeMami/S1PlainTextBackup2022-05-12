@@ -2363,3 +2363,26 @@ xbox上玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.pn
 
 —— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  siriii  
+##### 297#       发表于 2022-12-23 21:54
+
+其实有点怕这游戏，要是roll到就玩<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  雨落飘零  
+##### 298#       发表于 2022-12-23 21:56
+
+成为分母！
+
+*****
+
+####  innovation_s  
+##### 299#       发表于 2022-12-23 22:01
+
+有本体没dlc来当分母了
+

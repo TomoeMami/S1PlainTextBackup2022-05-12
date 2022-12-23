@@ -983,3 +983,14 @@ https://m.weibo.cn/2947384160/4849621061338127
 要是有啥美少女动画真需要中文，鲤鱼也许有点机会</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她目前工作计划排得挺满的；除了唐可可，当cv或许更多友情客串
 
+
+
+*****
+
+####  lj205  
+##### 10582#       发表于 2022-12-23 21:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59062547&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-12-23 20:24</a>
+老哥叠了几张？</blockquote>
+就一份啊，我觉得这张可能数字一般，这一波波的，就是单推钱包也有点遭不住啊，还好还有年终奖
+

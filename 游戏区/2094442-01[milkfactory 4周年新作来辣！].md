@@ -1265,3 +1265,21 @@ CNM为什么我今天阳了<img src="https://static.saraba1st.com/image/smiley/f
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  g54088  
+##### 128#       发表于 2022-12-23 21:59
+
+游戏暂时玩不了，蹲一个cg包。<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  leina0602  
+##### 129#       发表于 2022-12-23 22:00
+
+nyaa上有了
+
