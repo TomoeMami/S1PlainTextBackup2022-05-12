@@ -1160,3 +1160,32 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 
 今天还有黑兽外传<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">不过坛友都喜欢那么大的嘛
 
+
+
+*****
+
+####  虚无连斩  
+##### 118#       发表于 2022-12-23 16:45
+
+勤勤恳恳ghs，看来卖得不错<img src="https://p.sda1.dev/9/973d4ba9a2109627d869dcd3ac995ddc/CMP_20221223164435366.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  虚无连斩  
+##### 119#       发表于 2022-12-23 16:46
+
+勤勤恳恳ghs，看来卖得不错<img src="https://p.sda1.dev/9/973d4ba9a2109627d869dcd3ac995ddc/CMP_20221223164435366.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  虚无连斩  
+##### 120#       发表于 2022-12-23 16:46
+
+勤勤恳恳ghs，看来卖得不错<img src="https://p.sda1.dev/9/973d4ba9a2109627d869dcd3ac995ddc/CMP_20221223164435366.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
