@@ -1203,3 +1203,14 @@ FGO也依然有出品，碧蓝档案意外没被梗？也可能只是 ...</block
 —— 来自 H ...</blockquote>
 steam目前为止就第一作，后面天知道啥时候
 
+
+
+*****
+
+####  rootss  
+##### 122#       发表于 2022-12-23 18:40
+
+CNM为什么我今天阳了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G9700, Android 12 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.5.4
+
