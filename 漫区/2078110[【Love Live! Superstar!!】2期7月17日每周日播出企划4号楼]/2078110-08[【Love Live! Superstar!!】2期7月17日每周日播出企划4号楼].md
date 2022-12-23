@@ -950,3 +950,15 @@ https://m.weibo.cn/2947384160/4849621061338127
 
 本来有偶活这么好的资源
 
+
+
+*****
+
+####  csolfans  
+##### 10579#       发表于 2022-12-23 20:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59060164&amp;ptid=2078110" target="_blank">lj205 发表于 2022-12-23 16:37</a>
+
+迷你专中了签名，但是忘记写昵称的片假音，不知道还会不会读</blockquote>
+老哥叠了几张？
+
