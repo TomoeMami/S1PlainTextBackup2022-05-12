@@ -853,3 +853,27 @@ https://m.weibo.cn/2947384160/4849621061338127
 
 【【中字·完整版】Hoshizora Monologue（星空独白）-Liella!1期生《LoveLive!Superstar!!》第二季BD4特典曲-哔哩哔哩】 [https://b23.tv/s4ERXwZ](https://b23.tv/s4ERXwZ)
 
+
+
+*****
+
+####  ads147147  
+##### 10571#       发表于 2022-12-23 14:48
+
+鲤鱼：这个号不是我运营的啊
+
+笑死了w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ads147147  
+##### 10572#       发表于 2022-12-23 14:49
+
+鲤鱼：这个号不是我运营的啊
+
+笑死了w
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
