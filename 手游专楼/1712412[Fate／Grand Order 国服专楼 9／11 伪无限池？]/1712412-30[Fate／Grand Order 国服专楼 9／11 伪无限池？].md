@@ -1393,3 +1393,15 @@ iOS求个一宝土方+五星礼装
 
 我感觉也是苏鲁特噶的比较慢的原因之一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hsheep  
+##### 43931#       发表于 2022-12-23 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59054285&amp;ptid=1712412" target="_blank">朝仓和美 发表于 2022-12-23 00:17</a>
+
+可以尝试带个呆毛开2技能</blockquote>
+那伤害就不够了，我是双奥博龙加梅林才能稳定过100W。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
