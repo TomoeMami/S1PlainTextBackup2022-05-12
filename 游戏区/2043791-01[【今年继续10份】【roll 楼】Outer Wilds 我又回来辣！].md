@@ -2262,3 +2262,30 @@ xbox上玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.pn
 
 想玩一直没买，蹭蹭
 
+
+
+*****
+
+####  11--  
+##### 286#       发表于 2022-12-23 19:34
+
+参与一下，希望能中
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  苟富贵daze  
+##### 287#       发表于 2022-12-23 19:34
+
+一直想玩来着，先凑个热闹
+
+*****
+
+####  freshboom  
+##### 288#       发表于 2022-12-23 19:36
+
+分母+1!
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
