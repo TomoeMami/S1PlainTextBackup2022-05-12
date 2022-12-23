@@ -1729,3 +1729,14 @@ iOS求个一宝土方+五星礼装
 樱井大妈你杀了我得了，这写的是你妈臭逼</blockquote>
     不过在国内的网文里姜子牙和妲己有一腿貌似也不是稀罕的设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Blackson  
+##### 43958#       发表于 2022-12-24 00:52
+
+明天下午打狐狸，不知道会怎么样(翻车)？
+
+另外跟楼上说的一样，和好友奥宝的亲密度比自家亲多了
+
