@@ -800,3 +800,14 @@ ios有bug
 搜了一下好像没有云同步</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那只能删掉一个了 不然太蛋疼了
 
+
+
+*****
+
+####  prayto7f  
+##### 553#         楼主| 发表于 2022-12-23 10:40
+
+冬季促销打折咯，本体20，DLC9，一起购买大包还有折上折，集美们开冲
+
+[https://store.steampowered.com/b ... s_Game__DLC_Bundle/](https://store.steampowered.com/bundle/29537/Vampire_Survivors_Game__DLC_Bundle/)
+
