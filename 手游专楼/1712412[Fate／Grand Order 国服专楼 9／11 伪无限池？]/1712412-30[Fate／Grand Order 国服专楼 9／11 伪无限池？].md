@@ -1548,3 +1548,19 @@ iOS求个一宝土方+五星礼装
 
 有保底那也要990石头吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dawning  
+##### 43946#       发表于 2022-12-23 17:16
+
+保底千石一宝，也是被气死<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 43947#       发表于 2022-12-23 17:23
+
+说实话这剧情看的确实是完全提不起劲，先不说翻译问题，这特异点也没有npc也没有啥场景描写就是一路看风景打小怪，对话就是太公万嗯啊嘛嗯啊嘛嗯啊嘛嗯啊嘛，车轱辘话绕来绕去的对话内容真的会让人有点生气的，但是又想看高扬斯卡娅的剧情，搞得没法跳过，为什么要把高扬斯卡娅人气这么高的反派的特异点交给樱井大妈写呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
