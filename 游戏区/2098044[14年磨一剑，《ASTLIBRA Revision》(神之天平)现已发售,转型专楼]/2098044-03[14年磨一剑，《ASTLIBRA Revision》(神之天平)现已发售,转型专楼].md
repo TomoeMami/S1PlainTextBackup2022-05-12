@@ -1132,3 +1132,17 @@
 
 不过自从学会削除搭配几个低消耗凭依魔法后，就可以开狂暴站撸了，爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asdfg  
+##### 3098#       发表于 2022-12-23 08:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59054816&amp;ptid=2098044" target="_blank">菟原手兒奈 发表于 2022-12-22 12:25</a>
+
+第四章那段突然来一下是挺难接受的，换成别的日系游戏，主角得PTSD个几十年 ...</blockquote>
+这个主角就是有钢铁一般的意志（以及对应的执行力）……所以整个第八章其实都是这件事情的结果…………我其实觉得如果是一般日系游戏，第八章那就已经妥妥要BE的节奏了……
+
+当然也正因此所以也才能走到真结局，所以这就是另外一回事了
+
