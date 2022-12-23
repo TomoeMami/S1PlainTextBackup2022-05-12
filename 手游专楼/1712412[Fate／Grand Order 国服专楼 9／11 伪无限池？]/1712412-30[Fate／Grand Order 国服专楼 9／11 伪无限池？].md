@@ -1467,3 +1467,20 @@ iOS求个一宝土方+五星礼装
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  dawning  
+##### 43938#       发表于 2022-12-23 13:29
+
+ 本帖最后由 dawning 于 2022-12-23 13:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59056351&amp;ptid=1712412" target="_blank">宵十一狼 发表于 2022-12-23 10:04</a>
+
+呆毛黑杯大卫奥伯龙不换人1t完全没有翻车的可能~</blockquote>
+第一回合大卫和奥伯龙都是蓝绿卡，没有呆毛的卡，
+
+然后进本直接交了奥伯龙的技能，大卫睡眠，被打死，最后靠着后排勉强反杀，
+
+昨天我打了一百多次遇到的情况<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">，
+

@@ -1480,3 +1480,31 @@ syl，感觉跟我推天涯共此时了
 
 而且说实话郡道有回应的，V嫌榜说拿第二很牛明年争第一，拿她做热点的视频说反正视频点击量变高了有何不可，总的来说就是完全不觉得自己错所以爱怎么说怎么说。
 
+
+
+*****
+
+####  winda  
+##### 18131#       发表于 2022-12-23 13:24
+
+ 本帖最后由 winda 于 2022-12-23 13:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59058232&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-23 13:18</a>
+还是那句话，我有说过oj辛普森无罪吗？
+
+“看兔皇回不回应”是说形势变化会与兔皇回不回应有关，跟“要兔 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，你这也没正面回应啊，我指的是阿裁以前那次讲郡道旅游推疑似造假那个视频，当时阿裁还以说教态度说了ankr和郡道接下来该怎么做呢
+另外我说便所の落书也不是说就不好了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就是圭利形容自己的歌的么，low和低俗又不等于坏
+不过谁会真把恶意写简介里的，实际有没有恶意就不好说了
+
+*****
+
+####  rzrbtk  
+##### 18132#       发表于 2022-12-23 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59058229&amp;ptid=1972669" target="_blank">_Ra1nMaker 发表于 2022-12-23 13:18</a>
+
+没毛病，就是以后要是碰到有其他人“无恶意”口嗨虹人希望htj们下手能轻点  ...</blockquote>
+喷了，又虹太监，这回不就证明哪怕自推不急（or不表示急）只要爱够深粉丝也是会急的，你要说大家是太监嘛。
+
+不过都说了，这难道不能展示虹杏联合条例的诚意嘛<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
