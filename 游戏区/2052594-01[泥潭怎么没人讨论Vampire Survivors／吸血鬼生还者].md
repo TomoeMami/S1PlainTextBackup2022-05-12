@@ -846,3 +846,17 @@ DLC够爽够劲爆吗，移动端的DLC大概啥时候能出。<img src="https:/
 刚开始玩，感觉10分钟以后升级好慢啊，伤害跟不上只能等死，必须要攒金币把强化升了才能爽么 ...</blockquote>
 能合成超武后基本能爽一段时间
 
+
+
+*****
+
+####  藤井紫  
+##### 557#       发表于 2022-12-23 12:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59057477&amp;ptid=2052594" target="_blank">Litccc 发表于 2022-12-23 11:58</a>
+刚开始玩，感觉10分钟以后升级好慢啊，伤害跟不上只能等死，必须要攒金币把强化升了才能爽么 ...</blockquote>
+这游戏，单装备升高了比多装备低级强
+强化升攻击力最好
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
