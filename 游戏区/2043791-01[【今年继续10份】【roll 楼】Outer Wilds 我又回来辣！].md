@@ -2565,3 +2565,21 @@ Dlc+1
 
 眼之回响最后的情感冲击太强烈了，已经很多年没有在游戏里面有过这种体验了
 
+
+
+*****
+
+####  xiedua  
+##### 321#       发表于 2022-12-24 06:04
+
+做个分母～
+
+—— 来自 vivo V2072A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  曼陀罗肥  
+##### 322#       发表于 2022-12-24 06:10
+
+给点给点<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
