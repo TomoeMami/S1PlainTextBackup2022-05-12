@@ -39,3 +39,17 @@
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  扑克脸军曹  
+##### 1717#       发表于 2022-12-23 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59051253&amp;ptid=2027972" target="_blank">一个陆仁贾 发表于 2022-12-22 20:35</a>
+
+厉害，我看到职业玩家下场，自己跑个银牌（当时看到）就走了
+
+—— 来自 OPPO PDRM00, Android 12上的 S1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">刷多了把对整个游戏的热情全消耗完了
+
