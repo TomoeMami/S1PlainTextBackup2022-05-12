@@ -1070,3 +1070,20 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 被动先升射弹+1和冷却，剩下的随便了，经验和钱拉满不拉满的其实影响不大
 
+
+
+*****
+
+####  afer  
+##### 575#       发表于 2022-12-24 17:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59023961&amp;ptid=2052594" target="_blank">哈迪斯兜帽 发表于 2022-12-20 19:56</a>
+彩虹鸟确实彳亍
+
+昨天没钱强化，也不知道能组合武器
+
+今天终于打爽了</blockquote>
+一般，
+
+圣经还是T0
+

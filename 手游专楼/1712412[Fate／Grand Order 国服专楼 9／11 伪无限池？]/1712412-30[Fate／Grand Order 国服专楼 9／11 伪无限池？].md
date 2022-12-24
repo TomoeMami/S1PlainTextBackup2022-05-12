@@ -1817,3 +1817,12 @@ iOS求个一宝土方+五星礼装
 
 这妖兰配队完全没法用脚本公式化处理啊，麻了
 
+
+
+*****
+
+####  sosgame67  
+##### 43966#       发表于 2022-12-24 17:50
+
+5星礼装满破比去年日服打的轻松多了..<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

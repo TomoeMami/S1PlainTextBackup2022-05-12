@@ -1400,3 +1400,12 @@ sukebei.nyaa.si/
 我玩下来感觉小粥动态也不多，剧情是一样的寡淡，不知道赢在哪儿了</blockquote>
 二代我还没玩，一代的动态应该是和炎孕的数量差不多的，关键镜头、姿势、play用的好，而且动态的动作更丰富，炎孕基本就是一个动作用到尾还不带换的，小粥还有侧面图
 
+
+
+*****
+
+####  isa2456  
+##### 140#       发表于 2022-12-24 17:47
+
+看见白毛的时候直接那啥了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">大河赤冀和小海湾都一般
+
