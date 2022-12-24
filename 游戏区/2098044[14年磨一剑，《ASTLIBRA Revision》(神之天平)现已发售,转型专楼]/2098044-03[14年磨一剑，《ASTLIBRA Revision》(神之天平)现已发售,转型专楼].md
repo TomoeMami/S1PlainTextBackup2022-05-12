@@ -1264,3 +1264,17 @@
 麻了，扭蛋大师成就没有拿到，但是看宝物之书里，包括新章在内小徽章我都拿全了啊，是有哪里错过了吗…… ...</blockquote>
 退出、读档就跳了
 
+
+
+*****
+
+####  viperasi  
+##### 3110#       发表于 2022-12-24 22:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59054870&amp;ptid=2098044" target="_blank">菟原手兒奈 发表于 2022-12-23 01:35</a>
+
+一周干到新章了，所有能拿到的装备都练满了，缓一天再继续推
+
+困难难度开荒，对手残还是有点难受的，从雪山 ...</blockquote>
+同困难难度开坑, 第五章打boss, 死了10几次, 右手大拇指久违的感觉, 还是换普通先通了吧 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
