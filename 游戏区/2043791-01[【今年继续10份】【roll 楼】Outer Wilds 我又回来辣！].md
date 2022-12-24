@@ -2666,3 +2666,15 @@ Dlc+1
 
 dlc在库里一直没敢开，有没有人讲下到底有多恐怖？
 
+
+
+*****
+
+####  Motoko-9  
+##### 332#       发表于 2022-12-24 14:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59068578&amp;ptid=2043791" target="_blank">DeepResidual 发表于 2022-12-24 11:39</a>
+真的是一辈子见一次的好游&amp;#x6 ...</blockquote>
+没有多恐怖 还可以开弱化
+但是核心诡计和演出是一生一次的体验
+

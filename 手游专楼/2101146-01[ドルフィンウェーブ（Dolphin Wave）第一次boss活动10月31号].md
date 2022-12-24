@@ -723,3 +723,13 @@ SR由芽，我UR的SUN由芽又没法带了，这帮家伙出卡都不考虑属�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">VH有够难的，死到第三队才过，最后一队UR伤害太高了
 
+
+
+*****
+
+####  startea15  
+##### 214#       发表于 2022-12-24 14:44
+
+这expert完全不知道怎么打第四层
+伤害高之余我又没属性克制卡，属于是不氪金不给打了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
