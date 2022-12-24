@@ -1826,3 +1826,17 @@ iOS求个一宝土方+五星礼装
 
 5星礼装满破比去年日服打的轻松多了..<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  艾尔特翔  
+##### 43967#       发表于 2022-12-24 17:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59072137&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2022-12-24 17:23</a>
+
+大佬有余力把太公望20NP点满吗?
+
+没有就算了....</blockquote>
+点满了。
+

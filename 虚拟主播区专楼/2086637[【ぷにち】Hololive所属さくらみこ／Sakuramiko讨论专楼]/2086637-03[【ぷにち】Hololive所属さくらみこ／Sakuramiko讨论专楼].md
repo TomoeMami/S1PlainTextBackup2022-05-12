@@ -6883,3 +6883,12 @@ miko的tkb哒
 
 网上倒是在讨论21点party直播结束之后谁会不回家留下来和miko一起过圣夜，我觉得……
 
+
+
+*****
+
+####  rs5621  
+##### 3644#       发表于 2022-12-24 18:03
+
+过夜我觉得不太可能,就算是以前的八字母圣诞节留宿也是在23号,今晚真的有的话,那就非常期待后日谈.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
