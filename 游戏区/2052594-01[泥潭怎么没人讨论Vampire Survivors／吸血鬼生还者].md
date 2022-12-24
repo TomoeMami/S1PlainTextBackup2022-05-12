@@ -1179,3 +1179,16 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 然后魔环是比较特殊的自己能进化两次成为超武。
 
+
+
+*****
+
+####  AeonsTorn  
+##### 583#       发表于 2022-12-25 01:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59077608&amp;ptid=2052594" target="_blank">tansapple 发表于 2022-12-25 00:58</a>
+骨头，樱桃炸弹，推车，花束，烟花，圣诞蛋，还有隐藏角色阿凡达自带的恶咒火焰，都没有超武。
+
+然后魔环 ...</blockquote>
+恶咒火焰不是和金砖合成超武吗
+

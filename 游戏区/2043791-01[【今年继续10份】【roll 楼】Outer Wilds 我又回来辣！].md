@@ -2759,3 +2759,17 @@ xgp体验过，真的太好玩了，就是黑洞有点恐怖
 
 来凑一个
 
+
+
+*****
+
+####  DeepResidual  
+##### 342#       发表于 2022-12-25 01:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59070632&amp;ptid=2043791" target="_blank">Motoko-9 发表于 2022-12-24 14:52</a>
+没有多恐怖 还可以开弱化
+但是核心诡计和演出是一生一次的体验</blockquote>
+昨天开玩，目前还没玩到恐怖的地方，但整个世界做得真是机巧精美啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
