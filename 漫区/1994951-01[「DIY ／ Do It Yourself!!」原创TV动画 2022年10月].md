@@ -8770,3 +8770,14 @@ https://bgm.tv/blog/315691
 [https://twitter.com/NKNlak/status/1605907812617359360](https://twitter.com/NKNlak/status/1605907812617359360)
 <img src="https://p.sda1.dev/9/94c66e68dcfb8b698cd6c905cfce3f75/20221224_004935.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  diyihaoshitu  
+##### 637#       发表于 2022-12-24 14:09
+
+不错，没有烂尾
+
+—— 来自 vivo Y55L, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
