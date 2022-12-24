@@ -1858,3 +1858,14 @@ v综好久没这么热闹了，谢谢enkr谢谢圭利
 
 相对二等心已经不到2k了，还养得起公司吗
 
+
+
+*****
+
+####  winda  
+##### 18169#       发表于 2022-12-24 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59060854&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-23 17:42</a>
+看v综久了感觉比妇科医生更关心下体问题</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上不了大雅之堂的lowb玩意都得美言几句，这就是量产liver拉低平均水平的体现么
+

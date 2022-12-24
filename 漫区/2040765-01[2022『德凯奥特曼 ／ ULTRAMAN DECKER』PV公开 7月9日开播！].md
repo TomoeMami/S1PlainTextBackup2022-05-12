@@ -56,3 +56,14 @@ Blu-ray💿BOX Ⅱ は
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">无敌的特利迦倒下了。
 
+
+
+*****
+
+####  上坂莲华  
+##### 839#       发表于 2022-12-24 10:41
+
+所以这前半段莫名其妙的回忆是要干什么，阿加慕斯也有梦想，啊呸，朝影曾经也是个体面人是吧
+
+后面强劲型明明能直接干碎三个怪还非要墨迹半天然后被一炮打的致敬星光战士，江郎才尽了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
