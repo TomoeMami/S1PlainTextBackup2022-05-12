@@ -1024,3 +1024,13 @@ https://m.weibo.cn/2947384160/4849621061338127
 
 鲤鱼的SAO cos没有图吗
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10586#       发表于 2022-12-24 17:34
+
+这羁绊环节真是笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">nako放海nagi不接
+鱼玩怪的全部バレバレ
+
