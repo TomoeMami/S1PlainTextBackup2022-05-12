@@ -1142,3 +1142,17 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 然后选1级自带-CD效果的prota。
 
+
+
+*****
+
+####  AeonsTorn  
+##### 580#       发表于 2022-12-24 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59074312&amp;ptid=2052594" target="_blank">海豹墨鱼卷 发表于 2022-12-24 20:06</a>
+不用那么麻烦了，成就解锁卡牌然后刷几个就行了。
+
+卡片0，游戏杀手，效果：无法获得经验，宝石变成炸伤怪 ...</blockquote>
+我说的当然是上古时期没更新那么多东西的时候的方法，我自己都没用过<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+自从更新了月桂叶和冰刀超武之后击败死神不要太简单，更简单的方法应该有吧，我是不知道也用不上了
+

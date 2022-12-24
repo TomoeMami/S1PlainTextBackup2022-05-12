@@ -10560,3 +10560,15 @@ pv的小麻雀好帅，这不再来波加强？
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  音無麻理亜  
+##### 3949#       发表于 2022-12-24 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59071664&amp;ptid=2084912" target="_blank">zakki 发表于 2022-12-24 16:31</a>
+
+那个是地球大总统</blockquote>
+好吧，可惜，那2.7大概又留石头了<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
