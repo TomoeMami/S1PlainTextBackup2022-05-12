@@ -1869,3 +1869,18 @@ v综好久没这么热闹了，谢谢enkr谢谢圭利
 看v综久了感觉比妇科医生更关心下体问题</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上不了大雅之堂的lowb玩意都得美言几句，这就是量产liver拉低平均水平的体现么
 
+
+
+*****
+
+####  rzrbtk  
+##### 18170#       发表于 2022-12-24 13:07
+
+<blockquote>winda 发表于 2022-12-24 10:47
+上不了大雅之堂的lowb玩意都得美言几句，这就是量产liver拉低平均水平的体现么
+
+终究是靠寄生别人 ...</blockquote>
+又美言，我哪说过圭利没错捏，说liver的恶质clip如果有打码加变声不容易被删除是不是美言啊？圭利自己也休止认了。
+
+司会靠蹭变成虹代表，你这说法不就跟“你拖了全班的后腿”aoe一样，只能说清者自清惹
+
