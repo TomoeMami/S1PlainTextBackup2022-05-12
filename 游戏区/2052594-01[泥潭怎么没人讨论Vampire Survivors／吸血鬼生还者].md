@@ -1165,3 +1165,17 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 那个骨头能合超武么
 
+
+
+*****
+
+####  tansapple  
+##### 582#       发表于 2022-12-25 00:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59077179&amp;ptid=2052594" target="_blank">cuiluzhu 发表于 2022-12-25 00:08</a>
+
+那个骨头能合超武么</blockquote>
+骨头，樱桃炸弹，推车，花束，烟花，圣诞蛋，还有隐藏角色阿凡达自带的恶咒火焰，都没有超武。
+
+然后魔环是比较特殊的自己能进化两次成为超武。
+
