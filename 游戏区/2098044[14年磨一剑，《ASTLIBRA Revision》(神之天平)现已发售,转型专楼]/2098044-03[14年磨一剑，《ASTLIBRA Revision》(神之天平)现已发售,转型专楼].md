@@ -1223,3 +1223,14 @@
 
 装备盘空格镶嵌宝石为啥都显示提升属性0？顺便魔杖爆发流真心离谱，后期boss血量都可以用挨几下剑舞计算了
 
+
+
+*****
+
+####  suija  
+##### 3106#       发表于 2022-12-24 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59069404&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-24 13:11</a>
+装备盘空格镶嵌宝石为啥都显示提升属性0？顺便魔杖爆发流真心离谱，后期boss血量都可以用挨几下剑舞计算了 ...</blockquote>
+石头可以强化的，强化了才能有+值
+
