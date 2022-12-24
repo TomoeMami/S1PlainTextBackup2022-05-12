@@ -10398,3 +10398,38 @@ Extella之前就提过是三部曲，link只能算1.5，不是正作。菌皇还
 
 某人若无其事地出现在了2次，直接帮我ban掉了2个池子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3931#       发表于 2022-12-24 15:52
+
+PV这个画风给我一种哆啦A梦大长篇的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 3932#       发表于 2022-12-24 15:53
+
+福袋我只能抽狂单了
+
+*****
+
+####  Jamaisvu  
+##### 3933#       发表于 2022-12-24 15:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59071234&amp;ptid=2084912" target="_blank">xiongxingyu 发表于 2022-12-24 15:51</a>
+
+某人若无其事地出现在了2次，直接帮我ban掉了2个池子</blockquote>
+妖兰是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这二十格火锅看得人食欲大减，还不如弄个必new的大黑锅呢...
+
+*****
+
+####  音無麻理亜  
+##### 3934#       发表于 2022-12-24 16:00
+
+这是提妈有机会进卡池了？<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+

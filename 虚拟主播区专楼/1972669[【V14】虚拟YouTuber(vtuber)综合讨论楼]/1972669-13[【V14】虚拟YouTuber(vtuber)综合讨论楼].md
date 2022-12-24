@@ -1896,3 +1896,16 @@ v综好久没这么热闹了，谢谢enkr谢谢圭利
 虹运营看起来是要牌坊的,但是贵物主播和虹太监确实是恬不知耻不要脸 ...</blockquote>
 乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  winda  
+##### 18172#       发表于 2022-12-24 15:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59069364&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2022-12-24 13:07</a>
+又美言，我哪说过圭利没错捏，说liver的恶质clip如果有打码加变声不容易被删除是不是美言啊？圭利自己也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">承认的是什么:便所の落书和纯爱の歌，这不就是诡辩。
+蹭就是蹭了，哪还有身段柔软不柔软，谁会心那么大在简介直接承认，lowb行为说的像失误，不也是诡辩。
+至于拖不拖后腿，你要不和工商蒸发的夜王国粉丝说吧，不过这问题是ankr的，真承认了不要脸low了继续活动也成
+
