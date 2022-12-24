@@ -1999,3 +1999,19 @@ T3  ...</blockquote>
 
 这鳞粉掉得太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ousia  
+##### 43981#       发表于 2022-12-24 19:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59073529&amp;ptid=1712412" target="_blank">kyonkoism 发表于 2022-12-24 19:02</a>
+
+试了下，需要人为判断的情况有点多，尤其是需要角色指令卡
+
+我用脚本刷，感觉还是换人稳定点，亏个活动角 ...</blockquote>
+没有事，脚本确实换人最优
+
+我主要是梦火太少，看到奥宝羁绊上涨心在滴血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

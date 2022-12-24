@@ -10542,3 +10542,21 @@ PV这个画风给我一种哆啦A梦大长篇的感觉<img src="https://static.s
 
 **体池子居然一个都没有，该冲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 3947#       发表于 2022-12-24 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完全没赌的欲望
+
+*****
+
+####  風卷豹  
+##### 3948#       发表于 2022-12-24 19:19
+
+pv的小麻雀好帅，这不再来波加强？
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
