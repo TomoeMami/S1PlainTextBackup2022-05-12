@@ -8801,3 +8801,14 @@ https://bgm.tv/blog/315691
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  diyihaoshitu  
+##### 640#       发表于 2022-12-24 19:35
+
+最后快把活动室拆完了，这天冷了可怎么办
+
+—— 来自 vivo Y55L, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

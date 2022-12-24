@@ -1081,3 +1081,12 @@ https://m.weibo.cn/2947384160/4849621061338127
 
 广播也经常能听到nako这声线吧，整节目效果了
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10592#       发表于 2022-12-24 19:39
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nagi这个抖音听着BGM觉得耳熟，结果是你鱼同款
+
