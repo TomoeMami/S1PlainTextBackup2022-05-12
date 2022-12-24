@@ -1008,3 +1008,36 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第三章 最后2分钟扛不住了 书+大蒜+叶桂 都还是被逼死了
 
+
+
+*****
+
+####  白猫MKII  
+##### 569#       发表于 2022-12-24 11:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59068140&amp;ptid=2052594" target="_blank">吃鸡南小鸟 发表于 2022-12-24 10:46</a>
+第三章 最后2分钟扛不住了 书+大蒜+叶桂 都还是被逼死了</blockquote>
+不打死神请忘记月桂这种东西，大蒜过了20分钟也当他没有，你就一个书有点输出
+
+*****
+
+####  好多树  
+##### 570#       发表于 2022-12-24 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59063437&amp;ptid=2052594" target="_blank">cuiluzhu 发表于 2022-12-23 21:21</a>
+
+谢谢，我看很多攻略说鞭不厉害就没怎么拿过。</blockquote>
+鞭子和蒜都是可以稳定清掉前期近身的怪物的武器，可以保着你稳定到达10分钟合成超武，蒜在后期没有什么用了，但鞭子合成超武后后期还能提供吸血，伤害也过得去，可以说在前期的武器里面比那些圣经圣水斧头雷电什么华而不实的有用多了，那些武器经常9分钟一大波怪涌过来，清不掉就挂了。也就到了游戏后期解锁的武器和塔罗牌多了，鞭子就不太实用了。
+
+
+
+*****
+
+####  吃鸡南小鸟  
+##### 571#       发表于 2022-12-24 11:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59068385&amp;ptid=2052594" target="_blank">白猫MKII 发表于 2022-12-24 11:19</a>
+
+不打死神请忘记月桂这种东西，大蒜过了20分钟也当他没有，你就一个书有点输出 ...</blockquote>
+原来如此！
+
