@@ -10495,3 +10495,21 @@ PV这个画风给我一种哆啦A梦大长篇的感觉<img src="https://static.s
 
 狂单是唯一能看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  白金口袋  
+##### 3942#       发表于 2022-12-24 16:30
+
+要来了吗，岛崎信长大战石川界人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  zakki  
+##### 3943#       发表于 2022-12-24 16:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59071345&amp;ptid=2084912" target="_blank">音無麻理亜 发表于 2022-12-24 16:00</a>
+这是提妈有机会进卡池了？</blockquote>
+那个是地球大总统
+
