@@ -1776,3 +1776,12 @@ iOS求个一宝土方+五星礼装
 另外跟楼上说的一样，和好友奥宝的亲密度比自家亲多了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">可以用FGO teamup组队试试水，挺好用的
 
+
+
+*****
+
+####  艾尔特翔  
+##### 43962#       发表于 2022-12-24 15:10
+
+还是浑身难受的只能看着你们讨论了，刷是没体力刷了，过剧情苏鲁特交了令咒，慢慢打了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
