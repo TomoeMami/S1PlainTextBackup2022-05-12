@@ -1922,3 +1922,15 @@ v综好久没这么热闹了，谢谢enkr谢谢圭利
 
 感觉小底边选歌不能太王道，有时候一些好歌只在她们那里听过
 
+
+
+*****
+
+####  rzrbtk  
+##### 18174#       发表于 2022-12-24 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59071280&amp;ptid=1972669" target="_blank">winda 发表于 2022-12-24 15:55</a>
+承认的是什么:便所の落书和纯爱の歌，这不就是诡辩。
+蹭就是蹭了，哪还有身段柔软不柔软，谁会心 ...</blockquote>
+越说越回去，你觉得圭利简介栏是诡辩，我说圭利在简介里措辞耍手段，不就一个意思
+
