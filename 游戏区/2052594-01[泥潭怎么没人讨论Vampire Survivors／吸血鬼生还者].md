@@ -1041,3 +1041,14 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 不打死神请忘记月桂这种东西，大蒜过了20分钟也当他没有，你就一个书有点输出 ...</blockquote>
 原来如此！
 
+
+
+*****
+
+####  barry.allen  
+##### 572#       发表于 2022-12-24 13:01
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">入坑了，请问普遍升级先升哪个好？
+
+就是攻击防御速度之类的。我先把走路速度提升了10%
+
