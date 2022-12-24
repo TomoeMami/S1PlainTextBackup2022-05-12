@@ -1006,3 +1006,12 @@ https://m.weibo.cn/2947384160/4849621061338127
 就一份啊，我觉得这张可能数字一般，这一波波的，就是单推钱包也有点遭不住啊，还好还有年终奖 ...</blockquote>
 运气挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一份就中了。我找的代购，也不知道中没中。不过有一说一钱包的确顶不住了，想想明年真回国举办活动，钱包又是大出血
 
+
+
+*****
+
+####  仟音一心  
+##### 10584#       发表于 2022-12-24 12:51
+
+【hi我是Liyuu太久没更了发个小视频！-哔哩哔哩】 [https://b23.tv/uo2GC2N](https://b23.tv/uo2GC2N)
+

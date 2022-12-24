@@ -79,3 +79,19 @@ Blu-ray💿BOX Ⅱ は
 2023年 圆谷60周年</blockquote>
 好耶 圆谷60周年 明年肯定是赛文致敬作罢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  无敌のpeach  
+##### 841#       发表于 2022-12-24 12:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是以后就不用再看博士复读那些名词了
+
+*****
+
+####  roxas.sora  
+##### 842#       发表于 2022-12-24 12:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他人都塑造挺好的，博士拉了啊
+
