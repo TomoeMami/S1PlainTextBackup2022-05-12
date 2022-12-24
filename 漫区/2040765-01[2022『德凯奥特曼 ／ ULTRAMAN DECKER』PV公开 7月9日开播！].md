@@ -30,3 +30,20 @@ Blu-ray💿BOX Ⅱ は
 <img src="https://p.sda1.dev/9/cce357937bb47e269d4733f5f7f829ca/20221223_202222.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/703b8f461e5b66ae382ce8c361333bac/20221223_202223.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  renkan119  
+##### 836#       发表于 2022-12-24 10:07
+
+快结局了放总集篇 不知道怎么想的 这早拍好了又不会万策尽—
+
+*****
+
+####  Piano-Forest  
+##### 837#         楼主| 发表于 2022-12-24 10:10
+
+2023年 圆谷60周年
+<img src="https://p.sda1.dev/9/f22596571b6c45f4d234979c33896952/20221224_100513.jpg" referrerpolicy="no-referrer">
+
