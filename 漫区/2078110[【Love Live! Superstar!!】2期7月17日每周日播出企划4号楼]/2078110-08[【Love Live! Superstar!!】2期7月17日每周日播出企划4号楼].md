@@ -1154,3 +1154,15 @@ https://m.weibo.cn/2947384160/4849621061338127
 
 <img src="https://p.sda1.dev/9/5cc7e742fdf4e3ccccb20c0b4ef3208d/CMP_20221224230628639.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10599#       发表于 2022-12-24 23:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59076478&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-24 23:00</a>
+
+早说了整个占位符到时候直接填人进去就行了啊，动画和原设货不对板没关系，反正有那厕纸杂志和小广播剧场帮 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那找不到一个天赋异禀还愿意来洗脚的小妹妹的话大概率全方位灾难了
+
