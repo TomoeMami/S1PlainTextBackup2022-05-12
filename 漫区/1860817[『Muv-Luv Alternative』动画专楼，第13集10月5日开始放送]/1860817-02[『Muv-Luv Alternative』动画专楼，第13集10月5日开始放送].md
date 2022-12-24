@@ -2860,3 +2860,27 @@ ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不
 
 看这最后几分钟的演出方式。。是不是没有第三季了
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2234#       发表于 2022-12-24 19:03
+
+<img src="https://p.sda1.dev/9/cc5e195f1227b10912410930cc52c463/CMP_20221224190303436.jpg" referrerpolicy="no-referrer">
+
+乐
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
+*****
+
+####  再买自检星剁手  
+##### 2235#       发表于 2022-12-24 19:03
+
+<img src="https://p.sda1.dev/9/cc5e195f1227b10912410930cc52c463/CMP_20221224190303436.jpg" referrerpolicy="no-referrer">
+
+乐
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+

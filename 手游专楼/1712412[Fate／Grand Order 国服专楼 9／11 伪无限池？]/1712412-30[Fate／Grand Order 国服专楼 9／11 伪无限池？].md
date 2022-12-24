@@ -1974,3 +1974,28 @@ boss有没有可能放两次技能的?
 
 2T如果不发太公望卡，boss又开两次技能的话，3T可能NP不够
 
+
+
+*****
+
+####  kyonkoism  
+##### 43979#       发表于 2022-12-24 19:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59073199&amp;ptid=1712412" target="_blank">Ousia 发表于 2022-12-24 18:38</a>
+
+T1 妖兰23，双杀狐23妖兰。妖兰有蓝绿宝具后补一张
+
+T2 妖兰1，杀狐50充妖兰，同样有蓝绿宝具后补一张
+
+T3  ...</blockquote>
+试了下，需要人为判断的情况有点多，尤其是需要角色指令卡
+
+我用脚本刷，感觉还是换人稳定点，亏个活动角色额外加成和衣服经验值，谢谢建议了
+
+*****
+
+####  DET33  
+##### 43980#       发表于 2022-12-24 19:10
+
+这鳞粉掉得太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+

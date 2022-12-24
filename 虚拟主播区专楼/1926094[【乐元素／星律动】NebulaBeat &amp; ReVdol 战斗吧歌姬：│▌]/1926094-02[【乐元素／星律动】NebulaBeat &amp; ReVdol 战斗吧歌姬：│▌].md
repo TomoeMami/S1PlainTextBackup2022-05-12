@@ -12581,3 +12581,14 @@ wb更了   太劲了
 第一次长时间听小火驴直播，她是不是不受nb的藏话禁止规定的约束啊感觉隔一会儿就爆一句我艹，md， ...</blockquote>
 问题不大，感情到位了说几句没问题。叶子可是更素质的话都说了
 
+
+
+*****
+
+####  黄金鸡屁屁  
+##### 2812#       发表于 2022-12-24 19:05
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">月月高强度发博
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+

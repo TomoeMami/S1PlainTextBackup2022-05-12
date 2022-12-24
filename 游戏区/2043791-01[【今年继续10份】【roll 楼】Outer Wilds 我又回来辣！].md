@@ -2703,3 +2703,14 @@ dlc在库里一直没敢开，有没有人讲下到底有多恐怖？
 
 凑个热闹<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  赛U灵  
+##### 336#       发表于 2022-12-24 19:10
+
+凑个热闹<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO CPH1893, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
