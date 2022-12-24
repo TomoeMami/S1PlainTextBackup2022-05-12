@@ -706,3 +706,20 @@ SR由芽，我UR的SUN由芽又没法带了，这帮家伙出卡都不考虑属�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多来点bug，我下个井有点远
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 213#         楼主| 发表于 2022-12-24 12:01
+
+<img src="https://img.saraba1st.com/forum/202212/24/115934p8pk56xpkhqnqhs5.png" referrerpolicy="no-referrer">
+
+<strong>QQ图片20221224115927.png</strong> (221.69 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-24 11:59 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">VH有够难的，死到第三队才过，最后一队UR伤害太高了
+
