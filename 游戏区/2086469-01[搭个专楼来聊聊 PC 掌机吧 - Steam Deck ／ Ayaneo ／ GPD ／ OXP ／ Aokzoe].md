@@ -196,3 +196,23 @@ RA的各种整合包资源不都是免费的，网上随便下载吗，为啥还
 RA的各种整合包资源不都是免费的，网上随便下载吗，为啥还买……</blockquote>
 人到中年已经完全失去动手能力了，能氪金省时间就氪金
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 566#       发表于 2022-12-24 16:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59044514&amp;ptid=2086469" target="_blank">barry.allen 发表于 2022-12-22 10:41</a>
+64gb的steam deck到手了
+
+感觉空间太小装不了几个游戏，能插机器上的sd卡有啥推荐么？什么规格的插 ...</blockquote>
+sd卡也挺贵的，不如直接换ssd
+
+*****
+
+####  伊莉伊莉雅  
+##### 567#       发表于 2022-12-24 16:04
+
+风怒
+

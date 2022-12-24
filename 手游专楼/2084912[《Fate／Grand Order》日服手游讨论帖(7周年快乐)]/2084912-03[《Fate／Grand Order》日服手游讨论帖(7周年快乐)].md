@@ -10433,3 +10433,49 @@ PV这个画风给我一种哆啦A梦大长篇的感觉<img src="https://static.s
 
 这是提妈有机会进卡池了？<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hououmon  
+##### 3935#       发表于 2022-12-24 16:02
+
+嗯......白贞呢？
+
+*****
+
+####  黑上シグマ  
+##### 3936#       发表于 2022-12-24 16:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59071386&amp;ptid=2084912" target="_blank">hououmon 发表于 2022-12-24 16:02</a>
+
+嗯......白贞呢？</blockquote>
+如果你说的福袋……泳装是弓的，尺子不是限定（
+
+*****
+
+####  khxooo  
+##### 3937#       发表于 2022-12-24 16:11
+
+继续拼摩根，来千利修也血赚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  hououmon  
+##### 3938#       发表于 2022-12-24 16:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59071435&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-12-24 16:06</a>
+
+如果你说的福袋……泳装是&amp;# ...</blockquote>
+好吧，没发现是限定only.....
+
+*****
+
+####  khxooo  
+##### 3939#       发表于 2022-12-24 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59071482&amp;ptid=2084912" target="_blank">hououmon 发表于 2022-12-24 16:11</a>
+
+好吧，没发现是限定only.....</blockquote>
+都多久了，FGO早几年都是只有限定了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
