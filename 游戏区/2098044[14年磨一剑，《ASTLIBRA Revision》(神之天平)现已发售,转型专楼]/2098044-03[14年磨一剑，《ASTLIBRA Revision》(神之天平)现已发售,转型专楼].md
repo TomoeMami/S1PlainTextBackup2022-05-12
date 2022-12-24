@@ -1243,3 +1243,24 @@
 
 麻了，扭蛋大师成就没有拿到，但是看宝物之书里，包括新章在内小徽章我都拿全了啊，是有哪里错过了吗……
 
+
+
+*****
+
+####  gwchobit  
+##### 3108#       发表于 2022-12-24 20:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59066454&amp;ptid=2098044" target="_blank">manyin1 发表于 2022-12-24 02:05</a>
+
+加隆其实就是那条龙吧，然后为啥加隆要帮男主和男主一起去旅行啊？</blockquote>
+鸟哥失去记忆了，但是会说话。遇到第一个人是男主也能交流，只能相依为伴咯
+
+*****
+
+####  你知道我的  
+##### 3109#       发表于 2022-12-24 20:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59072721&amp;ptid=2098044" target="_blank">菟原手兒奈 发表于 2022-12-24 18:04</a>
+麻了，扭蛋大师成就没有拿到，但是看宝物之书里，包括新章在内小徽章我都拿全了啊，是有哪里错过了吗…… ...</blockquote>
+退出、读档就跳了
+
