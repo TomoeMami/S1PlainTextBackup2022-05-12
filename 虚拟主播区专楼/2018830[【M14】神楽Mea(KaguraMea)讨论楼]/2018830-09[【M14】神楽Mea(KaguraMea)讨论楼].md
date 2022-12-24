@@ -533,3 +533,14 @@ live这种东西再多也不嫌多
 
 好听，没事干的话听听唱歌也挺好的<img src="https://p.inari.site/guest/22-12/23/63a4ba493f795.webp" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  掉头学姐  
+##### 12968#       发表于 2022-12-24 10:22
+
+LOL播
+
+—— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
