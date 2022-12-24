@@ -2040,3 +2040,17 @@ T3  ...</blockquote>
 
 用了太公望队伍，第一次看到这么多次CBA的宝具
 
+
+
+*****
+
+####  dawning  
+##### 43985#       发表于 2022-12-24 21:45
+
+发烧，喉咙和腰不舒服，应该是阳了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，没测抗原，身边大面积阳了，也是时候了，
+目前状态还好，初期感冒的感觉，
+
+今天的本要打三面，打起来好麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">，
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

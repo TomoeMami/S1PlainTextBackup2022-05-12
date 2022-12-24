@@ -28,3 +28,12 @@ USERJOY JAPAN正式公开手游《英雄传说 闪之轨迹 北方战役》相�
 [https://m.bilibili.com/video/BV1bM411m7DP](https://m.bilibili.com/video/BV1bM411m7DP)
 [https://youtu.be/6hNjYJaiC6Y](https://youtu.be/6hNjYJaiC6Y)
 
+
+
+*****
+
+####  lil_is  
+##### 108#       发表于 2022-12-24 21:50
+
+不知道范恩有没有戏份，我记得黎1里有提过参了一脚
+

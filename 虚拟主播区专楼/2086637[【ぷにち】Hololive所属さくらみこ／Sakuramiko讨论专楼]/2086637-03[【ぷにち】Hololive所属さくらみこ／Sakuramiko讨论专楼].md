@@ -6932,3 +6932,47 @@ miko的tkb哒
 
 啊……
 
+
+
+*****
+
+####  holoan  
+##### 3649#         楼主| 发表于 2022-12-24 21:46
+
+等一下等一下！！！！！！！！！
+
+七字母这单独留着，要是突然把KU100拿出来的话那不是
+
+*****
+
+####  rs5621  
+##### 3650#       发表于 2022-12-24 21:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这下爱爱直播了!
+
+*****
+
+####  holoan  
+##### 3651#         楼主| 发表于 2022-12-24 21:50
+
+[https://i.imgur.com/h0OYBL0.jpg](https://i.imgur.com/h0OYBL0.jpg)
+<img src="https://i.imgur.com/XxRY8Ur.jpg" referrerpolicy="no-referrer"> <blockquote>フレア→ポルカ
+
+おやつ昆布、1000ガチャのハズレ(タコのやつ)、USBグッズ
+
+ノエル→すいせい
+
+ジェラピケの部屋着
+
+ポルカ→みこち
+
+犬のぬいぐるみ
+
+すいせい→フレア
+
+健康グッズ
+
+みこち→ノエル
+
+ピカチュウのぬいぐるみ</blockquote>
+
