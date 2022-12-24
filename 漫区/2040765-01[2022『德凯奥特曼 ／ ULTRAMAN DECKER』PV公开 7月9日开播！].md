@@ -47,3 +47,12 @@ Blu-ray💿BOX Ⅱ は
 2023年 圆谷60周年
 <img src="https://p.sda1.dev/9/f22596571b6c45f4d234979c33896952/20221224_100513.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  黑魔导始祖  
+##### 838#       发表于 2022-12-24 10:36
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">无敌的特利迦倒下了。
+
