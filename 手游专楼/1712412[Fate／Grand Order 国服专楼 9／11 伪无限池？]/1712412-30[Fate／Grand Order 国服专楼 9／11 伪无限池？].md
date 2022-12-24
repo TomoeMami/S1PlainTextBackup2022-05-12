@@ -1762,3 +1762,17 @@ iOS求个一宝土方+五星礼装
 
 而且现在网络封神小说，姜子牙都当反派来用了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET33  
+##### 43961#       发表于 2022-12-24 14:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59065971&amp;ptid=1712412" target="_blank">Blackson 发表于 2022-12-24 00:52</a>
+
+明天下午打狐狸，不知道会怎么样(翻车)？
+
+另外跟楼上说的一样，和好友奥宝的亲密度比自家亲多了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">可以用FGO teamup组队试试水，挺好用的
+
