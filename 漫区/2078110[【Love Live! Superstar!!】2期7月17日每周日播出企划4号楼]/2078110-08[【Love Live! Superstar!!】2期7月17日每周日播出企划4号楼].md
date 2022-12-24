@@ -1059,3 +1059,16 @@ https://m.weibo.cn/2947384160/4849621061338127
 
 青山绝对放海
 
+
+
+*****
+
+####  csolfans  
+##### 10590#       发表于 2022-12-24 18:40
+
+ 本帖最后由 csolfans 于 2022-12-24 18:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59071818&amp;ptid=2078110" target="_blank">lj205 发表于 2022-12-24 16:51</a>
+
+鲤鱼的SAO cos没有图吗</blockquote>
+有的；微博id：LanTH029；博主说请勿转出微博，我就不转发来这里了
+
