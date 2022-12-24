@@ -1278,3 +1278,17 @@
 困难难度开荒，对手残还是有点难受的，从雪山 ...</blockquote>
 同困难难度开坑, 第五章打boss, 死了10几次, 右手大拇指久违的感觉, 还是换普通先通了吧 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  菟原手兒奈  
+##### 3111#       发表于 2022-12-25 01:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59076084&amp;ptid=2098044" target="_blank">viperasi 发表于 2022-12-24 22:27</a>
+
+同困难难度开坑, 第五章打boss, 死了10几次, 右手大拇指久违的感觉, 还是换普通先通了吧  ...</blockquote>
+在后面点把削除这个技能开了后，BOSS战就都比较好过了，不好躲的弹幕直接开凭依。
+
+一周目建议还是困难打完，每一章开头受点苦也是独特体验了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

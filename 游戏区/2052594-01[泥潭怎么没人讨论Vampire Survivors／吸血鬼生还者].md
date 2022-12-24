@@ -1192,3 +1192,16 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 然后魔环 ...</blockquote>
 恶咒火焰不是和金砖合成超武吗
 
+
+
+*****
+
+####  藤井紫  
+##### 584#       发表于 2022-12-25 01:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59068140&amp;ptid=2052594" target="_blank">吃鸡南小鸟 发表于 2022-12-24 10:46</a>
+第三章 最后2分钟扛不住了 书+大蒜+叶桂 都还是被逼死了</blockquote>
+蒜只适合2/4用，135怪血比较厚，不够力的
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
