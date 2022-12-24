@@ -1869,3 +1869,34 @@ iOS求个一宝土方+五星礼装
 
 2022-12-24 18:20 上传
 
+
+
+*****
+
+####  深渊骑士  
+##### 43970#       发表于 2022-12-24 18:28
+
+2宝水院在没有满破5星礼装的情况下，必须要100级才能稳定2C呆不换人。
+
+*****
+
+####  Ousia  
+##### 43971#       发表于 2022-12-24 18:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59072958&amp;ptid=1712412" target="_blank">kyonkoism 发表于 2022-12-24 18:21</a>
+
+太爽了，5宝妖兰能羁绊礼装开刷，我要把我80个金苹果80个银苹果全刷完</blockquote>
+5宝百级可以试试双杀狐带减CD服（不带奥），多个羁绊位<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 43972#       发表于 2022-12-24 18:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59073070&amp;ptid=1712412" target="_blank">Ousia 发表于 2022-12-24 18:28</a>
+
+5宝百级可以试试双杀狐带减CD服（不带奥），多个羁绊位</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">还能这么搞？我试试
+
+刚好我CD服才5级
+
