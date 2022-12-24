@@ -1377,3 +1377,14 @@ sukebei.nyaa.si/
 
 我记得说是23年还有一作老画师的游戏，期待下吧
 
+
+
+*****
+
+####  火的意志  
+##### 138#       发表于 2022-12-24 13:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59066879&amp;ptid=2094442" target="_blank">培根芝士蛋堡XD 发表于 2022-12-24 03:53</a>
+虽然但是，炎孕这几作一直都是这样的，不然也不会被说被小粥姐妹爆了 ...</blockquote>
+我玩下来感觉小粥动态也不多，剧情是一样的寡淡，不知道赢在哪儿了
+
