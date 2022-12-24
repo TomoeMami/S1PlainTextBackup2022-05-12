@@ -1884,3 +1884,15 @@ v综好久没这么热闹了，谢谢enkr谢谢圭利
 
 司会靠蹭变成虹代表，你这说法不就跟“你拖了全班的后腿”aoe一样，只能说清者自清惹
 
+
+
+*****
+
+####  psnsic8nag  
+##### 18171#       发表于 2022-12-24 15:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59059284&amp;ptid=1972669" target="_blank">gogomw 发表于 2022-12-23 15:03</a>
+
+虹运营看起来是要牌坊的,但是贵物主播和虹太监确实是恬不知耻不要脸 ...</blockquote>
+乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
