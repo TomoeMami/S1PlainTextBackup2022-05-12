@@ -1364,3 +1364,16 @@ sukebei.nyaa.si/
 ——  ...</blockquote>
 虽然但是，炎孕这几作一直都是这样的，不然也不会被说被小粥姐妹爆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poipanchao  
+##### 137#       发表于 2022-12-24 12:22
+
+感觉这作真不行……各种姿势、play复用
+
+虽然之前的画师不能说没有缺点，但比这作这个强太多了
+
+我记得说是23年还有一作老画师的游戏，期待下吧
+

@@ -170,3 +170,17 @@ microSD都差不多，半斤八两。发热降速也是逃不过的<img src="htt
 
 ayaneo2+PC全能模拟器  基本上完美达到我的理想掌上神机了
 
+
+
+*****
+
+####  threefa  
+##### 564#       发表于 2022-12-24 12:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59068800&amp;ptid=2086469" target="_blank">KTD 发表于 2022-12-24 12:01</a>
+
+再吹一波pc全能模拟器，咸鱼上50块钱买的，再买了个sd卡装上这个，所有模拟器基本完美UI
+
+ayaneo2+PC全能模 ...</blockquote>
+RA的各种整合包资源不都是免费的，网上随便下载吗，为啥还买……
+
