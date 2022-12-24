@@ -184,3 +184,15 @@ ayaneo2+PC全能模拟器  基本上完美达到我的理想掌上神机了
 ayaneo2+PC全能模 ...</blockquote>
 RA的各种整合包资源不都是免费的，网上随便下载吗，为啥还买……
 
+
+
+*****
+
+####  KTD  
+##### 565#       发表于 2022-12-24 15:34
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59068975&amp;ptid=2086469" target="_blank">threefa 发表于 2022-12-24 12:23</a>
+
+RA的各种整合包资源不都是免费的，网上随便下载吗，为啥还买……</blockquote>
+人到中年已经完全失去动手能力了，能氪金省时间就氪金
+
