@@ -2054,3 +2054,21 @@ T3  ...</blockquote>
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  DET33  
+##### 43986#       发表于 2022-12-24 22:38
+
+老师傅三十年纯手刷，把好友钓鱼佬的声音听吐了，成功解毒，不想抽钓鱼佬了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 43987#       发表于 2022-12-24 22:41
+
+旁边NS双开刷
+
+一想到还有6个五星要刷6绊.....
+
