@@ -2933,3 +2933,14 @@ xgp体验过，真的太好玩了，就是黑洞有点恐怖
 
 来了来了 上年错过近年来roll
 
+
+
+*****
+
+####  aruruu  
+##### 361#       发表于 2022-12-25 19:59
+
+凑个热闹
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

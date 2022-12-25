@@ -2241,3 +2241,12 @@ T3  ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">死灵法师叔叔快收了阴兵吧，明天早上起来我还想肝呢
 
+
+
+*****
+
+####  JMFluorece  
+##### 44006#       发表于 2022-12-25 19:53
+
+估计这3kw也就一半是玩家打的，剩下都是阴兵过境...叔叔能不能多留点啊
+
