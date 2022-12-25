@@ -10930,3 +10930,20 @@ BREAK 两次
 
 不过这个造型真的有失水准，冠位形态画的跟SM套装似的...
 
+
+
+*****
+
+####  Jamaisvu  
+##### 3983#       发表于 2022-12-25 19:32
+
+<img src="https://img.saraba1st.com/forum/202212/25/193122ndh113vh7olkv3dh.jpg" referrerpolicy="no-referrer">
+
+<strong>1BCDBFE93E5E5D47169A53276A6A6B4D.jpg</strong> (350.23 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 19:31 上传
+
+搬一下大统领的解包。实装了肯定要变动不少，不过被动应该不会改动太多吧...
+
