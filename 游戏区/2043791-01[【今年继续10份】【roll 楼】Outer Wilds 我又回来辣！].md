@@ -2791,3 +2791,12 @@ xgp体验过，真的太好玩了，就是黑洞有点恐怖
 
 蹲个dlc
 
+
+
+*****
+
+####  Quelaan  
+##### 345#       发表于 2022-12-25 08:58
+
+凑个热闹，抽到了就拿去拉朋友联机<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
