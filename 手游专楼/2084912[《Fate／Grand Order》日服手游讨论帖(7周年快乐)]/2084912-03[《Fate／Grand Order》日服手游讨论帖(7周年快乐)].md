@@ -11183,3 +11183,14 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 
 蘑菇你追星归追星，审审稿不行吗，这种东西摆到台面上来大家都丢脸啊......
 
+
+
+*****
+
+####  vacuumsword  
+##### 4007#       发表于 2022-12-25 23:32
+
+贴吧说像hellshake矢野，深表同意。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

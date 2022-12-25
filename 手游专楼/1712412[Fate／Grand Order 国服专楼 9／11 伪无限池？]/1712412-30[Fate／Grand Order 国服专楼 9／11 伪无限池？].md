@@ -2344,3 +2344,48 @@ T3  ...</blockquote>
 
 几乎全3t412根，全程彩苹果最后还赚了百来个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kyonkoism  
+##### 44017#       发表于 2022-12-25 23:39
+
+体感刷了400多根，但是没截图就显示关卡结束给我踢出来了
+
+<img src="https://img.saraba1st.com/forum/202212/25/230529otwmz4shwypy49lt.png" referrerpolicy="no-referrer">
+
+<strong>P[KUW4C9@ND[`O1A8%A{_WS.png</strong> (38.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 23:05 上传
+
+<img src="https://img.saraba1st.com/forum/202212/25/230531dcctr4ztpp4y9ojc.png" referrerpolicy="no-referrer">
+
+<strong>(MCG88@SCL85]ZKP[3L`WMY.png</strong> (8.58 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 23:05 上传
+
+没截图到根数算是个遗憾，但是主力的角色基本都喂了梦火，可惜奥宝的没挖到
+
+<img src="https://img.saraba1st.com/forum/202212/25/233807z11a91rje102ge2p.png" referrerpolicy="no-referrer">
+
+<strong>J7}76VEMH061D700OLAPHR9.png</strong> (148.25 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 23:38 上传
+
+石头的话，开刷前记得是970的石头，现在是1163，减掉送的，应该是挖了150左右的石头，还是特别爽的，他妈的，叔叔为啥要放阴兵<img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/25/233801wasc6craar755zsa.png" referrerpolicy="no-referrer">
+
+<strong>QG@1}1]607JS]F768IJ0R7Q.png</strong> (2.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 23:38 上传
+
