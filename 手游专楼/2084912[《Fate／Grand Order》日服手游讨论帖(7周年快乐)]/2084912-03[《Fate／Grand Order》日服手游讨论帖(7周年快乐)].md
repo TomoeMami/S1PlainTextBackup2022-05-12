@@ -10744,3 +10744,26 @@ BREAK 两次
 黑贞黑圣杯，双杀狐，注意开局强制出学妹，所以一上场就换人</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过了 没想到之前出的黑贞这么好使
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3965#       发表于 2022-12-25 17:53
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">七冠全灭还行
+
+*****
+
+####  eilot  
+##### 3966#       发表于 2022-12-25 17:53
+
+之后数关都是强制出所长、学妹和无料抽小妖精...
+
+*****
+
+####  qixinno2  
+##### 3967#       发表于 2022-12-25 18:00
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死了 宝具不让用 点了还有语音 而且是三次都不同
+
