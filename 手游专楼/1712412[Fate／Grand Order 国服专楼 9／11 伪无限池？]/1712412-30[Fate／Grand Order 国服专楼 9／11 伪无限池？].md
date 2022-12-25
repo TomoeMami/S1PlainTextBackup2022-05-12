@@ -2232,3 +2232,12 @@ T3  ...</blockquote>
 
 太快了，叔叔快收了神通吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET33  
+##### 44005#       发表于 2022-12-25 19:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">死灵法师叔叔快收了阴兵吧，明天早上起来我还想肝呢
+
