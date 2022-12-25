@@ -1304,3 +1304,25 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 —— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  吃鸡南小鸟  
+##### 593#       发表于 2022-12-25 14:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59081308&amp;ptid=2052594" target="_blank">水边井 发表于 2022-12-25 13:27</a>
+随缘躲，20分钟就看不清说明你清得不够快。
+而且不用为了合超武而合超武，超武拿有两三个就足够了，剩下 ...</blockquote>
+谢谢 打过了
+
+—— 来自 samsung SM-G9860, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  helix  
+##### 594#       发表于 2022-12-25 14:11
+
+鞭子配合大蒜的增加击退效果，在初期属性不高的时候还是很好用的，能吸能苟
+解锁真空刃之后二段进化伤害也可以，除了被动收益一般其它都挺好
+

@@ -2164,3 +2164,12 @@ T3  ...</blockquote>
 你是不是开了随机？魔兽特性克制柱子，水院只有灵基第三阶段才有魔兽特性 ...</blockquote>
 刚才试了一下，确实如此，谢谢了
 
+
+
+*****
+
+####  Urakawa  
+##### 43997#       发表于 2022-12-25 14:05
+
+我也碰到水院的问题，打了几把和team-up摁的差距太大，翻wiki才想起三形态才是魔兽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
