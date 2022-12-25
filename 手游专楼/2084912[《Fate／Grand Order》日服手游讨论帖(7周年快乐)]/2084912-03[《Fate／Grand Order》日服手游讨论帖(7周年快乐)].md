@@ -10992,3 +10992,44 @@ ORT这尼玛9管血+1亿HP真的就突出一个打个锤子，还是lv1，要是
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这帝王花黑化样子太屑了。能实装灵衣吗
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3989#       发表于 2022-12-25 20:48
+
+ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+10排血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+打不赢打不赢，比魔性菩萨还夸张
+
+*****
+
+####  angelooo  
+##### 3990#       发表于 2022-12-25 20:49
+
+田岛画的是烟雾镜？这跟想象的完全不一样……
+
+
+
+*****
+
+####  Jamaisvu  
+##### 3991#       发表于 2022-12-25 20:52
+
+蝙蝠神卡玛佐兹的立绘挺帅气的，不过这家伙的品味不太行，咬了花花一口就送了套SM服，你们南美神的审美好难啊...
+
+*****
+
+####  廖化  
+##### 3992#       发表于 2022-12-25 20:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59087062&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-12-25 20:35</a>
+
+大统领用所长身体真是谐化了
+
+搞笑来的吧</blockquote>
+我看她现在这么谐，最后收场怕是不好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
