@@ -7111,3 +7111,30 @@ miko的tkb哒
 
 什么重女催婚歌...是写给谁的呢？
 
+
+
+*****
+
+####  holoan  
+##### 3665#         楼主| 发表于 2022-12-25 10:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59078572&amp;ptid=2086637" target="_blank">大厨麦当牛 发表于 2022-12-25 08:21</a>
+
+什么重女催婚歌...是写给谁的呢？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实这曲是以35P看miko的角度写的
+
+没想到吧
+
+而サクラカゼ，是相反以miko的角度写给35P的歌
+
+*****
+
+####  holoan  
+##### 3666#         楼主| 发表于 2022-12-25 10:09
+
+miko的6小时圣夜，跟星街阿火一起见守fbk的宝可梦通关耐久
+
+早上4点的时候直播结束她俩才回去，miko8点多还在开今天歌回接力的直播窗，大概是现在才睡
+
+ASMR还不知道什么时候
+
