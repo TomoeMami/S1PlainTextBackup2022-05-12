@@ -1292,3 +1292,12 @@
 
 一周目建议还是困难打完，每一章开头受点苦也是独特体验了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  M1NG  
+##### 3112#       发表于 2022-12-25 14:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实知道鸟哥是谁好像也不太算剧透，毕竟当时在场的就只有俩生物，猜都能猜个50%了，打完沼泽章之后基本就没悬念了
+
