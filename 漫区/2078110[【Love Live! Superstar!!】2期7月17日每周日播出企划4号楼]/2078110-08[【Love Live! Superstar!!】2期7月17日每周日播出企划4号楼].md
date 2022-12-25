@@ -1379,3 +1379,26 @@ Fkz98HfaMAMypvb.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">合鲤头子还得是你鲤鱼姐啊
 
+
+
+*****
+
+####  csolfans  
+##### 10618#       发表于 2022-12-25 22:20
+
+笑死；兔还点赞了
+
+*****
+
+####  名津流  
+##### 10619#       发表于 2022-12-25 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59087670&amp;ptid=2078110" target="_blank">player3960 发表于 2022-12-25 21:13</a>
+
+都两年多了，这还是第一次合鲤出游的合照，各种意思上都很难得
+
+  -- 来自 有消息提醒的 Stage1官方 ...</blockquote>
+居然已经两年了吗？
+
+知道我们合鲤人这两年是怎么过来的吗！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
