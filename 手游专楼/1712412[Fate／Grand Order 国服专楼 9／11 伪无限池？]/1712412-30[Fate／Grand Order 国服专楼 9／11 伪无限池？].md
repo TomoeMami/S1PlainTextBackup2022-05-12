@@ -2389,3 +2389,12 @@ T3  ...</blockquote>
 
 2022-12-25 23:38 上传
 
+
+
+*****
+
+####  JMFluorece  
+##### 44018#       发表于 2022-12-26 00:11
+
+这boss战真恶心，本来懒得查攻略了最后一管血团灭直接交令咒拉回来宝具洗地，结果伊吹放个宝具没打多少血俩拐还死了，我一脸懵逼<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">查了才知道两个从属一个百分百即死一个加80%耐性，加百分百即死的还是个尺阶，吐了
+
