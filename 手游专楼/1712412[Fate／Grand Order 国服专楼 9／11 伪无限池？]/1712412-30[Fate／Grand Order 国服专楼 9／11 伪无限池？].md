@@ -2123,3 +2123,21 @@ T3  ...</blockquote>
 
 估计最后剩两个以后慢慢刷......反正后面又是半年不抽卡
 
+
+
+*****
+
+####  kyonkoism  
+##### 43993#       发表于 2022-12-25 13:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哎，苹果一下就刷完了，早知道多囤点了
+
+也是说新年活动竟然把蓝苹果提前实装了，我这种1秒签到党终于多了件事儿干<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  苍蓝之枪  
+##### 43994#       发表于 2022-12-25 13:39
+
+还有1500金苹果....
+
