@@ -11118,3 +11118,15 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 麻婆笑害得我一口茶喷出来</blockquote>
 忙了一年准备汇报工作看看能加多少年终奖结果发现老板失忆了并不认识你.jpg
 
+
+
+*****
+
+####  gpx234mqx  
+##### 4002#       发表于 2022-12-25 22:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59087823&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-25 21:25</a>
+
+忙了一年准备汇报工作看看能加多少年终奖结果发现老板失忆了并不认识你.jpg ...</blockquote>
+老板啊，跑到对头公司去了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
