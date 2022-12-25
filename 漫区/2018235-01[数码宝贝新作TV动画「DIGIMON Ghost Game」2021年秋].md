@@ -81,3 +81,12 @@
 
 看剪影应该不是三大天使，感觉从左到右依次是天使兽、贞德兽、光明兽？
 
+
+
+*****
+
+####  格雷殿下  
+##### 415#       发表于 2022-12-26 01:04
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">来嘛，轩辕十四完全体
+
