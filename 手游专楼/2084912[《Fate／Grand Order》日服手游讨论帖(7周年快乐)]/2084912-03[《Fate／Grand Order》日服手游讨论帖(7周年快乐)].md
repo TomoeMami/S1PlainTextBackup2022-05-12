@@ -10767,3 +10767,57 @@ BREAK 两次
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死了 宝具不让用 点了还有语音 而且是三次都不同
 
+
+
+*****
+
+####  Sleipnirω  
+##### 3968#       发表于 2022-12-25 18:04
+
+所长这技能是什么意思，自己充然后又自己消了然后给无敌贯通？
+
+*****
+
+####  Jamaisvu  
+##### 3969#       发表于 2022-12-25 18:05
+
+<img src="https://img.saraba1st.com/forum/202212/25/180503p1ee4w6x6t8yilw1.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221225_180424_com.aniplex.fategrandorder.jpg</strong> (110.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-25 18:05 上传
+
+这位PV里长得像路易莫斯顿的帅哥，画风也太潦草了吧...感觉不像进卡池的角儿啊...
+
+*****
+
+####  白金口袋  
+##### 3970#       发表于 2022-12-25 18:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59084741&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-25 18:05</a>
+
+这位PV里长得像路易莫斯顿的帅哥，画风也太潦草了吧...感觉不像进卡池的角儿啊... ...</blockquote>
+当初蛾子刚登场时大家也是这么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Sleipnirω  
+##### 3971#       发表于 2022-12-25 18:08
+
+蘑菇能不能再整一个奥伯龙级别的活出来
+
+*****
+
+####  Jamaisvu  
+##### 3972#       发表于 2022-12-25 18:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59084761&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-12-25 18:06</a>
+
+当初蛾子刚登场时大家也是这么想的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">蛾子至少上色比较正常，还有两身衣服...不过那张脸确实一副网骗的德行...
+
+这个金发男乍一看还以为是天野喜孝画的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
