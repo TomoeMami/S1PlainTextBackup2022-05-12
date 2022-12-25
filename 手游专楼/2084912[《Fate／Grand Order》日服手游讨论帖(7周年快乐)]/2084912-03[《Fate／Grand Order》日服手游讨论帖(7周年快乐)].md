@@ -10856,3 +10856,23 @@ BREAK 两次
 所长EX攻击竟然是群攻</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红卡也是AOE
 
+
+
+*****
+
+####  eilot  
+##### 3976#       发表于 2022-12-25 18:42
+
+怪不得那么早就给学妹有无敌贯通
+
+之后恐龙杂兵都自带多次或9次无敌
+
+不过黑圣杯妖兰能解决一切...只要不是绑死学妹、所长和小妖精
+
+*****
+
+####  里村紅葉  
+##### 3977#       发表于 2022-12-25 18:44
+
+我看你们说所长所长还以为肥仔下场打人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是大统领啊
+
