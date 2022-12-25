@@ -10675,3 +10675,51 @@ ORT：太好了，逼格保住了<img src="https://static.saraba1st.com/image/sm
 
 打完所长后，下一关就能用所长了...
 
+
+
+*****
+
+####  qixinno2  
+##### 3959#       发表于 2022-12-25 17:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所长过关条件是什么啊 被干爆了
+
+*****
+
+####  eilot  
+##### 3960#       发表于 2022-12-25 17:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59084245&amp;ptid=2084912" target="_blank">qixinno2 发表于 2022-12-25 17:35</a>
+
+所长过关条件是什么啊 被干爆了</blockquote>
+BREAK 两次
+
+黑贞黑圣杯，双杀狐，注意开局强制出学妹，所以一上场就换人
+
+黑贞全技用完再双杀狐全技能，宝具
+
+所长攻击后双杀狐死了，奥伯隆和学妹回归
+
+奥伯隆全技能，黑贞宝具，完场
+
+
+
+*****
+
+####  ddr  
+##### 3961#       发表于 2022-12-25 17:38
+
+打两管血，带个有闪避或者无敌的单体就过了
+
+*****
+
+####  qixinno2  
+##### 3962#       发表于 2022-12-25 17:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59084288&amp;ptid=2084912" target="_blank">eilot 发表于 2022-12-25 17:37</a>
+
+BREAK 两次
+
+黑贞黑圣杯，双杀狐，注意开局强制出学妹，所以一上场就换人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我试试
+

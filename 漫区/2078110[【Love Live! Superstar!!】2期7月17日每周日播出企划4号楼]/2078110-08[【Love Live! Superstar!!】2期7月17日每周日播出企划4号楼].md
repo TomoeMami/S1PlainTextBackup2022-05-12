@@ -1220,3 +1220,22 @@ Fkz98HfaMAMypvb.jpg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去掉手部配件完全就是件小背心
 
+
+
+*****
+
+####  player3960  
+##### 10604#       发表于 2022-12-25 17:34
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 10605#       发表于 2022-12-25 17:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59083938&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-12-25 17:13</a>
+
+跟去年的衣服一样吗？怎么感觉今年的有点涩啊</blockquote>
+并不是
+
