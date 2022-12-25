@@ -1277,3 +1277,30 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 请教一下第四关怎么躲天上砸过来的东西？
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">20来分钟，看都看不清了，这咋躲，而且砸两下就没血了。。。这关是不是可以带月桂了？
 
+
+
+*****
+
+####  水边井  
+##### 591#       发表于 2022-12-25 13:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59079845&amp;ptid=2052594" target="_blank">吃鸡南小鸟 发表于 2022-12-25 11:26</a>
+请教一下第四关怎么躲天上砸过来的东西？
+
+20来分钟，看都看不清了，这咋躲，而且砸两下就没血了。 ...</blockquote>
+随缘躲，20分钟就看不清说明你清得不够快。
+而且不用为了合超武而合超武，超武拿有两三个就足够了，剩下的拿加烛台/灯笼/攻速书/菠菜这些也收益也很大，第四关圣歌女解锁了吧，用那个就行。
+
+—— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  水边井  
+##### 592#       发表于 2022-12-25 13:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59079246&amp;ptid=2052594" target="_blank">Litccc 发表于 2022-12-25 10:24</a>
+已经过了前三关了，个人感觉开荒的时候鞭子很好用，前期没有强化伤害不够需要血鞭来保证续航，圣经也很好用 ...</blockquote>
+鞭子挺强的，后面血鞭实际上还能升级，更强
+
+—— 来自 HUAWEI NOH-AL10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
