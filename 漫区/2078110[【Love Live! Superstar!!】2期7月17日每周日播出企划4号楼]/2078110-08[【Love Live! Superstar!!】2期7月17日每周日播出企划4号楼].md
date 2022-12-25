@@ -1402,3 +1402,21 @@ Fkz98HfaMAMypvb.jpg
 
 知道我们合鲤人这两年是怎么过来的吗！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 10620#       发表于 2022-12-25 22:54
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天动态好多，是冲kpi吗
+
+
+
+*****
+
+####  lj205  
+##### 10621#       发表于 2022-12-25 22:59
+
+经纪人都认可了
+

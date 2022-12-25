@@ -2321,3 +2321,26 @@ T3  ...</blockquote>
 
 看来十二点之前必结束了
 
+
+
+*****
+
+####  JMFluorece  
+##### 44014#       发表于 2022-12-25 22:55
+
+最后一共打了300来根，3t200根1t100根，只能说因为贪材料1t打晚了，想要回收石头还是1t最快了
+
+*****
+
+####  DET33  
+##### 44015#       发表于 2022-12-25 22:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">才100多根，3T实在是太慢了，还好之前柱子刷得挺多的
+
+*****
+
+####  Ousia  
+##### 44016#       发表于 2022-12-25 23:00
+
+几乎全3t412根，全程彩苹果最后还赚了百来个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
