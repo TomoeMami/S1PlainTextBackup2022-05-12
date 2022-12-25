@@ -11033,3 +11033,38 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 搞笑来的吧</blockquote>
 我看她现在这么谐，最后收场怕是不好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  quanlix  
+##### 3993#       发表于 2022-12-25 20:53
+
+但是变成坏孩子的花花很棒
+
+*****
+
+####  zakki  
+##### 3994#       发表于 2022-12-25 20:59
+
+有人开挂打到最后一管血，7亿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/9/de08f8dccbfa87fa6aa187d4d41f5a69/CMP_20221225205853241.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  千叶铁矢  
+##### 3995#       发表于 2022-12-25 20:59
+
+打了ort200w多，尽力了
+
+*****
+
+####  風卷豹  
+##### 3996#       发表于 2022-12-25 21:00
+
+这次看起来“轻松愉快”，埋的刀点还是不少的。
+对大统领隐瞒了异星神，到时想起来不好说。还有恐龙人类吃肉变狂暴。麻婆也很不安定。
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
