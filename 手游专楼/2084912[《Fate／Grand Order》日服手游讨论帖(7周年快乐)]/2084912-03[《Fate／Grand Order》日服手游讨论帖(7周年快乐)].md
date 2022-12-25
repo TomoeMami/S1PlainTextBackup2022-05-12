@@ -11231,3 +11231,14 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 
 大统领是真的谐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 4012#       发表于 2022-12-26 00:44
+
+现在所长愈欢乐
+
+下半章的反差应该会更悲哀...
+
