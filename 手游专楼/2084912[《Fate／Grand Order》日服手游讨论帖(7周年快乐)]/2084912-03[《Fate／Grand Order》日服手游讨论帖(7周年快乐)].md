@@ -11068,3 +11068,15 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 
 —— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3997#       发表于 2022-12-25 21:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59087431&amp;ptid=2084912" target="_blank">zakki 发表于 2022-12-25 20:59</a>
+
+有人开挂打到最后一管血，7亿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

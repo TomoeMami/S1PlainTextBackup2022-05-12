@@ -26,3 +26,15 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">之前用二姐闪避炮solo极巴的是不是也是红茶大佬
 感觉人家的游戏理解和我完全是云泥之别，我甚至只能刚刚solo小巴
 
+
+
+*****
+
+####  Sylpheed  
+##### 17223#       发表于 2022-12-25 21:05
+
+风lm估计下个风团之前不会有动静了，考虑要不要动石头补一下火好打团
+但湿婆又要突了，第一个突的使徒感觉也差不到哪去，怕白给火下井了，愁啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
