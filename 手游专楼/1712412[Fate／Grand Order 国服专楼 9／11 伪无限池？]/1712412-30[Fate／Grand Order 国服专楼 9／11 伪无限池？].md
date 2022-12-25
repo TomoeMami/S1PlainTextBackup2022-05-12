@@ -2081,3 +2081,12 @@ T3  ...</blockquote>
 
 砍了270了，照着进度国服估计能打满三天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  佐塚間桐  
+##### 43989#       发表于 2022-12-25 11:17
+
+为什么有的时候能打出克制有的时候不能？我用水杀生院打第一盘第二回合开始有克制，后面的都没有了
+
