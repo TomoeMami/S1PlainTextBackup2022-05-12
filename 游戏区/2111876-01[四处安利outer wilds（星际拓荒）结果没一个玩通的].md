@@ -527,3 +527,12 @@ xgp的时候玩了，确实牛逼
 
 见证者、奥波拉丁的回归、her story、塔罗斯法则什么的，也没这么被安利过啊。
 
+
+
+*****
+
+####  futamn  
+##### 62#       发表于 2022-12-26 07:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩到深巨星我就吓得不敢玩了，被巨大龙卷风抛入太空又沉入深海的情景犹在眼前，至今躺在电脑里想动又不敢
+
