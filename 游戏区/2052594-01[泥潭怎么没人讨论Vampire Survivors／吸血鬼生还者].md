@@ -1239,3 +1239,15 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 武器怎么会突然不攻击的？
 
+
+
+*****
+
+####  tansapple  
+##### 588#       发表于 2022-12-25 10:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59077655&amp;ptid=2052594" target="_blank">AeonsTorn 发表于 2022-12-25 01:06</a>
+
+恶咒火焰不是和金砖合成超武吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来可以合的吗，解锁之后没用来合成过，图鉴上也没留空，还以为没超武
+
