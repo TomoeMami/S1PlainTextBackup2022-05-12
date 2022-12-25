@@ -73,3 +73,18 @@
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1720#       发表于 2022-12-25 14:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59078648&amp;ptid=2027972" target="_blank">扑克脸军曹 发表于 2022-12-25 08:41</a>
+这周是纽北啊，跑完整圈都困难，别说出成绩了
+
+—— 来自 S1Fun</blockquote>
+我跑了个7分10秒，当时排3056名，看了一下那些跑6分53的，真的学不来
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
