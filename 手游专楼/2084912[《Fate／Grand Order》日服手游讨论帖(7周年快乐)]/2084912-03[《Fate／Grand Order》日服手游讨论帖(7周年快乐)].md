@@ -10897,3 +10897,12 @@ BREAK 两次
 所长挺菜得。全身对输出加成只有3技能得红魔放和爆伤。1技能给的星星也不够。更悲剧她是宝具是蓝色 ...</blockquote>
 感觉一万一跳的灼烧比较有前途<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 3980#       发表于 2022-12-25 19:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明显实装不可能是这技能组 甚至三蓝卡全是一个动作
+
