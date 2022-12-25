@@ -11194,3 +11194,20 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  Erikas  
+##### 4008#       发表于 2022-12-25 23:58
+
+[f:264]受不了了这次两个金毛都不行啊太丑了吧，五官太倒胃口了
+目前感觉还不如2.6<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ddr  
+##### 4009#       发表于 2022-12-25 23:59
+
+这个トラロック咋打啊
+
