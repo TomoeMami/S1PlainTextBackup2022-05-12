@@ -10821,3 +10821,19 @@ BREAK 两次
 
 这个金发男乍一看还以为是天野喜孝画的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 3973#       发表于 2022-12-25 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59084823&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-25 18:10</a>
+
+蛾子至少上色比较正常，还有两身衣服...不过那张脸确实一副网骗的德行...
+
+这个金发男乍一看还以 ...</blockquote>
+只看衣服
+
+还以为是当年港漫那套百分百感觉
+
