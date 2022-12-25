@@ -10974,3 +10974,21 @@ ORT这尼玛9管血+1亿HP真的就突出一个打个锤子，还是lv1，要是
 
 第一次听到咕哒名字时所长的表情笑死了，还有遇到恐龙的反应，真的太谐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gpx234mqx  
+##### 3987#       发表于 2022-12-25 20:35
+
+大统领用所长身体真是谐化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+搞笑来的吧
+
+*****
+
+####  areklose  
+##### 3988#       发表于 2022-12-25 20:40
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这帝王花黑化样子太屑了。能实装灵衣吗
+
