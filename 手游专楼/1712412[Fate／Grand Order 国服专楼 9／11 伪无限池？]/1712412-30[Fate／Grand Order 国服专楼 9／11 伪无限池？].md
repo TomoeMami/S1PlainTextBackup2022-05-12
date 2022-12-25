@@ -2418,3 +2418,14 @@ T3  ...</blockquote>
 
 交了一次令咒复活，打到剩十几万血，场上就一个触发过战续的泳装巴御前了。本来已经在考虑要不要碎石了，结果没想到狐狸身上的诅咒效果还挺给力，直接烧到几万，补了最后一刀收掉。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DET33  
+##### 44021#       发表于 2022-12-26 01:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看到四管血直接交三令咒不伺候了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
