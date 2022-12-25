@@ -2072,3 +2072,12 @@ T3  ...</blockquote>
 
 一想到还有6个五星要刷6绊.....
 
+
+
+*****
+
+####  日蚀之阳  
+##### 43988#       发表于 2022-12-25 11:10
+
+砍了270了，照着进度国服估计能打满三天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
