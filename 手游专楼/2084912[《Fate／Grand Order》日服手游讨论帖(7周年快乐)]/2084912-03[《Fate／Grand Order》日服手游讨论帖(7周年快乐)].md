@@ -10906,3 +10906,27 @@ BREAK 两次
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明显实装不可能是这技能组 甚至三蓝卡全是一个动作
 
+
+
+*****
+
+####  廖化  
+##### 3981#       发表于 2022-12-25 19:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59084741&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-25 18:05</a>
+
+这位PV里长得像路易莫斯顿的帅哥，画风也太潦草了吧...感觉不像进卡池的角儿啊... ...</blockquote>
+据说画师是田岛昭宇，这样看是有点像
+
+*****
+
+####  Jamaisvu  
+##### 3982#       发表于 2022-12-25 19:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59086059&amp;ptid=2084912" target="_blank">廖化 发表于 2022-12-25 19:27</a>
+
+据说画师是田岛昭宇，这样看是有点像</blockquote>
+真是田岛我怎么着也得氪个二宝<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">超级喜欢西园申二和弖虎！
+
+不过这个造型真的有失水准，冠位形态画的跟SM套装似的...
+
