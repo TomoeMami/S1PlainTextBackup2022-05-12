@@ -10648,3 +10648,30 @@ ORT：太好了，逼格保住了<img src="https://static.saraba1st.com/image/sm
 
 友哈巴赫与灵王，绢索与天元...
 
+
+
+*****
+
+####  alfredno2  
+##### 3957#       发表于 2022-12-25 17:26
+
+所长！！！！
+
+)C$}CG]%XS}F[TA4%YNSXOF.jpg
+(413.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 17:26 上传
+
+<img src="https://img.saraba1st.com/forum/202212/25/172640quzuvde59uvqq33q.jpg" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 3958#       发表于 2022-12-25 17:31
+
+所长应该也能抽
+
+打完所长后，下一关就能用所长了...
+

@@ -1211,3 +1211,12 @@ Fkz98HfaMAMypvb.jpg
 
 跟去年的衣服一样吗？怎么感觉今年的有点涩啊
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10603#       发表于 2022-12-25 17:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去掉手部配件完全就是件小背心
+
