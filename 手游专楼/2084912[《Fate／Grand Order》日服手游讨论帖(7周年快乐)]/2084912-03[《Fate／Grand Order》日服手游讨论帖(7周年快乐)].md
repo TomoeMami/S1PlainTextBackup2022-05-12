@@ -11242,3 +11242,14 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 
 下半章的反差应该会更悲哀...
 
+
+
+*****
+
+####  リッチ  
+##### 4013#       发表于 2022-12-26 01:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">……烟雾镜的上色太有冲击力了缓不过来，目前纯看脸比较想抽蝙蝠神和雨神。
+
+剧情关高频率锁助战有点难打，后篇能在灵脉石过期前更新吗求求了
+
