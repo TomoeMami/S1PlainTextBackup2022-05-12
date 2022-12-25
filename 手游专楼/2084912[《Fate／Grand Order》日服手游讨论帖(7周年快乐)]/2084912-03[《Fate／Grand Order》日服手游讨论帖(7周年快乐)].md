@@ -11253,3 +11253,76 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 
 剧情关高频率锁助战有点难打，后篇能在灵脉石过期前更新吗求求了
 
+
+
+*****
+
+####  khxooo  
+##### 4014#       发表于 2022-12-26 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59090193&amp;ptid=2084912" target="_blank">eilot 发表于 2022-12-26 00:44</a>
+
+现在所长愈欢乐
+
+下半章的反差应该会更悲哀...</blockquote>
+我可以想到的刀点有两个，一个当然就是所长最后的对决，第二就是一只跟在我们身边的恐龙的叛变，在足球那个情节，那只恐龙就认为，泛人类史这种不理性的想法非常危险，有可能就是为未来的叛变做铺垫。
+
+*****
+
+####  khxooo  
+##### 4015#       发表于 2022-12-26 02:11
+
+在挟持那里我上了其他从者，导致那个尼莫水手被杀了，不知道如果只上马修结局会不会不同。
+
+*****
+
+####  zore  
+##### 4016#       发表于 2022-12-26 02:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点好奇冠位狂的模型
+
+*****
+
+####  exiaexa  
+##### 4017#       发表于 2022-12-26 02:41
+
+ 本帖最后由 exiaexa 于 2022-12-26 02:44 编辑 
+
+终于打完了
+阿菌不去做梦当注水托尔金这故事果然就流畅得多，抛开屁用没有的alter剧情，剧情主干废话少信息量足
+
+就是中间踢球那段太傻逼了，突然回想起当年交响诗篇大决战前先踢场足球（虽然人家是工期爆炸导致的）
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+最大的感想就是丑，nmd怎么能这么丑，新人唯一正常的就一个雨神，剩下的都什么妖魔鬼怪，恐龙都比你们眉清目秀啊艹
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  任天索尼子  
+##### 4018#       发表于 2022-12-26 03:05
+
+雨神锁助战上废物玛修根本没法不用灵脉石 我这是第一次这么讨厌玛修 吐了
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  khxooo  
+##### 4019#       发表于 2022-12-26 03:11
+
+ 本帖最后由 khxooo 于 2022-12-26 03:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59090925&amp;ptid=2084912" target="_blank">任天索尼子 发表于 2022-12-26 03:05</a>
+
+雨神锁助战上废物玛修根本没法不用灵脉石 我这是第一次这么讨厌玛修 吐了
+
+—— 来自 realme RMX2072, Andr ...</blockquote>
+2.5.2的时候我已经看到她就想吐了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  森兰丸  
+##### 4020#       发表于 2022-12-26 04:26
+
+恐龙和豹头人的王这2只金毛画的已经不是关系户可以说明的了吧....这根本就是小学生的涂鸦啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+

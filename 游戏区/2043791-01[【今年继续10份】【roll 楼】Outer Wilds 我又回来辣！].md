@@ -2989,3 +2989,28 @@ xgp体验过，真的太好玩了，就是黑洞有点恐怖
 
 roll 到我就送朋友一份<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  327080  
+##### 367#       发表于 2022-12-26 02:22
+
+分母
+
+*****
+
+####  Yz895623  
+##### 368#       发表于 2022-12-26 02:49
+
+分母，有的话就也送朋友一份
+
+—— 来自 realme RMX3310, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  花生酥王  
+##### 369#       发表于 2022-12-26 02:51
+
+分母<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
