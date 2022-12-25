@@ -10613,3 +10613,38 @@ pv的小麻雀好帅，这不再来波加强？
 你信吗 我不信</blockquote>
 可能是有2.7.5吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 3954#       发表于 2022-12-25 17:14
+
+不知道学妹会否再有强化，如正式给她宝5，或等级能上100...
+
+*****
+
+####  Jamaisvu  
+##### 3955#       发表于 2022-12-25 17:15
+
+2.7开篇就开始吹大蜘蛛，“闻ORT名，时钟塔小儿不敢夜啼”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/25/171619xtb7xvyv7vxztnjx.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221225_171225_com.aniplex.fategrandorder.jpg</strong> (369.41 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 17:16 上传
+
+ORT：太好了，逼格保住了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 3956#       发表于 2022-12-25 17:18
+
+话说这个异星神要融合ORT变强的剧情，怎么感觉和最近连载的两个东西似曾相识...
+
+友哈巴赫与灵王，绢索与天元...
+
