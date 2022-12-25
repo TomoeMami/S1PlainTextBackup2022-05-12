@@ -2173,3 +2173,26 @@ T3  ...</blockquote>
 
 我也碰到水院的问题，打了几把和team-up摁的差距太大，翻wiki才想起三形态才是魔兽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ousia  
+##### 43998#       发表于 2022-12-25 15:03
+
+靠，叔叔上阴兵了？别啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  DET33  
+##### 43999#       发表于 2022-12-25 15:08
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">居然提前实装了青苹果和白方块，风王结界也吐出来了，表现（暂时的）还不错
+
+*****
+
+####  DET33  
+##### 44000#       发表于 2022-12-25 15:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">结果OL装王姐的礼装被吞了
+

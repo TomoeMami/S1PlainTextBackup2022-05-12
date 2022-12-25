@@ -2897,3 +2897,12 @@ xgp体验过，真的太好玩了，就是黑洞有点恐怖
 
 —— 来自 Xiaomi Mi 10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Vellamo  
+##### 357#       发表于 2022-12-25 15:05
+
+替朋友凑个热闹
+

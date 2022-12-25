@@ -10601,3 +10601,15 @@ pv的小麻雀好帅，这不再来波加强？
 蘑菇：这次真的就只有前后篇，不会像2.6一样藏了一个第三篇</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你信吗 我不信
 
+
+
+*****
+
+####  里村紅葉  
+##### 3953#       发表于 2022-12-25 15:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59082095&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-12-25 14:59</a>
+
+你信吗 我不信</blockquote>
+可能是有2.7.5吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
