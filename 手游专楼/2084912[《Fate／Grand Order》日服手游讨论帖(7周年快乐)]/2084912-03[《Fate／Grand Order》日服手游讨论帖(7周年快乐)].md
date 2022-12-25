@@ -11211,3 +11211,14 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 
 这个トラロック咋打啊
 
+
+
+*****
+
+####  紫木一姬  
+##### 4010#       发表于 2022-12-26 00:08
+
+把人变成恐龙的魔术（察觉）
+
+—— 来自 HUAWEI OCE-AN10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
