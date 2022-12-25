@@ -11080,3 +11080,22 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 有人开挂打到最后一管血，7亿</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  angelooo  
+##### 3998#       发表于 2022-12-25 21:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59087316&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-25 20:52</a>
+
+蝙蝠神卡玛佐兹的立绘挺帅气的，不过这家伙的品味不太行，咬了花花一口就送了套SM服，你们南美神的审美好难 ...</blockquote>
+感觉新的一批立绘里就这哥们设计最精致……但我对他毫无兴趣OTZZ
+
+*****
+
+####  千叶铁矢  
+##### 3999#       发表于 2022-12-25 21:18
+
+所长atk比黑贞还高，但是就一张红卡，buff量也不太够，看宝具效果吧
+

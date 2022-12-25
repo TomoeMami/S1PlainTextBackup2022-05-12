@@ -7301,3 +7301,12 @@ ASMR没开窗，莫非不播了
 
 要说最难唱的是那首黄油OP，快2年没听唱过了
 
+
+
+*****
+
+####  qesto  
+##### 3684#       发表于 2022-12-25 21:20
+
+小聋子怎么唱起pekomiko大战争了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

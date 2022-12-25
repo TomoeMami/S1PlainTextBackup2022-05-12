@@ -1304,3 +1304,51 @@ Fkz98HfaMAMypvb.jpg
 
 刚刚昏古七了，醒来又有合鲤糖<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 10613#       发表于 2022-12-25 21:13
+
+都两年多了，这还是第一次合鲤出游的合照，各种意思上都很难得<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  Kfly  
+##### 10614#       发表于 2022-12-25 21:18
+
+<img src="https://img.saraba1st.com/forum/202212/25/211820i921395pp2c275n5.jpg" referrerpolicy="no-referrer">
+
+<strong>Fk00aMaakAAf7SW.jpg</strong> (344.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202212/25/211809o2oejhhfo2eosn43.jpg" referrerpolicy="no-referrer">
+
+<strong>Fk01vvjagAEMVrf.jpg</strong> (431.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202212/25/211829ui1f5nbpfjwibxij.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 008 - 伊達さゆり 在 Twitter_ _イルミネーション！✨✨ りーちゃん.png</strong> (114.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 21:18 上传
+
+<img src="https://img.saraba1st.com/forum/202212/25/211835xthjwhmnwf1w2vow.png" referrerpolicy="no-referrer">
+
+<strong>FireShot Capture 007 - 伊達さゆり 在 Twitter_ _イルミネーション！✨✨ りーちゃん.png</strong> (63.29 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-25 21:18 上传
+
