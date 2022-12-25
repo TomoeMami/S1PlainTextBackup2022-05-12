@@ -8830,3 +8830,17 @@ https://bgm.tv/blog/315691
 
 歪日 好爽 小半集二人世界 爽得不行<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  reficul  
+##### 643#       发表于 2022-12-25 12:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59073880&amp;ptid=1994951" target="_blank">diyihaoshitu 发表于 2022-12-24 19:35</a>
+
+最后快把活动室拆完了，这天冷了可怎么办
+
+—— 来自 vivo Y55L, Android 6.0.1上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+上树屋啊
+
