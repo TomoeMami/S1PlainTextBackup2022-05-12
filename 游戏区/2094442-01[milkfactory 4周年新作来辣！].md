@@ -1420,3 +1420,16 @@ sukebei.nyaa.si/
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  herryk159  
+##### 142#       发表于 2022-12-25 12:24
+
+ 本帖最后由 herryk159 于 2022-12-25 12:27 编辑 
+
+该爆炒雌小鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+才看到楼主说不要贴图，编辑了
+
