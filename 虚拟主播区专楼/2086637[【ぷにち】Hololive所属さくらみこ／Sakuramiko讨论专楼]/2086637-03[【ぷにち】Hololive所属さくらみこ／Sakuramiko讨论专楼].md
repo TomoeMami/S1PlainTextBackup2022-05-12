@@ -7310,3 +7310,14 @@ ASMR没开窗，莫非不播了
 
 小聋子怎么唱起pekomiko大战争了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  holoan  
+##### 3685#         楼主| 发表于 2022-12-25 22:39
+
+之前团长来的时候还特地找团长取经了
+
+今天开场感觉不错
+
