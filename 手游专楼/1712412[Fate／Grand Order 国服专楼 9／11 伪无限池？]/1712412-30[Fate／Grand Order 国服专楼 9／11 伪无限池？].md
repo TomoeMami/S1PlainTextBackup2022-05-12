@@ -2112,3 +2112,14 @@ T3  ...</blockquote>
 你是不是开了随机？魔兽特性克制柱子，水院只有灵基第三阶段才有魔兽特性 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">是的，原来如此
 
+
+
+*****
+
+####  苍蓝之枪  
+##### 43992#       发表于 2022-12-25 12:41
+
+照这速度，手上五星全6绊都刷不到就提不起劲了
+
+估计最后剩两个以后慢慢刷......反正后面又是半年不抽卡
+
