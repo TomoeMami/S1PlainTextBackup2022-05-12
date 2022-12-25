@@ -10723,3 +10723,24 @@ BREAK 两次
 黑贞黑圣杯，双杀狐，注意开局强制出学妹，所以一上场就换人</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我试试
 
+
+
+*****
+
+####  eilot  
+##### 3963#       发表于 2022-12-25 17:42
+
+那位失踪了的男人背景出现了
+
+*****
+
+####  qixinno2  
+##### 3964#       发表于 2022-12-25 17:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59084288&amp;ptid=2084912" target="_blank">eilot 发表于 2022-12-25 17:37</a>
+
+BREAK 两次
+
+黑贞黑圣杯，双杀狐，注意开局强制出学妹，所以一上场就换人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过了 没想到之前出的黑贞这么好使
+
