@@ -10958,3 +10958,19 @@ ORT这尼玛9管血+1亿HP真的就突出一个打个锤子，还是lv1，要是
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  qixinno2  
+##### 3985#       发表于 2022-12-25 20:06
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是时候召唤魔神zero和盖塔皇帝了
+
+*****
+
+####  khxooo  
+##### 3986#       发表于 2022-12-25 20:07
+
+第一次听到咕哒名字时所长的表情笑死了，还有遇到恐龙的反应，真的太谐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

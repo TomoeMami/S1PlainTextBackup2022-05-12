@@ -10,3 +10,12 @@
 
 —— 来自 HUAWEI KKG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
+
+
+*****
+
+####  帕林马哲理  
+##### 1406#       发表于 2022-12-25 20:08
+
+今天看btr专楼才发现论坛已经支持webp了，但鹅球只能显示静态图，不知道加一下支持麻不麻烦？
+
