@@ -1,3 +1,1 @@
 
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/手游专楼/2104259-01[机娘爱丽丝机甲／Alice Gear Aegis讨论帖#2 月底联动古番dirty pair].md'
-!!error:id=2104259
