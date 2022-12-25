@@ -10837,3 +10837,22 @@ BREAK 两次
 
 还以为是当年港漫那套百分百感觉
 
+
+
+*****
+
+####  黑上シグマ  
+##### 3974#       发表于 2022-12-25 18:28
+
+所长EX攻击竟然是群攻
+
+*****
+
+####  qixinno2  
+##### 3975#       发表于 2022-12-25 18:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59085111&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-12-25 18:28</a>
+
+所长EX攻击竟然是群攻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红卡也是AOE
+
