@@ -2283,3 +2283,21 @@ T3  ...</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好强啊 我打到150就受不了了
 
+
+
+*****
+
+####  kuarwbwe  
+##### 44010#       发表于 2022-12-25 21:32
+
+我巴御前本体还剩8w 14绊，看这架势估计是没戏了。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  kyonkoism  
+##### 44011#       发表于 2022-12-25 21:42
+
+怎么这就阴兵下场了啊，虽然我金苹果已经啃完，银苹果也剩20个了，不过这速度也下的太快了，我这还是脚本挂了一天的，两三百金苹果的压根花不完吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
