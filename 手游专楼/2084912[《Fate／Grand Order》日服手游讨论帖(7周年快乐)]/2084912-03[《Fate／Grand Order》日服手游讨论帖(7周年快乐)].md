@@ -10876,3 +10876,12 @@ BREAK 两次
 
 我看你们说所长所长还以为肥仔下场打人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来是大统领啊
 
+
+
+*****
+
+####  areklose  
+##### 3978#       发表于 2022-12-25 18:59
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所长挺菜得。全身对输出加成只有3技能得红魔放和爆伤。1技能给的星星也不够。更悲剧她是宝具是蓝色。指令卡三蓝。。
+
