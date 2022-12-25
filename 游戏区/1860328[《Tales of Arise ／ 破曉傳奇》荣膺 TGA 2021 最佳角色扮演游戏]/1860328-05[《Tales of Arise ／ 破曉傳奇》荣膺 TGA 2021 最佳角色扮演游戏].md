@@ -41,3 +41,12 @@
 
 香川个人希望游戏手柄能多些按键，设计上已经不够用了
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 6190#       发表于 2022-12-25 19:07
+
+关于白金游戏那段lag得厉害啊，像这样的活化石在日本不知道还有多少<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

@@ -1310,3 +1310,15 @@
 
 终章boss前开始试build，兽爪加指令拳流该如何配置呀，感觉伤害比魔杖核爆流差远了
 
+
+
+*****
+
+####  applebloom  
+##### 3114#       发表于 2022-12-25 19:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59084360&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-25 17:42</a>
+
+终章boss前开始试build，兽爪加指令拳流该如何配置呀，感觉伤害比魔杖核爆流差远了 ...</blockquote>
+不应该吧，堆伤害的不都是一套东西，只能想到是攻速或者输出手法有问题，需要带异常状态瘾然后磕老婆的黑暗料理，风精灵可要可不要，上挑封印，然后按住上平a就完事了，buff拉满boss一般活不过两秒
+

@@ -10885,3 +10885,15 @@ BREAK 两次
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所长挺菜得。全身对输出加成只有3技能得红魔放和爆伤。1技能给的星星也不够。更悲剧她是宝具是蓝色。指令卡三蓝。。
 
+
+
+*****
+
+####  里村紅葉  
+##### 3979#       发表于 2022-12-25 19:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59085619&amp;ptid=2084912" target="_blank">areklose 发表于 2022-12-25 18:59</a>
+
+所长挺菜得。全身对输出加成只有3技能得红魔放和爆伤。1技能给的星星也不够。更悲剧她是宝具是蓝色 ...</blockquote>
+感觉一万一跳的灼烧比较有前途<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
