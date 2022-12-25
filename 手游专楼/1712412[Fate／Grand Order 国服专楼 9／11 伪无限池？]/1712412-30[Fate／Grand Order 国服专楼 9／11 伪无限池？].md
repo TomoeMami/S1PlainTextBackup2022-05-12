@@ -2090,3 +2090,25 @@ T3  ...</blockquote>
 
 为什么有的时候能打出克制有的时候不能？我用水杀生院打第一盘第二回合开始有克制，后面的都没有了
 
+
+
+*****
+
+####  JMFluorece  
+##### 43990#       发表于 2022-12-25 11:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59079737&amp;ptid=1712412" target="_blank">佐塚間桐 发表于 2022-12-25 11:17</a>
+
+为什么有的时候能打出克制有的时候不能？我用水杀生院打第一盘第二回合开始有克制，后面的都没有了 ...</blockquote>
+你是不是开了随机？魔兽特性克制柱子，水院只有灵基第三阶段才有魔兽特性
+
+*****
+
+####  佐塚間桐  
+##### 43991#       发表于 2022-12-25 11:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59080166&amp;ptid=1712412" target="_blank">JMFluorece 发表于 2022-12-25 11:54</a>
+
+你是不是开了随机？魔兽特性克制柱子，水院只有灵基第三阶段才有魔兽特性 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">是的，原来如此
+
