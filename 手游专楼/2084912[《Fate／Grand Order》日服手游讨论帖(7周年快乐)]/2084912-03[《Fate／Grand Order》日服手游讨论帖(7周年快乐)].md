@@ -11163,3 +11163,23 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 
 你萌打得也太快了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4006#       发表于 2022-12-25 23:20
+
+<img src="https://img.saraba1st.com/forum/202212/25/231904v11tesk3uu737b7s.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221225_231846_com.aniplex.fategrandorder.jpg</strong> (241.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-25 23:19 上传
+
+实在受不了了，这个恐龙王也太～丑～了吧！
+
+蘑菇你追星归追星，审审稿不行吗，这种东西摆到台面上来大家都丢脸啊......
+
