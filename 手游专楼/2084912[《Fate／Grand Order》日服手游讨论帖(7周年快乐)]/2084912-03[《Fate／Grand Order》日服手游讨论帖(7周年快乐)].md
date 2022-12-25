@@ -11142,3 +11142,15 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 麻婆笑害得我一口茶喷出来</blockquote>
 那个表情真的是笑死人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 4004#       发表于 2022-12-25 22:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59087805&amp;ptid=2084912" target="_blank">黑上シグマ 发表于 2022-12-25 21:23</a>
+
+麻婆笑害得我一口茶喷出来</blockquote>
+琴酒：居然有比我还惨的二把手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
