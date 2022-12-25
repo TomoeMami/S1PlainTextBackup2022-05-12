@@ -1166,3 +1166,12 @@ https://m.weibo.cn/2947384160/4849621061338127
 早说了整个占位符到时候直接填人进去就行了啊，动画和原设货不对板没关系，反正有那厕纸杂志和小广播剧场帮 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那找不到一个天赋异禀还愿意来洗脚的小妹妹的话大概率全方位灾难了
 
+
+
+*****
+
+####  lj205  
+##### 10600#       发表于 2022-12-25 10:59
+
+LL三昧广播熟肉居然烤出来了，听下来感觉鲤鱼那天的主持还挺可以的啊，果然还是靠厨力吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
