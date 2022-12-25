@@ -1262,3 +1262,18 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 已经过了前三关了，个人感觉开荒的时候鞭子很好用，前期没有强化伤害不够需要血鞭来保证续航，圣经也很好用，击退属性非常强。强化里的投射物+1必买，剩下的随缘，个人喜欢先把吸取点满，这样玩起来比较舒服，把剩下的强化点上去之后就可以爽玩了
 
+
+
+*****
+
+####  吃鸡南小鸟  
+##### 590#       发表于 2022-12-25 11:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59077787&amp;ptid=2052594" target="_blank">藤井紫 发表于 2022-12-25 01:28</a>
+
+蒜只适合2/4用，135怪血比较厚，不够力的
+
+—— 来自 Xiaomi MI 8, Android 10上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+请教一下第四关怎么躲天上砸过来的东西？
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">20来分钟，看都看不清了，这咋躲，而且砸两下就没血了。。。这关是不是可以带月桂了？
+
