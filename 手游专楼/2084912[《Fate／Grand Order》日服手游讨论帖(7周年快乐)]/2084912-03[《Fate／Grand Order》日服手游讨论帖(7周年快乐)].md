@@ -11692,3 +11692,19 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 能不能和剑双子比谁更下限啊
 
+
+
+*****
+
+####  khxooo  
+##### 4053#       发表于 2022-12-27 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59101240&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-12-27 00:08</a>
+
+蝙蝠还没开场一群人看到解包就喊着要超市他了
+
+我看完剧情后也想干死他
+
+能不能和剑双子比谁更下限啊 ...</blockquote>
+都是屎，为什么要比较那坨更臭？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

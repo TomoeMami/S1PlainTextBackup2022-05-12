@@ -1324,3 +1324,15 @@ baba is you算是做题。
 
 它是好奇心驱动的游戏，如果是对这种主题和景观没有太多好奇的用户理所应当不适合。
 
+
+
+*****
+
+####  MaskedBlade  
+##### 132#       发表于 2022-12-27 00:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59095821&amp;ptid=2111876" target="_blank">fdodo 发表于 2022-12-26 16:42</a>
+
+我当然明白这一点，所以尝试安利的人已经不属于“大部分”轻度玩家了，都是一些有一定游戏阅历和审美的玩 ...</blockquote>
+其实玩的越多只是越能找到自己喜欢的而已，我身边一起玩游戏长大的好几个朋友现在都玩手游了呢
+
