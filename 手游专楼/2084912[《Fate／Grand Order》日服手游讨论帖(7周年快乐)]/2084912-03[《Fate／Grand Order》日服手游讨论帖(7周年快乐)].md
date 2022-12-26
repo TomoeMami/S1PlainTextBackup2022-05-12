@@ -11511,3 +11511,15 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 
 好像有bug，自带无敌的三恐龙那场想借个福尔摩斯，发现选了放在的第二组第三组的角色会自动变成第一组的，但又不是所有好友都会这样……
 
+
+
+*****
+
+####  密特里奈斯  
+##### 4039#       发表于 2022-12-26 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59087696&amp;ptid=2084912" target="_blank">angelooo 发表于 2022-12-25 21:15</a>
+
+感觉新的一批立绘里就这哥们设计最精致……但我对他毫无兴趣OTZZ</blockquote>
+但是只有他已经确定是NPC了
+
