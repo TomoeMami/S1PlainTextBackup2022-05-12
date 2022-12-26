@@ -1435,3 +1435,21 @@
 
 当然游戏剧情走到最后，鸟哥的身份也已经不重要了，重要的是剧情过程中塑造的羁绊感
 
+
+
+*****
+
+####  Sannapolis  
+##### 3122#       发表于 2022-12-26 23:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59099561&amp;ptid=2098044" target="_blank">落花微塵 发表于 2022-12-26 21:53</a>
+啊，这个战斗系统，就是激情换血吗，盾感觉总是抓不到时机，怪又多又密，第二章打虫子和蛤蟆都打得 ...</blockquote>
+这游戏的盾不需要看准时间按的，一直按着就能达到其他大部分游戏看准时机按的效果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  永远的访客  
+##### 3123#       发表于 2022-12-26 23:45
+
+我一直认为鸟哥和狗哥一样，应该是神器守护兽才能变出高度智慧的动物，但是作者后几章关于神器/守护兽的设定完全放弃，不解释狗的身份也不更不解释鸟了，剧本就是之前的坑不重要反正我已经挖好更大的坑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。所以还是关于剧情不要想太多，有的地方是作者刻意设计好，其他的地方都是BUG也别去想就行。
+
