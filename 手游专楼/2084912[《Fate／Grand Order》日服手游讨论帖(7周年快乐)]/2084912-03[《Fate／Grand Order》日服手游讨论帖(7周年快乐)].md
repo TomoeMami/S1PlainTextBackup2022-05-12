@@ -11365,3 +11365,12 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 BB在场会给帝王花上个打消一次女神变生的debuff
 <img src="https://p.sda1.dev/9/ff9e559b93183e62b3587c2f91339eaa/IMG_CMP_209656346.jpeg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  里村紅葉  
+##### 4025#       发表于 2022-12-26 08:46
+
+麻婆祝你圣诞快乐居然是12月25号的限定彩蛋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

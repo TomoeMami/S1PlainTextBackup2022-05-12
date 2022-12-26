@@ -572,3 +572,21 @@ xgp的时候玩了，确实牛逼
 
 建议早点和解，除了晕3d这种体质问题，有些人就是解谜过敏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  国家免检虎B  
+##### 67#       发表于 2022-12-26 08:44
+
+如果把开飞船部分砍了的话，也许能多撑一会....
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  kyonkoism  
+##### 68#       发表于 2022-12-26 08:49
+
+太oldschool了这个游戏，开头没有教程没有导航，难度高手感差还晕3Dfov又小，如果不是抱着“这是神作我玩下去一定会不虚此行”的心态去玩，绝大部分，甚至可以说90%的现代玩家都是玩不下来的，安利这玩意可比安利什么XB2 十三机兵难太多太多太多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
