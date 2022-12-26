@@ -1088,3 +1088,33 @@ xgp的时候玩了，确实牛逼
 
 路痴玩起来真的很痛苦。。。在碎空星上绕到崩溃<img src="https://static.saraba1st.com/image/smiley/face2017/122.png" referrerpolicy="no-referrer">最主要是一段时间没玩之后再捡起来发现自己啥都忘光了，失去了重新玩的勇气
 
+
+
+*****
+
+####  Quelaan  
+##### 115#       发表于 2022-12-26 19:32
+
+看了这楼突然好奇这作的通关率
+
+*****
+
+####  ppp888999  
+##### 116#       发表于 2022-12-26 19:35
+
+开着手电筒在漆黑的球星探索确实很恐怖
+
+安静得可怕
+
+我是用100寸投影玩得，第一次掉到绿星是真的被吓死
+
+*****
+
+####  Yinacona  
+##### 117#       发表于 2022-12-26 19:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59088516&amp;ptid=2111876" target="_blank">华发夜眼[CN] 发表于 2022-12-25 22:19</a>
+
+一开始那个模拟飞船着陆卡了我半个小时，删游戏了，对后来有影响吗</blockquote>
+那个飞行器和后面真的开飞船比起来简直是一个开飞机一个骑单车……
+
