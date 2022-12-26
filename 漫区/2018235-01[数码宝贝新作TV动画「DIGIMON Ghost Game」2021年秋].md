@@ -90,3 +90,19 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">来嘛，轩辕十四完全体
 
+
+
+*****
+
+####  天光逸  
+##### 416#       发表于 2022-12-26 10:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59090260&amp;ptid=2018235" target="_blank">RainbowSealife 发表于 2022-12-26 00:51</a>
+
+莉莉丝兽有点崩，不够大，配音也从桑岛法子换成园崎未惠了
+
+不如网侦的</blockquote>
+翅膀数量不对，第一个大概是比特兽
+
+基本就是狩猎中下位天使了，光明这是无辜进剪影了233：我们可是同事啊！
+
