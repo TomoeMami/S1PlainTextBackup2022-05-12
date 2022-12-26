@@ -11708,3 +11708,12 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 能不能和剑双子比谁更下限啊 ...</blockquote>
 都是屎，为什么要比较那坨更臭？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DARKGRAY  
+##### 4054#       发表于 2022-12-27 06:31
+
+最大问题还是南美这神话以现代价值观来说太不正能量了，不过2.7主从目的一揭示被吓到的人太多，接下来会有好几个入队吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
