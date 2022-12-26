@@ -1467,3 +1467,15 @@
 我 ...</blockquote>
 豆瓣那帮女的已经为了这个把游戏刷过一堆1分了
 
+
+
+*****
+
+####  shyso  
+##### 3125#       发表于 2022-12-27 00:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59101125&amp;ptid=2098044" target="_blank">真实之影 发表于 2022-12-26 23:59</a>
+
+豆瓣那帮女的已经为了这个把游戏刷过一堆1分了</blockquote>
+噗，那是我只逛泥潭后知后觉了
+
