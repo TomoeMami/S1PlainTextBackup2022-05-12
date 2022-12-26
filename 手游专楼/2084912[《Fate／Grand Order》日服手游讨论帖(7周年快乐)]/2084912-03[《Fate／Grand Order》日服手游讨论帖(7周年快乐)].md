@@ -11374,3 +11374,39 @@ BB在场会给帝王花上个打消一次女神变生的debuff
 
 麻婆祝你圣诞快乐居然是12月25号的限定彩蛋<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  風卷豹  
+##### 4026#       发表于 2022-12-26 09:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59091459&amp;ptid=2084912" target="_blank">莉莉橙 发表于 2022-12-26 08:38</a>
+BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
+狐狸也行。不知道是限定fe相关女神还是有女神神核都可以
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  風卷豹  
+##### 4027#       发表于 2022-12-26 09:02
+
+ 本帖最后由 風卷豹 于 2022-12-26 09:03 编辑 
+
+风怒
+
+*****
+
+####  莉莉橙  
+##### 4028#       发表于 2022-12-26 09:15
+
+我只想早点撕碎那蝙蝠精炖个骨碎肉烂
+
+*****
+
+####  莉莉橙  
+##### 4029#       发表于 2022-12-26 09:15
+
+我只想早点撕碎那蝙蝠精炖个骨碎肉烂
+

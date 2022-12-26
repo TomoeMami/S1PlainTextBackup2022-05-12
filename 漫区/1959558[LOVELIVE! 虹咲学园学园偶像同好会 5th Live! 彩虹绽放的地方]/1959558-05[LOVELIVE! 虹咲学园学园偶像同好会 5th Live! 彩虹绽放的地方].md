@@ -116,3 +116,12 @@ QQ图片20221220223208.jpg
 
 【【中日特效·试听】わちゅごなどぅー（What You Gonna Do）-虹四格动画主题曲-哔哩哔哩】 [https://b23.tv/pNAWD9u](https://b23.tv/pNAWD9u)
 
+
+
+*****
+
+####  仟音一心  
+##### 6814#       发表于 2022-12-23 20:40
+
+<img src="https://p.sda1.dev/9/923f2fe0cb4edfb22504cf50aab3dca2/CMP_20221223204018061.jpg" referrerpolicy="no-referrer">
+
