@@ -554,3 +554,21 @@ xgp的时候玩了，确实牛逼
 
 就它那个视角，别说玩，我云都云不动
 
+
+
+*****
+
+####  nesrelax  
+##### 65#       发表于 2022-12-26 08:14
+
+上XGP的时候玩过一段，卡在一个好像是有爱斯基摩人的那种小冰屋的星球上不知道怎么走然后搁置了一段时间，结果下次玩的时候完全想不起来之前都干了些什么了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">遂弃坑
+
+前段时间买了DLC一直没玩，这几天又尝试了一下，结果大部分时间都在跟飞船搏斗，最终还是放弃了，感觉为了一个作品折磨自己没什么必要<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  percy1234  
+##### 66#       发表于 2022-12-26 08:14
+
+建议早点和解，除了晕3d这种体质问题，有些人就是解谜过敏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
