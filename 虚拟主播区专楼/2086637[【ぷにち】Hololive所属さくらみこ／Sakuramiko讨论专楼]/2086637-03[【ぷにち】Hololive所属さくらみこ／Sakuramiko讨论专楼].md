@@ -7434,3 +7434,12 @@ MSR
 
 鼠标是雷蛇的粉色版
 
+
+
+*****
+
+####  holoan  
+##### 3699#         楼主| 发表于 2022-12-26 15:28
+
+[https://mobile.twitter.com/oshi_mitu/status/1607134721066274816](https://mobile.twitter.com/oshi_mitu/status/1607134721066274816)
+
