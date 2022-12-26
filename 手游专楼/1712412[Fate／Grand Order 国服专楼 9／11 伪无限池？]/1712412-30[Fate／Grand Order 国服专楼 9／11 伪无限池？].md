@@ -2519,3 +2519,14 @@ c狐是boss战MVP
 
 还没打，听说有难度就先等着令咒回了，反正后面也没什么别的事情吧?
 
+
+
+*****
+
+####  kuarwbwe  
+##### 44031#       发表于 2022-12-26 20:29
+
+只能说通古斯比我想象的还水。感觉就是该收狐狸了，然后写个剧情把人收了。太公望太稳了，整个剧情一点波澜都没有。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+下次看破游剧情估计得等265了，无聊就无聊吧。反正我对大妈抗性比较高，看过了觉得无聊转头也就忘了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
