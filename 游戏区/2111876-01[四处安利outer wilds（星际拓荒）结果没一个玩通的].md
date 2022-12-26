@@ -946,3 +946,41 @@ xgp的时候玩了，确实牛逼
 
 任何作品都是在和受众互相做双向选择的，喜不喜欢一款游戏，不能定义一个人，一款游戏评价好不好，也不能定义一款游戏
 
+
+
+*****
+
+####  xknzfox  
+##### 103#       发表于 2022-12-26 17:12
+
+动作苦手的解谜游戏爱好者，基本上第一次进博物馆我就很激动在猜展览的机制需要怎么用在探索上面了。很长时间不知道空格同步，那些挺难的着陆和跳跳乐都是用土法一点点试出来怎么操作合适的。所以可能只是单纯的lz安利对象对解谜没那么大兴趣的问题，立意这种东西不是自己在玩的过程中感受到，是没什么意义的……
+
+*****
+
+####  happypicaQ  
+##### 104#       发表于 2022-12-26 17:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59095742&amp;ptid=2111876" target="_blank">fdodo 发表于 2022-12-26 16:33</a>
+弄不懂的话可以去看飞船上面的日志线索图，都会帮你整理目前收集到的信息。流星（闯入者）也是可以降落的 ...</blockquote>
+这个我知道，我看了之后大致能明白，是以前有团队搞了个机器，留了很多信息，然后我要做的就是利用重生的机会找到所有信息，至于目的是什么，是带领族人活下去？毕竟要爆炸了。然后我就一直在那个会落石的星球和自己出生的星球探索，但是老是找不到路，走着走着就不知道走去哪里了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fdodo  
+##### 105#         楼主| 发表于 2022-12-26 17:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59096193&amp;ptid=2111876" target="_blank">happypicaQ 发表于 2022-12-26 17:14</a>
+这个我知道，我看了之后大致能明白，是以前有团队搞了个机器，留了很多信息，然后我要做的就是利用重生的 ...</blockquote>
+天啊你开局探索选了难度最大的落石星球（碎空星），怪不得会很挫败…那个黑洞我后期探索都一直掉进去，属于是劝退点之一了
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fdodo  
+##### 106#         楼主| 发表于 2022-12-26 17:20
+
+风怒
+
