@@ -93,3 +93,14 @@
 话说steam deck的拓展坞，官方和第三方有区别吗？看了一下不少第三方的规格比官方高还便宜不少，不过官方似 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NS底座我用延长线试过了不能用
 
+
+
+*****
+
+####  TerryBlues  
+##### 2000#       发表于 2022-12-26 20:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59096992&amp;ptid=2015700" target="_blank">硫黄 发表于 2022-12-26 18:23</a>
+NS底座我用延长线试过了不能用</blockquote>
+我只是想吐槽NS的底座也能固件更新但似乎没啥区别……不过还是感谢排雷<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+

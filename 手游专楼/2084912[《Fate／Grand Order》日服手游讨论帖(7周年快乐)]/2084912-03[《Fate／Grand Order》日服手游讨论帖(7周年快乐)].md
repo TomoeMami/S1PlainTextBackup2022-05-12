@@ -11579,3 +11579,20 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 我只想早点撕碎那蝙蝠精炖个骨碎肉烂</blockquote>
 蝙蝠最好是限定，这样我就不用抽他了，看到花花血流成河那里真的是血压高起来了。
 
+
+
+*****
+
+####  exiaexa  
+##### 4045#       发表于 2022-12-26 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59096768&amp;ptid=2084912" target="_blank">eilot 发表于 2022-12-26 18:03</a>
+
+全关卡整体都不算噁心，前提是有看攻略，事前准备(反正金苹果多的是)，
+
+红麻雀那场普攻即死也有点麻烦，最 ...</blockquote>
+麻雀alter那关有个莫名其妙的助战爷爷，换上来以后就无视即死
+
+也没说为啥会出个爷爷，反正麻雀alter所有剧情都充满着生草感无所谓了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
