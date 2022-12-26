@@ -1118,3 +1118,15 @@ xgp的时候玩了，确实牛逼
 一开始那个模拟飞船着陆卡了我半个小时，删游戏了，对后来有影响吗</blockquote>
 那个飞行器和后面真的开飞船比起来简直是一个开飞机一个骑单车……
 
+
+
+*****
+
+####  华发夜眼[CN]  
+##### 118#       发表于 2022-12-26 19:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59097853&amp;ptid=2111876" target="_blank">Yinacona 发表于 2022-12-26 19:39</a>
+
+那个飞行器和后面真的开飞船比起来简直是一个开飞机一个骑单车……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">原来是这样吗
+
