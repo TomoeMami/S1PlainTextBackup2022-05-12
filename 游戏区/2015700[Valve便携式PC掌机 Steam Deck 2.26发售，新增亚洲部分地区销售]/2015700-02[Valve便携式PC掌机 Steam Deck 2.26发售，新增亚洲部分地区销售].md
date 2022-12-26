@@ -42,3 +42,19 @@
 
 昨天才下单了一个，感觉春节前是不太可能拿到了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Meltina  
+##### 1996#       发表于 2022-12-26 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59091321&amp;ptid=2015700" target="_blank">shinzero 发表于 2022-12-26 08:03</a>
+
+一个账号的游戏库同一时间只能有一个设备使用，开家庭共享也不行。
+
+不过可以试试离线模式。</blockquote>
+是直接断wifi吗，好，我试试
+
+另外还有个问题，我试了几次退出游戏，就在那个steam标记那里一直转一直转回不到外面的菜单，可以转很久，但我其实按了休眠键回来就已经在外面了，是这样的吗
+
