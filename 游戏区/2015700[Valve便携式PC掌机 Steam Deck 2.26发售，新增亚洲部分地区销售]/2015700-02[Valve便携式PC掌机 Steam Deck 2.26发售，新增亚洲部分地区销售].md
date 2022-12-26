@@ -104,3 +104,12 @@
 NS底座我用延长线试过了不能用</blockquote>
 我只是想吐槽NS的底座也能固件更新但似乎没啥区别……不过还是感谢排雷<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Meltina  
+##### 2001#       发表于 2022-12-27 00:20
+
+打算买个512G~1T的SD卡，对卡的速度有讲究吗
+
