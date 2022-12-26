@@ -2884,3 +2884,12 @@ ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  oo型巨婴革命  
+##### 2236#       发表于 2022-12-26 21:16
+
+还是看不懂管人角色有啥用
+
