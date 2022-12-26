@@ -637,3 +637,12 @@ xgp的时候玩了，确实牛逼
 
 吐槽降落难的，真得尝试一下手动落太阳站的感觉，刺激！
 
+
+
+*****
+
+####  Slyvan  
+##### 74#       发表于 2022-12-26 10:33
+
+在论坛里被安利了4次, 每次玩了个开头就头晕到想吐 , 放弃 ,  最近想开始玩第五次了. <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
