@@ -817,3 +817,14 @@ xgp的时候玩了，确实牛逼
 
 这玩意儿难啊，飞太阳空间站心脏怦怦跳顶不住了
 
+
+
+*****
+
+####  happypicaQ  
+##### 91#       发表于 2022-12-26 15:43
+
+我一直在断断续续的玩，然后也一直没弄懂，尤其我特别想试试能不能着陆到流星上，试了好久，一次都没有成功过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后又有各种各样别的游戏要玩，渐渐就搁置了（
+
+—— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
