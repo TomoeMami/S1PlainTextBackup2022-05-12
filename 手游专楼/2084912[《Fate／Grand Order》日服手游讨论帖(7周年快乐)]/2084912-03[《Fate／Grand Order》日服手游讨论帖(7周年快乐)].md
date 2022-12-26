@@ -11410,3 +11410,12 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 
 我只想早点撕碎那蝙蝠精炖个骨碎肉烂
 
+
+
+*****
+
+####  areklose  
+##### 4030#       发表于 2022-12-26 09:51
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也打完了。太短了。我确信肯定不止拆上下
+
