@@ -2438,3 +2438,15 @@ T3  ...</blockquote>
 
 刷了一百感觉就很难了，毕竟还发着烧，不过挺开心的，c狐满羁绊啦
 
+
+
+*****
+
+####  廖化  
+##### 44023#       发表于 2022-12-26 13:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59090367&amp;ptid=1712412" target="_blank">Blackson 发表于 2022-12-26 01:03</a>
+
+这个主线终本是真的恶心，不仅降强化成功率，还每回合消光星星，开局技能充NP还能充少,甚至每回合解除强化 ...</blockquote>
+YJG自己打过这个本吗淦它娘真的恶心，直接交令咒，打个球
+
