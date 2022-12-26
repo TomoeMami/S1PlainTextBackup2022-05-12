@@ -681,3 +681,43 @@ xgp的时候玩了，确实牛逼
 
 你快给我做出来，我继续在NS上买一份支持他
 
+
+
+*****
+
+####  fdodo  
+##### 78#         楼主| 发表于 2022-12-26 11:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59092882&amp;ptid=2111876" target="_blank">soul_hacker 发表于 2022-12-26 11:43</a>
+这游戏是真的名不副实，有特色但毛病也不少，玩不下去很正常……
+
+—— 来自 S1Fun ...</blockquote>
+你是我见过第一个这么评价的。玩不下去可以理解，名不副实你是真敢说啊
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  fdodo  
+##### 79#         楼主| 发表于 2022-12-26 11:59
+
+ 本帖最后由 fdodo 于 2022-12-26 12:01 编辑 
+
+风怒
+
+*****
+
+####  fdodo  
+##### 80#         楼主| 发表于 2022-12-26 12:00
+
+ 本帖最后由 fdodo 于 2022-12-26 12:02 编辑 
+
+风怒
+
+*****
+
+####  fdodo  
+##### 81#         楼主| 发表于 2022-12-26 12:00
+
+风怒
+
