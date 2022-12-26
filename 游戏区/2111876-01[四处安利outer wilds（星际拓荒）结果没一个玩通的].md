@@ -655,3 +655,14 @@ xgp的时候玩了，确实牛逼
 
 但凡没有那个大安康鱼....<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  soul_hacker  
+##### 76#       发表于 2022-12-26 11:43
+
+这游戏是真的名不副实，有特色但毛病也不少，玩不下去很正常……
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
