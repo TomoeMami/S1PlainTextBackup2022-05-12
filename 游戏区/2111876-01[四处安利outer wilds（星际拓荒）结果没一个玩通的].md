@@ -1055,3 +1055,27 @@ xgp的时候玩了，确实牛逼
 
 我最后视频通关了，我也找了相关的攻略看过了，仍然没有觉得这个故事有吸引力。其中唯二对我有吸引力的事就是，想看看画面怎么呈现因果律断裂这个bad end，以及想看看，为啥最终大家都赞成主人公作死重启一切，虽然是有点朝闻道夕死可矣那种感觉，但是我理解不了也无法坦然接受。
 
+
+
+*****
+
+####  fdodo  
+##### 112#         楼主| 发表于 2022-12-26 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59097289&amp;ptid=2111876" target="_blank">她的猫 发表于 2022-12-26 18:48</a>
+
+几次尝试最终放弃。
+
+我顶着晕试了很多次，我得说各个星球的奇景确实让人印象深刻，做得真的很棒也很有想象 ...</blockquote>
+额，因为整个宇宙本身就已经要毁灭了，不重启就只能热寂了啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  她的猫  
+##### 113#       发表于 2022-12-26 18:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59097323&amp;ptid=2111876" target="_blank">fdodo 发表于 2022-12-26 18:51</a>
+
+额，因为整个宇宙本身就已经要毁灭了，不重启就只能热寂了啊</blockquote>
+这是核心，我知道，但是无法理解众人都能理解并接受。我没法坦然接受这个结局。
+
