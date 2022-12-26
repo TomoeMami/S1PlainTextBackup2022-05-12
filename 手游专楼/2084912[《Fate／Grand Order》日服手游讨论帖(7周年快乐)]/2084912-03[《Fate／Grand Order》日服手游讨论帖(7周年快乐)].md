@@ -11488,3 +11488,17 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 
 前编的长度...明白了，前编后编后再来载冠编
 
+
+
+*****
+
+####  芭德薇  
+##### 4037#       发表于 2022-12-26 13:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59090925&amp;ptid=2084912" target="_blank">任天索尼子 发表于 2022-12-26 03:05</a>
+
+雨神锁助战上废物玛修根本没法不用灵脉石 我这是第一次这么讨厌玛修 吐了
+
+—— 来自 realme RMX2072, Andr ...</blockquote>
+我用双伊吹拐迦摩过的，克制加特攻很稳，最大问题是助战系统有bug，伊吹不大好借。
+
