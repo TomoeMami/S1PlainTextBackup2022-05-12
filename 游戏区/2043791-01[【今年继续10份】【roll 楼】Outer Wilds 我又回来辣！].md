@@ -3046,3 +3046,21 @@ roll 到我就送朋友一份<img src="https://static.saraba1st.com/image/smiley
 
 —— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  760194962  
+##### 374#       发表于 2022-12-26 11:18
+
+好好批判一番
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  232844781  
+##### 375#       发表于 2022-12-26 11:19
+
+为啥现在才看到
+
