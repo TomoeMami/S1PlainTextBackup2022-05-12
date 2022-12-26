@@ -33,3 +33,12 @@
 
 —— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  TerryBlues  
+##### 1995#       发表于 2022-12-26 09:21
+
+昨天才下单了一个，感觉春节前是不太可能拿到了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
