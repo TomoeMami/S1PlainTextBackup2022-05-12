@@ -11479,3 +11479,12 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 虽然吃宝具等级，但是总好过以前管你啥宝具等级大家一起吃屎好了那么一丁点
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  eilot  
+##### 4036#       发表于 2022-12-26 12:42
+
+前编的长度...明白了，前编后编后再来载冠编
+
