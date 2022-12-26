@@ -11596,3 +11596,28 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 也没说为啥会出个爷爷，反正麻雀alter所有剧情都充满着生草感无所谓了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  qixinno2  
+##### 4046#       发表于 2022-12-26 20:35
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻雀靠着妖崔宝具三连打死了 等新卡池了 现在真的没什么动力去打
+
+*****
+
+####  eilot  
+##### 4047#       发表于 2022-12-26 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59098327&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-26 20:18</a>
+
+麻雀alter那关有个莫名其妙的助战爷爷，换上来以后就无视即死
+
+也没说为啥会出个爷爷，反正麻雀alter所有 ...</blockquote>
+之前每个章节池时，也没有爷爷、金闪闪等可以抽...
+
+究竟营运何时才能再放他们出来...或者将一些旧角也丢去大池吧...
+
+除了现在的课金池...
+
