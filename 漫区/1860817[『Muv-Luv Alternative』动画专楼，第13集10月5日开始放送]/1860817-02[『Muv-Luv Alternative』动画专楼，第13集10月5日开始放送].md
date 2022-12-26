@@ -2893,3 +2893,14 @@ ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不
 
 还是看不懂管人角色有啥用
 
+
+
+*****
+
+####  jerryoq1  
+##### 2237#       发表于 2022-12-26 23:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59099136&amp;ptid=1860817" target="_blank">oo型巨婴革命 发表于 2022-12-26 21:16</a>
+还是看不懂管人角色有啥用</blockquote>
+一步臭棋呗，我猜金主原意可能是想互相引流一下，但他们不懂抹布也不懂管人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

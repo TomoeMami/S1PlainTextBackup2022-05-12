@@ -1453,3 +1453,17 @@
 
 我一直认为鸟哥和狗哥一样，应该是神器守护兽才能变出高度智慧的动物，但是作者后几章关于神器/守护兽的设定完全放弃，不解释狗的身份也不更不解释鸟了，剧本就是之前的坑不重要反正我已经挖好更大的坑了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。所以还是关于剧情不要想太多，有的地方是作者刻意设计好，其他的地方都是BUG也别去想就行。
 
+
+
+*****
+
+####  真实之影  
+##### 3124#       发表于 2022-12-26 23:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59100401&amp;ptid=2098044" target="_blank">shyso 发表于 2022-12-26 23:03</a>
+
+楼没爬全，但也基本爬的差不多了，感觉有个点没什么人说，就是游戏中的女性角色塑造中政治不正确的部分
+
+我 ...</blockquote>
+豆瓣那帮女的已经为了这个把游戏刷过一堆1分了
+
