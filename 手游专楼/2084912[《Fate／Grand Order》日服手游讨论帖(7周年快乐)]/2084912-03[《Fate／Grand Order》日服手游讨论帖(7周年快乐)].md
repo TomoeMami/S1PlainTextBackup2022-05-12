@@ -11337,3 +11337,21 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 
 孔明桑你抓点紧我要看迪亚哥回乡探亲啊，要带着樱一起
 
+
+
+*****
+
+####  ddr  
+##### 4022#       发表于 2022-12-26 08:23
+
+昨晚打完了，这个前篇太短了，感觉只是给战场进行了简要说明（総括関ケ原）
+
+*****
+
+####  Erikas  
+##### 4023#       发表于 2022-12-26 08:31
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">艹，梦里居然出现了摘下面具的黑豹神
+睡前看到他的脸直接麻了，导致打ort都没留下啥印象
+醒来还给推送了冠位狂解包模型，简直弃疗
+
