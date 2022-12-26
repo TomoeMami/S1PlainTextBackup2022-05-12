@@ -599,3 +599,19 @@ xgp的时候玩了，确实牛逼
 
 问个问题，PS5版的画面选项里动态/60和1440P/60有啥区别？哪个帧数更稳60？
 
+
+
+*****
+
+####  月海的秋鸟  
+##### 70#       发表于 2022-12-26 10:10
+
+开局玩遥控飞船就已经晕到吐了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  goudante  
+##### 71#       发表于 2022-12-26 10:15
+
+晕倒是不晕，教学关也顺利过了，就是没找到哪里存档所以没玩下去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
