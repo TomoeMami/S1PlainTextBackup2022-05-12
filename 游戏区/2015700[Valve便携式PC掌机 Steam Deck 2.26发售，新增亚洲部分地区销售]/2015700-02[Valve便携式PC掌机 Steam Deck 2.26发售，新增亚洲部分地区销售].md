@@ -58,3 +58,16 @@
 
 另外还有个问题，我试了几次退出游戏，就在那个steam标记那里一直转一直转回不到外面的菜单，可以转很久，但我其实按了休眠键回来就已经在外面了，是这样的吗
 
+
+
+*****
+
+####  kalavinka  
+##### 1997#       发表于 2022-12-26 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59095844&amp;ptid=2015700" target="_blank">Meltina 发表于 2022-12-26 16:44</a>
+是直接断wifi吗，好，我试试
+
+另外还有个问题，我试了几次退出游戏，就在那个steam标记那里一直转一直转 ...</blockquote>
+是这样的很迷，还有时候进游戏黑屏但是有声音，按下休眠再开就有画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
