@@ -7443,3 +7443,12 @@ MSR
 
 [https://mobile.twitter.com/oshi_mitu/status/1607134721066274816](https://mobile.twitter.com/oshi_mitu/status/1607134721066274816)
 
+
+
+*****
+
+####  holoan  
+##### 3700#         楼主| 发表于 2022-12-26 16:10
+
+大概瞄了一下C101的情况，miko本的摊位有20多个，还基本都集中在一起了
+

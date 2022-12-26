@@ -70,3 +70,23 @@
 486新fes好看捏，希望后续能票到，
 亚利沙这长裤长后摆就有点微妙。
 
+
+
+*****
+
+####  超法拉  
+##### 7046#       发表于 2022-12-26 16:06
+
+fes拖拖拉拉，总算眼瞅着能在周年左右出完一轮了
+
+—— 来自 OnePlus PGP110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  超法拉  
+##### 7047#       发表于 2022-12-26 16:06
+
+fes拖拖拉拉，总算眼瞅着能在周年左右出完一轮了
+
+—— 来自 OnePlus PGP110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
