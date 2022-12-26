@@ -2033,3 +2033,12 @@ v综好久没这么热闹了，谢谢enkr谢谢圭利
 
 突然想起来おれあぽ的turing love哪去了，kamito不是说今年不出就毕业吗，看推特怎么这两天在沉迷DAD
 
+
+
+*****
+
+####  FCCHua  
+##### 18186#       发表于 2022-12-26 19:30
+
+他说话的可信度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

@@ -11567,3 +11567,15 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 在挟持那里我上了其他从者&amp;#xF ...</blockquote>
 剧情会略有区别，但水兵还是牺牲了
 
+
+
+*****
+
+####  khxooo  
+##### 4044#       发表于 2022-12-26 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59091688&amp;ptid=2084912" target="_blank">莉莉橙 发表于 2022-12-26 09:15</a>
+
+我只想早点撕碎那蝙蝠精炖个骨碎肉烂</blockquote>
+蝙蝠最好是限定，这样我就不用抽他了，看到花花血流成河那里真的是血压高起来了。
+

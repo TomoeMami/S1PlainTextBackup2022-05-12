@@ -2501,3 +2501,12 @@ c狐是boss战MVP
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  DET33  
+##### 44029#       发表于 2022-12-26 19:24
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只能说，剧情不管是文笔还是内容都烂完了，我对大搞特搞钓鱼佬和妲己的恋爱没啥意见，倒是剧情里那股矫揉造作味给我熏吐了
+
