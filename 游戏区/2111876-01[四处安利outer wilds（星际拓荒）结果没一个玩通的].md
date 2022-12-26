@@ -984,3 +984,16 @@ xgp的时候玩了，确实牛逼
 
 风怒
 
+
+
+*****
+
+####  happypicaQ  
+##### 107#       发表于 2022-12-26 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59096285&amp;ptid=2111876" target="_blank">fdodo 发表于 2022-12-26 17:20</a>
+天啊你开局探索选了难度最大的落石星球（碎空星），怪不得会很挫败…那个黑洞我后期探索都一直掉进去，属 ...</blockquote>
+我飞了好几次这个星球才发现原来地会裂开，还在想这里的石头怎么老是乱飞<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为我是先以咱们自己人的音乐声为线索找起的，然后发现这个星球上有咱们自己人，我就先去了
+
+—— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
