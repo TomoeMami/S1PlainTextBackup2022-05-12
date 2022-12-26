@@ -749,3 +749,21 @@ xgp的时候玩了，确实牛逼
 
 理科生的浪漫啥的以我现在的智力已经跟不上了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  dunkeicht  
+##### 84#       发表于 2022-12-26 12:39
+
+这游戏安利确实挺看缘分，我的经验是最好从科幻爱好者里找<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">如果你能在诸如“有朝一日，人类会再次沿着他们曾经走过的那条道路走下去。”或是“对宇宙终极真理的追求，是文明的最终目标和归宿。”之类的究极浪漫主义科幻中得到触动，那这个游戏也一定能感动你
+
+*****
+
+####  dunkeicht  
+##### 85#       发表于 2022-12-26 12:40
+
+ 本帖最后由 dunkeicht 于 2022-12-26 12:42 编辑 
+
+风怒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
