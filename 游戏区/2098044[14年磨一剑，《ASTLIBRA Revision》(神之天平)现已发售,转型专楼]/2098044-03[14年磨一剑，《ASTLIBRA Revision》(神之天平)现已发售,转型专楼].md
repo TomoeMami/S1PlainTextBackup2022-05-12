@@ -1352,3 +1352,16 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">啊，这个战斗系统，就是激情换血吗，盾感觉总是抓不到时机，怪又多又密，第二章打虫子和蛤蟆都打得有点懵了……感觉打得不对，又不知道怎么改善……
 
+
+
+*****
+
+####  藤井紫  
+##### 3118#       发表于 2022-12-26 22:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59099561&amp;ptid=2098044" target="_blank">落花微塵 发表于 2022-12-26 21:53</a>
+啊，这个战斗系统，就是激情换血吗，盾感觉总是抓不到时机，怪又多又密，第二章打虫子和蛤蟆都打得 ...</blockquote>
+首先记得上挑（上+攻击）能有效降低敌人攻击落到你身上的几率与频率，而且将敌人挑飞后也可以趁机吃口药或者打个凭依
+
+—— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
