@@ -699,3 +699,16 @@ space播
 
 我才发现，昨天跟犬山联动完后，她又跑别人直播间打LOL了。
 
+
+
+*****
+
+####  往世雷书  
+##### 12986#       发表于 2022-12-26 19:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59097026&amp;ptid=2018830" target="_blank">秋游刃 发表于 2022-12-26 18:25</a>
+我才发现，昨天跟犬山联动完后，她又跑别人直播间打LOL了。</blockquote>
+谁？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

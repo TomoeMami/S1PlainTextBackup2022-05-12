@@ -11556,3 +11556,14 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 
 希望不要来个强度美2.0了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  莉莉橙  
+##### 4043#       发表于 2022-12-26 19:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59090759&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-26 02:11</a>
+在挟持那里我上了其他从者&amp;#xF ...</blockquote>
+剧情会略有区别，但水兵还是牺牲了
+
