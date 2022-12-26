@@ -88,3 +88,14 @@
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  一个陆仁贾  
+##### 1721#       发表于 2022-12-26 23:38
+
+真的非常好奇6分44怎么跑出来的
+
+—— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
