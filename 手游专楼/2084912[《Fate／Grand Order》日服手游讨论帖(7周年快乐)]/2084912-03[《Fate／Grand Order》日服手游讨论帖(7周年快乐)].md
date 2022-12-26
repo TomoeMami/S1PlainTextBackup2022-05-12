@@ -11355,3 +11355,13 @@ ORT第二排血1000万<img src="https://static.saraba1st.com/image/smiley/face20
 睡前看到他的脸直接麻了，导致打ort都没留下啥印象
 醒来还给推送了冠位狂解包模型，简直弃疗
 
+
+
+*****
+
+####  莉莉橙  
+##### 4024#       发表于 2022-12-26 08:38
+
+BB在场会给帝王花上个打消一次女神变生的debuff
+<img src="https://p.sda1.dev/9/ff9e559b93183e62b3587c2f91339eaa/IMG_CMP_209656346.jpeg" referrerpolicy="no-referrer">
+
