@@ -90,3 +90,12 @@ fes拖拖拉拉，总算眼瞅着能在周年左右出完一轮了
 
 —— 来自 OnePlus PGP110, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  花开安菲路  
+##### 7048#       发表于 2022-12-26 23:12
+
+我擦，几天白嫖全是sr保底，忍不住又抽了20连出了静香和486fes<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
