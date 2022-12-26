@@ -1365,3 +1365,22 @@
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  白左  
+##### 3119#       发表于 2022-12-26 22:37
+
+一开始的蠢萌王道剧情实属给爷看笑了，也就是有些奇怪的地方让人非常在意
+
+这时候的评价大概就7分吧
+
+但是过程中越来越不对劲的展开，加上十分复古和oldschool的小桥段，一边吐槽不愧是开发了十几年的游戏什么过气段子，一边不知道为什么就不知不觉中沉浸了进去
+
+以至于到解锁武器盘之前时，心如刀割<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
+
+而打到结局时，才意识到不知不觉间已经将大家当做真正的伙伴了，随着神之天平四个大字打出，泪水喷薄而出
+
+鸦鸦，只要有你在，我什么也不害怕！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
