@@ -11547,3 +11547,12 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 
 之后那场绑了学妹及船长，又是想方法第一回合弄死学妹，省了一次礼装换人，之后就是黑圣杯2连发速攻
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 4042#       发表于 2022-12-26 18:23
+
+希望不要来个强度美2.0了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+

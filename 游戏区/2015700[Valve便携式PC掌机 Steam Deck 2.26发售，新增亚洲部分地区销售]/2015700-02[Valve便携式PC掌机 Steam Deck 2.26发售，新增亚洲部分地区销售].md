@@ -81,3 +81,15 @@
 话说steam deck的拓展坞，官方和第三方有区别吗？看了一下不少第三方的规格比官方高还便宜不少，不过官方似乎还有固件升级啥的。
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">突然想起了NS的底座。
 
+
+
+*****
+
+####  硫黄  
+##### 1999#       发表于 2022-12-26 18:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59096953&amp;ptid=2015700" target="_blank">TerryBlues 发表于 2022-12-26 18:19</a>
+
+话说steam deck的拓展坞，官方和第三方有区别吗？看了一下不少第三方的规格比官方高还便宜不少，不过官方似 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">NS底座我用延长线试过了不能用
+
