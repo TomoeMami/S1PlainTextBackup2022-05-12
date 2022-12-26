@@ -11419,3 +11419,15 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也打完了。太短了。我确信肯定不止拆上下
 
+
+
+*****
+
+####  武男  
+##### 4031#       发表于 2022-12-26 10:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59090945&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-26 03:11</a>
+
+2.5.2的时候我已经看到她就想&amp;#x541 ...</blockquote>
+这是玛修人气下滑的一个原因吧，技能组没有第一部好用，还得锁
+

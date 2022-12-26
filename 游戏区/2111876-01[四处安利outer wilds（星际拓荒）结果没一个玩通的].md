@@ -615,3 +615,25 @@ xgp的时候玩了，确实牛逼
 
 晕倒是不晕，教学关也顺利过了，就是没找到哪里存档所以没玩下去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  fdodo  
+##### 72#         楼主| 发表于 2022-12-26 10:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59092082&amp;ptid=2111876" target="_blank">goudante 发表于 2022-12-26 10:15</a>
+晕倒是不晕，教学关也顺利过了，就是没找到哪里存档所以没玩下去</blockquote>
+没有传统意义上的存档<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Robakey  
+##### 73#       发表于 2022-12-26 10:32
+
+就是因为太喜欢了，pc通了专门用ps5打了个白金出来.
+
+吐槽降落难的，真得尝试一下手动落太阳站的感觉，刺激！
+

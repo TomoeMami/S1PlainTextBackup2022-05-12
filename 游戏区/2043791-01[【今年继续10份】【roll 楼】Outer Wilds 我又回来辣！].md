@@ -3014,3 +3014,35 @@ roll 到我就送朋友一份<img src="https://static.saraba1st.com/image/smiley
 
 分母<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shahito  
+##### 370#       发表于 2022-12-26 10:22
+
+抽个热闹！
+
+*****
+
+####  hiiroimatsu  
+##### 371#       发表于 2022-12-26 10:24
+
+一直想试试奈何晕3D比较严重<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+*****
+
+####  dpheix1  
+##### 372#       发表于 2022-12-26 10:27
+
+抽抽看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  shinzero  
+##### 373#       发表于 2022-12-26 10:27
+
+凑合热闹<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi 2112123AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
