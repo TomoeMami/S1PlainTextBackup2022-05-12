@@ -11440,3 +11440,27 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 
 烟雾镜这立绘虽然有点潦草，不过还挺带劲的，开池子要抽一下，那个小孩版的是完全欣赏不来
 
+
+
+*****
+
+####  白金口袋  
+##### 4033#       发表于 2022-12-26 11:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59091519&amp;ptid=2084912" target="_blank">里村紅葉 发表于 2022-12-26 08:46</a>
+
+麻婆祝你圣诞快乐居然是12月25号的限定彩蛋</blockquote>
+是，今天才打到结果发现他说的是偶哈悠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 4034#       发表于 2022-12-26 11:31
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59090945&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-26 03:11</a>
+
+2.5.2的时候我已经看到她就想&amp;#x541 ...</blockquote>
+主线的难度一向都是锁角色、BOSS上大量BUFF，BREAK后上BUFF上无敌再来全体宝具等，虽然这些都习惯了
+
+只是今次连令咒都禁止，出战角色大多只得3~4人，当中更绑了学妹和小妖精，烦得要死
+
