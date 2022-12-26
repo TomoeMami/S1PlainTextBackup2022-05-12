@@ -2024,3 +2024,12 @@ v综好久没这么热闹了，谢谢enkr谢谢圭利
 
 居然涨了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  格林卡罗尔  
+##### 18185#       发表于 2022-12-26 17:06
+
+突然想起来おれあぽ的turing love哪去了，kamito不是说今年不出就毕业吗，看推特怎么这两天在沉迷DAD
+
