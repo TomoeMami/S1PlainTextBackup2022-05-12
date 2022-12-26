@@ -71,3 +71,13 @@
 另外还有个问题，我试了几次退出游戏，就在那个steam标记那里一直转一直转 ...</blockquote>
 是这样的很迷，还有时候进游戏黑屏但是有声音，按下休眠再开就有画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  TerryBlues  
+##### 1998#       发表于 2022-12-26 18:19
+
+话说steam deck的拓展坞，官方和第三方有区别吗？看了一下不少第三方的规格比官方高还便宜不少，不过官方似乎还有固件升级啥的。
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">突然想起了NS的底座。
+
