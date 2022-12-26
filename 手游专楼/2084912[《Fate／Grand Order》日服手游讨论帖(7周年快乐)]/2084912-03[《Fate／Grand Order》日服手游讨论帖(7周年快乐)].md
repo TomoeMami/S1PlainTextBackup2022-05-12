@@ -11523,3 +11523,12 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 感觉新的一批立绘里就这哥们设计最精致……但我对他毫无兴趣OTZZ</blockquote>
 但是只有他已经确定是NPC了
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 4040#       发表于 2022-12-26 16:33
+
+没新卡池，剧情都不想推了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

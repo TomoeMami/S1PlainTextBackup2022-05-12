@@ -828,3 +828,39 @@ xgp的时候玩了，确实牛逼
 
 —— 来自 HUAWEI DBY-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  yanzhunxi  
+##### 92#       发表于 2022-12-26 16:32
+
+太难了，玩不懂……而且每次死了都要从头来……开头剧情我都看过十多遍了……第一个星球都没有搞清楚看点是啥
+
+*****
+
+####  fdodo  
+##### 93#         楼主| 发表于 2022-12-26 16:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59095185&amp;ptid=2111876" target="_blank">happypicaQ 发表于 2022-12-26 15:43</a>
+
+我一直在断断续续的玩，然后也一直没弄懂，尤其我特别想试试能不能着陆到流星上，试了好久，一次都没有成功 ...</blockquote>
+弄不懂的话可以去看飞船上面的日志线索图，都会帮你整理目前收集到的信息。流星（闯入者）也是可以降落的
+
+*****
+
+####  体嫌口不直  
+##### 94#       发表于 2022-12-26 16:38
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有没有可能，这游戏对于大部分人来说就是不好玩呢？毕竟大部分人玩游戏都是娱乐消遣的。
+
+*****
+
+####  fdodo  
+##### 95#         楼主| 发表于 2022-12-26 16:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59095733&amp;ptid=2111876" target="_blank">yanzhunxi 发表于 2022-12-26 16:32</a>
+
+太难了，玩不懂……而且每次死了都要从头来……开头剧情我都看过十多遍了……第一个星球都没有搞清楚看点是 ...</blockquote>
+开头过了第一次之后以后就可以直接飞天了啊，不用再反复过剧情了。然后探索过的信息在飞船日志会给你记录详细的线索图，上面还有一些提示，跟着指引走就可以了其实
+
