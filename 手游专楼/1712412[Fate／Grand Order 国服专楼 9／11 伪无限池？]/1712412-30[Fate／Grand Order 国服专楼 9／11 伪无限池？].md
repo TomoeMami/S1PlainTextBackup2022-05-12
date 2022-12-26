@@ -2488,3 +2488,16 @@ c狐是boss战MVP
 
 太空不是垃圾场，不要什么都往上射
 
+
+
+*****
+
+####  dawning  
+##### 44028#       发表于 2022-12-26 18:47
+
+助战伊吹，然后xjbd过了，
+
+这什么鬼剧情，太公望对妲己哪来那么大的好感度<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
