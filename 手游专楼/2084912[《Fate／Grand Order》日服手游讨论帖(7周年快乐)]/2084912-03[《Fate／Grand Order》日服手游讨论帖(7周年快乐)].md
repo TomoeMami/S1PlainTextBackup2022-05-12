@@ -11464,3 +11464,18 @@ BB在场会给帝王花上个打消一次女神变生的debuff</blockquote>
 
 只是今次连令咒都禁止，出战角色大多只得3~4人，当中更绑了学妹和小妖精，烦得要死
 
+
+
+*****
+
+####  exiaexa  
+##### 4035#       发表于 2022-12-26 11:47
+
+其实这次已经调整得相对好一点了，基本二选一
+雨神那关其实就是尼莫加个拐，后排扔个黑杯av打手就完事儿了
+开场换人然后单拐爆破
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然吃宝具等级，但是总好过以前管你啥宝具等级大家一起吃屎好了那么一丁点
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

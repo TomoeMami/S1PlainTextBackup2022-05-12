@@ -3064,3 +3064,23 @@ roll 到我就送朋友一份<img src="https://static.saraba1st.com/image/smiley
 
 为啥现在才看到
 
+
+
+*****
+
+####  visitor1107  
+##### 376#       发表于 2022-12-26 11:46
+
+试试！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2068A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  visitor1107  
+##### 377#       发表于 2022-12-26 11:46
+
+试试！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V2068A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
