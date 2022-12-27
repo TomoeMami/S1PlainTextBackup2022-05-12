@@ -2922,3 +2922,15 @@ ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不
 
 <img src="https://img.saraba1st.com/forum/202212/27/134717vdinfzgafn3d8ifa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  getpain  
+##### 2239#       发表于 2022-12-27 19:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59105940&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2022-12-27 13:47</a>
+
+给管人搞了那么多设计，还真是在非常认真地讨好金主啊</blockquote>
+请问这是？
+
