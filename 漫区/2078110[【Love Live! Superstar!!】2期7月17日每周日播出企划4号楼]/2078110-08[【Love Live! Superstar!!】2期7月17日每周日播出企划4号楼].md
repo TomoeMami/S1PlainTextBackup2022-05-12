@@ -1776,3 +1776,17 @@ twi：NiiDORO677901
 
 不知道是不是我的错觉，可香不说，现在合鲤的营业明显强度上来了，不知道官方有没有想法。
 
+
+
+*****
+
+####  cat1230  
+##### 10651#       发表于 2022-12-27 15:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59106953&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-12-27 15:10</a>
+
+不知道是不是我的错觉，可香不说，现在合鲤的营业明显强度上来了，不知道官方有没有想法。 ...</blockquote>
+我感觉官方从来没这想法，纯粹是鲤鱼姐自己个人爱好，然后她跟打铁关系又好，打铁也愿意陪着玩。
+
+想靠中之人逆输入打官方脸太难了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
