@@ -1705,3 +1705,21 @@
 
 —— 来自 Xiaomi MI 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  best32167  
+##### 3142#       发表于 2022-12-27 14:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59102048&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-12-27 02:26</a>
+
+https://www.bilibili.com/read/cv19511254
+
+这里可以看到全装备图鉴
+
+遗忘的多的可能是魔王城和海蛇那的宝 ...</blockquote>
+明白了，全武器装备必须带在身上
+
+不知被哪里的网友误导了说持有过就行。。
+

@@ -1742,3 +1742,28 @@ CBBCB103-0551-4137-A886-801508B429A4.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可香人这么倔强三期再给当头一棒
 
+
+
+*****
+
+####  lj205  
+##### 10648#       发表于 2022-12-27 14:40
+
+这投票可是几乎没有中华炮的哦<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+*****
+
+####  仟音一心  
+##### 10649#       发表于 2022-12-27 14:41
+
+twi：NiiDORO677901 
+
+<img src="https://img.saraba1st.com/forum/202212/27/144132fts05yh5sch5w0yy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>B0549EB3-2A35-4525-A577-0506F4B43663.jpeg</strong> (111.55 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-27 14:41 上传
+
