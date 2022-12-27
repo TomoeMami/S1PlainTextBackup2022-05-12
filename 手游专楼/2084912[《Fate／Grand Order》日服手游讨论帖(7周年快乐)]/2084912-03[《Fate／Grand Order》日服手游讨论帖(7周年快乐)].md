@@ -11717,3 +11717,12 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 最大问题还是南美这神话以现代价值观来说太不正能量了，不过2.7主从目的一揭示被吓到的人太多，接下来会有好几个入队吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ddr  
+##### 4055#       发表于 2022-12-27 08:16
+
+这次的卡目前为止只有所长想抽一个
+
