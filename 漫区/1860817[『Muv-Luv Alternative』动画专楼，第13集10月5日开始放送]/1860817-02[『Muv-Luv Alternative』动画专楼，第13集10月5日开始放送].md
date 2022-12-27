@@ -2904,3 +2904,21 @@ ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不
 还是看不懂管人角色有啥用</blockquote>
 一步臭棋呗，我猜金主原意可能是想互相引流一下，但他们不懂抹布也不懂管人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  KOPKOM  
+##### 2238#         楼主| 发表于 2022-12-27 13:47
+
+给管人搞了那么多设计，还真是在非常认真地讨好金主啊
+
+664B5AA5-E06D-47E8-9944-C864E11E9244.jpeg
+(370.35 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-27 13:47 上传
+
+<img src="https://img.saraba1st.com/forum/202212/27/134717vdinfzgafn3d8ifa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
