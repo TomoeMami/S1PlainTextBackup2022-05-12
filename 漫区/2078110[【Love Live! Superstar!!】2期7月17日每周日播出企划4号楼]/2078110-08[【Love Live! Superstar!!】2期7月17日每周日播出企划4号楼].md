@@ -1675,3 +1675,12 @@ CBBCB103-0551-4137-A886-801508B429A4.jpeg
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次live服换装的投票结果，你们这些粉丝真就不识抬举，还想着可香
 
+
+
+*****
+
+####  ViyViy  
+##### 10641#       发表于 2022-12-27 12:50
+
+这红蓝是什么情况，推的默契度这么高的吗。
+
