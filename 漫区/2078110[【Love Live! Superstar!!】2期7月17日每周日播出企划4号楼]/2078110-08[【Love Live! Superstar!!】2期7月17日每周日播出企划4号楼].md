@@ -1938,3 +1938,27 @@ tiny stars……
 
 CEO吧
 
+
+
+*****
+
+####  ViyViy  
+##### 10666#       发表于 2022-12-27 19:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59109649&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-27 19:14</a>
+
+难蚌，这下堇发配给谁啊，多出来的恋吗</blockquote>
+这是之前那个单双人投票吗？居然是可可？这下“老娘投票没输过”了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  稀勢のささ  
+##### 10667#       发表于 2022-12-27 19:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59109752&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-27 19:25</a>
+
+这是之前那个单双人投票吗？居然是可可？这下“老娘投票没输过”了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是那个，反正这样一来多出来的人就有点多了
+
