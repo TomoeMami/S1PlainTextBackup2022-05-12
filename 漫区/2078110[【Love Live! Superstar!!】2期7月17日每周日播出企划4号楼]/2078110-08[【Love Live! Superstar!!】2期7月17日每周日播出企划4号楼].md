@@ -1852,3 +1852,23 @@ twi：NiiDORO677901
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  nufawneafg  
+##### 10658#       发表于 2022-12-27 17:56
+
+编辑
+
+*****
+
+####  nufawneafg  
+##### 10659#       发表于 2022-12-27 17:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59108799&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-27 17:49</a>
+可可是ts不奇怪，让运营自己说说除了衬托香音的ts她还剩什么？然而香音也是ts只能说ts值得，运营看着办吧
+
+ ...</blockquote>
+ts...是什么...有点跟不上冲浪速度了
+
