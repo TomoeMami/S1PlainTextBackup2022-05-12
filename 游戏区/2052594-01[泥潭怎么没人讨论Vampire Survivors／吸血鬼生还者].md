@@ -1346,3 +1346,12 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 听到有丢星的声音左右挪就差不多了
 
+
+
+*****
+
+####  Litccc  
+##### 596#       发表于 2022-12-27 22:14
+
+看了攻略才知道大教堂的死神可以用念珠秒掉，我全是苟活到超武成型之后一个一个打死的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+

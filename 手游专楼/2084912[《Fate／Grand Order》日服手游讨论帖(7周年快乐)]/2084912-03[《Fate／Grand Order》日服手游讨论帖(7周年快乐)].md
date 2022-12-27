@@ -11941,3 +11941,16 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 被杀兔提醒了才发现芙芙失踪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zooandtoo  
+##### 4074#       发表于 2022-12-27 22:14
+
+ 本帖最后由 zooandtoo 于 2022-12-27 22:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">剧情看完反而很喜欢卡玛图佐
+
+虽然很残忍但实际清凉剂，比起另两位有点遥不可及的算是比较。。。亲民？
+

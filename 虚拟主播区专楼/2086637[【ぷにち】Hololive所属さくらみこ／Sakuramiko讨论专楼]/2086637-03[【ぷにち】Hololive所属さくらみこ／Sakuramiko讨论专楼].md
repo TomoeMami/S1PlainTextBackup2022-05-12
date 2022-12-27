@@ -7550,3 +7550,76 @@ Guchico，YYDS
 
 五子棋对35太难了,换个游戏吧
 
+
+
+*****
+
+####  rs5621  
+##### 3711#       发表于 2022-12-27 22:13
+
+给楼友猜中了
+
+<img src="https://img.saraba1st.com/forum/202212/27/221315d4cfm1d1n14c11do.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (79.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-27 22:13 上传
+
+*****
+
+####  神澈  
+##### 3712#       发表于 2022-12-27 22:13
+
+女仆装吗？
+
+*****
+
+####  holoan  
+##### 3713#         楼主| 发表于 2022-12-27 22:16
+
+全中了啊我
+
+*****
+
+####  神澈  
+##### 3714#       发表于 2022-12-27 22:18
+
+CPU，没意思。
+
+*****
+
+####  ZQXY2002  
+##### 3715#       发表于 2022-12-27 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">结果还是配音解说啊，上次就够尬的啦。
+
+*****
+
+####  holoan  
+##### 3716#         楼主| 发表于 2022-12-27 22:18
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">观众爱看，关他CPU不CPU
+
+*****
+
+####  神澈  
+##### 3717#       发表于 2022-12-27 22:18
+
+俩狐狸MC，那你干嘛？？？
+
+*****
+
+####  rs5621  
+##### 3718#       发表于 2022-12-27 22:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">消耗糊糊的嗓子是吧!35你好卑鄙.
+
+*****
+
+####  holoan  
+##### 3719#         楼主| 发表于 2022-12-27 22:21
+
+但是说实话她不太适合实况解说，也就在那大喊大叫
+

@@ -2140,3 +2140,31 @@ CEO吧
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  saya1892  
+##### 10686#       发表于 2022-12-27 22:15
+
+投了20多票，为了不被重复计票ban各种昵称组合理由想到头秃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  ruffian  
+##### 10687#       发表于 2022-12-27 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59110641&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-27 20:36:42</a>
+原来一个设备只能投一次啊？我那段时间是估算过了24小时就去投一票，隔两三天换个IP ...</blockquote>你这一说，我想起来我好像投了两次，限设备的投票应该不是这个(或者我接收到错误信息了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  稀勢のささ  
+##### 10688#       发表于 2022-12-27 22:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就记得CP投了个香千，理由是神和她的大主教
+
