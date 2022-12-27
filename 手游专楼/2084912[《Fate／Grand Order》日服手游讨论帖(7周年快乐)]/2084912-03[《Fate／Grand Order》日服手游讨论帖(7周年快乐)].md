@@ -11757,3 +11757,12 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 对体验影响最大的还是锁助战，人设倒是还好，反正你游到现在难看又格格不入的人设也不少了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  quanlix  
+##### 4059#       发表于 2022-12-27 10:13
+
+系统支援还给888技能也是够操蛋的
+

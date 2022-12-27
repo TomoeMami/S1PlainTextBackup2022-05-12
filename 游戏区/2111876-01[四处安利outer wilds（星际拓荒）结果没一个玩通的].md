@@ -1401,3 +1401,15 @@ baba is you算是做题。
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  noahhhh  
+##### 139#       发表于 2022-12-27 10:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59085492&amp;ptid=2111876" target="_blank">saderious 发表于 2022-12-25 18:52</a>
+
+晕3d这么多，这游戏不能调fov吗，不过我没玩是因为都说是恐怖游戏</blockquote>
+游戏锁60帧，按开发者的办法改了物理帧还是非常卡<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">一气之下打一星删了游戏
+

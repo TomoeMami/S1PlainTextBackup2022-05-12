@@ -2549,3 +2549,12 @@ c狐是boss战MVP
 
 这次最大得收获就是磷粉跟小钟刷了个爽
 
+
+
+*****
+
+####  blackjeo1  
+##### 44034#       发表于 2022-12-27 10:14
+
+     剧情的这个味道和以前的那些其实是一模一样的啊，我看到太公望第一次和暗狐接触的心理活动就知道肯定又要搞暧味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
