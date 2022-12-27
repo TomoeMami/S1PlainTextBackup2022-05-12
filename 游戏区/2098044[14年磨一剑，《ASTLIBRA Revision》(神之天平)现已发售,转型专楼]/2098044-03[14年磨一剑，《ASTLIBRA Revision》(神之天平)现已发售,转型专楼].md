@@ -1636,3 +1636,17 @@
 
 不过神兽和神器的来龙去脉，神兽和魔兽的关系，魔兽和神族的关系（EX地图的小怪在新章时都会被召唤到盖亚表层，也就是说应该也属于魔兽）在游戏里都没有交代，的确有点可惜
 
+
+
+*****
+
+####  永远的访客  
+##### 3137#       发表于 2022-12-27 10:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59103723&amp;ptid=2098044" target="_blank">Sannapolis 发表于 2022-12-27 10:23</a>
+
+鸟和狗的原型就是魔兽吧，否则也不会被变成现在的样子
+
+不过神兽和神器的来龙去脉，神兽和魔兽的关系，魔 ...</blockquote>
+不吃书的话，普通的魔族应该是严格遵循蜂群规则，只听魔王指挥，智商越高越忠诚，魔王死后自动进化出新魔王。至于那些哥布林王和5章在地下烧锅的杂鱼都属于不能自圆其说的BUG，狗哥不听魔王指挥只在沼泽割据也是BUG，解释成神器守护兽似乎是帮作者填坑，但是神器守护兽自己就是更大的坑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

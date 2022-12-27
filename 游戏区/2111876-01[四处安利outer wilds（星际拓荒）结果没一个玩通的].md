@@ -1453,3 +1453,30 @@ baba is you算是做题。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  lazycat233  
+##### 144#       发表于 2022-12-27 10:44
+
+玩不懂，云起来也不太好看<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">，下了好几次也没玩下去
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  奇遇2000  
+##### 145#       发表于 2022-12-27 10:45
+
+我听网友们一直在吹这个，但我试了一下是真的晕得不行，只能说太遗憾了。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  subject07  
+##### 146#       发表于 2022-12-27 10:48
+
+这游戏的操作太别扭了，我尝试了两次都半途而弃
+
