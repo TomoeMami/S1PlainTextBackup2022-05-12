@@ -11735,3 +11735,12 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">fgo的战斗策划脑子是不是有点问题，我看个剧情还要受虐么，锁助战还贼不好用，打吐了，纯纯恶心人
 
+
+
+*****
+
+####  莉莉橙  
+##### 4057#       发表于 2022-12-27 09:34
+
+杨贵妃居然不算浮游从者，会被雨神晕
+

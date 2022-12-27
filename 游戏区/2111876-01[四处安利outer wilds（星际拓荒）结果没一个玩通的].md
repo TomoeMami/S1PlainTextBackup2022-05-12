@@ -1359,3 +1359,32 @@ baba is you算是做题。
 
 —— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  最终兵器狂战  
+##### 135#       发表于 2022-12-27 09:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59102781&amp;ptid=2111876" target="_blank">国家免检虎B 发表于 2022-12-27 08:46</a>
+关于解谜游戏的话，我以前听到过一种戏谑分类，把市面上的解谜游戏分成“文科解谜”和“理科解谜”。
+“理 ...</blockquote>
+那么那种 要求xx秒之内打掉三个机关/跑过八个火圈/按掉一大坨qte一个不能错 这种的算是体育系解谜么？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  ChrisSnake  
+##### 136#       发表于 2022-12-27 09:37
+
+其实主要就是飞船驾驶太麻烦 而且动不动就坏了 十分影响体验
+
+*****
+
+####  tureleona  
+##### 137#       发表于 2022-12-27 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59095821&amp;ptid=2111876" target="_blank">fdodo 发表于 2022-12-26 16:42</a>
+
+我当然明白这一点，所以尝试安利的人已经不属于“大部分”轻度玩家了，都是一些有一定游戏阅历和审美的玩 ...</blockquote>
+差不多得了无关乎游戏阅历和审美，有些人就是对这题材或者游玩形式不感兴趣而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
