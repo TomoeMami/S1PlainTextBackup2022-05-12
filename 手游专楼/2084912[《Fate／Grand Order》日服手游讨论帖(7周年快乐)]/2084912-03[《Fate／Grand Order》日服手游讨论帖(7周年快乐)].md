@@ -11920,3 +11920,15 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 该不会整个2.7变2.8A吧</blockquote>
 运营：我说了分上下，但我没说下一次都给你放出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  廖化  
+##### 4072#       发表于 2022-12-27 17:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59108347&amp;ptid=2084912" target="_blank">白金口袋 发表于 2022-12-27 17:14</a>
+
+运营：我说了分上下，但我没说下一次都给你放出来吧</blockquote>
+艹我信了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
