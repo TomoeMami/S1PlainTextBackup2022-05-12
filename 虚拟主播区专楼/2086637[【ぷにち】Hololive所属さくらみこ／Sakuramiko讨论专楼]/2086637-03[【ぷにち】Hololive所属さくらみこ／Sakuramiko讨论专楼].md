@@ -7541,3 +7541,12 @@ Guchico，YYDS
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">skmt太屑了,疯狂跳脸
 
+
+
+*****
+
+####  rs5621  
+##### 3710#       发表于 2022-12-27 21:56
+
+五子棋对35太难了,换个游戏吧
+
