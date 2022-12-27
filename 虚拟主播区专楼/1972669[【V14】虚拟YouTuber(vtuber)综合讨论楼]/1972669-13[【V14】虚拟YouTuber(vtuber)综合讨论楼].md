@@ -2060,3 +2060,13 @@ Nornis这个新宿3Dlive有点新鲜
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">新宿3D大概要多少钱
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 18189#       发表于 2022-12-27 21:13
+
+怎么感觉这模型渲染还不如平时自家演唱会啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+摆手20分钟，唱三分钟。
+
