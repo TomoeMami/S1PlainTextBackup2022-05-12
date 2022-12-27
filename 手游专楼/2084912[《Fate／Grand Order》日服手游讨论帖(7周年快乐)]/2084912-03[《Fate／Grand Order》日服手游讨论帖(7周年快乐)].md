@@ -11766,3 +11766,29 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 系统支援还给888技能也是够操蛋的
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 4060#       发表于 2022-12-27 11:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59099744&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-26 22:08</a>
+
+烟雾镜差不多确定是田岛昭宇老师画的了，我算是多重人格侦探的粉丝，还入过实体书，不过他给FGO供的稿是 ...</blockquote>
+是多重人格侦探的作者啊，难怪恐龙王画的那么邪性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+第一次知道这部漫画，还是N年前在某宝搜色色手办的时候，推荐里有一个戴着氧气面罩的裸体人棍女，我看了之后大为震撼（李安.jpg)，去搜了原作的故事梗概和一些名场面之后，整个人更是有一种被创飞了的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+*****
+
+####  sk86  
+##### 4061#       发表于 2022-12-27 11:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59104541&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-12-27 11:36</a>
+
+是多重人格侦探的作者啊，难怪恐龙王画的那么邪性
+
+第一次知道这部漫画，还是N年前在某宝搜色色手 ...</blockquote>
+原来是他
+
