@@ -2062,3 +2062,14 @@ CEO吧
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  ruffian  
+##### 10678#       发表于 2022-12-27 20:24
+
+牛蛙，这投票有墙，而且好像一个手机只能投一次，这得挡了大部分中华炮了，居然能赢，厉害的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然5ch还是会拉中华炮当借口
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
