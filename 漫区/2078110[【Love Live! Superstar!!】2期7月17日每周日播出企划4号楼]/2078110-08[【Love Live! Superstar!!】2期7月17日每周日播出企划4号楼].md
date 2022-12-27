@@ -1971,3 +1971,39 @@ CEO吧
 
 5ch又要万恶的中华炮了，话说这次有中华炮吗，几个群里根本都没人拉票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  优妮可  
+##### 10669#       发表于 2022-12-27 19:47
+
+有点不太懂，是不是选项里是一个单人和四对，投可可单人的比其她单人多，同时又比可可加一个其她人的组合也多。才导致可可单人封面了
+
+*****
+
+####  愛さ実  
+##### 10670#       发表于 2022-12-27 19:50
+
+草？这竟然赢了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  starring  
+##### 10671#       发表于 2022-12-27 19:51
+
+【梦幻同框！漫酱终于见到唐可可啦！【漫应援】】 [https://www.bilibili.com/video/B ... ac28d8cf8e031afff27](https://www.bilibili.com/video/BV18g41147eb/?share_source=copy_web&amp;vd_source=2cc77ebe129bdac28d8cf8e031afff27)
+
+漫应援的专访
+
+*****
+
+####  稀勢のささ  
+##### 10672#       发表于 2022-12-27 19:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59110021&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-12-27 19:47</a>
+有点不太懂，是不是选项里是一个单人和四对，投可可单人的比其她单人多，同时又比可可加一个其她人的组合也 ...</blockquote>
+就没说单人跟双人是咋算的，所以我就投了一次意思了一下
+
