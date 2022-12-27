@@ -727,3 +727,14 @@ space播
 —— 来自 S1Fun</blockquote>
 咩新关注的V，鸟黄沢ちびゅー，在妹子twitch台。
 
+
+
+*****
+
+####  掉头学姐  
+##### 12988#       发表于 2022-12-27 10:29
+
+最近又LOL瘾高涨
+
+—— 来自 vivo V2243A, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
