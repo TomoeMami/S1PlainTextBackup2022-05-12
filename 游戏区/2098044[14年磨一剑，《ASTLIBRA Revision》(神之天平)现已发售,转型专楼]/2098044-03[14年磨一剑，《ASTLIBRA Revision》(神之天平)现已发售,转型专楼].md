@@ -1803,3 +1803,12 @@ https://www.bilibili.com/read/cv19511254
 
 但有什么关系。人气是一回事，玩的开心就得了……也别多想。
 
+
+
+*****
+
+####  yzyzlhtsdw  
+##### 3150#       发表于 2022-12-28 06:49
+
+推到到第四章教堂打boss，为啥进不去那个被类似蛇身子的东西挡住的路啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
