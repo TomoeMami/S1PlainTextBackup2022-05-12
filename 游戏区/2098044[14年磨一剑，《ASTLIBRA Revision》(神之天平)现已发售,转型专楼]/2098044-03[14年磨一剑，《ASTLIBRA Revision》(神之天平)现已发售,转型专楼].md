@@ -1587,3 +1587,19 @@
 
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  白左  
+##### 3134#       发表于 2022-12-27 09:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59102032&amp;ptid=2098044" target="_blank">gwchobit 发表于 2022-12-27 02:18</a>
+
+因为游戏ost本身是免费的素材，经过作者巧手编排获得特殊的效果。
+
+想卖单独去沟通作者怕是工作量也够大。 ...</blockquote>
+我是想着做到游戏里算是商用了吧，那么应该都是能免费商用的素材
+
+单独打包卖大概也是可以的……吧[c:353]
+
