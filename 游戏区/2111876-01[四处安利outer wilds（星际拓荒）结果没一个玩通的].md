@@ -1429,3 +1429,27 @@ baba is you算是做题。
 
 游戏是好游戏 但是操作手感过于粗糙 而且容错率太低 有时失误需要重来 但这种失误并不是玩家的问题而是手感太烂以及设计问题，如在碎星空中通道移动 不小心摇杆推重了 可能被吸入核心黑洞送入太空随机某个点。需要玩家有耐心 没有耐心的像我 体验一下开头后面云通关得了
 
+
+
+*****
+
+####  noahhhh  
+##### 142#       发表于 2022-12-27 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59091361&amp;ptid=2111876" target="_blank">percy1234 发表于 2022-12-26 08:14</a>
+建议早点和解，除了晕3d这种体质问题，有些人就是解谜过敏</blockquote>
+游戏的camera有问题，拿手柄摇杆转动视角能明显的感受出来，高刷下更加严重<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  noahhhh  
+##### 143#       发表于 2022-12-27 10:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59095872&amp;ptid=2111876" target="_blank">mirari 发表于 2022-12-26 16:46</a>
+我到现在仍然认为outer wilds是我30年游戏生涯中遇到过最符合我理想的游戏，但显然还是属于小众的类型，只 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">来玩不，平板上买了个都没开始玩
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
