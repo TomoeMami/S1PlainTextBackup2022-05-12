@@ -1962,3 +1962,12 @@ CEO吧
  ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是那个，反正这样一来多出来的人就有点多了
 
+
+
+*****
+
+####  player3960  
+##### 10668#       发表于 2022-12-27 19:39
+
+5ch又要万恶的中华炮了，话说这次有中华炮吗，几个群里根本都没人拉票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
