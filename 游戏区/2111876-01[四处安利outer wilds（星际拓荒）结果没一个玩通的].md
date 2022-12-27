@@ -1388,3 +1388,16 @@ baba is you算是做题。
 我当然明白这一点，所以尝试安利的人已经不属于“大部分”轻度玩家了，都是一些有一定游戏阅历和审美的玩 ...</blockquote>
 差不多得了无关乎游戏阅历和审美，有些人就是对这题材或者游玩形式不感兴趣而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  国家免检虎B  
+##### 138#       发表于 2022-12-27 09:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59103151&amp;ptid=2111876" target="_blank">最终兵器狂战 发表于 2022-12-27 09:33</a>
+那么那种 要求xx秒之内打掉三个机关/跑过八个火圈/按掉一大坨qte一个不能错 这种的算是体育系解谜么？[f: ...</blockquote>
+动作系是异端<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus LE2100, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
