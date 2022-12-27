@@ -1812,3 +1812,14 @@ https://www.bilibili.com/read/cv19511254
 
 推到到第四章教堂打boss，为啥进不去那个被类似蛇身子的东西挡住的路啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  otakun  
+##### 3151#       发表于 2022-12-28 07:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59113119&amp;ptid=2098044" target="_blank">荡漾帆哥 发表于 2022-12-28 01:10</a>
+困难模式是魂斗罗吗久违的找到了开黑魂的感觉，在第六章开狂暴疯狂受苦，，， ...</blockquote>
+……总不能自己开挨打即死的狂暴就说别人是魂斗罗吧，这游戏大部分人都是起手就困难模式的，因为有成就。
+
