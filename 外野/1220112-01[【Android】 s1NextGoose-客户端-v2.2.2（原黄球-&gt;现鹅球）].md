@@ -47,3 +47,26 @@ https://bbs.saraba1st.com/2b/thread-2043123-330-1.html
 9897楼
 syl 现在有些麻将脸只显示代码[f:211]
 
+
+
+*****
+
+####  Milkyway  
+##### 1409#       发表于 2022-12-27 19:16
+
+lz有没有考虑过适配平板模式<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Litccc  
+##### 1410#       发表于 2022-12-27 19:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59105090&amp;ptid=1220112" target="_blank">hoyice 发表于 2022-12-27 12:26</a>
+
+https://bbs.saraba1st.com/2b/thread-2043123-330-1.html
+
+9897楼
+
+syl 现在有些麻将脸只显示代码[f:211] ...</blockquote>
+麻将脸现实代码应该是泥潭的问题，网页版也是这样
+
