@@ -1572,3 +1572,18 @@
 
 你这套“这个游戏虽然好，但是其中...不太尊重女性，我觉得...，请大家注意”已经没有意义了，说的越多只会退的越多
 
+
+
+*****
+
+####  黄昏的轮回  
+##### 3133#       发表于 2022-12-27 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59100401&amp;ptid=2098044" target="_blank">shyso 发表于 2022-12-26 23:03</a>
+楼没爬全，但也基本爬的差不多了，感觉有个点没什么人说，就是游戏中的女性角色塑造中政治不正确的部分
+
+我 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三四年前我可能觉得你说的还有点道理。2023年了都快，我只想说低俗黄段子他妈的多来点。反正对于会用这种理由来口诛笔伐的人，哪怕是女性角色穿的稍微清凉一点也会满火力攻击，横竖都是不会玩的人关心这种人的想法干什么。这两年我的体会就是跟这种傻逼没什么必要讲道理，傻逼越讨厌我越要大力吹。谁还不会上网冲浪是吧。
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

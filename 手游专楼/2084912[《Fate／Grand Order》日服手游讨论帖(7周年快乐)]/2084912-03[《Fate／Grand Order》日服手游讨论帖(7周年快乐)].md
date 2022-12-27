@@ -11726,3 +11726,12 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 这次的卡目前为止只有所长想抽一个
 
+
+
+*****
+
+####  roxas.sora  
+##### 4056#       发表于 2022-12-27 09:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">fgo的战斗策划脑子是不是有点问题，我看个剧情还要受虐么，锁助战还贼不好用，打吐了，纯纯恶心人
+
