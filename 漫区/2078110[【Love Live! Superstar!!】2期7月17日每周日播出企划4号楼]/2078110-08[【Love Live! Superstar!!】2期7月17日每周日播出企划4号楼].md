@@ -2334,3 +2334,16 @@ CEO吧
 —— 来自 S1Fun</blockquote>
 第一季动画字幕就是
 
+
+
+*****
+
+####  Kfly  
+##### 10704#       发表于 2022-12-28 00:25
+
+ 本帖最后由 Kfly 于 2022-12-28 00:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59112709&amp;ptid=2078110" target="_blank">仟音一心 发表于 2022-12-28 00:08</a>
+
+鱼直播时说过她用的就是花知晓</blockquote>是上上次直播，上次直播还说虽然没工商但花知晓寄了不少化妆品，难道有推荐给pay？
+“花知晓结一下广告费谢谢”
+
