@@ -2567,3 +2567,12 @@ c狐是boss战MVP
 
 打完之后，继续去伦敦打地铺，所以我是刷了个寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  布伦史塔德  
+##### 44036#       发表于 2022-12-27 16:01
+
+带个小牛蹭羁绊 硬是让我打出了古早苟队 你永远无法走出迷宫的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

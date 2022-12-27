@@ -1810,3 +1810,16 @@ twi：NiiDORO677901
 
 早就该发啦，等太久了。和nagi，nako都发过了，pay加油啊，跨年能不能出手。
 
+
+
+*****
+
+####  ads147147  
+##### 10654#       发表于 2022-12-27 16:07
+
+<img src="https://p.sda1.dev/9/94e27085ece3242a06505d313d146ff2/CMP_20221227160703729.jpg" referrerpolicy="no-referrer">
+之前的衣服投票，可香完全胜利。
+还有千恋。
+
+—— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
