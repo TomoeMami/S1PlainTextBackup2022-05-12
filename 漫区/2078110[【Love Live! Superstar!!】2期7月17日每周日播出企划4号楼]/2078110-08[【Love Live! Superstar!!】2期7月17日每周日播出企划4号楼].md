@@ -2260,3 +2260,23 @@ CEO吧
 可可中了单人肯定不会再有她了，不然得有人剩下了(硬要说一期op里堇恋也一起拍过视频，早期也有人说这是“ ...</blockquote>
 不是那个意思啦，我觉得可堇一组，然后恋一个人这个比较好吧。还是官方这样对恋太惨了。
 
+
+
+*****
+
+####  ruffian  
+##### 10698#       发表于 2022-12-27 23:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59112434&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-12-27 23:37:39</a></blockquote>还好了，堇恋至少还能啃c52乱炖时期的老本，确实有人惦记这对两年了(突然想起来我还投了可恋来着，不知道可x如果没被ban相关cp能排到什么位置
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  ruffian  
+##### 10699#       发表于 2022-12-27 23:51
+
+我猜这四对投票顺位是香千、红蓝、夏樱、堇恋。不知道可x如果没被ban的话会是什么顺位
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
