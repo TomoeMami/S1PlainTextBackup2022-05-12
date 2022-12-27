@@ -2019,3 +2019,46 @@ CEO吧
 5ch又要万恶的中华炮了，话说这次有中华炮吗，几个群里根本都没人拉票 ...</blockquote>
 这投票有墙，这就够阻拦一堆人了
 
+
+
+*****
+
+####  优妮可  
+##### 10674#       发表于 2022-12-27 20:01
+
+<blockquote>稀勢のささ 发表于 2022-12-27 19:52
+就没说单人跟双人是咋算的，所以我就投了一次意思了一下</blockquote>
+所以就觉得有点奇怪咯，上面衣服投票可香还能赢，这个没理由让可可单挂吧感觉。。
+
+*****
+
+####  ViyViy  
+##### 10675#       发表于 2022-12-27 20:07
+
+ 本帖最后由 ViyViy 于 2022-12-27 20:08 编辑 
+
+不想看到可香？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了这个别的想不出来了。这一事项优先级比让香音继续solo发扬光大都要优先，它真的，我哭死呢。
+反过来也可以说企划目前不想看见可堇了，反正双人保二争一的还是老娘相关，狗运营你自己选吧。
+
+*****
+
+####  player3960  
+##### 10676#       发表于 2022-12-27 20:09
+
+ 本帖最后由 player3960 于 2022-12-27 20:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59110193&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-12-27 20:01</a>
+
+所以就觉得有点奇怪咯，上面衣服投票可香还能赢，这个没理由让可可单挂吧感觉。。 ...</blockquote>
+我的理解是投出1+2+2+2+2，solo的权重比较高，solo出了，就不能进组合了
+
+我投的可可solo，又投了一组可香，其他随便选的，反正瞎投呗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  iuhehc  
+##### 10677#       发表于 2022-12-27 20:10
+
+感觉明年还真可能有机会在国内看live了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
