@@ -1832,3 +1832,12 @@ twi：NiiDORO677901
 
 虽然可香全通了打歌服，穿哪套都不新鲜，但是小星星还是众望所归啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 10656#       发表于 2022-12-27 16:33
+
+角度清奇点，但凡给可可安排一次center有可能情况就不一样了，现在这种吊着的情况必是可香小星星。最强的无声抗议。
+
