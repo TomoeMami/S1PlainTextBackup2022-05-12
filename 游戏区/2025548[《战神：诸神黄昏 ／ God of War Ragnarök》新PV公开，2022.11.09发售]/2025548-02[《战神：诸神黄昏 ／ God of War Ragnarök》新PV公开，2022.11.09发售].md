@@ -14,3 +14,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">玩了接近20个小时，怎么感觉玩了个精致版的英灵殿...
 
+
+
+*****
+
+####  Hidewhite  
+##### 1957#       发表于 2022-12-27 12:30
+
+废弃村庄没通关前应该是回不去的，通关后给世界树种子开传送门过去。
+

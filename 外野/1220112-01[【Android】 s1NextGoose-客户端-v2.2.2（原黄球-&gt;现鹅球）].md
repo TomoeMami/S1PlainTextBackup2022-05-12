@@ -32,3 +32,18 @@
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  hoyice  
+##### 1408#       发表于 2022-12-27 12:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59104831&amp;ptid=1220112" target="_blank">ykrank 发表于 2022-12-27 11:59</a>
+有没有示例帖子？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
+https://bbs.saraba1st.com/2b/thread-2043123-330-1.html
+9897楼
+syl 现在有些麻将脸只显示代码[f:211]
+
