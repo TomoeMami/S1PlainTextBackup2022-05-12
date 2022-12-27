@@ -1544,3 +1544,23 @@ subnatica和这个是我过去两年玩得最爽的游戏，然后就是witness 
 
 —— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  fdodo  
+##### 154#         楼主| 发表于 2022-12-27 12:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59104501&amp;ptid=2111876" target="_blank">otakun 发表于 2022-12-27 11:33</a>
+就这安利态度就不值得去玩了，什么不玩后悔，吹得上天，我自己游戏出来玩过几天，最后制止了一个阳痿的朋友 ...</blockquote>
+你说的对
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  5353  
+##### 155#       发表于 2022-12-27 12:16
+
+我每次玩都是连头都开不了，一直卡在最开始，不知道怎么推进。
+

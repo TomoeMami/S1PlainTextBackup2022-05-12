@@ -11850,3 +11850,19 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 2022-12-27 12:07 上传
 
+
+
+*****
+
+####  UNISONIA  
+##### 4068#       发表于 2022-12-27 12:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59103521&amp;ptid=2084912" target="_blank">仰望神的括约肌 发表于 2022-12-27 10:07</a>
+
+271的故事节奏比261舒服多了 注水也还是有，那个踢足球多半是蹭世界杯吧，照这样下去272把之前主线大部分坑 ...</blockquote>
+蹭世界杯 ×
+
+边看世界杯边写的前篇 √
+
+阿菌这次就差明着说我是世界杯开幕了才开始写的了
+

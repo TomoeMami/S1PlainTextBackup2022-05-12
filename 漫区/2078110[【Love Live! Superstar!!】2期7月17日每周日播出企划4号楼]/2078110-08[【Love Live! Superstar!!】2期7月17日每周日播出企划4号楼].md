@@ -1658,3 +1658,20 @@ CBBCB103-0551-4137-A886-801508B429A4.jpeg
 @xsinx666 https://twitter.com/xsinx666/status/1607221424422531074</blockquote>
 洛丽塔果然还是得要有欧美血统的人穿才对味呀
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10640#       发表于 2022-12-27 12:21
+
+<img src="https://img.saraba1st.com/forum/202212/27/122005ule6xn6ientnte6n.jpg" referrerpolicy="no-referrer">
+
+<strong>VqZgCQw.jpg</strong> (136.39 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-27 12:20 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次live服换装的投票结果，你们这些粉丝真就不识抬举，还想着可香
+
