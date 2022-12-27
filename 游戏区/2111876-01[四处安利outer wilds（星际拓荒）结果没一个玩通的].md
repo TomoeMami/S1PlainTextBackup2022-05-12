@@ -1580,3 +1580,16 @@ subnatica和这个是我过去两年玩得最爽的游戏，然后就是witness 
 
 和tunic有点像，都是对美术题材很感兴趣，但不看攻略打不下去看了攻略没有乐趣，像tunic对着视频全收集了三张图感觉这么玩实在有病就直接云结局了。outer wilds刚出就在ps4买了，然后试错叠加低帧数弃坑，后来xgp和steam都重开过，steam还买了dlc，勉强以每年几个谜题的速度推进，等挫败感过去再继续，可能哪天这个制作组出新作才有动力一气打通吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  otakun  
+##### 158#       发表于 2022-12-27 13:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59104988&amp;ptid=2111876" target="_blank">fdodo 发表于 2022-12-27 12:16</a>
+你说的对
+
+—— 来自 OnePlus IN2010, Android 12上的 S1Next-鹅版 v2.5.4</blockquote>
+知错能改还是乖孩子<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+

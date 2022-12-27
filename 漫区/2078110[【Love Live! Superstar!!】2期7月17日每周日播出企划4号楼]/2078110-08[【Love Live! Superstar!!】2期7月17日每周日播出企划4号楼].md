@@ -1684,3 +1684,23 @@ CBBCB103-0551-4137-A886-801508B429A4.jpeg
 
 这红蓝是什么情况，推的默契度这么高的吗。
 
+
+
+*****
+
+####  saya1892  
+##### 10642#       发表于 2022-12-27 13:13
+
+大家就是喜欢可香千恋，你官方按头强推也没用<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+虽然恋常夏应该是为了弥补nagi的遗憾，但最终结果还是可香千恋
+
+土妹子是有点惨，自己的C位曲是啥都不知道，只能拉GORESTART来凑数
+
+*****
+
+####  lj205  
+##### 10643#       发表于 2022-12-27 13:17
+
+哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
