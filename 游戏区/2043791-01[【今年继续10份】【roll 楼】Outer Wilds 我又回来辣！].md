@@ -3125,3 +3125,14 @@ roll 到我就送朋友一份<img src="https://static.saraba1st.com/image/smiley
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">凑个热闹
 
+
+
+*****
+
+####  Dr.bright  
+##### 383#       发表于 2022-12-27 17:45
+
+来冲冲好运
+
+—— 来自 Xiaomi M2103K19I, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+

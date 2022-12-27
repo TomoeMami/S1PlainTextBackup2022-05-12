@@ -99,3 +99,13 @@ fes拖拖拉拉，总算眼瞅着能在周年左右出完一轮了
 
 我擦，几天白嫖全是sr保底，忍不住又抽了20连出了静香和486fes<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  花开安菲路  
+##### 7049#       发表于 2022-12-27 17:49
+
+草，油管推荐到然后关注的玩土豆的小管人，10天前被隐退了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+我说怎么不更新了，连订阅都找不到了，油管视频推特都全寄了，也就才活动了一年左右吧，其实人气还行了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
