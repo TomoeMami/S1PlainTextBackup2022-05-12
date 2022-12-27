@@ -1680,3 +1680,17 @@
 
 另外有记得哪里读到过说魔族最早只是比较大些的昆虫，后来才进化成人类威胁
 
+
+
+*****
+
+####  Sannapolis  
+##### 3140#       发表于 2022-12-27 12:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59104659&amp;ptid=2098044" target="_blank">永远的访客 发表于 2022-12-27 11:44</a>
+
+第5章结束后说了，魔王死了后东方大陆出现了新魔王，是按蜂群模式进化出来的云云。
+
+另外有记得哪里读到过 ...</blockquote>
+古代人类对魔兽和魔王的说法不能尽信，那就是在真相揭晓前放的烟幕弹
+
