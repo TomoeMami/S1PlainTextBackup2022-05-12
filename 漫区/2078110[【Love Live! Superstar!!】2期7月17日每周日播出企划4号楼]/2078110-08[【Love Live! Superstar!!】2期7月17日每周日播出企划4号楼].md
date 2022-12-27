@@ -2321,3 +2321,16 @@ CEO吧
 由手机上传
 2022-12-28 00:08 上传
 
+
+
+*****
+
+####  仟音一心  
+##### 10703#       发表于 2022-12-28 00:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59112346&amp;ptid=2078110" target="_blank">愛さ実 发表于 2022-12-27 23:28</a>
+莉耶拉草，这算是官方译名了吗
+
+—— 来自 S1Fun</blockquote>
+第一季动画字幕就是
+
