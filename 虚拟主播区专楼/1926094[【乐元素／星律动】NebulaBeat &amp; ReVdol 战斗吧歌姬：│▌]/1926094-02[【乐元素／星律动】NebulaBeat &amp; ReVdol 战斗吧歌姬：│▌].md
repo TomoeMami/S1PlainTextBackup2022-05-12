@@ -12657,3 +12657,24 @@ wb更了   太劲了
 
 发布者本人是不是固定留000001号的？那1号肯定是官号自己了吧，之后按进厂顺序吉2九3，鸭鸭自认一个1700，纸哥我记得谁提过一嘴说要4472？
 
+
+
+*****
+
+####  ladiesman802  
+##### 2820#       发表于 2022-12-27 18:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59108015&amp;ptid=1926094" target="_blank">MaxFOrder 发表于 2022-12-27 16:44</a>
+
+发布者本人是不是固定留000001号的？那1号肯定是官号自己了吧，之后按进厂顺序吉2九3，鸭鸭自认一个1700， ...</blockquote>
+4472是整活
+
+
+
+*****
+
+####  MaxFOrder  
+##### 2821#       发表于 2022-12-27 18:59
+
+不就是为了这个梗么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4472这个梗八成得像卡姐的1700一样被长久地念叨下去
+
