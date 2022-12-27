@@ -1524,3 +1524,23 @@ baba is you算是做题。
 我给八岁的弟弟玩，上手的比我还快
 可能最重要的还是好奇心吧
 
+
+
+*****
+
+####  abc12354aa  
+##### 152#       发表于 2022-12-27 12:03
+
+subnatica和这个是我过去两年玩得最爽的游戏，然后就是witness tunic啥的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  keenkiller  
+##### 153#       发表于 2022-12-27 12:06
+
+开飞船太痛苦了，我放弃了
+
+—— 来自 Xiaomi Mi 10 Pro, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
