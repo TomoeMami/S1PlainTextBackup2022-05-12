@@ -1823,3 +1823,12 @@ twi：NiiDORO677901
 
 —— 来自 Xiaomi 2106118C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  player3960  
+##### 10655#       发表于 2022-12-27 16:15
+
+虽然可香全通了打歌服，穿哪套都不新鲜，但是小星星还是众望所归啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

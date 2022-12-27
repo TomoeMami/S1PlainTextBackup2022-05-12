@@ -1653,3 +1653,32 @@ subnatica和这个是我过去两年玩得最爽的游戏，然后就是witness 
 
 风怒
 
+
+
+*****
+
+####  mirari  
+##### 164#       发表于 2022-12-27 16:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59103922&amp;ptid=2111876" target="_blank">noahhhh 发表于 2022-12-27 10:41</a>
+
+来玩不，平板上买了个都没开始玩
+
+—— 来自 S1Fun</blockquote>
+[https://steamcommunity.com/id/mirari1st/](https://steamcommunity.com/id/mirari1st/)
+
+加个好友先，就是我基本都得11点后上线
+
+*****
+
+####  yanzhunxi  
+##### 165#       发表于 2022-12-27 16:18
+
+<blockquote>张叔夜 发表于 2022-12-27 15:38
+就一定要按着别人头去玩自己安利的游戏才开心吗？
+
+星际拓荒我送出去五份，通关了两份，其他三人也最起码玩 ...</blockquote>
+我只想说……伊苏8真的……太容易上手了
+
+我累到不行啥都不想玩的时候，还可以刷它两个小时
+
