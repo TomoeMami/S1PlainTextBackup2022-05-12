@@ -1884,3 +1884,24 @@ ts...是什么...有点跟不上冲浪速度了</blockquote>tiny stars……
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  nufawneafg  
+##### 10661#       发表于 2022-12-27 18:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59109001&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-27 18:09</a>
+tiny stars……
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端</blockquote>
+哦哦，我的我的，脑子没转过来
+以为是什么申必中文缩写，该下线了 <img src="https://static.saraba1st.com/image/smiley/face2017/200.png" referrerpolicy="no-referrer">
+
+*****
+
+####  csolfans  
+##### 10662#       发表于 2022-12-27 18:19
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天手渡会鱼说带sayu去吃上海料理了
+
