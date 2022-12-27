@@ -2212,3 +2212,40 @@ CEO吧
 
 一共就五期一人肯定只给你上一次啊,不然就有人上不了了
 
+
+
+*****
+
+####  ruffian  
+##### 10693#       发表于 2022-12-27 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59112213&amp;ptid=2078110" target="_blank">优妮可 发表于 2022-12-27 23:15:47</a>
+草，堇和恋一组。可堇，可恋不好么。硬说的话，nagi和pay拍了抖音也行吧。</blockquote>可可中了单人肯定不会再有她了，不然得有人剩下了(硬要说一期op里堇恋也一起拍过视频，早期也有人说这是“大小姐组”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  lj205  
+##### 10694#       发表于 2022-12-27 23:23
+
+居然不让堇和ceo？
+
+*****
+
+####  稀勢のささ  
+##### 10695#       发表于 2022-12-27 23:25
+
+ 本帖最后由 稀勢のささ 于 2022-12-27 23:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">堇恋投票理由里尽是些俩人身材好，站一起像画一样之类的，连CEO跟きなこ都能扯些互相打气或者懂流行的CEO给きなこ选泳衣之类的东西出来
+
+*****
+
+####  愛さ実  
+##### 10696#       发表于 2022-12-27 23:28
+
+莉耶拉草，这算是官方译名了吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

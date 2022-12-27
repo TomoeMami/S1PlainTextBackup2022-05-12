@@ -1368,3 +1368,12 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 涨水封路的那种就只能攒十字架？我要去擎天塔底部做秘密任务，老是被堵啊
 
+
+
+*****
+
+####  tansapple  
+##### 598#       发表于 2022-12-27 23:30
+
+秘密任务可以等开了无限模式之后再去做，开无限模式不会有任何死神来干扰<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
