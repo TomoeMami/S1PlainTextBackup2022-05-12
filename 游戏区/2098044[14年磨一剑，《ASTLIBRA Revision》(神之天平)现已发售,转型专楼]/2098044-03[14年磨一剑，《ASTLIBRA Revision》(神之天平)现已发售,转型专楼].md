@@ -1773,3 +1773,15 @@ https://www.bilibili.com/read/cv19511254
 
 困难模式是魂斗罗吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">久违的找到了开黑魂的感觉，在第六章开狂暴疯狂受苦，，，
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3148#       发表于 2022-12-28 01:28
+
+ 本帖最后由 红魔馆的糖 于 2022-12-28 01:30 编辑 
+
+觉得自己数值太高了就修改器从地狱调成了荒谬，
+然后刚进新章打斗技场就被被群星和会长打晕了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
