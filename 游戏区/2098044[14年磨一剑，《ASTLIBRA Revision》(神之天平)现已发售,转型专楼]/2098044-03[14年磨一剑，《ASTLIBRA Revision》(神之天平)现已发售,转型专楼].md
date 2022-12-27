@@ -1755,3 +1755,12 @@ https://www.bilibili.com/read/cv19511254
 想问一下后撤到底该怎么按，我都第六章了从没有按成功过，键位改了也用不出来，我甚至是通过设置里的键位才 ...</blockquote>
 后撤步就是c 一下，确实应该是没拿到技能。
 
+
+
+*****
+
+####  goudante  
+##### 3146#       发表于 2022-12-27 22:43
+
+今天才开始玩，普通难度第一个boss纯刮痧刮了10分钟才过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
