@@ -1744,3 +1744,14 @@ https://www.bilibili.com/read/cv19511254
 想问一下后撤到底该怎么按，我都第六章了从没有按成功过，键位改了也用不出来，我甚至是通过设置里的键位才 ...</blockquote>
 应该是没拿后撤步的奥义卷轴，那东西在第一章boss的前一个房间的右上角
 
+
+
+*****
+
+####  落花微塵  
+##### 3145#       发表于 2022-12-27 20:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59108998&amp;ptid=2098044" target="_blank">765PRO 发表于 2022-12-27 18:09</a>
+想问一下后撤到底该怎么按，我都第六章了从没有按成功过，键位改了也用不出来，我甚至是通过设置里的键位才 ...</blockquote>
+后撤步就是c 一下，确实应该是没拿到技能。
+

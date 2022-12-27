@@ -2007,3 +2007,15 @@ CEO吧
 有点不太懂，是不是选项里是一个单人和四对，投可可单人的比其她单人多，同时又比可可加一个其她人的组合也 ...</blockquote>
 就没说单人跟双人是咋算的，所以我就投了一次意思了一下
 
+
+
+*****
+
+####  ViyViy  
+##### 10673#       发表于 2022-12-27 19:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59109919&amp;ptid=2078110" target="_blank">player3960 发表于 2022-12-27 19:39</a>
+
+5ch又要万恶的中华炮了，话说这次有中华炮吗，几个群里根本都没人拉票 ...</blockquote>
+这投票有墙，这就够阻拦一堆人了
+
