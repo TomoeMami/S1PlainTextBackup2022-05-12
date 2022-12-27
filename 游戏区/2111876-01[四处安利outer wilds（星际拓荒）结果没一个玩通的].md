@@ -1717,3 +1717,36 @@ https://steamcommunity.com/id/mirari1st/
 11点是白天还是晚上</blockquote>
 晚上<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  DeepResidual  
+##### 169#       发表于 2022-12-28 03:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59096144&amp;ptid=2111876" target="_blank">shyso 发表于 2022-12-26 17:10</a>
+
+作为anti ow党，我再说个暴论吧，真的是暴论，本来不想说的，因为在没通关的情况下我觉得这样说非常不负责 ...</blockquote>
+说了这么多归结下来不就是操作太难探索不动吗？
+
+操作大家水平不一样就不提了，我就反驳一点，这个游戏的lore绝对不无聊。哪怕单纯用文字平铺直叙下来也是一段激昂又浪漫的科幻史诗，叠加用整个星际来做场景叙事的宏大手笔，几乎可以算是游戏史上的独一份了。
+
+*****
+
+####  DeepResidual  
+##### 170#       发表于 2022-12-28 03:17
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59097382&amp;ptid=2111876" target="_blank">她的猫 发表于 2022-12-26 18:56</a>
+
+这是核心，我知道，但是无法理解众人都能理解并接受。我没法坦然接受这个结局。 ...</blockquote>
+因为不是“众人理解并接受”，其他人不过是你作为有意识的观察者踏上宇宙之眼之后的量子投影，简言之就是你内心的想法借他人之口说出而已。
+
+*****
+
+####  DeepResidual  
+##### 171#       发表于 2022-12-28 03:28
+
+顺带提一下，这游戏真的不算恐怖，包括dlc
+
+我是一个任何恐怖游戏恐怖电影都不敢碰的人，l4d只敢联机生化完全玩不下去。开dlc之前无数次给自己打气，但玩下来真的没什么。恐怖程度最多和死亡搁浅一个水平。
+

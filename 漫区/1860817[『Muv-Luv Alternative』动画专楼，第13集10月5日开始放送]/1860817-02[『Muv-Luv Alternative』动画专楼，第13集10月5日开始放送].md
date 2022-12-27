@@ -2945,3 +2945,17 @@ ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不
 请问这是？</blockquote>
 应该是动画的设定集吧
 
+
+
+*****
+
+####  KOPKOM  
+##### 2241#         楼主| 发表于 2022-12-28 02:26
+
+ 本帖最后由 KOPKOM 于 2022-12-28 02:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59109570&amp;ptid=1860817" target="_blank">getpain 发表于 2022-12-27 19:06</a>
+
+请问这是？</blockquote>
+
+马上就要发售的月刊设定集，每个月都会出一本薄薄的设定集，里面会有详细的几个条目和访谈，我看了一下创刊号的条目应该就是管人和吹雪了
+

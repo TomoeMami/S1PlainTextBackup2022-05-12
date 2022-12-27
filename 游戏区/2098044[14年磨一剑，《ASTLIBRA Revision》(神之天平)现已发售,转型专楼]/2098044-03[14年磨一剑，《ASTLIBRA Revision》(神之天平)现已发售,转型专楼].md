@@ -1785,3 +1785,21 @@ https://www.bilibili.com/read/cv19511254
 觉得自己数值太高了就修改器从地狱调成了荒谬，
 然后刚进新章打斗技场就被被群星和会长打晕了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  asdfg  
+##### 3149#       发表于 2022-12-28 03:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59103094&amp;ptid=2098044" target="_blank">白左 发表于 2022-12-26 20:25</a>
+
+哈哈（尴尬的笑声
+
+以前日本就流行加一堆性骚扰色色桥段，凡是不那么严肃的rpg总要来上几段，包括DQ
+
+现在 ...</blockquote>
+严格意义来说这个游戏三观还是挺正的，毕竟男主还是从一而终对身边玩儿命倒贴的黑视而不见的（当然你那个救人的方式吧，对吧）……但纯男性编剧的特点太明显了……
+
+但有什么关系。人气是一回事，玩的开心就得了……也别多想。
+

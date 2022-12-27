@@ -2422,3 +2422,15 @@ copy插件怎么又能用了？
 
 问个问题，maofly的源是不是从tachiyomi下了
 
+
+
+*****
+
+####  yenvy  
+##### 242#       发表于 2022-12-28 02:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59112901&amp;ptid=2010665" target="_blank">周藤信彦 发表于 2022-12-28 00:34</a>
+问个问题，maofly的源是不是从tachiyomi下了</blockquote>
+是
+github的pr说是网站已关闭，然而并没有
+
