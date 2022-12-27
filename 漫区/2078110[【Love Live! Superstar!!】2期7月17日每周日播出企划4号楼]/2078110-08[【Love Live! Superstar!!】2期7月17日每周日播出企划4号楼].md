@@ -2129,3 +2129,14 @@ CEO吧
 拉板好像就一个串说这事，居然还很认真的分析多人组合的情况，不得劲</blockquote>
 刚出的时候还有另一个串，2L就是中华炮选择了SOLO<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ruffian  
+##### 10685#       发表于 2022-12-27 22:08
+
+还尼玛中华炮呢小日本纯属输不起，就星2这可黑写出来似的剧本中华炮指不定打谁身上了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
