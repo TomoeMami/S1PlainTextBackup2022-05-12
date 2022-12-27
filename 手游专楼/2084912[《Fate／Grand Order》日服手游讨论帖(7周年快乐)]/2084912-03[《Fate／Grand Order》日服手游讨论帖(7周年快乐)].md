@@ -11954,3 +11954,16 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 虽然很残忍但实际清凉剂，比起另两位有点遥不可及的算是比较。。。亲民？
 
+
+
+*****
+
+####  budong  
+##### 4075#       发表于 2022-12-27 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59111583&amp;ptid=2084912" target="_blank">zooandtoo 发表于 2022-12-27 22:14</a>
+剧情看完反而很喜欢卡玛图佐
+
+虽然很残忍但实际清凉剂，比起另两位有点遥不可及的算是比较。。。亲民 ...</blockquote>
+遥不可及的是哪两个
+
