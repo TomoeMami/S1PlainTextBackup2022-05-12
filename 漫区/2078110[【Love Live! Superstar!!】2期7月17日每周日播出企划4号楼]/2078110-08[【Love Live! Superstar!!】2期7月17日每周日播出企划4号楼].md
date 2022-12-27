@@ -2073,3 +2073,22 @@ CEO吧
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  ViyViy  
+##### 10679#       发表于 2022-12-27 20:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59110481&amp;ptid=2078110" target="_blank">ruffian 发表于 2022-12-27 20:24</a>
+
+牛蛙，这投票有墙，而且好像一个手机只能投一次，这得挡了大部分中华炮了，居然能赢，厉害的虽然5ch ...</blockquote>
+原来一个设备只能投一次啊？我那段时间是估算过了24小时就去投一票，隔两三天换个IP<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  adw667  
+##### 10680#       发表于 2022-12-27 20:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">没记错的话这个投票当初在选所在地区的时候是有中国大陆这个选项的，说明官方也把中华炮考虑进去了，他既然心这么大应该不至于玩不起
+
