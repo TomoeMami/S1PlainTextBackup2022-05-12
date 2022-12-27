@@ -1764,3 +1764,12 @@ https://www.bilibili.com/read/cv19511254
 
 今天才开始玩，普通难度第一个boss纯刮痧刮了10分钟才过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  荡漾帆哥  
+##### 3147#       发表于 2022-12-28 01:10
+
+困难模式是魂斗罗吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">久违的找到了开黑魂的感觉，在第六章开狂暴疯狂受苦，，，
+
