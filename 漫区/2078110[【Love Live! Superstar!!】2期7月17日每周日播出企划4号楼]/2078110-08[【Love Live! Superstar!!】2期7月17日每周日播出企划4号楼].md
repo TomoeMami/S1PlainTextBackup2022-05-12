@@ -2117,3 +2117,15 @@ CEO吧
 
 这么晚了打铁也来pay的ins直播
 
+
+
+*****
+
+####  稀勢のささ  
+##### 10684#       发表于 2022-12-27 21:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59110837&amp;ptid=2078110" target="_blank">ViyViy 发表于 2022-12-27 20:56</a>
+
+拉板好像就一个串说这事，居然还很认真的分析多人组合的情况，不得劲</blockquote>
+刚出的时候还有另一个串，2L就是中华炮选择了SOLO<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
