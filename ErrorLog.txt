@@ -1,5 +1,3 @@
 
 'NoneType' object has no attribute 'group'
 !!error:id=2112012
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/外野/2111810-01[经过奥酱一事，我对现行的人类进化成太空种族彻底不抱希望了].md'
-!!error:id=2111810
