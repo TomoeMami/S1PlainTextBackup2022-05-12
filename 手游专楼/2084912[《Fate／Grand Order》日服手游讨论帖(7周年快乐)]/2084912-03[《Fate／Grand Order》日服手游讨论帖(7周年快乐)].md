@@ -12277,3 +12277,15 @@ fgo剧情相关的东西，你所有的拉垮想象都可以默认是对的，�
 手里六个金弓，伊丝塔拿破仑源为朝皇女大王和红茶，除了红茶都是1宝</blockquote>
 源大炮虽然是人阵营，但是对秩序特攻，还自带无敌贯通，小麻雀刚好是秩序，也不是不可以？<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  J-002  
+##### 4102#       发表于 2022-12-29 02:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59124952&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-29 00:44</a>
+
+源大炮虽然是人阵营，但是&amp;# ...</blockquote>
+ORT都打完了，无所谓了
+
