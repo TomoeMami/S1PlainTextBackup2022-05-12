@@ -12089,3 +12089,15 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 本身又是被集火的状态，打到第二罐血左右就要退场了，后面就仇凛一个有漂浮特性能的还能动，还被各种不能动的发牌卡手。也许一开始就单挑，或者全上能动的打手角色，体验会更好一些吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  人生啊  
+##### 4086#       发表于 2022-12-28 14:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114167&amp;ptid=2084912" target="_blank">kuarwbwe 发表于 2022-12-28 08:30</a>
+
+也不知道为啥，我现在总有种你游2.0收尾大概率会很仓促的感觉。希望是因为我不懂日语，只看剧透产生的错觉 ...</blockquote>
+fgo剧情相关的东西，你所有的拉垮想象都可以默认是对的，蘑菇最近越来越随便了
+

@@ -184,3 +184,12 @@ Karin's episode
 
 详细内容均在本月发售的Lovelive!系列综合杂志，不要错过哦～
 
+
+
+*****
+
+####  笋狐  
+##### 6816#       发表于 2022-12-28 14:45
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太健全了，看着像是迷路来的（这个脚画得好怪）
+
