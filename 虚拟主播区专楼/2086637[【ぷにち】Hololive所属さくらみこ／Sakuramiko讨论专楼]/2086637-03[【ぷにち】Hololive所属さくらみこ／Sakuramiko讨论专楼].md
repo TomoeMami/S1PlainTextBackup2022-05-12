@@ -7790,3 +7790,15 @@ CPU，没意思。
 
 我投的大头还真赢了
 
+
+
+*****
+
+####  大厨麦当牛  
+##### 3733#       发表于 2022-12-28 23:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59123620&amp;ptid=2086637" target="_blank">rs5621 发表于 2022-12-28 22:32</a>
+
+她真的是照真人捏的啊</blockquote>
+我很期待她捏夸夸或者百鬼，就看她敢不敢了。
+

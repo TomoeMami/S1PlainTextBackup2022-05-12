@@ -73,3 +73,19 @@ win4和oxp2到手估计奥克7000系u都出了</blockquote>不至于，奥克七
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  机翻猫  
+##### 576#       发表于 2022-12-28 23:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59011654&amp;ptid=2086469" target="_blank">KTD 发表于 2022-12-19 20:10</a>
+
+收到了ayaneo2 16+1黑 
+
+机子做工是真漂亮，手感摸上去也舒服
+
+画面非常流畅，把机器人大战30捧在手心的感动</blockquote>
+老哥想问下机战30最低多少W可以流畅跑
+
