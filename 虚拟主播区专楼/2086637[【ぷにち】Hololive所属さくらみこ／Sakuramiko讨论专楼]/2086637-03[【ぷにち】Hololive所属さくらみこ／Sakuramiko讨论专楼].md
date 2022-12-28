@@ -7652,3 +7652,22 @@ CPU，没意思。
 
 其他人不太可能操作吧，还要重新学习游戏操作，而且这游戏其他人有基本不可能以后播，也就是学了白学，还很难miko搞了这么久都没完全学会
 
+
+
+*****
+
+####  holoan  
+##### 3723#         楼主| 发表于 2022-12-28 16:16
+
+苍树梅老师的
+
+八字母
+
+<img src="https://img.saraba1st.com/forum/202212/28/161643x5y8qyy38qehqdqp.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (164.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 16:16 上传
+
