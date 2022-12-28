@@ -12113,3 +12113,21 @@ fgo剧情相关的东西，你所有的拉垮想象都可以默认是对的，�
 最后那个两血条雨神真有点折磨，虽然尼莫在场上能防眩晕，但他伤害真的不够啊，梅莉+C呆辅助，宝具一发也就 ...</blockquote>
 输出还是得指望自己的，虽然这样的话单拐充能比较吃紧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  areklose  
+##### 4088#       发表于 2022-12-28 15:56
+
+ 本帖最后由 areklose 于 2022-12-28 15:57 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">没看攻略。让我觉得比较烦也就是那个仇。至于雨神。ELS爆杀。当然烦也还是挺菜的。其实主要手上一堆灵脉石。真是随便脚过去。现在还有一大堆等着过期
+
+*****
+
+####  quanlix  
+##### 4089#       发表于 2022-12-28 15:57
+
+水绘+c呆+系统给的尼莫，刷个发牌俩宝具就把雨神扬了
+
