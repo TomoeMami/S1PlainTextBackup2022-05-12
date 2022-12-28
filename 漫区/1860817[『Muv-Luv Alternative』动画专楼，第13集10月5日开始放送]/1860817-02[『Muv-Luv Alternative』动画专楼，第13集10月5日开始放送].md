@@ -2959,3 +2959,19 @@ ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不
 
 马上就要发售的月刊设定集，每个月都会出一本薄薄的设定集，里面会有详细的几个条目和访谈，我看了一下创刊号的条目应该就是管人和吹雪了
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2242#       发表于 2022-12-28 09:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59113500&amp;ptid=1860817" target="_blank">KOPKOM 发表于 2022-12-28 02:26</a>
+马上就要发售的月刊设定集，每个月都会出一本薄薄的设定集，里面会有详细的几个条目和访谈，我看了一下创 ...</blockquote>
+设定集
+也要
+挤牙膏
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
