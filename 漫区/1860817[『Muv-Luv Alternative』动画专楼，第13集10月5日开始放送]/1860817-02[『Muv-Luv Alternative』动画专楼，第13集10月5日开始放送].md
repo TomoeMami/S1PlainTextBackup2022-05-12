@@ -2975,3 +2975,15 @@ ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不
 
 —— 来自 OnePlus HD1900, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  cauchua  
+##### 2243#       发表于 2022-12-28 10:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59101119&amp;ptid=1860817" target="_blank">jerryoq1 发表于 2022-12-26 23:58</a>
+
+一步臭棋呗，我猜金主原意可能是想互相引流一下，但他们不懂抹布也不懂管人 ...</blockquote>
+从第二季戏份来看也谈不上多臭吧，原作党看来女武神小队多了一个路人角色，多给了几个镜头。
+
