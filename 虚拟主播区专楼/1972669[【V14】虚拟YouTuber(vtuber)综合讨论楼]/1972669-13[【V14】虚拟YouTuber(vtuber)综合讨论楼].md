@@ -2080,3 +2080,16 @@ Nornis这个新宿3Dlive有点新鲜
 https://youtu.be/Km1ph9yGe54
 要不是跑团没人看我看V圈迟早大和偕<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ヒトニナル  
+##### 18191#       发表于 2022-12-28 18:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59120242&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2022-12-28 18:00</a>
+https://youtu.be/Km1ph9yGe54
+要不是跑团没人看我看V圈迟早大和偕</blockquote>
+【探索者歌合戦～年末スペシャル～-哔哩哔哩】 [https://b23.tv/qcRZ3Co](https://b23.tv/qcRZ3Co)
+给你贴个B站链接好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
