@@ -12156,3 +12156,17 @@ fgo剧情相关的东西，你所有的拉垮想象都可以默认是对的，�
 最后一管血是爷爷单挑，麻雀剩个血皮时开了回避，我这边已经弹 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻雀我是某冠位暴击猩猩一拳一条血
 
+
+
+*****
+
+####  里村紅葉  
+##### 4092#       发表于 2022-12-28 19:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59120681&amp;ptid=2084912" target="_blank">J-002 发表于 2022-12-28 18:43</a>
+
+这次打得最悲催的是麻雀，各种不顺
+
+最后一管血是爷爷单挑，麻雀剩个血皮时开了回避，我这边已经弹 ...</blockquote>
+麻雀被我小黑三回合三个宝具直接干碎了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
