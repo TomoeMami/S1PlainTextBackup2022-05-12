@@ -1930,3 +1930,15 @@ https://www.bilibili.com/read/cv19511254
 
 谁能告诉我打败阿努丽斯，鸟哥消失后怎么又回来了？
 
+
+
+*****
+
+####  tansapple  
+##### 3162#       发表于 2022-12-28 17:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119793&amp;ptid=2098044" target="_blank">persona 发表于 2022-12-28 17:19</a>
+
+谁能告诉我打败阿努丽斯，鸟哥消失后怎么又回来了？</blockquote>
+善用远程神器：弩。其实核心思路就是用远程攻击逃课赖死她。
+

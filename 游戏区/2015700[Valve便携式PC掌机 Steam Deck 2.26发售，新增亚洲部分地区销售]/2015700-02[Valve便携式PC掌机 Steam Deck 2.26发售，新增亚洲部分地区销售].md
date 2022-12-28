@@ -234,3 +234,24 @@ deck玩自走棋好使吗，操作棋子用触摸板吗
 —— 来自 S1Fun</blockquote>
 在steam os运行的游戏我记着可以自己手动调整按键，你可以根据需要进行调整，实在不行连接个蓝牙键鼠也可以
 
+
+
+*****
+
+####  远野四季  
+##### 2012#       发表于 2022-12-28 17:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119721&amp;ptid=2015700" target="_blank">leo204672099 发表于 2022-12-28 17:13</a>
+在steam os运行的游戏我记着可以自己手动调整按键，你可以根据需要进行调整，实在不行连接个蓝牙键鼠也可 ...</blockquote>
+目前感觉键盘可以轻松映射到按键上，而频繁的鼠标操作比较麻烦，自走棋需要用鼠标把棋子拉到棋盘格子上，疯狂D牌的时候需要频繁用鼠标移动棋子位置，所以想问问咋玩的
+接键鼠还得有桌面，就不能躺平玩了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  脚本水平  
+##### 2013#       发表于 2022-12-28 17:28
+
+机器销量有统计吗？有50-100w？
+
