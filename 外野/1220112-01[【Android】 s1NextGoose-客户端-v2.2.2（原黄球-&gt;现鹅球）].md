@@ -83,3 +83,17 @@ lz有没有考虑过适配平板模式</blockquote>
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Milkyway  
+##### 1412#       发表于 2022-12-28 19:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59120790&amp;ptid=1220112" target="_blank">ykrank 发表于 2022-12-28 18:54</a>
+
+分屏之类？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 S1Next-鹅版 v2.5.4</blockquote>
+是的，平板或者折叠屏都挺需要这个模式的吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

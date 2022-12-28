@@ -1784,3 +1784,21 @@ https://steamcommunity.com/id/mirari1st/
 
 一个玩家很难同时享受这两点，很容易感到其中一者boring。
 
+
+
+*****
+
+####  哈萨维·诺亚  
+##### 174#       发表于 2022-12-28 19:03
+
+晕3d 玩一会儿就想吐
+
+*****
+
+####  亚瑟邓特  
+##### 175#       发表于 2022-12-28 19:08
+
+ns版还没出吗
+
+—— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
