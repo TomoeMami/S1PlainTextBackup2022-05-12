@@ -220,3 +220,17 @@ sd插电性能相当于什么水平的pc了？</blockquote>
 —— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 S1Next-鹅版 v2.5.2-play</blockquote>
 steam dick 交友群：498166847
 
+
+
+*****
+
+####  leo204672099  
+##### 2011#       发表于 2022-12-28 17:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59117748&amp;ptid=2015700" target="_blank">远野四季 发表于 2022-12-28 14:16</a>
+
+deck玩自走棋好使吗，操作棋子用触摸板吗
+
+—— 来自 S1Fun</blockquote>
+在steam os运行的游戏我记着可以自己手动调整按键，你可以根据需要进行调整，实在不行连接个蓝牙键鼠也可以
+
