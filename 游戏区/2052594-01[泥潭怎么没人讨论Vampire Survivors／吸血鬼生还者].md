@@ -1386,3 +1386,15 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 DLC里狸猫的那个珠子有超武吗？
 
+
+
+*****
+
+####  tansapple  
+##### 600#       发表于 2022-12-28 15:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59117751&amp;ptid=2052594" target="_blank">79993931 发表于 2022-12-28 14:16</a>
+
+DLC里狸猫的那个珠子有超武吗？</blockquote>
+没有超武
+
