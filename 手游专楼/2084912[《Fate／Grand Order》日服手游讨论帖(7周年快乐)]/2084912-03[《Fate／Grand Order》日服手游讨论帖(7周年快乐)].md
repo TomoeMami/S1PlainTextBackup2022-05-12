@@ -12078,3 +12078,14 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 还是当个柱子吧，好久没抢过柱子了
 
+
+
+*****
+
+####  保罗赫伯特  
+##### 4085#       发表于 2022-12-28 14:11
+
+最后那个两血条雨神真有点折磨，虽然尼莫在场上能防眩晕，但他伤害真的不够啊，梅莉+C呆辅助，宝具一发也就6-7万，加上对面还会回血，打完第一条血就要花不少时间<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+本身又是被集火的状态，打到第二罐血左右就要退场了，后面就仇凛一个有漂浮特性能的还能动，还被各种不能动的发牌卡手。也许一开始就单挑，或者全上能动的打手角色，体验会更好一些吧<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
