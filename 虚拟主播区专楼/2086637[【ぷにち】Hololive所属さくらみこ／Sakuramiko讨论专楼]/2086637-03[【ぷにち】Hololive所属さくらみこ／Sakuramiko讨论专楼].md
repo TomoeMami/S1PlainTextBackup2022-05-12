@@ -7835,3 +7835,20 @@ CPU，没意思。
 就是敢不敢问啊，毕竟这种问了的一般都会同意。如果关系不好的话就不会不读空气去问了。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是说她在群里问过了么.回复她的人就捏,有几个没回复,没说是谁.
 
+
+
+*****
+
+####  rs5621  
+##### 3737#       发表于 2022-12-28 23:54
+
+<img src="https://img.saraba1st.com/forum/202212/28/235358yx4obovq1ff2ilbx.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (47.52 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 23:53 上传
+
+这个skmt捏得不错
+
