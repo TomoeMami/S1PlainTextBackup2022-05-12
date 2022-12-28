@@ -12234,3 +12234,25 @@ fgo剧情相关的东西，你所有的拉垮想象都可以默认是对的，�
 
 再再之前换了商店但最后一粒也没用到，上次没换到也有见到几粒
 
+
+
+*****
+
+####  武男  
+##### 4098#       发表于 2022-12-28 22:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114614&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-28 09:38</a>
+
+个人认为，芙芙的所谓比较之理估计也就是和公主一样，靠的是盖亚的支持，但是大蜘蛛这可是爆星的存在[f:0 ...</blockquote>
+大蜘蛛的身份现在还未确定，在钢陆里面祂也没吃过鳖，只透露了了个从奥尔特云来的。。按照第一部的来对比，结局的BOSS大概率也是大蜘蛛这个水平的，但是多了个更强的必杀技能。
+
+*****
+
+####  武男  
+##### 4099#       发表于 2022-12-28 22:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114384&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-12-28 09:07</a>
+
+芙大战蜘蛛，谁能赢啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">芙对上神舟和机神宙斯也未必能说赢吧，大蜘蛛这个明显的压轴怪，全盛芙怎么看也搞不定，何况是现在。
+

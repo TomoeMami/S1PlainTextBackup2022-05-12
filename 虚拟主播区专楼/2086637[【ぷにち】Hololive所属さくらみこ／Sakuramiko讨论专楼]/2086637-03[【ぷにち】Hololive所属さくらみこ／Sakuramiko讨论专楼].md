@@ -7728,3 +7728,31 @@ CPU，没意思。
 
 这表情要笑死我
 
+
+
+*****
+
+####  holoan  
+##### 3729#         楼主| 发表于 2022-12-28 22:15
+
+<img src="https://img.saraba1st.com/forum/202212/28/221530ttxdtil88th80t0i.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (17.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 22:15 上传
+
+*****
+
+####  rs5621  
+##### 3730#       发表于 2022-12-28 22:17
+
+<img src="https://img.saraba1st.com/forum/202212/28/221718qkiwlicbrtkri4w4.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (62.82 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 22:17 上传
+
