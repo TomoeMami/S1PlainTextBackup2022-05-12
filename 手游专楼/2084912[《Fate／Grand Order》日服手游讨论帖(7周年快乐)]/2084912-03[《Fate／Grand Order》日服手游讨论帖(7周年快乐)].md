@@ -12026,3 +12026,14 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 芙大战蜘蛛，谁能赢啊</blockquote>
 怎么看芙芙都一点赢面都没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  khxooo  
+##### 4080#       发表于 2022-12-28 09:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114384&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2022-12-28 09:07</a>
+芙大战蜘蛛，谁能赢啊</blockquote>
+个人认为，芙芙的所谓比较之理估计也就是和公主一样，靠的是盖亚的支持，但是大蜘蛛这可是爆星的存在<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
