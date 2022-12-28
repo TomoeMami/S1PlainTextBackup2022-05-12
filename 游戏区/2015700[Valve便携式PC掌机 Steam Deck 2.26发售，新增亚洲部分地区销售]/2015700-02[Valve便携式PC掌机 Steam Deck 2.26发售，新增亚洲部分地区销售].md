@@ -193,3 +193,30 @@ sd插电性能相当于什么水平的pc了？</blockquote>
 
 在G胖独有的着色器缓存下，我感觉某些游戏体验还是不错
 
+
+
+*****
+
+####  褪色的雪花  
+##### 2009#       发表于 2022-12-28 16:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59117798&amp;ptid=2015700" target="_blank">zris 发表于 2022-12-28 14:21</a>
+又有不少的XDM到货了
+
+欢迎加S1 SD群</blockquote>
+求群号机器刚到
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  zris  
+##### 2010#       发表于 2022-12-28 16:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119336&amp;ptid=2015700" target="_blank">褪色的雪花 发表于 2022-12-28 16:42</a>
+
+求群号机器刚到
+
+—— 来自 Xiaomi Mi9 Pro 5G, Android 11上的 S1Next-鹅版 v2.5.2-play</blockquote>
+steam dick 交友群：498166847
+
