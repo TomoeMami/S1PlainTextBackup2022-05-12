@@ -11994,3 +11994,12 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 
 （异星神就不能每天晚上恢复一画吗...）
 
+
+
+*****
+
+####  kuarwbwe  
+##### 4077#       发表于 2022-12-28 08:30
+
+也不知道为啥，我现在总有种你游2.0收尾大概率会很仓促的感觉。希望是因为我不懂日语，只看剧透产生的错觉。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
