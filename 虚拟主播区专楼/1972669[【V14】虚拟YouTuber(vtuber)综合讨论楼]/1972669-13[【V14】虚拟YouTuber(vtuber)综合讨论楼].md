@@ -2144,3 +2144,15 @@ https://youtu.be/Km1ph9yGe54
 
 看了一下隔壁虫楼，如果是砖也就罢了，单曲首日就卖了七千多……nornis药丸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  FCCHua  
+##### 18195#       发表于 2022-12-29 00:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58392174&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-11-11 20:51</a>
+管人微相关，图就不发了
+【文春炮】プロeスポーツ选手Fiskerさん、YouTuberと不伦しチーム解雇 ただ ...</blockquote>
+光速复出并加入了新的俱乐部，典中典<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
