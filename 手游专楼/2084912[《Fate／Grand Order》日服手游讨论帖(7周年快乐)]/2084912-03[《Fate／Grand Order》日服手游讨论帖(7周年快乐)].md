@@ -11967,3 +11967,30 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 虽然很残忍但实际清凉剂，比起另两位有点遥不可及的算是比较。。。亲民 ...</blockquote>
 遥不可及的是哪两个
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4076#       发表于 2022-12-28 08:01
+
+<img src="https://img.saraba1st.com/forum/202212/28/080025kss9cperi592k43t.png" referrerpolicy="no-referrer">
+
+<strong>1672185602483.png</strong> (299.63 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 08:00 上传
+
+<img src="https://img.saraba1st.com/forum/202212/28/080026jvu33gumjiv0immv.png" referrerpolicy="no-referrer">
+
+<strong>1672185605470.png</strong> (299.12 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 08:00 上传
+
+蘑菇开始光明正大的吃书了，2.4戴比特的令咒更新后少了一画，BGO那边还没更新所以依然是三画。
+
+（异星神就不能每天晚上恢复一画吗...）
+
