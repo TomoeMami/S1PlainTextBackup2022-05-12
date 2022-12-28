@@ -70,3 +70,16 @@ https://bbs.saraba1st.com/2b/thread-2043123-330-1.html
 syl 现在有些麻将脸只显示代码[f:211] ...</blockquote>
 麻将脸现实代码应该是泥潭的问题，网页版也是这样
 
+
+
+*****
+
+####  ykrank  
+##### 1411#         楼主| 发表于 2022-12-28 18:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59109667&amp;ptid=1220112" target="_blank">Milkyway 发表于 2022-12-27 19:16</a>
+lz有没有考虑过适配平板模式</blockquote>
+分屏之类？
+
+—— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
