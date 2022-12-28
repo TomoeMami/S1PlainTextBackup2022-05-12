@@ -113,3 +113,39 @@ NS底座我用延长线试过了不能用</blockquote>
 
 打算买个512G~1T的SD卡，对卡的速度有讲究吗
 
+
+
+*****
+
+####  远野四季  
+##### 2002#       发表于 2022-12-28 14:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59091001&amp;ptid=2015700" target="_blank">KL25001 发表于 2022-12-26 03:35</a>
+周末更新后steam os玩dota2自走棋总是卡退，反而是windows系统比较稳定
+
+—— 来自 S1Fun ...</blockquote>
+deck玩自走棋好使吗，操作棋子用触摸板吗
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  亚瑟摩根  
+##### 2003#       发表于 2022-12-28 14:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59101391&amp;ptid=2015700" target="_blank">Meltina 发表于 2022-12-27 00:20</a>
+
+打算买个512G~1T的SD卡，对卡的速度有讲究吗</blockquote>
+tf卡会掉速，所以不用太纠结。
+
+如果能动手换，买个SSD替换最好
+
+*****
+
+####  zris  
+##### 2004#       发表于 2022-12-28 14:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">又有不少的XDM到货了
+
+欢迎加S1 SD群<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+

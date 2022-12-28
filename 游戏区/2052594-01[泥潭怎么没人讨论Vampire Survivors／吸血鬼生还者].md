@@ -1377,3 +1377,12 @@ dlc这日系风格的图怎么配的城主战风格的BGM，和地图一点都�
 
 秘密任务可以等开了无限模式之后再去做，开无限模式不会有任何死神来干扰<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  79993931  
+##### 599#       发表于 2022-12-28 14:16
+
+DLC里狸猫的那个珠子有超武吗？
+
