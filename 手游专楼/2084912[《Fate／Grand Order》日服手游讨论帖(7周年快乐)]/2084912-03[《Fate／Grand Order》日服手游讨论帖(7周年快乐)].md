@@ -12209,3 +12209,15 @@ fgo剧情相关的东西，你所有的拉垮想象都可以默认是对的，�
 
 合着这大蜘蛛压根没出来，都是烟雾镜开的未来视，还顺手一波把他自己手下人心态都搞崩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过于鬼才
 
+
+
+*****
+
+####  J-002  
+##### 4096#       发表于 2022-12-28 20:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59121501&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-28 20:03</a>
+
+马老师天克小麻雀啊</blockquote>
+手里六个金弓，伊丝塔拿破仑源为朝皇女大王和红茶，除了红茶都是1宝
+

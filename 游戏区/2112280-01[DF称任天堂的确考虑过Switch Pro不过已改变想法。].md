@@ -649,3 +649,15 @@ NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</
 
 其实现在回头来看，如果一开始就上N64+用CD，老任搞不好到今天还是主机霸主
 
+
+
+*****
+
+####  时空之旅  
+##### 66#       发表于 2022-12-28 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119577&amp;ptid=2112280" target="_blank">dongle2001 发表于 2022-12-28 17:02</a>
+
+王国之心不护航新机说不过去啊，难道任天堂有隐藏的大招？</blockquote>
+王国之心护航惊了，4代怕不是等2025年才看得到。。。。
+

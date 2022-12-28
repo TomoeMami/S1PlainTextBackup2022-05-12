@@ -2004,3 +2004,15 @@ https://www.bilibili.com/read/cv19511254
 最后 ...</blockquote>
 背包有个神话之书，点进去里面有资料（梦神过于小丑没有任何资料记载）
 
+
+
+*****
+
+####  瓦米里奥  
+##### 3168#       发表于 2022-12-28 20:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59121526&amp;ptid=2098044" target="_blank">tsubaki 发表于 2022-12-28 20:04</a>
+
+背包有个神话之书，点进去里面有资料（梦神过于小丑没有任何资料记载） ...</blockquote>
+能发个截图吗，在书籍一栏没有找到
+
