@@ -1802,3 +1802,25 @@ ns版还没出吗
 
 —— 来自 Xiaomi 2112123AC, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  liangyi345  
+##### 176#       发表于 2022-12-28 19:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59096144&amp;ptid=2111876" target="_blank">shyso 发表于 2022-12-26 17:10</a>
+
+作为anti ow党，我再说个暴论吧，真的是暴论，本来不想说的，因为在没通关的情况下我觉得这样说非常不负责 ...</blockquote>
+这游戏设计感这么重 依然不少人会在通关之前"因为不知道该做什么"而卡关
+
+回溯机制只要不是死在教程重开 
+
+过了存档点之后的挫折本质都是迷路和探路 本身就是游戏内容
+
+开飞船的系统要学的也只是先对齐速度再微调移动 
+
+掉出白洞之后视角固定会看向太阳然后白洞站就在眼前的位置
+
+这个也是"过于设计化地提示玩家白洞站的存在"
+
