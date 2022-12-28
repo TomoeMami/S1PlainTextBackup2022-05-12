@@ -58,3 +58,14 @@
 
 就是贵了点，就卖100让我砸金不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Sylpheed  
+##### 17226#       发表于 2022-12-29 01:14
+
+奶奶的，风lm说不来还真来了，不过又得担心之后的风巫妖斧头和暗土龙杖了，狠狠的加码<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
