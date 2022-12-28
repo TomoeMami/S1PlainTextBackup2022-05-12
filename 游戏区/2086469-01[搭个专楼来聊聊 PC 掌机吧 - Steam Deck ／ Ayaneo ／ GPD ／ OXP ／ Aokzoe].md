@@ -40,3 +40,12 @@
 
 GPD WIN 4 开启预购了（定金 100），余款还得等二月份。
 
+
+
+*****
+
+####  医生狼多  
+##### 573#       发表于 2022-12-28 16:06
+
+win4和oxp2到手估计奥克7000系u都出了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
