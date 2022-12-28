@@ -177,3 +177,19 @@ sd插电性能相当于什么水平的pc了？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sd又没有插电自动超频，不如说大家都想要
 跑满就660M水平，按TFlops算的话PS4无印
 
+
+
+*****
+
+####  zris  
+##### 2008#       发表于 2022-12-28 15:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59118188&amp;ptid=2015700" target="_blank">Gundamslave 发表于 2022-12-28 15:01</a>
+
+sd插电性能相当于什么水平的pc了？</blockquote>
+1050ti这样？
+
+插电不会性能暴增，只是不用担心续航罢了
+
+在G胖独有的着色器缓存下，我感觉某些游戏体验还是不错
+

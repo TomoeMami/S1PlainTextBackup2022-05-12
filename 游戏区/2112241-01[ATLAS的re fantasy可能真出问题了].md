@@ -551,3 +551,14 @@ P5R的松饼人之后我就决定不首发P6了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没活就炒下真女、P1和P2的冷饭吧，我愿意掏钱
 
+
+
+*****
+
+####  Guildenstern  
+##### 64#       发表于 2022-12-28 15:25
+
+小红帽：指monolith协助参与下一代马里奥开发。
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
