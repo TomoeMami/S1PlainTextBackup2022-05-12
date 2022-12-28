@@ -149,3 +149,12 @@ tf卡会掉速，所以不用太纠结。
 
 欢迎加S1 SD群<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  u2deack  
+##### 2005#       发表于 2022-12-28 14:38
+
+前几天打完核心危机重制又想玩一遍7re，坐电视前玩了两天真的还是觉得累和麻烦，想到明年年初又有卧龙又有生化4重制干脆今天就下单了一台现货，火纹发售前可以玩玩神之天平了
+
