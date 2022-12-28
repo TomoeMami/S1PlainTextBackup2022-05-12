@@ -661,3 +661,16 @@ NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</
 王国之心不护航新机说不过去啊，难道任天堂有隐藏的大招？</blockquote>
 王国之心护航惊了，4代怕不是等2025年才看得到。。。。
 
+
+
+*****
+
+####  zris  
+##### 67#       发表于 2022-12-28 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119577&amp;ptid=2112280" target="_blank">dongle2001 发表于 2022-12-28 17:02</a>
+王国之心不护航新机说不过去啊，难道任天堂有隐藏的大招？</blockquote>
+你想说王国之泪，是吧<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

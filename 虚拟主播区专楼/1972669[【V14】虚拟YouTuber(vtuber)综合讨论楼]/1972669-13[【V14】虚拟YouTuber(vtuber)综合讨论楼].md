@@ -2093,3 +2093,36 @@ https://youtu.be/Km1ph9yGe54
 【探索者歌合戦～年末スペシャル～-哔哩哔哩】 [https://b23.tv/qcRZ3Co](https://b23.tv/qcRZ3Co)
 给你贴个B站链接好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  吃咸菜的  
+##### 18192#       发表于 2022-12-28 20:21
+
+二哥二专初动23323，himehina翻唱专616+539
+
+<img src="https://img.saraba1st.com/forum/202212/28/201800tht6fffojz6btoab.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (11.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 20:18 上传
+
+<img src="https://img.saraba1st.com/forum/202212/28/201951mb4xdtxx468h46fd.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (16.28 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 20:19 上传
+
+<img src="https://img.saraba1st.com/forum/202212/28/202032vii3hoou3o6o6f1n.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.54 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 20:20 上传
+

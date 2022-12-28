@@ -2016,3 +2016,15 @@ https://www.bilibili.com/read/cv19511254
 背包有个神话之书，点进去里面有资料（梦神过于小丑没有任何资料记载） ...</blockquote>
 能发个截图吗，在书籍一栏没有找到
 
+
+
+*****
+
+####  jerry851209  
+##### 3169#       发表于 2022-12-28 20:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59121692&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-28 20:15</a>
+
+能发个截图吗，在书籍一栏没有找到</blockquote>
+神话书要去书店买
+
