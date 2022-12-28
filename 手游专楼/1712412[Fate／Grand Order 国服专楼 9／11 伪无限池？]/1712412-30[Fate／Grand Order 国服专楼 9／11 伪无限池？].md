@@ -2612,3 +2612,19 @@ c狐是boss战MVP
 
 聊强度明年新角色那就是基本都别抽嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  苍蓝之枪  
+##### 44041#       发表于 2022-12-28 21:51
+
+差一个狂金饼干，这修炼场好难出
+
+*****
+
+####  khxooo  
+##### 44042#       发表于 2022-12-29 00:55
+
+强度抽卡就好好攒石等周年和泳装。
+
