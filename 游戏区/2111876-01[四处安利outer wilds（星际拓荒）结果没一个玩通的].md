@@ -1824,3 +1824,17 @@ ns版还没出吗
 
 这个也是"过于设计化地提示玩家白洞站的存在"
 
+
+
+*****
+
+####  DeepResidual  
+##### 177#       发表于 2022-12-29 06:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59120589&amp;ptid=2111876" target="_blank">chdhdhd 发表于 2022-12-28 18:33</a>
+
+这里提个人理解的另外一个缺点：这个游戏对待文本的方法是微妙的。能做到同时让不喜欢阅读文字的人反感，也 ...</blockquote>
+冗长文本都出来了
+
+这游戏文本描述非常克制，dlc更是无文本演出
+
