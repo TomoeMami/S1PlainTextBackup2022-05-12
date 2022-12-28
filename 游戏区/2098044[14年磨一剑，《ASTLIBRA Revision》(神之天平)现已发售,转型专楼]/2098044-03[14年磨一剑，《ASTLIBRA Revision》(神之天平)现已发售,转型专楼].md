@@ -1854,3 +1854,15 @@ https://www.bilibili.com/read/cv19511254
 推荐直接地狱，放凭依不会暂停还是玩起来舒服</blockquote>
 放凭依不暂停不是可以直接系统里设定的？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  quanlix  
+##### 3155#       发表于 2022-12-28 11:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59115215&amp;ptid=2098044" target="_blank">otakun 发表于 2022-12-28 10:40</a>
+
+放凭依不暂停不是可以直接系统里设定的？</blockquote>
+好吧，完全没注意，我是打了一遍地狱一遍荒谬
+
