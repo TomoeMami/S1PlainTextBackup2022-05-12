@@ -609,3 +609,43 @@ NS也同理
 
 说白了，游戏市场至少在可见的未来，还是红海市场的天下，老任也该踏实一点了
 
+
+
+*****
+
+####  ppa11  
+##### 63#       发表于 2022-12-28 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59120057&amp;ptid=2112280" target="_blank">zjoi 发表于 2022-12-28 17:41</a>
+就希望不要再搞什么创新幺蛾子了，老老实实提升机能
+
+NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</blockquote>
+有没有一种可能，ps原本就是任天堂索尼合作光碟机的产物甚至名字都是任天堂取的两边打了几年官司，n64就是因为被索尼搞了才没有及时用上光碟，然后才是山内老头嘴硬硬上的？
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  whzfjk  
+##### 64#       发表于 2022-12-28 20:07
+
+任孙别出了，表演个大烟花
+
+*****
+
+####  zjoi  
+##### 65#       发表于 2022-12-28 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59121507&amp;ptid=2112280" target="_blank">ppa11 发表于 2022-12-28 20:03</a>
+
+有没有一种可能，ps原本就是任天堂索尼合作光碟机的产物甚至名字都是任天堂取的两边打了几年官司，n64就 ...</blockquote>
+企画是一开始一起的
+
+后来老任取消后，索尼其实就自己直接从头开始搞了
+
+之后山内耍脾气，硬要弄VR，失败后又坚决不用CD继续用卡带。。
+
+老任时间主要就是耽误在红眼病VR上了
+
+其实现在回头来看，如果一开始就上N64+用CD，老任搞不好到今天还是主机霸主
+

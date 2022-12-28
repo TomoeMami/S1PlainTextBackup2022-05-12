@@ -1990,3 +1990,17 @@ https://www.bilibili.com/read/cv19511254
 
 2.关于各个神明的介绍书籍在哪可以翻阅？好几个当时跳过了没仔细看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  tsubaki  
+##### 3167#       发表于 2022-12-28 20:04
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59121387&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-28 19:55</a>
+
+通关了，后期稍微刷了下对boss就是纯碾压，回想起开荒时的累死累活，感觉这游戏数值方面还是有些问题
+
+最后 ...</blockquote>
+背包有个神话之书，点进去里面有资料（梦神过于小丑没有任何资料记载）
+

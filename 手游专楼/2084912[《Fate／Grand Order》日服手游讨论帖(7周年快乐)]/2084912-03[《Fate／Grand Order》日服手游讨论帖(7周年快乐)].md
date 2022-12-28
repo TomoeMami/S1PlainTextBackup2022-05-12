@@ -12189,3 +12189,23 @@ fgo剧情相关的东西，你所有的拉垮想象都可以默认是对的，�
 
 雨神那场第一回合学妹用技2，之后拼人品要雨神打死她，否则就S/L甚至整场放弃，雨神只得2条血还是简单些少，只是麻烦在于帮学妹吃了HP+2000，雨神经常打剩几百血...
 
+
+
+*****
+
+####  khxooo  
+##### 4094#       发表于 2022-12-28 20:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59120681&amp;ptid=2084912" target="_blank">J-002 发表于 2022-12-28 18:43</a>
+这次打得最悲催的是麻雀，各种不顺
+
+最后一管血是爷爷单挑，麻雀剩个血皮时开了回避，我这边已经弹 ...</blockquote>
+马老师天克小麻雀啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 4095#       发表于 2022-12-28 20:10
+
+合着这大蜘蛛压根没出来，都是烟雾镜开的未来视，还顺手一波把他自己手下人心态都搞崩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过于鬼才
+

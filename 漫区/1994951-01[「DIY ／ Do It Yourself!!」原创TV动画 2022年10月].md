@@ -8879,3 +8879,12 @@ https://bgm.tv/blog/315691
 按这个说法原作 IMAGO 不是集体笔名一类的，看来真的是矶光雄了（跟岩瀬智彦也算老搭档了
 <img src="https://p.sda1.dev/9/d344517d8d723ee41860d5f5656724e3/2022-12-26-1603_57.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 647#         楼主| 发表于 2022-12-28 20:04
+
+<img src="https://p.sda1.dev/9/6e92ce22f01a1d3a673a207f9e24b2b0/yande.re 1050306 do_it_yourself!! fukunaga_satoko hikage_takumi.jpg" referrerpolicy="no-referrer">
+
