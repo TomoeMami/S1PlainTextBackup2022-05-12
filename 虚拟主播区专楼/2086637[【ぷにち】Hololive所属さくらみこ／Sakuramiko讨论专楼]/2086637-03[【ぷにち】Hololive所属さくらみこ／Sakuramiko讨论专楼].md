@@ -7773,3 +7773,20 @@ CPU，没意思。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她真的是照真人捏的啊
 
+
+
+*****
+
+####  holoan  
+##### 3732#         楼主| 发表于 2022-12-28 22:55
+
+<img src="https://img.saraba1st.com/forum/202212/28/225436gtkaa8gltjatpoiw.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (9.91 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 22:54 上传
+
+我投的大头还真赢了
+
