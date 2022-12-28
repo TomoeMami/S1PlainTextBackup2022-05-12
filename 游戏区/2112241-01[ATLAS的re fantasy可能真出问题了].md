@@ -542,3 +542,12 @@ P5R的松饼人之后我就决定不首发P6了
 
 —— 来自 HUAWEI LYA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  DET33  
+##### 63#       发表于 2022-12-28 15:09
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没活就炒下真女、P1和P2的冷饭吧，我愿意掏钱
+

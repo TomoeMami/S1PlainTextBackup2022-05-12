@@ -12101,3 +12101,15 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 也不知道为啥，我现在总有种你游2.0收尾大概率会很仓促的感觉。希望是因为我不懂日语，只看剧透产生的错觉 ...</blockquote>
 fgo剧情相关的东西，你所有的拉垮想象都可以默认是对的，蘑菇最近越来越随便了
 
+
+
+*****
+
+####  DARKGRAY  
+##### 4087#       发表于 2022-12-28 15:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59117696&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-12-28 14:11</a>
+
+最后那个两血条雨神真有点折磨，虽然尼莫在场上能防眩晕，但他伤害真的不够啊，梅莉+C呆辅助，宝具一发也就 ...</blockquote>
+输出还是得指望自己的，虽然这样的话单拐充能比较吃紧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
