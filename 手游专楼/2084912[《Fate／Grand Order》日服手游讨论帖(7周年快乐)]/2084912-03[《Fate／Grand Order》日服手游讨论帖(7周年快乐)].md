@@ -12256,3 +12256,12 @@ fgo剧情相关的东西，你所有的拉垮想象都可以默认是对的，�
 芙大战蜘蛛，谁能赢啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">芙对上神舟和机神宙斯也未必能说赢吧，大蜘蛛这个明显的压轴怪，全盛芙怎么看也搞不定，何况是现在。
 
+
+
+*****
+
+####  DARKGRAY  
+##### 4100#       发表于 2022-12-28 22:42
+
+要奥特曼打的那些东西还是不要考虑靠谁单刷了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
