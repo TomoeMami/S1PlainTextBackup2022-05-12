@@ -2434,3 +2434,12 @@ copy插件怎么又能用了？
 是
 github的pr说是网站已关闭，然而并没有
 
+
+
+*****
+
+####  LLLLLuB  
+##### 243#       发表于 2022-12-28 23:43
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">拷贝源彻底加载不了拷贝端的漫画列表，只能看历史记录里的漫画了
+

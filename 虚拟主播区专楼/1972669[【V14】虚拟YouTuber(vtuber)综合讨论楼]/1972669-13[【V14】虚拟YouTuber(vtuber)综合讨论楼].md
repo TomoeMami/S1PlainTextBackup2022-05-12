@@ -2135,3 +2135,12 @@ https://youtu.be/Km1ph9yGe54
 
 感觉甚至可以加上孤独摇滚初动3万6来斗一斗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 18194#       发表于 2022-12-28 23:44
+
+看了一下隔壁虫楼，如果是砖也就罢了，单曲首日就卖了七千多……nornis药丸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

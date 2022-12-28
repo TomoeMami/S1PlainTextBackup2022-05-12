@@ -590,3 +590,22 @@ re fantasy也坑了，p6也没消息还是辣鸡新p组做的。要我说ATLAS�
 4gamer的，也不在：
 [https://www.4gamer.net/games/999/G999905/20221219042/](https://www.4gamer.net/games/999/G999905/20221219042/)
 
+
+
+*****
+
+####  qiyu1234  
+##### 68#       发表于 2022-12-28 23:51
+
+看了下4GAMER的，发现竟然还有采访有働龍郎
+
+啊这，玩粥游，看管人，有働你怎么变成这样了
+
+<img src="https://img.saraba1st.com/forum/202212/28/235059isxj7eeyo77j9x7e.jpg" referrerpolicy="no-referrer">
+
+<strong>9.jpg</strong> (171.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-28 23:50 上传
+
