@@ -125,3 +125,62 @@ QQ图片20221220223208.jpg
 
 <img src="https://p.sda1.dev/9/923f2fe0cb4edfb22504cf50aab3dca2/CMP_20221223204018061.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  仟音一心  
+##### 6815#       发表于 2022-12-28 13:49
+
+<img src="https://img.saraba1st.com/forum/202212/28/134922f6aaweod87dd4zdc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>6EF60FD6-D03E-42BF-9C8E-118B5F75D798.jpeg</strong> (603.64 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-28 13:49 上传
+
+<img src="https://img.saraba1st.com/forum/202212/28/134932dziarj44gjpg80i8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+<strong>592A7F7B-41D0-434C-B281-799FB0E437AE.jpeg</strong> (595.66 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2022-12-28 13:49 上传
+
+虹之咲字幕组汉化：
+
+“空气真不错呢，侑你也多呼吸一下……”
+
+“啊，这里风景太美丽了，都令人忘记呼吸了呢！”
+
+Karin's episode
+
+（嗯，看来她很开心呢）
+
+看到侑的表情就可以确定了。
+
+清晨的太阳照射着大地，这份大自然的风景令原本睡眼惺忪的人立刻两眼放光充满精神。
+
+这风景让她停下了脚步，吸引住了她的目光与内心。
+
+她一下就放松起来，摆出了合理的姿势。
+
+她内心的悸动似乎正通过合拢的手传向我。
+
+“好棒……好漂亮……”
+
+她口中喃喃着吐露着内心。
+
+对呢，确实很漂亮呢。
+
+所以这片风景，我也想让她看到。
+
+侑与同好会成员的两人出行企划本月来到侑与果林的大自然之行！
+
+次回将由爱陪伴侑出行！能够让两人放松玩个够的地方是哪里呢♪
+
+详细内容均在本月发售的Lovelive!系列综合杂志，不要错过哦～
+
