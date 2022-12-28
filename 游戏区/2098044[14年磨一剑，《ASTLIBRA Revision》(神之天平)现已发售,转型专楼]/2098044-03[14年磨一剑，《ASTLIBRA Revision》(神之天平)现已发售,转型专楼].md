@@ -1977,3 +1977,16 @@ https://www.bilibili.com/read/cv19511254
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  瓦米里奥  
+##### 3166#       发表于 2022-12-28 19:55
+
+通关了，后期稍微刷了下对boss就是纯碾压，回想起开荒时的累死累活，感觉这游戏数值方面还是有些问题
+
+最后问两个问题：1.凯就是来自唯一的未来吧，总感觉作为智能机器人有点超越这个时代的技术了；
+
+2.关于各个神明的介绍书籍在哪可以翻阅？好几个当时跳过了没仔细看<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
