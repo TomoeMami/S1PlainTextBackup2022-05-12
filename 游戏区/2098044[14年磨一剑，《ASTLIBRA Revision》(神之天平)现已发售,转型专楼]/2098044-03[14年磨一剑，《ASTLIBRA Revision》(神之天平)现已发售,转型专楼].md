@@ -1843,3 +1843,14 @@ https://www.bilibili.com/read/cv19511254
 
 推荐直接地狱，放凭依不会暂停还是玩起来舒服
 
+
+
+*****
+
+####  otakun  
+##### 3154#       发表于 2022-12-28 10:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114969&amp;ptid=2098044" target="_blank">quanlix 发表于 2022-12-28 10:18</a>
+推荐直接地狱，放凭依不会暂停还是玩起来舒服</blockquote>
+放凭依不暂停不是可以直接系统里设定的？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
