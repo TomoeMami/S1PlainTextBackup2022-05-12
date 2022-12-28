@@ -7811,3 +7811,15 @@ CPU，没意思。
 
 捏之前都问过，不是敢不敢，是这俩人让不让。
 
+
+
+*****
+
+####  大厨麦当牛  
+##### 3735#       发表于 2022-12-28 23:29
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59124100&amp;ptid=2086637" target="_blank">神澈 发表于 2022-12-28 23:16</a>
+
+捏之前都问过，不是敢不敢，是这俩人让不让。</blockquote>
+就是敢不敢问啊，毕竟这种问了的一般都会同意。如果关系不好的话就不会不读空气去问了。
+
