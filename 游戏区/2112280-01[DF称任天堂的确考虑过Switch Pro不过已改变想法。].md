@@ -1,0 +1,592 @@
+
+
+*****
+
+####  天辉一绝  
+##### 1#       楼主       发表于 2022-12-28 09:02
+
+以对游戏画面进行技术分析的Digital Foundry最近一次节目中，该媒体的编辑John Linneman在其中透露，他与一些开发商沟通之后，虽然可以确认任天堂曾经考虑过推出加强版的Switch，也就是人们常说的Switch Pro，但是“这似乎不再会发生”，他透露任天堂正在为Switch寻找一个真正的继承者。
+
+John Linneman说：“所以我认为，从我与不同开发商的交谈中了解到，曾经有某种中期Switch更新计划，但似乎不再发生了。因此，很明显，无论他们（指任天堂）下一步做什么，都将是真正的下一代硬件。我不认为会是2023年。”
+
+John Linneman还谈到了任天堂“盛极必衰”的模式：NGC表现不佳之后，他们卖出了1亿台Wii，在那之后的WiiU却成为任天堂销量最差的主机之一。
+
+*****
+
+####  haixings  
+##### 2#       发表于 2022-12-28 09:05
+
+他们消息有那么不灵吗？
+
+*****
+
+####  haixings  
+##### 3#       发表于 2022-12-28 09:05
+
+他们消息有那么不灵吗？
+
+*****
+
+####  牛奶笛  
+##### 4#       发表于 2022-12-28 09:08
+
+其实老任成功主机之后的下一代，基本都是能做到守成的，不至于失败。就是wiiu这例子被举了800遍
+
+*****
+
+####  Ryuji1145  
+##### 5#       发表于 2022-12-28 09:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我不觉得有什么失败魔咒，但楼上觉得任天堂的成功主机很多吗？
+
+好像也就FC、SFC和Wii吧？
+
+*****
+
+####  ffmzsj  
+##### 6#       发表于 2022-12-28 09:15
+
+<blockquote>Ryuji1145 发表于 2022-12-28 09:13
+虽然我不觉得有什么失败魔咒，但楼上觉得任天堂的成功主机很多吗？
+
+好像也就FC、SFC和Wii吧？ ...</blockquote>
+老任的主机就算走不出多少量的机子 游戏也不会少
+
+*****
+
+####  hisousihou  
+##### 7#       发表于 2022-12-28 09:21
+
+不久前，Switch Pro作为2017年推出的现有Switch控制台的中代升级而受到大量传闻。
+
+报道称，任天堂正计划发布具有改进屏幕的更强大的变体，但是，尽管许多消息来源似乎证实了这一点 - 包括显然被告知的开发人员 - 没有Switch Pro即将推出，OLED版本的到来似乎表明另一个硬件更新不会在一段时间内进行。
+
+现在，Digital Foundry背后的团伙声称该系统一度在任天堂的计划中，但最终被取消了。截至目前，没有计划在其继任者到来之前发布更强大的Switch版本。
+
+这一传言已被不止一位未具名的开发商向Digital Foundry证实。
+
+至于任天堂的下一个游戏机，Digital Foundry表示我们不应该期望明年看到它。
+
+Digital Foundry还推测，任天堂“担心”从Switch过渡到下一个系统。这是一个公平的假设，因为任天堂从繁荣（Wii）到萧条（Wii U），然后又回到Switch，但人们会认为该公司足够明智地坚持混合方法，因为它已被证明非常成功，并且本质上是自己的利基市场。但谁知道呢？
+
+*****
+
+####  Dedalus  
+##### 8#       发表于 2022-12-28 09:23
+
+假如下一世代失败了想想游戏史怎么介绍这事太好笑了
+Nintendo Switch取得了销量上巨大成功，形势一片大好之际，由于新任社长古川比千年王八还能憋埋下了新机失败的导火索
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  haixings  
+##### 9#       发表于 2022-12-28 09:24
+
+现在写新闻的真牛🐂
+
+*****
+
+####  zris  
+##### 10#       发表于 2022-12-28 09:33
+
+只要能向下兼容都好说。至于叫啥纯粹就是一个形式。只是没加强版主机的话，那不就是2023年还是没新机了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  lufeie46  
+##### 11#       发表于 2022-12-28 09:41
+
+下一代要是失败了，那switch的成功就要被定义成任天堂的一招鲜，而不是掌机的成功了。掌机彻底成为伪需求
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+*****
+
+####  苏西踩到我了  
+##### 12#       发表于 2022-12-28 09:41
+
+任天堂老是在设计一些奇怪的玩意儿，成了就是跨时代、指引游戏发展的爷，输了……
+
+再搞骚设计的话，大概是pimax portal那样？vr掌机家用机三合一
+
+*****
+
+####  qiyu1234  
+##### 13#       发表于 2022-12-28 09:47
+
+其实FC SFC N64 NGC的销量曲线是顺次下降的
+
+而这几台都是核心向的传统家用机类型（GC这种有比较超前时髦的机能设计）
+
+WII和NS的成功其实都跟找对了当时的蓝海市场/市场需求空缺有关（甚至索尼初代掌机的PSP能卖80M也跟这个原因有关系），反倒是WIIU有点回到既有家用机路线的样子
+
+所以下一代任系主机也未必是NS的直系继承者，但就现在业界第三方的普遍情况来说，纯粹为主机特性而生的独占第三方游戏不会再变成主流了，所以新机的默认控制器一定还是兼容传统主机手柄样式的
+
+至于向下兼容，其实NS反而是个任氏少数不能兼容的特例，因为其本身是主掌机二合一，特性上没法跟WIIU 3DS无缝兼容，游戏实体介质也有区别
+
+*****
+
+####  胧楼  
+##### 14#       发表于 2022-12-28 09:49
+
+管他是啥赶紧出新机子行不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  fffsuper  
+##### 15#       发表于 2022-12-28 09:54
+
+最后的23年不出属于数毛社个人推测；而且OLED前知乎就有人说了，生产线的人知道情况，所以评价是不如厂舅；下一代NS看drake怎么也是吃PS4世代遗产的，个人认为最多前一年双平台，之后开始单平台；NS的成功不是靠第一年的游戏吗？野炊+奥德赛双款游戏同年发售。
+
+*****
+
+####  zerocount  
+##### 16#       发表于 2022-12-28 09:55
+
+麻烦把cpu和电池都更新下
+
+就跟oled似的 升级些零部件就好了 
+
+*****
+
+####  yuong32  
+##### 17#       发表于 2022-12-28 09:56
+
+ 本帖最后由 yuong32 于 2022-12-28 09:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114389&amp;ptid=2112280" target="_blank">牛奶笛 发表于 2022-12-28 09:08</a>
+
+其实老任成功主机之后的下一代，基本都是能做到守成的，不至于失败。就是wiiu这例子被举了800遍 ...</blockquote>
+只有FC和SFC吧，N64就败了，之后NGC接着败，之后就进入了二极管模式，Wii大胜、WiiU大败、NS再大胜
+
+*****
+
+####  莫夜戎  
+##### 18#       发表于 2022-12-28 09:59
+
+评价为好奶！我现在觉得2023年出新机的可能性**提升<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  wety  
+##### 19#       发表于 2022-12-28 10:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114492&amp;ptid=2112280" target="_blank">Dedalus 发表于 2022-12-28 09:23</a>
+
+假如下一世代失败了想想游戏史怎么介绍这事太好笑了
+
+Nintendo Switch取得了销量上巨大成功，形势一片大好之 ...</blockquote>
+这不就是重复当年n64到ngc的失败吗，n64后期利润太高导致任天堂舍不得放弃，结果ngc推出延迟了一年多，上场的时候，ps2度过了初期的困难，被打的暴死
+
+*****
+
+####  时空之旅  
+##### 20#       发表于 2022-12-28 10:31
+
+其实任天堂直接加强机能就可以继续延续成功了，出pro多好，一不小心又要重蹈覆侧
+
+*****
+
+####  dren_zheng  
+##### 21#       发表于 2022-12-28 10:33
+
+NS的这个掌机主机双用的路线，实践已经证明是最成功也是最适合任天堂的路线了
+
+除非老任高层脑残了，不然基本延续这个路线就能继续赢吧
+
+别学WIIU时代另起炉灶就行了。其实我是想不通当时老任是怎么想的，听说是宫本茂的意见？
+
+N64是压榨第三方太狠后的还债，NGC继续还债而已。老任的真正黑历史是那台virtual boy
+
+*****
+
+####  JasonBourne  
+##### 22#       发表于 2022-12-28 10:33
+
+我觉得只应该关心3点，向下兼容、发售时间以及机器形态（是否延续NS的掌机+主机形态）
+
+至于新机器定位是NS pro还是全新机器真的有那么重要么
+
+*****
+
+####  qiyu1234  
+##### 23#       发表于 2022-12-28 10:35
+
+关于新机，我有个大胆的猜想
+
+NS几乎集齐了任系主掌机系列成功的一切元素
+
+唯独缺一个——双屏
+
+*****
+
+####  TANA  
+##### 24#       发表于 2022-12-28 10:35
+
+PS2+PSP跌成PS3+PSV算不算巨大失败啊，游戏史怎么介绍这事的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+*****
+
+####  铅笔  
+##### 25#       发表于 2022-12-28 10:37
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59115134&amp;ptid=2112280" target="_blank">dren_zheng 发表于 2022-12-28 10:33</a>
+
+NS的这个掌机主机双用的路线，实践已经证明是最成功也是最适合任天堂的路线了
+
+除非老任高层脑残了，不然基 ...</blockquote>
+wiiu我猜是任天堂看到ipad眼红了+想把双屏概念从NDS推演到TV上面。
+
+*****
+
+####  天辉一绝  
+##### 26#         楼主| 发表于 2022-12-28 10:38
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59115166&amp;ptid=2112280" target="_blank">TANA 发表于 2022-12-28 10:35</a>
+
+PS2+PSP跌成PS3+PSV算不算巨大失败啊，游戏史怎么介绍这事的</blockquote>
+PSV经典笑话还少吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被索尼蠢死的典型
+
+PS3起码没有暴死<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+*****
+
+####  heseran  
+##### 27#       发表于 2022-12-28 10:38
+
+高层被索软绑架了才会放弃现在的掌机主机二合一的方向吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这点在下一台机器上我觉得是最不用担心的
+
+*****
+
+####  minysun  
+##### 28#       发表于 2022-12-28 10:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59115116&amp;ptid=2112280" target="_blank">时空之旅 发表于 2022-12-28 10:31</a>
+
+其实任天堂直接加强机能就可以继续延续成功了，出pro多好，一不小心又要重蹈覆侧 ...</blockquote>
+机能增强也分情况的，用任自己的例子距离是GB要换代，下一代到底是出双向兼容的GBC还是单项兼容的GBA这样
+
+*****
+
+####  ouyang菌  
+##### 29#       发表于 2022-12-28 10:47
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59115166&amp;ptid=2112280" target="_blank">TANA 发表于 2022-12-28 10:35:55</a>
+PS2+PSP跌成PS3+PSV算不算巨大失败啊，游戏史怎么介绍这事的</blockquote>道理我都懂啊，但是nds和wii一般都是算一代的，那为什么发售日和这俩差不多的ps3和psp会算两代<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  katern  
+##### 30#       发表于 2022-12-28 10:48
+
+王国之泪护航应该是没机会了，但明年年底有消息也不是不可能，只要能向下兼容都好说，好想在新机上玩吼姆啦和希卡丽[f:217]
+
+
+
+*****
+
+####  TANA  
+##### 31#       发表于 2022-12-28 10:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59115296&amp;ptid=2112280" target="_blank">ouyang菌 发表于 2022-12-28 10:47</a>
+
+道理我都懂啊，但是nds和wii一般都是算一代的，那为什么发售日和这俩差不多的ps3和psp会算两代
+
+  - ...</blockquote>
+WIKi上这么分的咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  嘉术2015  
+##### 32#       发表于 2022-12-28 10:49
+
+任天堂之前的向下兼容都是原汁原味的，想要强化兼容我看难，想要微软那种程度的强化兼容我看要到下下世代
+
+*****
+
+####  KOS-MOS_Refrain  
+##### 33#       发表于 2022-12-28 10:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59115166&amp;ptid=2112280" target="_blank">TANA 发表于 2022-12-28 10:35</a>
+
+PS2+PSP跌成PS3+PSV算不算巨大失败啊，游戏史怎么介绍这事的</blockquote>
+国内媒体都说PSV的失败都是手游，iphone，怪物猎人，3DS大使计划照成的,反正和索尼没有一点关系
+
+*****
+
+####  漫漫来  
+##### 34#       发表于 2022-12-28 10:56
+
+我的评价是别在新机上整活了，就延续ns挺好的，我还记得wiiu那个大板砖，打游戏就跟搬砖似的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  时空之旅  
+##### 35#       发表于 2022-12-28 11:00
+
+<blockquote>JasonBourne 发表于 2022-12-28 10:33
+我觉得只应该关心3点，向下兼容、发售时间以及机器形态（是否延续NS的掌机+主机形态）
+
+至于新机器定位是NS  ...</blockquote>
+当然有区别，更希望半代升级，半代升级起码过2年能看到性能更大幅度升级的下一代，如果是下一代，那么又要等7年甚至更长的时间才能看到下一代，人生没有多少个7，8年。。。
+
+*****
+
+####  wbtsy  
+##### 36#       发表于 2022-12-28 11:02
+
+ 本帖最后由 wbtsy 于 2022-12-28 11:08 编辑 
+<blockquote>wety 发表于 2022-12-28 10:24
+这不就是重复当年n64到ngc的失败吗，n64后期利润太高导致任天堂舍不得放弃，结果ngc推出延迟了一年多，上 ...</blockquote>
+ps2初期其实没什么困境，ps2日本首发销量比wii和ns都要高。早期游戏阵容少，但是ps2是当时最便宜的DVD播放设备，当做DVD来买都不亏，所以销售上并不存在困境。
+
+后来ps3也想要复制这个战术，但是种种原因导致不管是蓝光还是ps3的成本控制都有问题，所以一开始才没有复刻成功。但是后来还是追上来了。捆绑光碟播放器这个战术在网络视频兴起之前非常强势，就算一般家庭不买游戏机，总要买一个播放器吧，这样一来ps作为家电是非常实惠的。
+
+*****
+
+####  spyps  
+##### 37#       发表于 2022-12-28 11:03
+
+我也觉得是没了，还是出下一代吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+*****
+
+####  farAway  
+##### 38#       发表于 2022-12-28 11:07
+
+我倒是想他们出个PRO，玩XB3电视模式脚下的草还没走出屏幕就变秃了，跟自带枯萎光环似的，简直省机能省到心疼。
+
+*****
+
+####  卡卡  
+##### 39#       发表于 2022-12-28 11:28
+
+可以把LITE升级一下
+
+*****
+
+####  beer  
+##### 40#       发表于 2022-12-28 11:35
+
+ 本帖最后由 beer 于 2022-12-28 11:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114759&amp;ptid=2112280" target="_blank">fffsuper 发表于 2022-12-28 09:54</a>
+
+最后的23年不出属于数毛社个人推测；而且OLED前知乎就有人说了，生产线的人知道情况，所以评价是不如厂舅； ...</blockquote>
+有没有可能数毛社也是看厂舅说话的呢
+
+*****
+
+####  pf67  
+##### 41#       发表于 2022-12-28 13:29
+
+ 本帖最后由 pf67 于 2022-12-28 13:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114632&amp;ptid=2112280" target="_blank">lufeie46 发表于 2022-12-28 09:41</a>
+
+下一代要是失败了，那switch的成功就要被定义成任天堂的一招鲜，而不是掌机的成功了。掌机彻底成为伪需求
+
+ ...</blockquote>
+不用等下一代失败，手机是未来教徒早就已经把NS定义为主机成功，不承认NS是掌机，成功和掌机便携没任何关系。
+
+*****
+
+####  ammk  
+##### 42#       发表于 2022-12-28 13:37
+
+ns的设计+外接高性能主机底座不就完美了么？
+
+*****
+
+####  whateveryou  
+##### 43#       发表于 2022-12-28 13:42
+
+别tm再用三星工艺的地瓜了
+
+*****
+
+####  关二爷  
+##### 44#       发表于 2022-12-28 13:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114414&amp;ptid=2112280" target="_blank">Ryuji1145 发表于 2022-12-28 09:13</a>
+
+虽然我不觉得有什么失败魔咒，但楼上觉得任天堂的成功主机很多吗？
+
+好像也就FC、SFC和Wii吧？ ...</blockquote>
+FC, SFC, NDS, WII, SWITCH
+
+都挺成功的
+
+3DS那几年我不熟
+
+*****
+
+####  clago  
+##### 45#       发表于 2022-12-28 13:52
+
+反正只玩第一方，爱出不出
+
+*****
+
+####  Ryuji1145  
+##### 46#       发表于 2022-12-28 14:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59117509&amp;ptid=2112280" target="_blank">关二爷 发表于 2022-12-28 13:52</a>
+
+FC, SFC, NDS, WII, SWITCH
+
+都挺成功的
+
+3DS那几年我不熟</blockquote>
+NDS和3DS是主机吗？
+
+NS现在有继任者吗？
+
+*****
+
+####  JudgmentEye  
+##### 47#       发表于 2022-12-28 14:41
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59117339&amp;ptid=2112280" target="_blank">ammk 发表于 2022-12-28 13:37</a>
+
+ns的设计+外接高性能主机底座不就完美了么？</blockquote>
+然后底座卖599？
+
+*****
+
+####  andychen  
+##### 48#       发表于 2022-12-28 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59117401&amp;ptid=2112280" target="_blank">whateveryou 发表于 2022-12-28 13:42</a>
+别tm再用三星工艺的地瓜了</blockquote>
+最近有泄漏暗示新soc使用的是台积电的4N
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  andychen  
+##### 49#       发表于 2022-12-28 14:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59117401&amp;ptid=2112280" target="_blank">whateveryou 发表于 2022-12-28 13:42</a>
+别tm再用三星工艺的地瓜了</blockquote>
+最近有泄漏暗示新soc使用的是台积电的4N
+
+—— 来自 Sony XQ-AS72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  sandro  
+##### 50#       发表于 2022-12-28 14:45
+
+人体堂反正一直是在搞骚东西，成不成都一定够骚，只要够骚就没问题
+
+*****
+
+####  ammk  
+##### 51#       发表于 2022-12-28 15:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59118004&amp;ptid=2112280" target="_blank">JudgmentEye 发表于 2022-12-28 14:41</a>
+
+然后底座卖599？</blockquote>
+定价看性能，有PS5的性能卖599刀我买账
+
+*****
+
+####  GuardHei  
+##### 52#       发表于 2022-12-28 16:09
+
+马上2023年怎么还在外接底座
+
+*****
+
+####  HazukiShion  
+##### 53#       发表于 2022-12-28 16:15
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59118628&amp;ptid=2112280" target="_blank">ammk 发表于 2022-12-28 15:45</a>
+
+定价看性能，有PS5的性能卖599刀我买账</blockquote>
+空有性能，但游戏不适配的话也会买吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+*****
+
+####  书行  
+##### 54#       发表于 2022-12-28 16:19
+
+<blockquote>Ryuji1145 发表于 2022-12-28 09:13
+虽然我不觉得有什么失败魔咒，但楼上觉得任天堂的成功主机很多吗？
+
+好像也就FC、SFC和Wii吧？ ...</blockquote>
+掌机不全都是？
+
+*****
+
+####  GuardHei  
+##### 55#       发表于 2022-12-28 16:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59115041&amp;ptid=2112280" target="_blank">wety 发表于 2022-12-28 10:24</a>
+这不就是重复当年n64到ngc的失败吗，n64后期利润太高导致任天堂舍不得放弃，结果ngc推出延迟了一年多，上 ...</blockquote>
+但那会ngc和ps2还是互为竞争对手
+单就ns而言其实和常规主机也没啥直接竞争关系了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+*****
+
+####  ammk  
+##### 56#       发表于 2022-12-28 16:35
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119004&amp;ptid=2112280" target="_blank">HazukiShion 发表于 2022-12-28 16:15</a>
+
+空有性能，但游戏不适配的话也会买吗？</blockquote>
+先有再说，不假设讨论太监的性生活质量
+
+*****
+
+####  HazukiShion  
+##### 57#       发表于 2022-12-28 16:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119247&amp;ptid=2112280" target="_blank">ammk 发表于 2022-12-28 16:35</a>
+
+先有再说，不假设讨论太监的性生活质量</blockquote>
+那你不用期待了，带宽不够
+
+*****
+
+####  ammk  
+##### 58#       发表于 2022-12-28 16:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119395&amp;ptid=2112280" target="_blank">HazukiShion 发表于 2022-12-28 16:46</a>
+
+那你不用期待了，带宽不够</blockquote>
+你先看清楚说的不是这代机器
+
+*****
+
+####  HazukiShion  
+##### 59#       发表于 2022-12-28 16:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119433&amp;ptid=2112280" target="_blank">ammk 发表于 2022-12-28 16:48</a>
+
+你先看清楚说的不是这代机器</blockquote>
+下代如果用的就是T239，那也可能不太够，你还是等下下代吧
+
+*****
+
+####  大江户战士  
+##### 60#       发表于 2022-12-28 16:56
+
+明年还不出？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  dongle2001  
+##### 61#       发表于 2022-12-28 17:02
+
+王国之心不护航新机说不过去啊，难道任天堂有隐藏的大招？
+
