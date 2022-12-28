@@ -2070,3 +2070,13 @@ Nornis这个新宿3Dlive有点新鲜
 怎么感觉这模型渲染还不如平时自家演唱会啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 摆手20分钟，唱三分钟。
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 18190#       发表于 2022-12-28 18:00
+
+https://youtu.be/Km1ph9yGe54
+要不是跑团没人看我看V圈迟早大和偕<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+

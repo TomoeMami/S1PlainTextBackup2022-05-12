@@ -1954,3 +1954,17 @@ https://www.bilibili.com/read/cv19511254
 谁能告诉我打败阿努丽斯，鸟哥消失后怎么又回来了？</blockquote>
 按鸟哥自己的说法推断应该是阿斯特莱雅从平行世界带过来的
 
+
+
+*****
+
+####  真实之影  
+##### 3164#       发表于 2022-12-28 18:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119313&amp;ptid=2098044" target="_blank">西瓜不甜不甜 发表于 2022-12-28 16:39</a>
+
+无语。。。进了新手村刷好久都没搞明白到底从哪拿火把，是在玩不下去才看攻略，原来要跟这样跟某个特定路人 ...</blockquote>
+抱歉，这不是JRPG的刻板印象
+
+二三十年前一大把欧美PC点击式冒险游戏的解密多半比这还头大的
+
