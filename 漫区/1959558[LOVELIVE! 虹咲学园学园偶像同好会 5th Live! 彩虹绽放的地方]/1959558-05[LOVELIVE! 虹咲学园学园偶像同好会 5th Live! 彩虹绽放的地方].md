@@ -193,3 +193,12 @@ Karin's episode
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太健全了，看着像是迷路来的（这个脚画得好怪）
 
+
+
+*****
+
+####  ads147147  
+##### 6817#       发表于 2022-12-28 15:14
+
+看起来好像没什么问题，但是字里行间透露出一股的暧昧感是怎么回事呢。果然是因为调兔移山之计的影响吗。
+

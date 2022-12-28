@@ -167,3 +167,13 @@ tf卡会掉速，所以不用太纠结。
 
 sd插电性能相当于什么水平的pc了？
 
+
+
+*****
+
+####  psvsd  
+##### 2007#       发表于 2022-12-28 15:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">sd又没有插电自动超频，不如说大家都想要
+跑满就660M水平，按TFlops算的话PS4无印
+
