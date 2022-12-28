@@ -12057,3 +12057,15 @@ FGO供稿的田岛昭宇：MPDP后半部（意识流打僵尸cult烂片电影）
 其实大蜘蛛也好解决 捏一个天使那样的人间体美少女作为意识分化出来 然后被咕哒攻略掉就完事了 我相信这事 ...</blockquote>
 还是算了，这个位置已经被所长顶了，ort只能老老实实地当个怪物boss
 
+
+
+*****
+
+####  eilot  
+##### 4083#       发表于 2022-12-28 12:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114614&amp;ptid=2084912" target="_blank">khxooo 发表于 2022-12-28 09:38</a>
+
+个人认为，芙芙的所谓比较之理估计也就是和公主一样，靠的是盖亚的支持，但是大蜘蛛这可是爆星的存在[f:0 ...</blockquote>
+其后会否变成全人类恶大战ORT?
+
