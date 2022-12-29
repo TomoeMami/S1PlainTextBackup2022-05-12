@@ -1053,3 +1053,16 @@ wii那些经验充其量算光枪射击的延伸，和喷不是一个路子。�
 
 有两家主机厂+PC卷机能已经够了，有一家搞玩法创新的大厂对玩家绝对是好事
 
+
+
+*****
+
+####  luhf  
+##### 101#       发表于 2022-12-29 19:05
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59130850&amp;ptid=2112280" target="_blank">ckseng 发表于 2022-12-29 16:58</a>
+你们总是想新机提升机能，有想过续航会变成怎样吗</blockquote>
+初版ns两个半小时的续航不也这么过来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu MEIZU 18, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

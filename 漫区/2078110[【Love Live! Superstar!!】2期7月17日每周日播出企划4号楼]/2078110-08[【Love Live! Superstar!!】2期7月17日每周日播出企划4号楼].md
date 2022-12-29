@@ -2347,3 +2347,14 @@ CEO吧
 鱼直播时说过她用的就是花知晓</blockquote>是上上次直播，上次直播还说虽然没工商但花知晓寄了不少化妆品，难道有推荐给pay？
 “花知晓结一下广告费谢谢”
 
+
+
+*****
+
+####  Piano-Forest  
+##### 10705#       发表于 2022-12-29 19:11
+
+风间雷太 绘
+[https://www.lovelive-anime.jp/yu ... etail.php?p=01_1507](https://www.lovelive-anime.jp/yuigaoka/topics/detail.php?p=01_1507)
+<img src="https://p.sda1.dev/9/c8cabd40aabfff5ddde0342839a39c82/20221229_190834.jpg" referrerpolicy="no-referrer">
+
