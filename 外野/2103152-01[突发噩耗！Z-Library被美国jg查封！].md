@@ -67,3 +67,14 @@
 
 这是彻底寄了吗
 
+
+
+*****
+
+####  feliznavidad  
+##### 292#       发表于 2022-12-29 19:15
+
+每次我认识一个良心资源平台都是新闻告诉我它倒了的时候<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

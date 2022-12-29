@@ -1429,3 +1429,15 @@ DLC里狸猫的那个珠子有超武吗？</blockquote>
 
 ns版啥时候安排
 
+
+
+*****
+
+####  哈迪斯兜帽  
+##### 604#       发表于 2022-12-29 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59132268&amp;ptid=2052594" target="_blank">Headless 发表于 2022-12-29 18:49</a>
+
+在手机上玩，解锁了指环和箭头后从来没成功合成过，太远了。那个能吸道具过来的东西到哪里拿啊 ...</blockquote>
+在Mad Forest存活31分钟可以拿到8号牌
+

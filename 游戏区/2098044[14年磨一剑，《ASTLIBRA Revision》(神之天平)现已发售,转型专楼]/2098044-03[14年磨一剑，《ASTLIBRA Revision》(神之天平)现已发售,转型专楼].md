@@ -2094,3 +2094,17 @@ https://www.bilibili.com/read/cv19511254
 
 抄了个指令拳，结果发现自己魔攻不达标，打石头上万，打怪魔防一高就只有几百了
 
+
+
+*****
+
+####  ParadiseMartyr  
+##### 3176#       发表于 2022-12-29 19:18
+
+ 本帖最后由 ParadiseMartyr 于 2022-12-29 19:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59132032&amp;ptid=2098044" target="_blank">arx-7 发表于 2022-12-29 18:23</a>
+阳了在家暴玩三天通了，实在是过瘾，尤其是短时间高密度过剧情的感觉，希望每年都能玩到这么对个人 ...</blockquote>
+说是誓戒侵蚀的平行世界太多了，到了一定程度一些平行世界被侵蚀后，这类世界就会影响唯一的未来的人的存在(大概就是100个世界会产生唯一未来的人物a，然后这些个平行世界里90多个都被侵蚀，影响了唯一的未来里的人存在)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+

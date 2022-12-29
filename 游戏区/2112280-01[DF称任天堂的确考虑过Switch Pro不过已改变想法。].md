@@ -1066,3 +1066,19 @@ wii那些经验充其量算光枪射击的延伸，和喷不是一个路子。�
 
 —— 来自 meizu MEIZU 18, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  何处分可  
+##### 102#       发表于 2022-12-29 19:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59131889&amp;ptid=2112280" target="_blank">体质的错 发表于 2022-12-29 18:09</a>
+
+创新什么的，太玩家视角了。
+
+其实就是给性能套马甲，这样可以高利润率卖低端硬件。
+
+任天堂历史惯例是一旦成 ...</blockquote>
+当年ns出的时候怎么还一堆人吵电子垃圾，这时候就变成良心硬件了，ns是不是电子垃圾完全就是看用来怎么骂任天堂是吧。另外一边尝试创新，一边还被你这种人侃谈成贪婪，不觉得自己矛盾吗
+
