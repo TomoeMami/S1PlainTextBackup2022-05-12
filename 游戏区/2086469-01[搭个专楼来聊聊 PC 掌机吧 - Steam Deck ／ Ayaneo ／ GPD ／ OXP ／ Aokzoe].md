@@ -187,3 +187,15 @@ aya neo2是霍尔大摇杆，我就试了titanfall2和cod4重制，没问题。�
   -- 来自  ...</blockquote>
 那是你幸运，ls就有一个闲鱼卖出去之后屏幕出故障的
 
+
+
+*****
+
+####  紫煜  
+##### 585#       发表于 2022-12-29 20:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59132736&amp;ptid=2086469" target="_blank">02031f84 发表于 2022-12-29 19:40:27</a>
+那是你幸运，ls就有一个闲鱼卖出去之后屏幕出故障的</blockquote>看第几批机子吧。。后面奥克自己故障率感觉基本下降很多了，当然完全没有是不可能的，出问题走售后问题也不大，毕竟3500就能收个6800u掌机我觉得性价比无敌，就是需要蹲蹲
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
