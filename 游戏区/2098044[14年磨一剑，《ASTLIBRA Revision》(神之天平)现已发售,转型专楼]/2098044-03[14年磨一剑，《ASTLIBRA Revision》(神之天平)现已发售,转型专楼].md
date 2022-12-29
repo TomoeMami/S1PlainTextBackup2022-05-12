@@ -2060,3 +2060,16 @@ https://www.bilibili.com/read/cv19511254
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天发现解锁成长盘之后哪怕没有解锁凭依技功能也可以在成长盘里点出来用。不过剧情上解锁了成长盘再往前走两步就是BOSS战解锁凭依技了
 
+
+
+*****
+
+####  arx-7  
+##### 3173#       发表于 2022-12-29 18:23
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">阳了在家暴玩三天通了，实在是过瘾，尤其是短时间高密度过剧情的感觉，希望每年都能玩到这么对个人口味的游戏。
+
+然后可能还是玩得太快了漏了信息，有点没搞懂，眼镜哥是誓戒爆发时坐太空船逃出去的那批人类的后代吧，应该跟伊利西昂没有直接关系，为什么会变成不存在的人？天平不是只能影响伊利西昂之内吗？
+
+而且我记得不止眼镜哥，在白毛的回忆里，还在太空船上的时候，就说了有人因为平行世界而消失了。
+
