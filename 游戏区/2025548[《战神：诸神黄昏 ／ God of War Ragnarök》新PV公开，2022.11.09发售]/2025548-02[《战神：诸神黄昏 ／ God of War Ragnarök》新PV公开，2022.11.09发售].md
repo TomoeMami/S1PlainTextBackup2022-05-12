@@ -44,3 +44,14 @@
 问一个问题，主线去到干掉了嘴臭神，发现废弃村庄那个赫利俄斯之耀没有拿到，看攻略要从那个据点走门过去， ...</blockquote>
 试试切换昼夜呢？
 
+
+
+*****
+
+####  khxooo  
+##### 1960#       发表于 2022-12-29 12:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59127465&amp;ptid=2025548" target="_blank">ylx0208 发表于 2022-12-29 11:34</a>
+试试切换昼夜呢？</blockquote>
+不关昼夜的问题，是那门有锁链可以开的，但是根据剧情那里变成奥丁的据点后锁链就不给互动了，如果实在不行，就等二周目开简单完成全收集吧。
+

@@ -853,3 +853,14 @@ NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是不是很多人更本分不清VB和VR？VB是VB，VR是VR，VB和现在的VR技术没有半毛钱关系
 
+
+
+*****
+
+####  小牛无大将  
+##### 84#       发表于 2022-12-29 12:56
+
+任天堂你麻了隔壁，明年都不出新机，都麻了隔壁要2024了ps4都能出十周年纪念版了你还在那里搞移动版ps3，踏吗的能不能要点碧莲
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
