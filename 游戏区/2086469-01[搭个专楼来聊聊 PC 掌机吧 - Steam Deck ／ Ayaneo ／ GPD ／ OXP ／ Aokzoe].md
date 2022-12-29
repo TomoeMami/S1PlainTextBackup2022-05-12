@@ -148,3 +148,14 @@ aya neo2是霍尔大摇杆，我就试了titanfall2和cod4重制，没问题。�
 老哥想问下机战30最低多少W可以流畅跑</blockquote>
 我一般都是均衡模式15w
 
+
+
+*****
+
+####  小张翔  
+##### 582#       发表于 2022-12-29 12:47
+
+现在最值得买的win掌机是哪款 不要sd sd看得我眼睛流泪
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
