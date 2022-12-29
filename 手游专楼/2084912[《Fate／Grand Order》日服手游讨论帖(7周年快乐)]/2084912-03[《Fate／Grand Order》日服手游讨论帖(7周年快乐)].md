@@ -12335,3 +12335,14 @@ ORT都打完了，无所谓了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">是不是制作方都觉得马修烦人了 继252后2.7再次恶心人 说真的当初终章直接死了算了
 
+
+
+*****
+
+####  khxooo  
+##### 4107#       发表于 2022-12-29 11:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59126988&amp;ptid=2084912" target="_blank">eilot 发表于 2022-12-29 10:57</a>
+别忘了之前有尾场是前排要放学妹和福尔摩斯，不过学妹配防御(4星)还是好硬，还有技2技3都有集中，能保其 ...</blockquote>
+这时候看板娘就好了，3回合嘲讽，不怕送不下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

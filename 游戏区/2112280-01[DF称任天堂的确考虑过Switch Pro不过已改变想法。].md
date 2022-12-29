@@ -844,3 +844,12 @@ NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">行，舅舅永远没错，舅舅如果错了，就是任天堂临时改变计划，责任全在任天堂！
 
+
+
+*****
+
+####  theyoung  
+##### 83#       发表于 2022-12-29 11:27
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是不是很多人更本分不清VB和VR？VB是VB，VR是VR，VB和现在的VR技术没有半毛钱关系
+
