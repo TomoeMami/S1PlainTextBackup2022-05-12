@@ -12357,3 +12357,21 @@ ORT都打完了，无所谓了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  DARKGRAY  
+##### 4109#       发表于 2022-12-29 11:43
+
+靠嘲讽拖回合让装黑杯的输出多打点NP，不用完全指望发牌员，算是还有那么点儿用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  風卷豹  
+##### 4110#       发表于 2022-12-29 11:45
+
+雨神好在是只有两条血和血少，给马修嘲讽礼装快点让拐上来单拐干第一条血，第二条血把尼莫换下去上第二个拐爆破
+
+—— 来自 blackshark SHARK PRS-A0, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
