@@ -2508,3 +2508,12 @@ deepl机翻：
 
 2月，新的狩猎动作游戏 "WILD HEARTS "将在全球范围内发布，这将是对ω-Force品牌的新挑战，在2023年期间，我还想宣布一个对我和ω-Force都很重要的标题。 这两个标题都将不辜负你的期望，所以非常感谢你!
 
+
+
+*****
+
+####  布拉德莱恩  
+##### 291#       发表于 2022-12-29 16:18
+
+对庄知彦和ω-Force都很重要的title？那只有真三国无双了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
