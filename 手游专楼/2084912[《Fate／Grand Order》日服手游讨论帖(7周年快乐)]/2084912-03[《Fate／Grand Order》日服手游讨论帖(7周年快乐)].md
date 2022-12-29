@@ -12346,3 +12346,14 @@ ORT都打完了，无所谓了
 别忘了之前有尾场是前排要放学妹和福尔摩斯，不过学妹配防御(4星)还是好硬，还有技2技3都有集中，能保其 ...</blockquote>
 这时候看板娘就好了，3回合嘲讽，不怕送不下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  miro112233  
+##### 4108#       发表于 2022-12-29 11:42
+
+我是很佩服现在还能自我催眠菌类其实很喜欢茄子，只是要卖其他卡才不好好写她的茄子厨的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">26整个婚纱嫁人的骚操作，拿“成长线留给2.7了”就把人打发了，现在2.7了茄子成长线在哪儿呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
