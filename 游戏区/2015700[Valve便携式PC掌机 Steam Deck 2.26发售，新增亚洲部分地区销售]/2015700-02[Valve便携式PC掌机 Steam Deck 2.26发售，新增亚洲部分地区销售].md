@@ -285,3 +285,15 @@ deck玩自走棋好使吗，操作棋子用触摸板吗
 目前感觉键盘可以轻松映射到按键上，而频繁的鼠标操作比较麻烦，自走棋需要用鼠标把棋子拉到棋盘格子上， ...</blockquote>
 那只能增大触摸板灵敏度，然后去适应了吧
 
+
+
+*****
+
+####  唯_change  
+##### 2017#       发表于 2022-12-29 08:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58982568&amp;ptid=2015700" target="_blank">Litccc 发表于 2022-12-17 19:54</a>
+
+valve的硬件有出过二代么</blockquote>
+我看好deck出到数字3
+
