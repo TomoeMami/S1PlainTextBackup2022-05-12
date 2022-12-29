@@ -322,3 +322,15 @@ valve的硬件有出过二代么</blockquote>
 
 —— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  远野四季  
+##### 2020#       发表于 2022-12-29 10:48
+
+原本想买来玩DOTA2的，结果用不惯，到手一周主要在玩吸血鬼幸存者<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+试了试巫师3和FF14，体验都不错
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
