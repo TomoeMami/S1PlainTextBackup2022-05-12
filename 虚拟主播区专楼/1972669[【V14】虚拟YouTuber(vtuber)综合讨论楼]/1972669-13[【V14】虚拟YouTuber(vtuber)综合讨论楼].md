@@ -2174,3 +2174,23 @@ https://youtu.be/Km1ph9yGe54
 
 和田角和解了，这次效果确实可以
 
+
+
+*****
+
+####  Ketestrait  
+##### 18198#       发表于 2022-12-29 16:32
+
+ 本帖最后由 Ketestrait 于 2022-12-29 16:36 编辑 
+
+真的可以吗，我在油管看1080p怎么感觉糊得一逼，是油管的问题还是田角片源的问题<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+到世怜音这首好多了，看来是野猫和爱丽丝的片源有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+*****
+
+####  FCCHua  
+##### 18199#       发表于 2022-12-29 16:34
+
+分组真不错<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
