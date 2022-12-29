@@ -2157,3 +2157,14 @@ https://www.bilibili.com/read/cv19511254
 
 当然，我看过有强者真的能把这4个东西都打掉了，还有3章开头打掉小鬼的强者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Earendil_C  
+##### 3182#       发表于 2022-12-29 23:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59135157&amp;ptid=2098044" target="_blank">smileboom 发表于 2022-12-29 23:24</a>
+当然，我看过有强者真的能把这4个东西都打掉了，还有3章开头打掉小鬼的强者 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三章开头打赢小鬼是什么魔鬼，我连碰都没碰到他就死了
+
