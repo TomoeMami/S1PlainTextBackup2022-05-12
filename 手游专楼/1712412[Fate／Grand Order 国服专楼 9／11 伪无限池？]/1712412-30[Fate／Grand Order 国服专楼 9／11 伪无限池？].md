@@ -2639,3 +2639,12 @@ c狐是boss战MVP
 
 —— 来自 OPPO PDRM00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  sosgame67  
+##### 44044#       发表于 2022-12-29 10:16
+
+暗狐在90++直接查无此人，就算打90+也最好找个高宝暗狐好友，单纯强度明年直接抽泳装就行，公主不是高宝基本只能负责貌美如花（我自己日服2宝用的也很不顺手）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

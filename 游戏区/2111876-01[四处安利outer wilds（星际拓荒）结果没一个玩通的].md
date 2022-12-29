@@ -1838,3 +1838,19 @@ ns版还没出吗
 
 这游戏文本描述非常克制，dlc更是无文本演出
 
+
+
+*****
+
+####  魔人揪揪  
+##### 178#       发表于 2022-12-29 10:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59104521&amp;ptid=2111876" target="_blank">yvev 发表于 2022-12-27 11:34</a>
+
+我给八岁的弟弟玩，上手的比我还快
+
+可能最重要的还是好奇心吧</blockquote>
+一般这个年龄的孩子玩啥都能上手 甚至连不是母语的游戏都能凭借自己毅力弄明白玩法
+
+反而是长大了20多岁以后就只会玩自己小时候接触过类型的游戏了
+
