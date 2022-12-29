@@ -1497,3 +1497,15 @@ ns版啥时候安排
 你要是有dlc，就和服女加魔法阵，能苟到天亮……就是前期中期拼操作</blockquote>
 手机还没更新dlc，已经满级柳叶刀桂叶过了，坚持了32分钟。不错不错
 
+
+
+*****
+
+####  tansapple  
+##### 610#       发表于 2022-12-29 21:27
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59133297&amp;ptid=2052594" target="_blank">Headless 发表于 2022-12-29 20:30</a>
+
+存活31分钟需要杀死或者扛住死神，杀死神推荐指环柳叶刀，练级捡指环冲突路太远推荐8号牌，8号牌需要存活 ...</blockquote>
+存活31分钟其实挺简单的，选到提拉米苏，靠复活次数都能撑到31分钟
+
