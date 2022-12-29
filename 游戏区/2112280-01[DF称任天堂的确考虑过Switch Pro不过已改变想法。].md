@@ -721,3 +721,36 @@ NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</
 ns性能真的不够用了，但无奈卖的太好，极大打击了任天堂更新换代的热情</blockquote>
 我也纳闷那为什么不抱着3DS卖一辈子呢？16年甚至还卖出700W台呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  何处分可  
+##### 72#       发表于 2022-12-29 08:43
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59125685&amp;ptid=2112280" target="_blank">KOS-MOS_Refrain 发表于 2022-12-29 07:59</a>
+
+我也纳闷那为什么不抱着3DS卖一辈子呢？16年甚至还卖出700W台呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今年销量预计1800w，隔壁索尼ps5出了两年，今年销量都赶不上ns，自然没有换代热情
+
+*****
+
+####  Hanzong  
+##### 73#       发表于 2022-12-29 08:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59121586&amp;ptid=2112280" target="_blank">zjoi 发表于 2022-12-28 20:09</a>
+
+企画是一开始一起的
+
+后来老任取消后，索尼其实就自己直接从头开始搞了
+
+之后山内耍脾气，硬要弄VR，失败后 ...</blockquote>
+现在老任不是主机霸主谁是？是吃豆人嘴里的那个吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  jmdmzt  
+##### 74#       发表于 2022-12-29 08:51
+
+都怪ns现在还是卖的太好，老任根本不急推新机。估计明年也没戏，2024年初再说吧
+

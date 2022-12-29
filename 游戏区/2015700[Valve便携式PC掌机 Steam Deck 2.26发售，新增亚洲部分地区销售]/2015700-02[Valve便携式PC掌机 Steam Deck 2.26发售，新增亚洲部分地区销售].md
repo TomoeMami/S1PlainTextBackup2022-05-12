@@ -273,3 +273,15 @@ deck玩自走棋好使吗，操作棋子用触摸板吗
 
 准备买一个玩非3A游戏。
 
+
+
+*****
+
+####  leo204672099  
+##### 2016#       发表于 2022-12-29 08:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59119886&amp;ptid=2015700" target="_blank">远野四季 发表于 2022-12-28 17:26</a>
+
+目前感觉键盘可以轻松映射到按键上，而频繁的鼠标操作比较麻烦，自走棋需要用鼠标把棋子拉到棋盘格子上， ...</blockquote>
+那只能增大触摸板灵敏度，然后去适应了吧
+
