@@ -1454,3 +1454,24 @@ ns版啥时候安排
 
 我现在开到5图打过了合体死神，求拿8号牌的方法
 
+
+
+*****
+
+####  afer  
+##### 606#       发表于 2022-12-29 20:39
+
+ 本帖最后由 afer 于 2022-12-29 20:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59133297&amp;ptid=2052594" target="_blank">Headless 发表于 2022-12-29 20:30</a>
+存活31分钟需要杀死或者扛住死神，杀死神推荐指环柳叶刀，练级捡指环冲突路太远推荐8号牌，8号牌需要存活 ...</blockquote>
+月桂柳叶升满，也能冻住死神，轻松就能引出来4个，然后注意走位就行了，你要是有dlc，就和服女加魔法阵，能苟到天亮
+
+*****
+
+####  Headless  
+##### 607#       发表于 2022-12-29 20:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59133425&amp;ptid=2052594" target="_blank">afer 发表于 2022-12-29 20:39</a>
+月桂柳叶升满，也能冻住死神，轻松就能引出来4个，然后注意走位就行了</blockquote>
+好，我试试
+

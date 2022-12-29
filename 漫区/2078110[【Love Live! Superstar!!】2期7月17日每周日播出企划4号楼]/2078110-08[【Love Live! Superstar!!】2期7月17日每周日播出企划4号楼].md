@@ -2358,3 +2358,12 @@ CEO吧
 [https://www.lovelive-anime.jp/yu ... etail.php?p=01_1507](https://www.lovelive-anime.jp/yuigaoka/topics/detail.php?p=01_1507)
 <img src="https://p.sda1.dev/9/c8cabd40aabfff5ddde0342839a39c82/20221229_190834.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  ViyViy  
+##### 10706#       发表于 2022-12-29 20:41
+
+挺好看的一套个人柄，不知道下个月可可的是啥样的。好像又只有线下购买途径，西八<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">。
+
