@@ -1907,3 +1907,14 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 入库了但恐惧让我不能通关
 
+
+
+*****
+
+####  Meltina  
+##### 183#       发表于 2022-12-29 20:55
+
+那么按楼主说的打到通关一次要多久
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
