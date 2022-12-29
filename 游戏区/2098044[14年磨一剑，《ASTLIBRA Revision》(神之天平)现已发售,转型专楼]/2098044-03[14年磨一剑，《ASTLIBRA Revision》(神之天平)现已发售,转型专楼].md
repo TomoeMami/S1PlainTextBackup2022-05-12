@@ -2073,3 +2073,15 @@ https://www.bilibili.com/read/cv19511254
 
 而且我记得不止眼镜哥，在白毛的回忆里，还在太空船上的时候，就说了有人因为平行世界而消失了。
 
+
+
+*****
+
+####  onlv星骸  
+##### 3174#       发表于 2022-12-29 18:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59132032&amp;ptid=2098044" target="_blank">arx-7 发表于 2022-12-29 18:23</a>
+
+阳了在家暴玩三天通了，实在是过瘾，尤其是短时间高密度过剧情的感觉，希望每年都能玩到这么对个人 ...</blockquote>
+是伊利西昂人**炸后跑路的人类，世界线改变后人类不需要跑路了就消失了。
+
