@@ -3163,3 +3163,16 @@ roll 到我就送朋友一份<img src="https://static.saraba1st.com/image/smiley
 
 感谢感谢🙏
 
+
+
+*****
+
+####  redstarence  
+##### 387#         楼主| 发表于 2022-12-29 13:06
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59092154&amp;ptid=2043791" target="_blank">hiiroimatsu 发表于 2022-12-26 10:24</a>
+一直想试试奈何晕3D比较严重</blockquote>
+可以用index VR玩<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
