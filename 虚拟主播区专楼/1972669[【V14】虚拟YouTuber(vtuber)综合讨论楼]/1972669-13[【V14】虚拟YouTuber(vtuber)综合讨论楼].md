@@ -2293,3 +2293,41 @@ sky真的无敌啊，太强了太强了
 
 真的无敌啊sky
 
+
+
+*****
+
+####  alcoholic1000  
+##### 18211#       发表于 2022-12-29 17:53
+
+飞翔入手！真好
+
+*****
+
+####  UnhappyTails  
+##### 18212#       发表于 2022-12-29 17:57
+
+ 本帖最后由 UnhappyTails 于 2022-12-29 17:59 编辑 
+
+怎么唱了歌飞翔入手啊，不过啊喵喵唱这个也合适
+
+但这个歌人多点好看
+
+*****
+
+####  UnhappyTails  
+##### 18213#       发表于 2022-12-29 17:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59131655&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2022-12-29 17:53</a>
+
+飞翔入手！真好</blockquote>
+刚在群里说了hhh，没想到会唱这个
+
+*****
+
+####  渡鸦骑士  
+##### 18214#       发表于 2022-12-29 18:00
+
+这肆无忌惮的穿模。
+故意的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
