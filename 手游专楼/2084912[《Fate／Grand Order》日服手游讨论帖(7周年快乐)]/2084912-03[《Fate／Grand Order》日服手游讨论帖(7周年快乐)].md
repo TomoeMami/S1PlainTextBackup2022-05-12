@@ -12300,3 +12300,15 @@ ORT都打完了，无所谓了
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
+
+
+*****
+
+####  武男  
+##### 4104#       发表于 2022-12-29 09:46
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59116757&amp;ptid=2084912" target="_blank">eilot 发表于 2022-12-28 12:49</a>
+
+其后会否变成全人类恶大战ORT?</blockquote>
+所长，异闻带之王+七冠位+圣剑使应该差不多了吧。。而且说不定是封印END呢。
+
