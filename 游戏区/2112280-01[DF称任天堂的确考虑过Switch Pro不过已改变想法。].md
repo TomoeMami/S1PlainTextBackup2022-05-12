@@ -799,3 +799,28 @@ NS 2017年发售，目前销量接近1.2亿台
 NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</blockquote>
 笑死，当年谁才是主流？谁才是创新？
 
+
+
+*****
+
+####  笔仁SaSaSa  
+##### 79#       发表于 2022-12-29 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59120057&amp;ptid=2112280" target="_blank">zjoi 发表于 2022-12-28 17:41</a>
+
+就希望不要再搞什么创新幺蛾子了，老老实实提升机能
+
+NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</blockquote>
+本来打了一段话，看见红眼病vr还是删了。
+
+建议多了解下任天堂各代游戏机到底是什么玩意儿再说话。
+
+*****
+
+####  Ryuji1145  
+##### 80#       发表于 2022-12-29 10:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">任天堂致力于扩大游戏人口，努力开发蓝海，到了泥潭大手子手里就成了无用功。
+
+非要跟索软挤破头卷3A卷性能才叫游戏是吗？
+

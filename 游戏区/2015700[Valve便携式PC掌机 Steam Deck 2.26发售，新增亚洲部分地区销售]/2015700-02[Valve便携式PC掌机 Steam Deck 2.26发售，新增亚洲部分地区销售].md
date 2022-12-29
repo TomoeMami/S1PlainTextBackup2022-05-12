@@ -309,3 +309,16 @@ valve的硬件有出过二代么</blockquote>
 日区总算到了 直接买了吸血鬼生还者在玩 老婆看到接近花十万日元的东西竟然拿来玩貌似二十年前的游戏直接崩 ...</blockquote>
 昨天我的deck刚到，不懂这游戏咋这么火也买了一个玩玩看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Meltina  
+##### 2019#       发表于 2022-12-29 10:24
+
+开始补undertale了，汉化也很简单搞定……估计等我老婆看到也会说几千块买坨东西就玩这
+
+<img src="https://p.sda1.dev/9/525d3bb2ddac5012152f792f52abc7df/CMP_20221229102225425.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
+
