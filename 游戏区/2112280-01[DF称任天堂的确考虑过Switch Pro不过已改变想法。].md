@@ -709,3 +709,15 @@ ns性能真的不够用了，但无奈卖的太好，极大打击了任天堂更
 NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</blockquote>
 体感怎么叫没用。wii时代的体感积累的经验集成到了ns几乎所有第一方大作上，更不要说喷射战士这完全基于体感玩法的当红炸子鸡。任天堂必须走这些弯路和尝试各种稀奇古怪的东西才是任天堂。要我选一个开发出labo的任天堂还是一个硬堆机能的任天堂，我肯定选前者。
 
+
+
+*****
+
+####  KOS-MOS_Refrain  
+##### 71#       发表于 2022-12-29 07:59
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59123866&amp;ptid=2112280" target="_blank">drfarsight 发表于 2022-12-28 22:53</a>
+
+ns性能真的不够用了，但无奈卖的太好，极大打击了任天堂更新换代的热情</blockquote>
+我也纳闷那为什么不抱着3DS卖一辈子呢？16年甚至还卖出700W台呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
