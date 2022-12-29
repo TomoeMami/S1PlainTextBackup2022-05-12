@@ -2230,3 +2230,16 @@ https://youtu.be/Km1ph9yGe54
 
 纯尬舞环节是吧<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  zhrs456  
+##### 18204#       发表于 2022-12-29 17:24
+
+ 本帖最后由 zhrs456 于 2022-12-29 17:26 编辑 
+
+好好的年末晚会搞成了MV大串烧也能和解的 只能说厉害了
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+

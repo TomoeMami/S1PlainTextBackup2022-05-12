@@ -159,3 +159,17 @@ aya neo2是霍尔大摇杆，我就试了titanfall2和cod4重制，没问题。�
 
 —— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  紫煜  
+##### 583#       发表于 2022-12-29 17:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59128281&amp;ptid=2086469" target="_blank">小张翔 发表于 2022-12-29 12:47:12</a>
+现在最值得买的win掌机是哪款 不要sd sd看得我眼睛流泪
+
+—— 来自 Xiaomi 2210132C, Android 13上的  v2.5 ...</blockquote>现阶段我个人觉得性价比最高的是奥克，闲鱼3500-4000就能收到了，现在也没什么太大问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
