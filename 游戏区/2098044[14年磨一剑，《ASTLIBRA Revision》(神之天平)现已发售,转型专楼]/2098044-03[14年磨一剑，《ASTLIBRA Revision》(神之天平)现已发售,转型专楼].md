@@ -2051,3 +2051,12 @@ https://www.bilibili.com/read/cv19511254
 最后 ...</blockquote>
 追章里说的相当清楚了……凯来自世界外，因为不想让世界消失所以才进入了这个世界的轮回。
 
+
+
+*****
+
+####  adw667  
+##### 3172#       发表于 2022-12-29 11:58
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">昨天发现解锁成长盘之后哪怕没有解锁凭依技功能也可以在成长盘里点出来用。不过剧情上解锁了成长盘再往前走两步就是BOSS战解锁凭依技了
+
