@@ -2370,3 +2370,12 @@ sky真的无敌啊，太强了太强了
 
 はい隠岐追放
 
+
+
+*****
+
+####  FCCHua  
+##### 18220#       发表于 2022-12-29 18:34
+
+sky这次的节目我是没想到的，期待下明后天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
