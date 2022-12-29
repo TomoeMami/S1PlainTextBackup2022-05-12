@@ -1183,3 +1183,23 @@ Wii初版是3轴加速度计+红外校准的方案。后续motion+追加了3轴�
 而且Wii的手柄虽然是靠红外辅助，但内置的（包括后来加强版的） ...</blockquote>
 我的意思喷的体感设计模式不是什么很独创性的东西，至少重力眩晕就已经把体感设计这套做的ok了。
 
+
+
+*****
+
+####  体质的错  
+##### 112#       发表于 2022-12-30 02:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59133677&amp;ptid=2112280" target="_blank">何处分可 发表于 2022-12-29 08:56</a>
+笑了，那按这种说法谁不贪婪，不会黑可以不用强行黑，不要太自以为是了 ...</blockquote>
+任天堂RD没得说，市场部门黑不得？任天堂卖给大使的3DS那个激进的定价，总不是我尬黑吧
+
+*****
+
+####  体质的错  
+##### 113#       发表于 2022-12-30 02:55
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59131994&amp;ptid=2112280" target="_blank">wbtsy 发表于 2022-12-29 06:19</a>
+我觉得很正常。你虽然想要脱离“玩家视角”，但是同样陷入“IT业家电业的视角”。任天堂则是“玩具厂视角 ...</blockquote>
+没错。但任天堂靠点子取胜，虽然从玩家视角是一股清流，但硬件方面导致周期性点子翻车，wii fit，wii u，3ds，qol project。相比于工业化“生产”游戏的索软，软件上太讲独创性导致研发周期过长，这些也是任天堂模式的反面。
+
