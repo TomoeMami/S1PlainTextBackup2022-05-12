@@ -78,3 +78,21 @@
 
 —— 来自 OPPO PCLM10, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  01一14  
+##### 293#       发表于 2022-12-29 19:26
+
+app是不是也挂了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  JITAN  
+##### 294#       发表于 2022-12-29 19:26
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59132587&amp;ptid=2103152" target="_blank">01一14 发表于 2022-12-29 19:26</a>
+app是不是也挂了</blockquote>
+没挂
+
