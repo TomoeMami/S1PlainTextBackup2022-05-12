@@ -1918,3 +1918,17 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 —— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.3
 
+
+
+*****
+
+####  Ne0  
+##### 184#       发表于 2022-12-29 21:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59133662&amp;ptid=2111876" target="_blank">Meltina 发表于 2022-12-29 20:55</a>
+
+那么按楼主说的打到通关一次要多久
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 S1Next-鹅版 v2.5.3 ...</blockquote>
+一般来说 15-20h
+

@@ -1486,3 +1486,14 @@ ns版啥时候安排
 好，我试试</blockquote>
 你要是有dlc，就和服女加魔法阵，能苟到天亮……就是前期中期拼操作
 
+
+
+*****
+
+####  Headless  
+##### 609#       发表于 2022-12-29 21:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59133457&amp;ptid=2052594" target="_blank">afer 发表于 2022-12-29 20:42</a>
+你要是有dlc，就和服女加魔法阵，能苟到天亮……就是前期中期拼操作</blockquote>
+手机还没更新dlc，已经满级柳叶刀桂叶过了，坚持了32分钟。不错不错
+
