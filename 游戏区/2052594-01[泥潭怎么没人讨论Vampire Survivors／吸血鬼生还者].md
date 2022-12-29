@@ -1441,3 +1441,16 @@ ns版啥时候安排
 在手机上玩，解锁了指环和箭头后从来没成功合成过，太远了。那个能吸道具过来的东西到哪里拿啊 ...</blockquote>
 在Mad Forest存活31分钟可以拿到8号牌
 
+
+
+*****
+
+####  Headless  
+##### 605#       发表于 2022-12-29 20:30
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59132555&amp;ptid=2052594" target="_blank">哈迪斯兜帽 发表于 2022-12-29 19:22</a>
+在Mad Forest存活31分钟可以拿到8号牌</blockquote>
+存活31分钟需要杀死或者扛住死神，杀死神推荐指环柳叶刀，练级捡指环冲突路太远推荐8号牌，8号牌需要存活31分钟<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+我现在开到5图打过了合体死神，求拿8号牌的方法
+
