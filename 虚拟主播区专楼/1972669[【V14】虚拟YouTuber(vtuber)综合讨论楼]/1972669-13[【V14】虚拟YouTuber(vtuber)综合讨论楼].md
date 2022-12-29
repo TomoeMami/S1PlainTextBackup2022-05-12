@@ -2252,3 +2252,44 @@ https://youtu.be/Km1ph9yGe54
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圭利还是上了啊，好,ankr，够硬
 
+
+
+*****
+
+####  渡鸦骑士  
+##### 18206#       发表于 2022-12-29 17:43
+
+MC也太茶番僵硬棒读了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+*****
+
+####  winda  
+##### 18207#       发表于 2022-12-29 17:44
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">在时长竞争如此激烈的歌谣祭里能有这么长的节目，sky有手段的啊
+
+*****
+
+####  UnhappyTails  
+##### 18208#       发表于 2022-12-29 17:45
+
+sky真的无敌啊，太强了太强了
+
+*****
+
+####  渡鸦骑士  
+##### 18209#       发表于 2022-12-29 17:48
+
+这么多人反而感觉变得累赘了。
+良莠不齐的人气和表演水平<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+可恶，总感觉这番话显得自己很酸
+
+*****
+
+####  UnhappyTails  
+##### 18210#       发表于 2022-12-29 17:48
+
+三首半歌两个短剧+一个mc
+
+真的无敌啊sky
+
