@@ -1475,3 +1475,14 @@ ns版啥时候安排
 月桂柳叶升满，也能冻住死神，轻松就能引出来4个，然后注意走位就行了</blockquote>
 好，我试试
 
+
+
+*****
+
+####  afer  
+##### 608#       发表于 2022-12-29 20:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59133437&amp;ptid=2052594" target="_blank">Headless 发表于 2022-12-29 20:40</a>
+好，我试试</blockquote>
+你要是有dlc，就和服女加魔法阵，能苟到天亮……就是前期中期拼操作
+
