@@ -835,3 +835,12 @@ NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</
 我也纳闷那为什么不抱着3DS卖一辈子呢？16年甚至还卖出700W台呢</blockquote>
 游戏没销量了。
 
+
+
+*****
+
+####  theyoung  
+##### 82#       发表于 2022-12-29 11:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">行，舅舅永远没错，舅舅如果错了，就是任天堂临时改变计划，责任全在任天堂！
+
