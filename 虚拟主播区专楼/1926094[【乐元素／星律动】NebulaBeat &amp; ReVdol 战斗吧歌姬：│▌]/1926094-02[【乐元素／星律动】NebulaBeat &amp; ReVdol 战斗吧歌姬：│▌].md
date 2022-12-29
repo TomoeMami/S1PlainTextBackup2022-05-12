@@ -12678,3 +12678,12 @@ wb更了   太劲了
 
 不就是为了这个梗么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4472这个梗八成得像卡姐的1700一样被长久地念叨下去
 
+
+
+*****
+
+####  ladiesman802  
+##### 2822#       发表于 2022-12-30 00:04
+
+woc，楼上的老哥怎么封了
+
