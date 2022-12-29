@@ -2648,3 +2648,17 @@ c狐是boss战MVP
 
 暗狐在90++直接查无此人，就算打90+也最好找个高宝暗狐好友，单纯强度明年直接抽泳装就行，公主不是高宝基本只能负责貌美如花（我自己日服2宝用的也很不顺手）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Blackson  
+##### 44045#       发表于 2022-12-29 14:08
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59125760&amp;ptid=1712412" target="_blank">一个陆仁贾 发表于 2022-12-29 08:22</a>
+
+我茶壶还有几个没用完，去哪里刷羁绊好？
+
+—— 来自 OPPO PDRM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
+就牛津吧，目前就它单场羁绊值最高(855)
+
