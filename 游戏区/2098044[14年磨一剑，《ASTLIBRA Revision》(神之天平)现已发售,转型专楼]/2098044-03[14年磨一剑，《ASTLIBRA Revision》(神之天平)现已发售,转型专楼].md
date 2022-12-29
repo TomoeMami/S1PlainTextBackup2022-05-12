@@ -2037,3 +2037,17 @@ https://www.bilibili.com/read/cv19511254
 
 说起来感觉这游戏手感跟香草社的很像，打完又想去打奥丁领域了
 
+
+
+*****
+
+####  asdfg  
+##### 3171#       发表于 2022-12-29 08:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59121387&amp;ptid=2098044" target="_blank">瓦米里奥 发表于 2022-12-28 06:55</a>
+
+通关了，后期稍微刷了下对boss就是纯碾压，回想起开荒时的累死累活，感觉这游戏数值方面还是有些问题
+
+最后 ...</blockquote>
+追章里说的相当清楚了……凯来自世界外，因为不想让世界消失所以才进入了这个世界的轮回。
+
