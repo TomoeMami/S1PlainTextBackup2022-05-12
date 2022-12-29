@@ -136,3 +136,15 @@ win4和oxp2到手估计奥克7000系u都出了</blockquote>不至于，奥克七
 摇杆怎么样？我发现除了sd之前我目前经手国产win掌机 摇杆精度都是垃圾，全是小摇杆玩fps类跟残废似的。 sd ...</blockquote>
 aya neo2是霍尔大摇杆，我就试了titanfall2和cod4重制，没问题。说起来这两天除了下一堆游戏挨个打开试了一遍之外，玩的最多的是DQB2和吸血鬼幸存……
 
+
+
+*****
+
+####  KTD  
+##### 581#       发表于 2022-12-29 11:03
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59124034&amp;ptid=2086469" target="_blank">机翻猫 发表于 2022-12-28 23:10</a>
+
+老哥想问下机战30最低多少W可以流畅跑</blockquote>
+我一般都是均衡模式15w
+
