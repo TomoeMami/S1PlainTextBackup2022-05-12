@@ -864,3 +864,29 @@ NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</
 
 [论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
 
+
+
+*****
+
+####  KOS-MOS_Refrain  
+##### 85#       发表于 2022-12-29 14:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59127026&amp;ptid=2112280" target="_blank">mio1943 发表于 2022-12-29 11:00</a>
+
+游戏没销量了。</blockquote>
+日月销量很差吗？
+
+*****
+
+####  barry.allen  
+##### 86#       发表于 2022-12-29 15:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114632&amp;ptid=2112280" target="_blank">lufeie46 发表于 2022-12-28 09:41</a>
+
+下一代要是失败了，那switch的成功就要被定义成任天堂的一招鲜，而不是掌机的成功了。掌机彻底成为伪需求
+
+ ...</blockquote>
+掌机不是伪需求，是被智能手机替代了。
+
+任天堂能活靠第一方游戏，能赚钱靠的是卖价值50美元的纸瓦楞盒子。
+
