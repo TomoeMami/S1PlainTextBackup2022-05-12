@@ -103,3 +103,15 @@ win4和oxp2到手估计奥克7000系u都出了</blockquote>不至于，奥克七
 
 我这边是找了熟悉的厂家帮忙收件才买到的
 
+
+
+*****
+
+####  qappip  
+##### 578#       发表于 2022-12-29 09:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59067822&amp;ptid=2086469" target="_blank">luffyzhou 发表于 2022-12-24 10:00:19</a>
+昨天玩了一天，6800u确实给力，我现在的主力本是幻16翻转，6900HS，不过一般打游戏就用独显3060了，也没特 ...</blockquote>摇杆怎么样？我发现除了sd之前我目前经手国产win掌机 摇杆精度都是垃圾，全是小摇杆玩fps类跟残废似的。 sd用大摇杆和手柄体验一样。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
