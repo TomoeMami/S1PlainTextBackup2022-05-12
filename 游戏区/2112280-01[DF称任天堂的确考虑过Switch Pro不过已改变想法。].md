@@ -927,3 +927,15 @@ NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</
 
 你们总是想新机提升机能，有想过续航会变成怎样吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  liekong  
+##### 90#       发表于 2022-12-29 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59130850&amp;ptid=2112280" target="_blank">ckseng 发表于 2022-12-29 16:58</a>
+
+你们总是想新机提升机能，有想过续航会变成怎样吗</blockquote>
+对于9成时间都连接电视或显示器游玩的人来说，续航长短没太大意义
+
