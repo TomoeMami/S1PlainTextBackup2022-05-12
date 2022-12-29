@@ -89,3 +89,17 @@ win4和oxp2到手估计奥克7000系u都出了</blockquote>不至于，奥克七
 画面非常流畅，把机器人大战30捧在手心的感动</blockquote>
 老哥想问下机战30最低多少W可以流畅跑
 
+
+
+*****
+
+####  Sue  
+##### 577#       发表于 2022-12-29 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59117781&amp;ptid=2086469" target="_blank">fcbjay 发表于 2022-12-28 14:19</a>
+
+港版可以直邮大陆吗？</blockquote>
+不行，必须要有香港地址才能购买
+
+我这边是找了熟悉的厂家帮忙收件才买到的
+
