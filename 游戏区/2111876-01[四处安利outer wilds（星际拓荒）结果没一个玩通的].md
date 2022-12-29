@@ -1873,3 +1873,12 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 导致明明不是很多字，却有文字墙的感觉
 
+
+
+*****
+
+####  飞舞的鱼  
+##### 180#       发表于 2022-12-29 15:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">第一个星球都没飞出去，操作有点捉急
+
