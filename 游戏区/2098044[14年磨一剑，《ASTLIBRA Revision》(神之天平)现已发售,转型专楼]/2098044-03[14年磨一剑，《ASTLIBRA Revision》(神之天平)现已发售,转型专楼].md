@@ -2148,3 +2148,12 @@ https://www.bilibili.com/read/cv19511254
 ！原来是这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 晕了  打了半个晚上
 
+
+
+*****
+
+####  smileboom  
+##### 3181#       发表于 2022-12-29 23:24
+
+当然，我看过有强者真的能把这4个东西都打掉了，还有3章开头打掉小鬼的强者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
