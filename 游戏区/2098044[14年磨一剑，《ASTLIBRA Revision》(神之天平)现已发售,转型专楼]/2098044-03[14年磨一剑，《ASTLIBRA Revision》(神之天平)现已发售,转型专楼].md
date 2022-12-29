@@ -2168,3 +2168,14 @@ https://www.bilibili.com/read/cv19511254
 当然，我看过有强者真的能把这4个东西都打掉了，还有3章开头打掉小鬼的强者 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">三章开头打赢小鬼是什么魔鬼，我连碰都没碰到他就死了
 
+
+
+*****
+
+####  红魔馆的糖  
+##### 3183#       发表于 2022-12-30 00:52
+
+四个遗迹兵的时候玩家的性能完全可以打了
+
+但是第三章的小鬼就只能不断SL了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
