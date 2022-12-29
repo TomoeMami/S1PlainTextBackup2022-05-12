@@ -1168,3 +1168,18 @@ Wii初版是3轴加速度计+红外校准的方案。后续motion+追加了3轴�
 
 说的人家设计硬件没你强一样，你倒是设计一个同様的性能更高的能兼容ns的硬件出来啊。跟
 
+
+
+*****
+
+####  笔仁SaSaSa  
+##### 111#       发表于 2022-12-29 22:43
+
+ 本帖最后由 笔仁SaSaSa 于 2022-12-29 22:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59131153&amp;ptid=2112280" target="_blank">liekong 发表于 2022-12-29 17:17</a>
+
+重力眩晕再早也不是老任自己的技术积累。
+
+而且Wii的手柄虽然是靠红外辅助，但内置的（包括后来加强版的） ...</blockquote>
+我的意思喷的体感设计模式不是什么很独创性的东西，至少重力眩晕就已经把体感设计这套做的ok了。
+
