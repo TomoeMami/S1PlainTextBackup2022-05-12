@@ -904,3 +904,26 @@ NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</
 好像也就FC、SFC和Wii吧？ ...</blockquote>
 还有nds,3ds
 
+
+
+*****
+
+####  ppa11  
+##### 88#       发表于 2022-12-29 16:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59121586&amp;ptid=2112280" target="_blank">zjoi 发表于 2022-12-28 20:09</a>
+
+企画是一开始一起的
+
+后来老任取消后，索尼其实就自己直接从头开始搞了
+
+之后山内耍脾气，硬要弄VR，失败后 ...</blockquote>
+当不了霸主的，任地狱当年是从资金、物料到运输宣发仓储渠道全方位被碾压的，从索尼拉着南梦宫单独搞硬件开始任地狱基本锁定败局了，单纯看怎么输而已
+
+*****
+
+####  ckseng  
+##### 89#       发表于 2022-12-29 16:58
+
+你们总是想新机提升机能，有想过续航会变成怎样吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
