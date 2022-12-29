@@ -2194,3 +2194,14 @@ https://youtu.be/Km1ph9yGe54
 
 分组真不错<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Ketestrait  
+##### 18200#       发表于 2022-12-29 16:41
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1h9krsqvctyj20xv0iztbl.jpg" referrerpolicy="no-referrer">
+
+不行，怎么看这字都是糊的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+

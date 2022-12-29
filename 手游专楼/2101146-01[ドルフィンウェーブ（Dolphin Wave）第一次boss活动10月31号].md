@@ -33,3 +33,14 @@
 
 新年活动，终于轮到水属性了
 
+
+
+*****
+
+####  无念  
+##### 218#       发表于 2022-12-29 16:46
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">怎么没人说后半前半加成不通用导致没法白嫖后半池子了，之前明明都是两个池子看XP选一个就好了，这次明摆着骗课嘛
+
+—— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

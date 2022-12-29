@@ -890,3 +890,17 @@ NS的成功其实就没什么创新，纯粹就是整合了掌机资源用 ...</
 
 任天堂能活靠第一方游戏，能赚钱靠的是卖价值50美元的纸瓦楞盒子。
 
+
+
+*****
+
+####  clmd  
+##### 87#       发表于 2022-12-29 16:50
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59114414&amp;ptid=2112280" target="_blank">Ryuji1145 发表于 2022-12-28 09:13</a>
+
+虽然我不觉得有什么失败魔咒，但楼上觉得任天堂的成功主机很多吗？
+
+好像也就FC、SFC和Wii吧？ ...</blockquote>
+还有nds,3ds
+
