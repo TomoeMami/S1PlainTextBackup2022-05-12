@@ -2126,3 +2126,25 @@ https://www.bilibili.com/read/cv19511254
 
 这游戏一周目的困难完全没感受到越打越好打的感觉，被宰相boss战的四个遗迹兵直接秒杀，能操作的空间真的就一点点<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">我的装备都是目前版本最新的了，这个数值真的合理吗
 
+
+
+*****
+
+####  smileboom  
+##### 3179#       发表于 2022-12-29 23:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59134641&amp;ptid=2098044" target="_blank">Earendil_C 发表于 2022-12-29 22:30</a>
+
+这游戏一周目的困难完全没感受到越打越好打的感觉，被宰相boss战的四个遗迹兵直接秒杀，能操作的空间真的就 ...</blockquote>
+4个遗迹兵那里我打了一下就感觉不对头了，你试试往左边逃跑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Earendil_C  
+##### 3180#       发表于 2022-12-29 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59135100&amp;ptid=2098044" target="_blank">smileboom 发表于 2022-12-29 23:18</a>
+4个遗迹兵那里我打了一下就感觉不对头了，你试试往左边逃跑</blockquote>
+！原来是这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+晕了  打了半个晚上
+
