@@ -297,3 +297,15 @@ deck玩自走棋好使吗，操作棋子用触摸板吗
 valve的硬件有出过二代么</blockquote>
 我看好deck出到数字3
 
+
+
+*****
+
+####  Benighted  
+##### 2018#       发表于 2022-12-29 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58987821&amp;ptid=2015700" target="_blank">nnnnick22 发表于 2022-12-18 08:47</a>
+
+日区总算到了 直接买了吸血鬼生还者在玩 老婆看到接近花十万日元的东西竟然拿来玩貌似二十年前的游戏直接崩 ...</blockquote>
+昨天我的deck刚到，不懂这游戏咋这么火也买了一个玩玩看<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
