@@ -12421,3 +12421,17 @@ ORT都打完了，无所谓了
 
 近期开始有角色的被动会影响其他人，如奥伯龙对梅林，徐福对虞美人，学妹也可以加多一个被动是全员防+5%，耐异常+5%这种可有可无的加幅也好，(仇职的大家被动中也会影响他人异常抗性)，盾职没克属的优点已经一早不存在，BOSS就是各种普攻会心或AOE，宝具就是各种秒杀级AOE，再加随时可能消强化或防御BUFF
 
+
+
+*****
+
+####  qixinno2  
+##### 4114#       发表于 2022-12-29 13:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59128473&amp;ptid=2084912" target="_blank">eilot 发表于 2022-12-29 13:07</a>
+
+学妹有被动是打旧章节时，其他人绊值UP(虽然没甚么用...)
+
+近期开始有角色的被动会影响其他人，如奥伯龙对 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">反正现在整体就是没屁用 突出一个什么都不行
+
