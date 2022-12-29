@@ -1882,3 +1882,19 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">第一个星球都没飞出去，操作有点捉急
 
+
+
+*****
+
+####  DeepResidual  
+##### 181#       发表于 2022-12-29 15:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59129491&amp;ptid=2111876" target="_blank">chdhdhd 发表于 2022-12-29 14:57</a>
+
+dlc没玩到，如果无文本化是选择了正确的方向。
+
+本体文本你要说克不克制，肯定克制，我玩的部分也能感觉到 ...</blockquote>
+前期肯定是很懵的，这游戏结构有点类似十三机兵，是拼图式叙事。从一处处看起来没有什么关系的片段里最后拼出世界的真相，直到通关的那一刻拼图才完整。
+
+人名时间其实不用梳理，那是留给通关之后反复玩才能弄清的。前期主要的推动点就在于观察环境破解谜题之后，通过文字弄清这个环境过去发生了什么，然后点亮自己的飞船日志，找到拼图的一小块。能看到一小段文字就是对你解谜的奖励了，怎么会嫌文字多呢。
+
