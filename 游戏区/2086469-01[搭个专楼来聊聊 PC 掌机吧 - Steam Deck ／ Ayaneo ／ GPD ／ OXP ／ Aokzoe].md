@@ -173,3 +173,17 @@ aya neo2是霍尔大摇杆，我就试了titanfall2和cod4重制，没问题。�
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  02031f84  
+##### 584#       发表于 2022-12-29 19:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59131234&amp;ptid=2086469" target="_blank">紫煜 发表于 2022-12-29 17:22</a>
+
+现阶段我个人觉得性价比最高的是奥克，闲鱼3500-4000就能收到了，现在也没什么太大问题
+
+  -- 来自  ...</blockquote>
+那是你幸运，ls就有一个闲鱼卖出去之后屏幕出故障的
+
