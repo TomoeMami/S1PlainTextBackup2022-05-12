@@ -1266,3 +1266,38 @@ switch续航跟sd也就半斤八两吧
 
 其实NS时代除了硬件大卖特卖，老任掌机主机游戏开发部门整合成功，全体进入高清化时代也是很重要的的一点。重要的IP在NS时代影响力基本都达到了新的高度，这是老任如今实力重要的一环。我很乐观，下一代翻车可能性不大
 
+
+
+*****
+
+####  minysun  
+##### 120#       发表于 2022-12-30 09:52
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59134044&amp;ptid=2112280" target="_blank">有点追求 发表于 2022-12-29 21:28</a>
+
+能有PS4的机能吗- -，现在都已经快40系显卡了，求个几年前的机能不过分吧，第二方游戏都快做不下去了，一做 ...</blockquote>
+卖1000多刀的steam deck高配版浮点性能略强于PS4，任这种卖低价玩具的厂子感觉还是不要太乐观，最后还是要看老黄能拿出怎样的SOC给任地狱用
+
+
+
+*****
+
+####  lxzxhzwzyy  
+##### 121#       发表于 2022-12-30 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59136339&amp;ptid=2112280" target="_blank">体质的错 发表于 2022-12-30 02:55</a>
+
+没错。但任天堂靠点子取胜，虽然从玩家视角是一股清流，但硬件方面导致周期性点子翻车，wii fit，wii u， ...</blockquote>
+这是任天堂不得不接受的现实，不然就得和索软去卷你所谓的工业化，你觉得胜算有几成？
+
+*****
+
+####  yuzhaoping  
+##### 122#       发表于 2022-12-30 10:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59137313&amp;ptid=2112280" target="_blank">minysun 发表于 2022-12-30 09:52</a>
+卖1000多刀的steam deck高配版浮点性能略强于PS4，任这种卖低价玩具的厂子感觉还是不要太乐观，最后还是 ...</blockquote>
+可是蒸汽甲板的高低配差距只有闪存和屏幕，性能都是一样的。低配的64g和ns价格差距是100美元。阀门也不是大厂，它能做到这个价格，我相信任天堂的供应链管理能力不应该输于阀门吧。
+
+—— 来自 samsung SM-G9300, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
