@@ -2237,3 +2237,15 @@ https://www.bilibili.com/read/cv19511254
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">主要是困难难度阿凯不给我机会啊 第三章只碰了一下我人直接没了 也不给重新挑战
 
+
+
+*****
+
+####  adw667  
+##### 3190#       发表于 2022-12-30 11:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59137485&amp;ptid=2098044" target="_blank">最终兵器狂战 发表于 2022-12-30 10:07</a>
+
+虽然都没打过，不过我真觉得第三章阿凯和第六章机头四比起来算比较有机会的。毕竟阿凯自己没啥肉搏招数，弹 ...</blockquote>
+机头四有一个会欧拉拳的，会先欧拉两下然后再连打，看准了上去能量吸收能回满血
+
