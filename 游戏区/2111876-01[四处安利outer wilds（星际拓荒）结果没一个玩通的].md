@@ -1954,3 +1954,12 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
 
+
+
+*****
+
+####  qderaaa  
+##### 187#       发表于 2022-12-30 10:25
+
+这游戏，看直播感觉有点慢热，字多，需要思考内容多。导致我直播都没看下去
+
