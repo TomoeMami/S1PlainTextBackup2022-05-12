@@ -7944,3 +7944,22 @@ CPU，没意思。
 
 我看估计不会播宝了
 
+
+
+*****
+
+####  rs5621  
+##### 3745#       发表于 2022-12-30 19:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59137149&amp;ptid=2086637" target="_blank">holoan 发表于 2022-12-30 09:34</a>
+
+你又要去CM了</blockquote>
+这不得狙击?这人声音辨识度这么高,一秒露馅.
+
+*****
+
+####  rs5621  
+##### 3746#       发表于 2022-12-30 19:49
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚最后一次宝!(
+
