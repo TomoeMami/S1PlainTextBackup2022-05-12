@@ -2680,3 +2680,41 @@ c狐是boss战MVP
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  JMFluorece  
+##### 44048#       发表于 2022-12-30 17:14
+
+绿ex，7/8的new率然后精准的出了我唯一有的伯爵<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">该死啊该死
+
+*****
+
+####  Ousia  
+##### 44049#       发表于 2022-12-30 17:16
+
+好耶，圣杯可以做，这算叔叔挽回风评的努力吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  qigeer  
+##### 44050#       发表于 2022-12-30 17:17
+
+金时宝具1-2
+
+2宝金时之后会有用么？
+
+*****
+
+####  任天索尼子  
+##### 44051#       发表于 2022-12-30 17:19
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59142527&amp;ptid=1712412" target="_blank">qigeer 发表于 2022-12-30 17:17</a>
+金时宝具1-2
+
+2宝金时之后会有用么？</blockquote>
+有了奥伯龙以后可以在某些场合当氢弹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
