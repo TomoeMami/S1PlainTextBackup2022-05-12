@@ -212,3 +212,14 @@ aya neo2是霍尔大摇杆，我就试了titanfall2和cod4重制，没问题。�
 
 —— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  任天索尼子  
+##### 587#       发表于 2022-12-30 09:39
+
+奥克我是第一批 很幸运的没有任何问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
