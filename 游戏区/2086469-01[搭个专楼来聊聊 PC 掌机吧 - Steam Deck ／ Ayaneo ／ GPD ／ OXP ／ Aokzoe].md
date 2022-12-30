@@ -232,3 +232,24 @@ aya neo2是霍尔大摇杆，我就试了titanfall2和cod4重制，没问题。�
 
 rp明年要出翻盖机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  mmmrm  
+##### 589#       发表于 2022-12-30 14:46
+
+看了一圈Win掌机的续航测评，再看看8gen2只要10W就能跑出1050级的GPU性能
+
+我感觉win掌机能耗比还是淦不过arm掌机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+如果只是模拟NS游戏的话，可能两年内win掌机也打不过arm掌机了
+
+*****
+
+####  psvsd  
+##### 590#       发表于 2022-12-30 14:48
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初G胖选型时就考虑过arm
+结论：arm怎么跑现成游戏的二进制，毙了
+
