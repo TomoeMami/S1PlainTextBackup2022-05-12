@@ -264,3 +264,18 @@ arm确实强但是适配也需要成本，何况最新制程的旗舰arm芯片�
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  医生狼多  
+##### 592#       发表于 2022-12-30 15:34
+
+ 本帖最后由 医生狼多 于 2022-12-30 15:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59140522&amp;ptid=2086469" target="_blank">mmmrm 发表于 2022-12-30 14:46</a>
+看了一圈Win掌机的续航测评，再看看8gen2只要10W就能跑出1050级的GPU性能
+
+我感觉win掌机能耗比还是淦不过a ...</blockquote>
+没游戏，只能跑模拟器<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+据说8g3新工艺，能效性能还能再跨一大步，我挺期待的
+
