@@ -2996,3 +2996,15 @@ ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不
 
 动画播到这里,大约相当于原作的什么进度?
 
+
+
+*****
+
+####  再买自检星剁手  
+##### 2245#       发表于 2022-12-31 06:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59147943&amp;ptid=1860817" target="_blank">镜hinata 发表于 2022-12-31 04:01</a>
+
+动画播到这里,大约相当于原作的什么进度?</blockquote>
+三分之二，就差基地保卫战和樱花作战了
+
