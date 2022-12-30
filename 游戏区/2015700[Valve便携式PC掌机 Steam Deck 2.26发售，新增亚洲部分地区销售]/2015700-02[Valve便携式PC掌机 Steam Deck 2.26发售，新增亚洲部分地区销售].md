@@ -334,3 +334,13 @@ valve的硬件有出过二代么</blockquote>
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  psvsd  
+##### 2021#       发表于 2022-12-30 21:16
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">怎么ToMoon的二进制部分是用rust写的
+前端部分还得用ts写，感觉好割裂
+
