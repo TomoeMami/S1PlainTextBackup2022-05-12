@@ -1223,3 +1223,15 @@ ns买的太火了，既然还能撑，为什么呀冒险升级呢。啥，想要
 只有FC和SFC吧，N64就败了，之后NGC接着败，之后就进入了二极管模式，Wii大胜、WiiU大败、NS再大胜 ...</blockquote>
 问题你这样算的话，ps1，2，4这也就大胜了三代而已。ps3时代wii大胜，ps5时代，ns大胜。不是还不如任地狱胜得多。
 
+
+
+*****
+
+####  KOS-MOS_Refrain  
+##### 116#       发表于 2022-12-30 08:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59136320&amp;ptid=2112280" target="_blank">体质的错 发表于 2022-12-30 02:42</a>
+
+任天堂RD没得说，市场部门黑不得？任天堂卖给大使的3DS那个激进的定价，总不是我尬黑吧 ...</blockquote>
+3DS那不正常定价本来就是冲着干死索尼掌机去的，对任天堂来说可是决战兵器
+
