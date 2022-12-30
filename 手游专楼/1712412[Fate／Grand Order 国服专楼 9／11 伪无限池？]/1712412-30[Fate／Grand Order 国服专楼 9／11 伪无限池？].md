@@ -2902,3 +2902,16 @@ c狐是boss战MVP
 
 —— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  dawning  
+##### 44070#       发表于 2022-12-30 22:15
+
+赌王姐福袋又失败，给了雷帝<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，
+
+心灰意冷，一发十连，狐狸出货，
+
+这就是人生的大起大落吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
