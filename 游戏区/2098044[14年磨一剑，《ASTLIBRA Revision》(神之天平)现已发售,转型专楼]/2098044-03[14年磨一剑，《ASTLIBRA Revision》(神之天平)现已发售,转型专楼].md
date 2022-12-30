@@ -2297,3 +2297,22 @@ https://www.bilibili.com/read/cv19511254
 顺便问下霸气这个技能是什么装备带的？还差这个技能没有了，还有臀击和白真是绝配，带着白用臀击隔着屏幕都 ...</blockquote>
 战斧
 
+
+
+*****
+
+####  Dai-Dai-Dai-Dai  
+##### 3196#       发表于 2022-12-30 20:40
+
+哥布林王什么墙角战神，同人游戏有点大粪也是预想中了，这玩意年一游碰上怕不是要飞盘<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+*****
+
+####  泥鳅化石  
+##### 3197#       发表于 2022-12-30 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59144592&amp;ptid=2098044" target="_blank">tsubaki 发表于 2022-12-30 20:12</a>
+
+战斧</blockquote>
+好的谢谢，刚发现这个漏了用。
+

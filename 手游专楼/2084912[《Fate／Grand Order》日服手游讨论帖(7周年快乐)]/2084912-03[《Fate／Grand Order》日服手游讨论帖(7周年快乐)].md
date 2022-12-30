@@ -12506,3 +12506,15 @@ fsf延期了，估计内容不多
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来点大的，月姬R下堂堂发售加动画化
 
+
+
+*****
+
+####  eilot  
+##### 4122#       发表于 2022-12-30 20:44
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59144900&amp;ptid=2084912" target="_blank">areklose 发表于 2022-12-30 20:37</a>
+
+来点大的，月姬R下堂堂发售加动画化</blockquote>
+月姬R动画化感觉有可能，而月姬R下就...宣布正式开始开发...
+
