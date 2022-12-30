@@ -8956,3 +8956,13 @@ https://bgm.tv/blog/315691
 🐾聖地巡礼ナビ公開中
 [https://www.city.sanjo.niigata.j ... contents/16008.html](https://www.city.sanjo.niigata.jp/sanjonavi/special_contents/16008.html)
 
+
+
+*****
+
+####  Piano-Forest  
+##### 654#         楼主| 发表于 2022-12-30 23:37
+
+[https://twitter.com/yomosue_desune/status/1608143837603721217](https://twitter.com/yomosue_desune/status/1608143837603721217)
+<img src="https://p.sda1.dev/9/f40441bee89734a591c69593533eacb2/20221230_233522.jpg" referrerpolicy="no-referrer">
+

@@ -2348,3 +2348,12 @@ ok
 
 感觉得好长时间一个树枝打天下了
 
+
+
+*****
+
+####  u2deack  
+##### 3201#       发表于 2022-12-30 23:35
+
+这游戏是不是没有地图啊要是不看攻略路都不知道往哪走更别说隐藏收集了，免费素材拼出来的地图毫无辨识度，感觉比空洞骑士还要迷路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
