@@ -28,3 +28,15 @@
 确实，新盖亚被砍了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">当初盖亚15周年的时候就被泰罗40周年抢了在银河的出场机会，结果现在又被新生代10周年抢了……
 
+
+
+*****
+
+####  鸭面包  
+##### 853#       发表于 2022-12-31 03:19
+
+借楼问问有没有坛友想要这张德凯变身主题曲CD附带的初回特典卡（不附CD），月神奇迹赛罗，坛友要的话便宜出
+
+<img src="https://p.sda1.dev/9/31965ac1efadf1a135fb172b5c75ef6a/QQ图片20221231031601.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/f0abdf82df2ac9d8c7044b65bb654cd2/ET4ZKU_M@PQC_8H9`78MWT3.png" referrerpolicy="no-referrer">
+
