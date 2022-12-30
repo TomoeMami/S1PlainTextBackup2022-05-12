@@ -3214,3 +3214,24 @@ epic之前打折入手了一份
 
 额  wild  world 傻傻分不清<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  近月  
+##### 392#       发表于 2022-12-30 10:55
+
+分母<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.2-play
+
+*****
+
+####  Yinacona  
+##### 393#       发表于 2022-12-30 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59137949&amp;ptid=2043791" target="_blank">viperasi 发表于 2022-12-30 10:47</a>
+
+额  wild  world 傻傻分不清</blockquote>
+他们两家公司离得也不远，好像发售那年愚人节还想过两边偷偷换名字
+
