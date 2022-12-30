@@ -2718,3 +2718,57 @@ c狐是boss战MVP
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  朝仓和美  
+##### 44052#       发表于 2022-12-30 17:32
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59142495&amp;ptid=1712412" target="_blank">JMFluorece 发表于 2022-12-30 17:14</a>
+绿ex，7/8的new率然后精准的出了我唯一有的伯爵该死啊该死</blockquote>
+同福袋，new了唯一不想要的阿摩耳，艹
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Blackson  
+##### 44053#       发表于 2022-12-30 17:33
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59142750&amp;ptid=1712412" target="_blank">朝仓和美 发表于 2022-12-30 17:32</a>
+
+同福袋，new了唯一不想要的阿摩耳，艹</blockquote>
+还好吧，反正咕哒7期活动90++有个作业用到卡莲(虽然要戴黑杯)
+
+*****
+
+####  绫魂h  
+##### 44054#       发表于 2022-12-30 17:35
+
+看半天，这次福袋没黑狗的吗？还想赌一把
+
+*****
+
+####  任天索尼子  
+##### 44055#       发表于 2022-12-30 17:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59142794&amp;ptid=1712412" target="_blank">绫魂h 发表于 2022-12-30 17:35</a>
+看半天，这次福袋没黑狗的吗？还想赌一把</blockquote>
+福袋已经没有非限定的卡了
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  Urakawa  
+##### 44056#       发表于 2022-12-30 17:39
+
+红ex壹new了兔女郎，第一个是仇阶卡背吓到我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Ousia  
+##### 44057#       发表于 2022-12-30 17:39
+
+福袋道满+1，暗狐450石，总体还不错<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
