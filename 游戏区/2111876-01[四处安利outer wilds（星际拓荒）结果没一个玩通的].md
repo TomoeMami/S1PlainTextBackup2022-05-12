@@ -2040,3 +2040,16 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 说得难听一点，云通关的评价没有任何参考价值，尤其是这个游戏</blockquote>
 说的难听一点，要是能好玩也不会云通关。
 
+
+
+*****
+
+####  fdodo  
+##### 195#         楼主| 发表于 2022-12-30 20:18
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59144499&amp;ptid=2111876" target="_blank">mccleaner 发表于 2022-12-30 20:04</a>
+说的难听一点，要是能好玩也不会云通关。</blockquote>
+实在对制作组创造的这个世界没兴趣也没办法，这游戏的好玩的前提就是需要沉浸于这个世界里
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

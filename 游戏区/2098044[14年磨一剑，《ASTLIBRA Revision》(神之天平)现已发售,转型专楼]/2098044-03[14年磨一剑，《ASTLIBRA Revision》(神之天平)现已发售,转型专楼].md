@@ -2285,3 +2285,15 @@ https://www.bilibili.com/read/cv19511254
 
 顺便问下霸气这个技能是什么装备带的？还差这个技能没有了，还有臀击和白真是绝配，带着白用臀击隔着屏幕都能感觉到味道。
 
+
+
+*****
+
+####  tsubaki  
+##### 3195#       发表于 2022-12-30 20:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59144522&amp;ptid=2098044" target="_blank">泥鳅化石 发表于 2022-12-30 20:06</a>
+
+顺便问下霸气这个技能是什么装备带的？还差这个技能没有了，还有臀击和白真是绝配，带着白用臀击隔着屏幕都 ...</blockquote>
+战斧
+
