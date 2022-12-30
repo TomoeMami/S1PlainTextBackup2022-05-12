@@ -253,3 +253,14 @@ rp明年要出翻盖机<img src="https://static.saraba1st.com/image/smiley/face2
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当初G胖选型时就考虑过arm
 结论：arm怎么跑现成游戏的二进制，毙了
 
+
+
+*****
+
+####  rak1  
+##### 591#       发表于 2022-12-30 15:06
+
+arm确实强但是适配也需要成本，何况最新制程的旗舰arm芯片又不便宜。厂商又没有时光机，定方案只能寻求当下最优解。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
