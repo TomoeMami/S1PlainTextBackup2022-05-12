@@ -173,3 +173,17 @@ Arweave，可以用 arrive.io 这个亲民网盘，目前价位 9.6 元每 G，�
 
 —— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Elorond  
+##### 302#       发表于 2022-12-30 10:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59136723&amp;ptid=2103152" target="_blank">Flyfish233 发表于 2022-12-30 08:20</a>
+
+pc 数码群友某天提到的
+
+Arweave，可以用 ardrive.io 这个亲民网盘，目前价位 9.6 元每 G，默认直 ...</blockquote>
+好的，谢谢大佬！
+
