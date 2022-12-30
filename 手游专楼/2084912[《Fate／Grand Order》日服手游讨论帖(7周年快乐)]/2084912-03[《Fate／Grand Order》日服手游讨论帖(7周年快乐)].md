@@ -12457,3 +12457,16 @@ ORT都打完了，无所谓了
 
 啊，更新了，怎么又是送掉落增益礼装的关卡啊，新卡池呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  任天索尼子  
+##### 4117#       发表于 2022-12-30 17:28
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59142574&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-12-30 17:20</a>
+啊，更新了，怎么又是送掉落增益礼装的关卡啊，新卡池呢</blockquote>
+日服明天开完春晚才更新呢
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
