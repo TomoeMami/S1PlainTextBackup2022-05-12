@@ -1972,3 +1972,16 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 这游戏画面如何，NS版画面和帧数会差很远吗
 
+
+
+*****
+
+####  fdodo  
+##### 189#         楼主| 发表于 2022-12-30 11:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59138383&amp;ptid=2111876" target="_blank">Meltina 发表于 2022-12-30 11:30</a>
+这游戏画面如何，NS版画面和帧数会差很远吗</blockquote>
+如果pc配置够还是建议pc，这游戏优化真算不上好，而且很容易晕3d。pc至少帧数能稳一点
+
+—— 来自 OnePlus IN2010, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+

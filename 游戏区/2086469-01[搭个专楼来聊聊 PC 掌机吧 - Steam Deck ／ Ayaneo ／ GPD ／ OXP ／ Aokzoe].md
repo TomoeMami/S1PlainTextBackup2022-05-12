@@ -223,3 +223,12 @@ aya neo2是霍尔大摇杆，我就试了titanfall2和cod4重制，没问题。�
 
 —— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  医生狼多  
+##### 588#       发表于 2022-12-30 12:00
+
+rp明年要出翻盖机<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
