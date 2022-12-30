@@ -1,5 +1,3 @@
 
-'NoneType' object has no attribute 'group'
+[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/虚拟主播区专楼/2112012-01[【B68】VUP综合讨论楼].md'
 !!error:id=2112012
-[Errno 2] No such file or directory: '/home/ubuntu/S1PlainTextBackup/漫区/2018358-01[『蓝色监狱 ／ ブルーロック』TV动画化 2022年10月].md'
-!!error:id=2018358
