@@ -2179,3 +2179,12 @@ https://www.bilibili.com/read/cv19511254
 
 但是第三章的小鬼就只能不断SL了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  adw667  
+##### 3184#       发表于 2022-12-30 08:25
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">打遗迹兵有能量吸收了当然好打一点
+
