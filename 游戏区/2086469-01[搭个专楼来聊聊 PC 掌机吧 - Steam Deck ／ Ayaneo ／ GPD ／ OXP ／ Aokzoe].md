@@ -279,3 +279,29 @@ arm确实强但是适配也需要成本，何况最新制程的旗舰arm芯片�
 没游戏，只能跑模拟器<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 据说8g3新工艺，能效性能还能再跨一大步，我挺期待的
 
+
+
+*****
+
+####  紫煜  
+##### 593#       发表于 2022-12-30 17:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59137074&amp;ptid=2086469" target="_blank">小张翔 发表于 2022-12-30 09:24:00</a>
+要怎么看批次啊
+
+—— 来自 Xiaomi 2210132C, Android 13上的  v2.5.4</blockquote>十月中下旬以后买的基本问题很少，十月上旬买的如果没有售后过，大概率屏幕会花要回去输代码
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+*****
+
+####  紫煜  
+##### 594#       发表于 2022-12-30 17:10
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59137074&amp;ptid=2086469" target="_blank">小张翔 发表于 2022-12-30 09:24:00</a>
+要怎么看批次啊
+
+—— 来自 Xiaomi 2210132C, Android 13上的  v2.5.4</blockquote>机器盒子上有日期
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

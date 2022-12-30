@@ -2662,3 +2662,21 @@ c狐是boss战MVP
 —— 来自 OPPO PDRM00, Android 12上的 S1Next-鹅版 v2.5.4 ...</blockquote>
 就牛津吧，目前就它单场羁绊值最高(855)
 
+
+
+*****
+
+####  深渊骑士  
+##### 44046#       发表于 2022-12-30 17:07
+
+艹了，蓝卡福袋居然出了玉玉<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这算别样的运气吗？其她人斗可以宝具加1的，就只有她是new......还想为水伽摩拼个2宝或宇宙凛4包的
+
+*****
+
+####  任天索尼子  
+##### 44047#       发表于 2022-12-30 17:08
+
+福袋精准定位水夹馍二宝 终于有二宝蓝卡打手了
+
+—— 来自 realme RMX2072, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
