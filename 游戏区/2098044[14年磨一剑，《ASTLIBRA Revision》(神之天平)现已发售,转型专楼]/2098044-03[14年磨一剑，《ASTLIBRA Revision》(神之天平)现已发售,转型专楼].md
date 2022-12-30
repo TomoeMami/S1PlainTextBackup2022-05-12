@@ -2199,3 +2199,12 @@ https://www.bilibili.com/read/cv19511254
 
 但到最后似乎也只是作者为了省点素材<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AkaiSuisei  
+##### 3186#       发表于 2022-12-30 09:21
+
+什么时候更新的二周目继承啊，前面爬楼说不继承还一直纠结咋办，结果一看又有了，意外之喜
+

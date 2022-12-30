@@ -162,3 +162,14 @@ https://singlelogin.me/soft/zlibrary-app-latest.apk
 pc 数码群友某天提到的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 Arweave，可以用 arrive.io 这个亲民网盘，目前价位 9.6 元每 G，默认直链国内没法访问，改成 ar-io.net/文件地址 就能访问了，做图床什么的也可以，上传了以后就无法删除了
 
+
+
+*****
+
+####  脸宽  
+##### 301#       发表于 2022-12-30 09:14
+
+周末抽个时间把书都给下了先
+
+—— 来自 Xiaomi 22041211AC, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
