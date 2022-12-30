@@ -8935,3 +8935,24 @@ https://bgm.tv/blog/315691
 
 看完到现在心里都还空落落的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  千恋万花  
+##### 653#       发表于 2022-12-30 16:02
+
+ 本帖最后由 千恋万花 于 2022-12-30 16:05 编辑 
+
+|||◤『にいがた経済新聞』|
+|  STAFFインタビュー公開📚◢|||
+
+｢Do It Yourself!!｣オフィシャルサポーター #三条市 さんのインタビュー公開✨
+
+本作と新潟県三条市の繋がりや聖地化の取組み等お話頂いてます🗣
+
+📚[https://niikei.jp/577350/](https://niikei.jp/577350/)
+
+🐾聖地巡礼ナビ公開中
+[https://www.city.sanjo.niigata.j ... contents/16008.html](https://www.city.sanjo.niigata.jp/sanjonavi/special_contents/16008.html)
+
