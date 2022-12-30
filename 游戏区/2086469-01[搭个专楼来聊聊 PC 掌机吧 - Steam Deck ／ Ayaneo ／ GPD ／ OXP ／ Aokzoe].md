@@ -199,3 +199,16 @@ aya neo2是霍尔大摇杆，我就试了titanfall2和cod4重制，没问题。�
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
+
+
+*****
+
+####  小张翔  
+##### 586#       发表于 2022-12-30 09:24
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59133045&amp;ptid=2086469" target="_blank">紫煜 发表于 2022-12-29 20:07</a>
+看第几批机子吧。。后面奥克自己故障率感觉基本下降很多了，当然完全没有是不可能的，出问题走售后问题也不 ...</blockquote>
+要怎么看批次啊
+
+—— 来自 Xiaomi 2210132C, Android 13上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
