@@ -2357,3 +2357,15 @@ ok
 
 这游戏是不是没有地图啊要是不看攻略路都不知道往哪走更别说隐藏收集了，免费素材拼出来的地图毫无辨识度，感觉比空洞骑士还要迷路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  gwchobit  
+##### 3202#       发表于 2022-12-31 00:57
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59146841&amp;ptid=2098044" target="_blank">u2deack 发表于 2022-12-30 23:35</a>
+
+这游戏是不是没有地图啊要是不看攻略路都不知道往哪走更别说隐藏收集了，免费素材拼出来的地图毫无辨识度， ...</blockquote>
+没有地图。一个章节大概不到十张图而且很少的岔路和绕路，也没什么很深的上下。比空洞可简单太多了，甚至不如奥日。地图简单反而还挺多人吐槽的。
+

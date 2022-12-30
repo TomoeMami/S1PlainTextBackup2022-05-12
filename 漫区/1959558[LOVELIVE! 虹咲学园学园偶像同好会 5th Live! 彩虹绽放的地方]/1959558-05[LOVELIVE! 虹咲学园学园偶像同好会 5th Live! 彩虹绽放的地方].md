@@ -202,3 +202,13 @@ Karin's episode
 
 看起来好像没什么问题，但是字里行间透露出一股的暧昧感是怎么回事呢。果然是因为调兔移山之计的影响吗。
 
+
+
+*****
+
+####  无聊者X  
+##### 6818#       发表于 2022-12-31 00:56
+
+<img src="https://p.sda1.dev/9/d2d3c9a77adb0d415b9a56109ca02b18/20221231_005513.jpg" referrerpolicy="no-referrer">
+[横田拓已](https://twitter.com/ohkowai/status/1608667576422535169?s=19)
+
