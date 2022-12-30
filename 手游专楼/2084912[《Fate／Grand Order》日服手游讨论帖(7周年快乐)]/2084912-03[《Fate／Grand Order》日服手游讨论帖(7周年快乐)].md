@@ -12497,3 +12497,12 @@ fsf延期了，估计内容不多
 
 把去年的搞笑OVA挖出来炒冷饭，再介绍介绍刚发售的魔夜，然后是扯淡环节
 
+
+
+*****
+
+####  areklose  
+##### 4121#       发表于 2022-12-30 20:37
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来点大的，月姬R下堂堂发售加动画化
+
