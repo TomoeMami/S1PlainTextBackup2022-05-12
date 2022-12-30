@@ -2217,3 +2217,23 @@ https://www.bilibili.com/read/cv19511254
 
 遗迹兵我死了两次后过了，然后紧跟着上飞船，结果在飞船上死了一次又重回打遗迹兵之前，气得还以为就是这么个难度<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">直到查攻略才知道要直接往左跑传送
 
+
+
+*****
+
+####  最终兵器狂战  
+##### 3188#       发表于 2022-12-30 10:07
+
+虽然都没打过，不过我真觉得第三章阿凯和第六章机头四比起来算比较有机会的。毕竟阿凯自己没啥肉搏招数，弹幕弹速其实还好，还大多都是自机狙。把握好节奏熟练后跳还是挺有机会的。机头四那个真的是毫无前摇的近战，近战和下砸不管是不是无敌时间中了就流血不让吃果子。。。
+
+不过这么说的话，好像难度主要源于我舍不得吃药来着。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+说起来宰相失散多年的弟弟是不是就是主角了？毕竟全游戏里就这俩人顶了张女人脸。
+
+*****
+
+####  arx-7  
+##### 3189#       发表于 2022-12-30 10:10
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">主要是困难难度阿凯不给我机会啊 第三章只碰了一下我人直接没了 也不给重新挑战
+
