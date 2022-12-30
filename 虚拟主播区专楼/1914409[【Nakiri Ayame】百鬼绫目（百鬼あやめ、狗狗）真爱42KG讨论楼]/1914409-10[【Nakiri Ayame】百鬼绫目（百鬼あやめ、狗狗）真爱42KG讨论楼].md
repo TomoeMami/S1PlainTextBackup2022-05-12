@@ -23,3 +23,12 @@
 
 lck真有职业女选手了，不由得想起当年绫总的电竞梦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  一仙  
+##### 14470#       发表于 2022-12-30 15:13
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼都要和绫总的电竞梦一起沉掉了
+
