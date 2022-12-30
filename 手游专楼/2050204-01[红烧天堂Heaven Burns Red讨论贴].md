@@ -51,3 +51,14 @@ tama这是真亲女儿啊
 目前没有 体力还是有的 类似红绿票</blockquote>
 那纯度不如时猫啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Muteki_Link  
+##### 861#       发表于 2022-12-31 01:39
+
+群里看到有人发贴麻子又被喷退网了，具体啥情况？
+
+活动才打第一天，日常部分还是挺欢乐的
+
