@@ -2276,3 +2276,12 @@ https://www.bilibili.com/read/cv19511254
 
 我也通关了，然后我差刷15000个怪那个就全成就了，还要再刷800个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  泥鳅化石  
+##### 3194#       发表于 2022-12-30 20:06
+
+顺便问下霸气这个技能是什么装备带的？还差这个技能没有了，还有臀击和白真是绝配，带着白用臀击隔着屏幕都能感觉到味道。
+
