@@ -2016,3 +2016,16 @@ dlc没玩到，如果无文本化是选择了正确的方向。
 
 被鮟鱇鱼吓到了。
 
+
+
+*****
+
+####  BREEEEZE  
+##### 193#       发表于 2022-12-30 19:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59143868&amp;ptid=2111876" target="_blank">mccleaner 发表于 2022-12-30 19:05</a>
+只有一个原因：不好玩。
+
+云通关了，没什么特别的波澜。</blockquote>
+说得难听一点，云通关的评价没有任何参考价值，尤其是这个游戏
+
