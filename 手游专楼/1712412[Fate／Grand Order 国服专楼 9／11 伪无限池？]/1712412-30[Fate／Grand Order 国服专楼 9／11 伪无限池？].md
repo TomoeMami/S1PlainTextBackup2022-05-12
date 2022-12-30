@@ -2826,3 +2826,12 @@ c狐是boss战MVP
 2022六周年上三骑：斯卡哈+1，红尼禄+1
 <strong>2023福袋绿EX：阿摩耳new</strong>
 
+
+
+*****
+
+####  DET33  
+##### 44062#       发表于 2022-12-30 18:55
+
+不知道该说幸运还是不幸运……出了最不想要的平景清，但是二宝……<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
