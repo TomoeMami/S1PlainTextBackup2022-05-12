@@ -2327,3 +2327,24 @@ https://www.bilibili.com/read/cv19511254
 
 问一下装备盘是只在新章那种新式宝箱才能出吗？浪费好几个钥匙了
 
+
+
+*****
+
+####  smileboom  
+##### 3199#       发表于 2022-12-30 21:37
+
+是的，只有黑怪出的新宝箱才有机会出装备盘，钥匙的话后面有个把嘉隆鼻子变成无限开箱的技能，只要道具里有相应的钥匙，开箱子就不会消耗钥匙
+
+*****
+
+####  秘银mithril  
+##### 3200#       发表于 2022-12-30 21:40
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59145571&amp;ptid=2098044" target="_blank">smileboom 发表于 2022-12-30 21:37</a>
+
+是的，只有黑怪出的新宝箱才有机会出装备盘，钥匙的话后面有个把嘉隆鼻子变成无限开箱的技能，只要道具里有 ...</blockquote>
+ok
+
+感觉得好长时间一个树枝打天下了
+
