@@ -2188,3 +2188,14 @@ https://www.bilibili.com/read/cv19511254
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">打遗迹兵有能量吸收了当然好打一点
 
+
+
+*****
+
+####  永远的访客  
+##### 3185#       发表于 2022-12-30 09:05
+
+说到遗迹兵了，我本来期待剧情线会解释未来科技是基于遗迹兵发展的所以机甲和遗迹兵很像
+
+但到最后似乎也只是作者为了省点素材<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+

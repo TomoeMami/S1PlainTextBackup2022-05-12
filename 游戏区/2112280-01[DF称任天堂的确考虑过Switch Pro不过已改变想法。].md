@@ -1235,3 +1235,14 @@ ns买的太火了，既然还能撑，为什么呀冒险升级呢。啥，想要
 任天堂RD没得说，市场部门黑不得？任天堂卖给大使的3DS那个激进的定价，总不是我尬黑吧 ...</blockquote>
 3DS那不正常定价本来就是冲着干死索尼掌机去的，对任天堂来说可是决战兵器
 
+
+
+*****
+
+####  Re.Troy  
+##### 117#       发表于 2022-12-30 09:07
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59130850&amp;ptid=2112280" target="_blank">ckseng 发表于 2022-12-29 16:58</a>
+你们总是想新机提升机能，有想过续航会变成怎样吗</blockquote>
+switch续航跟sd也就半斤八两吧
+
