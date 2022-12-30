@@ -2267,3 +2267,12 @@ https://www.bilibili.com/read/cv19511254
 
 所以封印城下面封印的其实是誓戒吧，那个外星人只是顺带的，回顾的时候看到背景就明白了
 
+
+
+*****
+
+####  smileboom  
+##### 3193#       发表于 2022-12-30 19:53
+
+我也通关了，然后我差刷15000个怪那个就全成就了，还要再刷800个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
