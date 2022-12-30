@@ -1301,3 +1301,33 @@ switch续航跟sd也就半斤八两吧
 
 —— 来自 samsung SM-G9300, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  minysun  
+##### 123#       发表于 2022-12-30 10:11
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59137427&amp;ptid=2112280" target="_blank">yuzhaoping 发表于 2022-12-30 10:02</a>
+
+可是蒸汽甲板的高低配差距只有闪存和屏幕，性能都是一样的。低配的64g和ns价格差距是100美元。阀门也不是 ...</blockquote>
+主要阀门舍得搞硬件补贴地狱还指着硬件赚钱，而且阀门还舍得搞定制APU这种花钱的事情，就任地狱当年直接捡X1垃圾的作风以及老黄那死要钱坑合作伙伴的光荣历史看整体还是比较悲观的。
+
+*****
+
+####  rbf1993  
+##### 124#       发表于 2022-12-30 10:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59137427&amp;ptid=2112280" target="_blank">yuzhaoping 发表于 2022-12-30 10:02</a>
+可是蒸汽甲板的高低配差距只有闪存和屏幕，性能都是一样的。低配的64g和ns价格差距是100美元。阀门也不是 ...</blockquote>
+单纯堆性能其实没那么难，但要兼顾很多其他东西就不一样了。我最近在玩deck，这种尺寸、重量、续航的产品注定只能是小众，任天堂不可能靠这种产品打江山的……
+
+*****
+
+####  BallanceHZ  
+##### 125#       发表于 2022-12-30 10:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59137546&amp;ptid=2112280" target="_blank">minysun 发表于 2022-12-30 10:11</a>
+主要阀门舍得搞硬件补贴地狱还指着硬件赚钱，而且阀门还舍得搞定制APU这种花钱的事情，就任地狱当年直接 ...</blockquote>
+sd用的那个玩意也不是特别定制啦，van gogh这个东西苹果都测试过，只是最后🍎跑去用自己的了
+
