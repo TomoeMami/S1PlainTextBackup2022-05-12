@@ -1331,3 +1331,15 @@ switch续航跟sd也就半斤八两吧
 主要阀门舍得搞硬件补贴地狱还指着硬件赚钱，而且阀门还舍得搞定制APU这种花钱的事情，就任地狱当年直接 ...</blockquote>
 sd用的那个玩意也不是特别定制啦，van gogh这个东西苹果都测试过，只是最后🍎跑去用自己的了
 
+
+
+*****
+
+####  lxzxhzwzyy  
+##### 126#       发表于 2022-12-30 11:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59137427&amp;ptid=2112280" target="_blank">yuzhaoping 发表于 2022-12-30 10:02</a>
+
+可是蒸汽甲板的高低配差距只有闪存和屏幕，性能都是一样的。低配的64g和ns价格差距是100美元。阀门也不是 ...</blockquote>
+这可不一定，尤其是在保证利润率的情况下
+
