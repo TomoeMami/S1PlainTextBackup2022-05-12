@@ -2772,3 +2772,27 @@ c狐是boss战MVP
 
 福袋道满+1，暗狐450石，总体还不错<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  kuarwbwe  
+##### 44058#       发表于 2022-12-30 17:57
+
+福袋水院，算下等奖。最想要杨玉环，或者水迦摩三宝。不过没给我出六宝北斋也还算万幸吧。<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+*****
+
+####  kyonkoism  
+##### 44059#       发表于 2022-12-30 18:00
+
+抽暗狐肯定是图个开图鉴啦，而且2 3破都不大好看，就算一个十连满宝了我也大概率不会掏出来当打手，通古斯刷了那么老些，她拿了120石头就来了，真是give and take<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202212/30/180034j50yygsky50q7ycy.jpg" referrerpolicy="no-referrer">
+
+<strong>BS%@W)T}(C7(RKX4BO1[FPG.jpg</strong> (533.76 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-30 18:00 上传
+
