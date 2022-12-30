@@ -360,3 +360,15 @@ valve的硬件有出过二代么</blockquote>
 
 天猫国际感觉价格还行，下单了，请问大家自己更换硬盘的话怎么选？淘宝上有很多商家连系统都做好了，可以入么？
 
+
+
+*****
+
+####  quake0day  
+##### 2024#       发表于 2022-12-31 01:16
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=58519802&amp;ptid=2015700" target="_blank">魔法少女大头 发表于 2022-11-20 15:15</a>
+有个问题，源生没改过的机器玩游戏修改什么的麻烦吗 。
+还有存档是云存档和pc共同不？</blockquote>
+云存档和机器同步，你就同步后在电脑上修改好再传回去就行了。而且本身游戏机就是一台arch Linux的电脑，所以修改存档，汉化，mod安装之类的一般都可以搞定
+
