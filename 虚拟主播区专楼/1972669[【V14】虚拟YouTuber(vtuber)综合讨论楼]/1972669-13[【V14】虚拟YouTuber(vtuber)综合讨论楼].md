@@ -2388,3 +2388,15 @@ sky这次的节目我是没想到的，期待下明后天<img src="https://stati
 
 vspo这12话动画总不能是正常长度吧…
 
+
+
+*****
+
+####  psnsic8nag  
+##### 18222#       发表于 2022-12-30 15:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59140188&amp;ptid=1972669" target="_blank">poipanchao 发表于 2022-12-30 14:13</a>
+
+vspo这12话动画总不能是正常长度吧…</blockquote>
+Holo每周动画的长度吧
+
