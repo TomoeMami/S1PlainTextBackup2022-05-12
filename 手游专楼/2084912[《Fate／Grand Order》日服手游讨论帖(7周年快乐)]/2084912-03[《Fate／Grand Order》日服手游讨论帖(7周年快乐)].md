@@ -12536,3 +12536,14 @@ fsf延期了，估计内容不多
 
 就表里线两部了，表线通关pv给了里线四女主的cg和标题，总不能再拆一下
 
+
+
+*****
+
+####  千叶铁矢  
+##### 4125#       发表于 2022-12-30 21:58
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59145588&amp;ptid=2084912" target="_blank">RiesbyfeAtlasia 发表于 2022-12-30 21:39</a>
+就表里线两部了，表线通关pv给了里线四女主的cg和标题，总不能再拆一下</blockquote>
+原来如此，我学姐线ge还差一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
