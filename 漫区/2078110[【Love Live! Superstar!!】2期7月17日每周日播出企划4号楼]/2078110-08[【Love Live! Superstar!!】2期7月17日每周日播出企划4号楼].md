@@ -2404,3 +2404,14 @@ CEO吧
 
 鲤鱼这两天没安排不知道会不会去CM
 
+
+
+*****
+
+####  starring  
+##### 10711#       发表于 2022-12-30 18:36
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59142270&amp;ptid=2078110" target="_blank">稀勢のささ 发表于 2022-12-30 16:58</a>
+才知道原来设定上恋才是liella的ace</blockquote>
+这古早的设定估计连staff都忘了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
