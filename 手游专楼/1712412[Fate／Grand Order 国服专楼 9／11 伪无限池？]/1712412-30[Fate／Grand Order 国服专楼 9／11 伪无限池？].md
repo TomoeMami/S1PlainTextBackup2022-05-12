@@ -2915,3 +2915,43 @@ c狐是boss战MVP
 
 这就是人生的大起大落吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  shimotsuki14  
+##### 44071#       发表于 2022-12-30 22:30
+
+狐狸三单没出来
+福袋倒是成功将水迦摩从1变2
+
+*****
+
+####  flyzzhj  
+##### 44072#       发表于 2022-12-30 22:33
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">累计登陆2200天了，终于出了莉莉丝，唯一一次抽到福袋想要的英灵
+
+*****
+
+####  ztkong  
+##### 44073#       发表于 2022-12-30 22:34
+
+氪了1单，福袋不错，2个复仇者，然后暗狐欧了
+
+<img src="https://img.saraba1st.com/forum/202212/30/223355f7elcgrcky9l18zz.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221230-222133.jpg</strong> (560.24 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-30 22:33 上传
+
+<img src="https://img.saraba1st.com/forum/202212/30/223359ayusfzcrbuxn3pk3.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221230-223001.jpg</strong> (571.31 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-30 22:33 上传
+
