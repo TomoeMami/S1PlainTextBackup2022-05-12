@@ -2882,3 +2882,23 @@ c狐是boss战MVP
 
 福袋芦屋道满，这么多年福袋下来最靠谱的一个。。。
 
+
+
+*****
+
+####  marxel  
+##### 44068#       发表于 2022-12-30 21:03
+
+下四Q反正全new 拿了bx算是大奖 90石光狐收藏了
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  不乖  
+##### 44069#       发表于 2022-12-30 21:11
+
+保底实装了，是不是出货率降了啊，有没有大佬来说说
+
+—— 来自 Xiaomi 22041216C, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
