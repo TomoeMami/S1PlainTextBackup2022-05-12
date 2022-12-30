@@ -3235,3 +3235,14 @@ epic之前打折入手了一份
 额  wild  world 傻傻分不清</blockquote>
 他们两家公司离得也不远，好像发售那年愚人节还想过两边偷偷换名字
 
+
+
+*****
+
+####  xiaolong610  
+##### 394#       发表于 2022-12-30 18:02
+
+这游戏真这么好玩 看你谭一直在推荐
+
+[论坛助手,iPhone](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=2029836)
+
