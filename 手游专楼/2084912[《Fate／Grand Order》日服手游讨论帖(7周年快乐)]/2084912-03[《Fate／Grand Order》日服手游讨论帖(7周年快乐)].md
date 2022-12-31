@@ -13243,3 +13243,38 @@ fate无双好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 麻婆这个动作好像KOF97/98的炎之克里斯啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  リッチ  
+##### 4200#       发表于 2022-12-31 23:33
+
+ 本帖最后由 リッチ 于 2022-12-31 23:40 编辑 
+
+45发11连6宝<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">无歪，18个四星从者，21张当期五星礼装
+
+
+
+*****
+
+####  gpx234mqx  
+##### 4201#       发表于 2022-12-31 23:35
+
+ 本帖最后由 gpx234mqx 于 2022-12-31 23:38 编辑 
+
+今年福袋还是翻车，三对三的卡池都翻车
+
+P梅两宝有屁用啊[f:218]
+
+妈的。连续3年福袋翻车了
+
+微信图片_20221231233436.jpg
+(602.64 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 23:35 上传
+
+<img src="https://img.saraba1st.com/forum/202212/31/233525aqx8my7i66qv79y0.jpg" referrerpolicy="no-referrer">
+
