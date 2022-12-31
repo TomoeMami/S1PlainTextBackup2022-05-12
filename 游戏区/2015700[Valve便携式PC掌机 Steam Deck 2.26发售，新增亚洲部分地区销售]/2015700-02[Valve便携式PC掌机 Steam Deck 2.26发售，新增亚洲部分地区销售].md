@@ -381,3 +381,15 @@ valve的硬件有出过二代么</blockquote>
 
 今天到货的纯小白想加个群，我有一堆问题想问。
 
+
+
+*****
+
+####  伊莉伊莉雅  
+##### 2026#       发表于 2022-12-31 11:01
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59031871&amp;ptid=2015700" target="_blank">setree 发表于 2022-12-21 12:05</a>
+碰到个奇怪的bug问问坛友有没有解决方案
+我这边在家下载完成+实际玩过的游戏，第二天重启机器后要整个游戏 ...</blockquote>
+是整个游戏还是着色器缓存?
+
