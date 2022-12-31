@@ -2489,3 +2489,26 @@ ssk这个是はじめてのおつかい吗
 
 一些5ch记忆回溯<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  hulaoda007  
+##### 18231#       发表于 2022-12-31 18:11
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">年味正浓。
+
+*****
+
+####  winda  
+##### 18232#       发表于 2022-12-31 18:12
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">组合表演结束终于可以说了，三天总共就一曲表演还放在无料part，真不如放第一天无料或者放有料，搞的花完钱看推表演的像个冤大头
+
+*****
+
+####  alcoholic1000  
+##### 18233#       发表于 2022-12-31 18:17
+
+吹奏乐部这个社歌四连真挺热闹的，明年甲子园不来个应援吗
+
