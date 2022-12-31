@@ -12795,3 +12795,12 @@ Screenshot_2022-12-31-09-07-34-18_149003a2d400f6adb210d7e357a3a646.jpg
  ...</blockquote>
 我个人是因为叶纸回归离3d之间隔太久了，兴奋劲消磨得差不多了，等3d了。我本人是不太爱看live2d直播的，尤其她们都不是那种很有梗的人。
 
+
+
+*****
+
+####  佛皇  
+##### 2831#       发表于 2022-12-31 22:04
+
+不能以K9的风光大葬来评估现在的叶纸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
