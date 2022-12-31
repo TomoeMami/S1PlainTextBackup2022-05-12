@@ -2453,3 +2453,19 @@ Holo每周动画的长度吧
 
 马娘和Vtuber能不能不要来CM浪费资源啊
 
+
+
+*****
+
+####  tt13  
+##### 18228#       发表于 2022-12-31 14:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59090012&amp;ptid=1972669" target="_blank">FCCHua 发表于 2022-12-26 00:27</a>
+
+后知后觉sky发的这首歌，也算是有个结局吧</blockquote>
+实际上从时间线来讲根本不是这个翻唱的剧情
+
+不过的确算是给个交代了……
+
+至少她们在一起过，给了我很多感动，陪我度过了疫情最难的时期，感谢祝福吧
+
