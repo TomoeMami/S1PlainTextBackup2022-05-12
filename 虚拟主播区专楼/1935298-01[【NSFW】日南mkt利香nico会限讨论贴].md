@@ -4032,3 +4032,15 @@ f242040aceea97cc0b89c23b2ce9e523#126ef56ac2e8f6c4b6022ffbc0e916fa#5985850846#/�
 想不到日南也是器材党</blockquote>
 ？你怎么看到的
 
+
+
+*****
+
+####  幻肢痛  
+##### 398#       发表于 2022-12-31 16:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59151601&amp;ptid=1935298" target="_blank">Map-2 发表于 2022-12-31 15:54</a>
+
+？你怎么看到的</blockquote>
+是说积分？要看自己有办法，再说日南的东西又不难找
+
