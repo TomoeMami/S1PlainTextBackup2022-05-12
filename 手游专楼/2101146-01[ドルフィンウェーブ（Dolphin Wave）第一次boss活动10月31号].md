@@ -44,3 +44,12 @@
 
 —— 来自 HONOR SDY-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  小五的拖鞋  
+##### 219#         楼主| 发表于 2022-12-31 14:21
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">正月活动开了，更新在2楼了，和服还是要抽一下的，话说真是心疼艾莲，每次都当提款姬，和服都借给别人穿，自己还穿着圣诞活动的大衣
+
