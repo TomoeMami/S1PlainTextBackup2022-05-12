@@ -3041,3 +3041,12 @@ c狐是boss战MVP
 
 —— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Urakawa  
+##### 44082#       发表于 2022-12-31 16:45
+
+提醒一下，过了尾声后能铸造2个圣杯，0点就刷新了
+
