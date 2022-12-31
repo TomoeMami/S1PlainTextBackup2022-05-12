@@ -87,3 +87,15 @@
 
 铃铛果然成神石了，是不是可以猜能活几天了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  leeskies  
+##### 17229#       发表于 2022-12-31 20:09
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59152573&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2022-12-31 17:35</a>
+
+铃铛果然成神石了，是不是可以猜能活几天了？</blockquote>
+回答：今年都没过去
+

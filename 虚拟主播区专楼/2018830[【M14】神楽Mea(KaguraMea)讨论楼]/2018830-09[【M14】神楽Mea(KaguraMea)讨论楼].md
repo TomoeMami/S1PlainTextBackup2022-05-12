@@ -962,3 +962,14 @@ space播
 
 不是101就是唱歌能出什么事<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  往世雷书  
+##### 13012#       发表于 2022-12-31 20:09
+
+自己不惹事也可以被事惹，总之今年安全了，希望明年能给我一些惊喜
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
