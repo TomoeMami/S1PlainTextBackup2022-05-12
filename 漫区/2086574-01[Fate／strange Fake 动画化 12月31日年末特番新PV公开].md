@@ -652,3 +652,89 @@ fgo你手上那个就是真的恩奇都
 
 延到七月了？什么玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 69#         楼主| 发表于 2022-12-31 21:34
+
+┏━
+
+　  Fate/strange Fake
+
+    -Whispers of Dawn-
+
+        2023.summer
+
+                                 ━┛
+
+2023年夏
+
+“伪り”の圣杯戦争、
+
+その戦端が黎明を告げる。
+
+本日公开した最新映像を、
+
+YouTubeにて公开しました。
+
+[https://youtu.be/EpLKseoUV6Q](https://youtu.be/EpLKseoUV6Q)
+
+*****
+
+####  zakki  
+##### 70#       发表于 2022-12-31 21:34
+
+肯定是TV了，估计本来打算今天放一集剩下的7月，现在改成直接等7月了
+
+*****
+
+####  UnrealApartheid  
+##### 71#       发表于 2022-12-31 21:37
+
+ 本帖最后由 UnrealApartheid 于 2022-12-31 21:39 编辑 
+
+绫香·沙条——花泽香菜
+
+Saber / “狮心王”理查一世——小野友树
+
+蒂妮·切尔克——诸星堇
+
+缲丘椿——古贺葵
+
+奥兰多·里维——羽多野涉
+
+捷斯塔·卡尔托雷——橘龙丸
+
+弗拉特·埃斯卡尔德斯——松冈祯丞
+
+弗朗西丝卡·普勒拉蒂——内田真礼
+
+法尔迪乌斯·迪奥兰德——榎木淳弥
+
+君主·埃尔梅罗二世——浪川大辅
+
+Lancer / 恩奇都——小林优
+
+Archer / 吉尔伽美什——关智一
+
+Caster / 大仲马——森久保祥太郎
+
+Berserker——堀内贤雄
+
+Assassin——Lynn
+
+朗格尔——咲野俊介
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+Screenshot_2022-12-31-21-28-20-45_f9ee0578fe1cc94de7482bd41accb329.jpg
+(52.53 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 21:39 上传
+
+<img src="https://img.saraba1st.com/forum/202212/31/213929vkz2onisln3qakrp.jpg" referrerpolicy="no-referrer">
+
