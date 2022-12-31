@@ -8208,3 +8208,57 @@ holo其他人的语录全加起来不知道能不能比得过她一个人的
 
 2022-12-31 21:18 上传
 
+
+
+*****
+
+####  holoan  
+##### 3770#         楼主| 发表于 2022-12-31 21:24
+
+正月衣装直播
+
+企划（之前的外景，有嘉宾）+live
+
+*****
+
+####  qesto  
+##### 3771#       发表于 2022-12-31 21:26
+
+感觉已经是木口梗王了
+
+*****
+
+####  rs5621  
+##### 3772#       发表于 2022-12-31 21:26
+
+ 本帖最后由 rs5621 于 2022-12-31 21:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没用的,照样忙到吐血
+
+*****
+
+####  holoan  
+##### 3773#         楼主| 发表于 2022-12-31 21:26
+
+<img src="https://img.saraba1st.com/forum/202212/31/212650v89ftt35dyyvf9tu.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (19.8 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 21:26 上传
+
+*****
+
+####  holoan  
+##### 3774#         楼主| 发表于 2022-12-31 21:27
+
+梗王不知道，但是今年切片王基本跑不了
+
+*****
+
+####  ZQXY2002  
+##### 3775#       发表于 2022-12-31 21:30
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">最近几个月都一周休两天了还是忙，明年感觉只会更忙。
+

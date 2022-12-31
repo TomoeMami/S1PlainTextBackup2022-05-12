@@ -635,3 +635,20 @@ fgo你手上那个就是真的恩奇都
 
 2022-12-31 21:11 上传
 
+
+
+*****
+
+####  黑上シグマ  
+##### 67#       发表于 2022-12-31 21:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直接鸽半年，跳到夏天去了
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">小说8卷2月发售，好耶
+
+*****
+
+####  little_gg  
+##### 68#       发表于 2022-12-31 21:31
+
+延到七月了？什么玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
