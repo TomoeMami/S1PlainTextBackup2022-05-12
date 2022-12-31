@@ -8136,3 +8136,12 @@ CPU，没意思。
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">看自己的语录都能吐槽得这么欢乐 
 
+
+
+*****
+
+####  holoan  
+##### 3764#         楼主| 发表于 2022-12-31 20:58
+
+holo其他人的语录全加起来不知道能不能比得过她一个人的
+
