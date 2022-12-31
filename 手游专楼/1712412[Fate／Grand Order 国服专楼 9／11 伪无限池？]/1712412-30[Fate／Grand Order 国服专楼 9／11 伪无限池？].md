@@ -3028,3 +3028,16 @@ c狐是boss战MVP
 
 福袋难得出次想要的，前两年四个福袋new都没有，我还是按数学期望玩科学福袋的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Kon-El  
+##### 44081#       发表于 2022-12-31 16:39
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59151408&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2022-12-31 15:32</a>
+福袋被土方埋伏了……</blockquote>
+我也是土方<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1990A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
