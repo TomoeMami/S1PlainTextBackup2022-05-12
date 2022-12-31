@@ -13080,3 +13080,125 @@ fate无双好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 福袋金时，2单1麻婆，滚蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4184#       发表于 2022-12-31 23:12
+
+ 本帖最后由 Jamaisvu 于 2022-12-31 23:15 编辑 
+
+搬运一下麻婆的卡面和数据：
+
+<img src="https://img.saraba1st.com/forum/202212/31/231409x7qcwigrgzaraza9.jpg" referrerpolicy="no-referrer">
+
+<strong>C3E93BBF7F3079C15FDAAF847B794589.jpg</strong> (277.43 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 23:14 上传
+
+<img src="https://img.saraba1st.com/forum/202212/31/231408u0qqkbovdcqdqqq8.jpg" referrerpolicy="no-referrer">
+
+<strong>6FDB1DC20FE43A6CDFC8B2C90918065527162904.jpg</strong> (425.67 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 23:14 上传
+
+这四张卡一个动作太偷懒了吧...感觉也就初始好看...社长难不成是为了方便做手办才弄了这么个手势？
+
+*****
+
+####  黑上シグマ  
+##### 4185#       发表于 2022-12-31 23:13
+
+手上240多石头，最后的一发11连出了，对心脏不太好啊混蛋
+
+*****
+
+####  alucardcz  
+##### 4186#       发表于 2022-12-31 23:13
+
+3宝开了2技能要多少级羁绊才能120?
+
+*****
+
+####  保罗赫伯特  
+##### 4187#       发表于 2022-12-31 23:14
+
+麻婆这个突破形态好狂野啊
+
+*****
+
+####  壳壳牛  
+##### 4188#       发表于 2022-12-31 23:16
+
+福袋两个new，赚了
+
+麻婆象征性20连没出，剩下一单等藤乃
+
+*****
+
+####  angelooo  
+##### 4189#       发表于 2022-12-31 23:17
+
+巫女服技能不错
+
+*****
+
+####  exiaexa  
+##### 4190#       发表于 2022-12-31 23:18
+
+麻婆也太下头了，1宝跑路
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  AbigailWilliams  
+##### 4191#       发表于 2022-12-31 23:19
+
+只能感叹蓝卡打手厉害的各有各的厉害，麻婆这都能叫复古了。
+这种模组放绿卡可能都要觉得是唯一神突然仁慈了一小波给了个50充呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  里村紅葉  
+##### 4192#       发表于 2022-12-31 23:20
+
+这加QP的三星礼装怎么满破给你装模作样弄个2.3%宝威<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  onemoment  
+##### 4193#       发表于 2022-12-31 23:20
+
+麻婆池子有毒，1宝跑了
+
+*****
+
+####  alucardcz  
+##### 4194#       发表于 2022-12-31 23:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59158087&amp;ptid=2084912" target="_blank">AbigailWilliams 发表于 2022-12-31 23:19</a>
+
+只能感叹蓝卡打手厉害的各有各的厉害，麻婆这都能叫复古了。
+
+这种模组放绿卡可能都要觉得是唯一神突然仁慈 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绿了还想有50?
+
+*****
+
+####  Jamaisvu  
+##### 4195#       发表于 2022-12-31 23:21
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59158012&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-12-31 23:13</a>
+
+3宝开了2技能要多少级羁绊才能120?</blockquote>
+五星从者抽一个90硬币，100-120级需要300硬币，开2技能120个，共需420个。
+
+羁绊的话，1~6每级给5个，7~9每级给10个，10~15每级给20个 。
+
+三宝270硬币，10羁绊是80硬币，大概需要到羁绊14才能120级。
+
