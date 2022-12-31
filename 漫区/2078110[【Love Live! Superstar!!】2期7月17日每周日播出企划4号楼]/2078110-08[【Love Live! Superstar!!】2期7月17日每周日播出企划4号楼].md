@@ -2489,3 +2489,16 @@ CEO吧
 <img src="https://p.sda1.dev/9/fb94d0770af271ec547814a4498b44cf/20221231_101739.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/9/d4c56e8144b87c299c6b760057bf86e9/20221231_101741.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  player3960  
+##### 10719#       发表于 2022-12-31 11:19
+
+居然1号晚上开直播<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+乐观：她心里有我们<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+悲观：今年1号没地方过年，只能开直播唠嗑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
