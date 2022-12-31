@@ -738,3 +738,12 @@ Screenshot_2022-12-31-21-28-20-45_f9ee0578fe1cc94de7482bd41accb329.jpg
 
 <img src="https://img.saraba1st.com/forum/202212/31/213929vkz2onisln3qakrp.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  MONSTERS  
+##### 72#       发表于 2023-1-1 00:45
+
+蒂妮、操丘椿、伪开膛手、无名暗杀者这几个人的声优是不是第一次公布的
+
