@@ -3255,3 +3255,18 @@ epic之前打折入手了一份
 
 自己玩感觉会有点害怕...特别是那个有很多鱼的位置。。。
 
+
+
+*****
+
+####  aruruu  
+##### 396#       发表于 2022-12-31 09:53
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59143108&amp;ptid=2043791" target="_blank">xiaolong610 发表于 2022-12-30 18:02</a>
+这游戏真这么好玩 看你谭一直在推荐
+
+论坛助手,iPhone</blockquote>
+这游戏非常挑人，玩不进去的坛友也很多，可以找一下另一个帖子
+
+—— 来自 HONOR LGE-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
