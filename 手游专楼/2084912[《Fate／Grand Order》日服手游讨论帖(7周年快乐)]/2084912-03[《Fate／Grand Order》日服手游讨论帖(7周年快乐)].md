@@ -13278,3 +13278,58 @@ P梅两宝有屁用啊[f:218]
 
 <img src="https://img.saraba1st.com/forum/202212/31/233525aqx8my7i66qv79y0.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  リッチ  
+##### 4202#       发表于 2022-12-31 23:45
+
+抽完才看到再临这么丑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可以退钱吗
+
+*****
+
+####  黑上シグマ  
+##### 4203#       发表于 2022-12-31 23:48
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59158506&amp;ptid=2084912" target="_blank">リッチ 发表于 2022-12-31 23:45</a>
+
+抽完才看到再临这么丑
+
+可以退钱吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">駄目です
+
+*****
+
+####  angelooo  
+##### 4204#       发表于 2022-12-31 23:49
+
+<blockquote>リッチ 发表于 2022-12-31 23:45
+抽完才看到再临这么丑
+
+可以退钱吗</blockquote>
+就当只有一张卡面好了……
+
+*****
+
+####  不垃圾屌丝  
+##### 4205#       发表于 2022-12-31 23:51
+
+一宝收藏吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
+*****
+
+####  exiaexa  
+##### 4206#       发表于 2022-12-31 23:51
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59158506&amp;ptid=2084912" target="_blank">リッチ 发表于 2022-12-31 23:45</a>
+抽完才看到再临这么丑
+
+可以退钱吗</blockquote>
+就是为了防止这种悲剧，我从前年开始都是先终突，再决定补不补宝
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
