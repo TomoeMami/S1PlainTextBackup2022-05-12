@@ -2658,3 +2658,12 @@ LL这饭碗虽然够铁但装的不够多，明年事务所再安排多点个活
 
 不过这个榜单有点问题。。。CN上记录liyuu今年也就60场活动，别的像音宝这种直接刷到90多个了。。。
 
+
+
+*****
+
+####  starring  
+##### 10731#       发表于 2022-12-31 21:45
+
+这个CDTV的演出是录播的形式？看出场时间是凌晨2点，应该不会让艺人待机到这个点才演出吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+

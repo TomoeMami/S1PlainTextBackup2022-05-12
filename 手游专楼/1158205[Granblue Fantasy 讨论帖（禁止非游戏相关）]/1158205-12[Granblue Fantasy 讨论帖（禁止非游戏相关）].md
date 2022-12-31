@@ -108,3 +108,12 @@
 
 这会儿修得真快啊，福桑。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  poor  
+##### 17231#       发表于 2022-12-31 21:48
+
+有句讲句，要修的话肯定是修得快比修得慢好，至少少点人被骗井比如我，还没抽到
+
