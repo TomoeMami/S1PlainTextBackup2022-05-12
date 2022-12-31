@@ -2667,3 +2667,25 @@ LL这饭碗虽然够铁但装的不够多，明年事务所再安排多点个活
 
 这个CDTV的演出是录播的形式？看出场时间是凌晨2点，应该不会让艺人待机到这个点才演出吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  csolfans  
+##### 10732#       发表于 2022-12-31 21:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59156225&amp;ptid=2078110" target="_blank">starring 发表于 2022-12-31 21:45</a>
+
+这个CDTV的演出是录播的形式？看出场时间是凌晨2点，应该不会让艺人待机到这个点才演出吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播哦
+
+*****
+
+####  nufawneafg  
+##### 10733#       发表于 2022-12-31 21:56
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59155143&amp;ptid=2078110" target="_blank">toshima 发表于 2022-12-31 20:41</a>
+不过这个榜单有点问题。。。CN上记录liyuu今年也就60场活动，别的像音宝这种直接刷到90多个了。。。 ...</blockquote>
+本质还是那个购票平台自己统计，年末来营销一把自己的网站
+有些活动不通过那个平台，平台就装看不见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
