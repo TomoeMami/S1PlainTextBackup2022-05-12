@@ -2512,3 +2512,12 @@ ssk这个是はじめてのおつかい吗
 
 吹奏乐部这个社歌四连真挺热闹的，明年甲子园不来个应援吗
 
+
+
+*****
+
+####  Ketestrait  
+##### 18234#       发表于 2022-12-31 22:18
+
+abema今年到底四处塞了多少钱，田角这又在abema整了个25小时SP节目<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+

@@ -12675,3 +12675,45 @@ fake的特番直接延到夏天还行，工期那么爆炸吗
 
 沙雕咕哒动画化可以有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4139#       发表于 2022-12-31 22:13
+
+FSF动画2023年7月播出...不知道那时候FGO主线是否完结<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4140#       发表于 2022-12-31 22:14
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59156798&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-31 22:13</a>
+
+FSF动画2023年7月播出...不知道那时候FGO主线是否完结</blockquote>
+大胆点 第7章说不定还没完结
+
+
+
+*****
+
+####  angelooo  
+##### 4141#       发表于 2022-12-31 22:15
+
+我宣布这个沙雕咕哒动画是本日最佳
+
+*****
+
+####  alucardcz  
+##### 4142#       发表于 2022-12-31 22:18
+
+有一说一今年春晚有点拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  rooarr  
+##### 4143#       发表于 2022-12-31 22:18
+
+今年没什么亮点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+

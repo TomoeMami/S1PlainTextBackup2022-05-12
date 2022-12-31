@@ -2689,3 +2689,30 @@ LL这饭碗虽然够铁但装的不够多，明年事务所再安排多点个活
 本质还是那个购票平台自己统计，年末来营销一把自己的网站
 有些活动不通过那个平台，平台就装看不见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  starring  
+##### 10734#       发表于 2022-12-31 22:12
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59156417&amp;ptid=2078110" target="_blank">csolfans 发表于 2022-12-31 21:54</a>
+
+直播哦</blockquote>
+深夜打工人<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+*****
+
+####  优妮可  
+##### 10735#       发表于 2022-12-31 22:17
+
+直播，结束都凌晨了吧，她们还得各回各家跨年
+
+*****
+
+####  nufawneafg  
+##### 10736#       发表于 2022-12-31 22:20
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">现在实在不敢熬到凌晨
+还是一觉起来有得看比较好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
