@@ -12561,3 +12561,15 @@ fsf延期了，估计内容不多
 
 除了里线把五月线独立成单独路线以外，大致现在的月R包含的内容就是当时同人版的半月版，所以甫刚发售的时候有人调侃菌皇经典复刻又卖了个半月版的半成品
 
+
+
+*****
+
+####  UNISONIA  
+##### 4127#       发表于 2022-12-31 09:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59144236&amp;ptid=2084912" target="_blank">廖化 发表于 2022-12-30 19:42</a>
+
+话说明天月球春晚会有啥啊，总不能纯唠2个小时嗑吧……</blockquote>
+会有个FSF主题的演奏会，应该包括泽野这次写的新曲和之前PV用的旧曲
+
