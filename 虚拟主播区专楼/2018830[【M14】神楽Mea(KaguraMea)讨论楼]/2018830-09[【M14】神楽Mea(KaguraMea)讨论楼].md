@@ -942,3 +942,14 @@ space播
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
+
+
+*****
+
+####  十九号大侠  
+##### 13010#       发表于 2022-12-31 14:55
+
+还在撸啊
+
+—— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
