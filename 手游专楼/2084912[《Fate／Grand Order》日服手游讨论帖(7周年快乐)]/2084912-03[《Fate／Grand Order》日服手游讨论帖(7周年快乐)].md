@@ -12761,3 +12761,104 @@ FSF动画2023年7月播出...不知道那时候FGO主线是否完结</blockquote
 
 又有新衣服了
 
+
+
+*****
+
+####  alucardcz  
+##### 4149#       发表于 2022-12-31 22:46
+
+麻婆...
+
+*****
+
+####  Jamaisvu  
+##### 4150#       发表于 2022-12-31 22:46
+
+麻婆实装了？！！！
+
+抽爆<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+*****
+
+####  longrider  
+##### 4151#       发表于 2022-12-31 22:46
+
+大过年抽麻婆？？
+
+*****
+
+####  黑上シグマ  
+##### 4152#       发表于 2022-12-31 22:47
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所有异星使徒在迦勒底集结
+
+*****
+
+####  Jamaisvu  
+##### 4153#       发表于 2022-12-31 22:47
+
+ 本帖最后由 Jamaisvu 于 2022-12-31 22:49 编辑 
+
+这个宝具看着像Fate/Unlimited Codes里的超杀...
+
+好吧，也不是很像：[https://www.bilibili.com/video/BV1GW41157i9?p=3](https://www.bilibili.com/video/BV1GW41157i9?p=3)
+
+（P3的2分40秒）
+
+*****
+
+####  xiongxingyu  
+##### 4154#       发表于 2022-12-31 22:47
+
+麻婆：老板叛变跳对面了怎么办？当然是在老板落地之前先跳到对面啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 4155#       发表于 2022-12-31 22:47
+
+不能让老板比我更早跳反<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  壳壳牛  
+##### 4156#       发表于 2022-12-31 22:48
+
+懂了，周年所长落地
+
+*****
+
+####  Aunn  
+##### 4157#       发表于 2022-12-31 22:49
+
+四星up提升总算做点人事
+
+*****
+
+####  areklose  
+##### 4158#       发表于 2022-12-31 22:50
+
+开心了。不用抽了
+
+*****
+
+####  alucardcz  
+##### 4159#       发表于 2022-12-31 22:51
+
+2.7后 1月下旬
+
+*****
+
+####  onemoment  
+##### 4160#       发表于 2022-12-31 22:51
+
+1月下旬还行
+
+*****
+
+####  黑上シグマ  
+##### 4161#       发表于 2022-12-31 22:51
+
+后篇1月下旬，理所当然的隔一个月
+
