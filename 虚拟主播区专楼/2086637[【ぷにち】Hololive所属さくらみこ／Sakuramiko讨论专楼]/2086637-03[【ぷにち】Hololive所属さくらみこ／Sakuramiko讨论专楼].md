@@ -8314,3 +8314,56 @@ holo其他人的语录全加起来不知道能不能比得过她一个人的
 
 -
 
+
+
+*****
+
+####  holoan  
+##### 3782#         楼主| 发表于 2022-12-31 23:25
+
+<img src="https://img.saraba1st.com/forum/202212/31/232507sr9gmoujpm5g6daj.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (183.01 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 23:25 上传
+
+*****
+
+####  神澈  
+##### 3783#       发表于 2022-12-31 23:25
+
+有人截图吗？
+
+*****
+
+####  holoan  
+##### 3784#         楼主| 发表于 2022-12-31 23:28
+
+就一个火建原创曲
+
+一个七字母原创曲
+
+没了
+
+*****
+
+####  Map-2  
+##### 3785#       发表于 2022-12-31 23:29
+
+七字母原创曲真的要来了？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+会是我之前猜的holo*27吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  holoan  
+##### 3786#         楼主| 发表于 2022-12-31 23:31
+
+星街上次直播就提了
+
+提出了的基本就是要做或者在做了
+
+也不是什么秘密了
+

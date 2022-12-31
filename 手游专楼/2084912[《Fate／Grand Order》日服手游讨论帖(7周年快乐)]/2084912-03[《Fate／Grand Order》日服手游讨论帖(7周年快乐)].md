@@ -13202,3 +13202,44 @@ fate无双好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067
 
 三宝270硬币，10羁绊是80硬币，大概需要到羁绊14才能120级。
 
+
+
+*****
+
+####  alucardcz  
+##### 4196#       发表于 2022-12-31 23:23
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59158129&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-31 23:21</a>
+
+五星从者抽一个90硬币，100-120级需要300硬币，开2技能120个，共需420个。
+
+羁绊的话，1~6每级给5个，7~9 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">寄..才11  本来还想终于能有个120了
+
+*****
+
+####  zore  
+##### 4197#       发表于 2022-12-31 23:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这银纹有什么来头吗
+
+*****
+
+####  Jamaisvu  
+##### 4198#       发表于 2022-12-31 23:28
+
+ 本帖最后由 Jamaisvu 于 2022-12-31 23:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59158208&amp;ptid=2084912" target="_blank">zore 发表于 2022-12-31 23:26</a>
+
+这银纹有什么来头吗</blockquote>
+黑樱同款吧？麻婆也是黑圣杯的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过麻婆应该是被黑泥重塑了心脏...胸口这个虚洞不知道是啥玩意...
+
+*****
+
+####  Jamaisvu  
+##### 4199#       发表于 2022-12-31 23:31
+
+麻婆这个动作好像KOF97/98的炎之克里斯啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
