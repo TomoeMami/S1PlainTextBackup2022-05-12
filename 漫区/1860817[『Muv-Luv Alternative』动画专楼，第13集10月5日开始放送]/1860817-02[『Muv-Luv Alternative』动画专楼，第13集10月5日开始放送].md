@@ -3019,3 +3019,17 @@ ATE动画十年了后半部分还没出来，AL就这么一直鸽了也不是不
 
 不过看后续应该是不会再出基地保卫战和樱花大战了吧。
 
+
+
+*****
+
+####  hlazd  
+##### 2247#       发表于 2022-12-31 22:59
+
+MLA世界线的中途岛海战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/006bjbFMgy1h9n8w84wzij31uo0u0x6p.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/006bjbFMgy1h9n8w9ivqyj31uo0u0npe.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/006bjbFMgy1h9n8walmi3j31uo0u0kjm.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/006bjbFMgy1h9n8wbud79j31uo0u0kjm.jpg" referrerpolicy="no-referrer">
+

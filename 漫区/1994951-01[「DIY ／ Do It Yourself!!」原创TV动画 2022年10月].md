@@ -9017,3 +9017,19 @@ https://bgm.tv/blog/315691
 看完了，很舒服
 要是job子不是那种假老外腔就更舒服了(
 
+
+
+*****
+
+####  千恋万花  
+##### 657#       发表于 2022-12-31 23:01
+
+🎍明けましておめでとうございます🐰
+
+毎月第①日曜日は『#DIYの日』🔨
+
+新年&amp;#xD7;DIYの日を記念し､加藤けえさん([@k_ekaki](https://twitter.com/k_ekaki))によるせるふとミートの素敵なイラストを公開✨
+
+今年もオリジナルTVアニメ「Do It Yourself!! -どぅー・いっと・ゆあせるふ-」の応援をよろしくお願いします!!
+<img src="https://p.sda1.dev/9/78236dfeb18dda3bc0e01f1953862e54/diy_anime-1609202773165330432-img1.jpg" referrerpolicy="no-referrer">
+

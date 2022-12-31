@@ -12862,3 +12862,163 @@ FSF动画2023年7月播出...不知道那时候FGO主线是否完结</blockquote
 
 后篇1月下旬，理所当然的隔一个月
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4162#       发表于 2022-12-31 22:51
+
+2.7后篇一月下旬开启...
+
+话说预告这张烟雾镜清晰度比游戏高了不少，看着很顺眼啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+*****
+
+####  白金口袋  
+##### 4163#       发表于 2022-12-31 22:52
+
+下旬（31号）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4164#       发表于 2022-12-31 22:53
+
+<img src="https://img.saraba1st.com/forum/202212/31/225226t8a58w088p8qg3hn.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (112.57 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 22:52 上传
+
+打破了新年外星人和SABER交替UP的传统，麻婆守住了异星使徒的本分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 4165#       发表于 2022-12-31 22:53
+
+笑死了，麻婆比老板抢先进池子23333
+
+*****
+
+####  壳壳牛  
+##### 4166#       发表于 2022-12-31 22:55
+
+卧槽无双？
+
+*****
+
+####  onemoment  
+##### 4167#       发表于 2022-12-31 22:55
+
+艹新无双<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  longrider  
+##### 4168#       发表于 2022-12-31 22:55
+
+新的fate无双？武藏又出来了
+
+*****
+
+####  1a不解释  
+##### 4169#       发表于 2022-12-31 22:56
+
+有说啥时候出吗
+
+*****
+
+####  Jamaisvu  
+##### 4170#       发表于 2022-12-31 22:56
+
+ 本帖最后由 Jamaisvu 于 2022-12-31 22:58 编辑 
+
+<img src="https://img.saraba1st.com/forum/202212/31/225810fbouijmam22bsoub.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (67.65 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 22:58 上传
+
+新作3D动作RPG：Fate Samurai Renmnant
+
+乍一看还以为是刀剑乱舞的广告，结果男主突然长出了令咒...
+
+看着卖相不错，希望不要像这个月新出的游戏武士少女那样金玉其外败絮其中...
+
+黑化武藏（？）挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+
+*****
+
+####  阿提拉  
+##### 4171#       发表于 2022-12-31 22:56
+
+草，新无双
+
+*****
+
+####  保罗赫伯特  
+##### 4172#       发表于 2022-12-31 22:58
+
+看2.7下半有没有所长卡池吧，没有的话就不知道啥时候了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4173#       发表于 2022-12-31 23:00
+
+猜一下，村正蓝光炮，道满绿光炮，麻婆应该是红光炮了...
+
+感觉没法撼动帝王花和魔总的位置...
+
+*****
+
+####  保罗赫伯特  
+##### 4174#       发表于 2022-12-31 23:00
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59157625&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-31 22:56</a>
+
+新作3D动作RPG：Fate Samurai Renmnant
+
+乍一看还以为是刀剑乱舞的广告，结果男主突然长出了令咒...</blockquote>
+没黑化吧，看着就是换了身衣服
+
+*****
+
+####  gpx234mqx  
+##### 4175#       发表于 2022-12-31 23:01
+
+fate无双好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不如加抽卡机制？
+
+*****
+
+####  Jamaisvu  
+##### 4176#       发表于 2022-12-31 23:02
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59157715&amp;ptid=2084912" target="_blank">保罗赫伯特 发表于 2022-12-31 23:00</a>
+
+没黑化吧，看着就是换了身衣服</blockquote>
+嗯，应该就是普通武藏，之前那俩无双游戏也是给船长啊红A啊换了新衣...
+
+总之能再次看见老熟人武藏真挺开心的。
+
+*****
+
+####  angelooo  
+##### 4177#       发表于 2022-12-31 23:02
+
+<blockquote>Jamaisvu 发表于 2022-12-31 23:00
+猜一下，村正蓝光炮，道满绿光炮，麻婆应该是红光炮了...
+
+感觉没法撼动帝王花和魔总的位置... ...</blockquote>
+蓝光炮
+
