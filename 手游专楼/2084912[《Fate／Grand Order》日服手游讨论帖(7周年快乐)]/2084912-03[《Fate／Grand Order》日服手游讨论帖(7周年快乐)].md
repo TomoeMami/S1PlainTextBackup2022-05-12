@@ -13512,3 +13512,32 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 比较有趣的是出麻婆前我在友情池攒手气，突然来了一个小安，然后我赶紧十连，麻婆get<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  yzj134100  
+##### 4223#       发表于 2023-1-1 01:56
+
+赌梅莉失败不过还是new可以了，麻婆加巴姐，某意义上的组合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  eilot  
+##### 4224#       发表于 2023-1-1 02:29
+
+20符+30石
+
+一隻铃鹿御前，宝5之后再来1隻...
+
+一隻美杜莎(枪)，宝3
+
+一隻真假公主，宝2
+
+*****
+
+####  quanlix  
+##### 4225#       发表于 2023-1-1 03:15
+
+邪了门了，现在抽卡就没有不歪的，麻婆池子呆毛+1，恩齐都+1
+
