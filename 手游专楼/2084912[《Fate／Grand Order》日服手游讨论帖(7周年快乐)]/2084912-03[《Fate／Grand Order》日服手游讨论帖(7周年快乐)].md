@@ -12717,3 +12717,31 @@ FSF动画2023年7月播出...不知道那时候FGO主线是否完结</blockquote
 
 今年没什么亮点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4144#       发表于 2022-12-31 22:25
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59156833&amp;ptid=2084912" target="_blank">alucardcz 发表于 2022-12-31 22:14</a>
+
+大胆点 第7章说不定还没完结</blockquote>
+罗曼：戴比特，为什么你这种空虚的人能活好几个月，我却一定要在圣诞节前死去<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+戴比特：鬼知道，我已经通知迦勒底还有十天就灭世了，结果他们说要回去过年...<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+*****
+
+####  Jamaisvu  
+##### 4145#       发表于 2022-12-31 22:27
+
+这个春晚的广告笑死我了，一次更衣人偶的手办，一次孤独摇滚的专辑，两次鬼灭之刃的预告<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 4146#       发表于 2022-12-31 22:28
+
+本篇终于来了
+

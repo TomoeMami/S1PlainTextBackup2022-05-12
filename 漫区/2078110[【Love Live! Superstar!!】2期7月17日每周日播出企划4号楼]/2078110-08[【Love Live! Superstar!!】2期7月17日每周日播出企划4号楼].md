@@ -2716,3 +2716,17 @@ LL这饭碗虽然够铁但装的不够多，明年事务所再安排多点个活
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">现在实在不敢熬到凌晨
 还是一觉起来有得看比较好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  toshima  
+##### 10737#       发表于 2022-12-31 22:22
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59156446&amp;ptid=2078110" target="_blank">nufawneafg 发表于 2022-12-31 21:56</a>
+
+本质还是那个购票平台自己统计，年末来营销一把自己的网站
+
+有些活动不通过那个平台，平台就装看不见[f:06 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实，不过总的来说星的活动也是保底四五十场也挺离谱的。。。
+
