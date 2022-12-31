@@ -13333,3 +13333,56 @@ P梅两宝有屁用啊[f:218]
 就是为了防止这种悲剧，我从前年开始都是先终突，再决定补不补宝
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  alucardcz  
+##### 4207#       发表于 2022-12-31 23:53
+
+ 本帖最后由 alucardcz 于 2022-12-31 23:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59158584&amp;ptid=2084912" target="_blank">exiaexa 发表于 2022-12-31 23:51</a>
+
+就是为了防止这种悲剧，我从前年开始都是先终突，再决定补不补宝</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如直接隔壁看完卡面再抽
+
+*****
+
+####  Jamaisvu  
+##### 4208#       发表于 2022-12-31 23:55
+
+<img src="https://img.saraba1st.com/forum/202212/31/235443xnag20oncgo8jngn.jpg" referrerpolicy="no-referrer">
+
+<strong>Screenshot_20221231_235404_com.aniplex.fategrandorder.jpg</strong> (386.46 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 23:54 上传
+
+时代变了，土狼！这玩意可比黑键好使！
+
+*****
+
+####  rooarr  
+##### 4209#       发表于 2022-12-31 23:55
+
+今年怎么qp本不是消耗减半啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想临时刷点qp都不行
+
+*****
+
+####  khxooo  
+##### 4210#       发表于 2022-12-31 23:59
+
+NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了，看所长或者羽蛇神谁先落地吧。
+
+*****
+
+####  Jamaisvu  
+##### 4211#       发表于 2023-1-1 00:00
+
+元旦快乐，福气满溢。
+
+祝大家在新的一年里，身体健康，万事如意，各得其所，否极泰来，终有一日能与心仪的英灵相逢！
+
+倾听命运，迎接未来。
+
