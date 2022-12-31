@@ -2572,3 +2572,17 @@ CEO吧
 
 想着nako也没啥活怎么还上榜了，又反应过来是星团活动开的太多了。这么看大西才是最强的那个啊，个人活动量都不输星团了
 
+
+
+*****
+
+####  starring  
+##### 10727#       发表于 2022-12-31 15:42
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59151387&amp;ptid=2078110" target="_blank">Enakina 发表于 2022-12-31 15:29</a>
+
+想着nako也没啥活怎么还上榜了，又反应过来是星团活动开的太多了。这么看大西才是最强的那个啊，个人活动量 ...</blockquote>
+除去团活nako有写真的签售和FC这两场活动吧，pay则是BDevent和FC两场，所以两人排名相同
+
+LL这饭碗虽然够铁但装的不够多，明年事务所再安排多点个活啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
