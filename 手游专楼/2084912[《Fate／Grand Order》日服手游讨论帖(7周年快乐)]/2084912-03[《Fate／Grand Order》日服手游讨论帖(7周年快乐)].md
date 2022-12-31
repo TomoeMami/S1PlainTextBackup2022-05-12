@@ -13541,3 +13541,12 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 邪了门了，现在抽卡就没有不歪的，麻婆池子呆毛+1，恩齐都+1
 
+
+
+*****
+
+####  sosgame67  
+##### 4226#       发表于 2023-1-1 07:37
+
+这么多年福袋第一次双黄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
