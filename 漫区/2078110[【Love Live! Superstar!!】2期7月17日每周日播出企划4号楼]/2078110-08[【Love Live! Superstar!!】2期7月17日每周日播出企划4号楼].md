@@ -2545,3 +2545,14 @@ CEO吧
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只能说星团活动刷的太猛了
 
+
+
+*****
+
+####  cat1230  
+##### 10724#       发表于 2022-12-31 15:05
+
+星5人刷屏，最强打工人石锤。这一年收入应该不错。比起单纯配音，参加各种活动收入更高啊。
+
+----发送自 [Xiaomi Redmi K20 Pro,Android 9](http://stage1.5j4m.com/?1.37)
+
