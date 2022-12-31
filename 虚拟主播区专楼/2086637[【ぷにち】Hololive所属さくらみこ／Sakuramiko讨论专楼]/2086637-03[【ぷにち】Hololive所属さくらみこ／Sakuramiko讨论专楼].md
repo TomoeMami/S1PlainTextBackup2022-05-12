@@ -8585,3 +8585,14 @@ holo其他人的语录全加起来不知道能不能比得过她一个人的
 
 这个不错
 
+
+
+*****
+
+####  rs5621  
+##### 3808#       发表于 2023-1-1 06:35
+
+读sc，我该躺了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
