@@ -747,3 +747,17 @@ Screenshot_2022-12-31-21-28-20-45_f9ee0578fe1cc94de7482bd41accb329.jpg
 
 蒂妮、操丘椿、伪开膛手、无名暗杀者这几个人的声优是不是第一次公布的
 
+
+
+*****
+
+####  UnrealApartheid  
+##### 73#       发表于 2023-1-1 00:54
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59159678&amp;ptid=2086574" target="_blank">MONSTERS 发表于 2023-01-01 00:45:34</a>
+蒂妮、操丘椿、伪开膛手、无名暗杀者这几个人的声优是不是第一次公布的
+
+ ...</blockquote>是第一次公布的，没错
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+

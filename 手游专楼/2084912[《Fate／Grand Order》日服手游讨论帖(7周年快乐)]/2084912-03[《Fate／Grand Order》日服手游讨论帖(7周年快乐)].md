@@ -13501,3 +13501,14 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 
 福袋寄了 想赌奥伯龙来了个二宝暗兔 麻婆虽然两发十连抽到了但是感觉没啥用
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4222#       发表于 2023-1-1 00:57
+
+24个十一连终于出了麻婆<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+比较有趣的是出麻婆前我在友情池攒手气，突然来了一个小安，然后我赶紧十连，麻婆get<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
