@@ -2521,3 +2521,12 @@ ssk这个是はじめてのおつかい吗
 
 abema今年到底四处塞了多少钱，田角这又在abema整了个25小时SP节目<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  颅献尸皇  
+##### 18235#       发表于 2023-1-1 01:09
+
+请教一下，nico的会员付费是有什么限制吗？我的visa卡可以开油管、蓝p的会员，但nico开频道会员的时候提示我不可用。
+
