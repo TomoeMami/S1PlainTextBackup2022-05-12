@@ -13435,3 +13435,29 @@ NEW千利修，虽然还是没有摩根，但还是血赚，麻婆就不抽了�
 欧 羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不如萌新双5星福袋
 
+
+
+*****
+
+####  qixinno2  
+##### 4217#       发表于 2023-1-1 00:13
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59159136&amp;ptid=2084912" target="_blank">gpx234mqx 发表于 2023-1-1 00:10</a>
+
+欧，羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉不算欧 有点后悔抽
+
+*****
+
+####  gpx234mqx  
+##### 4218#       发表于 2023-1-1 00:13
+
+好羡慕福袋new的啊<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+*****
+
+####  khxooo  
+##### 4219#       发表于 2023-1-1 00:14
+
+新年一开始两个欧皇在互相豹跳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
