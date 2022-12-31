@@ -12745,3 +12745,19 @@ FSF动画2023年7月播出...不知道那时候FGO主线是否完结</blockquote
 
 本篇终于来了
 
+
+
+*****
+
+####  Jamaisvu  
+##### 4147#       发表于 2022-12-31 22:39
+
+咕哒子这个红白巫女服好好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+*****
+
+####  黑上シグマ  
+##### 4148#       发表于 2022-12-31 22:39
+
+又有新衣服了
+
