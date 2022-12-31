@@ -8145,3 +8145,31 @@ CPU，没意思。
 
 holo其他人的语录全加起来不知道能不能比得过她一个人的
 
+
+
+*****
+
+####  holoan  
+##### 3765#         楼主| 发表于 2022-12-31 21:02
+
+<img src="https://img.saraba1st.com/forum/202212/31/210258cbfqzag2djjl4fjo.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (20.16 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 21:02 上传
+
+*****
+
+####  holoan  
+##### 3766#         楼主| 发表于 2022-12-31 21:08
+
+<img src="https://img.saraba1st.com/forum/202212/31/210813d00fn4mliiflsl4m.png" referrerpolicy="no-referrer">
+
+<strong>image.png</strong> (22.48 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 21:08 上传
+
