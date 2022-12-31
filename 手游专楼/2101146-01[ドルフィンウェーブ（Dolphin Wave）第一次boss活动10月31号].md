@@ -53,3 +53,12 @@
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">正月活动开了，更新在2楼了，和服还是要抽一下的，话说真是心疼艾莲，每次都当提款姬，和服都借给别人穿，自己还穿着圣诞活动的大衣
 
+
+
+*****
+
+####  黑上シグマ  
+##### 220#       发表于 2022-12-31 14:42
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽了20连，又歪了
+
