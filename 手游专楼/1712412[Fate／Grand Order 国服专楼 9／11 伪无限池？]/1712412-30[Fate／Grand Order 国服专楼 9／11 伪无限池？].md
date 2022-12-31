@@ -3019,3 +3019,12 @@ c狐是boss战MVP
 
 福袋五赌一的C呆实在不敢下手……太毒了感觉会被所有人埋伏<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  AbigailWilliams  
+##### 44080#       发表于 2022-12-31 16:23
+
+福袋难得出次想要的，前两年四个福袋new都没有，我还是按数学期望玩科学福袋的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
