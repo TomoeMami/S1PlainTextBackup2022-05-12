@@ -2992,3 +2992,12 @@ c狐是boss战MVP
 
 小号福袋小麻雀<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，大号福袋new弓凛，10护肤狐狸一个
 
+
+
+*****
+
+####  JOHNCHCHAN  
+##### 44077#       发表于 2022-12-31 12:29
+
+福袋第一次踩雷了，对于强度没什么追求了，想满足XP抽个夹馍结果出了个X毛
+

@@ -2502,3 +2502,19 @@ CEO吧
 
 悲观：今年1号没地方过年，只能开直播唠嗑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  lj205  
+##### 10720#       发表于 2022-12-31 12:23
+
+北海道场给鲤鱼的花篮搞定，希望后面顺利送到，最后筹到的金额高出预算一倍，开始联系大阪的花篮<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+*****
+
+####  甘蓝巧克力  
+##### 10721#       发表于 2022-12-31 12:26
+
+现在我的快乐都是鱼给的😎
+
