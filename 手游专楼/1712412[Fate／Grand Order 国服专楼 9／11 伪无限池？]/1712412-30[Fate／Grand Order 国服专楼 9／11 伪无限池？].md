@@ -3050,3 +3050,14 @@ c狐是boss战MVP
 
 提醒一下，过了尾声后能铸造2个圣杯，0点就刷新了
 
+
+
+*****
+
+####  Blackson  
+##### 44083#       发表于 2022-12-31 17:45
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59151603&amp;ptid=1712412" target="_blank">廖化 发表于 2022-12-31 15:54</a>
+ 福袋五赌一的C呆实在不敢下手……太毒了感觉会被所有人埋伏</blockquote>
+还好后面2500W DL有C呆复刻，福袋这种在你从者越来越多的情况下就是查漏的作用，真的不要想补缺
+
