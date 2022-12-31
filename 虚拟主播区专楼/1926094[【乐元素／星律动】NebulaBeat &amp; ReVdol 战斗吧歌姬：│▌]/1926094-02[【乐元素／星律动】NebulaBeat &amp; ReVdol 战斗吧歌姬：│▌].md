@@ -12826,3 +12826,14 @@ Screenshot_2022-12-31-09-07-34-18_149003a2d400f6adb210d7e357a3a646.jpg
 
 鸭漏了大的，扇宝要来上海搞3D联动了，迷你趴2.0？
 
+
+
+*****
+
+####  天青月白  
+##### 2834#       发表于 2023-1-1 01:16
+
+早该打打电话了
+
+—— 来自 HUAWEI SCM-W09, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
+
