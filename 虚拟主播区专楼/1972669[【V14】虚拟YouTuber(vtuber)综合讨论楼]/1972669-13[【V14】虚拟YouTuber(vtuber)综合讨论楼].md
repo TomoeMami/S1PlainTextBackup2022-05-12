@@ -2431,3 +2431,16 @@ Holo每周动画的长度吧
 
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  FCCHua  
+##### 18226#       发表于 2022-12-31 10:13
+
+ 本帖最后由 FCCHua 于 2022-12-31 10:14 编辑 
+
+1/21   CRカップApex 第10回  
+「また会う日まで」
+按照ojj的说法暂时是最后一届派了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+

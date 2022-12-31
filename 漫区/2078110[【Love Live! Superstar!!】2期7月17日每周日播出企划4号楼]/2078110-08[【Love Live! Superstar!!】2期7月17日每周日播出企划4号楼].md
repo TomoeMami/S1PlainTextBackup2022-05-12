@@ -2478,3 +2478,14 @@ CEO吧
 
 <img src="https://p.sda1.dev/9/7b1fdd5338958371eb9d3fff1d89ae81/CMP_20221230214921162.jpg" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  Piano-Forest  
+##### 10718#       发表于 2022-12-31 10:19
+
+[https://twitter.com/kamatamanankotu/status/1608966625763692544](https://twitter.com/kamatamanankotu/status/1608966625763692544)
+<img src="https://p.sda1.dev/9/fb94d0770af271ec547814a4498b44cf/20221231_101739.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/9/d4c56e8144b87c299c6b760057bf86e9/20221231_101741.jpg" referrerpolicy="no-referrer">
+
