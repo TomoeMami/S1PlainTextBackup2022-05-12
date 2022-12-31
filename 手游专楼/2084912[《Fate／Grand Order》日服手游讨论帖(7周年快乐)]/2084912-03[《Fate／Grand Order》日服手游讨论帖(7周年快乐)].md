@@ -12547,3 +12547,17 @@ fsf延期了，估计内容不多
 就表里线两部了，表线通关pv给了里线四女主的cg和标题，总不能再拆一下</blockquote>
 原来如此，我学姐线ge还差一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  UNISONIA  
+##### 4126#       发表于 2022-12-31 09:20
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59145145&amp;ptid=2084912" target="_blank">千叶铁矢 发表于 2022-12-30 21:00</a>
+
+月姬r是上下还是上中下啊</blockquote>
+表线（吸血鬼篇）A piece of blue glass moon，里线（远野家篇）The other side of red garden。
+
+除了里线把五月线独立成单独路线以外，大致现在的月R包含的内容就是当时同人版的半月版，所以甫刚发售的时候有人调侃菌皇经典复刻又卖了个半月版的半成品
+
