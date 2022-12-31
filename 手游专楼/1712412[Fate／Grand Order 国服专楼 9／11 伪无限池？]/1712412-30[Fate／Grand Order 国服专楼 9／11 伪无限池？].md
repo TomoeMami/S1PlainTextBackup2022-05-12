@@ -3010,3 +3010,12 @@ c狐是boss战MVP
 
 福袋被土方埋伏了……
 
+
+
+*****
+
+####  廖化  
+##### 44079#       发表于 2022-12-31 15:54
+
+福袋五赌一的C呆实在不敢下手……太毒了感觉会被所有人埋伏<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
