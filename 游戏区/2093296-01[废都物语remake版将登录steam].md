@@ -9,3 +9,12 @@
 
 —— 来自 HUAWEI ELS-AN00, Android 12上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.5.4
 
+
+
+*****
+
+####  Evomenon  
+##### 435#       发表于 2023-1-1 00:28
+
+赶紧出吧，等着买了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
