@@ -770,3 +770,12 @@ Screenshot_2022-12-31-21-28-20-45_f9ee0578fe1cc94de7482bd41accb329.jpg
 
 我对FSF的改编充满信心，必定会超越FA，盖过FELE，碾压FGO1.7，纵观FATE系列动画化的失势，原因无一例外都是剧情。但是FSF放心啊，我虽然只看过漫画，但是感觉这样十二集做完应该也就是每个角色露个脸打个架秀个操作再换下一个角色，不仅通过没有主线剧情一点，避免了因剧情崩盘的惨痛经历，并且会诞生出众多装逼片段利于抖音剪辑，优势在我，这次稳了！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
+
+
+*****
+
+####  smdzh2  
+##### 75#       发表于 2023-1-1 01:26
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">古贺葵配缲丘椿，你不如直接切大号克琳希尔德嘎嘎乱杀
+
