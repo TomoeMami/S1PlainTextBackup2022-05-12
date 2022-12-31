@@ -12593,3 +12593,17 @@ fsf延期了，估计内容不多
 
 小恩给了50NP（不是绿宝具就是慷慨啊），可惜和三技能超回复绑定，10CD有点长，不过以后刷空想树应该是把好手。（宝具人类威胁特攻）
 
+
+
+*****
+
+####  都谷捻柏  
+##### 4130#       发表于 2022-12-31 18:49
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=59152952&amp;ptid=2084912" target="_blank">Jamaisvu 发表于 2022-12-31 18:11</a>
+
+闪闪目前是自buff就能50宝威，有给星有集星有充能，以后二技能强化给个暴击就很全面了。
+
+小恩给了50NP（不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">水狐：其实还是看人的，我也只拿到了30自充
+
