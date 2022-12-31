@@ -13022,3 +13022,61 @@ fate无双好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067
 感觉没法撼动帝王花和魔总的位置... ...</blockquote>
 蓝光炮
 
+
+
+*****
+
+####  kuarwbwe  
+##### 4178#       发表于 2022-12-31 23:05
+
+我一直私下奶2.7下要拖到3月的，只能说1月下开和我的预计比其实已经很有效率了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别的无聊就无聊吧，反正我一看到水时长的内容就切出去看别的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+*****
+
+####  alucardcz  
+##### 4179#       发表于 2022-12-31 23:06
+
+<img src="https://img.saraba1st.com/forum/202212/31/230546hdiiaep7pjr7gap5.jpg" referrerpolicy="no-referrer">
+
+<strong>3333.jpg</strong> (623.77 KB, 下载次数: 0)
+
+下载附件
+
+2022-12-31 23:05 上传
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次福袋运气不错  终于有120了
+
+*****
+
+####  Jamaisvu  
+##### 4180#       发表于 2022-12-31 23:06
+
+ 本帖最后由 Jamaisvu 于 2022-12-31 23:10 编辑 
+
+这个四星概率好像真有提升，我平均每十十五二十连一个吧...
+
+120抽没五星，麻了...要不要点个麻婆豆腐外卖当圣遗物（大误）<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+*****
+
+####  angelooo  
+##### 4181#       发表于 2022-12-31 23:07
+
+胶皮帝王花是灵衣啊，不用抽新的真是太好了
+
+*****
+
+####  angelooo  
+##### 4182#       发表于 2022-12-31 23:10
+
+麻婆这卡面我喷了，社长四个卡面姿势都不变的，只有第一张能看吧艹，后面都是些什么呀
+
+*****
+
+####  rooarr  
+##### 4183#       发表于 2022-12-31 23:10
+
+福袋金时，2单1麻婆，滚蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
